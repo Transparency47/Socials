@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-09-28
 
-- Posts: 12
+- Posts: 34
 
 - [23:11 UTC - [https:// x.com/TRUMP_ARMY_/status/19722 82140667904372](https://x.com/TRUMP_ARMY_/status/...](115284449276987627/)
   - Source: https://truthsocial.com/@realDonaldTrump/115284449276987627
@@ -38,3 +38,69 @@
 - [22:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115283821263580695 Border Patro...](115284390473558678/)
   - Source: https://truthsocial.com/@realDonaldTrump/115284390473558678
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115283821263580695 Border Patrol will take no nonsense!
+- [20:48 UTC - Truth Social post 115283887618990920](115283887618990920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115283887618990920
+  - _No text content captured._
+- [20:32 UTC - Some of the highest quality 24 Karat Gold used in the Oval Office and Cabinet Room of the ...](115283825662825835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115283825662825835
+  - Some of the highest quality 24 Karat Gold used in the Oval Office and Cabinet Room of the White House. Foreign Leaders, and everyone else, “freak out” when they see the quality and...
+- [20:31 UTC - CHICAGO…](115283821263580695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115283821263580695
+  - CHICAGO…
+- [18:59 UTC - Russell M. Nelson, the President and Prophet of the Church of Jesus Christ of Latter-day S...](115283456384015419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115283456384015419
+  - Russell M. Nelson, the President and Prophet of the Church of Jesus Christ of Latter-day Saints, passed away last night at the age of 101 — He just had his birthday earlier this we...
+- [17:08 UTC - I have been briefed on the horrendous shooting that took place at the Church of Jesus Chri...](115283020712432544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115283020712432544
+  - I have been briefed on the horrendous shooting that took place at the Church of Jesus Christ of Latter-day Saints, in Grand Blanc, Michigan. The FBI was immediately on scene, and w...
+- [14:49 UTC - It was great being with King Charles, Queen Camilla, and the Royal Family!](115282475594529474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115282475594529474
+  - It was great being with King Charles, Queen Camilla, and the Royal Family!
+- [14:23 UTC - MAKE CRIME ILLEGAL AGAIN!](115282373388310178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115282373388310178
+  - MAKE CRIME ILLEGAL AGAIN!
+- [12:51 UTC - We have a real chance for GREATNESS IN THE MIDDLE EAST. ALL ARE ON BOARD FOR SOMETHING SPE...](115282009590636281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115282009590636281
+  - We have a real chance for GREATNESS IN THE MIDDLE EAST. ALL ARE ON BOARD FOR SOMETHING SPECIAL, FIRST TIME EVER. WE WILL GET IT DONE!!! President DJT
+- [03:12 UTC - A really great and impactful book, just out, “ON DEMOCRACIES AND DEATH CULTS,” by New York...](115279734861052153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279734861052153
+  - A really great and impactful book, just out, “ON DEMOCRACIES AND DEATH CULTS,” by New York Times Bestselling Author, Douglas Murray. Get it NOW!!! President DJT
+- [02:38 UTC - Truth Social post 115279601478749277](115279601478749277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279601478749277
+  - _No text content captured._
+- [02:37 UTC - Truth Social post 115279597363707290](115279597363707290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279597363707290
+  - _No text content captured._
+- [02:37 UTC - Truth Social post 115279596297293429](115279596297293429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279596297293429
+  - _No text content captured._
+- [02:25 UTC - Truth Social post 115279550586740869](115279550586740869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279550586740869
+  - _No text content captured._
+- [02:25 UTC - Truth Social post 115279549194208144](115279549194208144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279549194208144
+  - _No text content captured._
+- [02:25 UTC - Truth Social post 115279548491098621](115279548491098621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279548491098621
+  - _No text content captured._
+- [02:19 UTC - Truth Social post 115279525606703136](115279525606703136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279525606703136
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 115279518190427759](115279518190427759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279518190427759
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 115279517415491687](115279517415491687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279517415491687
+  - _No text content captured._
+- [02:17 UTC - Truth Social post 115279516169372364](115279516169372364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279516169372364
+  - _No text content captured._
+- [02:14 UTC - Truth Social post 115279506720009564](115279506720009564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279506720009564
+  - _No text content captured._
+- [01:46 UTC - Truth Social post 115279395657806818](115279395657806818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279395657806818
+  - _No text content captured._
+- [01:45 UTC - Truth Social post 115279393785497825](115279393785497825/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115279393785497825
+  - _No text content captured._
