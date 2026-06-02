@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-02-23
+
+- Posts: 23
+
+- [21:25 UTC - Very important to save The Great Salt Lake in Utah. This is an Environmental hazard that m...](116122053850516272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116122053850516272
+  - Very important to save The Great Salt Lake in Utah. This is an Environmental hazard that must be worked on, IMMEDIATELY — It is of tremendous interest to me. The people of Utah are...
+- [21:11 UTC - Numerous stories from the Fake News Media have been circulating stating that General Danie...](116121997925438698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116121997925438698
+  - Numerous stories from the Fake News Media have been circulating stating that General Daniel Caine, sometimes referred to as Razin, is against us going to War with Iran. The story d...
+- [21:07 UTC - Whistleblower details ‘rampant’ SNAP-EBT fraud in Massachusetts: ‘It’s just unbelievable’:...](116121982523217082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116121982523217082
+  - Whistleblower details ‘rampant’ SNAP-EBT fraud in Massachusetts: ‘It’s just unbelievable’: [https://www. bostonherald.com/2026/02/15/wh istleblower-details-rampant-snap-ebt-fraud-i...
+- [21:06 UTC - Massachusetts Auditor details how SNAP, MassHealth schemes were carried out: [https://www....](116121978283687613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116121978283687613
+  - Massachusetts Auditor details how SNAP, MassHealth schemes were carried out: [https://www. bostonherald.com/2026/01/31/re action-to-latest-fraud-bust-as-mass-auditor-details-how-sn...
+- [20:48 UTC - Massachusetts Auditor’s Office uncovers nearly $12M in SNAP, MassHealth, other public bene...](116121908532528608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116121908532528608
+  - Massachusetts Auditor’s Office uncovers nearly $12M in SNAP, MassHealth, other public benefits fraud: [https://www. bostonherald.com/2026/01/30/ma ssachusetts-auditors-office-uncov...
+- [14:49 UTC - As President, I do not have to go back to Congress to get approval of Tariffs. It has alre...](116120496650075903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120496650075903
+  - As President, I do not have to go back to Congress to get approval of Tariffs. It has already been gotten, in many forms, a long time ago! They were also just reaffirmed by the rid...
+- [14:34 UTC - Any Country that wants to “play games” with the ridiculous supreme court decision, especia...](116120439459742948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120439459742948
+  - Any Country that wants to “play games” with the ridiculous supreme court decision, especially those that have “Ripped Off” the U.S.A. for years, and even decades, will be met with...
+- [14:08 UTC - Great interview of American Patriot Derek Maltz, by wonderful Fox & Friends host Lawrence ...](116120334071120213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120334071120213
+  - Great interview of American Patriot Derek Maltz, by wonderful Fox & Friends host Lawrence Jones, who is terrific! Mexico must step up their effort on Cartels and Drugs!
+- [14:02 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120312031080294 Byron will b...](116120313423769416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120313423769416
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120312031080294 Byron will be a great governor!!! President DJT
+- [14:02 UTC - Truth Social post 116120312031080294](116120312031080294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120312031080294
+  - _No text content captured._
+- [14:01 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120307771986643](116120309287017918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120309287017918
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120307771986643
+- [14:01 UTC - Truth Social post 116120307771986643](116120307771986643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120307771986643
+  - _No text content captured._
+- [13:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120278547441463](116120281744447532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120281744447532
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116120278547441463
+- [13:53 UTC - Truth Social post 116120278547441463](116120278547441463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120278547441463
+  - _No text content captured._
+- [13:53 UTC - Truth Social post 116120276365839507](116120276365839507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120276365839507
+  - _No text content captured._
+- [13:53 UTC - Truth Social post 116120275584777418](116120275584777418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116120275584777418
+  - _No text content captured._
+- [12:06 UTC - The supreme court (will be using lower case letters for a while based on a complete lack o...](116119857222583140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116119857222583140
+  - The supreme court (will be using lower case letters for a while based on a complete lack of respect!) of the United States accidentally and unwittingly gave me, as President of the...
+- [10:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116119516514284571](116119517642924564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116119517642924564
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116119516514284571
+- [10:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116119514074619374](116119516514284571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116119516514284571
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116119514074619374
+- [10:39 UTC - Truth Social post 116119514074619374](116119514074619374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116119514074619374
+  - _No text content captured._
+- [02:44 UTC - We’re Winning too much, it’s just not fair! President DJT](116117644453675365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116117644453675365
+  - We’re Winning too much, it’s just not fair! President DJT
+- [02:40 UTC - Truth Social post 116117631579794905](116117631579794905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116117631579794905
+  - _No text content captured._
+- [02:40 UTC - Truth Social post 116117631298819684](116117631298819684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116117631298819684
+  - _No text content captured._

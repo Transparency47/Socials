@@ -1,0 +1,214 @@
+# TruthSocial / RealDonaldTrump / 2026-02-17
+
+- Posts: 70
+
+- [20:26 UTC - Truth Social post 116087850037092347](116087850037092347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087850037092347
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 116087849217963860](116087849217963860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087849217963860
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 116087848346677437](116087848346677437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087848346677437
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 116087847332271396](116087847332271396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087847332271396
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 116087846573310790](116087846573310790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087846573310790
+  - _No text content captured._
+- [20:25 UTC - Truth Social post 116087845874018125](116087845874018125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087845874018125
+  - _No text content captured._
+- [20:21 UTC - Our MASSIVE Trade Deal with Japan has just launched! Japan is now officially, and financia...](116087827602935657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087827602935657
+  - Our MASSIVE Trade Deal with Japan has just launched! Japan is now officially, and financially, moving forward with the FIRST set of Investments under its $550 BILLION Dollar Commit...
+- [20:19 UTC - The Great Economist, Stephen Moore: “In the past Century, the three Greatest Presidents we...](116087821417956648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087821417956648
+  - The Great Economist, Stephen Moore: “In the past Century, the three Greatest Presidents were Calvin Coolidge, Ronald Reagan, and Donald J. Trump!”
+- [18:51 UTC - The Great Economist, Stephen Moore: “President Donald J. Trump has done something no one e...](116087475988311202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087475988311202
+  - The Great Economist, Stephen Moore: “President Donald J. Trump has done something no one else has done — He has proven 22 Nobel Prize Scientists WRONG on the Economy!”
+- [18:50 UTC - Truth Social post 116087471985064124](116087471985064124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087471985064124
+  - _No text content captured._
+- [18:50 UTC - Truth Social post 116087470851539427](116087470851539427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087470851539427
+  - _No text content captured._
+- [18:50 UTC - Truth Social post 116087470097941891](116087470097941891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087470097941891
+  - _No text content captured._
+- [18:50 UTC - Truth Social post 116087469371776045](116087469371776045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087469371776045
+  - _No text content captured._
+- [18:49 UTC - Truth Social post 116087468615746566](116087468615746566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087468615746566
+  - _No text content captured._
+- [18:49 UTC - Truth Social post 116087467958406201](116087467958406201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087467958406201
+  - _No text content captured._
+- [18:48 UTC - Truth Social post 116087462731641654](116087462731641654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087462731641654
+  - _No text content captured._
+- [18:47 UTC - Truth Social post 116087459517979859](116087459517979859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087459517979859
+  - _No text content captured._
+- [18:47 UTC - Truth Social post 116087458489169350](116087458489169350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087458489169350
+  - _No text content captured._
+- [18:47 UTC - Truth Social post 116087457764433716](116087457764433716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087457764433716
+  - _No text content captured._
+- [18:46 UTC - Truth Social post 116087456334547808](116087456334547808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087456334547808
+  - _No text content captured._
+- [18:46 UTC - Truth Social post 116087455405989113](116087455405989113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087455405989113
+  - _No text content captured._
+- [18:16 UTC - Truth Social post 116087337212565708](116087337212565708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087337212565708
+  - _No text content captured._
+- [17:56 UTC - Tax Refunds this year, because of “THE GREAT BIG BEAUTIFUL BILL,” are substantially greate...](116087259160100035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116087259160100035
+  - Tax Refunds this year, because of “THE GREAT BIG BEAUTIFUL BILL,” are substantially greater than ever before. In some cases, estimates are that over 20% will be returned to the Tax...
+- [15:55 UTC - Maryland, Virginia, and Washington, D.C., who are responsible for the massive sewage spill...](116086782319939311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116086782319939311
+  - Maryland, Virginia, and Washington, D.C., who are responsible for the massive sewage spill in the Potomac River, must get to work, IMMEDIATELY. If they can’t do the job, they have...
+- [15:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116086580181836254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116086580181836254
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot, Clay Fuller, who is running to represent the wonderful peopl...
+- [13:28 UTC - The Reverend Jesse Jackson is Dead at 84. I knew him well, long before becoming President....](116086206069142759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116086206069142759
+  - The Reverend Jesse Jackson is Dead at 84. I knew him well, long before becoming President. He was a good man, with lots of personality, grit, and “street smarts.” He was very grega...
+- [02:12 UTC - Richard Hudson is a Great Man, and TREMENDOUS Congressman, who is doing an outstanding job...](116083547108869974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083547108869974
+  - Richard Hudson is a Great Man, and TREMENDOUS Congressman, who is doing an outstanding job representing the wonderful people of North Carolina’s 9th Congressional District. As Chai...
+- [02:12 UTC - Congressman Mark Harris is a terrific Representative for the incredible people of North Ca...](116083546620753530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083546620753530
+  - Congressman Mark Harris is a terrific Representative for the incredible people of North Carolina’s 8th Congressional District! Mark has a strong Record of SUCCESS, and compelling s...
+- [02:12 UTC - Congressman Addison McDowell is an America First Patriot, who is doing a fantastic job rep...](116083546136249613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083546136249613
+  - Congressman Addison McDowell is an America First Patriot, who is doing a fantastic job representing North Carolina’s 6th Congressional District! A MAGA Warrior, Addison previously...
+- [02:12 UTC - Congressman Greg Murphy, M.D., is a Tremendous Champion for the incredible people of North...](116083545552204769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083545552204769
+  - Congressman Greg Murphy, M.D., is a Tremendous Champion for the incredible people of North Carolina’s 3rd Congressional District! A distinguished Surgeon and Member of the House Ve...
+- [02:11 UTC - America First Patriot Michael Whatley will be an amazing United States Senator for the Gre...](116083542631076246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083542631076246
+  - America First Patriot Michael Whatley will be an amazing United States Senator for the Great State of North Carolina, which I love and WON BIG, six times, including Primaries, in 2...
+- [02:11 UTC - Congressman Tim Moore is a Tremendous Champion for North Carolina’s 14th Congressional Dis...](116083542092282954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083542092282954
+  - Congressman Tim Moore is a Tremendous Champion for North Carolina’s 14th Congressional District! Tim served as the Highly Respected Speaker of the North Carolina House of Represent...
+- [02:11 UTC - Congressman Brad Knott is a terrific Representative for the incredible people of North Car...](116083541625057957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083541625057957
+  - Congressman Brad Knott is a terrific Representative for the incredible people of North Carolina’s 13th Congressional District! As a former Criminal Prosecutor, Brad knows the Wisdo...
+- [02:11 UTC - Congressman Chuck Edwards is a MAGA Warrior who is doing a fantastic job representing Nort...](116083541144234890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083541144234890
+  - Congressman Chuck Edwards is a MAGA Warrior who is doing a fantastic job representing North Carolina’s 11th Congressional District! A proud Businessman, Civic Leader, and Highly Re...
+- [02:10 UTC - Pat Harrigan is a tremendous Representative for the Great People of North Carolina’s 10th ...](116083540250496291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083540250496291
+  - Pat Harrigan is a tremendous Representative for the Great People of North Carolina’s 10th Congressional District! A West Point Graduate and a Combat Decorated Green Beret, Pat know...
+- [02:10 UTC - Congressman David Rouzer is a terrific Representative for the incredible people of North C...](116083539591551122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083539591551122
+  - Congressman David Rouzer is a terrific Representative for the incredible people of North Carolina’s 7th Congressional District! A Proven Leader, David served as a Highly Respected...
+- [02:10 UTC - Congresswoman Virginia Foxx is doing a tremendous job fighting for the people of North Car...](116083538992726143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083538992726143
+  - Congresswoman Virginia Foxx is doing a tremendous job fighting for the people of North Carolina’s 5th Congressional District! As Chair of the House Rules Committee, Virginia is wor...
+- [02:10 UTC - State Senator Phil Berger is an America First Patriot, who is doing an incredible job repr...](116083538418810885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083538418810885
+  - State Senator Phil Berger is an America First Patriot, who is doing an incredible job representing North Carolina’s 26th Senate District! Phil Berger has served as the Highly Respe...
+- [02:09 UTC - Congressman Roger Williams is a Tremendous Champion for the incredible people of Texas’ 25...](116083534327996449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083534327996449
+  - Congressman Roger Williams is a Tremendous Champion for the incredible people of Texas’ 25th Congressional District! As a very successful Businessman, and Chairman of the House Sma...
+- [02:09 UTC - Congresswoman Beth Van Duyne is a fantastic Champion for the Great People of Texas’ 24th C...](116083533873011232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083533873011232
+  - Congresswoman Beth Van Duyne is a fantastic Champion for the Great People of Texas’ 24th Congressional District! A former appointee in my First Administration, where she worked har...
+- [02:09 UTC - Congressman Pete Sessions is a Tremendous Champion for Texas’ 17th Congressional District!...](116083533250062812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083533250062812
+  - Congressman Pete Sessions is a Tremendous Champion for Texas’ 17th Congressional District! As former Chairman of the House Rules Committee and the National Republican Congressional...
+- [02:09 UTC - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful peop...](116083532769140354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083532769140354
+  - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful people of Texas’ 15th Congressional District! A very successful Small Businesswoman, Monica kn...
+- [02:08 UTC - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional Dis...](116083532244475357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083532244475357
+  - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional District! A Fifth Generation Texan, Craig served as a State Representative for 12 years prior...
+- [02:08 UTC - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District...](116083531557715615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083531557715615
+  - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District! As the Chairman of the Republican Study Committee, August is doing an incredible job adv...
+- [02:08 UTC - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job represe...](116083530917124809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083530917124809
+  - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job representing Texas’ 5th Congressional District! A MAGA Warrior, who has been with us from the ver...
+- [02:08 UTC - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texa...](116083530388167523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083530388167523
+  - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texas’ 1st Congressional District! Nathaniel has an incredible Record of Success, and strong s...
+- [02:08 UTC - Dustin Burrows is a True Warrior for Republicans, and is doing a fantastic job as Speaker ...](116083529813648993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083529813648993
+  - Dustin Burrows is a True Warrior for Republicans, and is doing a fantastic job as Speaker of the Texas House of Representatives! Thanks to Dustin’s strong and effective Leadership...
+- [02:06 UTC - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congression...](116083522794287716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083522794287716
+  - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congressional District! As the Highly Respected Chairman of the House Science Committee, Brian is fig...
+- [02:06 UTC - It is my Great Honor to endorse America First Patriot, Eric Flores, who is running to repr...](116083522279284720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083522279284720
+  - It is my Great Honor to endorse America First Patriot, Eric Flores, who is running to represent the wonderful people of Texas’ 34th Congressional District. A Brave U.S. Army Vetera...
+- [02:06 UTC - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to r...](116083521755181713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083521755181713
+  - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to represent the wonderful people of Texas’ 32nd Congressional District. A Brave Air Force Vet...
+- [02:06 UTC - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texa...](116083521197710937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083521197710937
+  - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texas’ 31st Congressional District! “Judge” served over 20 years as a District Court Judge in...
+- [02:05 UTC - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tan...](116083520444818787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083520444818787
+  - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tano Tijerina has dedicated his life to serving his Community. In Congress, he will fight tir...
+- [02:05 UTC - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Con...](116083519711241581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083519711241581
+  - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Congressional District! As a Member of the POWERFUL House Appropriations Committee, Michael i...
+- [02:05 UTC - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congr...](116083518237544490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083518237544490
+  - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congressional District! I have known Brandon’s family for many years. He has an incredible wife...
+- [02:05 UTC - Congressman Tony Gonzales is a terrific Representative for the wonderful people of Texas’ ...](116083517548295708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083517548295708
+  - Congressman Tony Gonzales is a terrific Representative for the wonderful people of Texas’ 23rd Congressional District! A retired Master Chief Petty Officer from the U.S. Navy, who...
+- [02:04 UTC - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incre...](116083516726542497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083516726542497
+  - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incredible people of Texas’ 22nd Congressional District. Trever's brother is the GREAT Congress...
+- [02:04 UTC - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candida...](116083516148489181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083516148489181
+  - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candidate, who is running to represent the incredible people of Texas’ 21st Congressional Distric...
+- [02:04 UTC - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texa...](116083515613137815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083515613137815
+  - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texas’ 14th Congressional District! A successful Businessman, Randy knows the America First Po...
+- [02:04 UTC - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job ...](116083514768590544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083514768590544
+  - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job representing Texas’ 13th Congressional District! A distinguished Medical Doctor and U.S. N...
+- [02:04 UTC - It is my Great Honor to endorse MAGA Warrior, Chris Gober, who is running to represent the...](116083514191914702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083514191914702
+  - It is my Great Honor to endorse MAGA Warrior, Chris Gober, who is running to represent the wonderful people of Texas’ 10th Congressional District. A Harvard Law School Graduate, an...
+- [02:04 UTC - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job represe...](116083513277583218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083513277583218
+  - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job representing Texas’ 6th Congressional District! A former Navy fighter pilot and Combat Veteran, J...
+- [02:03 UTC - Congressman Pat Fallon is a fantastic Representative for the wonderful People of Texas’ 4t...](116083512378602146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083512378602146
+  - Congressman Pat Fallon is a fantastic Representative for the wonderful People of Texas’ 4th Congressional District! An Air Force Veteran, successful Businessman, former National Ch...
+- [02:03 UTC - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congres...](116083509943686365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083509943686365
+  - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congressional District! A West Point Graduate and retired Army Ranger, Keith knows the Wisdom and...
+- [02:02 UTC - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON B...](116083509060571974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083509060571974
+  - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON BIG three times, including with 6.4 Million Votes in 2024 (The most Votes in History, BY FA...
+- [02:02 UTC - Highly Respected State Representative David Cook is running to represent the wonderful peo...](116083508169090556/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083508169090556
+  - Highly Respected State Representative David Cook is running to represent the wonderful people of Texas Senate District 22. David has a strong Record of Success, and incredible supp...
+- [02:02 UTC - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. ...](116083507421986226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083507421986226
+  - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. As Texas Chair of our Presidential Campaigns in 2016, 2020, and 2024, Dan has been an incr...
+- [01:03 UTC - It is my Great Honor to endorse Jessica Steinmann, who is running to represent the amazing...](116083274172061013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083274172061013
+  - It is my Great Honor to endorse Jessica Steinmann, who is running to represent the amazing people of Texas’ 8th Congressional District. Jessica is strongly supported by many of the...
+- [01:02 UTC - It is my Great Honor to endorse America First Patriot Alex Mealer, who is running to repre...](116083271828191452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083271828191452
+  - It is my Great Honor to endorse America First Patriot Alex Mealer, who is running to represent the incredible people of Texas’ 9th Congressional District. A West Point Graduate, an...
+- [01:02 UTC - It is my Great Honor to endorse Carlos De La Cruz, a fantastic America First Candidate run...](116083269727224876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083269727224876
+  - It is my Great Honor to endorse Carlos De La Cruz, a fantastic America First Candidate running to be the next Congressman from Texas’ 35th Congressional District! A Brave, 20 Year...
+- [01:01 UTC - Jon Bonck is an incredible Candidate running to represent the fantastic people of Texas’ 3...](116083267723811706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116083267723811706
+  - Jon Bonck is an incredible Candidate running to represent the fantastic people of Texas’ 38th Congressional District. He is supported by many MAGA Patriots, including Senator Ted C...

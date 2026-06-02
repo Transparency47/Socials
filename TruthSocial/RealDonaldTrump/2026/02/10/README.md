@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-02-10
+
+- Posts: 23
+
+- [23:54 UTC - Congressman Carlos Gimenez is doing a fantastic job representing Florida’s 28th Congressio...](116049030986794379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049030986794379
+  - Congressman Carlos Gimenez is doing a fantastic job representing Florida’s 28th Congressional District! A Highly Respected Firefighter, Civic Leader, and Mayor of Miami-Dade County...
+- [23:53 UTC - Congresswoman María Elvira Salazar is doing a truly fantastic job representing the wonderf...](116049024324119533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049024324119533
+  - Congresswoman María Elvira Salazar is doing a truly fantastic job representing the wonderful people of Florida’s 27th Congressional District! A former News Anchor and Political Rep...
+- [23:52 UTC - Congressman Brian Mast is a MAGA Warrior and Fantastic Advocate for Florida’s 21st Congres...](116049022411044647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049022411044647
+  - Congressman Brian Mast is a MAGA Warrior and Fantastic Advocate for Florida’s 21st Congressional District! As the Chairman of my WINNING 2024 Campaign’s Veterans for Trump Coalitio...
+- [23:52 UTC - Congressman Daniel Webster is doing an incredible job representing the Great People of Flo...](116049020221132395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049020221132395
+  - Congressman Daniel Webster is doing an incredible job representing the Great People of Florida’s 11th Congressional District! A successful Businessman, Daniel knows the AMERICA FIR...
+- [23:51 UTC - Congressman Cory Mills is an America First Patriot and Tremendous Champion for the Great P...](116049018753880504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049018753880504
+  - Congressman Cory Mills is an America First Patriot and Tremendous Champion for the Great People of Florida’s 7th Congressional District! A Successful Entrepreneur, and Brave U.S. A...
+- [23:50 UTC - Congressman John Rutherford is an incredible Representative for the wonderful People of Fl...](116049016029391163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049016029391163
+  - Congressman John Rutherford is an incredible Representative for the wonderful People of Florida’s 5th Congressional District! As the former Sheriff of Duval County, and now, as a H...
+- [23:50 UTC - Congressman Aaron Bean is a Tremendous Champion for Florida’s 4th Congressional District! ...](116049014529870682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116049014529870682
+  - Congressman Aaron Bean is a Tremendous Champion for Florida’s 4th Congressional District! As a Member of the POWERFUL Ways & Means Committee, Aaron knows the America First Policies...
+- [18:41 UTC - Two views of the Great Ballroom being built on the site of our wonderful White House — It ...](116047799547098230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116047799547098230
+  - Two views of the Great Ballroom being built on the site of our wonderful White House — It is on budget, and ahead of schedule! When completed, it will be the finest Ballroom ever b...
+- [12:52 UTC - Truth Social post 116046425196102899](116046425196102899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046425196102899
+  - _No text content captured._
+- [11:37 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046128032274537](116046130334911104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046130334911104
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046128032274537
+- [11:36 UTC - Truth Social post 116046128032274537](116046128032274537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046128032274537
+  - _No text content captured._
+- [11:36 UTC - Truth Social post 116046126163758879](116046126163758879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046126163758879
+  - _No text content captured._
+- [11:35 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046122963627074](116046124733896300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046124733896300
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046122963627074
+- [11:35 UTC - Truth Social post 116046122963627074](116046122963627074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046122963627074
+  - _No text content captured._
+- [11:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046114905283832](116046118344224496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046118344224496
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046114905283832
+- [11:33 UTC - Truth Social post 116046114905283832](116046114905283832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046114905283832
+  - _No text content captured._
+- [11:31 UTC - Truth Social post 116046109857035638](116046109857035638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046109857035638
+  - _No text content captured._
+- [11:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046106893215315](116046108353061716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046108353061716
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116046106893215315
+- [11:31 UTC - Truth Social post 116046106893215315](116046106893215315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046106893215315
+  - _No text content captured._
+- [11:30 UTC - Truth Social post 116046105720384259](116046105720384259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116046105720384259
+  - _No text content captured._
+- [07:33 UTC - Ex-FBI agent says Bondi has ‘slam dunk’ conspiracy case against Obama's feds for election ...](116045171347553218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116045171347553218
+  - Ex-FBI agent says Bondi has ‘slam dunk’ conspiracy case against Obama's feds for election meddling: [https:// justthenews.com/accountability /political-ethics/slam-dunk-ex-fbi-agen...
+- [07:32 UTC - Pentagon wants ethics inquiry on Rep. Vindman’s Ukraine business deals: [https:// justthen...](116045169076455564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116045169076455564
+  - Pentagon wants ethics inquiry on Rep. Vindman’s Ukraine business deals: [https:// justthenews.com/government/con gress/pentagon-wants-ethics-inquiry-vindmans-ukraine-business-effor...
+- [07:32 UTC - Federal appeals court hands Trump big win, ends protections for migrants from three nation...](116045166812782623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116045166812782623
+  - Federal appeals court hands Trump big win, ends protections for migrants from three nations: [https:// justthenews.com/government/cou rts-law/federal-appeals-court-california-allow...

@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-02-12
+
+- Posts: 16
+
+- [22:06 UTC - Trump has reversed the Biden-made manufacturing decline: [https://www. washingtontimes.com...](116059929149671133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116059929149671133
+  - Trump has reversed the Biden-made manufacturing decline: [https://www. washingtontimes.com/news/2026/ feb/10/trump-reversed-biden-made-manufacturing-decline/](https://www.washingto...
+- [16:22 UTC - Relations between Venezuela and the United States have been, to put it mildly, extraordina...](116058575898389756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058575898389756
+  - Relations between Venezuela and the United States have been, to put it mildly, extraordinary! We are dealing very well with President Delcy Rodriguez, and her Representatives. Oil...
+- [16:07 UTC - AG Pam Bondi, under intense fire from the Trump Deranged Radical Left Lunatics, was fantas...](116058518017586892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058518017586892
+  - AG Pam Bondi, under intense fire from the Trump Deranged Radical Left Lunatics, was fantastic at yesterday’s Hearing on the never ending saga of Jeffrey Epstein, where the one thin...
+- [16:06 UTC - Dow 50,000: Why Wall Street Keeps Misunderstanding Trumpnomics: [https://www. realclearmar...](116058514459647451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058514459647451
+  - Dow 50,000: Why Wall Street Keeps Misunderstanding Trumpnomics: [https://www. realclearmarkets.com/articles/ 2026/02/09/dow_50000_why_wall_street_keeps_misunderstanding_trumpnomics...
+- [15:43 UTC - Remember, it was RINO Governor Kevin Stitt, of Oklahoma, who was massively behind his Oppo...](116058424559317277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058424559317277
+  - Remember, it was RINO Governor Kevin Stitt, of Oklahoma, who was massively behind his Opponent in his previous Election for Governor, who called me to ask for help. I Endorsed him...
+- [15:43 UTC - It is my Great Honor to nominate Evan Rikhye to the U.S. District Court for the District o...](116058422580851345/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058422580851345
+  - It is my Great Honor to nominate Evan Rikhye to the U.S. District Court for the District of the Virgin Islands. A proud Graduate of American University, Evan has distinguished hims...
+- [15:32 UTC - It is my Honor to nominate Kara Westercamp to the Court of International Trade. Kara is a ...](116058380851344261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058380851344261
+  - It is my Honor to nominate Kara Westercamp to the Court of International Trade. Kara is a very experienced Trade Lawyer, who spent over a decade working as an Attorney at the Depar...
+- [15:31 UTC - I am pleased to announce the nomination of Sheria Clarke to serve as Judge on the United S...](116058375241649335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058375241649335
+  - I am pleased to announce the nomination of Sheria Clarke to serve as Judge on the United States District Court for the District of South Carolina. A Graduate of the University of N...
+- [15:30 UTC - I am pleased to announce the nomination of Katie Lane to serve as Judge on the United Stat...](116058372221082015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116058372221082015
+  - I am pleased to announce the nomination of Katie Lane to serve as Judge on the United States District Court for the District of Montana. Katie brings fantastic experience to her ne...
+- [13:43 UTC - Pentagon Prepares Second Aircraft Carrier to Deploy to the Middle East: [https://www. wsj....](116057953062349559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116057953062349559
+  - Pentagon Prepares Second Aircraft Carrier to Deploy to the Middle East: [https://www. wsj.com/politics/national-secu rity/pentagon-prepares-second-aircraft-carrier-to-deploy-to-the...
+- [12:55 UTC - First Lady Melania Trump charms young patients during NIH visit to mark Valentine's Day: [...](116057763946466140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116057763946466140
+  - First Lady Melania Trump charms young patients during NIH visit to mark Valentine's Day: [https:// justthenews.com/nation/states/ center-square/first-lady-charms-young-patients-dur...
+- [04:01 UTC - Truth Social post 116055662880379359](116055662880379359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116055662880379359
+  - _No text content captured._
+- [03:56 UTC - Truth Social post 116055642128125203](116055642128125203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116055642128125203
+  - _No text content captured._
+- [03:55 UTC - Truth Social post 116055640468504148](116055640468504148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116055640468504148
+  - _No text content captured._
+- [01:08 UTC - 1 big thing: Stunning crime crash: [https://www. axios.com/newsletters/axios-am -465b8c18-...](116054981689459629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054981689459629
+  - 1 big thing: Stunning crime crash: [https://www. axios.com/newsletters/axios-am -465b8c18-3bb3-42f5-b52d-db44fd387bdb.html](https://www.axios.com/newsletters/axios-am-465b8c18-3bb3...
+- [01:07 UTC - Trump Delivers Again as TrumpRx.gov Brings Immediate Drug Price Relief to Millions: [https...](116054979183962712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054979183962712
+  - Trump Delivers Again as TrumpRx.gov Brings Immediate Drug Price Relief to Millions: [https:// thenevadaglobe.com/articles/tr ump-delivers-again-as-trumprx-gov-brings-immediate-drug...

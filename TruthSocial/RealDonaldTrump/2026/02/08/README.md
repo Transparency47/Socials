@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-02-08
+
+- Posts: 10
+
+- [23:37 UTC - Enjoy the Super Bowl, America! Our Country is stronger, bigger, and better than ever befor...](116037637949800790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116037637949800790
+  - Enjoy the Super Bowl, America! Our Country is stronger, bigger, and better than ever before and, THE BEST IS YET TO COME! PRESIDENT DONALD J. TRUMP
+- [23:35 UTC - Record Stock Market, and National Security, driven by our Great TARIFFS. I am predicting 1...](116037631258027415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116037631258027415
+  - Record Stock Market, and National Security, driven by our Great TARIFFS. I am predicting 100,000 on the DOW by the end of my Term. REMEMBER, TRUMP WAS RIGHT ABOUT EVERYTHING! I hop...
+- [23:35 UTC - Great job by Michael and Susan Dell on [https:// InvestAmerica.org](https://InvestAmerica....](116037628806861509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116037628806861509
+  - Great job by Michael and Susan Dell on [https:// InvestAmerica.org](https://InvestAmerica.org) — These are truly spectacular people!
+- [23:13 UTC - Congratulations to Prime Minister Sanae Takaichi and her Coalition on a LANDSLIDE Victory ...](116037545036564953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116037545036564953
+  - Congratulations to Prime Minister Sanae Takaichi and her Coalition on a LANDSLIDE Victory in today’s very important Vote. She is a highly respected and very popular Leader. Sanae’s...
+- [15:43 UTC - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are eit...](116035773358024034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116035773358024034
+  - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are either going to fix them, or we won’t have a Country any longer. I am asking all Republicans...
+- [15:42 UTC - I just heard the Cricket World Cup is underway in India! I wish the best of luck to TEAM U...](116035771845598669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116035771845598669
+  - I just heard the Cricket World Cup is underway in India! I wish the best of luck to TEAM USA! We have a very strong team. America is rooting for you!
+- [15:39 UTC - U.S. Olympic Skier, Hunter Hess, a real Loser, says he doesn’t represent his Country in th...](116035760619414211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116035760619414211
+  - U.S. Olympic Skier, Hunter Hess, a real Loser, says he doesn’t represent his Country in the current Winter Olympics. If that’s the case, he shouldn’t have tried out for the Team, a...
+- [04:20 UTC - Poll: Majority prefer Trump's immigration policies over Biden's: [https:// justthenews.com...](116033087763930366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116033087763930366
+  - Poll: Majority prefer Trump's immigration policies over Biden's: [https:// justthenews.com/nation/states/ center-square/poll-majority-prefer-trumps-immigration-policies-over-bidens...
+- [04:19 UTC - Appeals court sides with Trump admin with mass detention ruling: [https:// justthenews.com...](116033085893903796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116033085893903796
+  - Appeals court sides with Trump admin with mass detention ruling: [https:// justthenews.com/government/cou rts-law/appeals-court-sides-trump-admin-mass-detention-ruling/](https://ju...
+- [02:55 UTC - I had a very important meeting with my friend, and the President of Honduras, Nasry “Tito”...](116032756566803491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116032756566803491
+  - I had a very important meeting with my friend, and the President of Honduras, Nasry “Tito” Asfura, today at Mar-a-Lago in Palm Beach, Florida. It was my Great Honor to support Tito...

@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-03-05
 
-- Posts: 6
+- Posts: 27
 
 - [21:12 UTC - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW VOTER I.D. (IDENTIFICATION!). 2. ALL VOTERS ...](116178624373752275/)
   - Source: https://truthsocial.com/@realDonaldTrump/116178624373752275
@@ -20,3 +20,66 @@
 - [17:39 UTC - Truth Social post 116177788298657808](116177788298657808/)
   - Source: https://truthsocial.com/@realDonaldTrump/116177788298657808
   - _No text content captured._
+- [17:38 UTC - Truth Social post 116177784616697185](116177784616697185/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177784616697185
+  - _No text content captured._
+- [17:06 UTC - Truth Social post 116177659903701469](116177659903701469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177659903701469
+  - _No text content captured._
+- [17:05 UTC - Truth Social post 116177653385393991](116177653385393991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177653385393991
+  - _No text content captured._
+- [17:03 UTC - Trump pardons 5 former NFL stars: [https://www. foxnews.com/sports/trump-pardo ns-5-former...](116177648586723296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177648586723296
+  - Trump pardons 5 former NFL stars: [https://www. foxnews.com/sports/trump-pardo ns-5-former-nfl-stars-wide-ranging-crimes](https://www.foxnews.com/sports/trump-pardons-5-former-nfl-...
+- [17:03 UTC - President Trump pardons Hall of Famer Joe Klecko and four other former NFL players: [https...](116177647347721084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177647347721084
+  - President Trump pardons Hall of Famer Joe Klecko and four other former NFL players: [https://www. nytimes.com/athletic/7043795/2 026/02/13/trump-pardons-nfl-players-klecko-newton-l...
+- [17:03 UTC - EXCLUSIVE: Trump Removes Barriers to Building Infrastructure in States: [https:// amac.us/...](116177646053391538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177646053391538
+  - EXCLUSIVE: Trump Removes Barriers to Building Infrastructure in States: [https:// amac.us/newsline/politics/excl usive-trump-removes-barriers-to-building-infrastructure-in-states/]...
+- [17:02 UTC - Midterm's Lesson: Use Blakeman-Trump Model for Victory: [https://www. newsmax.com/mclaughl...](116177644896153938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177644896153938
+  - Midterm's Lesson: Use Blakeman-Trump Model for Victory: [https://www. newsmax.com/mclaughlin/schumer -jeffries-mamdani/2025/11/14/id/1234569/](https://www.newsmax.com/mclaughlin/sc...
+- [16:59 UTC - U.S. Justice Department hangs banner of Donald Trump at headquarters: [https://www. ft.com...](116177631885804964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177631885804964
+  - U.S. Justice Department hangs banner of Donald Trump at headquarters: [https://www. ft.com/content/6eca9b40-a775-4 70f-83f0-a6f72e616230](https://www.ft.com/content/6eca9b40-a775-4...
+- [16:59 UTC - Mortgage rates fall to lowest level since 2022: [https://www. foxbusiness.com/economy/mort...](116177630658470650/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177630658470650
+  - Mortgage rates fall to lowest level since 2022: [https://www. foxbusiness.com/economy/mortga ge-rates-february-19-2026](https://www.foxbusiness.com/economy/mortgage-rates-february-...
+- [16:57 UTC - NYC Hospital Halts Sex Changes for Minors, Citing Pressure from Trump Admin: [https://www....](116177621970316306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177621970316306
+  - NYC Hospital Halts Sex Changes for Minors, Citing Pressure from Trump Admin: [https://www. breitbart.com/politics/2026/02 /19/nyc-hospital-halts-sex-changes-minors-citing-pressure-...
+- [16:56 UTC - Fine Arts Commission gives Trump’s ballroom the green light: [https:// nypost.com/2026/02/...](116177620612203379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177620612203379
+  - Fine Arts Commission gives Trump’s ballroom the green light: [https:// nypost.com/2026/02/19/us-news/ fine-arts-commission-gives-trumps-ballroom-the-green-light/](https://nypost.co...
+- [16:56 UTC - President Trump's DC crime task force has now made over 10,000 arrests since launch: [http...](116177618934457371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177618934457371
+  - President Trump's DC crime task force has now made over 10,000 arrests since launch: [https:// wjla.com/news/local/trump-fede ral-takeover-washington-dc-crime-initiative-make-dc-sa...
+- [16:55 UTC - ‘The Golden Era’: Trump touts $18T investment, steel revival in North Georgia: [https://ww...](116177616682804114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177616682804114
+  - ‘The Golden Era’: Trump touts $18T investment, steel revival in North Georgia: [https://www. fox5atlanta.com/news/president -donald-trump-rome-economy-elections-mtg](https://www.fo...
+- [16:55 UTC - Trump’s ‘no-nonsense’ DC crackdown tops 10k arrests as DOJ declares era of ‘unchecked viol...](116177614604175225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177614604175225
+  - Trump’s ‘no-nonsense’ DC crackdown tops 10k arrests as DOJ declares era of ‘unchecked violence is over’: [https://www. foxnews.com/politics/trumps-no -nonsense-dc-crackdown-tops-10...
+- [14:44 UTC - The Republicans MUST DO, with PASSION, and at the expense of everything else, THE SAVE AME...](116177101048442216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177101048442216
+  - The Republicans MUST DO, with PASSION, and at the expense of everything else, THE SAVE AMERICA ACT - And not the watered down version. This is a Country Defining fight for the Soul...
+- [14:35 UTC - Melania Trump makes history presiding over UN Security Council — remarking on Iran war dea...](116177065488835367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116177065488835367
+  - Melania Trump makes history presiding over UN Security Council — remarking on Iran war deaths: [https:// nypost.com/2026/03/02/us-news/ melania-trump-makes-history-presiding-over-u...
+- [04:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116174757064824630 Thank you to...](116174758696408802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116174758696408802
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116174757064824630 Thank you to our great NATO Secretary General! President DJT
+- [04:48 UTC - NATO Chief Rutte to Newsmax: Trump's Iran Mission Has Broad Allied Support: [https://www. ...](116174757064824630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116174757064824630
+  - NATO Chief Rutte to Newsmax: Trump's Iran Mission Has Broad Allied Support: [https://www. newsmax.com/newsmax-tv/nato-ch ief-rutte-to-newsmax-trumps-iran-mission-has-broad-allied-s...
+- [04:22 UTC - Ex-MAGA influencers lose clout in election primaries, but Trump still a difference maker: ...](116174655687493686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116174655687493686
+  - Ex-MAGA influencers lose clout in election primaries, but Trump still a difference maker: [https:// justthenews.com/government/whi te-house/ex-maga-influencers-lose-influence-elect...
+- [01:07 UTC - Miranda Devine: Trump debunking Al Gore’s climate fears has made the world a better place:...](116173889537109343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116173889537109343
+  - Miranda Devine: Trump debunking Al Gore’s climate fears has made the world a better place: [https:// nypost.com/2026/02/11/opinion/ trump-administration-debunking-al-gores-climate-...
+- [00:59 UTC - Steve Daines, of Montana, is one of our truly Great United States Senators. He honorably s...](116173854754088612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116173854754088612
+  - Steve Daines, of Montana, is one of our truly Great United States Senators. He honorably served for 12 years in the Senate, and 2 in the House of Representatives. He did a job like...

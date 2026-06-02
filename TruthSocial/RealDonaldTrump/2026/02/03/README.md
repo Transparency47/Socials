@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-02-03
+
+- Posts: 11
+
+- [20:45 UTC - This beautiful building will be, when complete, the much anticipated White House Ballroom ...](116008650149765600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116008650149765600
+  - This beautiful building will be, when complete, the much anticipated White House Ballroom — The Greatest of its kind ever built! It is a rendering from the Treasury Building, direc...
+- [20:12 UTC - Truth Social post 116008521863954604](116008521863954604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116008521863954604
+  - _No text content captured._
+- [20:04 UTC - Sleazebag “influencer” and lawyer Leonard Leo, who has legal issues of his own, goes aroun...](116008491173086552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116008491173086552
+  - Sleazebag “influencer” and lawyer Leonard Leo, who has legal issues of his own, goes around telling everyone how he has the Legal System RIGGED. I hope that’s not true and, if it i...
+- [14:53 UTC - NEW: Trump confirms talks with Cuba, hopeful he will strike deal: [https://www. foxnews.co...](116007267813302908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116007267813302908
+  - NEW: Trump confirms talks with Cuba, hopeful he will strike deal: [https://www. foxnews.com/video/638867104011 2](https://www.foxnews.com/video/6388671040112)
+- [14:53 UTC - Trump weighs diplomacy with Iran amid rising tensions: [https://www. foxnews.com/video/638...](116007266642651281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116007266642651281
+  - Trump weighs diplomacy with Iran amid rising tensions: [https://www. foxnews.com/video/638869020511 2](https://www.foxnews.com/video/6388690205112)
+- [14:53 UTC - Was Ilhan Omar there to protect her corrupt “homeland?” US forces strike ISIS-Somalia lead...](116007264985679550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116007264985679550
+  - Was Ilhan Omar there to protect her corrupt “homeland?” US forces strike ISIS-Somalia leaders in Somalia caves: [https://www. foxnews.com/video/638867263011 2](https://www.foxnews....
+- [12:56 UTC - Why hasn’t the Fake News New York Times adjusted its phony article on the corruption and a...](116006806271950721/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116006806271950721
+  - Why hasn’t the Fake News New York Times adjusted its phony article on the corruption and antisemitism which has taken place at Harvard. They never call for facts, or factchecks, be...
+- [05:11 UTC - The Failing New York Times story was completely wrong concerning Harvard University. I her...](116004978871320100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116004978871320100
+  - The Failing New York Times story was completely wrong concerning Harvard University. I hereby demand that the morons that run (into the ground!) the Times’ change their story, imme...
+- [04:20 UTC - Strongly Antisemitic Harvard University has been feeding a lot of “nonsense” to The Failin...](116004776659519984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116004776659519984
+  - Strongly Antisemitic Harvard University has been feeding a lot of “nonsense” to The Failing New York Times. Harvard has been, for a long time, behaving very badly! They wanted to d...
+- [03:31 UTC - McLaughlin Poll: ICE Hit, But Trump Stays Solid: [https://www. newsmax.com/mclaughlin/john...](116004582968645166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116004582968645166
+  - McLaughlin Poll: ICE Hit, But Trump Stays Solid: [https://www. newsmax.com/mclaughlin/john-mc laughlin-jim-mclaughlin-poll/2026/01/31/id/1244366/](https://www.newsmax.com/mclaughli...
+- [02:46 UTC - The highest Poll Numbers I have ever received. Obviously, people like a strong and powerfu...](116004407990106189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116004407990106189
+  - The highest Poll Numbers I have ever received. Obviously, people like a strong and powerful Country, with the best economy, EVER!

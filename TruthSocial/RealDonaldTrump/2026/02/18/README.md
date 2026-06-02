@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2026-02-18
+
+- Posts: 19
+
+- [21:19 UTC - Truth Social post 116093719961011955](116093719961011955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116093719961011955
+  - _No text content captured._
+- [21:19 UTC - Will be the Greatest Ballroom ever built, now rising at the site of the White House — Full...](116093719071243747/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116093719071243747
+  - Will be the Greatest Ballroom ever built, now rising at the site of the White House — Fully paid for by American Patriot Donors. ZERO cost to our United States Taxpayers!
+- [18:42 UTC - I have been telling Prime Minister Keir Starmer, of the United Kingdom, that Leases are no...](116093101641103750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116093101641103750
+  - I have been telling Prime Minister Keir Starmer, of the United Kingdom, that Leases are no good when it comes to Countries, and that he is making a big mistake by entering a 100 Ye...
+- [12:04 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091531183692853](116091534872593127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091534872593127
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091531183692853
+- [12:03 UTC - Truth Social post 116091531183692853](116091531183692853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091531183692853
+  - _No text content captured._
+- [11:35 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091421399345387](116091422444967464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091422444967464
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091421399345387
+- [11:35 UTC - Truth Social post 116091421399345387](116091421399345387/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091421399345387
+  - _No text content captured._
+- [11:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091416662034679](116091418141758007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091418141758007
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091416662034679
+- [11:33 UTC - Truth Social post 116091416662034679](116091416662034679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091416662034679
+  - _No text content captured._
+- [11:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091412418659980](116091415720201273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091415720201273
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116091412418659980
+- [11:32 UTC - Truth Social post 116091412418659980](116091412418659980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091412418659980
+  - _No text content captured._
+- [11:05 UTC - Truth Social post 116091304981296302](116091304981296302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091304981296302
+  - _No text content captured._
+- [11:02 UTC - Truth Social post 116091294028607026](116091294028607026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116091294028607026
+  - _No text content captured._
+- [03:58 UTC - Key political voice in Georgia urges state to take over Fulton County elections after FBI ...](116089625350524787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116089625350524787
+  - Key political voice in Georgia urges state to take over Fulton County elections after FBI raid: [https:// justthenews.com/politics-polic y/elections/monkey-political-voice-georgia-...
+- [03:58 UTC - Truth Social post 116089623709541734](116089623709541734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116089623709541734
+  - _No text content captured._
+- [03:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116089620936035048 Crooked Elec...](116089622233377615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116089622233377615
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116089620936035048 Crooked Elections cannot be allowed in the U.S.A. President DJT
+- [03:57 UTC - Truth Social post 116089620936035048](116089620936035048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116089620936035048
+  - _No text content captured._
+- [02:01 UTC - Truth Social post 116089164279508195](116089164279508195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116089164279508195
+  - _No text content captured._
+- [00:43 UTC - Truth Social post 116088857079776597](116088857079776597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116088857079776597
+  - _No text content captured._

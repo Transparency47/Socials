@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115978487020569325 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115978487020569325 -->
+<!-- date_published: 2026-01-29T12:54:29.234000+00:00 -->
+<!-- date_accessed: 2026-06-02T14:29:29.007866+00:00 -->
+
+# Jerome “Too Late” Powell again refused to cut interest rates, even though he has absolutel...
+
+Jerome “Too Late” Powell again refused to cut interest rates, even though he has absolutely no reason to keep them so high. He is hurting our Country, and its National Security. We should have a substantially lower rate now that even this moron admits inflation is no longer a problem or threat. He is costing America Hundreds of Billions of Dollar a year in totally unnecessary and uncalled for INTEREST EXPENSE. Because of the vast amounts of money flowing into our Country because of Tariffs, we should be paying the LOWEST INTEREST RATE OF ANY COUNTRY IN THE WORLD. Most of these countries are low interest rate paying cash machines, thought of as elegant, solid, and prime, only because the U.S.A. allows them to be. The Tariffs being charged to them, while bringing in $BILLIONS to us, still allows most of them to have a significant trade surplus, though much smaller, with our beautiful, formerly abused Country. In other words, I have been very nice, kind, and gentle to countries all over the World. With a mere flip of the pen, $BILLIONS more would come into the U.S.A., and these countries would have to go back to making money the old fashioned way, not on the back of America. I hope they all appreciate, although many don’t, what our great Country has done for them. The Fed should substantially lower interest rates, NOW! Tariffs have made America strong and powerful again, far stronger and more powerful than any other Nation. Commensurate with this strength, both financial and otherwise, WE SHOULD BE PAYING LOWER INTEREST RATES THAN ANY OTHER COUNTRY IN THE WORLD! Thank you for your attention to this matter. President DONALD J. TRUMP

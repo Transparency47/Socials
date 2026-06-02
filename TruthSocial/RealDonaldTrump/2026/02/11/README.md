@@ -1,0 +1,127 @@
+# TruthSocial / RealDonaldTrump / 2026-02-11
+
+- Posts: 41
+
+- [23:17 UTC - When Kevin Stitt, the very mediocre (at best!) RINO Governor of Oklahoma, was losing his E...](116054547319697639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054547319697639
+  - When Kevin Stitt, the very mediocre (at best!) RINO Governor of Oklahoma, was losing his Election to a Democrat, primarily because he did a bad job, he called for my help. I Endors...
+- [23:16 UTC - Canada has taken advantage of the United States on Trade for many years. They are among th...](116054544240272433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054544240272433
+  - Canada has taken advantage of the United States on Trade for many years. They are among the worst in the World to deal with, especially as it relates to our Northern Border. TARIFF...
+- [23:16 UTC - Any Republican, in the House or the Senate, that votes against TARIFFS will seriously suff...](116054542648712986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054542648712986
+  - Any Republican, in the House or the Senate, that votes against TARIFFS will seriously suffer the consequences come Election time, and that includes Primaries! Our Trade Deficit has...
+- [21:21 UTC - The RINO Governor of the Great State of Oklahoma, in which I won all 77 Counties, three ti...](116054089500353661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116054089500353661
+  - The RINO Governor of the Great State of Oklahoma, in which I won all 77 Counties, three times (The only person to do so!), incorrectly stated my position on the very exclusive Gove...
+- [18:54 UTC - I have just finished meeting with Prime Minister Netanyahu, of Israel, and various of his ...](116053512461029874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116053512461029874
+  - I have just finished meeting with Prime Minister Netanyahu, of Israel, and various of his Representatives. It was a very good meeting, the tremendous relationship between our two C...
+- [14:46 UTC - Just in: GREAT JOBS NUMBERS, FAR GREATER THAN EXPECTED! The United States of America shoul...](116052538984100960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052538984100960
+  - Just in: GREAT JOBS NUMBERS, FAR GREATER THAN EXPECTED! The United States of America should be paying MUCH LESS on its Borrowings (BONDS!). We are again the strongest Country in th...
+- [14:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052470064146254 …..And now, ...](116052533364619497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052533364619497
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052470064146254 …..And now, THE GOLDEN AGE IS HERE!!! President DJT
+- [14:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052423178074423 How quickly ...](116052530788677155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052530788677155
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052423178074423 How quickly people forget. So sad! President DJT
+- [14:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052518302747542](116052519446452332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052519446452332
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052518302747542
+- [14:41 UTC - Truth Social post 116052518302747542](116052518302747542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052518302747542
+  - _No text content captured._
+- [14:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052513876450956](116052516553118795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052516553118795
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052513876450956
+- [14:40 UTC - Truth Social post 116052513876450956](116052513876450956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052513876450956
+  - _No text content captured._
+- [14:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052509995375648](116052511213074008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052511213074008
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052509995375648
+- [14:39 UTC - Truth Social post 116052509995375648](116052509995375648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052509995375648
+  - _No text content captured._
+- [14:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052507503722230](116052508598427779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052508598427779
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052507503722230
+- [14:38 UTC - Truth Social post 116052507503722230](116052507503722230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052507503722230
+  - _No text content captured._
+- [14:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052503337013015](116052504406545203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052504406545203
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052503337013015
+- [14:37 UTC - Truth Social post 116052503337013015](116052503337013015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052503337013015
+  - _No text content captured._
+- [14:36 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052496277232069](116052497501654200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052497501654200
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052496277232069
+- [14:36 UTC - Truth Social post 116052496277232069](116052496277232069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052496277232069
+  - _No text content captured._
+- [14:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052490903138411](116052491954589130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052491954589130
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052490903138411
+- [14:34 UTC - Truth Social post 116052490903138411](116052490903138411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052490903138411
+  - _No text content captured._
+- [14:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052485407330071](116052486478472100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052486478472100
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052485407330071
+- [14:33 UTC - Truth Social post 116052485407330071](116052485407330071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052485407330071
+  - _No text content captured._
+- [14:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052480659116697](116052482209097467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052482209097467
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052480659116697
+- [14:32 UTC - Truth Social post 116052480659116697](116052480659116697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052480659116697
+  - _No text content captured._
+- [14:29 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052468945665197](116052470064146254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052470064146254
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052468945665197
+- [14:29 UTC - Truth Social post 116052468945665197](116052468945665197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052468945665197
+  - _No text content captured._
+- [14:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052445327410729](116052446578832906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052446578832906
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052445327410729
+- [14:23 UTC - Truth Social post 116052445327410729](116052445327410729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052445327410729
+  - _No text content captured._
+- [14:17 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052422096636470](116052423178074423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052423178074423
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052422096636470
+- [14:17 UTC - Truth Social post 116052422096636470](116052422096636470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052422096636470
+  - _No text content captured._
+- [14:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052412986943088](116052415190747862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052415190747862
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116052412986943088
+- [14:14 UTC - Truth Social post 116052412986943088](116052412986943088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116052412986943088
+  - _No text content captured._
+- [11:16 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051709718368163](116051710786898097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051710786898097
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051709718368163
+- [11:15 UTC - Truth Social post 116051709718368163](116051709718368163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051709718368163
+  - _No text content captured._
+- [11:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051698712646534](116051699816487318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051699816487318
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051698712646534
+- [11:13 UTC - Truth Social post 116051698712646534](116051698712646534/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051698712646534
+  - _No text content captured._
+- [11:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051692757983702 A must watch...](116051697370308230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051697370308230
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116051692757983702 A must watch. 100% Correct. MAGA!
+- [11:11 UTC - Truth Social post 116051692757983702](116051692757983702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116051692757983702
+  - _No text content captured._
+- [06:23 UTC - Apple News promotes left-leaning media outlets — as it shuts out conservative sites entire...](116050559055597383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116050559055597383
+  - Apple News promotes left-leaning media outlets — as it shuts out conservative sites entirely: study: [https:// nypost.com/2026/02/10/business /apple-news-promotes-left-leaning-medi...

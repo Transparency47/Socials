@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116119857222583140 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116119857222583140 -->
+<!-- date_published: 2026-02-23T12:06:47.327000+00:00 -->
+<!-- date_accessed: 2026-06-02T14:06:30.554375+00:00 -->
+
+# The supreme court (will be using lower case letters for a while based on a complete lack o...
+
+The supreme court (will be using lower case letters for a while based on a complete lack of respect!) of the United States accidentally and unwittingly gave me, as President of the United States, far more powers and strength than I had prior to their ridiculous, dumb, and very internationally divisive ruling. For one thing, I can use Licenses to do absolutely “terrible” things to foreign countries, especially those countries that have been RIPPING US OFF for many decades, but incomprehensibly, according to the ruling, can’t charge them a License fee - BUT ALL LICENSES CHARGE FEES, why can’t the United States do so? You do a license to get a fee! The opinion doesn’t explain that, but I know the answer! The court has also approved all other Tariffs, of which there are many, and they can all be used in a much more powerful and obnoxious way, with legal certainty, than the Tariffs as initially used. Our incompetent supreme court did a great job for the wrong people, and for that they should be ashamed of themselves (but not the Great Three!). The next thing you know they will rule in favor of China and others, who are making an absolute fortune on Birthright Citizenship, by saying the 14th Amendment was NOT written to take care of the “babies of slaves,” which it was as proven by the EXACT TIMING of its construction, filing, and ratification, which perfectly coincided with the END OF THE CIVIL WAR. How much better can you do than that? But this supreme court will find a way to come to the wrong conclusion, one that again will make China, and various other Nations, happy and rich. Let our supreme court keep making decisions that are so bad and deleterious to the future of our Nation - I have a job to do. MAKE AMERICA GREAT AGAIN! President DONALD J. TRUMP

@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2026-03-03
+
+- Posts: 26
+
+- [23:20 UTC - Truth Social post 116167803629901481](116167803629901481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167803629901481
+  - _No text content captured._
+- [22:57 UTC - Since the launch of Operation Epic Fury, more than 9,000 Americans have safely returned ho...](116167714881895964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167714881895964
+  - Since the launch of Operation Epic Fury, more than 9,000 Americans have safely returned home from the Middle East. If you are a U.S. Citizen in the Middle East, and you want to com...
+- [22:55 UTC - Zohran has come a long way embracing, of course, the Declaration of Independence while at ...](116167706503631003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167706503631003
+  - Zohran has come a long way embracing, of course, the Declaration of Independence while at The Oval Office — Big progress! President DJT
+- [22:44 UTC - Truth Social post 116167664938928280](116167664938928280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167664938928280
+  - _No text content captured._
+- [22:44 UTC - Truth Social post 116167664140905315](116167664140905315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167664140905315
+  - _No text content captured._
+- [22:39 UTC - Brooke Rollins: “MY MOM RUNNING FOR REELECTION tonight!!! (This is my sister at a polling ...](116167642496346673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167642496346673
+  - Brooke Rollins: “MY MOM RUNNING FOR REELECTION tonight!!! (This is my sister at a polling place). Rural America LOVES THEIR PRESIDENT!!!!!”
+- [22:04 UTC - It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous pe...](116167506001380470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167506001380470
+  - It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous people of Montana’s 1st Congressional District. Aaron is a MAGA Warrior, who is strongly sup...
+- [22:02 UTC - The Genius Act is being threatened and undermined by the Banks, and that is unacceptable —...](116167496865556148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116167496865556148
+  - The Genius Act is being threatened and undermined by the Banks, and that is unacceptable — We are not going to allow it. The U.S. needs to get Market Structure done, ASAP. American...
+- [19:37 UTC - Effective IMMEDIATELY, I have ordered the United States Development Finance Corporation (D...](116166926920657651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116166926920657651
+  - Effective IMMEDIATELY, I have ordered the United States Development Finance Corporation (DFC) to provide, at a very reasonable price, political risk insurance and guarantees for th...
+- [14:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The United States Munitio...](116165640188665672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116165640188665672
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The United States Munitions Stockpiles have, at the medium and upper medium grade, never been higher or better - As...
+- [13:02 UTC - Have unlimited mid to upper tier Weaponry - Brutal “stuff.” Wall Street Journal story was ...](116165373479209735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116165373479209735
+  - Have unlimited mid to upper tier Weaponry - Brutal “stuff.” Wall Street Journal story was wrong, and a disgrace. President DJT [https://www. washingtonpost.com/opinions/20 26/03/03...
+- [12:38 UTC - Their air defense, Air Force, Navy, and Leadership is gone. They want to talk. I said “Too...](116165282347349425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116165282347349425
+  - Their air defense, Air Force, Navy, and Leadership is gone. They want to talk. I said “Too Late!” [https://www. washingtonpost.com/opinions/20 26/03/03/iran-strike-venezuela-milita...
+- [12:18 UTC - NATO Secretary General Mark Rutte praises 'Operation Epic Fury' strikes on Iran: [https://...](116165200090740839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116165200090740839
+  - NATO Secretary General Mark Rutte praises 'Operation Epic Fury' strikes on Iran: [https://www. foxnews.com/video/639026830111 2](https://www.foxnews.com/video/6390268301112)
+- [10:31 UTC - Fashion Notes: Melania Trump Makes History at United Nations in Neutral Dior Suit: [https:...](116164781034555798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116164781034555798
+  - Fashion Notes: Melania Trump Makes History at United Nations in Neutral Dior Suit: [https://www. breitbart.com/entertainment/20 26/03/02/fashion-notes-melania-trump-makes-history-a...
+- [10:30 UTC - Tariff Victory: U.S.-China Trade Deficit Plummets in Trump’s First Year: [https://www. bre...](116164778986524540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116164778986524540
+  - Tariff Victory: U.S.-China Trade Deficit Plummets in Trump’s First Year: [https://www. breitbart.com/politics/2026/03 /02/tariff-victory-us-china-trade-deficit-plummets/](https://w...
+- [05:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163660992034515](116163661822131736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163661822131736
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163660992034515
+- [05:46 UTC - Truth Social post 116163660992034515](116163660992034515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163660992034515
+  - _No text content captured._
+- [05:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163653947545766](116163654722709741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163654722709741
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163653947545766
+- [05:44 UTC - Truth Social post 116163653947545766](116163653947545766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163653947545766
+  - _No text content captured._
+- [05:36 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163619076258559 Deranged Jac...](116163621494579751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163621494579751
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116163619076258559 Deranged Jack Smith should be brought to Justice, NOW!!!
+- [05:36 UTC - Truth Social post 116163619076258559](116163619076258559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163619076258559
+  - _No text content captured._
+- [05:05 UTC - [https:// truthsocial.com/users/joemccui ston/statuses/116163475424249040](https://truthso...](116163500884477451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163500884477451
+  - [https:// truthsocial.com/users/joemccui ston/statuses/116163475424249040](https://truthsocial.com/users/joemccuiston/statuses/116163475424249040)
+- [04:56 UTC - The United States Munitions Stockpiles have, at the medium and upper medium grade, never b...](116163464520215003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116163464520215003
+  - The United States Munitions Stockpiles have, at the medium and upper medium grade, never been higher or better - As was stated to me today, we have a virtually unlimited supply of...
+- [01:28 UTC - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are eit...](116162644396687602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162644396687602
+  - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are either going to fix them, or we won’t have a Country any longer. I am asking all Republicans...
+- [00:45 UTC - Truth Social post 116162475609164889](116162475609164889/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162475609164889
+  - _No text content captured._
+- [00:44 UTC - Truth Social post 116162474429833006](116162474429833006/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162474429833006
+  - _No text content captured._

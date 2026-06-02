@@ -1,0 +1,12 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116081542728195626 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116081542728195626 -->
+<!-- date_published: 2026-02-16T17:42:54.543000+00:00 -->
+<!-- date_accessed: 2026-06-02T14:12:51.908425+00:00 -->
+
+# RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We cannot let the Democra...
+
+RT
+[@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+We cannot let the Democrats get away with NO VOTER I.D. any longer. These are horrible, disingenuous CHEATERS. They have all sorts of reasons why it shouldn’t be passed, and then boldly laugh in the backrooms after their ridiculous presentations. If it weren’t such a serious matter, it would be considered a TOTAL JOKE! No Voter I.D. is even crazier, and more ridiculous, than Men playing in Women’s Sports, Open Borders, or Transgender for Everyone. Republicans must put this at the top of every speech — It is a CAN’T MISS FOR RE-ELECTION IN THE MIDTERMS, AND BEYOND! Even Democrat Voters agree, 85%, that there should be Voter I.D. It’s only the Political “Leaders,” Crooked Losers like Schumer and Jeffries, that have no shame, and explain why it’s “racist,” and every other thing that they can think of. This is an issue that must be fought, and must be fought, NOW! If we can’t get it through Congress, there are Legal reasons why this SCAM is not permitted. I will be presenting them shortly, in the form of an Executive Order. I hope the Supreme Court realizes, as they “painstakingly” review the very simple topic of Country Saving Tariffs (Those same Tariffs that have been used, by other Countries, against the U.S.A. to drain it of its Treasure and Security — for many years!), and all sorts of other things, that are making our Country Rich, Powerful, and Safe Again, that these Corrupt and Deranged Democrats, if they ever gain power, will not only be adding two States to our roster of 50, with all of the baggage thereto, but will also PACK THE COURT with a total of 21 Supreme Court Justices, THEIR DREAM, which they will submit easily and rapidly when they immediately move to terminate the Filibuster, probably in their first week, or sooner. Our Country will never be the same if they allow these demented and evil people to knowingly, and happily, destroy it. Thank you for your attention to this matter — SAVE AMERICA! PRESIDENT DONALD J. TRUMP

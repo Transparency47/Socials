@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-02-02
+
+- Posts: 18
+
+- [20:42 UTC - People are saying that Thomas Massie became a Liberal because his new wife, blessed be the...](116002977324733248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116002977324733248
+  - People are saying that Thomas Massie became a Liberal because his new wife, blessed be their marriage, is supposedly a Radical Left “flamethrower.” This new union all went so fast...
+- [20:15 UTC - I am working hard with Speaker Johnson to get the current funding deal, which passed in th...](116002871169002695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116002871169002695
+  - I am working hard with Speaker Johnson to get the current funding deal, which passed in the Senate last week, through the House and to my desk, where I will sign it into Law, IMMED...
+- [18:18 UTC - Not only wasn’t I friendly with Jeffrey Epstein but, based upon information that has just ...](116002410765945086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116002410765945086
+  - Not only wasn’t I friendly with Jeffrey Epstein but, based upon information that has just been released by the Department of Justice, Epstein and a SLEAZEBAG lying “author” named M...
+- [16:58 UTC - It was an Honor to speak with Prime Minister Modi, of India, this morning. He is one of my...](116002095109616255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116002095109616255
+  - It was an Honor to speak with Prime Minister Modi, of India, this morning. He is one of my greatest friends and, a Powerful and Respected Leader of his Country. We spoke about many...
+- [16:30 UTC - US forces strike ISIS-Somalia leaders in Somalia caves: [https://www. foxnews.com/video/63...](116001984939496310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001984939496310
+  - US forces strike ISIS-Somalia leaders in Somalia caves: [https://www. foxnews.com/video/638867263011 2](https://www.foxnews.com/video/6388672630112)
+- [16:29 UTC - Trump has been ‘very clear’ in message to Iran, State Department spokesperson says: [https...](116001981271406695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001981271406695
+  - Trump has been ‘very clear’ in message to Iran, State Department spokesperson says: [https://www. foxnews.com/video/638865427511 2](https://www.foxnews.com/video/6388654275112)
+- [16:28 UTC - Trump open to Iran deal as US bolsters forces in Middle East: [https://www. foxnews.com/vi...](116001978814669685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001978814669685
+  - Trump open to Iran deal as US bolsters forces in Middle East: [https://www. foxnews.com/video/638867450311 2](https://www.foxnews.com/video/6388674503112)
+- [16:28 UTC - Iran is turning into the 'North Korea of the Middle East': Mark Levin: [https://www. foxne...](116001976995912843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001976995912843
+  - Iran is turning into the 'North Korea of the Middle East': Mark Levin: [https://www. foxnews.com/video/638865441711 2](https://www.foxnews.com/video/6388654417112)
+- [14:32 UTC - Two very good guys who were treated so unfairly by Sleepy Joe Biden. But now, they are big...](116001521088210593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001521088210593
+  - Two very good guys who were treated so unfairly by Sleepy Joe Biden. But now, they are bigger than ever!!! President DJT
+- [14:29 UTC - Truth Social post 116001510347595860](116001510347595860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001510347595860
+  - _No text content captured._
+- [14:29 UTC - India’s beautiful Triumphal Arch. Ours will be the greatest of them all!](116001509426580536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001509426580536
+  - India’s beautiful Triumphal Arch. Ours will be the greatest of them all!
+- [14:26 UTC - Truth Social post 116001497510949439](116001497510949439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001497510949439
+  - _No text content captured._
+- [14:25 UTC - Trump Says He Welcomes China, India Investment in Venezuela Oil: [https://www. bloomberg.c...](116001495092642291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001495092642291
+  - Trump Says He Welcomes China, India Investment in Venezuela Oil: [https://www. bloomberg.com/news/articles/20 26-02-01/trump-says-he-welcomes-china-india-investment-in-venezuela-oi...
+- [14:25 UTC - Truth Social post 116001493028510365](116001493028510365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116001493028510365
+  - _No text content captured._
+- [06:01 UTC - The Grammy Awards are the WORST, virtually unwatchable! CBS is lucky not to have this garb...](115999513470647838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115999513470647838
+  - The Grammy Awards are the WORST, virtually unwatchable! CBS is lucky not to have this garbage litter their airwaves any longer. The host, Trevor Noah, whoever he may be, is almost...
+- [05:10 UTC - 'Amazing' what Trump has done in 12 months: Jason Chaffetz: [https://www. foxnews.com/vide...](115999310545839859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115999310545839859
+  - 'Amazing' what Trump has done in 12 months: Jason Chaffetz: [https://www. foxnews.com/video/638865603211 2](https://www.foxnews.com/video/6388656032112)
+- [05:09 UTC - DOJ investigating Walz and Frey as Democrats continue anti-ICE rhetoric: [https://www. fox...](115999308729888006/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115999308729888006
+  - DOJ investigating Walz and Frey as Democrats continue anti-ICE rhetoric: [https://www. foxnews.com/video/638845845611 2](https://www.foxnews.com/video/6388458456112)
+- [01:29 UTC - The biggest problem our Country has is that the Democrats are SOFT ON CRIME! They want to ...](115998440820492604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115998440820492604
+  - The biggest problem our Country has is that the Democrats are SOFT ON CRIME! They want to protect the Criminal, violent and vicious as they may be, at the expense of our great Amer...

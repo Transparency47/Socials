@@ -1,0 +1,133 @@
+# TruthSocial / RealDonaldTrump / 2026-02-05
+
+- Posts: 43
+
+- [23:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116020595387854027](116020596247285563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116020596247285563
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116020595387854027
+- [23:23 UTC - Truth Social post 116020595387854027](116020595387854027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116020595387854027
+  - _No text content captured._
+- [23:04 UTC - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are eit...](116020521328279296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116020521328279296
+  - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are either going to fix them, or we won’t have a Country any longer. I am asking all Republicans...
+- [22:57 UTC - I am hearing that Highly Respected MAGA Warrior, Cody Simpson, is considering launching hi...](116020492708362364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116020492708362364
+  - I am hearing that Highly Respected MAGA Warrior, Cody Simpson, is considering launching his Campaign for Commissioner of Agriculture in the wonderful State of South Carolina, which...
+- [18:47 UTC - The United States is the most powerful Country in the World. I completely rebuilt its Mili...](116019511106186158/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116019511106186158
+  - The United States is the most powerful Country in the World. I completely rebuilt its Military in my First Term, including new and many refurbished nuclear weapons. I also added Sp...
+- [17:59 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116019322824567248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116019322824567248
+  - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful Leader, with a proven track record of delivering phenomenal results. He fights tirelessly f...
+- [17:50 UTC - I have had very productive discussions with Prime Minister Keir Starmer about the Island o...](116019287824035088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116019287824035088
+  - I have had very productive discussions with Prime Minister Keir Starmer about the Island of Diego Garcia. It is the site of a major U.S. Military Base, strategically situated in th...
+- [17:42 UTC - The Great Country of Japan is having a very important Legislative Election on Sunday, Febr...](116019257556623305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116019257556623305
+  - The Great Country of Japan is having a very important Legislative Election on Sunday, February 8, 2026. The results of this Election are very important to the future of Japan. The...
+- [13:05 UTC - Truth Social post 116018165763165983](116018165763165983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116018165763165983
+  - _No text content captured._
+- [13:05 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116018163712932907](116018164715298086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116018164715298086
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116018163712932907
+- [13:04 UTC - Truth Social post 116018163712932907](116018163712932907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116018163712932907
+  - _No text content captured._
+- [12:37 UTC - Miranda Devine: Justice Ketanji Brown Jackson removed any shred of impartiality by applaud...](116018054847348561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116018054847348561
+  - Miranda Devine: Justice Ketanji Brown Jackson removed any shred of impartiality by applauding anti-ICE speeches at the Grammys: [https:// nypost.com/2026/02/04/opinion/ miranda-dev...
+- [11:07 UTC - Jim Banks Calls for Passage of SAVE America Act to Require Proof of Citizenship to Vote: [...](116017702721284286/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017702721284286
+  - Jim Banks Calls for Passage of SAVE America Act to Require Proof of Citizenship to Vote: [https://www. breitbart.com/politics/2026/02 /04/jim-banks-calls-for-passage-save-america-a...
+- [11:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017700690606409](116017701578273656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017701578273656
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017700690606409
+- [11:07 UTC - Truth Social post 116017700690606409](116017700690606409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017700690606409
+  - _No text content captured._
+- [11:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017698703982666](116017699532493891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017699532493891
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017698703982666
+- [11:06 UTC - Truth Social post 116017698703982666](116017698703982666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017698703982666
+  - _No text content captured._
+- [11:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017697075556610](116017697969097435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017697969097435
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017697075556610
+- [11:06 UTC - Truth Social post 116017697075556610](116017697075556610/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017697075556610
+  - _No text content captured._
+- [11:05 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017695134870674](116017696330779223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017696330779223
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116017695134870674
+- [11:05 UTC - Truth Social post 116017695134870674](116017695134870674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116017695134870674
+  - _No text content captured._
+- [06:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116016522427379373](116016523789296914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116016523789296914
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116016522427379373
+- [06:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116016519138654706](116016522427379373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116016522427379373
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116016519138654706
+- [06:06 UTC - Truth Social post 116016519138654706](116016519138654706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116016519138654706
+  - _No text content captured._
+- [04:34 UTC - Inspector General confirms whistleblower complaint against Tulsi Gabbard ‘did not appear c...](116016157793181303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116016157793181303
+  - Inspector General confirms whistleblower complaint against Tulsi Gabbard ‘did not appear credible’: [https:// justthenews.com/accountability /watchdogs/inspector-general-confirms-w...
+- [04:33 UTC - How Trump's MAHA movement unexpectedly took a bite out of food price inflation: [https:// ...](116016151311489400/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116016151311489400
+  - How Trump's MAHA movement unexpectedly took a bite out of food price inflation: [https:// justthenews.com/government/whi te-house/how-maha-movement-unexpectedly-lowered-food-price-...
+- [02:59 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I spoke with Savannah Gut...](116015781947324416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015781947324416
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I spoke with Savannah Guthrie, and let her know that I am directing ALL Federal Law Enforcement to be at the family...
+- [02:59 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116015781766314291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015781766314291
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot, James Gallagher, who is running to represent the wonderful p...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Mark Teixeira is a former...](116015780759754111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015780759754111
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candidate, who is running to rep...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116015779839151571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015779839151571
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse MAGA Warrior, Blake Miguez, who is running to represent the tremendous people of Lo...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116015779507360329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015779507360329
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse Peter Oberacker, an incredible Candidate who is running to represent the fantastic...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116015779224154496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015779224154496
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent the fantastic people of New...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Long Island Rep. Tom Suoz...](116015779057104774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015779057104774
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Long Island Rep. Tom Suozzi beats Pelosi’s stock portfolio performance with 35% return: [https:// nypost.com/2026/0...
+- [02:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116015778888152049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015778888152049
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse Chris McGowan, a fantastic Candidate running to be the next Congressman from Iowa’s...
+- [02:58 UTC - It is my Great Honor to endorse America First Patriot, James Gallagher, who is running to ...](116015777789201897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015777789201897
+  - It is my Great Honor to endorse America First Patriot, James Gallagher, who is running to represent the wonderful people of California’s 1st Congressional District. A very successf...
+- [02:08 UTC - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candida...](116015584302654813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015584302654813
+  - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candidate, who is running to represent the incredible people of Texas’ 21st Congressional Distric...
+- [02:08 UTC - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to r...](116015583395173909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015583395173909
+  - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to represent the wonderful people of Texas’ 32nd Congressional District. A Brave Air Force Vet...
+- [01:59 UTC - I spoke with Savannah Guthrie, and let her know that I am directing ALL Federal Law Enforc...](116015545880326010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015545880326010
+  - I spoke with Savannah Guthrie, and let her know that I am directing ALL Federal Law Enforcement to be at the family’s, and Local Law Enforcement’s, complete disposal, IMMEDIATELY....
+- [00:40 UTC - It is my Great Honor to endorse MAGA Warrior, Blake Miguez, who is running to represent th...](116015238116488956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015238116488956
+  - It is my Great Honor to endorse MAGA Warrior, Blake Miguez, who is running to represent the tremendous people of Louisiana’s 5th Congressional District. A Seventh Generation Louisi...
+- [00:37 UTC - It is my Great Honor to endorse Peter Oberacker, an incredible Candidate who is running to...](116015225028724019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015225028724019
+  - It is my Great Honor to endorse Peter Oberacker, an incredible Candidate who is running to represent the fantastic people of New York’s 19th Congressional District. He is running a...
+- [00:29 UTC - It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent th...](116015192164527501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015192164527501
+  - It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent the fantastic people of New York’s 3rd Congressional District against a Congressman who has...
+- [00:24 UTC - Long Island Rep. Tom Suozzi beats Pelosi’s stock portfolio performance with 35% return: [h...](116015172729556501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015172729556501
+  - Long Island Rep. Tom Suozzi beats Pelosi’s stock portfolio performance with 35% return: [https:// nypost.com/2026/01/03/us-news/ heres-how-much-members-of-congress-raked-in-on-thei...
+- [00:05 UTC - It is my Great Honor to endorse Chris McGowan, a fantastic Candidate running to be the nex...](116015098439079378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116015098439079378
+  - It is my Great Honor to endorse Chris McGowan, a fantastic Candidate running to be the next Congressman from Iowa’s 4th Congressional District! A Brave Iowa Air National Guard Vete...

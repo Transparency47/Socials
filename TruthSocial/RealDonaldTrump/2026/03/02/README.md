@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-03-02
+
+- Posts: 18
+
+- [23:45 UTC - Melania Trump to take the gavel at UN Security Council in historic first: [https://www. fo...](116162239179331317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162239179331317
+  - Melania Trump to take the gavel at UN Security Council in historic first: [https://www. foxnews.com/politics/melania-t rump-take-gavel-un-security-council-historic-first](https://w...
+- [23:40 UTC - DOUG SCHOEN: As a Democrat, I back Trump's Iran strike — my party is wrong: [https://www. ...](116162219712486900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162219712486900
+  - DOUG SCHOEN: As a Democrat, I back Trump's Iran strike — my party is wrong: [https://www. foxnews.com/opinion/doug-schoe n-as-a-democrat-i-back-trumps-iran-strikemy-party-is-wrong]...
+- [23:20 UTC - The Radical Left Democrats, a Party that has completely lost its way, are complaining bitt...](116162143729203401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162143729203401
+  - The Radical Left Democrats, a Party that has completely lost its way, are complaining bitterly about the very necessary and important attack, by the United States and Israel, on Ir...
+- [23:14 UTC - The White House Correspondents Association has asked me, very nicely, to be the Honoree at...](116162119298005428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116162119298005428
+  - The White House Correspondents Association has asked me, very nicely, to be the Honoree at this year’s Dinner, a long and storied tradition since it began in 1924, under then Presi...
+- [22:43 UTC - Truth Social post 116161997225760535](116161997225760535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161997225760535
+  - _No text content captured._
+- [22:43 UTC - Truth Social post 116161996383926260](116161996383926260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161996383926260
+  - _No text content captured._
+- [22:43 UTC - Truth Social post 116161995495974921](116161995495974921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161995495974921
+  - _No text content captured._
+- [22:42 UTC - Truth Social post 116161994659816716](116161994659816716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161994659816716
+  - _No text content captured._
+- [22:42 UTC - Truth Social post 116161993677142254](116161993677142254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161993677142254
+  - _No text content captured._
+- [22:41 UTC - [https://www. nytimes.com/2026/02/08/opinion /trump-nixon-watergate-radford.html](https://...](116161989449603719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161989449603719
+  - [https://www. nytimes.com/2026/02/08/opinion /trump-nixon-watergate-radford.html](https://www.nytimes.com/2026/02/08/opinion/trump-nixon-watergate-radford.html)
+- [22:26 UTC - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos...](116161930311726962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161930311726962
+  - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos show: [https:// justthenews.com/accountability /political-ethics/biden-justice-department...
+- [22:25 UTC - ‘These people are crazy’ is the campaign Democrats should fear: [https://www. washingtonex...](116161928118208278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161928118208278
+  - ‘These people are crazy’ is the campaign Democrats should fear: [https://www. washingtonexaminer.com/opinion /columnists/4471615/these-people-are-crazy-campaign-democrats-should-fe...
+- [21:49 UTC - EDITORIAL: TrumpRx is a massive win for affordability: [https:// washingtonreporter.news/e...](116161784453558961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161784453558961
+  - EDITORIAL: TrumpRx is a massive win for affordability: [https:// washingtonreporter.news/editor ial-trumprx-is-an-enormous-healthcare-policy-win-for-affordability/](https://washing...
+- [21:43 UTC - If I didn’t terminate Obama’s horrendous Iran Nuclear Deal (JCPOA), Iran would have had a ...](116161759621251147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161759621251147
+  - If I didn’t terminate Obama’s horrendous Iran Nuclear Deal (JCPOA), Iran would have had a Nuclear Weapon three years ago. That was the most dangerous transaction we have ever enter...
+- [21:19 UTC - Truth Social post 116161667825271172](116161667825271172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161667825271172
+  - _No text content captured._
+- [20:52 UTC - Everybody watch Sean Hannity tonight at 9 P.M. Bibi Netanyahu will be interviewed! PRESIDE...](116161560612098666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161560612098666
+  - Everybody watch Sean Hannity tonight at 9 P.M. Bibi Netanyahu will be interviewed! PRESIDENT DONALD J. TRUMP
+- [19:33 UTC - FREE TINA PETERS!](116161249541725023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116161249541725023
+  - FREE TINA PETERS!
+- [17:52 UTC - Truth Social post 116160851439645348](116160851439645348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116160851439645348
+  - _No text content captured._

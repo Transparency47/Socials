@@ -1,0 +1,85 @@
+# TruthSocial / RealDonaldTrump / 2026-02-01
+
+- Posts: 27
+
+- [23:35 UTC - Just think? It has just been announced that the United States of America made more Steel l...](115997995239108549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115997995239108549
+  - Just think? It has just been announced that the United States of America made more Steel last year, 2025, than the Great Country of Japan, a major Steelmaker. Thank you President T...
+- [23:21 UTC - After a one year review of The Trump Kennedy Center, that has taken place with Contractors...](115997939705121174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115997939705121174
+  - After a one year review of The Trump Kennedy Center, that has taken place with Contractors, Musical Experts, Art Institutions, and other Advisors and Consultants, deciding between...
+- [20:15 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) This is so GREAT for Amer...](115997208160740696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115997208160740696
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) This is so GREAT for America, and our wonderful children. A MUST WATCH!
+- [18:53 UTC - Truth Social post 115996883731995217](115996883731995217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996883731995217
+  - _No text content captured._
+- [18:52 UTC - Truth Social post 115996883381163707](115996883381163707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996883381163707
+  - _No text content captured._
+- [18:52 UTC - It is my Great Honor to endorse America First Patriot, John E. Sununu, who is running to r...](115996882630849069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996882630849069
+  - It is my Great Honor to endorse America First Patriot, John E. Sununu, who is running to represent the beautiful State of New Hampshire in the U.S. Senate. John is strongly support...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](115996879370262562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996879370262562
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican running for Indiana's 41st S...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](115996878882880603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996878882880603
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidate for Indiana's 39th Stat...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Vigo County Commissioner ...](115996878303059833/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996878303059833
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against “No Goode” Greg Goode (B...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](115996877735403531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996877735403531
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhaver, a terrific Candidate...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](115996877078140560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996877078140560
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot Tracey Powell, a fantastic Candidate for Indiana's 21st State...
+- [18:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am hearing that Bluffto...](115996876595468758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996876595468758
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am hearing that Bluffton City Councilman Blake Fiechter, a True America First Patriot, is considering a primary c...
+- [18:50 UTC - Truth Social post 115996874753341191](115996874753341191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996874753341191
+  - _No text content captured._
+- [18:50 UTC - Truth Social post 115996873715153496](115996873715153496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996873715153496
+  - _No text content captured._
+- [18:50 UTC - Niall Ferguson: How Trump Won Davos: [https://www. thefp.com/p/niall-ferguson-how -trump-w...](115996872863293592/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996872863293592
+  - Niall Ferguson: How Trump Won Davos: [https://www. thefp.com/p/niall-ferguson-how -trump-won-davos/](https://www.thefp.com/p/niall-ferguson-how-trump-won-davos/)
+- [18:50 UTC - Iowans are earning more, paying less after Trump's return: [https://www. desmoinesregister...](115996871993438594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996871993438594
+  - Iowans are earning more, paying less after Trump's return: [https://www. desmoinesregister.com/story/op inion/columnists/iowa-view/2026/01/27/trump-iowa-economy/88373392007/](https...
+- [16:26 UTC - Truth Social post 115996309181103326](115996309181103326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996309181103326
+  - _No text content captured._
+- [16:26 UTC - [https://www. hollywoodreporter.com/movies/m ovie-news/box-office-melania-opening-weekend-...](115996308160359194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996308160359194
+  - [https://www. hollywoodreporter.com/movies/m ovie-news/box-office-melania-opening-weekend-1236490092/](https://www.hollywoodreporter.com/movies/movie-news/box-office-melania-openin...
+- [15:09 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115996004887528511](115996005581446665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996005581446665
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115996004887528511
+- [15:09 UTC - Truth Social post 115996004887528511](115996004887528511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115996004887528511
+  - _No text content captured._
+- [15:07 UTC - This is so GREAT for America, and our wonderful children. A MUST WATCH!](115995998838997278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115995998838997278
+  - This is so GREAT for America, and our wonderful children. A MUST WATCH!
+- [14:13 UTC - US steel production exceeds Japan's for first time in 26 years: Trump tariffs, AI data cen...](115995786512051662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115995786512051662
+  - US steel production exceeds Japan's for first time in 26 years: Trump tariffs, AI data center construction boom lifted industry in 2025: [https:// asia.nikkei.com/business/mater ia...
+- [13:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BLOCKBUSTER! Melania Trum...](115995683775533181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115995683775533181
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BLOCKBUSTER! Melania Trump film on track for best opening weekend of any documentary in last 10 years: [https:// ju...
+- [13:47 UTC - [https:// youtu.be/IvgGnWcxRhE](https://youtu.be/IvgGnWcxRhE)](115995683487830110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115995683487830110
+  - [https:// youtu.be/IvgGnWcxRhE](https://youtu.be/IvgGnWcxRhE)
+- [13:27 UTC - BLOCKBUSTER! Melania Trump film on track for best opening weekend of any documentary in la...](115995604245395993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115995604245395993
+  - BLOCKBUSTER! Melania Trump film on track for best opening weekend of any documentary in last 10 years: [https:// justthenews.com/government/whi te-house/melania-trump-film-track-la...
+- [06:32 UTC - [https:// x.com/huberton/status/20178095 13479327924/](https://x.com/huberton/status/20178...](115993971806457869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115993971806457869
+  - [https:// x.com/huberton/status/20178095 13479327924/](https://x.com/huberton/status/2017809513479327924/)
+- [02:57 UTC - Truth Social post 115993128404500913](115993128404500913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115993128404500913
+  - _No text content captured._

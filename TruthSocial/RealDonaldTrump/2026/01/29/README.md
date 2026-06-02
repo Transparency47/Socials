@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-01-29
+
+- Posts: 11
+
+- [23:29 UTC - Based on the fact that Canada has wrongfully, illegally, and steadfastly refused to certif...](115980983698005555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115980983698005555
+  - Based on the fact that Canada has wrongfully, illegally, and steadfastly refused to certify the Gulfstream 500, 600, 700, and 800 Jets, one of the greatest, most technologically ad...
+- [23:11 UTC - America is setting Records in every way, and our Growth Numbers are among the best ever. T...](115980912926614287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115980912926614287
+  - America is setting Records in every way, and our Growth Numbers are among the best ever. The only thing that can slow our Country down is another long and damaging Government Shutd...
+- [16:26 UTC - Truth Social post 115979321879115449](115979321879115449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115979321879115449
+  - _No text content captured._
+- [16:26 UTC - Truth Social post 115979320622868287](115979320622868287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115979320622868287
+  - _No text content captured._
+- [16:24 UTC - I had a very productive telephone conversation with President Claudia Sheinbaum, of Mexico...](115979311914390909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115979311914390909
+  - I had a very productive telephone conversation with President Claudia Sheinbaum, of Mexico. It went extremely well for both Countries. Much of it was focused on the Border, stoppin...
+- [12:54 UTC - Jerome “Too Late” Powell again refused to cut interest rates, even though he has absolutel...](115978487020569325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978487020569325
+  - Jerome “Too Late” Powell again refused to cut interest rates, even though he has absolutely no reason to keep them so high. He is hurting our Country, and its National Security. We...
+- [11:02 UTC - [https:// x.com/thescif/status/201664832 4644839849?s=10](https://x.com/thescif/status/201...](115978045822911393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978045822911393
+  - [https:// x.com/thescif/status/201664832 4644839849?s=10](https://x.com/thescif/status/2016648324644839849?s=10)
+- [10:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978008041696617 TRUMP WON BI...](115978035580347742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978035580347742
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978008041696617 TRUMP WON BIG. Crooked Election!
+- [10:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978030093232724](115978031218105674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978031218105674
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978030093232724
+- [10:58 UTC - Truth Social post 115978030093232724](115978030093232724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978030093232724
+  - _No text content captured._
+- [10:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978024465423949](115978028922348931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115978028922348931
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115978024465423949

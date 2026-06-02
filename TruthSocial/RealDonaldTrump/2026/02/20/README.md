@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-02-20
+
+- Posts: 16
+
+- [23:39 UTC - It is my Great Honor to have just signed, from the Oval Office, a Global 10% Tariff on all...](116105594741987893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116105594741987893
+  - It is my Great Honor to have just signed, from the Oval Office, a Global 10% Tariff on all Countries, which will be effective almost immediately. Thank you for your attention to th...
+- [21:48 UTC - Truth Social post 116105156087953700](116105156087953700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116105156087953700
+  - _No text content captured._
+- [19:40 UTC - Truth Social post 116104652577709269](116104652577709269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116104652577709269
+  - _No text content captured._
+- [18:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116104407604484915 The Supreme ...](116104410806971686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116104410806971686
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116104407604484915 The Supreme Court’s Ruling on TARIFFS is deeply disappointing! I am ashamed of certain Members of the...
+- [18:37 UTC - To show you how ridiculous the opinion is, the Court said that I’m not allowed to charge e...](116104407604484915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116104407604484915
+  - To show you how ridiculous the opinion is, the Court said that I’m not allowed to charge even $1 DOLLAR to any Country under IEEPA, I assume to protect other Countries, not the Uni...
+- [12:50 UTC - The Democrat Shutdown cost the U.S.A. at least two points in GDP. That’s why they are doin...](116103041948622478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116103041948622478
+  - The Democrat Shutdown cost the U.S.A. at least two points in GDP. That’s why they are doing it, in mini form, again. No Shutdowns! Also, LOWER INTEREST RATES. “Two Late” Powell is...
+- [01:13 UTC - Based on the tremendous interest shown, I will be directing the Secretary of War, and othe...](116100300268316472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100300268316472
+  - Based on the tremendous interest shown, I will be directing the Secretary of War, and other relevant Departments and Agencies, to begin the process of identifying and releasing Gov...
+- [01:08 UTC - To the Great People of East Palestine, Ohio, who were disgracefully betrayed and forgotten...](116100280662640693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100280662640693
+  - To the Great People of East Palestine, Ohio, who were disgracefully betrayed and forgotten about by Crooked Joe Biden — “TRUMP” has never forgotten about you, and never will! In ad...
+- [01:03 UTC - Truth Social post 116100261275870241](116100261275870241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100261275870241
+  - _No text content captured._
+- [01:02 UTC - Governor Wes Moore, of Maryland, must get the Toxic River spill fixed, IMMEDIATELY! The De...](116100256660953544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100256660953544
+  - Governor Wes Moore, of Maryland, must get the Toxic River spill fixed, IMMEDIATELY! The Democrats constantly talk about Environmental Pollution and Protection, and yet, they think...
+- [00:51 UTC - Received the Commission of Fine Arts approval today for what will soon be the Greatest Bal...](116100213217002894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100213217002894
+  - Received the Commission of Fine Arts approval today for what will soon be the Greatest Ballroom ever built!
+- [00:06 UTC - Truth Social post 116100038165418852](116100038165418852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100038165418852
+  - _No text content captured._
+- [00:06 UTC - Truth Social post 116100037023571458](116100037023571458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100037023571458
+  - _No text content captured._
+- [00:05 UTC - Truth Social post 116100035649028113](116100035649028113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100035649028113
+  - _No text content captured._
+- [00:05 UTC - Truth Social post 116100035035932635](116100035035932635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100035035932635
+  - _No text content captured._
+- [00:05 UTC - Truth Social post 116100034350137954](116100034350137954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116100034350137954
+  - _No text content captured._

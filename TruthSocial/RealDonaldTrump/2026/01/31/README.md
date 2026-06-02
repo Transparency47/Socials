@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2026-01-31
+
+- Posts: 22
+
+- [20:55 UTC - I have instructed Secretary of Homeland Security, Kristi Noem, that under no circumstances...](115991701359412321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115991701359412321
+  - I have instructed Secretary of Homeland Security, Kristi Noem, that under no circumstances are we going to participate in various poorly run Democrat Cities with regard to their Pr...
+- [19:28 UTC - Today is the day! To all Voters in Texas’ 9th State Senate District: GET OUT AND VOTE for ...](115991359481785479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115991359481785479
+  - Today is the day! To all Voters in Texas’ 9th State Senate District: GET OUT AND VOTE for a phenomenal Candidate, Leigh Wambsganss. She is a highly successful Entrepreneur, and an...
+- [19:02 UTC - RT [@ MelaniaTrump](https://truthsocial.com/@MelaniaTrump) MELANIA, the film. [# 1](https:...](115991256988240217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115991256988240217
+  - RT [@ MelaniaTrump](https://truthsocial.com/@MelaniaTrump) MELANIA, the film. [# 1](https://truthsocial.com/tags/1) Highest Opening In 10 Yrs (Doc) Loved By All - “A”CinemaScore
+- [17:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990850047628823](115990850952287067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990850952287067
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990850047628823
+- [17:18 UTC - Truth Social post 115990850047628823](115990850047628823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990850047628823
+  - _No text content captured._
+- [17:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990847997564990](115990848800740837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990848800740837
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990847997564990
+- [17:18 UTC - Truth Social post 115990847997564990](115990847997564990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990847997564990
+  - _No text content captured._
+- [17:17 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990845824481036](115990846684434752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990846684434752
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990845824481036
+- [17:17 UTC - Truth Social post 115990845824481036](115990845824481036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990845824481036
+  - _No text content captured._
+- [17:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990836583962276](115990839133409233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990839133409233
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990836583962276
+- [17:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990834742814001](115990838101182085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990838101182085
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990834742814001
+- [17:15 UTC - Truth Social post 115990836583962276](115990836583962276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990836583962276
+  - _No text content captured._
+- [17:14 UTC - Truth Social post 115990834742814001](115990834742814001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990834742814001
+  - _No text content captured._
+- [17:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990827602274653](115990828471327552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990828471327552
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115990827602274653
+- [17:12 UTC - Truth Social post 115990827602274653](115990827602274653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990827602274653
+  - _No text content captured._
+- [16:27 UTC - The people of our once again great Country want Law, Order, and Justice!](115990648113489950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115990648113489950
+  - The people of our once again great Country want Law, Order, and Justice!
+- [13:21 UTC - The Theft and Fraud in Minnesota is far greater than the 19 Billion Dollars originally pro...](115989916560112535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115989916560112535
+  - The Theft and Fraud in Minnesota is far greater than the 19 Billion Dollars originally projected. The Biden Administration knew this FRAUD was happening, and did absolutely nothing...
+- [03:01 UTC - Border Czar (Plus!) Tom Homan is doing a FANTASTIC JOB. He is one of a kind. Thank you Tom...](115987481835523508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115987481835523508
+  - Border Czar (Plus!) Tom Homan is doing a FANTASTIC JOB. He is one of a kind. Thank you Tom!!! President DJT
+- [02:57 UTC - The Radical Left Lunatics, Insurrectionists, Agitators, and Thugs, are going after Kristi ...](115987465493616768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115987465493616768
+  - The Radical Left Lunatics, Insurrectionists, Agitators, and Thugs, are going after Kristi Noem, the Secretary of Homeland Security, because she is a woman, and has done a really GR...
+- [01:58 UTC - Last night I saw, “MELANIA,” for the second time. The audience loved it, and so do I. Chec...](115987233609226463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115987233609226463
+  - Last night I saw, “MELANIA,” for the second time. The audience loved it, and so do I. Check it out — A MUST SEE! [https://www. amazon.com/salp/melaniamovie?h hf](https://www.amazon...
+- [01:24 UTC - I am asking all America First Patriots in Texas’ 9th State Senate District to please make ...](115987100169435643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115987100169435643
+  - I am asking all America First Patriots in Texas’ 9th State Senate District to please make a plan to GET OUT AND VOTE on Election Day, Saturday, January 31st, for a phenomenal Candi...
+- [00:49 UTC - For many years, the Bureau of Labor Statistics, under WEAK and STUPID people, has been FAI...](115986962139100209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115986962139100209
+  - For many years, the Bureau of Labor Statistics, under WEAK and STUPID people, has been FAILING American Businesses, Policymakers, and Families by releasing VERY inaccurate numbers....

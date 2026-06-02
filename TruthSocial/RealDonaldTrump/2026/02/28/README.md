@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2026-02-28
+
+- Posts: 13
+
+- [21:37 UTC - Khamenei, one of the most evil people in History, is dead. This is not only Justice for th...](116150413051904167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116150413051904167
+  - Khamenei, one of the most evil people in History, is dead. This is not only Justice for the people of Iran, but for all Great Americans, and those people from many Countries throug...
+- [10:02 UTC - [https:// ir.voanews.com/a/8118488.html](https://ir.voanews.com/a/8118488.html)](116147681426622839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116147681426622839
+  - [https:// ir.voanews.com/a/8118488.html](https://ir.voanews.com/a/8118488.html)
+- [09:44 UTC - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos...](116147610194698045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116147610194698045
+  - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos show: [https:// justthenews.com/accountability /political-ethics/biden-justice-department...
+- [09:35 UTC - Iran tried to interfere in 2020, 2024 elections to stop Trump, and now faces renewed war w...](116147572522796874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116147572522796874
+  - Iran tried to interfere in 2020, 2024 elections to stop Trump, and now faces renewed war with United States: [https:// justthenews.com/government/sec urity/iranians-tried-interfere...
+- [07:30 UTC - Truth Social post 116147082884192486](116147082884192486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116147082884192486
+  - _No text content captured._
+- [03:49 UTC - Minnesota Autism Payments have gone from $1,099,946 in 2017, to $343,176,474 in 2024, an i...](116146212954175657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116146212954175657
+  - Minnesota Autism Payments have gone from $1,099,946 in 2017, to $343,176,474 in 2024, an increase of 34,000% in just a few years. Steve Miller, Russ Vought, Dr. Oz, Pam Bondi - Thi...
+- [01:51 UTC - Sid Miller, a MAGA Warrior who has been with me from the very beginning, is doing a terrif...](116145748543672366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145748543672366
+  - Sid Miller, a MAGA Warrior who has been with me from the very beginning, is doing a terrific job as Agriculture Commissioner for the Great State of Texas, which I love and WON BIG...
+- [01:36 UTC - Dr. Dawn Buckingham is the strong and highly popular Land Commissioner for Texas, a place ...](116145690898669254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145690898669254
+  - Dr. Dawn Buckingham is the strong and highly popular Land Commissioner for Texas, a place I love and WON BIG three times, including with 6.4 Million Votes in 2024, the most in Hist...
+- [01:35 UTC - Don Huffines is a MAGA Warrior — He has been with me from the very beginning, and is runni...](116145686017289461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145686017289461
+  - Don Huffines is a MAGA Warrior — He has been with me from the very beginning, and is running for Comptroller of Public Accounts in Texas, which I love and WON BIG in 2016, 2020, an...
+- [01:27 UTC - Truth Social post 116145653498181186](116145653498181186/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145653498181186
+  - _No text content captured._
+- [01:27 UTC - Truth Social post 116145653196854894](116145653196854894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145653196854894
+  - _No text content captured._
+- [01:26 UTC - Truth Social post 116145652468000789](116145652468000789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145652468000789
+  - _No text content captured._
+- [01:26 UTC - Truth Social post 116145649488071320](116145649488071320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116145649488071320
+  - _No text content captured._

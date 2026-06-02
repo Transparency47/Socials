@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-02-07
+
+- Posts: 9
+
+- [15:25 UTC - We need more competition against THE ENEMY, the Fake News National TV Networks. Letting Go...](116030041948459285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116030041948459285
+  - We need more competition against THE ENEMY, the Fake News National TV Networks. Letting Good Deals get done like Nexstar - Tegna will help knock out the Fake News because there wil...
+- [14:20 UTC - Appeals court sides with Trump admin with mass detention ruling: [https:// justthenews.com...](116029787218135275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116029787218135275
+  - Appeals court sides with Trump admin with mass detention ruling: [https:// justthenews.com/government/cou rts-law/appeals-court-sides-trump-admin-mass-detention-ruling/](https://ju...
+- [03:42 UTC - Ruddy to Schmitt: Trump 'Liberator' of Latin America: [https://www. newsmax.com/newsmax-tv...](116027276004100776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116027276004100776
+  - Ruddy to Schmitt: Trump 'Liberator' of Latin America: [https://www. newsmax.com/newsmax-tv/chris-r uddy-rob-schmitt-trump/2026/02/06/id/1245151/](https://www.newsmax.com/newsmax-tv...
+- [02:18 UTC - Does America have the resolve to deport illegal border crossers: [https://www. washingtone...](116026948622072067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026948622072067
+  - Does America have the resolve to deport illegal border crossers: [https://www. washingtonexaminer.com/daily-m emo/4434193/america-resolve-deport-illegal-border-crossers/](https://w...
+- [02:18 UTC - Trump’s most important achievement: [https://www. washingtonexaminer.com/opinion /columnis...](116026945752955415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026945752955415
+  - Trump’s most important achievement: [https://www. washingtonexaminer.com/opinion /columnists/4356447/trump-most-important-achievement/](https://www.washingtonexaminer.com/opinion/c...
+- [02:16 UTC - Europeans would be better off if they had listened to Trump: [https://www. washingtonexami...](116026937874135066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026937874135066
+  - Europeans would be better off if they had listened to Trump: [https://www. washingtonexaminer.com/daily-m emo/4432331/europeans-better-off-if-they-listened-to-trump/](https://www.w...
+- [02:12 UTC - Another BIG WIN for Maine, and all of New England! Hard to believe you vote for Democrats ...](116026924108392447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026924108392447
+  - Another BIG WIN for Maine, and all of New England! Hard to believe you vote for Democrats who did this to you, but not for “TRUMP,” who gets you out of this Environmental and Econo...
+- [01:59 UTC - FCC launching probe into ABC's 'The View' amid crackdown on equal time for candidates: [ht...](116026870779552701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026870779552701
+  - FCC launching probe into ABC's 'The View' amid crackdown on equal time for candidates: [https://www. foxnews.com/media/fcc-launchin g-probe-abcs-the-view-amid-crackdown-equal-time-...
+- [01:48 UTC - Record Stock Market, and National Security, driven by our Great TARIFFS. I am predicting 1...](116026828636501753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116026828636501753
+  - Record Stock Market, and National Security, driven by our Great TARIFFS. I am predicting 100,000 on the DOW by the end of my Term. REMEMBER, TRUMP WAS RIGHT ABOUT EVERYTHING! I hop...

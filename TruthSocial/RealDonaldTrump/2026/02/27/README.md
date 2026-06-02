@@ -1,0 +1,232 @@
+# TruthSocial / RealDonaldTrump / 2026-02-27
+
+- Posts: 76
+
+- [21:11 UTC - The recent Decision of the United States Supreme Court concerning TARIFFS could allow for ...](116144649664906576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144649664906576
+  - The recent Decision of the United States Supreme Court concerning TARIFFS could allow for Hundreds of Billions of Dollars to be returned to Countries and Companies that have been “...
+- [20:47 UTC - THE UNITED STATES OF AMERICA WILL NEVER ALLOW A RADICAL LEFT, WOKE COMPANY TO DICTATE HOW ...](116144552969293195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144552969293195
+  - THE UNITED STATES OF AMERICA WILL NEVER ALLOW A RADICAL LEFT, WOKE COMPANY TO DICTATE HOW OUR GREAT MILITARY FIGHTS AND WINS WARS! That decision belongs to YOUR COMMANDER-IN-CHIEF,...
+- [18:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116144099725478051](116144102050788116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144102050788116
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116144099725478051
+- [18:51 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116144097027816293](116144099725478051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144099725478051
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116144097027816293
+- [18:51 UTC - Truth Social post 116144097027816293](116144097027816293/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144097027816293
+  - _No text content captured._
+- [18:42 UTC - Trump Hails 'Turnaround for the Ages' in SOTU Address: [https://www. newsmax.com/newsfront...](116144061962101342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144061962101342
+  - Trump Hails 'Turnaround for the Ages' in SOTU Address: [https://www. newsmax.com/newsfront/donald-t rump-turnaround-for-the-ages-sotu-address/2026/02/24/id/1247330/](https://www.ne...
+- [18:41 UTC - The alleged bias of Apple News: Ex-liberal mag editor tasked to handpick stories for milli...](116144058486971927/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144058486971927
+  - The alleged bias of Apple News: Ex-liberal mag editor tasked to handpick stories for millions of iPhone users: [https://www. foxnews.com/media/alleged-bias -apple-news-ex-liberal-m...
+- [18:41 UTC - Apple News Continues Rejection of Right-Leaning Outlets in January: [https:// mrcfreespeec...](116144057341130700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144057341130700
+  - Apple News Continues Rejection of Right-Leaning Outlets in January: [https:// mrcfreespeechamerica.org/blogs /free-speech/heather-moon/2026/02/04/apple-news-continues-rejection-rig...
+- [18:36 UTC - Truth Social post 116144037691454541](116144037691454541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144037691454541
+  - _No text content captured._
+- [18:35 UTC - Markets Hail Trump’s Economics: [https://www. wsj.com/opinion/markets-hail-t rumps-economi...](116144034294716498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144034294716498
+  - Markets Hail Trump’s Economics: [https://www. wsj.com/opinion/markets-hail-t rumps-economics-he-will-repair-biden-damage-pro-growth-investment-boost-f3954dbe](https://www.wsj.com/o...
+- [18:31 UTC - Truth Social post 116144018875864353](116144018875864353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144018875864353
+  - _No text content captured._
+- [18:29 UTC - Tariffs have influenced Novartis, and its great leader, Vasant (Vas) Narasimhan, M.D., to ...](116144013017188538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144013017188538
+  - Tariffs have influenced Novartis, and its great leader, Vasant (Vas) Narasimhan, M.D., to build 7+ Manufacturing and R&D Facilities, creating thousands of Jobs. The Radical Left an...
+- [18:28 UTC - IT’S “SAVE AMERICA ACT,” NOT “SAVE ACT.” REPUBLICANS MUST START USING THE TERM, “SAVE AMER...](116144008488017887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144008488017887
+  - IT’S “SAVE AMERICA ACT,” NOT “SAVE ACT.” REPUBLICANS MUST START USING THE TERM, “SAVE AMERICA ACT” — MUCH MORE POTENT, AND DESCRIPTIVE!
+- [18:28 UTC - President Calvin Coolidge: “The Business of America is BUSINESS!”](116144007354936339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144007354936339
+  - President Calvin Coolidge: “The Business of America is BUSINESS!”
+- [18:28 UTC - CBS’s Tony Dokoupil Calls Trump’s Speech ‘Extraordinary’ and ‘Vintage Trump’: [https://www...](116144005595037510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116144005595037510
+  - CBS’s Tony Dokoupil Calls Trump’s Speech ‘Extraordinary’ and ‘Vintage Trump’: [https://www. mediaite.com/media/news/cbss-t ony-dokoupil-calls-trumps-speech-extraordinary-and-vintag...
+- [17:10 UTC - This beautiful building will be, when complete, the much anticipated White House Ballroom ...](116143698866938654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143698866938654
+  - This beautiful building will be, when complete, the much anticipated White House Ballroom — The Greatest of its kind ever built! It is a rendering from the Treasury Building, direc...
+- [16:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116143544228909416 Thank you Ju...](116143545228804973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143545228804973
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116143544228909416 Thank you Justice Kavanaugh!
+- [16:30 UTC - Justice Brett Kavanaugh’s Dissent: [https://www. law.cornell.edu/supremecourt/t ext/24-128...](116143544228909416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143544228909416
+  - Justice Brett Kavanaugh’s Dissent: [https://www. law.cornell.edu/supremecourt/t ext/24-1287#writing-24-1287_DISSENT_10](https://www.law.cornell.edu/supremecourt/text/24-1287#writin...
+- [16:29 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116143539168239036 Thank you Ju...](116143541374008120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143541374008120
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116143539168239036 Thank you Justice Thomas!
+- [16:29 UTC - Justice Clarence Thomas’ Dissent: [https://www. law.cornell.edu/supremecourt/t ext/24-1287...](116143539168239036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143539168239036
+  - Justice Clarence Thomas’ Dissent: [https://www. law.cornell.edu/supremecourt/t ext/24-1287#writing-24-1287_DISSENT_9](https://www.law.cornell.edu/supremecourt/text/24-1287#writing-...
+- [16:27 UTC - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON B...](116143532789134529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143532789134529
+  - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON BIG three times, including with 6.4 Million Votes in 2024 (The most Votes in History, BY FA...
+- [16:27 UTC - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. ...](116143531243446769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143531243446769
+  - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. As Texas Chair of our Presidential Campaigns in 2016, 2020, and 2024, Dan has been an incr...
+- [16:26 UTC - Jon Bonck is an incredible Candidate running to represent the fantastic people of Texas’ 3...](116143529511602022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143529511602022
+  - Jon Bonck is an incredible Candidate running to represent the fantastic people of Texas’ 38th Congressional District. He is supported by many MAGA Patriots, including Senator Ted C...
+- [16:26 UTC - It is my Great Honor to endorse Carlos De La Cruz, a fantastic America First Candidate run...](116143525942565730/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143525942565730
+  - It is my Great Honor to endorse Carlos De La Cruz, a fantastic America First Candidate running to be the next Congressman from Texas’ 35th Congressional District! A Brave, 20 Year...
+- [16:25 UTC - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congression...](116143522980928891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143522980928891
+  - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congressional District! As the Highly Respected Chairman of the House Science Committee, Brian is fig...
+- [16:24 UTC - It is my Great Honor to endorse America First Patriot, Eric Flores, who is running to repr...](116143521787584376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143521787584376
+  - It is my Great Honor to endorse America First Patriot, Eric Flores, who is running to represent the wonderful people of Texas’ 34th Congressional District. A Brave U.S. Army Vetera...
+- [16:24 UTC - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to r...](116143520816027944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143520816027944
+  - It is my Great Honor to endorse America First Patriot, Jace Yarbrough, who is running to represent the wonderful people of Texas’ 32nd Congressional District. A Brave Air Force Vet...
+- [16:24 UTC - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texa...](116143519912956415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143519912956415
+  - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texas’ 31st Congressional District! “Judge” served over 20 years as a District Court Judge in...
+- [16:24 UTC - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tan...](116143518815107485/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143518815107485
+  - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tano Tijerina has dedicated his life to serving his Community. In Congress, he will fight tir...
+- [16:23 UTC - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Con...](116143517028256998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143517028256998
+  - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Congressional District! As a Member of the POWERFUL House Appropriations Committee, Michael i...
+- [16:23 UTC - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congr...](116143516124835450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143516124835450
+  - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congressional District! I have known Brandon’s family for many years. He has an incredible wife...
+- [16:23 UTC - Congressman Roger Williams is a Tremendous Champion for the incredible people of Texas’ 25...](116143515008414909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143515008414909
+  - Congressman Roger Williams is a Tremendous Champion for the incredible people of Texas’ 25th Congressional District! As a very successful Businessman, and Chairman of the House Sma...
+- [16:23 UTC - Congresswoman Beth Van Duyne is a fantastic Champion for the Great People of Texas’ 24th C...](116143514083556003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143514083556003
+  - Congresswoman Beth Van Duyne is a fantastic Champion for the Great People of Texas’ 24th Congressional District! A former appointee in my First Administration, where she worked har...
+- [16:22 UTC - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incre...](116143513047787934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143513047787934
+  - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incredible people of Texas’ 22nd Congressional District. Trever's brother is the GREAT Congress...
+- [16:22 UTC - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candida...](116143511132519794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143511132519794
+  - Mark Teixeira is a former Major League Baseball STAR, and tremendous America First Candidate, who is running to represent the incredible people of Texas’ 21st Congressional Distric...
+- [16:21 UTC - Congressman Pete Sessions is a Tremendous Champion for Texas’ 17th Congressional District!...](116143509398901939/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143509398901939
+  - Congressman Pete Sessions is a Tremendous Champion for Texas’ 17th Congressional District! As former Chairman of the House Rules Committee and the National Republican Congressional...
+- [16:21 UTC - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful peop...](116143508443868122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143508443868122
+  - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful people of Texas’ 15th Congressional District! A very successful Small Businesswoman, Monica kn...
+- [16:20 UTC - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texa...](116143504852875962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143504852875962
+  - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texas’ 14th Congressional District! A successful Businessman, Randy knows the America First Po...
+- [16:20 UTC - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job ...](116143503444570465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143503444570465
+  - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job representing Texas’ 13th Congressional District! A distinguished Medical Doctor and U.S. N...
+- [16:19 UTC - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional Dis...](116143501984582419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143501984582419
+  - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional District! A Fifth Generation Texan, Craig served as a State Representative for 12 years prior...
+- [16:19 UTC - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District...](116143499920564672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143499920564672
+  - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District! As the Chairman of the Republican Study Committee, August is doing an incredible job adv...
+- [16:18 UTC - It is my Great Honor to endorse MAGA Warrior, Chris Gober, who is running to represent the...](116143497998354987/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143497998354987
+  - It is my Great Honor to endorse MAGA Warrior, Chris Gober, who is running to represent the wonderful people of Texas’ 10th Congressional District. A Harvard Law School Graduate, an...
+- [16:18 UTC - It is my Great Honor to endorse America First Patriot Alex Mealer, who is running to repre...](116143496539840867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143496539840867
+  - It is my Great Honor to endorse America First Patriot Alex Mealer, who is running to represent the incredible people of Texas’ 9th Congressional District. A West Point Graduate, an...
+- [16:18 UTC - It is my Great Honor to endorse Jessica Steinmann, who is running to represent the amazing...](116143494629859059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143494629859059
+  - It is my Great Honor to endorse Jessica Steinmann, who is running to represent the amazing people of Texas’ 8th Congressional District. Jessica is strongly supported by many of the...
+- [16:17 UTC - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job represe...](116143491466237720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143491466237720
+  - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job representing Texas’ 6th Congressional District! A former Navy fighter pilot and Combat Veteran, J...
+- [16:17 UTC - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job represe...](116143490439374762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143490439374762
+  - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job representing Texas’ 5th Congressional District! A MAGA Warrior, who has been with us from the ver...
+- [16:16 UTC - Congressman Pat Fallon is a fantastic Representative for the wonderful People of Texas’ 4t...](116143489373842370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143489373842370
+  - Congressman Pat Fallon is a fantastic Representative for the wonderful People of Texas’ 4th Congressional District! An Air Force Veteran, successful Businessman, former National Ch...
+- [16:16 UTC - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congres...](116143488153907744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143488153907744
+  - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congressional District! A West Point Graduate and retired Army Ranger, Keith knows the Wisdom and...
+- [16:16 UTC - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texa...](116143487057494510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143487057494510
+  - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texas’ 1st Congressional District! Nathaniel has an incredible Record of Success, and strong s...
+- [16:12 UTC - Truth Social post 116143472996744400](116143472996744400/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143472996744400
+  - _No text content captured._
+- [15:41 UTC - Trump FTC sends letter to Apple about alleged political bias in its news app: [https://www...](116143350148522906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143350148522906
+  - Trump FTC sends letter to Apple about alleged political bias in its news app: [https://www. foxnews.com/media/trump-ftc-se nds-letter-apple-over-alleged-political-bias-its-news-app...
+- [15:40 UTC - Apple News promotes left-leaning media outlets — as it shuts out conservative sites entire...](116143347703798250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143347703798250
+  - Apple News promotes left-leaning media outlets — as it shuts out conservative sites entirely: study: [https:// nypost.com/2026/02/10/business /apple-news-promotes-left-leaning-medi...
+- [15:39 UTC - Trump Promises to Block Immigration from Corrupt Cultures: [https://www. breitbart.com/eco...](116143341220933079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143341220933079
+  - Trump Promises to Block Immigration from Corrupt Cultures: [https://www. breitbart.com/economy/2026/02/ 24/trump-promise-block-migration-corrupt-countries/](https://www.breitbart.c...
+- [15:38 UTC - ‘How Do You Not Stand?’ Trump Blasts Democrats for Failing to Acknowledge Iryna Zarutska’s...](116143340108802029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143340108802029
+  - ‘How Do You Not Stand?’ Trump Blasts Democrats for Failing to Acknowledge Iryna Zarutska’s Parents at SOTU: [https://www. breitbart.com/politics/2026/02 /24/how-do-you-not-stand-tr...
+- [15:38 UTC - Trump awards Purple Hearts to National Guard members ambushed in Washington, DC: 'We love ...](116143338666368511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143338666368511
+  - Trump awards Purple Hearts to National Guard members ambushed in Washington, DC: 'We love you all': [https://www. foxnews.com/politics/trump-awa rds-purple-hearts-national-guard-me...
+- [15:37 UTC - CBS’s Tony Dokoupil Raves About Trump's 'Extraordinary' State Of The Union: [https://www. ...](116143336722246796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143336722246796
+  - CBS’s Tony Dokoupil Raves About Trump's 'Extraordinary' State Of The Union: [https://www. huffpost.com/entry/cbs-tony-do koupil-trump-state-of-the-union-extraordinary_n_699f20f9e4b...
+- [15:37 UTC - ‘How Do You Not Stand?’: The Jaw-Dropping Moments Democrats Remained Seated At SOTU: [http...](116143334329837950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143334329837950
+  - ‘How Do You Not Stand?’: The Jaw-Dropping Moments Democrats Remained Seated At SOTU: [https://www. dailywire.com/news/how-do-you- not-stand-the-jaw-dropping-moments-democrats-remai...
+- [15:36 UTC - Fact Check: Trump Oversees Fewest Illegal Aliens Crossing Border in Half a Century: [https...](116143332196891362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143332196891362
+  - Fact Check: Trump Oversees Fewest Illegal Aliens Crossing Border in Half a Century: [https://www. breitbart.com/politics/2026/02 /24/ffact-check-trump-oversees-fewest-illegal-alien...
+- [15:36 UTC - Trump blasts Dems for reaction to Charlotte stabbing victim’s mother at State of the Union...](116143330645417506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143330645417506
+  - Trump blasts Dems for reaction to Charlotte stabbing victim’s mother at State of the Union: ‘How do you not stand?’ [https://www. wbtv.com/2026/02/25/trump-blas ts-dems-reaction-ch...
+- [15:24 UTC - The Right’s Brand Is ‘America First.’ The Left’s Brand Is Getting Mad About That: [https:/...](116143284354657458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143284354657458
+  - The Right’s Brand Is ‘America First.’ The Left’s Brand Is Getting Mad About That: [https:// thefederalist.com/2026/02/25/t he-rights-brand-is-america-first-the-lefts-brand-is-getti...
+- [15:24 UTC - Trump continues to live rent free in their heads: [https://www. americanthinker.com/blog/2...](116143282495037265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143282495037265
+  - Trump continues to live rent free in their heads: [https://www. americanthinker.com/blog/2026/ 02/trump_continues_to_live_rent_free_in_their_heads.html](https://www.americanthinker...
+- [15:23 UTC - President Trump Brilliant in Fourth State of the Union Address: [https:// amac.us/newsline...](116143278178305226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143278178305226
+  - President Trump Brilliant in Fourth State of the Union Address: [https:// amac.us/newsline/politics/pres ident-trump-brilliant-in-fourth-state-of-the-union-address/](https://amac.u...
+- [15:22 UTC - Trump Breaks Record with Longest State of the Union Speech Ever: [https://www. breitbart.c...](116143276974529738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143276974529738
+  - Trump Breaks Record with Longest State of the Union Speech Ever: [https://www. breitbart.com/politics/2026/02 /24/trump-breaks-own-record-longest-state-ofthe-union-speech/](https:/...
+- [15:21 UTC - Big ideas from Trump's State of the Union speech, from federal 401k payments to Dalilah's ...](116143272531781078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143272531781078
+  - Big ideas from Trump's State of the Union speech, from federal 401k payments to Dalilah's law: [https:// justthenews.com/politics-polic y/all-things-trump/big-ideas-trumps-state-un...
+- [15:21 UTC - 5 unforgettable moments from Trump’s record-breaking State of the Union address: [https://...](116143270800377974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143270800377974
+  - 5 unforgettable moments from Trump’s record-breaking State of the Union address: [https://www. foxnews.com/politics/5-unforge ttable-moments-from-trumps-record-breaking-state-union...
+- [15:16 UTC - Trump Puts Democrats On Defense In Patriotic, Disciplined SOTU: [https:// dailycaller.com/...](116143251886894781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143251886894781
+  - Trump Puts Democrats On Defense In Patriotic, Disciplined SOTU: [https:// dailycaller.com/2026/02/24/don ald-trump-state-union-patriotic-disciplined-democrats-defense/](https://dai...
+- [15:15 UTC - Trump’s home-run State of the Union 2026 showed exactly how crazy the Democrats are: [http...](116143248735534922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143248735534922
+  - Trump’s home-run State of the Union 2026 showed exactly how crazy the Democrats are: [https:// nypost.com/2026/02/25/opinion/ trumps-home-run-state-of-the-union-2026-showed-exactly...
+- [15:14 UTC - Liberal Media Reactions to Trump's State of the Union Were Wild, but This Poll Will Drive ...](116143243981662384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143243981662384
+  - Liberal Media Reactions to Trump's State of the Union Were Wild, but This Poll Will Drive Libs Nuts: [https:// townhall.com/tipsheet/mattvesp a/2026/02/25/liberal-media-reactions-t...
+- [15:13 UTC - Trump Delivers A Show At State Of The Union: [https://www. dailywire.com/news/trump-deliv ...](116143242034061788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116143242034061788
+  - Trump Delivers A Show At State Of The Union: [https://www. dailywire.com/news/trump-deliv ers-a-show-at-state-of-the-union](https://www.dailywire.com/news/trump-delivers-a-show-at-...
+- [12:57 UTC - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos...](116142706501651832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116142706501651832
+  - As Georgia prosecutor pursued Trump, Biden DOJ 'invited' her to get lucrative grant, memos show: [https:// justthenews.com/accountability /political-ethics/biden-justice-department...
+- [12:57 UTC - Trump draws clear midterm battle lines: Patriots vs. 'Hate-triots’: [https:// justthenews....](116142704877346661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116142704877346661
+  - Trump draws clear midterm battle lines: Patriots vs. 'Hate-triots’: [https:// justthenews.com/government/whi te-house/midterm-battle-lines-drawn-patriots-vs-hateriots](https://just...
+- [12:56 UTC - Mortgage rates drop to under 6% for first time since 2022: Freddie Mac: [https:// justthen...](116142702541066127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116142702541066127
+  - Mortgage rates drop to under 6% for first time since 2022: Freddie Mac: [https:// justthenews.com/nation/economy /mortgage-rates-drop-under-6-first-time-2022-freddie-mac](https://j...
+- [12:25 UTC - Congrats to Newsmax. Big numbers! President DJT Newsmax Delivers 4M-Plus Viewers in Breako...](116142578355684475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116142578355684475
+  - Congrats to Newsmax. Big numbers! President DJT Newsmax Delivers 4M-Plus Viewers in Breakout State of Union Coverage: [https://www. newsmax.com/newsfront/newsmax- tv-rating-sotu/20...
+- [06:41 UTC - Truth Social post 116141227714023388](116141227714023388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116141227714023388
+  - _No text content captured._
+- [06:40 UTC - Truth Social post 116141225080352271](116141225080352271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116141225080352271
+  - _No text content captured._
+- [06:36 UTC - Truth Social post 116141206581518468](116141206581518468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116141206581518468
+  - _No text content captured._

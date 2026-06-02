@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-02-19
+
+- Posts: 10
+
+- [23:10 UTC - Just left Coosa Steel Plant, in Rome, Georgia, which is now working 24 hours around the cl...](116099815931734129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116099815931734129
+  - Just left Coosa Steel Plant, in Rome, Georgia, which is now working 24 hours around the clock, after it was down to just one hour a year ago. It is like that up and down throughout...
+- [20:12 UTC - We are going to have the Save America Act, one way or the other, after approval by Congres...](116099119307195442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116099119307195442
+  - We are going to have the Save America Act, one way or the other, after approval by Congress through the very proper use of the Filibuster or, at minimum, by a Talking Filibuster, à...
+- [17:52 UTC - The Commission of Fine Arts just approved, unanimously, 6 to 0, with one recusal because h...](116098568222664684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116098568222664684
+  - The Commission of Fine Arts just approved, unanimously, 6 to 0, with one recusal because he had a conflict in that he worked professionally on the job, the White House Ballroom. Gr...
+- [12:26 UTC - I only want Americans to Vote in American Elections!](116097286980069304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116097286980069304
+  - I only want Americans to Vote in American Elections!
+- [01:29 UTC - I am pleased to announce that I am nominating Jeffrey Kuhlman to serve as Judge on the Uni...](116094700302543382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094700302543382
+  - I am pleased to announce that I am nominating Jeffrey Kuhlman to serve as Judge on the United States District Court for the District of Kansas. A proud Graduate of Kansas State Uni...
+- [01:28 UTC - It is my Honor to nominate Tony Mattivi to serve as Judge on the United States District Co...](116094696791401043/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094696791401043
+  - It is my Honor to nominate Tony Mattivi to serve as Judge on the United States District Court for the District of Kansas. Tony is Highly Qualified, currently serving as the Directo...
+- [01:27 UTC - I am pleased to nominate Tony Powell to serve as Judge on the United States District Court...](116094693699639941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094693699639941
+  - I am pleased to nominate Tony Powell to serve as Judge on the United States District Court for the District of Kansas. Tony currently serves as Kansas’ Solicitor General and, previ...
+- [01:26 UTC - It is my Great Honor to nominate Justin Smith to serve as Judge on the United States Court...](116094690568794039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094690568794039
+  - It is my Great Honor to nominate Justin Smith to serve as Judge on the United States Court of Appeals for the Eighth Circuit in Missouri. Justin is a very Smart and Talented Attorn...
+- [01:03 UTC - Czech Deputy PM Petr Macinka: Great job in your Debate against Hillary Clinton on various ...](116094599626377829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094599626377829
+  - Czech Deputy PM Petr Macinka: Great job in your Debate against Hillary Clinton on various subjects, including her ridiculous views on Gender. Say hello to everybody in your wonderf...
+- [00:06 UTC - THE UNITED STATES TRADE DEFICIT HAS BEEN REDUCED BY 78% BECAUSE OF THE TARIFFS BEING CHARG...](116094375393499963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116094375393499963
+  - THE UNITED STATES TRADE DEFICIT HAS BEEN REDUCED BY 78% BECAUSE OF THE TARIFFS BEING CHARGED TO OTHER COMPANIES AND COUNTRIES. IT WILL GO INTO POSITIVE TERRITORY DURING THIS YEAR,...

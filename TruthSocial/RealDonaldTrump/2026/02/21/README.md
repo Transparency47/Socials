@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2026-02-21
+
+- Posts: 22
+
+- [22:54 UTC - Truth Social post 116111079846945770](116111079846945770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116111079846945770
+  - _No text content captured._
+- [22:53 UTC - Netflix should fire racist, Trump Deranged Susan Rice, IMMEDIATELY, or pay the consequence...](116111073840858395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116111073840858395
+  - Netflix should fire racist, Trump Deranged Susan Rice, IMMEDIATELY, or pay the consequences. She’s got no talent or skills - Purely a political hack! HER POWER IS GONE, AND WILL NE...
+- [21:06 UTC - Based on a lack of support, in particular for the unbelievably successful TARIFFS imposed ...](116110654345152184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110654345152184
+  - Based on a lack of support, in particular for the unbelievably successful TARIFFS imposed on Foreign Countries and Companies which has made America Richer, Stronger, Bigger, and Be...
+- [20:49 UTC - Truth Social post 116110588398971014](116110588398971014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110588398971014
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116110584462536918](116110584462536918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110584462536918
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116110583761056588](116110583761056588/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110583761056588
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116110582943802191](116110582943802191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110582943802191
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116110582282056281](116110582282056281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110582282056281
+  - _No text content captured._
+- [20:47 UTC - Truth Social post 116110581579713669](116110581579713669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110581579713669
+  - _No text content captured._
+- [19:13 UTC - Very important to save The Great Salt Lake in Utah. This is an Environmental hazard that m...](116110210145968913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116110210145968913
+  - Very important to save The Great Salt Lake in Utah. This is an Environmental hazard that must be worked on, IMMEDIATELY — It is of tremendous interest to me. The people of Utah are...
+- [17:57 UTC - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. ...](116109911600146683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109911600146683
+  - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. As Texas Chair of our Presidential Campaigns in 2016, 2020, and 2024, Dan has been an incr...
+- [17:57 UTC - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON B...](116109910601946433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109910601946433
+  - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON BIG three times, including with 6.4 Million Votes in 2024 (The most Votes in History, BY FA...
+- [15:59 UTC - Based on a thorough, detailed, and complete review of the ridiculous, poorly written, and ...](116109447886304328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109447886304328
+  - Based on a thorough, detailed, and complete review of the ridiculous, poorly written, and extraordinarily anti-American decision on Tariffs issued yesterday, after MANY months of c...
+- [15:46 UTC - Biased Spies: CIA rescinds or revises 19 intelligence reports over political bias, bad tra...](116109397027953463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109397027953463
+  - Biased Spies: CIA rescinds or revises 19 intelligence reports over political bias, bad tradecraft: [https:// justthenews.com/government/sec urity/biased-spies-cia-rescinds-or-revis...
+- [15:27 UTC - Roberts court shuts door on tariffs but leaves room for Trump to prevail: [https:// justth...](116109322546516945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109322546516945
+  - Roberts court shuts door on tariffs but leaves room for Trump to prevail: [https:// justthenews.com/government/cou rts-law/john-roberts-leaves-room-trump-prevail/](https://justthen...
+- [15:27 UTC - CIA's historic retraction of intel reports exposes political bias in Obama-Biden spy agenc...](116109320498109062/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109320498109062
+  - CIA's historic retraction of intel reports exposes political bias in Obama-Biden spy agencies: [https:// justthenews.com/government/fed eral-agencies/historic-cia-retraction-intel-...
+- [15:26 UTC - New FBI memo confirms 2022 JTN report on Biden involvement in raid of Trump's Mar-a-Lago p...](116109318847334955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109318847334955
+  - New FBI memo confirms 2022 JTN report on Biden involvement in raid of Trump's Mar-a-Lago property: [https:// justthenews.com/government/fed eral-agencies/fbi-memo-confirms-jtn-2022...
+- [14:32 UTC - My new hero is United States Supreme Court Justice Brett Kavanaugh and, of course, Justice...](116109104602937332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116109104602937332
+  - My new hero is United States Supreme Court Justice Brett Kavanaugh and, of course, Justices Clarence Thomas and Samuel Alito. There is no doubt in anyone’s mind that they want to,...
+- [04:32 UTC - Trump lives up to his promise to East Palestine: [https://www. washingtonexaminer.com/opin...](116106746237136473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116106746237136473
+  - Trump lives up to his promise to East Palestine: [https://www. washingtonexaminer.com/opinion /4465527/trump-lives-up-to-his-promise-to-east-palestine/](https://www.washingtonexami...
+- [03:21 UTC - Republicans are so disloyal to themselves! Unite, stick together, and WIN! President DJT](116106466161291676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116106466161291676
+  - Republicans are so disloyal to themselves! Unite, stick together, and WIN! President DJT
+- [00:46 UTC - What happened today with the two United States Supreme Court Justices that I appointed aga...](116105858701679073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116105858701679073
+  - What happened today with the two United States Supreme Court Justices that I appointed against great opposition, Neil Gorsuch and Amy Coney Barrett, whether people like it or not,...
+- [00:04 UTC - Those members of the Supreme Court who voted against our very acceptable and proper method...](116105691693335080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116105691693335080
+  - Those members of the Supreme Court who voted against our very acceptable and proper method of TARIFFS should be ashamed of themselves. Their decision was ridiculous but, now the ad...

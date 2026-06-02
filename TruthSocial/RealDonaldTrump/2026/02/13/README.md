@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-02-13
+
+- Posts: 9
+
+- [23:33 UTC - Secretary Kristi Noem addresses election security in Arizona: [https:// m.youtube.com/watc...](116065934097816593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065934097816593
+  - Secretary Kristi Noem addresses election security in Arizona: [https:// m.youtube.com/watch?v=adBYevXG xJ8](https://m.youtube.com/watch?v=adBYevXGxJ8)
+- [23:31 UTC - Truth Social post 116065926200307090](116065926200307090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065926200307090
+  - _No text content captured._
+- [23:30 UTC - Truth Social post 116065923985625652](116065923985625652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065923985625652
+  - _No text content captured._
+- [22:54 UTC - Repeat Violent Offender DeCarlos Brown Jr. was put on the streets by Radical Roy Cooper, a...](116065782169280901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065782169280901
+  - Repeat Violent Offender DeCarlos Brown Jr. was put on the streets by Radical Roy Cooper, and his soft-on-crime agenda. He then went on to BRUTALLY murder Iryna Zarutska aboard the...
+- [22:11 UTC - Governor Roy Cooper freed the killer, DeCarlos Brown Jr., of the beautiful Iryna Zarutska,...](116065610176562623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065610176562623
+  - Governor Roy Cooper freed the killer, DeCarlos Brown Jr., of the beautiful Iryna Zarutska, because he is a weak and ineffective person. He slashed her neck from behind while on the...
+- [22:02 UTC - We cannot let the Democrats get away with NO VOTER I.D. any longer. These are horrible, di...](116065576451150055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065576451150055
+  - We cannot let the Democrats get away with NO VOTER I.D. any longer. These are horrible, disingenuous CHEATERS. They have all sorts of reasons why it shouldn’t be passed, and then b...
+- [21:35 UTC - The Democrats refuse to vote for Voter I.D., or Citizenship. The reason is very simple — T...](116065471857020644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116065471857020644
+  - The Democrats refuse to vote for Voter I.D., or Citizenship. The reason is very simple — They want to continue to cheat in Elections. This was not what our Founders desired. I have...
+- [17:11 UTC - Our advanced F-22 Raptor Fighter Jet — Greatest in the World!](116064430464430523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116064430464430523
+  - Our advanced F-22 Raptor Fighter Jet — Greatest in the World!
+- [15:41 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116064077737153290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116064077737153290
+  - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful Leader, with a proven track record of delivering phenomenal results. He fights tirelessly f...
