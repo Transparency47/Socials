@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-10-01
+
+- Posts: 12
+
+- [23:28 UTC - “Statements of Support for Middle East Peace Deal”](115301502762018573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115301502762018573
+  - “Statements of Support for Middle East Peace Deal”
+- [20:25 UTC - Maxine Waters admitted that she is demanding Healthcare for Illegal Aliens, and it’s going...](115300785090391636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115300785090391636
+  - Maxine Waters admitted that she is demanding Healthcare for Illegal Aliens, and it’s going to be Top of the Line, taking American Taxpayers’ Healthcare away from them!
+- [18:09 UTC - I really believe that Jerome “Too Late” Powell is an OBSTRUCTIONIST!](115300247218302066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115300247218302066
+  - I really believe that Jerome “Too Late” Powell is an OBSTRUCTIONIST!
+- [17:53 UTC - The Soybean Farmers of our Country are being hurt because China is, for “negotiating” reas...](115300187189696754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115300187189696754
+  - The Soybean Farmers of our Country are being hurt because China is, for “negotiating” reasons only, not buying. We’ve made so much money on Tariffs, that we are going to take a sma...
+- [17:37 UTC - The Governor of Oregon must be living in a “Dream World.” Portland is a NEVER-ENDING DISAS...](115300121637799728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115300121637799728
+  - The Governor of Oregon must be living in a “Dream World.” Portland is a NEVER-ENDING DISASTER. Many people have been badly hurt, and even killed. It is run like a Third World Count...
+- [17:36 UTC - As I determined on September 27th, when I activated and called into service the National G...](115300118756896774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115300118756896774
+  - As I determined on September 27th, when I activated and called into service the National Guard in Oregon, conditions continue to deteriorate into lawless mayhem. Our GREAT Federal...
+- [13:24 UTC - Truth Social post 115299127361117840](115299127361117840/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115299127361117840
+  - _No text content captured._
+- [13:23 UTC - I was there to see it all. Total Scum!!! President DJT [https:// nypost.com/2025/09/30/us-...](115299125682668163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115299125682668163
+  - I was there to see it all. Total Scum!!! President DJT [https:// nypost.com/2025/09/30/us-news/ fbi-surveilled-rep-scott-perry-before-seizing-his-cell-phone-as-part-of-arctic-frost...
+- [00:30 UTC - Truth Social post 115296085421529865](115296085421529865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115296085421529865
+  - _No text content captured._
+- [00:30 UTC - Truth Social post 115296083808114116](115296083808114116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115296083808114116
+  - _No text content captured._
+- [00:30 UTC - Truth Social post 115296083267885151](115296083267885151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115296083267885151
+  - _No text content captured._
+- [00:29 UTC - Truth Social post 115296080250213989](115296080250213989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115296080250213989
+  - _No text content captured._

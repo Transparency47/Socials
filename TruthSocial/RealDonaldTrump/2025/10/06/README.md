@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-10-06
 
-- Posts: 18
+- Posts: 22
 
 - [22:52 UTC - Democrats have SHUT DOWN the United States Government right in the midst of one of the mos...](115329671584864920/)
   - Source: https://truthsocial.com/@realDonaldTrump/115329671584864920
@@ -56,3 +56,15 @@
 - [11:56 UTC - JUST OUT: Good news for the Holiday Season. EARLY PRICES ARE DOWN, WHILE TARIFFS ARE MAKIN...](115327091437197645/)
   - Source: https://truthsocial.com/@realDonaldTrump/115327091437197645
   - JUST OUT: Good news for the Holiday Season. EARLY PRICES ARE DOWN, WHILE TARIFFS ARE MAKING OUR COUNTRY AN ECONOMIC POWER AGAIN. Also, virtually NO INFLATION, AS STOCK MARKETS CONT...
+- [10:21 UTC - Truth Social post 115326719874461764](115326719874461764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115326719874461764
+  - _No text content captured._
+- [10:18 UTC - Truth Social post 115326708244220035](115326708244220035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115326708244220035
+  - _No text content captured._
+- [10:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115325026883469879](115326706878318868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115326706878318868
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115325026883469879
+- [03:10 UTC - Truth Social post 115325026883469879](115325026883469879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115325026883469879
+  - _No text content captured._

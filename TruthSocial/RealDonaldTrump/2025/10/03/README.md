@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2025-10-03
+
+- Posts: 26
+
+- [23:46 UTC - Truth Social post 115312899931027190](115312899931027190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312899931027190
+  - _No text content captured._
+- [23:26 UTC - To ICE, Border Patrol, Law Enforcement, and all U.S. Military: As per my August 25, 2025 E...](115312821068691123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312821068691123
+  - To ICE, Border Patrol, Law Enforcement, and all U.S. Military: As per my August 25, 2025 Executive Order, please be advised that, from this point forward, anybody burning the Ameri...
+- [22:42 UTC - Truth Social post 115312646700130890](115312646700130890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312646700130890
+  - _No text content captured._
+- [22:18 UTC - I am proud to announce that on Sunday, October 5th, I will be hosting a Salute to the Flee...](115312550655380642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312550655380642
+  - I am proud to announce that on Sunday, October 5th, I will be hosting a Salute to the Fleet in Norfolk, Virginia, to honor our brave men and women of the United States Navy. Our wo...
+- [21:14 UTC - Based on the Statement just issued by Hamas, I believe they are ready for a lasting PEACE....](115312298602997974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312298602997974
+  - Based on the Statement just issued by Hamas, I believe they are ready for a lasting PEACE. Israel must immediately stop the bombing of Gaza, so that we can get the Hostages out saf...
+- [20:44 UTC - Truth Social post 115312181572421839](115312181572421839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115312181572421839
+  - _No text content captured._
+- [18:06 UTC - It is my Great Honor to endorse America First Patriot Matt Van Epps, who is running to rep...](115311560762123348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115311560762123348
+  - It is my Great Honor to endorse America First Patriot Matt Van Epps, who is running to represent the Great People of Tennessee’s 7th Congressional District. A West Point Graduate,...
+- [17:15 UTC - A boat loaded with enough drugs to kill 25 TO 50 THOUSAND PEOPLE was stopped, early this m...](115311360340851958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115311360340851958
+  - A boat loaded with enough drugs to kill 25 TO 50 THOUSAND PEOPLE was stopped, early this morning off the Coast of Venezuela, from entering American Territory.
+- [16:42 UTC - I am pleased to advise that I reversed the cuts made to Homeland Security and Counterterro...](115311232842528048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115311232842528048
+  - I am pleased to advise that I reversed the cuts made to Homeland Security and Counterterrorism for New York City and State. It was my Honor to do so. Thank you for your attention t...
+- [15:45 UTC - Congratulations to Idaho on breaking ground for your new Veterans Home today. Glad to have...](115311008657859843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115311008657859843
+  - Congratulations to Idaho on breaking ground for your new Veterans Home today. Glad to have worked with your GREAT Senator Jim Risch to have made this happen. Veterans are a priorit...
+- [15:21 UTC - Truth Social post 115310912351082492](115310912351082492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115310912351082492
+  - _No text content captured._
+- [15:21 UTC - Truth Social post 115310911447074904](115310911447074904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115310911447074904
+  - _No text content captured._
+- [14:09 UTC - Hamas has been a ruthless and violent threat, for many years, in the Middle East! They hav...](115310630808491399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115310630808491399
+  - Hamas has been a ruthless and violent threat, for many years, in the Middle East! They have killed (and made lives unbearably miserable), culminating with the October 7th MASSACRE,...
+- [03:36 UTC - [https:// justthenews.com/accountability /fbi-bombshell-274-agents-sent-capitol-j6-many-la...](115308138463768966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115308138463768966
+  - [https:// justthenews.com/accountability /fbi-bombshell-274-agents-sent-capitol-j6-many-later-complained-they-were-political](https://justthenews.com/accountability/fbi-bombshell-2...
+- [03:35 UTC - [https:// justthenews.com/government/con gress/fbi-had-three-source-reports-alleging-biden...](115308136596734899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115308136596734899
+  - [https:// justthenews.com/government/con gress/fbi-had-three-source-reports-alleging-biden-corruption-ukraine-no-record-bureau](https://justthenews.com/government/congress/fbi-had-...
+- [03:28 UTC - Truth Social post 115308107209162355](115308107209162355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115308107209162355
+  - _No text content captured._
+- [03:00 UTC - Truth Social post 115307999073327846](115307999073327846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307999073327846
+  - _No text content captured._
+- [02:45 UTC - Truth Social post 115307939944226847](115307939944226847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307939944226847
+  - _No text content captured._
+- [02:41 UTC - Truth Social post 115307923559979920](115307923559979920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307923559979920
+  - _No text content captured._
+- [02:41 UTC - Truth Social post 115307923130951328](115307923130951328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307923130951328
+  - _No text content captured._
+- [02:39 UTC - Truth Social post 115307915499158903](115307915499158903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307915499158903
+  - _No text content captured._
+- [02:37 UTC - Truth Social post 115307908213210605](115307908213210605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307908213210605
+  - _No text content captured._
+- [02:36 UTC - Truth Social post 115307904883946259](115307904883946259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307904883946259
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 115307873787928211](115307873787928211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307873787928211
+  - _No text content captured._
+- [02:28 UTC - WOW!!! Such an! honor. Record “stuff” for a Republican. President DJT](115307871751959358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307871751959358
+  - WOW!!! Such an! honor. Record “stuff” for a Republican. President DJT
+- [00:57 UTC - [https://www. whitehouse.gov/government-shut down-clock/](https://www.whitehouse.gov/gover...](115307513903169583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115307513903169583
+  - [https://www. whitehouse.gov/government-shut down-clock/](https://www.whitehouse.gov/government-shutdown-clock/)

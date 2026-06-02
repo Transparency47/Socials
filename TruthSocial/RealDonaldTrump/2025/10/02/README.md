@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-10-02
+
+- Posts: 12
+
+- [12:19 UTC - Best thing that could happen to the Republican Party? A Communist Mayor in NYC. The Dems h...](115304536210429622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304536210429622
+  - Best thing that could happen to the Republican Party? A Communist Mayor in NYC. The Dems have gone stone cold CRAZY! President DJT [https://www. foxbusiness.com/video/63805351 6311...
+- [11:59 UTC - I have a meeting today with Russ Vought, he of PROJECT 2025 Fame, to determine which of th...](115304455138824245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304455138824245
+  - I have a meeting today with Russ Vought, he of PROJECT 2025 Fame, to determine which of the many Democrat Agencies, most of which are a political SCAM, he recommends to be cut, and...
+- [11:45 UTC - THE DEMOCRATS WANT TO GIVE YOUR HEALTHCARE MONEY TO ILLEGAL ALIENS AND OPEN OUR BORDERS TO...](115304401783234720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304401783234720
+  - THE DEMOCRATS WANT TO GIVE YOUR HEALTHCARE MONEY TO ILLEGAL ALIENS AND OPEN OUR BORDERS TO THE CRIMINALS OF THE WORLD, A DEADLY COMBINATION BECAUSE EVERYBODY WILL COME!
+- [11:42 UTC - [https:// truthsocial.com/@JMUGA/1153002 81811795791](https://truthsocial.com/@JMUGA/11530...](115304388000348412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304388000348412
+  - [https:// truthsocial.com/@JMUGA/1153002 81811795791](https://truthsocial.com/@JMUGA/115300281811795791)
+- [11:42 UTC - [https:// truthsocial.com/users/boothbr/ statuses/115300376946484689](https://truthsocial....](115304387246061944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304387246061944
+  - [https:// truthsocial.com/users/boothbr/ statuses/115300376946484689](https://truthsocial.com/users/boothbr/statuses/115300376946484689)
+- [11:41 UTC - [https:// truthsocial.com/users/Saddleup 1966/statuses/115300539721647826](https://truthso...](115304385712996555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115304385712996555
+  - [https:// truthsocial.com/users/Saddleup 1966/statuses/115300539721647826](https://truthsocial.com/users/Saddleup1966/statuses/115300539721647826)
+- [02:51 UTC - [https:// truthsocial.com/users/JMUGA/st atuses/115300281811795791](https://truthsocial.co...](115302300780868314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302300780868314
+  - [https:// truthsocial.com/users/JMUGA/st atuses/115300281811795791](https://truthsocial.com/users/JMUGA/statuses/115300281811795791)
+- [02:50 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115300326248739649](https://tr...](115302295490736726/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302295490736726
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115300326248739649](https://truthsocial.com/users/IStandWithTrump47/statuses/115300326248739649)
+- [02:48 UTC - [https:// truthsocial.com/users/Qanon76/ statuses/115300290184029915](https://truthsocial....](115302289376608907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302289376608907
+  - [https:// truthsocial.com/users/Qanon76/ statuses/115300290184029915](https://truthsocial.com/users/Qanon76/statuses/115300290184029915)
+- [02:48 UTC - [https:// truthsocial.com/users/kallitou t/statuses/115300262066499528](https://truthsocia...](115302287824717199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302287824717199
+  - [https:// truthsocial.com/users/kallitou t/statuses/115300262066499528](https://truthsocial.com/users/kallitout/statuses/115300262066499528)
+- [02:46 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115300313348140683](https://tr...](115302280330463707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302280330463707
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115300313348140683](https://truthsocial.com/users/IStandWithTrump47/statuses/115300313348140683)
+- [02:43 UTC - Republicans must use this opportunity of Democrat forced closure to clear out dead wood, w...](115302268694968810/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115302268694968810
+  - Republicans must use this opportunity of Democrat forced closure to clear out dead wood, waste, and fraud. Billions of Dollars can be saved. MAKE AMERICA GREAT AGAIN!

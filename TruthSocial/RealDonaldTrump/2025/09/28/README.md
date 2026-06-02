@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-09-28
+
+- Posts: 12
+
+- [23:11 UTC - [https:// x.com/TRUMP_ARMY_/status/19722 82140667904372](https://x.com/TRUMP_ARMY_/status/...](115284449276987627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284449276987627
+  - [https:// x.com/TRUMP_ARMY_/status/19722 82140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
+- [23:07 UTC - [https:// x.com/NathanielSami/status/197 2427292124356648](https://x.com/NathanielSami/sta...](115284433784465028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284433784465028
+  - [https:// x.com/NathanielSami/status/197 2427292124356648](https://x.com/NathanielSami/status/1972427292124356648)
+- [23:00 UTC - [https:// x.com/WyattCatarina/status/197 1368846683697172](https://x.com/WyattCatarina/sta...](115284406035015432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284406035015432
+  - [https:// x.com/WyattCatarina/status/197 1368846683697172](https://x.com/WyattCatarina/status/1971368846683697172)
+- [23:00 UTC - [https:// x.com/SaltyGoat17/status/19717 12763140681974](https://x.com/SaltyGoat17/status/...](115284404739652231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284404739652231
+  - [https:// x.com/SaltyGoat17/status/19717 12763140681974](https://x.com/SaltyGoat17/status/1971712763140681974)
+- [22:59 UTC - [https:// x.com/DOGE__news/status/197235 5625008218238](https://x.com/DOGE__news/status/19...](115284403706182975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284403706182975
+  - [https:// x.com/DOGE__news/status/197235 5625008218238](https://x.com/DOGE__news/status/1972355625008218238)
+- [22:59 UTC - [https:// x.com/DOGE__news/status/197132 3826253545705](https://x.com/DOGE__news/status/19...](115284402649874492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284402649874492
+  - [https:// x.com/DOGE__news/status/197132 3826253545705](https://x.com/DOGE__news/status/1971323826253545705)
+- [22:59 UTC - [https:// x.com/EricLDaugh/status/197160 9309651083638](https://x.com/EricLDaugh/status/19...](115284401155620655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284401155620655
+  - [https:// x.com/EricLDaugh/status/197160 9309651083638](https://x.com/EricLDaugh/status/1971609309651083638)
+- [22:59 UTC - [https:// x.com/MAGAARMY_/status/1972342 902895579640](https://x.com/MAGAARMY_/status/1972...](115284400225615305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284400225615305
+  - [https:// x.com/MAGAARMY_/status/1972342 902895579640](https://x.com/MAGAARMY_/status/1972342902895579640)
+- [22:58 UTC - [https:// x.com/KarluskaP/status/1972262 088056926648](https://x.com/KarluskaP/status/1972...](115284398839617514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284398839617514
+  - [https:// x.com/KarluskaP/status/1972262 088056926648](https://x.com/KarluskaP/status/1972262088056926648)
+- [22:57 UTC - [https:// x.com/lucataner/status/1972411 603267252523?s=10](https://x.com/lucataner/status...](115284394499504015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284394499504015
+  - [https:// x.com/lucataner/status/1972411 603267252523?s=10](https://x.com/lucataner/status/1972411603267252523?s=10)
+- [22:57 UTC - [https:// x.com/ericldaugh/status/197241 1491124211918?s=10](https://x.com/ericldaugh/stat...](115284393028725550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284393028725550
+  - [https:// x.com/ericldaugh/status/197241 1491124211918?s=10](https://x.com/ericldaugh/status/1972411491124211918?s=10)
+- [22:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115283821263580695 Border Patro...](115284390473558678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115284390473558678
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115283821263580695 Border Patrol will take no nonsense!

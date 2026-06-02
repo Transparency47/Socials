@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-10-05
+
+- Posts: 12
+
+- [23:30 UTC - Truth Social post 115324159336175641](115324159336175641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324159336175641
+  - _No text content captured._
+- [23:19 UTC - I knew Al Sharpton for many years, not that it matters, but he was a major “TRUMP” fan. He...](115324116995053528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324116995053528
+  - I knew Al Sharpton for many years, not that it matters, but he was a major “TRUMP” fan. He’d ask me to go to his fake Rallies all the time, because I brought BIG Crowds, and he cou...
+- [23:19 UTC - Before I became President, “OPEC” kept Oil prices high. It wasn’t right for them to do tha...](115324114715261770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324114715261770
+  - Before I became President, “OPEC” kept Oil prices high. It wasn’t right for them to do that but, in a different form, is being done again — This time by the Big Homebuilders of our...
+- [22:59 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) "The U.S. Navy always sta...](115324037845189585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324037845189585
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) "The U.S. Navy always stands for America. As Commander-in-Chief, I will always stand up you," says President [@ rea...
+- [22:59 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115324037074537339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324037074537339
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : We are honored to be joined today by serv...
+- [22:58 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) USA! USA! USA! 🇺🇸](115324034915043246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115324034915043246
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) USA! USA! USA! 🇺🇸
+- [21:56 UTC - There have been very positive discussions with Hamas, and Countries from all over the Worl...](115323790604734426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115323790604734426
+  - There have been very positive discussions with Hamas, and Countries from all over the World (Arab, Muslim, and everyone else) this weekend, to release the Hostages, end the War in...
+- [15:46 UTC - Why is FoxNews and Peter Doocy putting on Democrat Senator Mark Kelly to talk about, total...](115322333732211990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115322333732211990
+  - Why is FoxNews and Peter Doocy putting on Democrat Senator Mark Kelly to talk about, totally unabated or challenged, Healthcare? The FAKE SPIN is so bad for Republicans that it is...
+- [15:43 UTC - It has just come out that the Radical Left Lunatic, Jay Jones, who is running against Jaso...](115322323424244142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115322323424244142
+  - It has just come out that the Radical Left Lunatic, Jay Jones, who is running against Jason Miyares, the GREAT Attorney General in Virginia, made SICK and DEMENTED jokes, if they w...
+- [15:07 UTC - [https://www. nytimes.com/2025/10/03/us/poli tics/trump-israel-qatar-gaza.html](https://ww...](115322180369924469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115322180369924469
+  - [https://www. nytimes.com/2025/10/03/us/poli tics/trump-israel-qatar-gaza.html](https://www.nytimes.com/2025/10/03/us/politics/trump-israel-qatar-gaza.html)
+- [14:19 UTC - It will be a big day with the Navy. Leaving now. The United States has the greatest milita...](115321994845181490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115321994845181490
+  - It will be a big day with the Navy. Leaving now. The United States has the greatest military, by far, in the World. This will be a show of Naval aptitude and strength. ENJOY WATCHI...
+- [01:36 UTC - [https:// justthenews.com/politics-polic y/all-things-trump/trump-presses-google-restore-h...](115318992753838991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115318992753838991
+  - [https:// justthenews.com/politics-polic y/all-things-trump/trump-presses-google-restore-hispanic-network-univision-its](https://justthenews.com/politics-policy/all-things-trump/tr...
