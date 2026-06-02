@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-01-24
+
+- Posts: 14
+
+- [23:02 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](115952566563578692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115952566563578692
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [22:59 UTC - Pritzker’s “Red-State Crime” Claim Is a Red Herring: He Should Beg President Trump To Send...](115952554951545656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115952554951545656
+  - Pritzker’s “Red-State Crime” Claim Is a Red Herring: He Should Beg President Trump To Send in National Guard: [https:// peternavarro.substack.com/p/pr itzkers-red-state-crime-claim...
+- [21:42 UTC - I have just approved Emergency Declarations for Tennessee, Georgia, North Carolina, Maryla...](115952253411267214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115952253411267214
+  - I have just approved Emergency Declarations for Tennessee, Georgia, North Carolina, Maryland, Arkansas, Kentucky, Louisiana, Mississippi, Indiana, and West Virginia. We are working...
+- [21:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115952240781270662](115952243485975705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115952243485975705
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115952240781270662
+- [21:39 UTC - Truth Social post 115952240781270662](115952240781270662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115952240781270662
+  - _No text content captured._
+- [20:00 UTC - It is actually possible that the total amount of money stolen, over the years, by Corrupt ...](115951852007320342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951852007320342
+  - It is actually possible that the total amount of money stolen, over the years, by Corrupt Politicians and Fraudsters, from Minnesota, will exceed $100 Billion Dollars. In any event...
+- [19:12 UTC - AMONG OTHER THINGS, THIS IS A “COVER UP” FOR THE BILLIONS OF DOLLARS THAT HAVE BEEN STOLEN...](115951663504789746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951663504789746
+  - AMONG OTHER THINGS, THIS IS A “COVER UP” FOR THE BILLIONS OF DOLLARS THAT HAVE BEEN STOLEN FROM THE ONCE GREAT STATE (BUT SOON TO BE GREAT AGAIN!) OF MINNESOTA! PRESIDENT DONALD J....
+- [19:06 UTC - This is the gunman’s gun, loaded (with two additional full magazines!), and ready to go – ...](115951636521315703/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951636521315703
+  - This is the gunman’s gun, loaded (with two additional full magazines!), and ready to go – What is that all about? Where are the local Police? Why weren’t they allowed to protect IC...
+- [16:49 UTC - The GREAT and very BRAVE soldiers of the United Kingdom will always be with the United Sta...](115951100180444245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951100180444245
+  - The GREAT and very BRAVE soldiers of the United Kingdom will always be with the United States of America! In Afghanistan, 457 died, many were badly injured, and they were among the...
+- [16:36 UTC - The last thing the World needs is to have China take over Canada. It’s NOT going to happen...](115951048952031044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951048952031044
+  - The last thing the World needs is to have China take over Canada. It’s NOT going to happen, or even come close to happening! Thank you for your attention to this matter. President...
+- [16:24 UTC - Truth Social post 115951002275904202](115951002275904202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115951002275904202
+  - _No text content captured._
+- [15:10 UTC - I have approved Emergency Declarations for the Historic Winter Storms headed to the Great ...](115950708684387583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115950708684387583
+  - I have approved Emergency Declarations for the Historic Winter Storms headed to the Great State of South Carolina and the Commonwealth of Virginia. With the help of FEMA and our St...
+- [13:57 UTC - If Governor Carney thinks he is going to make Canada a “Drop Off Port” for China to send g...](115950424403894234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115950424403894234
+  - If Governor Carney thinks he is going to make Canada a “Drop Off Port” for China to send goods and products into the United States, he is sorely mistaken. China will eat Canada ali...
+- [00:31 UTC - Foreign direct investment in China slides 9.5% in 2025: [https://www. reuters.com/world/as...](115947254817109624/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947254817109624
+  - Foreign direct investment in China slides 9.5% in 2025: [https://www. reuters.com/world/asia-pacific /foreign-direct-investment-china-slides-95-2025-2026-01-23/](https://www.reuter...

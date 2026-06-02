@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-01-26
+
+- Posts: 15
+
+- [22:17 UTC - I just had a very good telephone conversation with Mayor Jacob Frey, of Minneapolis. Lots ...](115963713974102712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115963713974102712
+  - I just had a very good telephone conversation with Mayor Jacob Frey, of Minneapolis. Lots of progress is being made! Tom Homan will be meeting with him tomorrow in order to continu...
+- [22:08 UTC - I am pleased to report that Venezuela is releasing its Political Prisoners at a rapid rate...](115963679718287297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115963679718287297
+  - I am pleased to report that Venezuela is releasing its Political Prisoners at a rapid rate, which rate will be increasing over the coming short period of time. I’d like to thank th...
+- [21:57 UTC - Our Trade Deals are very important to America. In each of these Deals, we have acted swift...](115963633972056786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115963633972056786
+  - Our Trade Deals are very important to America. In each of these Deals, we have acted swiftly to reduce our TARIFFS in line with the Transaction agreed to. We, of course, expect our...
+- [20:21 UTC - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican run...](115963259137242895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115963259137242895
+  - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican running for Indiana's 41st State Senate District (which I won by 33 points!), against RINO in...
+- [20:16 UTC - The incredible people of Kentucky’s 4th Congressional District, who want desperately to ge...](115963236796090298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115963236796090298
+  - The incredible people of Kentucky’s 4th Congressional District, who want desperately to get rid of Thomas Massie, the Worst “Republican” Congressman we have had in many years, gave...
+- [18:40 UTC - People don’t realize that The Trump Kennedy Center suffered massive deficits for many year...](115962860545833203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115962860545833203
+  - People don’t realize that The Trump Kennedy Center suffered massive deficits for many years and, like everything else, I merely came in to save it and, if possible, make it far bet...
+- [17:12 UTC - New York City in a slightly different time. Never forget!](115962513001116366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115962513001116366
+  - New York City in a slightly different time. Never forget!
+- [17:01 UTC - MELANIA, the Movie, is a MUST WATCH. Get your tickets today — Selling out, FAST! Photo: Re...](115962472454059914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115962472454059914
+  - MELANIA, the Movie, is a MUST WATCH. Get your tickets today — Selling out, FAST! Photo: Regine Mahaux [https://www. amazon.com/salp/melaniamovie?h hf](https://www.amazon.com/salp/m...
+- [16:37 UTC - Governor Tim Walz called me with the request to work together with respect to Minnesota. I...](115962378381121858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115962378381121858
+  - Governor Tim Walz called me with the request to work together with respect to Minnesota. It was a very good call, and we, actually, seemed to be on a similar wavelength. I told Gov...
+- [15:58 UTC - Just recovered the last Hostage body in GAZA. Thus, got back ALL 20 of the living Hostages...](115962223670668620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115962223670668620
+  - Just recovered the last Hostage body in GAZA. Thus, got back ALL 20 of the living Hostages, and ALL of the Dead! AMAZING JOB! Most thought of it as an impossible thing to do. Congr...
+- [14:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am sending Tom Homan to...](115961945286485523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115961945286485523
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am sending Tom Homan to Minnesota tonight. He has not been involved in that area, but knows and likes many of the...
+- [14:47 UTC - Fake and Fraudulent Polling should be, virtually, a criminal offense. As an example, all o...](115961944680232406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115961944680232406
+  - Fake and Fraudulent Polling should be, virtually, a criminal offense. As an example, all of the Anti Trump Media that covered me during the 2020 Election showed Polls that were kno...
+- [13:31 UTC - I am sending Tom Homan to Minnesota tonight. He has not been involved in that area, but kn...](115961647505369753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115961647505369753
+  - I am sending Tom Homan to Minnesota tonight. He has not been involved in that area, but knows and likes many of the people there. Tom is tough but fair, and will report directly to...
+- [04:51 UTC - Appeals court finds evidence to charge Don Lemon over church protest, but won’t force arre...](115959599290063796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115959599290063796
+  - Appeals court finds evidence to charge Don Lemon over church protest, but won’t force arrest warrant: [https:// justthenews.com/government/cou rts-law/appeals-court-finds-evidence-...
+- [02:10 UTC - I can’t watch the new NFL Kickoff. Like many others, I just turn my head. Who has the righ...](115958967310904799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115958967310904799
+  - I can’t watch the new NFL Kickoff. Like many others, I just turn my head. Who has the right to make such a change? So disparaging to the game! The original was Big Time, Strong, Gl...

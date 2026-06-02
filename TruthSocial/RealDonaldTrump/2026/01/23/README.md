@@ -1,0 +1,226 @@
+# TruthSocial / RealDonaldTrump / 2026-01-23
+
+- Posts: 74
+
+- [23:48 UTC - I want to thank President Aliyev of Azerbaijan, and Prime Minister Pashinyan of Armenia fo...](115947083395862222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947083395862222
+  - I want to thank President Aliyev of Azerbaijan, and Prime Minister Pashinyan of Armenia for upholding the Peace Agreement we signed last August. This was a nasty War, 1 of 8 that I...
+- [23:38 UTC - I have been briefed on the Record Cold Wave and Historic Winter Storm that will be hitting...](115947045496805234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947045496805234
+  - I have been briefed on the Record Cold Wave and Historic Winter Storm that will be hitting much of the United States this weekend. The Trump Administration is coordinating with Sta...
+- [23:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Mike Johnson ...](115947007592537749/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947007592537749
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Mike Johnson is a Great Man, an outstanding Representative for the wonderful people of Louisiana’s 4th...
+- [23:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Steve Scalise...](115947007423200004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947007423200004
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Steve Scalise is an America First Patriot and a terrific Representative of Louisiana’s 1st Congressiona...
+- [23:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Tom Emmer is ...](115947007268912496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947007268912496
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Tom Emmer is an America First Patriot who is a fantastic Champion for Minnesota’s 6th Congressional Dis...
+- [23:28 UTC - Congresswoman Michelle Fischbach is a terrific Representative for the incredible people of...](115947006428092415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115947006428092415
+  - Congresswoman Michelle Fischbach is a terrific Representative for the incredible people of Minnesota’s 7th Congressional District! A Proven Leader, Michelle served as the Highly Re...
+- [23:19 UTC - General Motors to move Buick Envision SUV production from China to the United States: [htt...](115946969970832896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946969970832896
+  - General Motors to move Buick Envision SUV production from China to the United States: [https://www. cbsnews.com/news/buick-envisio n-general-motors-propduction-us-china/](https://w...
+- [23:19 UTC - U.S., U.K. Strike Deal on Higher Drug Prices: Move marks victory for Trump administration ...](115946969213492152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946969213492152
+  - U.S., U.K. Strike Deal on Higher Drug Prices: Move marks victory for Trump administration campaign to get other countries to pay more for drugs: [https://www. wsj.com/health/pharma...
+- [23:15 UTC - The Great State of Utah, a place I love and WON BIG in 2016, 2020, and 2024, sent four ter...](115946953654029014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946953654029014
+  - The Great State of Utah, a place I love and WON BIG in 2016, 2020, and 2024, sent four terrific Republicans to Congress, and we want to keep it that way! A very important effort is...
+- [22:59 UTC - Congressman Mike Johnson is a Great Man, an outstanding Representative for the wonderful p...](115946890601825166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946890601825166
+  - Congressman Mike Johnson is a Great Man, an outstanding Representative for the wonderful people of Louisiana’s 4th Congressional District, and a strong and fearless Speaker of the...
+- [22:58 UTC - Congressman Steve Scalise is an America First Patriot and a terrific Representative of Lou...](115946888788026892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946888788026892
+  - Congressman Steve Scalise is an America First Patriot and a terrific Representative of Louisiana’s 1st Congressional District! He is strong and brave, having almost lost his life t...
+- [22:57 UTC - Congressman Tom Emmer is an America First Patriot who is a fantastic Champion for Minnesot...](115946884254924862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946884254924862
+  - Congressman Tom Emmer is an America First Patriot who is a fantastic Champion for Minnesota’s 6th Congressional District! As the Majority Whip of the U.S. House of Representatives,...
+- [22:57 UTC - Congressman Jason Smith is an America First Patriot, who is doing a fantastic job represen...](115946882998616328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946882998616328
+  - Congressman Jason Smith is an America First Patriot, who is doing a fantastic job representing Missouri’s 8th Congressional District! As the Chairman of the POWERFUL House Ways & M...
+- [22:56 UTC - Congressman Mike Flood is doing a fantastic job representing Nebraska’s 1st Congressional ...](115946881557161946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946881557161946
+  - Congressman Mike Flood is doing a fantastic job representing Nebraska’s 1st Congressional District! A very successful Businessman, Civic Leader, and Highly Respected Speaker of the...
+- [22:56 UTC - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job repr...](115946879417276798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946879417276798
+  - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job representing New York’s 23rd Congressional District! Nick served as the powerful Chairman of t...
+- [22:55 UTC - Congressman French Hill is doing an incredible job representing the amazing people of Arka...](115946877623841494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946877623841494
+  - Congressman French Hill is doing an incredible job representing the amazing people of Arkansas’ 2nd Congressional District! As the Chairman of the House Financial Services Committe...
+- [22:55 UTC - Congressman Brett Guthrie is a Tremendous Champion for Kentucky’s 2nd Congressional Distri...](115946875572351977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946875572351977
+  - Congressman Brett Guthrie is a Tremendous Champion for Kentucky’s 2nd Congressional District! As the Chairman of the House Energy and Commerce Committee, Brett is working tirelessl...
+- [22:54 UTC - Congressman Brian Jack, who has been with us from the very beginning, is a MAGA Warrior an...](115946872610760164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946872610760164
+  - Congressman Brian Jack, who has been with us from the very beginning, is a MAGA Warrior and Tremendous Champion of Georgia’s 3rd Congressional District! In my First Term, Brian str...
+- [22:54 UTC - Congressman Jay Obernolte is doing a terrific job representing the wonderful people of Cal...](115946871034219313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946871034219313
+  - Congressman Jay Obernolte is doing a terrific job representing the wonderful people of California’s 23rd Congressional District! A Successful Entrepreneur, Civic Leader, and Highly...
+- [22:53 UTC - Congressman Rich McCormick is an incredibly Strong Advocate for the Great People of Georgi...](115946869365270481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946869365270481
+  - Congressman Rich McCormick is an incredibly Strong Advocate for the Great People of Georgia’s 7th Congressional District! A distinguished Emergency Room Doctor and Marine Helicopte...
+- [22:53 UTC - Congressman Austin Scott is doing a truly fantastic job representing the wonderful people ...](115946867281669769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946867281669769
+  - Congressman Austin Scott is doing a truly fantastic job representing the wonderful people of Georgia’s 8th Congressional District! As Vice Chairman of the House Agriculture Committ...
+- [22:52 UTC - Congressman Rick Allen is an incredible Representative of Georgia’s 12th Congressional Dis...](115946865805351323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946865805351323
+  - Congressman Rick Allen is an incredible Representative of Georgia’s 12th Congressional District! As a Member of the POWERFUL House Energy and Commerce Committee, Rick is working ti...
+- [22:52 UTC - Congressman Jim Baird is a Tremendous Champion for the Great People of Indiana’s 4th Congr...](115946864062168710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946864062168710
+  - Congressman Jim Baird is a Tremendous Champion for the Great People of Indiana’s 4th Congressional District! A recipient of the Bronze Star and Purple Heart, Jim bravely served in...
+- [22:51 UTC - Congresswoman Victoria Spartz is doing a fantastic job representing Indiana’s 5th Congress...](115946862484550959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946862484550959
+  - Congresswoman Victoria Spartz is doing a fantastic job representing Indiana’s 5th Congressional District! A Successful Businesswoman, Civic Leader, and Highly Respected State Senat...
+- [22:51 UTC - Congressman Jefferson Shreve is an incredible Fighter for the wonderful people of Indiana’...](115946860655104763/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946860655104763
+  - Congressman Jefferson Shreve is an incredible Fighter for the wonderful people of Indiana’s 6th Congressional District! A Successful Businessman, Jefferson knows the America First...
+- [22:50 UTC - Congresswoman Erin Houchin is a Tireless Advocate for the Great People of Indiana’s 9th Co...](115946858485453938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946858485453938
+  - Congresswoman Erin Houchin is a Tireless Advocate for the Great People of Indiana’s 9th Congressional District! As the Secretary of the House Republican Conference, Erin is doing a...
+- [22:50 UTC - Congressman Clay Higgins is doing a truly fantastic job representing the incredible people...](115946856565328563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946856565328563
+  - Congressman Clay Higgins is doing a truly fantastic job representing the incredible people of Louisiana's 3rd Congressional District! A tough Law Enforcement Officer, and brave U.S...
+- [22:49 UTC - Congressman Tom McClintock is doing a fantastic job representing California’s 5th Congress...](115946854162846684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946854162846684
+  - Congressman Tom McClintock is doing a fantastic job representing California’s 5th Congressional District! As an Outspoken Member of the House Budget Committee, Tom knows the Americ...
+- [22:39 UTC - Congressman Darrell Issa is an America First Patriot and Highly Effective Representative f...](115946814032888163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946814032888163
+  - Congressman Darrell Issa is an America First Patriot and Highly Effective Representative for the incredible people of California’s 48th Congressional District! A Brave U.S. Army Ve...
+- [21:56 UTC - Congresswoman Anna Paulina Luna is an America First Patriot and Tremendous Champion for th...](115946646049401300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946646049401300
+  - Congresswoman Anna Paulina Luna is an America First Patriot and Tremendous Champion for the wonderful people of Florida's 13th Congressional District! A true MAGA Warrior, Anna is...
+- [20:43 UTC - One month before a monster took him away from us, the Great Charlie Kirk finished his fina...](115946357948042788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946357948042788
+  - One month before a monster took him away from us, the Great Charlie Kirk finished his final Book, “Stop, in the Name of God: Why Honoring the Sabbath Will Transform Your Life.” As...
+- [20:21 UTC - Truth Social post 115946269674831030](115946269674831030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946269674831030
+  - _No text content captured._
+- [20:17 UTC - Canada is against The Golden Dome being built over Greenland, even though The Golden Dome ...](115946254061477406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115946254061477406
+  - Canada is against The Golden Dome being built over Greenland, even though The Golden Dome would protect Canada. Instead, they voted in favor of doing business with China, who will...
+- [18:31 UTC - COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look a...](115945837215795716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115945837215795716
+  - COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look at one of the most important events of our time. MELANIA: TWENTY DAYS TO HISTORY: [https://...
+- [17:00 UTC - Truth Social post 115945478685595236](115945478685595236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115945478685595236
+  - _No text content captured._
+- [16:59 UTC - Remember everybody, it is Chuck Schumer, the under siege Senator from New York, who is hol...](115945477247439138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115945477247439138
+  - Remember everybody, it is Chuck Schumer, the under siege Senator from New York, who is holding up the Gateway Project!
+- [16:42 UTC - Truth Social post 115945410631587384](115945410631587384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115945410631587384
+  - _No text content captured._
+- [12:19 UTC - Record Cold Wave expected to hit 40 States. Rarely seen anything like it before. Could the...](115944376084632033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115944376084632033
+  - Record Cold Wave expected to hit 40 States. Rarely seen anything like it before. Could the Environmental Insurrectionists please explain — WHATEVER HAPPENED TO GLOBAL WARMING???
+- [12:09 UTC - What a great trip to Davos it was. So many things accomplished, including the framework of...](115944336667645170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115944336667645170
+  - What a great trip to Davos it was. So many things accomplished, including the framework of a deal with NATO on Greenland. Also, the BOARD OF PEACE. WOW!!! MAKE AMERICA GREAT AGAIN!...
+- [12:00 UTC - Truth Social post 115944302306375075](115944302306375075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115944302306375075
+  - _No text content captured._
+- [12:00 UTC - Truth Social post 115944301622541391](115944301622541391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115944301622541391
+  - _No text content captured._
+- [12:00 UTC - Truth Social post 115944300641421762](115944300641421762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115944300641421762
+  - _No text content captured._
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am so happy to have hel...](115943221462098784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943221462098784
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am so happy to have helped in saving TikTok! It will now be owned by a group of Great American Patriots and Inves...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Dear Prime Minister Carne...](115943221220395905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943221220395905
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Dear Prime Minister Carney: Please let this Letter serve to represent that the Board of Peace is withdrawing its in...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Maybe we should have put ...](115943220906993463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943220906993463
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Maybe we should have put NATO to the test: Invoked Article 5, and forced NATO to come here and protect our Southern...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Gavin Newscum, as a “Lame...](115943220561708200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943220561708200
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Gavin Newscum, as a “Lame Duck” Governor of a Failing State, should not be at Davos running around screaming for th...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Mortgage Rates just hit a...](115943220222528458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943220222528458
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Mortgage Rates just hit a Three Year Low despite Jerome “Too Late” Powell, and his never ending quest to keep Inter...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected Senator,...](115943219966182884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943219966182884
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected Senator, “Coach” Tommy Tuberville, is running for Governor of Alabama, a place I love and WON BIG,...
+- [07:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The people who brought th...](115943219075552652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115943219075552652
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The people who brought the Tariff Litigation against our Country, now in the United States Supreme Court, are stron...
+- [06:28 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942994713320602](115942996348687671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942996348687671
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942994713320602
+- [06:28 UTC - Truth Social post 115942994713320602](115942994713320602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942994713320602
+  - _No text content captured._
+- [06:27 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942990576577515](115942993154534940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942993154534940
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942990576577515
+- [06:27 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942988655066525](115942990576577515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942990576577515
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942988655066525
+- [06:26 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942980692327986](115942988655066525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942988655066525
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942980692327986
+- [06:24 UTC - Truth Social post 115942980692327986](115942980692327986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942980692327986
+  - _No text content captured._
+- [06:23 UTC - Trump Launches Promised ‘Board of Peace’ at Davos: [https://www. breitbart.com/europe/2026...](115942977423885586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942977423885586
+  - Trump Launches Promised ‘Board of Peace’ at Davos: [https://www. breitbart.com/europe/2026/01/2 2/trump-launches-promised-board-of-peace-at-davos/](https://www.breitbart.com/europe...
+- [06:23 UTC - Trump, world leaders sign Gaza Board of Peace charter at World Economic Forum: [https:// j...](115942975785526042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942975785526042
+  - Trump, world leaders sign Gaza Board of Peace charter at World Economic Forum: [https:// justthenews.com/government/dip lomacy/trump-world-leaders-sign-gaza-board-peace-charter-wor...
+- [06:22 UTC - The Trump obsession: [https:// thehill.com/opinion/white-hous e/5625799-the-trump-obsessio...](115942972476214414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942972476214414
+  - The Trump obsession: [https:// thehill.com/opinion/white-hous e/5625799-the-trump-obsession/](https://thehill.com/opinion/white-house/5625799-the-trump-obsession/)
+- [06:22 UTC - Trump Team Is America’s Greatest Since the Soviet Union’s Collapse: [https:// amac.us/news...](115942972143247082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942972143247082
+  - Trump Team Is America’s Greatest Since the Soviet Union’s Collapse: [https:// amac.us/newsline/politics/trum p-team-is-americas-greatest-since-the-soviet-unions-collapse/](https://...
+- [06:22 UTC - Exclusive: Transcripts Show Trump Spoke for over 13,400 Minutes in 2025, Talked to Press a...](115942971700172224/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942971700172224
+  - Exclusive: Transcripts Show Trump Spoke for over 13,400 Minutes in 2025, Talked to Press at 74 Percent of Events: [https://www. breitbart.com/politics/2026/01 /06/exclusive-transcr...
+- [06:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942952756807016](115942963426105066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942963426105066
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942952756807016
+- [06:17 UTC - Truth Social post 115942952756807016](115942952756807016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942952756807016
+  - _No text content captured._
+- [06:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942941878271585](115942944327466543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942944327466543
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942941878271585
+- [06:14 UTC - Truth Social post 115942941878271585](115942941878271585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942941878271585
+  - _No text content captured._
+- [06:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942939505867893](115942940822499952/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942940822499952
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942939505867893
+- [06:14 UTC - Truth Social post 115942939505867893](115942939505867893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942939505867893
+  - _No text content captured._
+- [06:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942935122938870](115942936639903524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942936639903524
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942935122938870
+- [06:13 UTC - Truth Social post 115942935122938870](115942935122938870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942935122938870
+  - _No text content captured._
+- [06:12 UTC - [https:// x.com/thescif/status/201377502 3174041699?s=10](https://x.com/thescif/status/201...](115942931942657507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942931942657507
+  - [https:// x.com/thescif/status/201377502 3174041699?s=10](https://x.com/thescif/status/2013775023174041699?s=10)
+- [06:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942928642310793](115942929741204619/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942929741204619
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942928642310793
+- [06:11 UTC - Truth Social post 115942928642310793](115942928642310793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942928642310793
+  - _No text content captured._
+- [06:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942926015949034](115942927259811424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942927259811424
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942926015949034
+- [06:10 UTC - Truth Social post 115942926015949034](115942926015949034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942926015949034
+  - _No text content captured._
+- [06:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942923974394234](115942925048968152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942925048968152
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942923974394234
