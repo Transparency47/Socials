@@ -1710,7 +1710,11 @@ def x_archive_record_from_guest_tweet(
     )
 
 
-def scrape_x_guest(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+def iter_x_guest_pages(
+    session: requests.Session,
+    account: str,
+    args: argparse.Namespace,
+) -> Iterable[tuple[list[ArchiveRecord], str | None, str | None]]:
     username = strip_handle(account)
     headers, operations, raw_source = x_web_graphql_headers(session, account)
     profile_payload = x_graphql_get(
@@ -1727,7 +1731,7 @@ def scrape_x_guest(session: requests.Session, account: str, args: argparse.Names
     screen_name = (profile.get("legacy") or {}).get("screen_name") or username
     display_name = (profile.get("core") or {}).get("name") or (profile.get("legacy") or {}).get("name") or screen_name
 
-    records: list[ArchiveRecord] = []
+    yielded = 0
     seen_tweet_ids: set[str] = set()
     cursor_key = x_backfill_cursor_key(account, args)
     cursor: str | None = None
@@ -1741,7 +1745,7 @@ def scrape_x_guest(session: requests.Session, account: str, args: argparse.Names
     if page_delay is None:
         page_delay = 2.0 if since else REQUEST_DELAY_SECONDS
 
-    while len(records) < args.max_items:
+    while yielded < args.max_items:
         pages += 1
         if args.max_pages is not None and pages > args.max_pages:
             break
@@ -1755,11 +1759,12 @@ def scrape_x_guest(session: requests.Session, account: str, args: argparse.Names
                 x_user_tweets_variables(user_id, page_count, cursor),
             )
         except RateLimitError as exc:
-            if records:
-                print(f"WARNING X/{account}: {exc}; returning {len(records)} fetched records.", file=sys.stderr, flush=True)
+            if yielded:
+                print(f"WARNING X/{account}: {exc}; returning {yielded} fetched records.", file=sys.stderr, flush=True)
                 break
             raise
         tweets = guest_tweets_from_timeline(timeline_payload, include_replies=args.include_replies, max_items=page_count)
+        page_records: list[ArchiveRecord] = []
         reached_since = False
         for tweet in tweets:
             tweet_id = str(tweet.get("rest_id") or "")
@@ -1772,25 +1777,40 @@ def scrape_x_guest(session: requests.Session, account: str, args: argparse.Names
                 continue
             record = x_archive_record_from_guest_tweet(tweet, account, profile, user_id, screen_name, display_name, raw_source)
             if in_date_window(record.published, args):
-                records.append(record)
-                if len(records) >= args.max_items:
+                page_records.append(record)
+                yielded += 1
+                print(
+                    f"X/{account}: queued {record.post_id}"
+                    f" ({record.published.date() if record.published else 'unknown date'})",
+                    flush=True,
+                )
+                if yielded >= args.max_items:
                     break
 
         if reached_since and cursor_key:
-            getattr(args, "x_backfill_cursor_updates", {})[cursor_key] = None
-        if len(records) >= args.max_items or reached_since:
+            yield page_records, cursor_key, None
             break
 
         next_cursor = guest_timeline_bottom_cursor(timeline_payload)
         if not next_cursor or next_cursor in cursors_seen:
-            if cursor_key:
-                getattr(args, "x_backfill_cursor_updates", {})[cursor_key] = None
+            yield page_records, cursor_key, None
+            break
+        yield page_records, cursor_key, next_cursor
+        if yielded >= args.max_items:
             break
         if cursor_key:
             getattr(args, "x_backfill_cursor_updates", {})[cursor_key] = next_cursor
         cursors_seen.add(next_cursor)
         cursor = next_cursor
         time.sleep(max(float(page_delay), 0.0))
+
+
+def scrape_x_guest(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+    records: list[ArchiveRecord] = []
+    for page_records, cursor_key, cursor_update in iter_x_guest_pages(session, account, args):
+        records.extend(page_records)
+        if cursor_key:
+            getattr(args, "x_backfill_cursor_updates", {})[cursor_key] = cursor_update
     return records
 
 
@@ -1800,6 +1820,45 @@ def scrape_x(session: requests.Session, account: str, args: argparse.Namespace) 
     if token:
         return scrape_x_official(account, args, token)
     return scrape_x_guest(session, account, args)
+
+
+def run_x_guest_backfill(
+    session: requests.Session,
+    account: str,
+    args: argparse.Namespace,
+    state: dict[str, Any],
+) -> tuple[int, int]:
+    archived = 0
+    seen = 0
+    install_x_cookies(session)
+    for page_records, cursor_key, cursor_update in iter_x_guest_pages(session, account, args):
+        for record in page_records:
+            key = state_key(record)
+            already_seen = key in state["seen_posts"]
+            if already_seen and not args.force:
+                seen += 1
+                continue
+            changed = archive_record(session, record, state, args)
+            if changed:
+                archived += 1
+                print(f"Archived: {record.url}", flush=True)
+                day_dir = output_dir_for(record).parent
+                if write_if_changed(day_dir / "README.md", day_readme_markdown(day_dir)):
+                    print(f"Wrote {day_dir.relative_to(ROOT_DIR)}/README.md", flush=True)
+            else:
+                seen += 1
+            save_state(state)
+            refresh_listing()
+            time.sleep(REQUEST_DELAY_SECONDS)
+
+        if cursor_key:
+            if cursor_update:
+                state["x_backfill_cursors"][cursor_key] = cursor_update
+            else:
+                state["x_backfill_cursors"].pop(cursor_key, None)
+            save_state(state)
+    refresh_listing()
+    return archived, seen
 
 
 def compact_yt_dlp_info(info: dict[str, Any]) -> dict[str, Any]:
@@ -2444,6 +2503,22 @@ def run(args: argparse.Namespace) -> int:
         if platform == "truthsocial" and args.backfill and getattr(args, "since_dt", None):
             try:
                 account_archived, account_seen = run_truth_social_backfill(session, account, args, state)
+                archived += account_archived
+                seen += account_seen
+            except RateLimitError as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
+            except Exception as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {type(exc).__name__}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
+            save_state(state)
+            continue
+
+        if platform == "x" and args.backfill and getattr(args, "since_dt", None) and not x_bearer_token():
+            try:
+                account_archived, account_seen = run_x_guest_backfill(session, account, args, state)
                 archived += account_archived
                 seen += account_seen
             except RateLimitError as exc:

@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 2056827052851105947 -->
 <!-- date_published: 2026-05-19T19:59:18+00:00 -->
-<!-- date_accessed: 2026-06-01T20:00:58.398778+00:00 -->
+<!-- date_accessed: 2026-06-02T20:30:50.164176+00:00 -->
 
 # Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him...
 

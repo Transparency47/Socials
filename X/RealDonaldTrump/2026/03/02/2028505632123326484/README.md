@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2028505632123326484
 - Title: https://t.co/uAxTGrJisv
 - Date published: 2026-03-02T16:20:05+00:00
-- Date accessed: 2026-06-01T20:00:58.398814+00:00
+- Date accessed: 2026-06-02T20:30:50.164272+00:00
 - Content kind: post
 - Language: zxx
 
 ## Metrics
 
-- bookmarks: 53498
-- favorites: 604197
-- quotes: 7312
-- replies: 160132
-- retweets: 77851
-- views: 136343025
+- bookmarks: 53445
+- favorites: 603675
+- quotes: 7324
+- replies: 160242
+- retweets: 77647
+- views: 136463254
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111641276,
+      "followers_count": 111594216,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
-      "listed_count": 130498,
+      "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111641276,
+      "normal_followers_count": 111594216,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111641275,
+            "followers_count": 111594218,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
-            "listed_count": 130498,
+            "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111641275,
+            "normal_followers_count": 111594218,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -289,7 +289,7 @@
     },
     "is_translatable": false,
     "legacy": {
-      "bookmark_count": 53498,
+      "bookmark_count": 53445,
       "bookmarked": false,
       "conversation_id_str": "2028505632123326484",
       "created_at": "Mon Mar 02 16:20:05 +0000 2026",
@@ -483,7 +483,7 @@
           }
         ]
       },
-      "favorite_count": 604197,
+      "favorite_count": 603675,
       "favorited": false,
       "full_text": "https://t.co/uAxTGrJisv",
       "id_str": "2028505632123326484",
@@ -491,9 +491,9 @@
       "lang": "zxx",
       "possibly_sensitive": false,
       "possibly_sensitive_editable": true,
-      "quote_count": 7312,
-      "reply_count": 160132,
-      "retweet_count": 77851,
+      "quote_count": 7324,
+      "reply_count": 160242,
+      "retweet_count": 77647,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -507,7 +507,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "136343025",
+      "count": "136463254",
       "state": "EnabledWithCount"
     }
   }

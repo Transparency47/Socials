@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2057968277062582378
 - Title: https://t.co/LU644jFVH2
 - Date published: 2026-05-22T23:34:07+00:00
-- Date accessed: 2026-06-01T19:47:45.538312+00:00
+- Date accessed: 2026-06-02T20:30:50.164015+00:00
 - Content kind: post
 - Language: zxx
 
 ## Metrics
 
-- bookmarks: 64093
-- favorites: 903554
-- quotes: 14972
-- replies: 61748
-- retweets: 96820
-- views: 96325107
+- bookmarks: 63956
+- favorites: 902811
+- quotes: 15002
+- replies: 62385
+- retweets: 96670
+- views: 96541106
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111641161,
+      "followers_count": 111594216,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
-      "listed_count": 130498,
+      "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111641161,
+      "normal_followers_count": 111594216,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -104,6 +104,7 @@
       "translator_type": "regular",
       "url": "https://t.co/mjKdTvQzae",
       "utc_offset": 0,
+      "want_retweets": false,
       "withheld_description": "",
       "withheld_scope": ""
     },
@@ -115,6 +116,7 @@
       "can_media_tag": false
     },
     "parody_commentary_fan_label": "None",
+    "premium_gifting_eligible": false,
     "privacy": {
       "protected": false
     },
@@ -135,17 +137,7 @@
     "super_follow_eligible": false,
     "super_followed_by": false,
     "super_following": false,
-    "tipjar_settings": {
-      "bandcamp_handle": "",
-      "bitcoin_handle": "",
-      "cash_app_handle": "",
-      "ethereum_handle": "",
-      "gofundme_handle": "",
-      "is_enabled": false,
-      "patreon_handle": "",
-      "pay_pal_handle": "",
-      "venmo_handle": ""
-    },
+    "tipjar_settings": {},
     "user_seed_tweet_count": 0,
     "verification": {
       "verified": false,
@@ -172,7 +164,7 @@
     },
     "verified_phone_status": false
   },
-  "source": "x_guest_graphql",
+  "source": "x_authenticated_graphql",
   "tweet": {
     "__typename": "Tweet",
     "cashtag_attachments": [],
@@ -220,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111641161,
+            "followers_count": 111594218,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
-            "listed_count": 130498,
+            "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111641161,
+            "normal_followers_count": 111594218,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -237,6 +229,7 @@
             "translator_type": "regular",
             "url": "https://t.co/mjKdTvQzae",
             "utc_offset": 0,
+            "want_retweets": false,
             "withheld_description": "",
             "withheld_scope": ""
           },
@@ -266,17 +259,7 @@
           "super_follow_eligible": false,
           "super_followed_by": false,
           "super_following": false,
-          "tipjar_settings": {
-            "bandcamp_handle": "",
-            "bitcoin_handle": "",
-            "cash_app_handle": "",
-            "ethereum_handle": "",
-            "gofundme_handle": "",
-            "is_enabled": false,
-            "patreon_handle": "",
-            "pay_pal_handle": "",
-            "venmo_handle": ""
-          },
+          "tipjar_settings": {},
           "verification": {
             "verified": false,
             "verified_type": "Government"
@@ -286,6 +269,9 @@
       }
     },
     "disallowed_reply_controls": [],
+    "downvote_perspective": {
+      "is_downvoted": false
+    },
     "edit_control": {
       "edit_tweet_ids": [
         "2057968277062582378"
@@ -303,7 +289,7 @@
     },
     "is_translatable": false,
     "legacy": {
-      "bookmark_count": 64093,
+      "bookmark_count": 63956,
       "bookmarked": false,
       "conversation_id_str": "2057968277062582378",
       "created_at": "Fri May 22 23:34:07 +0000 2026",
@@ -477,7 +463,7 @@
           }
         ]
       },
-      "favorite_count": 903554,
+      "favorite_count": 902811,
       "favorited": false,
       "full_text": "https://t.co/LU644jFVH2",
       "id_str": "2057968277062582378",
@@ -485,14 +471,14 @@
       "lang": "zxx",
       "possibly_sensitive": false,
       "possibly_sensitive_editable": true,
-      "quote_count": 14972,
-      "reply_count": 61748,
-      "retweet_count": 96820,
+      "quote_count": 15002,
+      "reply_count": 62385,
+      "retweet_count": 96670,
       "retweeted": false,
       "user_id_str": "25073877"
     },
     "quick_promote_eligibility": {
-      "eligibility": "IneligibleUserUnauthorized"
+      "eligibility": "IneligibleNotVerified"
     },
     "rest_id": "2057968277062582378",
     "source": "<a href=\"http://twitter.com/download/iphone\" rel=\"nofollow\">Twitter for iPhone</a>",
@@ -501,7 +487,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "96325107",
+      "count": "96541106",
       "state": "EnabledWithCount"
     }
   }

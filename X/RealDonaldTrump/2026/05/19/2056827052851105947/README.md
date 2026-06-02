@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2056827052851105947
 - Title: Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him...
 - Date published: 2026-05-19T19:59:18+00:00
-- Date accessed: 2026-06-01T20:00:58.398778+00:00
+- Date accessed: 2026-06-02T20:30:50.164176+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
-- bookmarks: 13014
-- favorites: 280314
-- quotes: 4931
-- replies: 55175
-- retweets: 39706
-- views: 64388651
+- bookmarks: 13002
+- favorites: 280046
+- quotes: 4940
+- replies: 55453
+- retweets: 39668
+- views: 64543155
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111641276,
+      "followers_count": 111594216,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
-      "listed_count": 130498,
+      "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111641276,
+      "normal_followers_count": 111594216,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111641275,
+            "followers_count": 111594218,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
-            "listed_count": 130498,
+            "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111641275,
+            "normal_followers_count": 111594218,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -281,7 +281,7 @@
     },
     "is_translatable": false,
     "legacy": {
-      "bookmark_count": 13014,
+      "bookmark_count": 13002,
       "bookmarked": false,
       "conversation_id_str": "2056827052851105947",
       "created_at": "Tue May 19 19:59:18 +0000 2026",
@@ -290,15 +290,15 @@
         271
       ],
       "entities": {},
-      "favorite_count": 280314,
+      "favorite_count": 280046,
       "favorited": false,
       "full_text": "Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him by me long before I found out that he was the Worst Congressman in the History of our Country. I endorsed Ed Gallrein, a true American Patriot, which Massie knows full well, so the",
       "id_str": "2056827052851105947",
       "is_quote_status": false,
       "lang": "en",
-      "quote_count": 4931,
-      "reply_count": 55175,
-      "retweet_count": 39706,
+      "quote_count": 4940,
+      "reply_count": 55453,
+      "retweet_count": 39668,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -328,7 +328,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "64388651",
+      "count": "64543155",
       "state": "EnabledWithCount"
     }
   }

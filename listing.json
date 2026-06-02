@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-02T20:27:06.142075+00:00",
+  "generatedAt": "2026-06-02T20:35:02.625767+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -10269,7 +10269,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "Donald J. Trump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T19:47:45.538312+00:00",
+        "dateAccessed": "2026-06-02T20:30:50.164015+00:00",
         "media": [
           {
             "kind": "video",
@@ -13947,7 +13947,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "Donald J. Trump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:00:58.398778+00:00",
+        "dateAccessed": "2026-06-02T20:30:50.164176+00:00",
         "media": [],
         "mediaFiles": [],
         "mediaUrls": [],
@@ -69705,7 +69705,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "Donald J. Trump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:00:58.398814+00:00",
+        "dateAccessed": "2026-06-02T20:30:50.164272+00:00",
         "media": [
           {
             "kind": "video",
@@ -71431,6 +71431,40 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7611972412711636237",
       "summary": "\u201cWe ask God to protect all of our heroes in harms way.\u201d \ud83c\uddfa\ud83c\uddf8",
       "title": "\u201cWe ask God to protect all of our heroes in harms way.\u201d \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-02-28",
+      "id": "socials:ce465d8854161702",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:34:37.653402+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2027649690032889856.mp4",
+            "remotePath": "archive/x/realdonaldtrump/InXhHRvaG5jNn8QJ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2027649690032889856/vid/avc1/3840x2026/InXhHRvaG5jNn8QJ.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/InXhHRvaG5jNn8QJ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2027649690032889856.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/InXhHRvaG5jNn8QJ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2027651077865157033"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/02/28/2027651077865157033/README.md",
+      "path": "X/RealDonaldTrump/2026/02/28/2027651077865157033/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2027651077865157033",
+      "summary": "https://t.co/BZuJDudLej",
+      "title": "https://t.co/BZuJDudLej"
     },
     {
       "category": "TruthSocial",
@@ -90721,6 +90755,40 @@
       "title": "Sleazebag \u201cinfluencer\u201d and lawyer Leonard Leo, who has legal issues of his own, goes aroun..."
     },
     {
+      "category": "X",
+      "date": "2026-02-03",
+      "id": "socials:0ee85db7dfccab7c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T20:30:50.164485+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2018445127690092546.mp4",
+            "remotePath": "archive/x/realdonaldtrump/aQSQ2km0-PqhVv1c.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2018445127690092546/vid/avc1/3840x2160/aQSQ2km0-PqhVv1c.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/aQSQ2km0-PqhVv1c.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2018445127690092546.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/aQSQ2km0-PqhVv1c.mp4"
+        ],
+        "platform": "X",
+        "postId": "2018512054379004088"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/02/03/2018512054379004088/README.md",
+      "path": "X/RealDonaldTrump/2026/02/03/2018512054379004088/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2018512054379004088",
+      "summary": "Repost of @DanScavino:",
+      "title": "Repost of @DanScavino: On behalf of Erin and me, thank you to everyone for the love and su..."
+    },
+    {
       "category": "YouTube",
       "date": "2026-02-03",
       "id": "socials:53910edf62be8097",
@@ -91143,6 +91211,62 @@
       "sourceUrl": "https://www.youtube.com/watch?v=RU9xzaXG6qw",
       "summary": "- [00:00.240] The person that killed Katie, Julio - [00:02.560] Cukabo, who was using an alias, who - [00:05.120] couldn't read or write English or - [00:07.359] Spanish, he was using a kaichi language. - [00:10.880] Um, barreled into them at 80 miles an - [00:13.440] hour. Uh, K",
       "title": "THIS IS OUR WHY."
+    },
+    {
+      "category": "X",
+      "date": "2026-02-02",
+      "id": "socials:bc81478955d9d9a7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T20:30:50.164590+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2018466683707625610"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/02/02/2018466683707625610/README.md",
+      "path": "X/RealDonaldTrump/2026/02/02/2018466683707625610/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2018466683707625610",
+      "summary": "Repost of @THR:",
+      "title": "Repost of @THR: Box Office: \u2018Melania\u2019 Heads for $8 Million Opening, the Best Showing in a ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-02-02",
+      "id": "socials:b68733e758a26e5e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T20:30:50.164688+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2017926407897104384.jpg",
+            "remotePath": "archive/x/realdonaldtrump/HAEdYGWWQAA6c2e.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HAEdYGWWQAA6c2e.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/HAEdYGWWQAA6c2e.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2017926407897104384.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/HAEdYGWWQAA6c2e.jpg"
+        ],
+        "platform": "X",
+        "postId": "2018466659422687405"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/02/02/2018466659422687405/README.md",
+      "path": "X/RealDonaldTrump/2026/02/02/2018466659422687405/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2018466659422687405",
+      "summary": "Repost of @FoxNews:",
+      "title": "Repost of @FoxNews: RECORD BREAKER: \u201cMelania,\u201d a documentary following the first lady in t..."
     },
     {
       "category": "YouTube",
@@ -92524,6 +92648,40 @@
       "title": "The Radical Left Lunatics, Insurrectionists, Agitators, and Thugs, are going after Kristi ..."
     },
     {
+      "category": "X",
+      "date": "2026-01-31",
+      "id": "socials:542dcf00235760cc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T20:30:50.164787+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2017663172576944129.jpg",
+            "remotePath": "archive/x/realdonaldtrump/HAAt9yXWIAEZY_X.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HAAt9yXWIAEZY_X.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/HAAt9yXWIAEZY_X.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2017663172576944129.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/HAAt9yXWIAEZY_X.jpg"
+        ],
+        "platform": "X",
+        "postId": "2017675831116521939"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/01/31/2017675831116521939/README.md",
+      "path": "X/RealDonaldTrump/2026/01/31/2017675831116521939/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2017675831116521939",
+      "summary": "Repost of @MELANIATRUMP:",
+      "title": "Repost of @MELANIATRUMP: MELANIA, the film. #1 Highest Opening In 10 Yrs (Doc) Loved By Al..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-01-31",
       "id": "socials:2ae55299c3b0544e",
@@ -92769,6 +92927,28 @@
       "path": "TruthSocial/RealDonaldTrump/2026/01/31/115987233609226463/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115987233609226463",
       "summary": "Last night I saw, \u201cMELANIA,\u201d for the second time. The audience loved it, and so do I. Check it out \u2014 A MUST SEE! [https://www. amazon.com/salp/melaniamovie?h hf](https://www.amazon.com/salp/melaniamovie?hhf)",
+      "title": "Last night I saw, \u201cMELANIA,\u201d for the second time. The audience loved it, and so do I. Chec..."
+    },
+    {
+      "category": "X",
+      "date": "2026-01-31",
+      "id": "socials:ccc991df6714a472",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.164881+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2017417980594827718"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/01/31/2017417980594827718/README.md",
+      "path": "X/RealDonaldTrump/2026/01/31/2017417980594827718/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2017417980594827718",
+      "summary": "Last night I saw, \u201cMELANIA,\u201d for the second time. The audience loved it, and so do I. Check it out \u2014 A MUST SEE! https://t.co/rjwd5Appkv",
       "title": "Last night I saw, \u201cMELANIA,\u201d for the second time. The audience loved it, and so do I. Chec..."
     },
     {
@@ -97760,6 +97940,40 @@
       "title": "MELANIA, the Movie, is a MUST WATCH. Get your tickets today \u2014 Selling out, FAST! Photo: Re..."
     },
     {
+      "category": "X",
+      "date": "2026-01-26",
+      "id": "socials:95c2875ae0898774",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.164973+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2015833389807398912.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G_mtyaXXcAAvj4V.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G_mtyaXXcAAvj4V.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G_mtyaXXcAAvj4V.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2015833389807398912.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G_mtyaXXcAAvj4V.jpg"
+        ],
+        "platform": "X",
+        "postId": "2015833393917747502"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/01/26/2015833393917747502/README.md",
+      "path": "X/RealDonaldTrump/2026/01/26/2015833393917747502/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2015833393917747502",
+      "summary": "MELANIA, the Movie, is a MUST WATCH. Get your tickets today \u2014 Selling out, FAST!",
+      "title": "MELANIA, the Movie, is a MUST WATCH. Get your tickets today \u2014 Selling out, FAST! Photo: Re..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-01-26",
       "id": "socials:f5a3297d7b3c8c54",
@@ -98555,6 +98769,28 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115952253411267214",
       "summary": "I have just approved Emergency Declarations for Tennessee, Georgia, North Carolina, Maryland, Arkansas, Kentucky, Louisiana, Mississippi, Indiana, and West Virginia. We are working closely with FEMA, Governors, and State Emergency Management teams to ensure the safety of everybod",
       "title": "I have just approved Emergency Declarations for Tennessee, Georgia, North Carolina, Maryla..."
+    },
+    {
+      "category": "X",
+      "date": "2026-01-24",
+      "id": "socials:bb246f4e37938eef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165070+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2014874759473828043"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/01/24/2014874759473828043/README.md",
+      "path": "X/RealDonaldTrump/2026/01/24/2014874759473828043/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2014874759473828043",
+      "summary": "I have been briefed on the Record Cold Wave and Historic Winter Storm that will be hitting much of the United States this weekend. The Trump Administration is coordinating with State and Local Officials. FEMA is fully prepared to respond. Stay Safe and Stay Warm! President DJT",
+      "title": "I have been briefed on the Record Cold Wave and Historic Winter Storm that will be hitting..."
     },
     {
       "category": "TruthSocial",
@@ -103050,6 +103286,40 @@
       "path": "TruthSocial/RealDonaldTrump/2026/01/23/115945837215795716/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115945837215795716",
       "summary": "COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look at one of the most important events of our time. MELANIA: TWENTY DAYS TO HISTORY: [https://www. amazon.com/salp/melaniamovie?h hf](https://www.amazon.com/salp/melaniamovie?hhf)",
+      "title": "COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-01-23",
+      "id": "socials:095465dd0de6e33a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165158+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2014772905972776960.mp4",
+            "remotePath": "archive/x/realdonaldtrump/m-soU3NaS1n-xyqt.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2014772905972776960/vid/avc1/1280x720/m-soU3NaS1n-xyqt.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/m-soU3NaS1n-xyqt.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2014772905972776960.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/m-soU3NaS1n-xyqt.mp4"
+        ],
+        "platform": "X",
+        "postId": "2014772963719991311"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/01/23/2014772963719991311/README.md",
+      "path": "X/RealDonaldTrump/2026/01/23/2014772963719991311/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2014772963719991311",
+      "summary": "COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look at one of the most important events of our time.",
       "title": "COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look a..."
     },
     {
@@ -126807,6 +127077,28 @@
       "title": "Merry Christmas to all, including the Radical Left Scum that is doing everything possible ..."
     },
     {
+      "category": "X",
+      "date": "2025-12-25",
+      "id": "socials:2204c11d1c8c3de8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165268+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2004012442427277591"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/12/25/2004012442427277591/README.md",
+      "path": "X/RealDonaldTrump/2025/12/25/2004012442427277591/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2004012442427277591",
+      "summary": "Merry Christmas to all, including the Radical Left Scum that is doing everything possible to destroy our Country, but are failing badly. We no longer have Open Borders, Men in Women\u2019s Sports, Transgender for Everyone, or Weak Law Enforcement. What we do have is a Record Stock Mar",
+      "title": "Merry Christmas to all, including the Radical Left Scum that is doing everything possible ..."
+    },
+    {
       "category": "TikTok",
       "date": "2025-12-25",
       "id": "socials:8c02f0b67f0ea6bd",
@@ -127471,6 +127763,28 @@
       "metadataPath": "TruthSocial/RealDonaldTrump/2025/12/23/115769455906748881/README.md",
       "path": "TruthSocial/RealDonaldTrump/2025/12/23/115769455906748881/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115769455906748881",
+      "summary": "THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount+. Tune in at 8 P.M. EST! At the request of the Board, and just about everybody else in America, I am hosting the event. Tell me what you think of my \u201cMaster of Ceremony\u201d abilities. If reall",
+      "title": "THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount..."
+    },
+    {
+      "category": "X",
+      "date": "2025-12-23",
+      "id": "socials:8789b672b19f351a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165370+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2003565251816554746"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/12/23/2003565251816554746/README.md",
+      "path": "X/RealDonaldTrump/2025/12/23/2003565251816554746/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2003565251816554746",
       "summary": "THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount+. Tune in at 8 P.M. EST! At the request of the Board, and just about everybody else in America, I am hosting the event. Tell me what you think of my \u201cMaster of Ceremony\u201d abilities. If reall",
       "title": "THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount..."
     },
@@ -142115,6 +142429,50 @@
       "title": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District to please..."
     },
     {
+      "category": "X",
+      "date": "2025-12-02",
+      "id": "socials:aa97ccc1401533c3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165600+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1995676855651664182"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/12/02/1995676855651664182/README.md",
+      "path": "X/RealDonaldTrump/2025/12/02/1995676855651664182/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1995676855651664182",
+      "summary": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District to please GET OUT AND VOTE TOMORROW for a phenomenal Candidate, Matt Van Epps, on Election Day, Tuesday, December 2nd! You can win this Election for MAGA Warrior Matt Van Epps, who has my Complete an",
+      "title": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District to please..."
+    },
+    {
+      "category": "X",
+      "date": "2025-12-02",
+      "id": "socials:cba552b0c2960b9e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165480+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1995898845134303294"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/12/02/1995898845134303294/README.md",
+      "path": "X/RealDonaldTrump/2025/12/02/1995898845134303294/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1995898845134303294",
+      "summary": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District to please GET OUT AND VOTE for a phenomenal Candidate and MAGA Warrior, Matt Van Epps! You can win this Election for Matt, who has my Complete and Total Endorsement. HE WILL BE A GREAT CONGRESSMAN an",
+      "title": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District to please..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-12-02",
       "id": "socials:9fddd6745cd4aa1f",
@@ -143163,6 +143521,28 @@
       "title": "To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE..."
     },
     {
+      "category": "X",
+      "date": "2025-11-29",
+      "id": "socials:3ec3dbd0f8a0ac32",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.165820+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1994760100376891748"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/29/1994760100376891748/README.md",
+      "path": "X/RealDonaldTrump/2025/11/29/1994760100376891748/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1994760100376891748",
+      "summary": "To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE ABOVE AND SURROUNDING VENEZUELA TO BE CLOSED IN ITS ENTIRETY. Thank you for your attention to this matter! PRESIDENT DONALD J. TRUMP",
+      "title": "To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-11-29",
       "id": "socials:edf00cf10a7ac468",
@@ -143452,6 +143832,28 @@
       "title": "This is part of the horrendous airlift from Afghanistan. Hundreds of thousands of people p..."
     },
     {
+      "category": "X",
+      "date": "2025-11-28",
+      "id": "socials:b2cff69c06a810a0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.166136+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1994438728237064270"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/28/1994438728237064270/README.md",
+      "path": "X/RealDonaldTrump/2025/11/28/1994438728237064270/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1994438728237064270",
+      "summary": "The United States did not attend the G20 in South Africa, because the South African Government refuses to acknowledge or address the horrific Human Right Abuses endured by Afrikaners, and other descendants of Dutch, French, and German settlers. To put it more bluntly, they are ki",
+      "title": "The United States did not attend the G20 in South Africa, because the South African Govern..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-11-28",
       "id": "socials:224dc4044b8cf3a1",
@@ -143574,6 +143976,28 @@
       "title": "Democracy is on trial in the coming Elections in the beautiful country of Honduras on Nove..."
     },
     {
+      "category": "X",
+      "date": "2025-11-28",
+      "id": "socials:951f3fe204e6cf5f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.166490+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1994438342403141889"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/28/1994438342403141889/README.md",
+      "path": "X/RealDonaldTrump/2025/11/28/1994438342403141889/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1994438342403141889",
+      "summary": "Democracy is on trial in the coming Elections in the beautiful country of Honduras on November 30th. Will Maduro and his Narcoterrorists take over another country like they have taken over Cuba, Nicaragua, and Venezuela? The man who is standing up for Democracy, and fighting agai",
+      "title": "Democracy is on trial in the coming Elections in the beautiful country of Honduras on Nove..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-11-28",
       "id": "socials:1d0f967655512d89",
@@ -143614,6 +144038,28 @@
       "metadataPath": "TruthSocial/RealDonaldTrump/2025/11/28/115625429081411360/README.md",
       "path": "TruthSocial/RealDonaldTrump/2025/11/28/115625429081411360/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115625429081411360",
+      "summary": "A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots who have been so nice in allowing our Country to be divided, disrupted, carved up, murdered, beaten, mugged, and laughed at, along with certain other foolish countries throughout the World, fo",
+      "title": "A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots wh..."
+    },
+    {
+      "category": "X",
+      "date": "2025-11-28",
+      "id": "socials:6547bcb4ef0d060b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:50.166948+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1994272683387687053"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/28/1994272683387687053/README.md",
+      "path": "X/RealDonaldTrump/2025/11/28/1994272683387687053/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1994272683387687053",
       "summary": "A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots who have been so nice in allowing our Country to be divided, disrupted, carved up, murdered, beaten, mugged, and laughed at, along with certain other foolish countries throughout the World, fo",
       "title": "A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots wh..."
     },
@@ -143814,6 +144260,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115618335917111212",
       "summary": "\u201cPresident Donald Trump remains with strong approval at 50%\u2026\u201d",
       "title": "\u201cPresident Donald Trump remains with strong approval at 50%\u2026\u201d"
+    },
+    {
+      "category": "X",
+      "date": "2025-11-26",
+      "id": "socials:aa5c9fed913dc787",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.660629+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1993801754949910528.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G6toIexXAAAuXuy.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G6toIexXAAAuXuy.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G6toIexXAAAuXuy.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1993801754949910528.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G6toIexXAAAuXuy.jpg"
+        ],
+        "platform": "X",
+        "postId": "1993801758326616561"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/26/1993801758326616561/README.md",
+      "path": "X/RealDonaldTrump/2025/11/26/1993801758326616561/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1993801758326616561",
+      "summary": "https://t.co/oQK0HLgf88",
+      "title": "https://t.co/oQK0HLgf88"
     },
     {
       "category": "TruthSocial",
@@ -144756,6 +145236,28 @@
       "metadataPath": "TruthSocial/RealDonaldTrump/2025/11/25/115612873614937945/README.md",
       "path": "TruthSocial/RealDonaldTrump/2025/11/25/115612873614937945/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115612873614937945",
+      "summary": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District, who haven\u2019t voted yet, to please GET OUT AND VOTE for MAGA Warrior Matt Van Epps, tomorrow, November 26th, the last day to vote early in person. You can win this Election for Matt! PLEASE VOTE FOR M",
+      "title": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District, who have..."
+    },
+    {
+      "category": "X",
+      "date": "2025-11-25",
+      "id": "socials:c524ddd47718b62e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.660770+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1993469230528790869"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/11/25/1993469230528790869/README.md",
+      "path": "X/RealDonaldTrump/2025/11/25/1993469230528790869/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1993469230528790869",
       "summary": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District, who haven\u2019t voted yet, to please GET OUT AND VOTE for MAGA Warrior Matt Van Epps, tomorrow, November 26th, the last day to vote early in person. You can win this Election for Matt! PLEASE VOTE FOR M",
       "title": "I am asking all America First Patriots in Tennessee\u2019s 7th Congressional District, who have..."
     },
@@ -171408,6 +171910,67 @@
       "title": "So terrible! [https:// justthenews.com/government/con gress/congress-collected-30-million-..."
     },
     {
+      "category": "X",
+      "date": "2025-10-15",
+      "id": "socials:ac00d63cef2ca0cc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T20:30:52.660877+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1977042280662827009.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2_derzWAAEnAOE.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2_derzWAAEnAOE.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_derzWAAEnAOE.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_1977042280671322112.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2_der1XoAAK-Bj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2_der1XoAAK-Bj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_der1XoAAK-Bj.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_1977042280650268673.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2_derwWYAEBsv.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2_derwWYAEBsv-.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_derwWYAEBsv.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_1977042280658665472.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2_deryWgAAHVfF.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2_deryWgAAHVfF.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_deryWgAAHVfF.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1977042280662827009.jpg",
+          "media/02_image_1977042280671322112.jpg",
+          "media/03_image_1977042280650268673.jpg",
+          "media/04_image_1977042280658665472.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_derzWAAEnAOE.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_der1XoAAK-Bj.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_derwWYAEBsv.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2_deryWgAAHVfF.jpg"
+        ],
+        "platform": "X",
+        "postId": "1978283219461030105"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/15/1978283219461030105/README.md",
+      "path": "X/RealDonaldTrump/2025/10/15/1978283219461030105/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1978283219461030105",
+      "summary": "Repost of @kaitrump:",
+      "title": "Repost of @kaitrump: I had an amazing time filming with my Grandpa to kick off my new seri..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-10-15",
       "id": "socials:80ebf19713bb66da",
@@ -171574,6 +172137,40 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7561183565254380814",
       "summary": "\u2764\ufe0f\u2764\ufe0f",
       "title": "\u2764\ufe0f\u2764\ufe0f"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-14",
+      "id": "socials:abac9db470fdcecc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661067+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_1977907122160451584.mp4",
+            "remotePath": "archive/x/realdonaldtrump/nXu4nZNTy51k1Ybq.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/1977907122160451584/vid/avc1/1280x562/nXu4nZNTy51k1Ybq.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/nXu4nZNTy51k1Ybq.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_1977907122160451584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/nXu4nZNTy51k1Ybq.mp4"
+        ],
+        "platform": "X",
+        "postId": "1977928905169269143"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/14/1977928905169269143/README.md",
+      "path": "X/RealDonaldTrump/2025/10/14/1977928905169269143/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1977928905169269143",
+      "summary": "https://t.co/08KV4EtQDZ",
+      "title": "https://t.co/08KV4EtQDZ"
     },
     {
       "category": "TruthSocial",
@@ -172119,6 +172716,40 @@
       "path": "TruthSocial/RealDonaldTrump/2025/10/14/115373650611754631/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115373650611754631",
       "summary": "Don\u2019t forget to get a copy of my son Eric\u2019s book, \u201cUNDER SIEGE,\u201d which is breaking records everywhere. It\u2019s a phenomenal book, that\u2019s a must read for everyone\u2014Congratulations Eric, you deserve it!!! [https:// a.co/d/7oPyLF5](https://a.co/d/7oPyLF5)",
+      "title": "Don\u2019t forget to get a copy of my son Eric\u2019s book, \u201cUNDER SIEGE,\u201d which is breaking records..."
+    },
+    {
+      "category": "X",
+      "date": "2025-10-14",
+      "id": "socials:08bb1c1ecd07189f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.660978+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1978148811072577537.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G3PL3OzXoAEjS8T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G3PL3OzXoAEjS8T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G3PL3OzXoAEjS8T.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1978148811072577537.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G3PL3OzXoAEjS8T.jpg"
+        ],
+        "platform": "X",
+        "postId": "1978148814776046046"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/14/1978148814776046046/README.md",
+      "path": "X/RealDonaldTrump/2025/10/14/1978148814776046046/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1978148814776046046",
+      "summary": "Don\u2019t forget to get a copy of my son Eric\u2019s book, \u201cUNDER SIEGE,\u201d which is breaking records everywhere. It\u2019s a phenomenal book, that\u2019s a must read for everyone\u2014Congratulations Eric, you deserve it!!! https://t.co/na0jBJ1nxp https://t.co/jUtJ6xrP5P",
       "title": "Don\u2019t forget to get a copy of my son Eric\u2019s book, \u201cUNDER SIEGE,\u201d which is breaking records..."
     },
     {
@@ -173264,6 +173895,28 @@
       "metadataPath": "TruthSocial/RealDonaldTrump/2025/10/12/115359298785234325/README.md",
       "path": "TruthSocial/RealDonaldTrump/2025/10/12/115359298785234325/POST.md",
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115359298785234325",
+      "summary": "I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief of Staff of the Trump Administration, will head the White House Presidential Personnel Office, replacing Sergio Gor, who did a wonderful job in that position, and will now become the Ambass",
+      "title": "I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief..."
+    },
+    {
+      "category": "X",
+      "date": "2025-10-12",
+      "id": "socials:b8ece90efcdc91e5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661188+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1977233745997381756"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/12/1977233745997381756/README.md",
+      "path": "X/RealDonaldTrump/2025/10/12/1977233745997381756/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1977233745997381756",
       "summary": "I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief of Staff of the Trump Administration, will head the White House Presidential Personnel Office, replacing Sergio Gor, who did a wonderful job in that position, and will now become the Ambass",
       "title": "I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief..."
     },
@@ -178089,6 +178742,74 @@
       "title": "After negotiations, Israel has agreed to the initial withdrawal line, which we have shown ..."
     },
     {
+      "category": "X",
+      "date": "2025-10-03",
+      "id": "socials:f179d30785015e3f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661371+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_1973953761417547776.mp4",
+            "remotePath": "archive/x/realdonaldtrump/IPsb2cZfj20-B2w9.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/1973953761417547776/vid/avc1/694x560/IPsb2cZfj20-B2w9.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/IPsb2cZfj20-B2w9.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_1973953761417547776.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/IPsb2cZfj20-B2w9.mp4"
+        ],
+        "platform": "X",
+        "postId": "1973953812517040164"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/03/1973953812517040164/README.md",
+      "path": "X/RealDonaldTrump/2025/10/03/1973953812517040164/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973953812517040164",
+      "summary": "https://t.co/na2ivYVFoT",
+      "title": "https://t.co/na2ivYVFoT"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-03",
+      "id": "socials:6d2887028c39a064",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661277+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_1973954438642421760.mp4",
+            "remotePath": "archive/x/realdonaldtrump/XNbxlt2mNH4KkSb0.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/1973954438642421760/vid/avc1/720x1280/XNbxlt2mNH4KkSb0.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/XNbxlt2mNH4KkSb0.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_1973954438642421760.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/XNbxlt2mNH4KkSb0.mp4"
+        ],
+        "platform": "X",
+        "postId": "1973954507001507920"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/03/1973954507001507920/README.md",
+      "path": "X/RealDonaldTrump/2025/10/03/1973954507001507920/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973954507001507920",
+      "summary": "https://t.co/BlX7O7Idjj",
+      "title": "https://t.co/BlX7O7Idjj"
+    },
+    {
       "category": "TruthSocial",
       "date": "2025-10-03",
       "id": "socials:ebf10b7b6a1b6817",
@@ -179461,6 +180182,164 @@
       "title": "\u201cStatements of Support for Middle East Peace Deal\u201d"
     },
     {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:c1e8b99b30c4a525",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661656+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1973221569674518528.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JKkCOWoAAJCh0.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JKkCOWoAAJCh0.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JKkCOWoAAJCh0.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1973221569674518528.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JKkCOWoAAJCh0.jpg"
+        ],
+        "platform": "X",
+        "postId": "1973221572585595221"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973221572585595221/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973221572585595221/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973221572585595221",
+      "summary": "https://t.co/NNNumraCkN",
+      "title": "https://t.co/NNNumraCkN"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:3e3e6c6755efe2ad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661754+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1973218684828102656.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JH8HVXsAA1wyz.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JH8HVXsAA1wyz.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JH8HVXsAA1wyz.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1973218684828102656.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JH8HVXsAA1wyz.jpg"
+        ],
+        "platform": "X",
+        "postId": "1973218687831384293"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973218687831384293/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973218687831384293/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973218687831384293",
+      "summary": "https://t.co/AdZzv7LJLt",
+      "title": "https://t.co/AdZzv7LJLt"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:5088ae380fcb8bc9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661886+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_1973218461577867264.mp4",
+            "remotePath": "archive/x/realdonaldtrump/PAEQ4xgmc3nKyQ7j.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/1973218461577867264/vid/avc1/1080x768/PAEQ4xgmc3nKyQ7j.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/PAEQ4xgmc3nKyQ7j.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_1973218461577867264.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/PAEQ4xgmc3nKyQ7j.mp4"
+        ],
+        "platform": "X",
+        "postId": "1973218518893207825"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973218518893207825/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973218518893207825/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973218518893207825",
+      "summary": "https://t.co/2yyuRkm9r8",
+      "title": "https://t.co/2yyuRkm9r8"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:10e1fcf644af822e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661565+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_1973221716621991936.mp4",
+            "remotePath": "archive/x/realdonaldtrump/gi0IZvwpPSk1F9cq.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/1973221716621991936/vid/avc1/2160x3840/gi0IZvwpPSk1F9cq.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/gi0IZvwpPSk1F9cq.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_1973221716621991936.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/gi0IZvwpPSk1F9cq.mp4"
+        ],
+        "platform": "X",
+        "postId": "1973221796427211262"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973221796427211262/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973221796427211262/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973221796427211262",
+      "summary": "Yes, I\u2019m watching. Congratulations! https://t.co/3iN3YnTUnn",
+      "title": "Yes, I\u2019m watching. Congratulations! https://t.co/3iN3YnTUnn"
+    },
+    {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:bbdc1082981635bb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.662008+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "1973218327330955749"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973218327330955749/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973218327330955749/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973218327330955749",
+      "summary": "What a great couple\u2014Congratulations! President DJT",
+      "title": "What a great couple\u2014Congratulations! President DJT"
+    },
+    {
       "category": "YouTube",
       "date": "2025-10-01",
       "id": "socials:1e010f619ffb40b5",
@@ -179829,6 +180708,67 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115300785090391636",
       "summary": "Maxine Waters admitted that she is demanding Healthcare for Illegal Aliens, and it\u2019s going to be Top of the Line, taking American Taxpayers\u2019 Healthcare away from them!",
       "title": "Maxine Waters admitted that she is demanding Healthcare for Illegal Aliens, and it\u2019s going..."
+    },
+    {
+      "category": "X",
+      "date": "2025-10-01",
+      "id": "socials:27f9b8f8096f02a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T20:30:52.661473+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_1973221982322765825.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JK8DdXMAEUKDp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JK8DdXMAEUKDp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DdXMAEUKDp.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_1973221982360436736.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JK8DmWAAAIy8e.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JK8DmWAAAIy8e.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DmWAAAIy8e.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_1973221982322802689.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JK8DdXwAE5adc.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JK8DdXwAE5adc.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DdXwAE5adc.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_1973221982381506560.jpg",
+            "remotePath": "archive/x/realdonaldtrump/G2JK8DrXgAAtbsi.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/G2JK8DrXgAAtbsi.jpg",
+            "url": "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DrXgAAtbsi.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_1973221982322765825.jpg",
+          "media/02_image_1973221982360436736.jpg",
+          "media/03_image_1973221982322802689.jpg",
+          "media/04_image_1973221982381506560.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DdXMAEUKDp.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DmWAAAIy8e.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DdXwAE5adc.jpg",
+          "https://cdn.comparify.app/archive/x/realdonaldtrump/G2JK8DrXgAAtbsi.jpg"
+        ],
+        "platform": "X",
+        "postId": "1973221986429222933"
+      },
+      "metadataPath": "X/RealDonaldTrump/2025/10/01/1973221986429222933/README.md",
+      "path": "X/RealDonaldTrump/2025/10/01/1973221986429222933/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/1973221986429222933",
+      "summary": "It was great being with King Charles, Queen Camilla, and the Royal Family! https://t.co/XFxJAH7aF2",
+      "title": "It was great being with King Charles, Queen Camilla, and the Royal Family! https://t.co/XF..."
     },
     {
       "category": "TruthSocial",
