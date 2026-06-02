@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-06-04
+
+- Posts: 14
+
+- [18:02 UTC - [https://www. foxnews.com/world/trumps-criti cism-south-africas-violent-crime-crisis-recei...](114626404773734358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626404773734358
+  - [https://www. foxnews.com/world/trumps-criti cism-south-africas-violent-crime-crisis-receives-unexpected-local-support](https://www.foxnews.com/world/trumps-criticism-south-africas...
+- [18:01 UTC - “Congress can give Trump the leverage to coerce Putin” [https://www. washingtonpost.com/op...](114626401432609274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626401432609274
+  - “Congress can give Trump the leverage to coerce Putin” [https://www. washingtonpost.com/opinions/20 25/05/29/congress-russia-sanctions-trump-putin/](https://www.washingtonpost.com/...
+- [18:00 UTC - [https:// thehill.com/business/5320379-u s-housing-finance-chief-tells-powell-to-lower-int...](114626398631443870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626398631443870
+  - [https:// thehill.com/business/5320379-u s-housing-finance-chief-tells-powell-to-lower-interest-rates/](https://thehill.com/business/5320379-us-housing-finance-chief-tells-powell-t...
+- [18:00 UTC - [https://www. foxnews.com/media/freed-israel i-hostage-says-hamas-captors-wanted-kamala-el...](114626397558751783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626397558751783
+  - [https://www. foxnews.com/media/freed-israel i-hostage-says-hamas-captors-wanted-kamala-elected-were-very-scared-trumps-return](https://www.foxnews.com/media/freed-israeli-hostage-...
+- [18:00 UTC - [https://www. breitbart.com/politics/2025/05 /29/three-judges-blocking-trumps-tariffs-have...](114626396219930564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626396219930564
+  - [https://www. breitbart.com/politics/2025/05 /29/three-judges-blocking-trumps-tariffs-have-decades-long-histories-of-democrat-activism/](https://www.breitbart.com/politics/2025/05/...
+- [17:59 UTC - [https://www. realclearpolitics.com/articles /2025/05/30/amid_courtroom_spectacles_senate_...](114626395349193280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626395349193280
+  - [https://www. realclearpolitics.com/articles /2025/05/30/amid_courtroom_spectacles_senate_should_confirm_emil_bove.html](https://www.realclearpolitics.com/articles/2025/05/30/amid_...
+- [17:59 UTC - Truth Social post 114626394056454893](114626394056454893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626394056454893
+  - _No text content captured._
+- [17:59 UTC - Tough guys. The Courts must let me do the job.](114626392475682581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626392475682581
+  - Tough guys. The Courts must let me do the job.
+- [17:56 UTC - I just finished speaking, by telephone, with President Vladimir Putin, of Russia. The call...](114626383407680212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626383407680212
+  - I just finished speaking, by telephone, with President Vladimir Putin, of Russia. The call lasted approximately one hour and 15 minutes. We discussed the attack on Russia’s docked...
+- [17:25 UTC - I am very pleased to announce that, after all of these years, I agree with Senator Elizabe...](114626260163622304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114626260163622304
+  - I am very pleased to announce that, after all of these years, I agree with Senator Elizabeth Warren on SOMETHING. The Debt Limit should be entirely scrapped to prevent an Economic...
+- [12:21 UTC - ADP NUMBER OUT!!! “Too Late” Powell must now LOWER THE RATE. He is unbelievable!!! Europe ...](114625064616541014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114625064616541014
+  - ADP NUMBER OUT!!! “Too Late” Powell must now LOWER THE RATE. He is unbelievable!!! Europe has lowered NINE TIMES!
+- [06:28 UTC - With the exception of the RIGGED PRESIDENTIAL ELECTION OF 2020, THE AUTOPEN IS THE BIGGEST...](114623678380515184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114623678380515184
+  - With the exception of the RIGGED PRESIDENTIAL ELECTION OF 2020, THE AUTOPEN IS THE BIGGEST POLITICAL SCANDAL IN AMERICAN HISTORY!!!
+- [06:20 UTC - THE UNITED STATES HAD THE BEST MAY IN 30 YEARS. MAKE AMERICA GREAT AGAIN!!!](114623644825050017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114623644825050017
+  - THE UNITED STATES HAD THE BEST MAY IN 30 YEARS. MAKE AMERICA GREAT AGAIN!!!
+- [06:17 UTC - I like President XI of China, always have, and always will, but he is VERY TOUGH, AND EXTR...](114623632387180206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114623632387180206
+  - I like President XI of China, always have, and always will, but he is VERY TOUGH, AND EXTREMELY HARD TO MAKE A DEAL WITH!!!

@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-05-12
+
+- Posts: 22
+
+- [22:28 UTC - Jack Ciattarelli is a terrific America First Candidate running to be the next Governor of ...](114497218878772156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114497218878772156
+  - Jack Ciattarelli is a terrific America First Candidate running to be the next Governor of a State that I love, NEW JERSEY! Jack, who after getting to know and understand MAGA, has...
+- [21:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114496851630865496](114496991835020604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496991835020604
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114496851630865496
+- [21:23 UTC - If we’re not allowed to send the murderers and other criminals of every type, size, and sh...](114496961305632019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496961305632019
+  - If we’re not allowed to send the murderers and other criminals of every type, size, and shape, IMMEDIATELY out of our Country, we aren’t going to have a Country anymore. Radical Le...
+- [20:55 UTC - We are going to slash the cost of prescription drugs, and we will bring fairness to Americ...](114496851630865496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496851630865496
+  - We are going to slash the cost of prescription drugs, and we will bring fairness to America. Drug prices will come down—We're gonna cut out the middlemen and facilitate the direct...
+- [19:14 UTC - Truth Social post 114496454410752473](114496454410752473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496454410752473
+  - _No text content captured._
+- [19:12 UTC - [https://www. washingtonexaminer.com/opinion /columnists/3386539/american-manufacturer-tyl...](114496449002706232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496449002706232
+  - [https://www. washingtonexaminer.com/opinion /columnists/3386539/american-manufacturer-tyler-merritt-trump-tariffs/](https://www.washingtonexaminer.com/opinion/columnists/3386539/a...
+- [19:12 UTC - [https:// tippinsights.com/trump-doth-bi d-the-mills-to-rise-again/](https://tippinsights....](114496448069576993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496448069576993
+  - [https:// tippinsights.com/trump-doth-bi d-the-mills-to-rise-again/](https://tippinsights.com/trump-doth-bid-the-mills-to-rise-again/)
+- [19:12 UTC - [https:// thehill.com/homenews/house/527 5213-the-biggest-utility-player-rep-brian-jack-se...](114496447245540506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496447245540506
+  - [https:// thehill.com/homenews/house/527 5213-the-biggest-utility-player-rep-brian-jack-sees-star-rise-in-trumps-washington/](https://thehill.com/homenews/house/5275213-the-biggest...
+- [19:11 UTC - [https:// nypost.com/2025/04/23/us-news/ pennsylvania-governor-josh-shapiro-reveals-trump-...](114496445775958912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496445775958912
+  - [https:// nypost.com/2025/04/23/us-news/ pennsylvania-governor-josh-shapiro-reveals-trump-called-him-to-discuss-arson-attack-very-gracious/](https://nypost.com/2025/04/23/us-news/p...
+- [19:11 UTC - Truth Social post 114496444396876094](114496444396876094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496444396876094
+  - _No text content captured._
+- [17:55 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/05/delivering-most-favored-nation-...](114496145482452868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114496145482452868
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/05/delivering-most-favored-nation-prescription-drug-pricing-to-american-patients/](https://www.whitehouse.gov/presidential-a...
+- [17:04 UTC - This week the Republicans are meeting in the Tax, Energy, and Agriculture Committees on ma...](114495946485549840/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495946485549840
+  - This week the Republicans are meeting in the Tax, Energy, and Agriculture Committees on major pieces of “THE ONE, BIG, BEAUTIFUL BILL.” Republicans need to UNIFY behind their Highl...
+- [16:34 UTC - For the first time in many years, we'll slash the cost of prescription drugs, and we will ...](114495828046526222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495828046526222
+  - For the first time in many years, we'll slash the cost of prescription drugs, and we will bring fairness to America! EXECUTIVE ORDER: [https://www. whitehouse.gov/presidential-ac t...
+- [16:32 UTC - Starting today, the United States will no longer subsidize the healthcare of foreign count...](114495819579444373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495819579444373
+  - Starting today, the United States will no longer subsidize the healthcare of foreign countries—and we'll no longer tolerate profiteering and price gouging from Big Pharma. EXECUTIV...
+- [16:28 UTC - Dr. Jay Bhattacharya: "What President Trump has done is a historic measure that should hav...](114495805003498315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495805003498315
+  - Dr. Jay Bhattacharya: "What President Trump has done is a historic measure that should have been done a long time ago. What we're going to do is make sure that those prices become...
+- [16:24 UTC - Secretary Kennedy: "We now have a President who is a man of his word, who has the courage....](114495789264464415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495789264464415
+  - Secretary Kennedy: "We now have a President who is a man of his word, who has the courage... he can't be bought, unlike most of the politicians in this country — and he is standing...
+- [16:21 UTC - Edan Alexander, the last living American hostage, is being sreleased. Congratulations to h...](114495777170382544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495777170382544
+  - Edan Alexander, the last living American hostage, is being sreleased. Congratulations to his wonderful parents, family, and friends!
+- [15:35 UTC - [https://www. youtube.com/live/u2Ftw_VuedA?s i=bbqV_sjFQgzgkH5O](https://www.youtube.com/l...](114495594775258953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114495594775258953
+  - [https://www. youtube.com/live/u2Ftw_VuedA?s i=bbqV_sjFQgzgkH5O](https://www.youtube.com/live/u2Ftw_VuedA?si=bbqV_sjFQgzgkH5O)
+- [10:24 UTC - DRUG PRICES TO BE CUT BY 59%, PLUS! Gasoline, Energy, Groceries, and all other costs, DOWN...](114494372667836601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114494372667836601
+  - DRUG PRICES TO BE CUT BY 59%, PLUS! Gasoline, Energy, Groceries, and all other costs, DOWN. NO INFLATION!!! LOVE, DJT
+- [10:21 UTC - EDAN ALEXANDER, AMERICAN HOSTAGE THOUGHT DEAD, TO BE RELEASED BY HAMAS. GREAT NEWS!](114494359849751984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114494359849751984
+  - EDAN ALEXANDER, AMERICAN HOSTAGE THOUGHT DEAD, TO BE RELEASED BY HAMAS. GREAT NEWS!
+- [00:42 UTC - So the fact that the Defense Department is getting a GIFT, FREE OF CHARGE, of a 747 aircra...](114492082555622686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114492082555622686
+  - So the fact that the Defense Department is getting a GIFT, FREE OF CHARGE, of a 747 aircraft to replace the 40 year old Air Force One, temporarily, in a very public and transparent...
+- [00:08 UTC - So funny to watch old timer Martha Raditz on ABC Fake News (the Slopadopolus show!) this m...](114491949696762931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114491949696762931
+  - So funny to watch old timer Martha Raditz on ABC Fake News (the Slopadopolus show!) this morning, blurt out that, effectively, Pope Leo’s selection had nothing to do with Donald Tr...

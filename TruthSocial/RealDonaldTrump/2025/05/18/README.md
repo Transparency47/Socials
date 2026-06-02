@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-05-18
+
+- Posts: 21
+
+- [21:32 UTC - Melania and I are saddened to hear about Joe Biden’s recent medical diagnosis. We extend o...](114530973523345791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114530973523345791
+  - Melania and I are saddened to hear about Joe Biden’s recent medical diagnosis. We extend our warmest and best wishes to Jill and the family, and we wish Joe a fast and successful r...
+- [13:57 UTC - A sick and horrible woman, who also happens to be grossly incompetent! [https://www. stone...](114529184615531808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114529184615531808
+  - A sick and horrible woman, who also happens to be grossly incompetent! [https://www. stonecoldtruth.com/p/when-it-c omes-to-sickle-cell-therapy](https://www.stonecoldtruth.com/p/wh...
+- [11:15 UTC - [https:// truthsocial.com/users/BrandonS layer62/statuses/114518577214656496](https://trut...](114528548290170037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528548290170037
+  - [https:// truthsocial.com/users/BrandonS layer62/statuses/114518577214656496](https://truthsocial.com/users/BrandonSlayer62/statuses/114518577214656496)
+- [11:14 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526514858693065](https...](114528543333559657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528543333559657
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526514858693065](https://truthsocial.com/users/SpiritualStreetfighter/statuses/114526514858693065)
+- [11:14 UTC - [https:// truthsocial.com/users/lindachr istl/statuses/114518910423943818](https://truthso...](114528541485434944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528541485434944
+  - [https:// truthsocial.com/users/lindachr istl/statuses/114518910423943818](https://truthsocial.com/users/lindachristl/statuses/114518910423943818)
+- [11:13 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526515294649758](https...](114528538581179142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528538581179142
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526515294649758](https://truthsocial.com/users/SpiritualStreetfighter/statuses/114526515294649758)
+- [11:13 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526512267835006](https...](114528536672003128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528536672003128
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526512267835006](https://truthsocial.com/users/SpiritualStreetfighter/statuses/114526512267835006)
+- [11:12 UTC - [https:// truthsocial.com/users/BlueGI/s tatuses/114518725675568912](https://truthsocial.c...](114528535397197392/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528535397197392
+  - [https:// truthsocial.com/users/BlueGI/s tatuses/114518725675568912](https://truthsocial.com/users/BlueGI/statuses/114518725675568912)
+- [11:11 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526513950682207](https...](114528530793525797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528530793525797
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/114526513950682207](https://truthsocial.com/users/SpiritualStreetfighter/statuses/114526513950682207)
+- [11:10 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114526565667021576](https://tr...](114528527723701552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114528527723701552
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114526565667021576](https://truthsocial.com/users/IStandWithTrump47/statuses/114526565667021576)
+- [05:02 UTC - Truth Social post 114527080758877004](114527080758877004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527080758877004
+  - _No text content captured._
+- [05:02 UTC - Truth Social post 114527079348306312](114527079348306312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527079348306312
+  - _No text content captured._
+- [05:01 UTC - Truth Social post 114527075472996202](114527075472996202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527075472996202
+  - _No text content captured._
+- [05:01 UTC - Truth Social post 114527074463010521](114527074463010521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527074463010521
+  - _No text content captured._
+- [05:00 UTC - Truth Social post 114527072742502834](114527072742502834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527072742502834
+  - _No text content captured._
+- [05:00 UTC - Truth Social post 114527069970577756](114527069970577756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527069970577756
+  - _No text content captured._
+- [04:59 UTC - Truth Social post 114527068891741243](114527068891741243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114527068891741243
+  - _No text content captured._
+- [04:23 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) From first arrest to its ruling, it took ...](114526928150101315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114526928150101315
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) From first arrest to its ruling, it took the Supreme Court over 30,000 hours to provide relief to January 6th defendants persecuted...
+- [02:35 UTC - [https:// truthsocial.com/users/GarnMar/ statuses/114519026629386640](https://truthsocial....](114526502663535595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114526502663535595
+  - [https:// truthsocial.com/users/GarnMar/ statuses/114519026629386640](https://truthsocial.com/users/GarnMar/statuses/114519026629386640)
+- [02:32 UTC - [https:// truthsocial.com/@FDRLST/114518 120774183597](https://truthsocial.com/@FDRLST/114...](114526489198473241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114526489198473241
+  - [https:// truthsocial.com/@FDRLST/114518 120774183597](https://truthsocial.com/@FDRLST/114518120774183597)
+- [02:29 UTC - Why doesn’t Chairman Bob Iger do something about ABC Fake News, especially since I just wo...](114526479593964662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114526479593964662
+  - Why doesn’t Chairman Bob Iger do something about ABC Fake News, especially since I just won $16,000,000 based on the Fake and Defamatory reporting of Liddle’ George Slopadopolus. H...

@@ -1,0 +1,100 @@
+# TruthSocial / RealDonaldTrump / 2025-05-08
+
+- Posts: 32
+
+- [23:17 UTC - Ed Martin has done an AMAZING job as interim U.S. Attorney, and will be moving to the Depa...](114474760680232575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474760680232575
+  - Ed Martin has done an AMAZING job as interim U.S. Attorney, and will be moving to the Department of Justice as the new Director of the Weaponization Working Group, Associate Deputy...
+- [22:32 UTC - I am pleased to announce that Judge Jeanine Pirro will be appointed interim United States ...](114474584669905764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474584669905764
+  - I am pleased to announce that Judge Jeanine Pirro will be appointed interim United States Attorney for the District of Columbia. Jeanine was Assistant District Attorney for Westche...
+- [22:03 UTC - Chairman Jason Simmons is doing a tremendous job leading the North Carolina Republican Par...](114474472707126728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474472707126728
+  - Chairman Jason Simmons is doing a tremendous job leading the North Carolina Republican Party! Jason has been with us from the very beginning, and has been key to our many Republica...
+- [22:03 UTC - Chairman Josh McKoon is doing a fantastic job leading the Republican Party of Georgia, a S...](114474472453521323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474472453521323
+  - Chairman Josh McKoon is doing a fantastic job leading the Republican Party of Georgia, a State I LOVE, and WON BIG, in 2024! Josh is 100% MAGA, and I know he will continue to do a...
+- [22:03 UTC - Chair Julianne Murray is doing a tremendous job leading the Delaware Republican Party. Jul...](114474471365155157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474471365155157
+  - Chair Julianne Murray is doing a tremendous job leading the Delaware Republican Party. Julianne is MAGA all the way, and has worked tirelessly to Secure our Elections, and Champion...
+- [22:03 UTC - Republicans in Utah have the opportunity to Re-Elect a FANTASTIC Chairman! Robert Axson ha...](114474470666888173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474470666888173
+  - Republicans in Utah have the opportunity to Re-Elect a FANTASTIC Chairman! Robert Axson has dedicated his life to the Republican Party, and the Great State of Utah. He is Strongly...
+- [22:03 UTC - Congressman Ryan Mackenzie is an America First Patriot, who is doing an incredible job rep...](114474470016240455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474470016240455
+  - Congressman Ryan Mackenzie is an America First Patriot, who is doing an incredible job representing the Great People of Pennsylvania’s 7th Congressional District! In Congress, Ryan...
+- [22:03 UTC - Congressman Tom Kean is a Great Representative for the People of New Jersey’s 7th Congress...](114474469364898946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474469364898946
+  - Congressman Tom Kean is a Great Representative for the People of New Jersey’s 7th Congressional District! A Tremendous Advocate of our America First Agenda, Tom is working tireless...
+- [22:02 UTC - Congressman Tom Barrett is an incredible Representative for the Wonderful People of Michig...](114474468725706522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474468725706522
+  - Congressman Tom Barrett is an incredible Representative for the Wonderful People of Michigan's 7th Congressional District! Tom bravely served our Country as an Army Helicopter Pilo...
+- [22:02 UTC - Congressman Rob Bresnahan is a terrific Representative of Pennsylvania’s 8th Congressional...](114474468098464790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474468098464790
+  - Congressman Rob Bresnahan is a terrific Representative of Pennsylvania’s 8th Congressional District! A Highly Successful Businessman, Rob is working hard to Create Jobs, Cut Taxes,...
+- [22:02 UTC - Congressman Nick Begich is doing an incredible job representing the Great People of Alaska...](114474467319531911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474467319531911
+  - Congressman Nick Begich is doing an incredible job representing the Great People of Alaska, a State I love, and WON BIG THREE TIMES, in 2016, 2020, and 2024! A very successful Busi...
+- [22:02 UTC - Congresswoman Jen Kiggans is a Tremendous Advocate for the Great People of Virginia’s 2nd ...](114474466584246331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474466584246331
+  - Congresswoman Jen Kiggans is a Tremendous Advocate for the Great People of Virginia’s 2nd Congressional District! A former Navy helicopter pilot, Jen knows how to Defend our Countr...
+- [22:01 UTC - Congressman Zach Nunn is a fantastic Representative for the Great People of Iowa’s 3rd Con...](114474465286880800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474465286880800
+  - Congressman Zach Nunn is a fantastic Representative for the Great People of Iowa’s 3rd Congressional District! A Brave Combat Veteran, Zach is fighting hard to Grow our Economy, Cu...
+- [22:01 UTC - Congressman Mike Bost is a Tremendous Champion for Illinois’ 12th Congressional District! ...](114474464809294039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474464809294039
+  - Congressman Mike Bost is a Tremendous Champion for Illinois’ 12th Congressional District! A U.S. Marine Corps Veteran, and Chairman of the House Veterans' Affairs Committee, Mike i...
+- [21:49 UTC - The Deal I made today with the United Kingdom is GREAT for our FARMERS and RANCHERS! It’s ...](114474417554010988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474417554010988
+  - The Deal I made today with the United Kingdom is GREAT for our FARMERS and RANCHERS! It’s also wonderful for the United Kingdom. Everybody benefits, that’s the way it should be!
+- [20:38 UTC - Talks with Russia/Ukraine continue. The U.S. calls for, ideally, a 30-day unconditional ce...](114474136794655068/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474136794655068
+  - Talks with Russia/Ukraine continue. The U.S. calls for, ideally, a 30-day unconditional ceasefire. Hopefully, an acceptable ceasefire will be observed, and both Countries will be h...
+- [20:38 UTC - I have spoken with my wonderful Secretary of Commerce, Howard Lutnick, and we agree that t...](114474136573150113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114474136573150113
+  - I have spoken with my wonderful Secretary of Commerce, Howard Lutnick, and we agree that the Biden/Harris so-called “Digital Equity Act” is totally UNCONSTITUTIONAL. No more woke h...
+- [20:02 UTC - Truth Social post 114473996866988590](114473996866988590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114473996866988590
+  - _No text content captured._
+- [17:25 UTC - Congratulations to Cardinal Robert Francis Prevost, who was just named Pope. It is such an...](114473380014194441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114473380014194441
+  - Congratulations to Cardinal Robert Francis Prevost, who was just named Pope. It is such an honor to realize that he is the first American Pope. What excitement, and what a Great Ho...
+- [15:33 UTC - Truth Social post 114472936678241638](114472936678241638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472936678241638
+  - _No text content captured._
+- [15:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114472814702179777](114472881476812761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472881476812761
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114472814702179777
+- [15:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114472802068018414](114472878202272119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472878202272119
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114472802068018414
+- [15:02 UTC - Truth Social post 114472814702179777](114472814702179777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472814702179777
+  - _No text content captured._
+- [14:59 UTC - Today is an incredible day for America as we deliver our first Fair, Open, and Reciprocal ...](114472802068018414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472802068018414
+  - Today is an incredible day for America as we deliver our first Fair, Open, and Reciprocal Trade Deal — Something our past Presidents never cared about. Together with our strong All...
+- [13:00 UTC - Truth Social post 114472335378841654](114472335378841654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114472335378841654
+  - _No text content captured._
+- [10:38 UTC - Air Traffic problems caused by the incompetent Biden Administration, as headed by, in this...](114471776222344399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114471776222344399
+  - Air Traffic problems caused by the incompetent Biden Administration, as headed by, in this case, a total novice and political hack, Pete B. I WILL FIX IT!!!
+- [10:31 UTC - “Too Late” Jerome Powell is a FOOL, who doesn’t have a clue. Other than that, I like him v...](114471750357100883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114471750357100883
+  - “Too Late” Jerome Powell is a FOOL, who doesn’t have a clue. Other than that, I like him very much! Oil and Energy way down, almost all costs (groceries and “eggs”) down, virtually...
+- [10:15 UTC - The Golden Age of America is coming!](114471687266303772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114471687266303772
+  - The Golden Age of America is coming!
+- [10:08 UTC - The agreement with the United Kingdom is a full and comprehensive one that will cement the...](114471661029075259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114471661029075259
+  - The agreement with the United Kingdom is a full and comprehensive one that will cement the relationship between the United States and the United Kingdom for many years to come. Bec...
+- [09:42 UTC - This should be a very big and exciting day for the United States of America and the United...](114471558043712137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114471558043712137
+  - This should be a very big and exciting day for the United States of America and the United Kingdom. Press Conference at The Oval Office, 10A.M. Thank you!
+- [01:11 UTC - RT [@ KarliBonne](https://truthsocial.com/@KarliBonne) Excellent interview of Scott Bessen...](114469549628854715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114469549628854715
+  - RT [@ KarliBonne](https://truthsocial.com/@KarliBonne) Excellent interview of Scott Bessent
+- [00:56 UTC - Big News Conference tomorrow morning at 10:00 A.M., The Oval Office, concerning a MAJOR TR...](114469488580251681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114469488580251681
+  - Big News Conference tomorrow morning at 10:00 A.M., The Oval Office, concerning a MAJOR TRADE DEAL WITH REPRESENTATIVES OF A BIG, AND HIGHLY RESPECTED, COUNTRY. THE FIRST OF MANY!!...

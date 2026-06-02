@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2025-05-14
+
+- Posts: 30
+
+- [22:11 UTC - Truth Social post 114508477068192968](114508477068192968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114508477068192968
+  - _No text content captured._
+- [19:27 UTC - [https:// youtu.be/4HIhHFUCTGY](https://youtu.be/4HIhHFUCTGY)](114507832055672743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114507832055672743
+  - [https:// youtu.be/4HIhHFUCTGY](https://youtu.be/4HIhHFUCTGY)
+- [17:43 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) “The gleaming marbles of Riyadh and...](114507421112399589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114507421112399589
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) “The gleaming marbles of Riyadh and Abu Dhabi were not created by the so-called nation builders, neocons, or liberal nonprofi...
+- [15:17 UTC - [https://www. prnewswire.com/news-releases/h erring-networks-announces-multi-year-content-...](114506847485218076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114506847485218076
+  - [https://www. prnewswire.com/news-releases/h erring-networks-announces-multi-year-content-carriage-agreement-with-spectrum-302454759.html](https://www.prnewswire.com/news-releases/...
+- [14:17 UTC - Truth Social post 114506611198056196](114506611198056196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114506611198056196
+  - _No text content captured._
+- [14:16 UTC - Truth Social post 114506610159384891](114506610159384891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114506610159384891
+  - _No text content captured._
+- [10:28 UTC - THANK YOU!](114505713846110268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505713846110268
+  - THANK YOU!
+- [10:02 UTC - Truth Social post 114505610326124408](114505610326124408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505610326124408
+  - _No text content captured._
+- [08:55 UTC - Truth Social post 114505347997314692](114505347997314692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505347997314692
+  - _No text content captured._
+- [08:41 UTC - Truth Social post 114505293247355035](114505293247355035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505293247355035
+  - _No text content captured._
+- [07:44 UTC - Truth Social post 114505066090166168](114505066090166168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505066090166168
+  - _No text content captured._
+- [07:43 UTC - Truth Social post 114505062153932061](114505062153932061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114505062153932061
+  - _No text content captured._
+- [04:02 UTC - [https:// truthsocial.com/users/LinzySpa ce/statuses/114503251861454676](https://truthsoci...](114504194445893649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504194445893649
+  - [https:// truthsocial.com/users/LinzySpa ce/statuses/114503251861454676](https://truthsocial.com/users/LinzySpace/statuses/114503251861454676)
+- [04:01 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114503298872306004](https://tr...](114504192318175477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504192318175477
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114503298872306004](https://truthsocial.com/users/IStandWithTrump47/statuses/114503298872306004)
+- [04:01 UTC - RT [@ lauramarks](https://truthsocial.com/@lauramarks)](114504189859614790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504189859614790
+  - RT [@ lauramarks](https://truthsocial.com/@lauramarks)
+- [04:01 UTC - RT [@ SpiritualStreetfighter](https://truthsocial.com/@SpiritualStreetfighter)](114504188782168236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504188782168236
+  - RT [@ SpiritualStreetfighter](https://truthsocial.com/@SpiritualStreetfighter)
+- [03:59 UTC - RT [@ FLPatriot2627](https://truthsocial.com/@FLPatriot2627) To everyone complaining about...](114504181582376161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504181582376161
+  - RT [@ FLPatriot2627](https://truthsocial.com/@FLPatriot2627) To everyone complaining about this gift: How about the Resolute Desk aka Hayes Desk that was gifted to President Hayes...
+- [03:58 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) You are absolutely ri...](114504178725559243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504178725559243
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) You are absolutely right Sir! The Media and the left never have a problem with America giving billions of taxpa...
+- [03:58 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) The American people a...](114504177179345854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504177179345854
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) The American people are winning every day! [# MAGA](https://truthsocial.com/tags/MAGA) [# AmericaFirst](https:/...
+- [03:57 UTC - RT [@ akaPR0B0SS](https://truthsocial.com/@akaPR0B0SS)](114504174243659747/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504174243659747
+  - RT [@ akaPR0B0SS](https://truthsocial.com/@akaPR0B0SS)
+- [03:56 UTC - RT [@ marcgriff89](https://truthsocial.com/@marcgriff89)](114504170261542788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504170261542788
+  - RT [@ marcgriff89](https://truthsocial.com/@marcgriff89)
+- [03:56 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) Thank you Sir!!! [# M...](114504169401516645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504169401516645
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) Thank you Sir!!! [# MAGA](https://truthsocial.com/tags/MAGA) [# Truth](https://truthsocial.com/tags/Truth) [# A...
+- [03:55 UTC - RT [@ SunnyNguyen](https://truthsocial.com/@SunnyNguyen)](114504167369183632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504167369183632
+  - RT [@ SunnyNguyen](https://truthsocial.com/@SunnyNguyen)
+- [03:54 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)](114504163738655736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504163738655736
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)
+- [03:54 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)](114504162802866612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504162802866612
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)
+- [03:54 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) We love you Sir!!! [#...](114504162128518905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504162128518905
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) We love you Sir!!! [# Truth](https://truthsocial.com/tags/Truth) [# MAGA](https://truthsocial.com/tags/MAGA) [#...
+- [03:53 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) I’m so proud of my Pr...](114504159947585102/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504159947585102
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) I’m so proud of my President!!! [# Truth](https://truthsocial.com/tags/Truth) [# MAGA](https://truthsocial.com/...
+- [03:53 UTC - RT: https://truthsocial.com/users/IStandWithTrump47/statuses/114503282584841270 Thank You!](114504157743692924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504157743692924
+  - RT: https://truthsocial.com/users/IStandWithTrump47/statuses/114503282584841270 Thank You!
+- [03:17 UTC - Truth Social post 114504017884339111](114504017884339111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504017884339111
+  - _No text content captured._
+- [03:13 UTC - Truth Social post 114504000052793108](114504000052793108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114504000052793108
+  - _No text content captured._

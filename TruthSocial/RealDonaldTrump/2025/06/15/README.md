@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-06-15
 
-- Posts: 7
+- Posts: 8
 
 - [13:41 UTC - Iran and Israel should make a deal, and will make a deal, just like I got India and Pakist...](114687664442020232/)
   - Source: https://truthsocial.com/@realDonaldTrump/114687664442020232
@@ -10,6 +10,9 @@
   - _No text content captured._
 - [04:44 UTC - Truth Social post 114685552552732104](114685552552732104/)
   - Source: https://truthsocial.com/@realDonaldTrump/114685552552732104
+  - _No text content captured._
+- [04:35 UTC - Truth Social post 114685517605355045](114685517605355045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114685517605355045
   - _No text content captured._
 - [04:32 UTC - The U.S. had nothing to do with the attack on Iran, tonight. If we are attacked in any way...](114685507052179501/)
   - Source: https://truthsocial.com/@realDonaldTrump/114685507052179501

@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-05-16
+
+- Posts: 24
+
+- [23:05 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/05/peace-officers-memorial-day-and...](114520015165633741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114520015165633741
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/05/peace-officers-memorial-day-and-police-week-2025/](https://www.whitehouse.gov/presidential-actions/2025/05/peace-officers...
+- [22:55 UTC - It’s a pretty grueling schedule, people say how the hell do you do it…Genetics!](114519975763098371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519975763098371
+  - It’s a pretty grueling schedule, people say how the hell do you do it…Genetics!
+- [22:53 UTC - Air Force One is 42 years old—The plane is not for me, it goes to the United States Air Fo...](114519965289784767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519965289784767
+  - Air Force One is 42 years old—The plane is not for me, it goes to the United States Air Force, for whoever is president…
+- [22:49 UTC - Ending the sanctions on Syria…](114519952063614449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519952063614449
+  - Ending the sanctions on Syria…
+- [22:46 UTC - There has never been a trip like this by any President…](114519940139500510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519940139500510
+  - There has never been a trip like this by any President…
+- [22:45 UTC - I’ve always considered the Middle East to be a very important region…](114519933006186542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519933006186542
+  - I’ve always considered the Middle East to be a very important region…
+- [21:59 UTC - The Supreme Court has just ruled that the worst murderers, drug dealers, gang members, and...](114519753109701350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519753109701350
+  - The Supreme Court has just ruled that the worst murderers, drug dealers, gang members, and even those who are mentally insane, who came into our Country illegally, are not allowed...
+- [21:12 UTC - THE SUPREME COURT WON’T ALLOW US TO GET CRIMINALS OUT OF OUR COUNTRY!](114519567610751944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519567610751944
+  - THE SUPREME COURT WON’T ALLOW US TO GET CRIMINALS OUT OF OUR COUNTRY!
+- [19:27 UTC - Senator Markwayne Mullin is doing a tremendous job representing the wonderful People of th...](114519155449905842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519155449905842
+  - Senator Markwayne Mullin is doing a tremendous job representing the wonderful People of the Great State of Oklahoma, where I was the only person to win all 77 out of 77 Counties (R...
+- [19:15 UTC - Truth Social post 114519109371060351](114519109371060351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114519109371060351
+  - _No text content captured._
+- [16:24 UTC - Truth Social post 114518436239928350](114518436239928350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114518436239928350
+  - _No text content captured._
+- [15:02 UTC - Senator Shelley Moore Capito is doing a tremendous job representing the Wonderful People o...](114518115625400272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114518115625400272
+  - Senator Shelley Moore Capito is doing a tremendous job representing the Wonderful People of West Virginia, a State I love and WON BIG in 2016, 2020, and 2024! As the Chair of the S...
+- [14:07 UTC - Republicans MUST UNITE behind, “THE ONE, BIG BEAUTIFUL BILL!” Not only does it cut Taxes f...](114517897638237566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114517897638237566
+  - Republicans MUST UNITE behind, “THE ONE, BIG BEAUTIFUL BILL!” Not only does it cut Taxes for ALL Americans, but it will kick millions of Illegal Aliens off of Medicaid to PROTECT i...
+- [14:07 UTC - I see that Highly Overrated Bruce Springsteen goes to a Foreign Country to speak badly abo...](114517896576879203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114517896576879203
+  - I see that Highly Overrated Bruce Springsteen goes to a Foreign Country to speak badly about the President of the United States. Never liked him, never liked his music, or his Radi...
+- [13:35 UTC - THE SUPREME COURT IS BEING PLAYED BY THE RADICAL LEFT LOSERS, WHO HAVE NO SUPPORT, THE PUB...](114517773720445162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114517773720445162
+  - THE SUPREME COURT IS BEING PLAYED BY THE RADICAL LEFT LOSERS, WHO HAVE NO SUPPORT, THE PUBLIC HATES THEM, AND THEIR ONLY HOPE IS THE INTIMIDATION OF THE COURT, ITSELF. WE CAN’T LET...
+- [13:21 UTC - Has anyone noticed that, since I said “I HATE TAYLOR SWIFT,” she’s no longer “HOT?”](114517718765768352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114517718765768352
+  - Has anyone noticed that, since I said “I HATE TAYLOR SWIFT,” she’s no longer “HOT?”
+- [10:06 UTC - Truth Social post 114516950857800746](114516950857800746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516950857800746
+  - _No text content captured._
+- [10:06 UTC - Truth Social post 114516949850486061](114516949850486061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516949850486061
+  - _No text content captured._
+- [10:06 UTC - Truth Social post 114516948832938418](114516948832938418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516948832938418
+  - _No text content captured._
+- [08:38 UTC - “The president has traveled to Saudi Arabia, Qatar, and the United Arab Emirates so far th...](114516603030095775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516603030095775
+  - “The president has traveled to Saudi Arabia, Qatar, and the United Arab Emirates so far this week to sign agreements and receive commitments that will generate roughly $2 trillion...
+- [08:36 UTC - Truth Social post 114516597454580457](114516597454580457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516597454580457
+  - _No text content captured._
+- [08:36 UTC - Truth Social post 114516596261120299](114516596261120299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516596261120299
+  - _No text content captured._
+- [08:34 UTC - Truth Social post 114516588885812991](114516588885812991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114516588885812991
+  - _No text content captured._
+- [04:26 UTC - The Radical Left SleazeBags, which has no cards remaining in its illegal bag of tricks, is...](114515613065520300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114515613065520300
+  - The Radical Left SleazeBags, which has no cards remaining in its illegal bag of tricks, is, in a very coordinated manner, PLAYING THE REF with regard to the United States Supreme C...

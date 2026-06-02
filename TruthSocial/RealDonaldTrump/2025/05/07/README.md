@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-05-07
+
+- Posts: 12
+
+- [21:49 UTC - We are making great progress on “The One, Big, Beautiful Bill.” Our Economy is doing well,...](114468755257430424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114468755257430424
+  - We are making great progress on “The One, Big, Beautiful Bill.” Our Economy is doing well, but it’s going to BOOM in a way never seen before. We are going to do NO TAX ON TIPS, NO...
+- [20:45 UTC - I am pleased to announce that Dr. Casey Means, will be nominated as our next Surgeon Gener...](114468502752133916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114468502752133916
+  - I am pleased to announce that Dr. Casey Means, will be nominated as our next Surgeon General of the United States of America. Casey has impeccable “MAHA” credentials, and will work...
+- [19:51 UTC - “Largest Fentanyl Bust in DEA History: Authorities Seize Over 400 Kilograms of Fentanyl in...](114468288296746153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114468288296746153
+  - “Largest Fentanyl Bust in DEA History: Authorities Seize Over 400 Kilograms of Fentanyl in Record-Shattering Operation” [https://www. justice.gov/opa/pr/largest-fen tanyl-bust-dea-...
+- [19:43 UTC - Congratulations to our new Ambassador to China, David Perdue!](114468257803426979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114468257803426979
+  - Congratulations to our new Ambassador to China, David Perdue!
+- [19:22 UTC - I am pleased to announce that I’ve just signed a Proclamation officially designating tomor...](114468174830884590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114468174830884590
+  - I am pleased to announce that I’ve just signed a Proclamation officially designating tomorrow, May 8th as VICTORY DAY FOR WORLD WAR II… Proclamation: [https://www. whitehouse.gov/p...
+- [13:49 UTC - Our Court System is not letting me do the job I was Elected to do. Activist judges must le...](114466868060900843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114466868060900843
+  - Our Court System is not letting me do the job I was Elected to do. Activist judges must let the Trump Administration deport murderers, and other criminals who have come into our Co...
+- [13:37 UTC - The Election Interfering 60 Minutes interview with Kamala Harris, which aired on CBS just ...](114466820318104255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114466820318104255
+  - The Election Interfering 60 Minutes interview with Kamala Harris, which aired on CBS just before Election Day and deep into Early Voting, turned out to be much worse than expected,...
+- [13:37 UTC - [https:// justthenews.com/accountability /political-ethics/declassified-biden-admin-domest...](114466819515283308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114466819515283308
+  - [https:// justthenews.com/accountability /political-ethics/declassified-biden-admin-domestic-terror-memo-authorized-agencies](https://justthenews.com/accountability/political-ethic...
+- [13:34 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](114466805614183937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114466805614183937
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [13:33 UTC - Lawrence Jones is doing a great job on Fox & Friends!](114466802601303034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114466802601303034
+  - Lawrence Jones is doing a great job on Fox & Friends!
+- [02:32 UTC - Today, it was my Great Honor to host the first meeting of the White House FIFA Task Force....](114464206114299371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114464206114299371
+  - Today, it was my Great Honor to host the first meeting of the White House FIFA Task Force. Starting this June, the United States will host the 2025 Club World Cup—and next summer,...
+- [00:04 UTC - Congressman Mike Lawler is a Strong Champion, and Highly Effective Representative, for the...](114463623151906341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114463623151906341
+  - Congressman Mike Lawler is a Strong Champion, and Highly Effective Representative, for the Great People of New York’s 17th Congressional District! A true America First Patriot, Mik...

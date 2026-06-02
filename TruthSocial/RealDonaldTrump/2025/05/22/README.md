@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-05-22
+
+- Posts: 13
+
+- [22:50 UTC - [https://www. whitehouse.gov/maha/](https://www.whitehouse.gov/maha/)](114553929683360096/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553929683360096
+  - [https://www. whitehouse.gov/maha/](https://www.whitehouse.gov/maha/)
+- [22:36 UTC - I am pleased to announce that Bernie Navarro will serve as the next Ambassador to the Repu...](114553874373379109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553874373379109
+  - I am pleased to announce that Bernie Navarro will serve as the next Ambassador to the Republic of Peru. Bernie is a Highly Respected Leader in Real Estate Finance and Economic Reco...
+- [21:20 UTC - Heading to the Crypto Dinner in Loudon County, Virginia, in a little while. The U.S.A. is ...](114553573338999017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553573338999017
+  - Heading to the Crypto Dinner in Loudon County, Virginia, in a little while. The U.S.A. is DOMINATING in Crypto, Bitcoin, etc., and we are going to keep it that way!
+- [21:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114553525876179959](114553570160678463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553570160678463
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114553525876179959
+- [21:08 UTC - [https:// rumble.com/v6tqhsl-president-t rump-participates-in-a-maha-commission-event.html...](114553525876179959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553525876179959
+  - [https:// rumble.com/v6tqhsl-president-t rump-participates-in-a-maha-commission-event.html](https://rumble.com/v6tqhsl-president-trump-participates-in-a-maha-commission-event.html)
+- [19:53 UTC - Truth Social post 114553234366388839](114553234366388839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114553234366388839
+  - _No text content captured._
+- [18:28 UTC - Another very big and successful week of WINS for Republicans in Florida, a State that I lo...](114552899639158114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114552899639158114
+  - Another very big and successful week of WINS for Republicans in Florida, a State that I love, and WON BIG, in 2016, 2020, and 2024. The Republican Party of Florida’s Voter Registra...
+- [18:18 UTC - Truth Social post 114552860040026358](114552860040026358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114552860040026358
+  - _No text content captured._
+- [17:33 UTC - A Federal Judge in Boston, who knew absolutely nothing about the situation, or anything el...](114552682280589564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114552682280589564
+  - A Federal Judge in Boston, who knew absolutely nothing about the situation, or anything else, has ordered that EIGHT of the most violent criminals on Earth curtail their journey to...
+- [15:36 UTC - Truth Social post 114552220231159259](114552220231159259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114552220231159259
+  - _No text content captured._
+- [12:23 UTC - “THE ONE, BIG, BEAUTIFUL BILL” has PASSED the House of Representatives! This is arguably t...](114551462787614405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114551462787614405
+  - “THE ONE, BIG, BEAUTIFUL BILL” has PASSED the House of Representatives! This is arguably the most significant piece of Legislation that will ever be signed in the History of our Co...
+- [04:13 UTC - [https:// truthsocial.com/@Townhall/1145 49287766851197](https://truthsocial.com/@Townhall...](114549534308869892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114549534308869892
+  - [https:// truthsocial.com/@Townhall/1145 49287766851197](https://truthsocial.com/@Townhall/114549287766851197)
+- [04:11 UTC - These horrible D.C. killings, based obviously on antisemitism, must end, NOW! Hatred and R...](114549529250052858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114549529250052858
+  - These horrible D.C. killings, based obviously on antisemitism, must end, NOW! Hatred and Radicalism have no place in the USA. Condolences to the families of the victims. So sad tha...

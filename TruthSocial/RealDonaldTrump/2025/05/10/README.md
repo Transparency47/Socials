@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-05-10
+
+- Posts: 15
+
+- [23:12 UTC - A very good meeting today with China, in Switzerland. Many things discussed, much agreed t...](114486066663976973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114486066663976973
+  - A very good meeting today with China, in Switzerland. Many things discussed, much agreed to. A total reset negotiated in a friendly, but constructive, manner. We want to see, for t...
+- [15:39 UTC - Truth Social post 114484287016632770](114484287016632770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484287016632770
+  - _No text content captured._
+- [15:36 UTC - [https:// nypost.com/2025/03/16/opinion/ the-global-wind-power-industry-is-losing-steam/](...](114484274140266113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484274140266113
+  - [https:// nypost.com/2025/03/16/opinion/ the-global-wind-power-industry-is-losing-steam/](https://nypost.com/2025/03/16/opinion/the-global-wind-power-industry-is-losing-steam/)
+- [15:36 UTC - “From [# MeToo](https://truthsocial.com/tags/MeToo) Crusader to Cover-up: Letitia James’s ...](114484272669802796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484272669802796
+  - “From [# MeToo](https://truthsocial.com/tags/MeToo) Crusader to Cover-up: Letitia James’s Silence on Alleged Serial Predator Ibrahim Khan” [https:// artvoice.com/2025/04/20/from-m...
+- [15:35 UTC - “Trump's Three Steps to Economic Growth”](114484269924159482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484269924159482
+  - “Trump's Three Steps to Economic Growth”
+- [15:34 UTC - Scott Jennings is a Patriot from the Great State of Kentucky, and has a terrific book comi...](114484265663388527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484265663388527
+  - Scott Jennings is a Patriot from the Great State of Kentucky, and has a terrific book coming out called, “A Revolution of Common Sense.” The book was directly inspired by my Inaugu...
+- [15:23 UTC - Truth Social post 114484223924777989](114484223924777989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484223924777989
+  - _No text content captured._
+- [15:23 UTC - Truth Social post 114484222091678072](114484222091678072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484222091678072
+  - _No text content captured._
+- [15:23 UTC - Truth Social post 114484221422101099](114484221422101099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484221422101099
+  - _No text content captured._
+- [15:22 UTC - Truth Social post 114484220547657096](114484220547657096/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484220547657096
+  - _No text content captured._
+- [15:22 UTC - Truth Social post 114484219683544206](114484219683544206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484219683544206
+  - _No text content captured._
+- [15:22 UTC - Truth Social post 114484219033474276](114484219033474276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114484219033474276
+  - _No text content captured._
+- [11:55 UTC - After a long night of talks mediated by the United States, I am pleased to announce that I...](114483405683675564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114483405683675564
+  - After a long night of talks mediated by the United States, I am pleased to announce that India and Pakistan have agreed to a FULL AND IMMEDIATE CEASEFIRE. Congratulations to both C...
+- [02:19 UTC - [https://www. whitehouse.gov/articles/2025/0 5/week-16-wins-president-trump-advances-ameri...](114481138852149052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114481138852149052
+  - [https://www. whitehouse.gov/articles/2025/0 5/week-16-wins-president-trump-advances-americas-new-golden-age/](https://www.whitehouse.gov/articles/2025/05/week-16-wins-president-tr...
+- [01:02 UTC - Today, I signed an Executive Order to launch the first-ever self-deportation program. Ille...](114480839195032975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480839195032975
+  - Today, I signed an Executive Order to launch the first-ever self-deportation program. Illegal aliens who stay in America face punishments, including—sudden deportation, in a place...

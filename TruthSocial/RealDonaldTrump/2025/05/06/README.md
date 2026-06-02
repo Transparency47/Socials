@@ -1,0 +1,115 @@
+# TruthSocial / RealDonaldTrump / 2025-05-06
+
+- Posts: 37
+
+- [23:56 UTC - I am pleased to announce that the Board of the Holocaust Memorial Council has been complet...](114463589898854957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114463589898854957
+  - I am pleased to announce that the Board of the Holocaust Memorial Council has been completely formed: Siggy Flicker, Tila Falic, Jackie Zeckman, Rabbi Nate Segal, Jonathan Burkan,...
+- [22:53 UTC - It was a great honor welcoming Prime Minister Mark Carney to the White House today. [https...](114463344803228045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114463344803228045
+  - It was a great honor welcoming Prime Minister Mark Carney to the White House today. [https:// youtu.be/f_ggYP-VO2s](https://youtu.be/f_ggYP-VO2s)
+- [22:44 UTC - Bruce Blakeman of New York is doing an incredible job as Nassau County Executive! Bruce is...](114463309556144556/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114463309556144556
+  - Bruce Blakeman of New York is doing an incredible job as Nassau County Executive! Bruce is MAGA all the way, and has been with us from the very beginning. He is working hard to Gro...
+- [22:07 UTC - Truth Social post 114463162316283635](114463162316283635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114463162316283635
+  - _No text content captured._
+- [20:53 UTC - I am proud to nominate Edward Aloysius O’Connell to serve as Associate Judge on the Superi...](114462869802626948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462869802626948
+  - I am proud to nominate Edward Aloysius O’Connell to serve as Associate Judge on the Superior Court of the District of Columbia. Eddie will help fix Violent Crime in the City by res...
+- [20:53 UTC - I am pleased to nominate Cristian Stevens, a Great Patriot, to serve on the United States ...](114462869560496665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462869560496665
+  - I am pleased to nominate Cristian Stevens, a Great Patriot, to serve on the United States District Court for the Eastern District of Missouri. Cristian is currently a Judge on the...
+- [20:52 UTC - I am honored to nominate Maria Lanahan to serve as Judge on the United States District Cou...](114462868808829711/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462868808829711
+  - I am honored to nominate Maria Lanahan to serve as Judge on the United States District Court for the Eastern District of Missouri. Maria is a true Patriot, who currently serves as...
+- [20:52 UTC - I am proud to announce my nomination of Zachary Bluestone to serve as Judge on the United ...](114462868084205660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462868084205660
+  - I am proud to announce my nomination of Zachary Bluestone to serve as Judge on the United States District Court for the Eastern District of Missouri. Zack is a True Legal Warrior....
+- [20:52 UTC - It is my honor to nominate Joshua Divine to serve as Judge on the United States District C...](114462867354665095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462867354665095
+  - It is my honor to nominate Joshua Divine to serve as Judge on the United States District Court for the Eastern and Western Districts of Missouri. Joshua has devoutly served the Gre...
+- [19:33 UTC - “Supreme Court Lets Trump's Ban on Transgender Military Service Take Effect”](114462557388994627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462557388994627
+  - “Supreme Court Lets Trump's Ban on Transgender Military Service Take Effect”
+- [19:22 UTC - I am proud to announce the appointment of Andrew Giuliani as the Executive Director of the...](114462513304037389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462513304037389
+  - I am proud to announce the appointment of Andrew Giuliani as the Executive Director of the President’s Task Force on the 2026 FIFA World Cup. During my First Term, Andrew served as...
+- [19:07 UTC - Truth Social post 114462454822875656](114462454822875656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462454822875656
+  - _No text content captured._
+- [18:55 UTC - “𝗔𝗺𝗲𝗿𝗶𝗰𝗮𝗻 𝗠𝗮𝗻𝘂𝗳𝗮𝗰𝘁𝘂𝗿𝗲𝗿𝘀 𝗢𝘃𝗲𝗿𝘄𝗵𝗲𝗹𝗺𝗲𝗱 𝗪𝗶𝘁𝗵 𝗢𝗿𝗱𝗲𝗿𝘀 𝗔𝗳𝘁𝗲𝗿 𝗧𝗿𝘂𝗺𝗽’𝘀 𝗧𝗮𝗿𝗶𝗳𝗳 𝗖𝗿𝗮𝗰𝗸𝗱𝗼𝘄𝗻 𝗢𝗻 𝗖𝗵𝗶𝗻𝗮” “...](114462406492811838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462406492811838
+  - “𝗔𝗺𝗲𝗿𝗶𝗰𝗮𝗻 𝗠𝗮𝗻𝘂𝗳𝗮𝗰𝘁𝘂𝗿𝗲𝗿𝘀 𝗢𝘃𝗲𝗿𝘄𝗵𝗲𝗹𝗺𝗲𝗱 𝗪𝗶𝘁𝗵 𝗢𝗿𝗱𝗲𝗿𝘀 𝗔𝗳𝘁𝗲𝗿 𝗧𝗿𝘂𝗺𝗽’𝘀 𝗧𝗮𝗿𝗶𝗳𝗳 𝗖𝗿𝗮𝗰𝗸𝗱𝗼𝘄𝗻 𝗢𝗻 𝗖𝗵𝗶𝗻𝗮” “American manufacturers are seeing a surge in demand as President Donald Trump’s tariffs fo...
+- [18:51 UTC - 𝐀 𝐁𝐈𝐆 𝐀𝐍𝐍𝐎𝐔𝐍𝐂𝐄𝐌𝐄𝐍𝐓—𝐂𝐎𝐌𝐈𝐍𝐆 𝐒𝐎𝐎𝐍!](114462392807560620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462392807560620
+  - 𝐀 𝐁𝐈𝐆 𝐀𝐍𝐍𝐎𝐔𝐍𝐂𝐄𝐌𝐄𝐍𝐓—𝐂𝐎𝐌𝐈𝐍𝐆 𝐒𝐎𝐎𝐍!
+- [18:46 UTC - Truth Social post 114462371665669906](114462371665669906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462371665669906
+  - _No text content captured._
+- [18:38 UTC - [https://www. youtube.com/live/KCplebZOivM?s i=l0C6gh9-loQpg2fd](https://www.youtube.com/l...](114462341518178427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462341518178427
+  - [https://www. youtube.com/live/KCplebZOivM?s i=l0C6gh9-loQpg2fd](https://www.youtube.com/live/KCplebZOivM?si=l0C6gh9-loQpg2fd)
+- [18:36 UTC - Charles Payne: "I was in Louisiana this year—you have all this natural gas and guess what?...](114462333132374383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114462333132374383
+  - Charles Payne: "I was in Louisiana this year—you have all this natural gas and guess what? You've got these large companies that are coming to Louisiana to build data centers... th...
+- [16:15 UTC - Truth Social post 114461777526115316](114461777526115316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461777526115316
+  - _No text content captured._
+- [15:42 UTC - Truth Social post 114461649037272103](114461649037272103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461649037272103
+  - _No text content captured._
+- [15:38 UTC - [https://www. rsbnetwork.com/news/president- trump-signs-order-unleashing-americas-law-enf...](114461631147338539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461631147338539
+  - [https://www. rsbnetwork.com/news/president- trump-signs-order-unleashing-americas-law-enforcement/](https://www.rsbnetwork.com/news/president-trump-signs-order-unleashing-americas...
+- [15:23 UTC - I look forward to meeting the new Prime Minister of Canada, Mark Carney. I very much want ...](114461575736468146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461575736468146
+  - I look forward to meeting the new Prime Minister of Canada, Mark Carney. I very much want to work with him, but cannot understand one simple TRUTH — Why is America subsidizing Cana...
+- [15:13 UTC - Truth Social post 114461534763760067](114461534763760067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461534763760067
+  - _No text content captured._
+- [15:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114458094742048024](114461531052000593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461531052000593
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114458094742048024
+- [15:11 UTC - Truth Social post 114461525035256725](114461525035256725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461525035256725
+  - _No text content captured._
+- [15:10 UTC - [https://www. washingtontimes.com/news/2025/ may/5/donald-trump-welcomes-ksenia-karelina-f...](114461520734645659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461520734645659
+  - [https://www. washingtontimes.com/news/2025/ may/5/donald-trump-welcomes-ksenia-karelina-freed-russian-american/](https://www.washingtontimes.com/news/2025/may/5/donald-trump-welco...
+- [14:32 UTC - [https:// thegreggjarrett.com/the-return -of-alcatraz-trump-orders-prison-to-reopen-for-mo...](114461375156219270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461375156219270
+  - [https:// thegreggjarrett.com/the-return -of-alcatraz-trump-orders-prison-to-reopen-for-most-dangerous-criminals/](https://thegreggjarrett.com/the-return-of-alcatraz-trump-orders-p...
+- [14:32 UTC - [https:// hannity.com/media-room/total-l owlifes-trump-unloads-on-whackjobs-trying-to-impe...](114461371514972104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461371514972104
+  - [https:// hannity.com/media-room/total-l owlifes-trump-unloads-on-whackjobs-trying-to-impeach-him-see-it/](https://hannity.com/media-room/total-lowlifes-trump-unloads-on-whackjobs-...
+- [14:22 UTC - Commerce Secretary, Howard Lutnick: “President Trump hasn’t just changed the way we think ...](114461333871544277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461333871544277
+  - Commerce Secretary, Howard Lutnick: “President Trump hasn’t just changed the way we think about trade; he’s also changed how our trading partners approach it. We’re about to see so...
+- [14:20 UTC - Eli Lilly CEO Dave Ricks: "We were at the White House last week to talk about, with other ...](114461327233567337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114461327233567337
+  - Eli Lilly CEO Dave Ricks: "We were at the White House last week to talk about, with other industries as well as many pharma companies, the expansion of manufacturing in the U.S. It...
+- [00:51 UTC - “𝐏𝐑𝐄𝐒𝐈𝐃𝐄𝐍𝐓 𝐓𝐑𝐔𝐌𝐏 𝐖𝐀𝐍𝐓𝐒 𝐓𝐎 𝐑𝐄𝐎𝐏𝐄𝐍 𝐀𝐋𝐂𝐀𝐓𝐑𝐀𝐙” Stephen Miller: "There are people in this count...](114458145511409310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458145511409310
+  - “𝐏𝐑𝐄𝐒𝐈𝐃𝐄𝐍𝐓 𝐓𝐑𝐔𝐌𝐏 𝐖𝐀𝐍𝐓𝐒 𝐓𝐎 𝐑𝐄𝐎𝐏𝐄𝐍 𝐀𝐋𝐂𝐀𝐓𝐑𝐀𝐙” Stephen Miller: "There are people in this country, as President Trump has said, who will do nothing with their lives but rape, maim, and...
+- [00:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114457309826756716](114458125209508949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458125209508949
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114457309826756716
+- [00:43 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114457309826756716](114458113751338139/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458113751338139
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114457309826756716
+- [00:40 UTC - Secretary Robert F. Kennedy Jr: “What we're cutting is waste, fraud, and abuse. We're stre...](114458100604424846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458100604424846
+  - Secretary Robert F. Kennedy Jr: “What we're cutting is waste, fraud, and abuse. We're streamlining an agency that grew by 38% in the 4 years that President Biden was in the White H...
+- [00:38 UTC - This afternoon I signed an Executive Order protecting Americans from dangerous gain-of-fun...](114458094742048024/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458094742048024
+  - This afternoon I signed an Executive Order protecting Americans from dangerous gain-of-function research. Read more here: [https://www. whitehouse.gov/presidential-ac tions/2025/05...
+- [00:20 UTC - I am pleased to announce the 2027 NFL Draft will take place here in the Nation’s Capital o...](114458023850536968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114458023850536968
+  - I am pleased to announce the 2027 NFL Draft will take place here in the Nation’s Capital on the National Mall…
+- [00:13 UTC - Ed Martin is going through the approval process to be U.S. Attorney in the District of Col...](114457993936599790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114457993936599790
+  - Ed Martin is going through the approval process to be U.S. Attorney in the District of Columbia. According to many but, in particular, Robert F. Kennedy, Jr., his approval is IMPER...
+- [00:12 UTC - Radical Left Colorado Attorney General Phil Weiser ignores Illegals committing Violent Cri...](114457992767716636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114457992767716636
+  - Radical Left Colorado Attorney General Phil Weiser ignores Illegals committing Violent Crimes like Rape and Murder in his State and, instead, jailed Tina Peters, a 69-year-old Gold...

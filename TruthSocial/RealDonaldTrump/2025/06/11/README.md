@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-06-11
+
+- Posts: 16
+
+- [23:27 UTC - [https:// trumpcard.gov](https://trumpcard.gov)](114667321433310931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114667321433310931
+  - [https:// trumpcard.gov](https://trumpcard.gov)
+- [21:44 UTC - I am more confident than ever that in the days ahead and every generation to come, the U.S...](114666915445156763/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114666915445156763
+  - I am more confident than ever that in the days ahead and every generation to come, the U.S. Army will heap glory upon glory. You will summon inexhaustible courage. You will protect...
+- [20:43 UTC - [https://www. whitehouse.gov/articles/2025/0 6/the-one-big-beautiful-bill-will-supercharge...](114666676606423907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114666676606423907
+  - [https://www. whitehouse.gov/articles/2025/0 6/the-one-big-beautiful-bill-will-supercharge-our-economy/](https://www.whitehouse.gov/articles/2025/06/the-one-big-beautiful-bill-will...
+- [20:43 UTC - [https://www. whitehouse.gov/articles/2025/0 6/under-president-trump-america-is-defeating-...](114666673849031709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114666673849031709
+  - [https://www. whitehouse.gov/articles/2025/0 6/under-president-trump-america-is-defeating-inflation/](https://www.whitehouse.gov/articles/2025/06/under-president-trump-america-is-d...
+- [17:01 UTC - RT [@ grenell](https://truthsocial.com/@grenell) Thank God [@ realDonaldTrump](https://tru...](114665800989731488/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114665800989731488
+  - RT [@ grenell](https://truthsocial.com/@grenell) Thank God [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) acted quickly to send in more law enforcement officials to...
+- [16:59 UTC - Truth Social post 114665795831916314](114665795831916314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114665795831916314
+  - _No text content captured._
+- [15:27 UTC - WE HAVE A GREAT MILITARY…OUR COUNTRY IS BACK—WE’RE REALLY BACK!](114665433616155445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114665433616155445
+  - WE HAVE A GREAT MILITARY…OUR COUNTRY IS BACK—WE’RE REALLY BACK!
+- [13:54 UTC - CPI JUST OUT. GREAT NUMBERS! FED SHOULD LOWER ONE FULL POINT. WOULD PAY MUCH LESS INTEREST...](114665067086649498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114665067086649498
+  - CPI JUST OUT. GREAT NUMBERS! FED SHOULD LOWER ONE FULL POINT. WOULD PAY MUCH LESS INTEREST ON DEBT COMING DUE. SO IMPORTANT!!!
+- [13:03 UTC - Adding to the China readout, President XI and I are going to work closely together to open...](114664867178522750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664867178522750
+  - Adding to the China readout, President XI and I are going to work closely together to open up China to American Trade. This would be a great WIN for both countries!!!
+- [12:08 UTC - If our troops didn’t go into Los Angeles, it would be burning to the ground right now, jus...](114664649560601881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664649560601881
+  - If our troops didn’t go into Los Angeles, it would be burning to the ground right now, just like so much of their housing burned to the ground. The great people of Los Angeles are...
+- [12:04 UTC - OUR DEAL WITH CHINA IS DONE, SUBJECT TO FINAL APPROVAL WITH PRESIDENT XI AND ME. FULL MAGN...](114664632971715644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664632971715644
+  - OUR DEAL WITH CHINA IS DONE, SUBJECT TO FINAL APPROVAL WITH PRESIDENT XI AND ME. FULL MAGNETS, AND ANY NECESSARY RARE EARTHS, WILL BE SUPPLIED, UP FRONT, BY CHINA. LIKEWISE, WE WIL...
+- [11:50 UTC - [https:// truthsocial.com/@realDonaldTru mp/114553234366388839](https://truthsocial.com/@r...](114664577838259767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664577838259767
+  - [https:// truthsocial.com/@realDonaldTru mp/114553234366388839](https://truthsocial.com/@realDonaldTrump/114553234366388839)
+- [10:52 UTC - The INCOMPETENT Governor of California was unable to provide protection in a timely manner...](114664350602686558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664350602686558
+  - The INCOMPETENT Governor of California was unable to provide protection in a timely manner when our Ice Officers, GREAT Patriots they are, were attacked by an out of control mob of...
+- [10:43 UTC - A Federal Appeals Court has just ruled that the United States can use TARIFFS to protect i...](114664317659540633/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114664317659540633
+  - A Federal Appeals Court has just ruled that the United States can use TARIFFS to protect itself against other countries. A great and important win for the U.S.
+- [00:24 UTC - It's a beautiful sight to be with you in a place called Fort Bragg…](114661881306639433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661881306639433
+  - It's a beautiful sight to be with you in a place called Fort Bragg…
+- [00:22 UTC - Generations of Army heroes did not shed their blood on distant shores only to watch our Co...](114661875773869479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661875773869479
+  - Generations of Army heroes did not shed their blood on distant shores only to watch our Country be destroyed by invasion and Third World lawlessness here at home, like is happening...

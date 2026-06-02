@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-05-17
+
+- Posts: 21
+
+- [22:28 UTC - Truth Social post 114525531307244034](114525531307244034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114525531307244034
+  - _No text content captured._
+- [20:08 UTC - 🇦🇪🇺🇸](114524979790255530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524979790255530
+  - 🇦🇪🇺🇸
+- [20:05 UTC - 🇶🇦🇺🇸](114524968005625641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524968005625641
+  - 🇶🇦🇺🇸
+- [20:04 UTC - 🇸🇦🇺🇸](114524964544595396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524964544595396
+  - 🇸🇦🇺🇸
+- [16:41 UTC - Truth Social post 114524164860568642](114524164860568642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524164860568642
+  - _No text content captured._
+- [16:15 UTC - Truth Social post 114524062589203817](114524062589203817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524062589203817
+  - _No text content captured._
+- [16:14 UTC - RT: https://truthsocial.com/users/mrddmia/statuses/114523473765901913 The Supreme Court mu...](114524060091132104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524060091132104
+  - RT: https://truthsocial.com/users/mrddmia/statuses/114523473765901913 The Supreme Court must come to the RESCUE OF AMERICA.
+- [16:14 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) The Supreme Court still has an illegal in...](114524058632259612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524058632259612
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) The Supreme Court still has an illegal injunction on the President of the United States, preventing him from commanding military op...
+- [16:12 UTC - Truth Social post 114524051280468327](114524051280468327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114524051280468327
+  - _No text content captured._
+- [15:54 UTC - Truth Social post 114523982715902606](114523982715902606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523982715902606
+  - _No text content captured._
+- [15:52 UTC - Truth Social post 114523971990457396](114523971990457396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523971990457396
+  - _No text content captured._
+- [15:41 UTC - Truth Social post 114523928764309469](114523928764309469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523928764309469
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 114523919203367940](114523919203367940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523919203367940
+  - _No text content captured._
+- [15:37 UTC - Truth Social post 114523915772327706](114523915772327706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523915772327706
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 114523872131740092](114523872131740092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523872131740092
+  - _No text content captured._
+- [15:23 UTC - [https://www. nbcnews.com/news/us-news/iran- enriched-uranium-nuclear-deal-trump-rcna20683...](114523859190770748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523859190770748
+  - [https://www. nbcnews.com/news/us-news/iran- enriched-uranium-nuclear-deal-trump-rcna206833](https://www.nbcnews.com/news/us-news/iran-enriched-uranium-nuclear-deal-trump-rcna20683...
+- [15:11 UTC - THE CONSENSUS OF ALMOST EVERYBODY IS THAT, “THE FED SHOULD CUT RATES SOONER, RATHER THAN L...](114523811882470999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523811882470999
+  - THE CONSENSUS OF ALMOST EVERYBODY IS THAT, “THE FED SHOULD CUT RATES SOONER, RATHER THAN LATER.” Too Late Powell, a man legendary for being Too Late, will probably blow it again -...
+- [14:58 UTC - I WILL BE SPEAKING, BY TELEPHONE, TO PRESIDENT VLADIMIR PUTIN OF RUSSIA ON MONDAY, AT 10:0...](114523762104941397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523762104941397
+  - I WILL BE SPEAKING, BY TELEPHONE, TO PRESIDENT VLADIMIR PUTIN OF RUSSIA ON MONDAY, AT 10:00 A.M. THE SUBJECTS OF THE CALL WILL BE, STOPPING THE “BLOODBATH” THAT IS KILLING, ON AVER...
+- [14:27 UTC - Walmart should STOP trying to blame Tariffs as the reason for raising prices throughout th...](114523638623110397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523638623110397
+  - Walmart should STOP trying to blame Tariffs as the reason for raising prices throughout the chain. Walmart made BILLIONS OF DOLLARS last year, far more than expected. Between Walma...
+- [12:34 UTC - Whoever had control of the “AUTOPEN” is looking to be a bigger and bigger scandal by the m...](114523195208653918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114523195208653918
+  - Whoever had control of the “AUTOPEN” is looking to be a bigger and bigger scandal by the moment. It is a major part of the real crime, THAT THE PRESIDENTIAL ELECTION OF 2020 WAS RI...
+- [00:20 UTC - Truth Social post 114520307594338802](114520307594338802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114520307594338802
+  - _No text content captured._

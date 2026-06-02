@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-05-20
+
+- Posts: 9
+
+- [23:17 UTC - I am pleased to announce that Darryl Nirenberg will serve as the next United States Ambass...](114542709133462503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114542709133462503
+  - I am pleased to announce that Darryl Nirenberg will serve as the next United States Ambassador to Romania. Darryl has 40 years of Foreign Policy experience, including as Counsel to...
+- [21:36 UTC - Truth Social post 114542311288675919](114542311288675919/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114542311288675919
+  - _No text content captured._
+- [21:28 UTC - Truth Social post 114542283062246748](114542283062246748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114542283062246748
+  - _No text content captured._
+- [19:55 UTC - We must maintain our status as the Worldwide Leader in WiFi, 5G, and 6G, connecting every ...](114541917095503331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114541917095503331
+  - We must maintain our status as the Worldwide Leader in WiFi, 5G, and 6G, connecting every American to the World’s BEST Networks, while also keeping everyone safe. We can do both at...
+- [19:55 UTC - Joe Biden was not for Open Borders, he never talked about Open Borders, where criminals of...](114541915757167539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114541915757167539
+  - Joe Biden was not for Open Borders, he never talked about Open Borders, where criminals of all kinds, shapes, and sizes, can flow into our Country at will. It wasn’t his idea to Op...
+- [14:44 UTC - Truth Social post 114540693693051240](114540693693051240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114540693693051240
+  - _No text content captured._
+- [12:26 UTC - Senator Roger Marshall was FANTASTIC this morning on Fox Business, as interviewed by Maria...](114540150008777841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114540150008777841
+  - Senator Roger Marshall was FANTASTIC this morning on Fox Business, as interviewed by MariaB! The GREAT people of Kansas are lucky to have him!!!
+- [04:39 UTC - [https://www. youtube.com/live/VxX6NGl-kB8?s i=6_ugbZv8sSFMTinl](https://www.youtube.com/l...](114538313905174630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114538313905174630
+  - [https://www. youtube.com/live/VxX6NGl-kB8?s i=6_ugbZv8sSFMTinl](https://www.youtube.com/live/VxX6NGl-kB8?si=6_ugbZv8sSFMTinl)
+- [04:39 UTC - [https://www. youtube.com/live/xqnskJnxRrw?s i=gieIv0Nc46da_zD7](https://www.youtube.com/l...](114538313113271262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114538313113271262
+  - [https://www. youtube.com/live/xqnskJnxRrw?s i=gieIv0Nc46da_zD7](https://www.youtube.com/live/xqnskJnxRrw?si=gieIv0Nc46da_zD7)

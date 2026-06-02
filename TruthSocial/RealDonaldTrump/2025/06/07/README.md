@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-06-07
+
+- Posts: 12
+
+- [23:49 UTC - Truth Social post 114644757035971455](114644757035971455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114644757035971455
+  - _No text content captured._
+- [19:47 UTC - [https://www. breitbart.com/politics/2025/06 /06/exclusive-fraternal-order-of-police-backs...](114643803931569027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643803931569027
+  - [https://www. breitbart.com/politics/2025/06 /06/exclusive-fraternal-order-of-police-backs-the-big-beautiful-bill/](https://www.breitbart.com/politics/2025/06/06/exclusive-fraterna...
+- [18:56 UTC - Truth Social post 114643605288191490](114643605288191490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643605288191490
+  - _No text content captured._
+- [18:56 UTC - Truth Social post 114643603416372776](114643603416372776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643603416372776
+  - _No text content captured._
+- [18:46 UTC - The Great State of New Jersey has a very important Primary coming up on Tuesday. Get Out a...](114643566832017351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643566832017351
+  - The Great State of New Jersey has a very important Primary coming up on Tuesday. Get Out and Vote for Jack Ciattarelli, who has my Complete and Total Endorsement! His Opponents are...
+- [16:40 UTC - Truth Social post 114643069670180699](114643069670180699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643069670180699
+  - _No text content captured._
+- [16:39 UTC - [https://www. breitbart.com/economy/2025/06/ 04/breitbart-business-digest-tariffs-and-tax-...](114643067742659701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643067742659701
+  - [https://www. breitbart.com/economy/2025/06/ 04/breitbart-business-digest-tariffs-and-tax-relief-trumps-new-model-for-funding-the-government/](https://www.breitbart.com/economy/202...
+- [16:39 UTC - [https://www. foxbusiness.com/economy/over-3 00-economists-urge-trump-gop-leaders-extend-t...](114643066111452597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643066111452597
+  - [https://www. foxbusiness.com/economy/over-3 00-economists-urge-trump-gop-leaders-extend-tax-cuts-before-massive-tax-hike-hits-americans](https://www.foxbusiness.com/economy/over-3...
+- [16:39 UTC - [https://www. rsbnetwork.com/news/strengthen ing-u-s-manufacturing-trump-move-bolsters-ste...](114643065199434630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643065199434630
+  - [https://www. rsbnetwork.com/news/strengthen ing-u-s-manufacturing-trump-move-bolsters-steel-and-aluminum-industries/](https://www.rsbnetwork.com/news/strengthening-u-s-manufacturi...
+- [16:38 UTC - [https://www. rsbnetwork.com/featured/price- of-eggs-drops-61-percent-since-trumps-return-...](114643064339176711/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643064339176711
+  - [https://www. rsbnetwork.com/featured/price- of-eggs-drops-61-percent-since-trumps-return-to-the-white-house/](https://www.rsbnetwork.com/featured/price-of-eggs-drops-61-percent-si...
+- [16:38 UTC - “The committee is looking closely at FBI Special Agent Walter Giardina, who played key rol...](114643062948888802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643062948888802
+  - “The committee is looking closely at FBI Special Agent Walter Giardina, who played key roles in investigating and prosecuting Peter Navarro, Arctic Frost, Crossfire Hurricane, the...
+- [16:36 UTC - [https:// thefederalist.com/2025/05/02/n ewly-released-emails-show-politicized-fbi-targeti...](114643056646392125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114643056646392125
+  - [https:// thefederalist.com/2025/05/02/n ewly-released-emails-show-politicized-fbi-targeting-trump-officials-for-obeying-the-law/](https://thefederalist.com/2025/05/02/newly-releas...

@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-05-31
+
+- Posts: 17
+
+- [23:55 UTC - Truth Social post 114605145750381792](114605145750381792/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605145750381792
+  - _No text content captured._
+- [23:53 UTC - Like the other two, TIPS AND OVERTIME, No Tax on Social Security is being done also, but i...](114605138646113482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605138646113482
+  - Like the other two, TIPS AND OVERTIME, No Tax on Social Security is being done also, but in a different form, a large deduction after which many will have no tax to pay. Thank you!
+- [22:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114604840139908589 Congratulati...](114604843743831040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114604843743831040
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114604840139908589 Congratulations to ALL on a job well done. Proud of you! Hopefully the Senate will be there with you!...
+- [22:38 UTC - Truth Social post 114604840139908589](114604840139908589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114604840139908589
+  - _No text content captured._
+- [19:52 UTC - (1)Congratulations to Paul Ingrassia, Esq., on being named to head the Office of Special C...](114604190866906781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114604190866906781
+  - (1)Congratulations to Paul Ingrassia, Esq., on being named to head the Office of Special Counsel. (2)The Great Tom Homan just stated that “WE NOW HAVE THE MOST SECURE BORDER IN USA...
+- [18:56 UTC - Truth Social post 114603970637820600](114603970637820600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114603970637820600
+  - _No text content captured._
+- [14:27 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) BIG TISH busted for MORE Fr...](114602911289806968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114602911289806968
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) BIG TISH busted for MORE Fraud. A story inspired by Bernie Kerik, who knew. [https:// stonezone.com/new-york-ag-leti...
+- [13:17 UTC - With One, Big, Beautiful Bill, we will protect over 7 million jobs, raise take-home pay fo...](114602636801002520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114602636801002520
+  - With One, Big, Beautiful Bill, we will protect over 7 million jobs, raise take-home pay for American families by up to $13,000 per household, and reduce taxes for working-class Ame...
+- [13:15 UTC - For generations, the workers of this region have always been there for our country when we...](114602629020606637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114602629020606637
+  - For generations, the workers of this region have always been there for our country when we needed you most. You built this Country…Under our leadership, we are making it richer, st...
+- [03:21 UTC - Truth Social post 114600293751510921](114600293751510921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114600293751510921
+  - _No text content captured._
+- [03:17 UTC - Truth Social post 114600275865437119](114600275865437119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114600275865437119
+  - _No text content captured._
+- [03:06 UTC - Truth Social post 114600232444807133](114600232444807133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114600232444807133
+  - _No text content captured._
+- [02:53 UTC - Truth Social post 114600183546010877](114600183546010877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114600183546010877
+  - _No text content captured._
+- [01:32 UTC - “PRESIDENT TRUMP’S PARDON OF COURAGEOUS SHERIFF SCOTT JENKINS MAY BE HIS BEST TO DATE” [ht...](114599862399252900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599862399252900
+  - “PRESIDENT TRUMP’S PARDON OF COURAGEOUS SHERIFF SCOTT JENKINS MAY BE HIS BEST TO DATE” [https:// stonezone.com/president-trumps -pardon-of-heroic-sheriff-scott-jenkins-my-be-his-be...
+- [01:31 UTC - “Housing market chief Pulte sends blunt message on Fed interest rate cuts” [https://www. t...](114599860448694296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599860448694296
+  - “Housing market chief Pulte sends blunt message on Fed interest rate cuts” [https://www. thestreet.com/fed/housing-mark et-chief-pulte-sends-blunt-message-on-fed-interest-rate-cuts...
+- [01:29 UTC - Truth Social post 114599850870121253](114599850870121253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599850870121253
+  - _No text content captured._
+- [00:14 UTC - We don’t want America’s future to be built with shoddy steel from Shanghai—we want it buil...](114599557006933759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599557006933759
+  - We don’t want America’s future to be built with shoddy steel from Shanghai—we want it built with the strength and the pride of Pittsburgh!

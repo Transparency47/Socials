@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-06-12
+
+- Posts: 19
+
+- [23:04 UTC - Incompetent Gavin Newscum should have been THANKING me for the job we did in Los Angeles, ...](114672890392575865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114672890392575865
+  - Incompetent Gavin Newscum should have been THANKING me for the job we did in Los Angeles, rather than making sad excuses for the poor job he has done. If it weren’t for me getting...
+- [22:45 UTC - The Biden Administration and Governor Newscum flooded America with 21 Million Illegal Alie...](114672816056718064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114672816056718064
+  - The Biden Administration and Governor Newscum flooded America with 21 Million Illegal Aliens, destroying Schools, Hospitals and Communities, and consuming untold Billions of Dollar...
+- [22:11 UTC - Thank you to everyone for being so generous yesterday at The Kennedy Center. We raised ove...](114672684243705829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114672684243705829
+  - Thank you to everyone for being so generous yesterday at The Kennedy Center. We raised over $10 Million Dollars for its Restoration, A RECORD. In addition, the Actors and Actresses...
+- [21:09 UTC - We remain committed to a Diplomatic Resolution to the Iran Nuclear Issue! My entire Admini...](114672438335170335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114672438335170335
+  - We remain committed to a Diplomatic Resolution to the Iran Nuclear Issue! My entire Administration has been directed to negotiate with Iran. They could be a Great Country, but they...
+- [19:13 UTC - The House of Representatives is NOW voting on my Administration’s first “Rescissions” Bill...](114671982391481893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114671982391481893
+  - The House of Representatives is NOW voting on my Administration’s first “Rescissions” Bill. It will OFFICALLY “claw back” $9.4 BILLION DOLLARS in funding for wasteful Foreign Aid,...
+- [18:03 UTC - Biden let 21 Million Unvetted, Illegal Aliens flood into the Country from some of the most...](114671706526373660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114671706526373660
+  - Biden let 21 Million Unvetted, Illegal Aliens flood into the Country from some of the most dangerous and dysfunctional Nations on Earth — Many of them Rapists, Murderers, and Terro...
+- [17:50 UTC - FOR FIVE MILLION $DOLLARS, THE TRUMP CARD IS COMING! More than fifteen thousand have signe...](114671658277148795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114671658277148795
+  - FOR FIVE MILLION $DOLLARS, THE TRUMP CARD IS COMING! More than fifteen thousand have signed up and joined the Waiting List since we opened the site last night! That's $75 Billion D...
+- [17:01 UTC - [https://www. youtube.com/live/QjakZRoGnxk?s i=_EjrabsNpcWHkRry](https://www.youtube.com/l...](114671464311583342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114671464311583342
+  - [https://www. youtube.com/live/QjakZRoGnxk?s i=_EjrabsNpcWHkRry](https://www.youtube.com/live/QjakZRoGnxk?si=_EjrabsNpcWHkRry)
+- [13:43 UTC - Our great Farmers and people in the Hotel and Leisure business have been stating that our ...](114670684664650262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670684664650262
+  - Our great Farmers and people in the Hotel and Leisure business have been stating that our very aggressive policy on immigration is taking very good, long time workers away from the...
+- [13:02 UTC - THE CHINA DEAL IS GREAT!](114670526015735789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670526015735789
+  - THE CHINA DEAL IS GREAT!
+- [12:52 UTC - Of course Senator Rand Paul and his beautiful wife and family are invited to the BIG White...](114670486632619754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670486632619754
+  - Of course Senator Rand Paul and his beautiful wife and family are invited to the BIG White House Party tonight. He’s the toughest vote in the history of the U.S. Senate, but why wo...
+- [12:10 UTC - [https:// truthsocial.com/@realDonaldTru mp/114667321433310931](https://truthsocial.com/@r...](114670321761357020/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670321761357020
+  - [https:// truthsocial.com/@realDonaldTru mp/114667321433310931](https://truthsocial.com/@realDonaldTrump/114667321433310931)
+- [12:08 UTC - THE TRUMP CARD!](114670313786923341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670313786923341
+  - THE TRUMP CARD!
+- [12:07 UTC - THE GREAT, BIG, BEAUTIFUL BILL WILL GROW THE ECONOMY LIKE IT HAS NEVER GROWN BEFORE. AT TH...](114670309710000195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670309710000195
+  - THE GREAT, BIG, BEAUTIFUL BILL WILL GROW THE ECONOMY LIKE IT HAS NEVER GROWN BEFORE. AT THE SAME TIME, IT IS CUTTING EXPENSES BY 1.6 TRILLION DOLLARS. IT PUTS OUR COUNTRY ON THE RI...
+- [12:01 UTC - [https:// truthsocial.com/@JackPosobiec/ 114662928494317417](https://truthsocial.com/@Jack...](114670283406267552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670283406267552
+  - [https:// truthsocial.com/@JackPosobiec/ 114662928494317417](https://truthsocial.com/@JackPosobiec/114662928494317417) YES, IN A LANDSLIDE!!!
+- [11:58 UTC - Lee Greenwood was GREAT on Maria B this morning. He is a SPECTACULAR man, married to a gre...](114670272796747506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670272796747506
+  - Lee Greenwood was GREAT on Maria B this morning. He is a SPECTACULAR man, married to a great woman, Kim, and will be singing at the biggest ever Military Parade, IN HONOR OF THE AR...
+- [11:34 UTC - Brian Wilson of The Beach Boys was a true Musical genius, right up there with the greatest...](114670179740742664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670179740742664
+  - Brian Wilson of The Beach Boys was a true Musical genius, right up there with the greatest, EVER. While Brian is no longer with us, his music will live on forever. Warmest condolen...
+- [11:10 UTC - Los Angeles was safe and sound for the last two nights. Our great National Guard, with a l...](114670085083632579/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114670085083632579
+  - Los Angeles was safe and sound for the last two nights. Our great National Guard, with a little help from the Marines, put the L.A. Police in a position to effectively do their job...
+- [00:40 UTC - Truth Social post 114667607433849796](114667607433849796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114667607433849796
+  - _No text content captured._

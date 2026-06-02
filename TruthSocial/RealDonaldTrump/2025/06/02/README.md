@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-06-02
+
+- Posts: 9
+
+- [23:50 UTC - Truth Social post 114616451351172040](114616451351172040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616451351172040
+  - _No text content captured._
+- [23:43 UTC - Congratulations to my friend, Kid Rock (I call him Bob!), on the Grand Opening of his new ...](114616421679095002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616421679095002
+  - Congratulations to my friend, Kid Rock (I call him Bob!), on the Grand Opening of his new Nashville restaurant, “The Detroit Cowboy.” I hear it is a very friendly MAGA establishmen...
+- [23:25 UTC - If other Countries are allowed to use Tariffs against us, and we’re not allowed to counter...](114616351910119498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616351910119498
+  - If other Countries are allowed to use Tariffs against us, and we’re not allowed to counter them, quickly and nimbly, with Tariffs against them, our Country doesn’t have, even a sma...
+- [23:24 UTC - Michael Wolff, a Third Rate Reporter, who is laughed at even by the scoundrels of the Fake...](114616348045430286/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616348045430286
+  - Michael Wolff, a Third Rate Reporter, who is laughed at even by the scoundrels of the Fake News, recently stated that the only reason I’m “beating up” on Harvard, is because I appl...
+- [22:48 UTC - So many false statements are being made about “THE ONE, BIG, BEAUTIFUL BILL,” but what nob...](114616207227510153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616207227510153
+  - So many false statements are being made about “THE ONE, BIG, BEAUTIFUL BILL,” but what nobody understands is that it’s the single biggest Spending Cut in History, by far! But there...
+- [22:45 UTC - Passing THE ONE, BIG, BEAUTIFUL BILL is a Historic Opportunity to turn our Country around ...](114616192602509494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616192602509494
+  - Passing THE ONE, BIG, BEAUTIFUL BILL is a Historic Opportunity to turn our Country around after four disastrous years under Joe Biden. We will take a massive step to balancing our...
+- [22:12 UTC - Just had a great talk with our Military Leaders. It is the strongest Military we have ever...](114616063852488330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616063852488330
+  - Just had a great talk with our Military Leaders. It is the strongest Military we have ever had, including the fact that we are stockpiling weapons at a rate never seen before by ou...
+- [22:05 UTC - The AUTOPEN should have stopped Iran a long time ago from “enriching.” Under our potential...](114616038217949758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114616038217949758
+  - The AUTOPEN should have stopped Iran a long time ago from “enriching.” Under our potential Agreement — WE WILL NOT ALLOW ANY ENRICHMENT OF URANIUM!
+- [16:24 UTC - Yesterday’s horrific attack in Boulder, Colorado, WILL NOT BE TOLERATED in the United Stat...](114614695646992423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114614695646992423
+  - Yesterday’s horrific attack in Boulder, Colorado, WILL NOT BE TOLERATED in the United States of America. He came in through Biden’s ridiculous Open Border Policy, which has hurt ou...

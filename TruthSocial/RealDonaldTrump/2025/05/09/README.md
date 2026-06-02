@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-05-09
+
+- Posts: 19
+
+- [21:51 UTC - Congresswoman Carol Miller is an incredible Representative for the Great People of West Vi...](114480087342467417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480087342467417
+  - Congresswoman Carol Miller is an incredible Representative for the Great People of West Virginia’s 1st Congressional District! Carol is a Fierce Advocate for our America First Agen...
+- [21:41 UTC - Congressman Riley Moore is a tremendous America First Representative for the Wonderful Peo...](114480048504802354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480048504802354
+  - Congressman Riley Moore is a tremendous America First Representative for the Wonderful People of West Virginia’s 2nd Congressional District! In Congress, Riley is working tirelessl...
+- [21:41 UTC - Congresswoman Virginia Foxx is doing a tremendous job fighting for the people of North Car...](114480048117794658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480048117794658
+  - Congresswoman Virginia Foxx is doing a tremendous job fighting for the people of North Carolina’s 5th Congressional District! As Chair of the House Rules Committee, Virginia is wor...
+- [21:41 UTC - Congressman Tim Walberg is an incredible Representative of Michigan's 5th Congressional Di...](114480047403137321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480047403137321
+  - Congressman Tim Walberg is an incredible Representative of Michigan's 5th Congressional District! As Chair of the House Education Committee, Tim is working hard to Advance School C...
+- [21:41 UTC - Congressman John Joyce is a fantastic Champion for Pennsylvania’s 13th Congressional Distr...](114480045872688080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480045872688080
+  - Congressman John Joyce is a fantastic Champion for Pennsylvania’s 13th Congressional District! An Original Member of my Pennsylvania Federal Leadership Team, John is fighting hard...
+- [21:39 UTC - Congresswoman Anna Paulina Luna is an incredible Advocate for the Great People of Florida'...](114480037543029538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114480037543029538
+  - Congresswoman Anna Paulina Luna is an incredible Advocate for the Great People of Florida's 13th Congressional District! Anna is an America First Patriot, who fights tirelessly to...
+- [21:21 UTC - Truth Social post 114479967598464487](114479967598464487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114479967598464487
+  - _No text content captured._
+- [21:20 UTC - Truth Social post 114479962921908894](114479962921908894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114479962921908894
+  - _No text content captured._
+- [21:17 UTC - [https://www. youtube.com/live/fte7iRRgbIQ?s i=uYwfWCfCos8pJcUL](https://www.youtube.com/l...](114479952600356913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114479952600356913
+  - [https://www. youtube.com/live/fte7iRRgbIQ?s i=uYwfWCfCos8pJcUL](https://www.youtube.com/live/fte7iRRgbIQ?si=uYwfWCfCos8pJcUL)
+- [21:12 UTC - [https://www. foxnews.com/politics/trump-bui ld-national-center-homeless-veterans-funds-pr...](114479933242507042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114479933242507042
+  - [https://www. foxnews.com/politics/trump-bui ld-national-center-homeless-veterans-funds-previously-spent-illegal-aliens](https://www.foxnews.com/politics/trump-build-national-cente...
+- [16:19 UTC - I just watched an exhausted, highly neurotic Stephanie Ruhle spew LIES about Tariffs, as d...](114478780390671313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114478780390671313
+  - I just watched an exhausted, highly neurotic Stephanie Ruhle spew LIES about Tariffs, as do many others, in order not to give me the Victory that they all see coming. Few people kn...
+- [16:18 UTC - I highly recommend Keith Poole, who is the very successful Editor-in-Chief of the New York...](114478777761818193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114478777761818193
+  - I highly recommend Keith Poole, who is the very successful Editor-in-Chief of the New York Post, to take over the entire operation of the highly inaccurate, “China Centric,” Wall S...
+- [13:41 UTC - MSNBC, the worst there is on Television misrepresentation, is so far knowingly off in thei...](114478160839858570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114478160839858570
+  - MSNBC, the worst there is on Television misrepresentation, is so far knowingly off in their statements about me and Tariffs that it should be considered a Major Campaign Violation....
+- [13:33 UTC - Costs down, NO INFLATION. Very different from what the Fed, and Fake News Media, were hopi...](114478129470076553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114478129470076553
+  - Costs down, NO INFLATION. Very different from what the Fed, and Fake News Media, were hoping for!
+- [12:43 UTC - Many Trade Deals in the hopper, all good (GREAT!) ones!](114477930037382424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114477930037382424
+  - Many Trade Deals in the hopper, all good (GREAT!) ones!
+- [11:44 UTC - The problem with even a “TINY” tax increase for the RICH, which I and all others would gra...](114477701321152097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114477701321152097
+  - The problem with even a “TINY” tax increase for the RICH, which I and all others would graciously accept in order to help the lower and middle income workers, is that the Radical L...
+- [11:26 UTC - 80% Tariff on China seems right! Up to Scott B.](114477628854583525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114477628854583525
+  - 80% Tariff on China seems right! Up to Scott B.
+- [11:21 UTC - CHINA SHOULD OPEN UP ITS MARKET TO USA — WOULD BE SO GOOD FOR THEM!!! CLOSED MARKETS DON’T...](114477610338144415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114477610338144415
+  - CHINA SHOULD OPEN UP ITS MARKET TO USA — WOULD BE SO GOOD FOR THEM!!! CLOSED MARKETS DON’T WORK ANYMORE!!!
+- [01:09 UTC - 🇺🇸🇬🇧](114475204336988426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114475204336988426
+  - 🇺🇸🇬🇧

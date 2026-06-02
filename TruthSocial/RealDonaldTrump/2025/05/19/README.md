@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-05-19
+
+- Posts: 14
+
+- [22:37 UTC - Truth Social post 114536888434107106](114536888434107106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536888434107106
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 114536885557094767](114536885557094767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536885557094767
+  - _No text content captured._
+- [21:40 UTC - Truth Social post 114536667329883384](114536667329883384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536667329883384
+  - _No text content captured._
+- [21:09 UTC - It is my honor to officially sign the 'Take It Down Act' into law...With the rise of AI im...](114536543500030486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536543500030486
+  - It is my honor to officially sign the 'Take It Down Act' into law...With the rise of AI image generation, countless women have been harassed with deep fakes and other explicit imag...
+- [21:06 UTC - “As First Lady, my Be Best initiative is focused on improving children's well-being, encou...](114536534087665403/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536534087665403
+  - “As First Lady, my Be Best initiative is focused on improving children's well-being, encouraging kindness and creating a safer online environment for our youth. Today, I'm proud to...
+- [21:05 UTC - First Lady [@ MelaniaTrump](https://truthsocial.com/@MelaniaTrump) : “This legislation (‘T...](114536528043211432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536528043211432
+  - First Lady [@ MelaniaTrump](https://truthsocial.com/@MelaniaTrump) : “This legislation (‘Take It Down Act') is a powerful step forward in our efforts to ensure that every American,...
+- [21:03 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114536512546013483](114536519235224636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536519235224636
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114536512546013483
+- [21:01 UTC - [https://www. youtube.com/live/pI1BDZdzGsw?s i=35_8ihSogFjD8Dz5](https://www.youtube.com/l...](114536512546013483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114536512546013483
+  - [https://www. youtube.com/live/pI1BDZdzGsw?s i=35_8ihSogFjD8Dz5](https://www.youtube.com/live/pI1BDZdzGsw?si=35_8ihSogFjD8Dz5)
+- [17:33 UTC - Just completed my two hour call with President Vladimir Putin of Russia. I believe it went...](114535693441367601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114535693441367601
+  - Just completed my two hour call with President Vladimir Putin of Russia. I believe it went very well. Russia and Ukraine will immediately start negotiations toward a Ceasefire and,...
+- [15:17 UTC - Truth Social post 114535158566026960](114535158566026960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114535158566026960
+  - _No text content captured._
+- [15:15 UTC - Truth Social post 114535151848628047](114535151848628047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114535151848628047
+  - _No text content captured._
+- [13:11 UTC - According to news reports, Beyoncé was paid $11,000,000 to walk onto a stage, quickly ENDO...](114534665591178846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114534665591178846
+  - According to news reports, Beyoncé was paid $11,000,000 to walk onto a stage, quickly ENDORSE KAMALA, and walk off to loud booing for never having performed, NOT EVEN ONE SONG! Rem...
+- [05:34 UTC - HOW MUCH DID KAMALA HARRIS PAY BRUCE SPRINGSTEEN FOR HIS POOR PERFORMANCE DURING HER CAMPA...](114532867603994760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114532867603994760
+  - HOW MUCH DID KAMALA HARRIS PAY BRUCE SPRINGSTEEN FOR HIS POOR PERFORMANCE DURING HER CAMPAIGN FOR PRESIDENT? WHY DID HE ACCEPT THAT MONEY IF HE IS SUCH A FAN OF HERS? ISN’T THAT A...
+- [04:42 UTC - CONGRATULATIONS REPUBLICANS!!! MAKE AMERICA GREAT AGAIN!!!](114532661695212310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114532661695212310
+  - CONGRATULATIONS REPUBLICANS!!! MAKE AMERICA GREAT AGAIN!!!

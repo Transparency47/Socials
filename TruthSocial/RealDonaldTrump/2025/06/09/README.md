@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-06-09
+
+- Posts: 14
+
+- [20:45 UTC - Truth Social post 114655357860761523](114655357860761523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114655357860761523
+  - _No text content captured._
+- [19:10 UTC - [https:// rumble.com/v6uj8fn-president-t rump-participates-in-invest-america-roundtable.ht...](114654983454876891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654983454876891
+  - [https:// rumble.com/v6uj8fn-president-t rump-participates-in-invest-america-roundtable.html](https://rumble.com/v6uj8fn-president-trump-participates-in-invest-america-roundtable.h...
+- [18:47 UTC - “If they spit, we will hit.” This is a statement from the President of the United States c...](114654893116531233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654893116531233
+  - “If they spit, we will hit.” This is a statement from the President of the United States concerning the catastrophic Gavin Newscum inspired Riots going on in Los Angeles. The Insur...
+- [17:24 UTC - A true champion, Kayla Harrison, who will soon be coming to the White House to get a speci...](114654569890888217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654569890888217
+  - A true champion, Kayla Harrison, who will soon be coming to the White House to get a special award!
+- [16:29 UTC - [https://www. washingtontimes.com/news/2025/ may/20/wins-trump-white-house-keep-stacking/]...](114654352161884458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654352161884458
+  - [https://www. washingtontimes.com/news/2025/ may/20/wins-trump-white-house-keep-stacking/](https://www.washingtontimes.com/news/2025/may/20/wins-trump-white-house-keep-stacking/)
+- [16:13 UTC - [https:// dailycaller.com/2025/06/09/dav id-bossie-terrorism-gangs-and-spies-prove-trumps-...](114654289422549061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654289422549061
+  - [https:// dailycaller.com/2025/06/09/dav id-bossie-terrorism-gangs-and-spies-prove-trumps-point-on-immigration/](https://dailycaller.com/2025/06/09/david-bossie-terrorism-gangs-and...
+- [16:13 UTC - [https:// dailycaller.com/2025/06/03/opi nion-time-for-congress-to-pull-back-the-curtain-o...](114654288301132872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654288301132872
+  - [https:// dailycaller.com/2025/06/03/opi nion-time-for-congress-to-pull-back-the-curtain-on-biden-david-bossie/](https://dailycaller.com/2025/06/03/opinion-time-for-congress-to-pul...
+- [16:10 UTC - We made a great decision in sending the National Guard to deal with the violent, instigate...](114654277401980803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114654277401980803
+  - We made a great decision in sending the National Guard to deal with the violent, instigated riots in California. If we had not done so, Los Angeles would have been completely oblit...
+- [04:19 UTC - ARREST THE PEOPLE IN FACE MASKS, NOW!](114651482271002772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114651482271002772
+  - ARREST THE PEOPLE IN FACE MASKS, NOW!
+- [04:16 UTC - Looking really bad in L.A. BRING IN THE TROOPS!!!](114651470100085455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114651470100085455
+  - Looking really bad in L.A. BRING IN THE TROOPS!!!
+- [04:14 UTC - Jim McDonnell, the highly respected LAPD Chief, just stated that the protesters are gettin...](114651462358753429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114651462358753429
+  - Jim McDonnell, the highly respected LAPD Chief, just stated that the protesters are getting very much more aggressive, and that he would “have to reassess the situation,” as it per...
+- [03:37 UTC - Truth Social post 114651315378595204](114651315378595204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114651315378595204
+  - _No text content captured._
+- [02:07 UTC - Paid Insurrectionists!](114650961444622516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114650961444622516
+  - Paid Insurrectionists!
+- [02:03 UTC - Governor Gavin Newscum and “Mayor” Bass should apologize to the people of Los Angeles for ...](114650947329138948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114650947329138948
+  - Governor Gavin Newscum and “Mayor” Bass should apologize to the people of Los Angeles for the absolutely horrible job that they have done, and this now includes the ongoing L.A. ri...

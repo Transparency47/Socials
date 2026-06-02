@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-05-11
+
+- Posts: 15
+
+- [22:38 UTC - I am happy to announce that Edan Alexander, an American citizen who has been held hostage ...](114491594957458207/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114491594957458207
+  - I am happy to announce that Edan Alexander, an American citizen who has been held hostage since October 2023, is coming home to his family. I am grateful to all those involved in m...
+- [22:22 UTC - For many years the World has wondered why Prescription Drugs and Pharmaceuticals in the Un...](114491534347862682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114491534347862682
+  - For many years the World has wondered why Prescription Drugs and Pharmaceuticals in the United States States of America were SO MUCH HIGHER IN PRICE THAN THEY WERE IN ANY OTHER NAT...
+- [18:31 UTC - My next TRUTH will be one of the most important and impactful I have ever issued. ENJOY!](114490623566091525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114490623566091525
+  - My next TRUTH will be one of the most important and impactful I have ever issued. ENJOY!
+- [18:26 UTC - IN JUST THREE MONTHS, TRILLIONS OF DOLLARS (and therefore, record numbers of JOBS!) HAVE B...](114490604608562822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114490604608562822
+  - IN JUST THREE MONTHS, TRILLIONS OF DOLLARS (and therefore, record numbers of JOBS!) HAVE BEEN POURING INTO THE USA. THIS IS BECAUSE OF MY TARIFF POLICY, and our great November 5th...
+- [17:03 UTC - Our Country has been INVADED by 21,000,000 Illegal Aliens, many of whom are Murderers and ...](114490277514269016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114490277514269016
+  - Our Country has been INVADED by 21,000,000 Illegal Aliens, many of whom are Murderers and Criminals of the Highest Order, and if we aren’t allowed to remove them because of a radic...
+- [16:16 UTC - President Putin of Russia doesn’t want to have a Cease Fire Agreement with Ukraine, but ra...](114490093180275292/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114490093180275292
+  - President Putin of Russia doesn’t want to have a Cease Fire Agreement with Ukraine, but rather wants to meet on Thursday, in Turkey, to negotiate a possible end to the BLOODBATH. U...
+- [15:15 UTC - Truth Social post 114489855480561388](114489855480561388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114489855480561388
+  - _No text content captured._
+- [13:26 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Now tech bros are going to attempt to s...](114489425158423737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114489425158423737
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Now tech bros are going to attempt to steal creators’ copyrights for AI profits. This is 100% unacceptable. [https://www. cbsnews...
+- [04:06 UTC - HAPPY MOTHER’S DAY TO ALL, AND TO ALL A GOODNIGHT!!!](114487222858029279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487222858029279
+  - HAPPY MOTHER’S DAY TO ALL, AND TO ALL A GOODNIGHT!!!
+- [04:03 UTC - A potentially great day for Russia and Ukraine! Think of the hundreds of thousands of live...](114487210304050642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487210304050642
+  - A potentially great day for Russia and Ukraine! Think of the hundreds of thousands of lives that will be saved as this never ending “bloodbath” hopefully comes to an end. It will b...
+- [03:58 UTC - I am very proud of the strong and unwaveringly powerful leadership of India and Pakistan f...](114487190752990599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487190752990599
+  - I am very proud of the strong and unwaveringly powerful leadership of India and Pakistan for having the strength, wisdom, and fortitude to fully know and understand that it was tim...
+- [03:15 UTC - [https://www. foxnews.com/video/637265168511 2](https://www.foxnews.com/video/637265168511...](114487023181257433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487023181257433
+  - [https://www. foxnews.com/video/637265168511 2](https://www.foxnews.com/video/6372651685112)
+- [03:14 UTC - [https://www. foxnews.com/video/637264952311 2](https://www.foxnews.com/video/637264952311...](114487020416693369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487020416693369
+  - [https://www. foxnews.com/video/637264952311 2](https://www.foxnews.com/video/6372649523112)
+- [03:12 UTC - [https:// youtu.be/ftxVY75sXVs](https://youtu.be/ftxVY75sXVs)](114487012604426451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114487012604426451
+  - [https:// youtu.be/ftxVY75sXVs](https://youtu.be/ftxVY75sXVs)
+- [02:46 UTC - [https://www. foxnews.com/video/637264837211 2](https://www.foxnews.com/video/637264837211...](114486909503536660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114486909503536660
+  - [https://www. foxnews.com/video/637264837211 2](https://www.foxnews.com/video/6372648372112)

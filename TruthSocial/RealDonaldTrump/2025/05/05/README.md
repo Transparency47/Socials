@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-05-05
+
+- Posts: 18
+
+- [23:19 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/05/national-small-business-week-20...](114457784776577118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114457784776577118
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/05/national-small-business-week-2025/](https://www.whitehouse.gov/presidential-actions/2025/05/national-small-business-week-...
+- [22:49 UTC - We won two World Wars, but we never took credit for it — Everyone else does! All over the ...](114457666559426766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114457666559426766
+  - We won two World Wars, but we never took credit for it — Everyone else does! All over the World, the Allies are celebrating the Victory we had in World War II. The only Country tha...
+- [21:19 UTC - Truth Social post 114457309826756716](114457309826756716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114457309826756716
+  - _No text content captured._
+- [19:28 UTC - [https://www. youtube.com/live/EmP6I1ucGRo?s i=37LNZUfjamIZsQ47](https://www.youtube.com/l...](114456873219445914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456873219445914
+  - [https://www. youtube.com/live/EmP6I1ucGRo?s i=37LNZUfjamIZsQ47](https://www.youtube.com/live/EmP6I1ucGRo?si=37LNZUfjamIZsQ47)
+- [18:10 UTC - PROMISES MADE, PROMISES KEPT!](114456568203695294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456568203695294
+  - PROMISES MADE, PROMISES KEPT!
+- [18:00 UTC - The 2027 NFL Draft | Washington, D.C. [https://www. youtube.com/live/EmP6I1ucGRo?s i=bt2e0...](114456528966782457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456528966782457
+  - The 2027 NFL Draft | Washington, D.C. [https://www. youtube.com/live/EmP6I1ucGRo?s i=bt2e0HMJRHqYjZp-](https://www.youtube.com/live/EmP6I1ucGRo?si=bt2e0HMJRHqYjZp-)
+- [17:58 UTC - The NFL Draft is coming to Washington, D.C. in 2027! [https://www. youtube.com/live/EmP6I1...](114456520145752092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456520145752092
+  - The NFL Draft is coming to Washington, D.C. in 2027! [https://www. youtube.com/live/EmP6I1ucGRo?s i=NN9Vxvm7tGKDMqQ5](https://www.youtube.com/live/EmP6I1ucGRo?si=NN9Vxvm7tGKDMqQ5)
+- [17:39 UTC - [https://www. youtube.com/live/EmP6I1ucGRo?s i=Xu5aEKvtCKhUexlX](https://www.youtube.com/l...](114456445780203083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456445780203083
+  - [https://www. youtube.com/live/EmP6I1ucGRo?s i=Xu5aEKvtCKhUexlX](https://www.youtube.com/live/EmP6I1ucGRo?si=Xu5aEKvtCKhUexlX)
+- [15:52 UTC - This was so wonderful, 9 years ago today!](114456026572229510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114456026572229510
+  - This was so wonderful, 9 years ago today!
+- [15:40 UTC - Secretary Scott Bessent: "President Trump has secured more investment for our country in 1...](114455976603502389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455976603502389
+  - Secretary Scott Bessent: "President Trump has secured more investment for our country in 100 days than President Biden did during all four years."
+- [15:10 UTC - I just had a very good and productive telephone conversation with the President of Turkey,...](114455860282159313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455860282159313
+  - I just had a very good and productive telephone conversation with the President of Turkey, Recep Erdoğan, concerning many subjects, including the War with Russia/Ukraine, all thing...
+- [14:49 UTC - BILL ACKMAN ON HARVARD AND UNIVERSITY FUNDING, THIS MORNING ON SQUAWK BOX…](114455776425590388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455776425590388
+  - BILL ACKMAN ON HARVARD AND UNIVERSITY FUNDING, THIS MORNING ON SQUAWK BOX…
+- [14:08 UTC - “Small businesses are back in the driver's seat thanks to President Trump and his belief i...](114455616542958903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455616542958903
+  - “Small businesses are back in the driver's seat thanks to President Trump and his belief in the American worker, American industry, and Main Street.”
+- [14:06 UTC - Senator Markwayne Mullin: “President Trump is the first President we've had that actually ...](114455608513522948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455608513522948
+  - Senator Markwayne Mullin: “President Trump is the first President we've had that actually has a backbone strong enough to stand up and say we've got to right this wrong, start manu...
+- [12:14 UTC - Truth Social post 114455169386927049](114455169386927049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114455169386927049
+  - _No text content captured._
+- [02:31 UTC - I don’t need to have Karl Rove of FoxNews to tell me what to do. The guy’s a total Loser w...](114452877224020351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452877224020351
+  - I don’t need to have Karl Rove of FoxNews to tell me what to do. The guy’s a total Loser who’s been wrong about almost everything!
+- [01:36 UTC - [https:// nypost.com/2025/05/04/business /ken-griffin-faces-maga-attack-at-milken-institut...](114452658413795766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452658413795766
+  - [https:// nypost.com/2025/05/04/business /ken-griffin-faces-maga-attack-at-milken-institute-shindig/](https://nypost.com/2025/05/04/business/ken-griffin-faces-maga-attack-at-milken...
+- [00:06 UTC - [https://www. alabamagazette.com/story/2025/ 05/01/opinion/100-days-that-changed-america-p...](114452304743683740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452304743683740
+  - [https://www. alabamagazette.com/story/2025/ 05/01/opinion/100-days-that-changed-america-president-trumps-historic-start/6351.html](https://www.alabamagazette.com/story/2025/05/01/...

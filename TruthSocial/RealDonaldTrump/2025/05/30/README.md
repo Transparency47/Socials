@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2025-05-30
+
+- Posts: 23
+
+- [23:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114599330494282325](114599440115641983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599440115641983
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114599330494282325
+- [23:43 UTC - Thank you, Elon! 🇺🇸🚀](114599434397215985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599434397215985
+  - Thank you, Elon! 🇺🇸🚀
+- [23:39 UTC - My friend, Conservative Lieutenant Governor Dan Patrick, and the Texas Senate, passed a st...](114599417835206103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599417835206103
+  - My friend, Conservative Lieutenant Governor Dan Patrick, and the Texas Senate, passed a strong 287(g) Bill to give local Texas Law Enforcement FULL AUTHORITY to assist the Federal...
+- [23:16 UTC - It is my great honor to raise the Tariffs on steel and aluminum from 25% to 50%, effective...](114599330494282325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114599330494282325
+  - It is my great honor to raise the Tariffs on steel and aluminum from 25% to 50%, effective Wednesday, June 4th. Our steel and aluminum industries are coming back like never before....
+- [21:20 UTC - Join me LIVE—at U.S. Steel in Pittsburgh! [https://www. youtube.com/live/xqnyP6mUI7w?s i=I...](114598871073067083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598871073067083
+  - Join me LIVE—at U.S. Steel in Pittsburgh! [https://www. youtube.com/live/xqnyP6mUI7w?s i=InXj22Kcvb_2TXIn](https://www.youtube.com/live/xqnyP6mUI7w?si=InXj22Kcvb_2TXIn)
+- [20:21 UTC - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassi...](114598642369146101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598642369146101
+  - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassination of Donald Trump and the Fight for America’s Heartland.” Salena was an eyewitness to...
+- [18:50 UTC - Elon Musk: “This is not the end of DOGE, but really the beginning...The DOGE team will onl...](114598281297498204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598281297498204
+  - Elon Musk: “This is not the end of DOGE, but really the beginning...The DOGE team will only grow stronger overtime...It is permeating throughout the government, and I am confident...
+- [18:48 UTC - Truth Social post 114598274134981885](114598274134981885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598274134981885
+  - _No text content captured._
+- [18:46 UTC - Elon has delivered a colossal change in the old ways of doing business in Washington…](114598269085729861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598269085729861
+  - Elon has delivered a colossal change in the old ways of doing business in Washington…
+- [18:01 UTC - Join me with Elon—live in The Oval Office! [https://www. youtube.com/live/dAv3PaMnme8?s i=...](114598088958949368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114598088958949368
+  - Join me with Elon—live in The Oval Office! [https://www. youtube.com/live/dAv3PaMnme8?s i=-CABNJ-rbVbrye3n](https://www.youtube.com/live/dAv3PaMnme8?si=-CABNJ-rbVbrye3n)
+- [17:30 UTC - Upon the request and recommendation of many people, I am herby terminating the employment ...](114597966895334541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597966895334541
+  - Upon the request and recommendation of many people, I am herby terminating the employment of Kim Sajet as Director of the National Portrait Gallery. She is a highly partisan person...
+- [17:06 UTC - Secretary Wright: “President Trump got elected to lower energy prices, reindustrialize Ame...](114597874618991073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597874618991073
+  - Secretary Wright: “President Trump got elected to lower energy prices, reindustrialize America, bring jobs and opportunity back to our country and peace abroad — and he is pursuing...
+- [16:38 UTC - Truth Social post 114597765659586892](114597765659586892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597765659586892
+  - _No text content captured._
+- [16:38 UTC - Truth Social post 114597765224922325](114597765224922325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597765224922325
+  - _No text content captured._
+- [16:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114597085726163793](114597734638264107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597734638264107
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114597085726163793
+- [16:29 UTC - The Democrat inspired and “controlled” Congressional Budget Office (CBO) purposefully gave...](114597726905289988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597726905289988
+  - The Democrat inspired and “controlled” Congressional Budget Office (CBO) purposefully gave us an EXTREMELY LOW level of Growth, 1.8% over 10 years. How ridiculous and unpatriotic i...
+- [13:45 UTC - CNBC's Rick Santelli: "The income numbers, really, for the first four months of year — the...](114597085726163793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114597085726163793
+  - CNBC's Rick Santelli: "The income numbers, really, for the first four months of year — they're stellar ... This administration is criticized for just about everything under the sun...
+- [12:09 UTC - Two weeks ago China was in grave economic danger! The very high Tariffs I set made it virt...](114596705340367716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114596705340367716
+  - Two weeks ago China was in grave economic danger! The very high Tariffs I set made it virtually impossible for China to TRADE into the United States marketplace which is, by far, n...
+- [02:39 UTC - “NEWLY REVEALED FBI DOCUMENT FROM 2019 SHOWS NELLIE OHR LIED TO CONGRESS ABOUT THE STEELE ...](114594463510818001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114594463510818001
+  - “NEWLY REVEALED FBI DOCUMENT FROM 2019 SHOWS NELLIE OHR LIED TO CONGRESS ABOUT THE STEELE DOSSIER”
+- [01:55 UTC - Truth Social post 114594292874428760](114594292874428760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114594292874428760
+  - _No text content captured._
+- [01:55 UTC - Truth Social post 114594290985349845](114594290985349845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114594290985349845
+  - _No text content captured._
+- [00:14 UTC - I am having a Press Conference tomorrow at 1:30 P.M. EST, with Elon Musk, at the Oval Offi...](114593895018014960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114593895018014960
+  - I am having a Press Conference tomorrow at 1:30 P.M. EST, with Elon Musk, at the Oval Office. This will be his last day, but not really, because he will, always, be with us, helpin...
+- [00:10 UTC - The U.S. Court of International Trade incredibly ruled against the United States of Americ...](114593880455063168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114593880455063168
+  - The U.S. Court of International Trade incredibly ruled against the United States of America on desperately needed Tariffs but, fortunately, the full 11 Judge Panel on the U.S. Cour...

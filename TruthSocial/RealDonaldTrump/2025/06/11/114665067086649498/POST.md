@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114665067086649498 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114665067086649498 -->
+<!-- date_published: 2025-06-11T13:54:31.556000+00:00 -->
+<!-- date_accessed: 2026-06-02T18:22:20.759990+00:00 -->
+
+# CPI JUST OUT. GREAT NUMBERS! FED SHOULD LOWER ONE FULL POINT. WOULD PAY MUCH LESS INTEREST...
+
+CPI JUST OUT. GREAT NUMBERS! FED SHOULD LOWER ONE FULL POINT. WOULD PAY MUCH LESS INTEREST ON DEBT COMING DUE. SO IMPORTANT!!!

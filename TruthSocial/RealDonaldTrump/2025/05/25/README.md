@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-05-25
+
+- Posts: 12
+
+- [23:49 UTC - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s...](114571149026549724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114571149026549724
+  - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s Big Beautiful Campaign.” Joe has been studying our Movement from the very beginning and u...
+- [23:49 UTC - Clay Travis has a GREAT new book coming out November 4, 2025: “Balls: How Trump, Young Men...](114571147521146559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114571147521146559
+  - Clay Travis has a GREAT new book coming out November 4, 2025: “Balls: How Trump, Young Men, and Sports Saved America.” Clay is a highly talented commentator, who is tough, smart, a...
+- [23:04 UTC - Congressman Andrew Garbarino is a Fierce Advocate for Long Island, and the Great People of...](114570969019320314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570969019320314
+  - Congressman Andrew Garbarino is a Fierce Advocate for Long Island, and the Great People of New York’s 2nd Congressional District! Andrew has an incredible Record of Success, and st...
+- [23:03 UTC - Congressman Troy Downing is doing a truly fantastic job representing the Incredible People...](114570968024837869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570968024837869
+  - Congressman Troy Downing is doing a truly fantastic job representing the Incredible People of Montana’s 2nd Congressional District! Troy bravely served our Great Country in the U.S...
+- [23:03 UTC - Congressman Guy Reschenthaler is doing an incredible job representing Pennsylvania’s 14th ...](114570967137329867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570967137329867
+  - Congressman Guy Reschenthaler is doing an incredible job representing Pennsylvania’s 14th Congressional District! As the Chief Deputy Whip, Guy is working closely with me to Advanc...
+- [23:03 UTC - Congressman Bryan Steil is a Tremendous Advocate for the Wonderful People of Wisconsin’s 1...](114570966776768541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570966776768541
+  - Congressman Bryan Steil is a Tremendous Advocate for the Wonderful People of Wisconsin’s 1st Congressional District! As the Chair of the House Administration Committee, Bryan is an...
+- [22:32 UTC - Truth Social post 114570843052531350](114570843052531350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570843052531350
+  - _No text content captured._
+- [22:15 UTC - I received a call today from Ursula von der Leyen, President of the European Commission, r...](114570775887793036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114570775887793036
+  - I received a call today from Ursula von der Leyen, President of the European Commission, requesting an extension on the June 1st deadline on the 50% Tariff with respect to Trade an...
+- [16:56 UTC - [https://www. foxnews.com/sports/trump-celeb rates-west-point-athletes-commencement-addres...](114569521837393715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114569521837393715
+  - [https://www. foxnews.com/sports/trump-celeb rates-west-point-athletes-commencement-address-military-academy](https://www.foxnews.com/sports/trump-celebrates-west-point-athletes-co...
+- [14:57 UTC - I always said golf can be a dangerous sport! My friend being bit at Bedminster.](114569053524453729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114569053524453729
+  - I always said golf can be a dangerous sport! My friend being bit at Bedminster.
+- [04:51 UTC - Why isn’t Harvard saying that almost 31% of their students are from FOREIGN LANDS, and yet...](114566671392866950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114566671392866950
+  - Why isn’t Harvard saying that almost 31% of their students are from FOREIGN LANDS, and yet those countries, some not at all friendly to the United States, pay NOTHING toward their...
+- [04:15 UTC - [https:// truthsocial.com/@DC_Draino/114 551819466083809](https://truthsocial.com/@DC_Drai...](114566531945115074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114566531945115074
+  - [https:// truthsocial.com/@DC_Draino/114 551819466083809](https://truthsocial.com/@DC_Draino/114551819466083809)

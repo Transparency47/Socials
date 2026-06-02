@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-06-01
+
+- Posts: 17
+
+- [23:27 UTC - Truth Social post 114610697811330167](114610697811330167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114610697811330167
+  - _No text content captured._
+- [19:11 UTC - Truth Social post 114609691916115650](114609691916115650/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114609691916115650
+  - _No text content captured._
+- [17:58 UTC - If the Courts somehow rule against us on Tariffs, which is not expected, that would allow ...](114609401400916551/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114609401400916551
+  - If the Courts somehow rule against us on Tariffs, which is not expected, that would allow other Countries to hold our Nation hostage with their anti-American Tariffs that they woul...
+- [16:38 UTC - With the help of Patriots like you, we're going to produce our own metal, unleash our own ...](114609088288599288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114609088288599288
+  - With the help of Patriots like you, we're going to produce our own metal, unleash our own energy, secure our own future, build our Country, control our destiny and we are once agai...
+- [15:56 UTC - Truth Social post 114608922272629199](114608922272629199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608922272629199
+  - _No text content captured._
+- [15:53 UTC - Truth Social post 114608910724822648](114608910724822648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608910724822648
+  - _No text content captured._
+- [15:51 UTC - United States Attorney Bill Essayli Announces Criminal Task Force to Investigate Fraud and...](114608902357322907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608902357322907
+  - United States Attorney Bill Essayli Announces Criminal Task Force to Investigate Fraud and Corruption Involving Homelessness Funds: [https://www. justice.gov/usao-cdca/pr/unite d-s...
+- [15:50 UTC - [https://www. marca.com/en/ufc/2024/02/08/65 c4ff3546163f30b78b45ab.html](https://www.marc...](114608899649626048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608899649626048
+  - [https://www. marca.com/en/ufc/2024/02/08/65 c4ff3546163f30b78b45ab.html](https://www.marca.com/en/ufc/2024/02/08/65c4ff3546163f30b78b45ab.html)
+- [15:50 UTC - [https:// awfulannouncing.com/politics/d ana-white-donald-pat-mcafee-show-espn.html](https...](114608898619438427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608898619438427
+  - [https:// awfulannouncing.com/politics/d ana-white-donald-pat-mcafee-show-espn.html](https://awfulannouncing.com/politics/dana-white-donald-pat-mcafee-show-espn.html)
+- [14:35 UTC - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassi...](114608606195747467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114608606195747467
+  - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassination of Donald Trump and the Fight for America’s Heartland.” Salena was an eyewitness to...
+- [04:37 UTC - Great playwright and filmmaker, DAVID MAMET, just wrote an incredible new book,“The Disenl...](114606254307800195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114606254307800195
+  - Great playwright and filmmaker, DAVID MAMET, just wrote an incredible new book,“The Disenlightenment, Politics, Horror, and Entertainment.” David is a special man and talent. Get h...
+- [02:06 UTC - [https:// truthsocial.com/users/llijh/st atuses/114604139396491788](https://truthsocial.co...](114605660077722777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605660077722777
+  - [https:// truthsocial.com/users/llijh/st atuses/114604139396491788](https://truthsocial.com/users/llijh/statuses/114604139396491788)
+- [02:04 UTC - [https:// truthsocial.com/users/PatriotB rigade/statuses/114603221533280722](https://truth...](114605653572773869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605653572773869
+  - [https:// truthsocial.com/users/PatriotB rigade/statuses/114603221533280722](https://truthsocial.com/users/PatriotBrigade/statuses/114603221533280722)
+- [02:03 UTC - [https:// truthsocial.com/@realDonaldTru mp/114599557006933759](https://truthsocial.com/@r...](114605647860004431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605647860004431
+  - [https:// truthsocial.com/@realDonaldTru mp/114599557006933759](https://truthsocial.com/@realDonaldTrump/114599557006933759)
+- [02:02 UTC - [https:// truthsocial.com/users/GodWins4 EVA/statuses/114600210636938938](https://truthsoc...](114605646058432224/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605646058432224
+  - [https:// truthsocial.com/users/GodWins4 EVA/statuses/114600210636938938](https://truthsocial.com/users/GodWins4EVA/statuses/114600210636938938)
+- [01:44 UTC - [https:// youtu.be/POQCgndLAJU](https://youtu.be/POQCgndLAJU)](114605572550116906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605572550116906
+  - [https:// youtu.be/POQCgndLAJU](https://youtu.be/POQCgndLAJU)
+- [01:40 UTC - After a thorough review of prior associations, I am hereby withdrawing the nomination of J...](114605559474286180/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114605559474286180
+  - After a thorough review of prior associations, I am hereby withdrawing the nomination of Jared Isaacman to head NASA. I will soon announce a new Nominee who will be Mission aligned...

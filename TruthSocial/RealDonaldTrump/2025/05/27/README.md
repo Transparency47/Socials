@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-05-27
+
+- Posts: 12
+
+- [22:51 UTC - Truth Social post 114582242653837130](114582242653837130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114582242653837130
+  - _No text content captured._
+- [22:25 UTC - Our great Mortgage Agencies, Fannie Mae and Freddie Mac, provide a vital service to our Na...](114582141732207441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114582141732207441
+  - Our great Mortgage Agencies, Fannie Mae and Freddie Mac, provide a vital service to our Nation by helping hardworking Americans reach the American Dream — Home Ownership. I am work...
+- [22:02 UTC - Other than the Rigged Presidential Election of 2020, the Biggest Scandal in American Histo...](114582052493616430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114582052493616430
+  - Other than the Rigged Presidential Election of 2020, the Biggest Scandal in American History is the “AUTOPEN!” Whoever used it was usurping the power of the Presidency, and it shou...
+- [22:02 UTC - Nobody has done more for Alaska than your Favorite President, DONALD J. TRUMP. However, th...](114582051233743955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114582051233743955
+  - Nobody has done more for Alaska than your Favorite President, DONALD J. TRUMP. However, the Biden/Harris Administration terminated MUCH of our good, JOB producing product. I am wor...
+- [22:02 UTC - As the wonderful people of the Great State of Maine know, I did something for them, in par...](114582050209637823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114582050209637823
+  - As the wonderful people of the Great State of Maine know, I did something for them, in particular the Fishing Industry, which everyone said was virtually impossible to do, or get d...
+- [21:45 UTC - Truth Social post 114581983503269092](114581983503269092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114581983503269092
+  - _No text content captured._
+- [21:44 UTC - [https://www. breitbart.com/politics/2025/05 /27/nolte-right-track-number-hits-50-first-ti...](114581981449209954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114581981449209954
+  - [https://www. breitbart.com/politics/2025/05 /27/nolte-right-track-number-hits-50-first-time-poll-history/](https://www.breitbart.com/politics/2025/05/27/nolte-right-track-number-h...
+- [21:41 UTC - I told Canada, which very much wants to be part of our fabulous Golden Dome System, that i...](114581970051938528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114581970051938528
+  - I told Canada, which very much wants to be part of our fabulous Golden Dome System, that it will cost $61 Billion Dollars if they remain a separate, but unequal, Nation, but will c...
+- [17:48 UTC - I have just signed a Proclamation for the United States Border Patrol, celebrating their 1...](114581050750543458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114581050750543458
+  - I have just signed a Proclamation for the United States Border Patrol, celebrating their 101st Anniversary. Shockingly, President Biden and the democrats refused to celebrate and h...
+- [15:44 UTC - What Vladimir Putin doesn’t realize is that if it weren’t for me, lots of really bad thing...](114580564427808609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114580564427808609
+  - What Vladimir Putin doesn’t realize is that if it weren’t for me, lots of really bad things would have already happened to Russia, and I mean REALLY BAD. He’s playing with fire!
+- [13:25 UTC - I was extremely satisfied with the 50% Tariff allotment on the European Union, especially ...](114580018376822663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114580018376822663
+  - I was extremely satisfied with the 50% Tariff allotment on the European Union, especially since they were “slow walking (to put it mildly!), our negotiations with them. Remember, I...
+- [13:07 UTC - California, under the leadership of Radical Left Democrat Gavin Newscum, continues to ILLE...](114579949187402607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114579949187402607
+  - California, under the leadership of Radical Left Democrat Gavin Newscum, continues to ILLEGALLY allow “MEN TO PLAY IN WOMEN’S SPORTS.” This week a transitioned Male athlete, at a m...

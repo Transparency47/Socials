@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-06-06
+
+- Posts: 20
+
+- [22:59 UTC - Big WIN over AP today. They refused to state the facts or the Truth on the GULF OF AMERICA...](114638898863359142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638898863359142
+  - Big WIN over AP today. They refused to state the facts or the Truth on the GULF OF AMERICA. FAKE NEWS!!!
+- [22:47 UTC - [https://www. cnn.com/2025/06/06/politics/wh ite-house-ban-associated-press-continue](http...](114638851513853589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638851513853589
+  - [https://www. cnn.com/2025/06/06/politics/wh ite-house-ban-associated-press-continue](https://www.cnn.com/2025/06/06/politics/white-house-ban-associated-press-continue)
+- [22:31 UTC - Truth Social post 114638790236703108](114638790236703108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638790236703108
+  - _No text content captured._
+- [22:24 UTC - “TRADE DEFICIT SHRINKS BY MORE THAN HALF”](114638762489499883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638762489499883
+  - “TRADE DEFICIT SHRINKS BY MORE THAN HALF”
+- [21:05 UTC - Truth Social post 114638449128937351](114638449128937351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638449128937351
+  - _No text content captured._
+- [21:04 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) The new presidential portra...](114638447893351835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638447893351835
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) The new presidential portrait of one of the most consequential presidents in world history. The greatest single title...
+- [21:04 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) IT’S TIME TO PUT PRESIDENT ...](114638447384043705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114638447384043705
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) IT’S TIME TO PUT PRESIDENT TRUMP ON MOUNT RUSHMORE! Congresswoman Anna Paulina Luna has sponsored the legislation to...
+- [18:30 UTC - I am pleased to announce that Secretary of the Treasury Scott Bessent, Secretary of Commer...](114637838750311907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114637838750311907
+  - I am pleased to announce that Secretary of the Treasury Scott Bessent, Secretary of Commerce Howard Lutnick, and United States Trade Representative, Ambassador Jamieson Greer, will...
+- [18:29 UTC - Just inspected the site of the new Ballroom that will be built, compliments of a man known...](114637837347707659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114637837347707659
+  - Just inspected the site of the new Ballroom that will be built, compliments of a man known as Donald J. Trump, at the White House. For 150 years, Presidents, and many others, have...
+- [16:34 UTC - Truth Social post 114637383964539912](114637383964539912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114637383964539912
+  - _No text content captured._
+- [16:31 UTC - Congratulations to Chairman of the Senate Committee on Commerce, Science, and Transportati...](114637373477221541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114637373477221541
+  - Congratulations to Chairman of the Senate Committee on Commerce, Science, and Transportation, Ted Cruz, Chairman of the Senate Armed Services Committee, Roger Wicker, and Chairman...
+- [14:12 UTC - GREAT JOB NUMBERS, STOCK MARKET UP BIG! AT THE SAME TIME, BILLIONS POURING IN FROM TARIFFS...](114636826069773755/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636826069773755
+  - GREAT JOB NUMBERS, STOCK MARKET UP BIG! AT THE SAME TIME, BILLIONS POURING IN FROM TARIFFS!!!
+- [13:49 UTC - If “Too Late” at the Fed would CUT, we would greatly reduce interest rates, long and short...](114636734825372318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636734825372318
+  - If “Too Late” at the Fed would CUT, we would greatly reduce interest rates, long and short, on debt that is coming due. Biden went mostly short term. There is virtually no inflatio...
+- [13:41 UTC - “Too Late” at the Fed is a disaster! Europe has had 10 rate cuts, we have had none. Despit...](114636703372425608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636703372425608
+  - “Too Late” at the Fed is a disaster! Europe has had 10 rate cuts, we have had none. Despite him, our Country is doing great. Go for a full point, Rocket Fuel!
+- [12:58 UTC - AMERICA IS HOT! SIX MONTHS AGO IT WAS COLD AS ICE! BORDER IS CLOSED, PRICES ARE DOWN. WAGE...](114636535351943737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636535351943737
+  - AMERICA IS HOT! SIX MONTHS AGO IT WAS COLD AS ICE! BORDER IS CLOSED, PRICES ARE DOWN. WAGES ARE UP!
+- [11:45 UTC - Prices are down, income is up, our Border is closed, gasoline is CHEAP, inflation is DEAD ...](114636249329541108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636249329541108
+  - Prices are down, income is up, our Border is closed, gasoline is CHEAP, inflation is DEAD — Our Country is BOOMING! Companies are pouring into America like never before!
+- [11:20 UTC - The Failing New York Times and the Washington ComPost, two “papers” that have ruthlessly f...](114636148473122568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114636148473122568
+  - The Failing New York Times and the Washington ComPost, two “papers” that have ruthlessly fought me for years, have each done Polls where a vast majority of those sampled are Democr...
+- [03:10 UTC - INFO➡️ [https:// america250.org/](https://america250.org/)](114634223801183343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114634223801183343
+  - INFO➡️ [https:// america250.org/](https://america250.org/)
+- [02:48 UTC - [https://www. newsmax.com/us/meme-trump-cryp to/2025/05/20/id/1211704/](https://www.newsma...](114634138406622995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114634138406622995
+  - [https://www. newsmax.com/us/meme-trump-cryp to/2025/05/20/id/1211704/](https://www.newsmax.com/us/meme-trump-crypto/2025/05/20/id/1211704/)
+- [02:48 UTC - Thank you! [https://www. newsmax.com/newsfront/donald-t rump-national-polls-approval-ratin...](114634135422714697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114634135422714697
+  - Thank you! [https://www. newsmax.com/newsfront/donald-t rump-national-polls-approval-ratings/2025/05/19/id/1211548/](https://www.newsmax.com/newsfront/donald-trump-national-polls-a...

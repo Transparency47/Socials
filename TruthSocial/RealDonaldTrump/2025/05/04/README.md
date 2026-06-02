@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-05-04
+
+- Posts: 15
+
+- [23:18 UTC - The Movie Industry in America is DYING a very fast death. Other Countries are offering all...](114452117143235155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452117143235155
+  - The Movie Industry in America is DYING a very fast death. Other Countries are offering all sorts of incentives to draw our filmmakers and studios away from the United States. Holly...
+- [22:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114452025916969327](114452026768595225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452026768595225
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114452025916969327
+- [22:55 UTC - REBUILD, AND OPEN ALCATRAZ! For too long, America has been plagued by vicious, violent, an...](114452025916969327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114452025916969327
+  - REBUILD, AND OPEN ALCATRAZ! For too long, America has been plagued by vicious, violent, and repeat Criminal Offenders, the dregs of society, who will never contribute anything othe...
+- [22:41 UTC - It is time for Howie Kurtz to retire! Every Woke Anchor in the Business, people that no on...](114451972448301240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114451972448301240
+  - It is time for Howie Kurtz to retire! Every Woke Anchor in the Business, people that no one watched from CNN, MSDNC, and others, are plastered all over his show, with all really ne...
+- [22:41 UTC - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s...](114451970991645838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114451970991645838
+  - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s Big Beautiful Campaign.” Joe has been studying our Movement from the very beginning and u...
+- [19:50 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/05/national-fallen-firefighters-me...](114451299411510658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114451299411510658
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/05/national-fallen-firefighters-memorial-weekend-2025/](https://www.whitehouse.gov/presidential-actions/2025/05/national-fal...
+- [18:52 UTC - Lee Zeldin: “At the Trump EPA, the status quo won’t be treated as a sacred cow, Biden EPA ...](114451070372643732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114451070372643732
+  - Lee Zeldin: “At the Trump EPA, the status quo won’t be treated as a sacred cow, Biden EPA rules won’t be considered etched in stone, and there will be a ZERO tolerance policy towar...
+- [17:28 UTC - “Border crossings are at their lowest level ever recorded…”](114450740029144099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450740029144099
+  - “Border crossings are at their lowest level ever recorded…”
+- [17:25 UTC - I have been investigated more than any person in the history of the United States of Ameri...](114450726968071164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450726968071164
+  - I have been investigated more than any person in the history of the United States of America…
+- [17:19 UTC - THE DEMOCRATS ARE IN TOTAL DISARRAY!](114450707221467337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450707221467337
+  - THE DEMOCRATS ARE IN TOTAL DISARRAY!
+- [17:18 UTC - Truth Social post 114450699454751823](114450699454751823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450699454751823
+  - _No text content captured._
+- [17:16 UTC - “The president has been very clear. He does not want to cut benefits for individuals on Me...](114450692045400819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450692045400819
+  - “The president has been very clear. He does not want to cut benefits for individuals on Medicaid, Medicare...he wants to make sure illegals are not receiving public assistance thro...
+- [17:13 UTC - “Border crossings have PLUNGED under Trump…”](114450683496592465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114450683496592465
+  - “Border crossings have PLUNGED under Trump…”
+- [03:47 UTC - Truth Social post 114447511783546675](114447511783546675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114447511783546675
+  - _No text content captured._
+- [03:33 UTC - [https://www. whitehouse.gov/articles/2025/0 5/week-15-wins-president-trumps-100th-day-mar...](114447455752443157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114447455752443157
+  - [https://www. whitehouse.gov/articles/2025/0 5/week-15-wins-president-trumps-100th-day-marked-by-more-success/](https://www.whitehouse.gov/articles/2025/05/week-15-wins-president-t...

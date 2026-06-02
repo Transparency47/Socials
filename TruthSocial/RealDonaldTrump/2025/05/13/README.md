@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-05-13
+
+- Posts: 14
+
+- [23:50 UTC - The Boeing 747 is being given to the United States Air Force/Department of Defense, NOT TO...](114503203859060399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114503203859060399
+  - The Boeing 747 is being given to the United States Air Force/Department of Defense, NOT TO ME! It is a gift from a Nation, Qatar, that we have successfully defended for many years....
+- [20:07 UTC - So nice. Thank you!](114502326794265193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114502326794265193
+  - So nice. Thank you!
+- [19:51 UTC - A great day in Saudi Arabia!!!](114502263160167723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114502263160167723
+  - A great day in Saudi Arabia!!!
+- [17:49 UTC - [https://www. youtube.com/live/wj1QOz3iuCE?s i=Bd-V7VsRXJ-f4CHC](https://www.youtube.com/l...](114501782498147808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114501782498147808
+  - [https://www. youtube.com/live/wj1QOz3iuCE?s i=Bd-V7VsRXJ-f4CHC](https://www.youtube.com/live/wj1QOz3iuCE?si=Bd-V7VsRXJ-f4CHC)
+- [17:48 UTC - Will be interviewed tonight by Sean Hannity on FoxNews, 9:00 P.M. ENJOY!](114501781259201749/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114501781259201749
+  - Will be interviewed tonight by Sean Hannity on FoxNews, 9:00 P.M. ENJOY!
+- [17:43 UTC - No Inflation, and Prices of Gasoline, Energy, Groceries, and practically everything else, ...](114501759958997511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114501759958997511
+  - No Inflation, and Prices of Gasoline, Energy, Groceries, and practically everything else, are DOWN!!! THE FED must lower the RATE, like Europe and China have done. What is wrong wi...
+- [15:09 UTC - Truth Social post 114501154213579329](114501154213579329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114501154213579329
+  - _No text content captured._
+- [13:45 UTC - [https://www. youtube.com/live/chiBlBPbkhE?s i=kiXrKvprBVh0HvnW](https://www.youtube.com/l...](114500825192823646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114500825192823646
+  - [https://www. youtube.com/live/chiBlBPbkhE?s i=kiXrKvprBVh0HvnW](https://www.youtube.com/live/chiBlBPbkhE?si=kiXrKvprBVh0HvnW)
+- [09:01 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114499337476531986](114499706021304117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114499706021304117
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114499337476531986
+- [07:39 UTC - [https:// nypost.com/2025/05/13/us-news/ trump-arrives-in-saudi-arabia-after-air-force-one...](114499386376813091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114499386376813091
+  - [https:// nypost.com/2025/05/13/us-news/ trump-arrives-in-saudi-arabia-after-air-force-one-receives-fighter-jet-escort/](https://nypost.com/2025/05/13/us-news/trump-arrives-in-saud...
+- [07:27 UTC - Just landed in Saudi Arabia!](114499337476531986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114499337476531986
+  - Just landed in Saudi Arabia!
+- [02:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We are going to slash the...](114498087289429724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114498087289429724
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We are going to slash the cost of prescription drugs, and we will bring fairness to America. Drug prices will come...
+- [02:08 UTC - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s...](114498083205032077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114498083205032077
+  - Joe Concha has written an incredible new book, “THE GREATEST COMEBACK EVER: Inside Trump’s Big Beautiful Campaign.” Joe has been studying our Movement from the very beginning and u...
+- [00:25 UTC - On Peace Officers Memorial Day and during Police Week, we honor our brave officers who ser...](114497679502484164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114497679502484164
+  - On Peace Officers Memorial Day and during Police Week, we honor our brave officers who serve on the front lines to protect our families, safeguard our communities, and shoulder a b...

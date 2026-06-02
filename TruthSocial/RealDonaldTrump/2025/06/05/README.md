@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-06-05
+
+- Posts: 10
+
+- [20:06 UTC - I don’t mind Elon turning against me, but he should have done so months ago. This is one o...](114632555927229642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114632555927229642
+  - I don’t mind Elon turning against me, but he should have done so months ago. This is one of the Greatest Bills ever presented to Congress. It’s a Record Cut in Expenses, $1.6 Trill...
+- [18:37 UTC - The easiest way to save money in our Budget, Billions and Billions of Dollars, is to termi...](114632206992330264/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114632206992330264
+  - The easiest way to save money in our Budget, Billions and Billions of Dollars, is to terminate Elon’s Governmental Subsidies and Contracts. I was always surprised that Biden didn’t...
+- [18:37 UTC - Elon was “wearing thin,” I asked him to leave, I took away his EV Mandate that forced ever...](114632205177163456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114632205177163456
+  - Elon was “wearing thin,” I asked him to leave, I took away his EV Mandate that forced everyone to buy Electric Cars that nobody else wanted (that he knew for months I was going to...
+- [16:34 UTC - Below—Regarding my phone call this morning with President Xi…](114631720913326891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631720913326891
+  - Below—Regarding my phone call this morning with President Xi…
+- [16:30 UTC - Truth Social post 114631707034653905](114631707034653905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631707034653905
+  - _No text content captured._
+- [16:28 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114631699407982620 An honor to ...](114631700173877454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631700173877454
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114631699407982620 An honor to welcome Friedrich Merz, the Chancellor of Germany to the White House…
+- [16:28 UTC - Truth Social post 114631699407982620](114631699407982620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631699407982620
+  - _No text content captured._
+- [15:32 UTC - Shockingly, the Democrat controlled CBO just announced that the Tariffs will be reducing t...](114631479329996984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631479329996984
+  - Shockingly, the Democrat controlled CBO just announced that the Tariffs will be reducing the Deficit by at least $2.8 Trillion Dollars. Too bad this information couldn’t have been...
+- [14:46 UTC - I just concluded a very good phone call with President Xi, of China, discussing some of th...](114631295762726849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114631295762726849
+  - I just concluded a very good phone call with President Xi, of China, discussing some of the intricacies of our recently made, and agreed to, Trade Deal. The call lasted approximate...
+- [00:11 UTC - We cannot have open migration from any country where we cannot safely and reliably vet and...](114627858736860268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114627858736860268
+  - We cannot have open migration from any country where we cannot safely and reliably vet and screen….

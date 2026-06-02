@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-05-28
+
+- Posts: 12
+
+- [22:33 UTC - Happy 101st Anniversary to the U.S. Border Patrol—THANK YOU for all you do, 24/7/365! PROC...](114587834569910458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587834569910458
+  - Happy 101st Anniversary to the U.S. Border Patrol—THANK YOU for all you do, 24/7/365! PROCLAMATION: [https://www. whitehouse.gov/presidential-ac tions/2025/05/101st-anniversary-of-...
+- [20:55 UTC - I am pleased to nominate Ed Artau to serve as Judge on the United States District Court fo...](114587450000198620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587450000198620
+  - I am pleased to nominate Ed Artau to serve as Judge on the United States District Court for the Southern District of Florida. He is currently a Judge on Florida’s Fourth District C...
+- [20:55 UTC - I am honored to nominate Jordan E. Pratt to serve as Judge on the United States District C...](114587449190015002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587449190015002
+  - I am honored to nominate Jordan E. Pratt to serve as Judge on the United States District Court for the Middle District of Florida. Jordan is a true Legal Champion, who currently se...
+- [20:55 UTC - It is my honor to nominate John Guard to serve as Judge on the United States District Cour...](114587448932259485/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587448932259485
+  - It is my honor to nominate John Guard to serve as Judge on the United States District Court for the Middle District of Florida! John has passionately served the Great State of Flor...
+- [20:54 UTC - I am pleased to announce the nomination of Anne-Leigh Gaylord Moe to serve as Judge on the...](114587447392412802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587447392412802
+  - I am pleased to announce the nomination of Anne-Leigh Gaylord Moe to serve as Judge on the United States District Court for the Middle District of Florida. Anne-Leigh has fiercely...
+- [20:54 UTC - I am pleased to announce the nomination of Kyle Dudek to serve as Judge on the United Stat...](114587447106051612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587447106051612
+  - I am pleased to announce the nomination of Kyle Dudek to serve as Judge on the United States District Court for the Middle District of Florida. Kyle earned his J.D., Magna Cum Laud...
+- [19:03 UTC - It is my great honor to nominate Emil Bove to serve as a Judge on the United States Court ...](114587010981213926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114587010981213926
+  - It is my great honor to nominate Emil Bove to serve as a Judge on the United States Court of Appeals for the Third Circuit. Emil is a distinguished graduate of Georgetown Law, and...
+- [18:50 UTC - I am pleased to announce that our United States Ambassador to Turkey, Tom Barrack, will be...](114586960080176462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114586960080176462
+  - I am pleased to announce that our United States Ambassador to Turkey, Tom Barrack, will be serving as our Envoy to Syria. Tom understands there is great potential in working with S...
+- [15:44 UTC - “Here’s what they’re saying about the One, Big, Beautiful Bill” [https://www. whitehouse.g...](114586226007898415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114586226007898415
+  - “Here’s what they’re saying about the One, Big, Beautiful Bill” [https://www. whitehouse.gov/articles/2025/0 5/what-they-are-saying-one-big-beautiful-bill-clears-house/](https://ww...
+- [15:39 UTC - Truth Social post 114586208518446686](114586208518446686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114586208518446686
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 114586203503608185](114586203503608185/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114586203503608185
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 114586202386757925](114586202386757925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114586202386757925
+  - _No text content captured._

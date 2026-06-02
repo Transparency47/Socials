@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2025-06-10
+
+- Posts: 35
+
+- [23:16 UTC - Standing before you today, I am more confident than ever that in the days ahead and every ...](114661616289278861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661616289278861
+  - Standing before you today, I am more confident than ever that in the days ahead and every generation to come, the U.S. Army will heap glory upon glory. You will summon inexhaustibl...
+- [23:15 UTC - This week, we remember that we only have A COUNTRY because we first had an ARMY—and after ...](114661611675544476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661611675544476
+  - This week, we remember that we only have A COUNTRY because we first had an ARMY—and after 250 years, we still proudly declare that WE ARE FREE because YOU ARE STRONG. We are SAFE b...
+- [23:13 UTC - For our adversaries, there is no greater fear than the United States Army. But for the Ame...](114661602710951888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661602710951888
+  - For our adversaries, there is no greater fear than the United States Army. But for the American People, there is no greater pride—because YOU are the righteous sword of American Ju...
+- [23:11 UTC - From June 1775 to June 2025, those foolish enough to challenge America’s Army have been me...](114661594047511147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661594047511147
+  - From June 1775 to June 2025, those foolish enough to challenge America’s Army have been met with unyielding strength, unbreakable spirit, and unstoppable, overwhelming force. Time...
+- [23:07 UTC - [https://www. youtube.com/live/447wkXyiIjc?s i=b0k-djU5_Hhl_NWW](https://www.youtube.com/l...](114661579694762999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661579694762999
+  - [https://www. youtube.com/live/447wkXyiIjc?s i=b0k-djU5_Hhl_NWW](https://www.youtube.com/live/447wkXyiIjc?si=b0k-djU5_Hhl_NWW)
+- [21:48 UTC - Truth Social post 114661270274463584](114661270274463584/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661270274463584
+  - _No text content captured._
+- [21:48 UTC - Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG...](114661266771433205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661266771433205
+  - Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG in 2016, 2020, and 2024! As Governor, Brad is fighting tirelessly to Champion Idaho Value...
+- [21:08 UTC - [https://www. youtube.com/live/447wkXyiIjc?s i=ydJNeet9g0otrkiY](https://www.youtube.com/l...](114661110094770999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114661110094770999
+  - [https://www. youtube.com/live/447wkXyiIjc?s i=ydJNeet9g0otrkiY](https://www.youtube.com/live/447wkXyiIjc?si=ydJNeet9g0otrkiY)
+- [17:17 UTC - The $1,000 child Trump Accounts are a pro-family initiative that will help millions of Ame...](114660202617448574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660202617448574
+  - The $1,000 child Trump Accounts are a pro-family initiative that will help millions of Americans harness the strength of our economy to lift up the next generation—They are fully f...
+- [17:15 UTC - If we didn't send out the National Guard—Los Angeles would be burning right now!](114660196568628575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660196568628575
+  - If we didn't send out the National Guard—Los Angeles would be burning right now!
+- [16:39 UTC - If there's an insurrection, I would certainly invoke it...If we didn't get involved, right...](114660052924717461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660052924717461
+  - If there's an insurrection, I would certainly invoke it...If we didn't get involved, right now Los Angeles would be burning just like it was burning a number of months ago...We are...
+- [16:36 UTC - [https://www. whitehouse.gov/articles/2025/0 6/trump-effect-higher-pay-for-american-worker...](114660040863802885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660040863802885
+  - [https://www. whitehouse.gov/articles/2025/0 6/trump-effect-higher-pay-for-american-workers/](https://www.whitehouse.gov/articles/2025/06/trump-effect-higher-pay-for-american-worke...
+- [16:35 UTC - [https://www. whitehouse.gov/articles/2025/0 6/the-one-big-beautiful-bill-will-end-taxpaye...](114660036129884573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660036129884573
+  - [https://www. whitehouse.gov/articles/2025/0 6/the-one-big-beautiful-bill-will-end-taxpayer-funded-health-care-for-illegals/](https://www.whitehouse.gov/articles/2025/06/the-one-bi...
+- [16:33 UTC - [https://www. whitehouse.gov/articles/2025/0 6/the-largest-tax-cut-in-history-for-working-...](114660029921081517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114660029921081517
+  - [https://www. whitehouse.gov/articles/2025/0 6/the-largest-tax-cut-in-history-for-working-and-middle-class-americans/](https://www.whitehouse.gov/articles/2025/06/the-largest-tax-c...
+- [13:45 UTC - If I didn’t “SEND IN THE TROOPS” to Los Angeles the last three nights, that once beautiful...](114659367372751138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114659367372751138
+  - If I didn’t “SEND IN THE TROOPS” to Los Angeles the last three nights, that once beautiful and great City would be burning to the ground right now, much like 25,000 houses burned t...
+- [12:31 UTC - Will be going to Fort Bragg today. Big speech, amazing crowd! See you later!!! DJT](114659078711716972/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114659078711716972
+  - Will be going to Fort Bragg today. Big speech, amazing crowd! See you later!!! DJT
+- [02:34 UTC - Truth Social post 114656730708089837](114656730708089837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656730708089837
+  - _No text content captured._
+- [01:56 UTC - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassi...](114656580327959703/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656580327959703
+  - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassination of Donald Trump and the Fight for America’s Heartland.” Salena was an eyewitness to...
+- [01:03 UTC - [https://www. breitbart.com/politics/2025/04 /29/trump-touts-best-first-100-days-of-any-pr...](114656373407054470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656373407054470
+  - [https://www. breitbart.com/politics/2025/04 /29/trump-touts-best-first-100-days-of-any-president-in-history/](https://www.breitbart.com/politics/2025/04/29/trump-touts-best-first-...
+- [01:03 UTC - [https:// justthenews.com/politics-polic y/all-things-trump/trump-says-automakers-want-com...](114656372641493203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656372641493203
+  - [https:// justthenews.com/politics-polic y/all-things-trump/trump-says-automakers-want-come-back-michigan-due-his-tax-tariff](https://justthenews.com/politics-policy/all-things-tru...
+- [01:03 UTC - [https://www. foxnews.com/politics/trump-ann ounces-new-serious-power-fighter-jets-michiga...](114656371667510589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656371667510589
+  - [https://www. foxnews.com/politics/trump-ann ounces-new-serious-power-fighter-jets-michigan-guard-base-replace-aging-a-10s](https://www.foxnews.com/politics/trump-announces-new-ser...
+- [01:02 UTC - [https://www. newsmax.com/newsmax-tv/donald- trump-100-days-rally/2025/04/29/id/1208862/](...](114656370380909786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656370380909786
+  - [https://www. newsmax.com/newsmax-tv/donald- trump-100-days-rally/2025/04/29/id/1208862/](https://www.newsmax.com/newsmax-tv/donald-trump-100-days-rally/2025/04/29/id/1208862/)
+- [01:02 UTC - [https://www. rsbnetwork.com/news/trump-tout s-golden-dome-missile-defense-shield-and-amer...](114656368228066008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656368228066008
+  - [https://www. rsbnetwork.com/news/trump-tout s-golden-dome-missile-defense-shield-and-american-military-might/](https://www.rsbnetwork.com/news/trump-touts-golden-dome-missile-defe...
+- [01:01 UTC - [https://www. cnn.com/2025/04/29/politics/tr ump-whitmer-michigan-relationship-praise](htt...](114656366371438057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656366371438057
+  - [https://www. cnn.com/2025/04/29/politics/tr ump-whitmer-michigan-relationship-praise](https://www.cnn.com/2025/04/29/politics/trump-whitmer-michigan-relationship-praise)
+- [01:01 UTC - [https:// michiganadvance.com/2025/04/29 /trump-with-whitmer-at-his-side-announces-new-fig...](114656365642616147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656365642616147
+  - [https:// michiganadvance.com/2025/04/29 /trump-with-whitmer-at-his-side-announces-new-fighter-wing-for-michigans-selfridge-air-base/](https://michiganadvance.com/2025/04/29/trump-...
+- [01:01 UTC - [https://www. thegatewaypundit.com/2025/04/b oom-president-trump-opens-100-day-rally-fire/...](114656364863285620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656364863285620
+  - [https://www. thegatewaypundit.com/2025/04/b oom-president-trump-opens-100-day-rally-fire/](https://www.thegatewaypundit.com/2025/04/boom-president-trump-opens-100-day-rally-fire/)
+- [01:01 UTC - [https://www. rsbnetwork.com/news/100-days-o f-winning-trump-fulfills-his-campaign-promise...](114656364110054210/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656364110054210
+  - [https://www. rsbnetwork.com/news/100-days-o f-winning-trump-fulfills-his-campaign-promises-with-breathtaking-speed-as-american-spirit-takes-flight/](https://www.rsbnetwork.com/new...
+- [01:00 UTC - RT [@ StephenM](https://truthsocial.com/@StephenM) The single most successful 100 days in ...](114656362993335338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656362993335338
+  - RT [@ StephenM](https://truthsocial.com/@StephenM) The single most successful 100 days in presidential history!!!
+- [01:00 UTC - [https:// freebeacon.com/energy/trump-en ergy-secretary-tells-europeans-to-ditch-climate-a...](114656362308717737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656362308717737
+  - [https:// freebeacon.com/energy/trump-en ergy-secretary-tells-europeans-to-ditch-climate-alarmism-and-embrace-natural-gas-as-nations-face-widespread-blackouts/](https://freebeacon....
+- [01:00 UTC - [https://www. nysun.com/article/trumps-first -100-days-promises-made-promises-kept](https:...](114656361525576135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656361525576135
+  - [https://www. nysun.com/article/trumps-first -100-days-promises-made-promises-kept](https://www.nysun.com/article/trumps-first-100-days-promises-made-promises-kept)
+- [01:00 UTC - [https://www. foxnews.com/opinion/joe-concha -the-greatest-comeback-ever-how-trump-won-whi...](114656360793859484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656360793859484
+  - [https://www. foxnews.com/opinion/joe-concha -the-greatest-comeback-ever-how-trump-won-white-house-all-over-again](https://www.foxnews.com/opinion/joe-concha-the-greatest-comeback-...
+- [01:00 UTC - [https://www. washingtonexaminer.com/restori ng-america/fairness-justice/3430112/emil-bove...](114656359617155085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656359617155085
+  - [https://www. washingtonexaminer.com/restori ng-america/fairness-justice/3430112/emil-bove-will-be-a-great-judge/](https://www.washingtonexaminer.com/restoring-america/fairness-jus...
+- [00:59 UTC - [https://www. breitbart.com/sports/2025/02/0 4/dana-white-reveals-trumps-resolute-response...](114656358928293409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656358928293409
+  - [https://www. breitbart.com/sports/2025/02/0 4/dana-white-reveals-trumps-resolute-response-after-the-ufc-boss-urged-him-to-quit-following-assassination-attempt/](https://www.breitb...
+- [00:59 UTC - [https:// americanmind.org/salvo/forgott en-americans-no-more/](https://americanmind.org/s...](114656358109536892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656358109536892
+  - [https:// americanmind.org/salvo/forgott en-americans-no-more/](https://americanmind.org/salvo/forgotten-americans-no-more/)
+- [00:59 UTC - Truth Social post 114656357501146856](114656357501146856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114656357501146856
+  - _No text content captured._

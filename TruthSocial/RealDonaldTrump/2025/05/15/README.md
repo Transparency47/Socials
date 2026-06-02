@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-05-15
+
+- Posts: 11
+
+- [23:13 UTC - Truth Social post 114514382709022315](114514382709022315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114514382709022315
+  - _No text content captured._
+- [12:28 UTC - Truth Social post 114511845539109287](114511845539109287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511845539109287
+  - _No text content captured._
+- [12:07 UTC - Truth Social post 114511764631862751](114511764631862751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511764631862751
+  - _No text content captured._
+- [12:07 UTC - Remember, it all started right after the Civil War ended, it had nothing to do with curren...](114511762010659631/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511762010659631
+  - Remember, it all started right after the Civil War ended, it had nothing to do with current day Immigration Policy!
+- [11:53 UTC - Big case today in the United States Supreme Court. Birthright Citizenship was not meant fo...](114511710554568353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511710554568353
+  - Big case today in the United States Supreme Court. Birthright Citizenship was not meant for people taking vacations to become permanent Citizens of the United States of America, an...
+- [09:25 UTC - Getting ready to speak at the magnificent Al Udeid Air Base in Qatar! [https://www. youtub...](114511127013656727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511127013656727
+  - Getting ready to speak at the magnificent Al Udeid Air Base in Qatar! [https://www. youtube.com/live/Yn7-eCpY3Lk?s i=kA2JaHuMapebX1qR](https://www.youtube.com/live/Yn7-eCpY3Lk?si=k...
+- [09:04 UTC - Truth Social post 114511045073496590](114511045073496590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511045073496590
+  - _No text content captured._
+- [09:02 UTC - Truth Social post 114511038265974172](114511038265974172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114511038265974172
+  - _No text content captured._
+- [08:26 UTC - [https://www. youtube.com/live/Zs0T0c5AEi8?s i=-_7eI-9OBtqgSRMw](https://www.youtube.com/l...](114510893778949880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114510893778949880
+  - [https://www. youtube.com/live/Zs0T0c5AEi8?s i=-_7eI-9OBtqgSRMw](https://www.youtube.com/live/Zs0T0c5AEi8?si=-_7eI-9OBtqgSRMw)
+- [08:25 UTC - [https:// youtu.be/yNRjM2dynKI](https://youtu.be/yNRjM2dynKI)](114510889381262752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114510889381262752
+  - [https:// youtu.be/yNRjM2dynKI](https://youtu.be/yNRjM2dynKI)
+- [07:57 UTC - [https://www. nbcnews.com/news/us-news/iran- enriched-uranium-nuclear-deal-trump-rcna20683...](114510779763360004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114510779763360004
+  - [https://www. nbcnews.com/news/us-news/iran- enriched-uranium-nuclear-deal-trump-rcna206833](https://www.nbcnews.com/news/us-news/iran-enriched-uranium-nuclear-deal-trump-rcna20683...

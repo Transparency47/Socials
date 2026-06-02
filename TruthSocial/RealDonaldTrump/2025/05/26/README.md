@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-05-26
+
+- Posts: 21
+
+- [19:49 UTC - Truth Social post 114575866799232685](114575866799232685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575866799232685
+  - _No text content captured._
+- [19:47 UTC - Truth Social post 114575858493279274](114575858493279274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575858493279274
+  - _No text content captured._
+- [19:22 UTC - Truth Social post 114575761043768186](114575761043768186/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575761043768186
+  - _No text content captured._
+- [19:19 UTC - Sheriff Scott Jenkins, his wife Patricia, and their family have been dragged through HELL ...](114575749717831050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575749717831050
+  - Sheriff Scott Jenkins, his wife Patricia, and their family have been dragged through HELL by a Corrupt and Weaponized Biden DOJ. In fact, during his trial, when Sheriff Jenkins tri...
+- [16:18 UTC - Truth Social post 114575038159329164](114575038159329164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575038159329164
+  - _No text content captured._
+- [16:17 UTC - Truth Social post 114575033158765071](114575033158765071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114575033158765071
+  - _No text content captured._
+- [15:21 UTC - [https:// rumble.com/v6tw481-president-t rump-participates-in-a-wreath-laying-ceremony-at-...](114574812283069330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574812283069330
+  - [https:// rumble.com/v6tw481-president-t rump-participates-in-a-wreath-laying-ceremony-at-arlington-natio.html](https://rumble.com/v6tw481-president-trump-participates-in-a-wreath-...
+- [13:06 UTC - I will be making a Memorial Day Speech today at Arlington National Cemetery, 11:00 A.M. EN...](114574280556211991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574280556211991
+  - I will be making a Memorial Day Speech today at Arlington National Cemetery, 11:00 A.M. ENJOY!!!
+- [12:42 UTC - We are still waiting for the Foreign Student Lists from Harvard so that we can determine, ...](114574185207174304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574185207174304
+  - We are still waiting for the Foreign Student Lists from Harvard so that we can determine, after a ridiculous expenditure of BILLIONS OF DOLLARS, how many radicalized lunatics, trou...
+- [12:27 UTC - I am considering taking Three Billion Dollars of Grant Money away from a very antisemitic ...](114574126417705588/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574126417705588
+  - I am considering taking Three Billion Dollars of Grant Money away from a very antisemitic Harvard, and giving it to TRADE SCHOOLS all across our land. What a great investment that...
+- [12:17 UTC - MAKE AMERICA GREAT AGAIN!](114574090132139073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574090132139073
+  - MAKE AMERICA GREAT AGAIN!
+- [12:17 UTC - Our Nation is staging one if the greatest and fastest comebacks in history. In just 4 shor...](114574087342675789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114574087342675789
+  - Our Nation is staging one if the greatest and fastest comebacks in history. In just 4 short months, we are respected again, respected like never before, and just wait, with many Tr...
+- [11:45 UTC - Countries from all over the World want to make TRADE DEALS with us. IT IS A BEAUTIFUL THIN...](114573960971600808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573960971600808
+  - Countries from all over the World want to make TRADE DEALS with us. IT IS A BEAUTIFUL THING TO SEE. The Good Ol’ USA will soon have tremendous growth, and be stronger than ever bef...
+- [11:40 UTC - Truth Social post 114573942183409432](114573942183409432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573942183409432
+  - _No text content captured._
+- [11:40 UTC - Truth Social post 114573941252604782](114573941252604782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573941252604782
+  - _No text content captured._
+- [11:39 UTC - Truth Social post 114573938733908536](114573938733908536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573938733908536
+  - _No text content captured._
+- [11:31 UTC - Truth Social post 114573908426702827](114573908426702827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573908426702827
+  - _No text content captured._
+- [11:22 UTC - HAPPY MEMORIAL DAY TO ALL, INCLUDING THE SCUM THAT SPENT THE LAST FOUR YEARS TRYING TO DES...](114573871728757682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573871728757682
+  - HAPPY MEMORIAL DAY TO ALL, INCLUDING THE SCUM THAT SPENT THE LAST FOUR YEARS TRYING TO DESTROY OUR COUNTRY THROUGH WARPED RADICAL LEFT MINDS, WHO ALLOWED 21,000,000 MILLION PEOPLE...
+- [10:28 UTC - HAPPY MEMORIAL DAY!](114573660942392905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573660942392905
+  - HAPPY MEMORIAL DAY!
+- [10:22 UTC - [https:// truthsocial.com/@DC_Draino/114 542750930300016](https://truthsocial.com/@DC_Drai...](114573635241995384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114573635241995384
+  - [https:// truthsocial.com/@DC_Draino/114 542750930300016](https://truthsocial.com/@DC_Draino/114542750930300016)
+- [00:46 UTC - I’ve always had a very good relationship with Vladimir Putin of Russia, but something has ...](114571369956761390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114571369956761390
+  - I’ve always had a very good relationship with Vladimir Putin of Russia, but something has happened to him. He has gone absolutely CRAZY! He is needlessly killing a lot of people, a...

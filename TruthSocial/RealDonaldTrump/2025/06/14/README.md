@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-06-14
 
-- Posts: 6
+- Posts: 7
 
 - [21:54 UTC - [https://www. youtube.com/live/LTH9p7Gl5ME?s i=ygsTk90rOG9lCfy0](https://www.youtube.com/l...](114683943083517036/)
   - Source: https://truthsocial.com/@realDonaldTrump/114683943083517036
@@ -20,3 +20,6 @@
 - [13:48 UTC - This is a big day for America!!! DJT](114682031038787625/)
   - Source: https://truthsocial.com/@realDonaldTrump/114682031038787625
   - This is a big day for America!!! DJT
+- [13:47 UTC - Truth Social post 114682028221492760](114682028221492760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114682028221492760
+  - _No text content captured._
