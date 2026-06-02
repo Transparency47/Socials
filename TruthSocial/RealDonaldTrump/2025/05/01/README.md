@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-05-01
+
+- Posts: 16
+
+- [23:35 UTC - Truth Social post 114435198783729295](114435198783729295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114435198783729295
+  - _No text content captured._
+- [23:04 UTC - Just landing in Alabama, where I look forward to giving the Commencement Address to the Gr...](114435073705713456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114435073705713456
+  - Just landing in Alabama, where I look forward to giving the Commencement Address to the Great University of Alabama. They put all of their nine Graduations into one, so I better do...
+- [22:28 UTC - Truth Social post 114434935271138016](114434935271138016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114434935271138016
+  - _No text content captured._
+- [18:20 UTC - ALERT: All purchases of Iranian Oil, or Petrochemical products, must stop, NOW! Any Countr...](114433959082847679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114433959082847679
+  - ALERT: All purchases of Iranian Oil, or Petrochemical products, must stop, NOW! Any Country or person who buys ANY AMOUNT of OIL or PETROCHEMICALS from Iran will be subject to, imm...
+- [18:16 UTC - I am pleased to announce that I will be nominating Mike Waltz to be the next United States...](114433942825461076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114433942825461076
+  - I am pleased to announce that I will be nominating Mike Waltz to be the next United States Ambassador to the United Nations. From his time in uniform on the battlefield, in Congres...
+- [17:53 UTC - [https://www. youtube.com/live/DdRSmD7yPtg?s i=ZbqnKZTpj6pSEcpM](https://www.youtube.com/l...](114433852702374238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114433852702374238
+  - [https://www. youtube.com/live/DdRSmD7yPtg?s i=ZbqnKZTpj6pSEcpM](https://www.youtube.com/live/DdRSmD7yPtg?si=ZbqnKZTpj6pSEcpM)
+- [15:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114432976140064253](114433364721798299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114433364721798299
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114432976140064253
+- [14:18 UTC - Truth Social post 114433008125801208](114433008125801208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114433008125801208
+  - _No text content captured._
+- [14:14 UTC - Truth Social post 114432991486191236](114432991486191236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432991486191236
+  - _No text content captured._
+- [14:13 UTC - Truth Social post 114432988374436146](114432988374436146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432988374436146
+  - _No text content captured._
+- [14:10 UTC - It was my great honor to recognize some of the businesses making massive new investments r...](114432976140064253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432976140064253
+  - It was my great honor to recognize some of the businesses making massive new investments right here in the United States of America—Hyundai, CMA CGM, Worldwide Amazon Stores, Ventu...
+- [14:05 UTC - NVIDIA CEO Jensen Huang: "We're going to build NVIDIA's technology, the next generation of...](114432954072144063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432954072144063
+  - NVIDIA CEO Jensen Huang: "We're going to build NVIDIA's technology, the next generation of that, all here in the United States. Without the President's leadership, his policies, hi...
+- [14:01 UTC - Truth Social post 114432938193023697](114432938193023697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432938193023697
+  - _No text content captured._
+- [13:56 UTC - Truth Social post 114432919322095989](114432919322095989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114432919322095989
+  - _No text content captured._
+- [01:15 UTC - I am pleased to announce that I will be nominating Anthony Lomangino to join the United St...](114429927898017911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114429927898017911
+  - I am pleased to announce that I will be nominating Anthony Lomangino to join the United States Postal Service Board of Governors. Anthony is a fantastic businessman and reformer, w...
+- [01:09 UTC - Truth Social post 114429904399578181](114429904399578181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114429904399578181
+  - _No text content captured._

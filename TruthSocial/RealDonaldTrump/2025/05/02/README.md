@@ -1,7 +1,67 @@
 # TruthSocial / RealDonaldTrump / 2025-05-02
 
-- Posts: 1
+- Posts: 21
 
 - [19:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114438330555648164](114439803691707731/)
   - Source: https://truthsocial.com/@realDonaldTrump/114439803691707731
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114438330555648164
+- [16:10 UTC - Stephen Moore: "436,000 increase in the number of people who are employed. So, this is an ...](114439107916833647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114439107916833647
+  - Stephen Moore: "436,000 increase in the number of people who are employed. So, this is an AMAZING report...The labor force participation rate rose. So, this is a very strong number...
+- [16:08 UTC - Maria Bartiromo: “As President Trump would say, it’s going to be the best economy anybody ...](114439099692439204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114439099692439204
+  - Maria Bartiromo: “As President Trump would say, it’s going to be the best economy anybody has ever seen. Look, we've got a market that is reflecting that."
+- [15:09 UTC - [https:// thenationalpulse.com/analysis- post/simington-wax-time-to-hit-fake-news-where-it...](114438870058231001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438870058231001
+  - [https:// thenationalpulse.com/analysis- post/simington-wax-time-to-hit-fake-news-where-it-hurts-their-wallets-and-heres-how/](https://thenationalpulse.com/analysis-post/simington-...
+- [15:09 UTC - [https://www. foxnews.com/sports/trump-raves -about-alabamas-winning-brand-schools-commenc...](114438869336627727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438869336627727
+  - [https://www. foxnews.com/sports/trump-raves -about-alabamas-winning-brand-schools-commencement-where-legends-made](https://www.foxnews.com/sports/trump-raves-about-alabamas-winnin...
+- [15:09 UTC - [https:// nypost.com/2025/05/01/us-news/ trump-hails-alabama-class-in-commencement-speech/...](114438868332088571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438868332088571
+  - [https:// nypost.com/2025/05/01/us-news/ trump-hails-alabama-class-in-commencement-speech/](https://nypost.com/2025/05/01/us-news/trump-hails-alabama-class-in-commencement-speech/)
+- [15:08 UTC - [https://www. foxnews.com/sports/alabama-gra duates-explode-applause-when-trump-promises-k...](114438867321049287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438867321049287
+  - [https://www. foxnews.com/sports/alabama-gra duates-explode-applause-when-trump-promises-keep-men-out-womens-sports](https://www.foxnews.com/sports/alabama-graduates-explode-applau...
+- [14:11 UTC - Truth Social post 114438640143656602](114438640143656602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438640143656602
+  - _No text content captured._
+- [12:52 UTC - Loved being at the University of Alabama last night. What GREAT people!!!](114438330555648164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438330555648164
+  - Loved being at the University of Alabama last night. What GREAT people!!!
+- [12:45 UTC - Gasoline just broke $1.98 a Gallon, lowest in years, groceries (and eggs!) down, energy do...](114438304481024140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438304481024140
+  - Gasoline just broke $1.98 a Gallon, lowest in years, groceries (and eggs!) down, energy down, mortgage rates down, employment strong, and much more good news, as Billions of Dollar...
+- [12:02 UTC - [https:// justthenews.com/events/holdbor der-czar-tom-homan-agent-del-cueto-receive-awards...](114438133391772441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114438133391772441
+  - [https:// justthenews.com/events/holdbor der-czar-tom-homan-agent-del-cueto-receive-awards-extravaganza-defending-us-borders](https://justthenews.com/events/holdborder-czar-tom-hom...
+- [11:25 UTC - We are going to be taking away Harvard’s Tax Exempt Status. It’s what they deserve!](114437989795464761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114437989795464761
+  - We are going to be taking away Harvard’s Tax Exempt Status. It’s what they deserve!
+- [03:42 UTC - I am pleased to announce the nomination of Whitney Hermandorfer to serve as a Judge on the...](114436168298983317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436168298983317
+  - I am pleased to announce the nomination of Whitney Hermandorfer to serve as a Judge on the United States Court of Appeals for the Sixth Circuit. Whitney has been serving the Great...
+- [03:42 UTC - [https://www. rsbnetwork.com/news/trump-esta blishes-new-religious-liberty-commission-duri...](114436167097836048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436167097836048
+  - [https://www. rsbnetwork.com/news/trump-esta blishes-new-religious-liberty-commission-during-heartfelt-prayer-ceremony-in-the-rose-garden/](https://www.rsbnetwork.com/news/trump-es...
+- [03:42 UTC - [https://www. breitbart.com/politics/2025/05 /01/trump-on-national-day-of-prayer-god-knows...](114436166511162610/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436166511162610
+  - [https://www. breitbart.com/politics/2025/05 /01/trump-on-national-day-of-prayer-god-knows-exactly-where-were-going/](https://www.breitbart.com/politics/2025/05/01/trump-on-nationa...
+- [03:41 UTC - [https://www. rsbnetwork.com/news/trump-cont inues-a-tradition-older-than-our-independence...](114436165924601696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436165924601696
+  - [https://www. rsbnetwork.com/news/trump-cont inues-a-tradition-older-than-our-independence-by-honoring-national-day-of-prayer/](https://www.rsbnetwork.com/news/trump-continues-a-tr...
+- [03:41 UTC - It is my pleasure to announce the appointments of Betty Schwartz, Fred Marcus, Rabbi Pinch...](114436165701323476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436165701323476
+  - It is my pleasure to announce the appointments of Betty Schwartz, Fred Marcus, Rabbi Pinchos Lipschutz, Sid Rosenberg, Ariel Abergel, Barbara Feingold, Alex Witkoff, and Robert Gar...
+- [03:36 UTC - The Democrats are really out of control. They have lost everything, especially their minds...](114436142904738936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114436142904738936
+  - The Democrats are really out of control. They have lost everything, especially their minds! These Radical Left Lunatics are into the “Impeachment thing” again. They have already go...
+- [02:34 UTC - Many of our allies and friends are celebrating May 8th as Victory Day, but we did more tha...](114435902192931017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114435902192931017
+  - Many of our allies and friends are celebrating May 8th as Victory Day, but we did more than any other Country, by far, in producing a victorious result on World War II. I am hereby...
+- [02:01 UTC - Truth Social post 114435771998520963](114435771998520963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114435771998520963
+  - _No text content captured._
+- [00:15 UTC - [https://www. youtube.com/live/1ZYvjXDZ-2E?s i=jPcHurKeJKbRqs_U](https://www.youtube.com/l...](114435352195568649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114435352195568649
+  - [https://www. youtube.com/live/1ZYvjXDZ-2E?s i=jPcHurKeJKbRqs_U](https://www.youtube.com/live/1ZYvjXDZ-2E?si=jPcHurKeJKbRqs_U)

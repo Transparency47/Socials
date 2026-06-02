@@ -1,0 +1,154 @@
+# TruthSocial / RealDonaldTrump / 2025-04-29
+
+- Posts: 50
+
+- [23:59 UTC - Truth Social post 114423968542751662](114423968542751662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423968542751662
+  - _No text content captured._
+- [23:59 UTC - Truth Social post 114423966909595457](114423966909595457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423966909595457
+  - _No text content captured._
+- [21:26 UTC - [https://www. youtube.com/live/mj8eDWh03Qo?s i=IHIbTY46TbdduaRO](https://www.youtube.com/l...](114423363654244121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423363654244121
+  - [https://www. youtube.com/live/mj8eDWh03Qo?s i=IHIbTY46TbdduaRO](https://www.youtube.com/live/mj8eDWh03Qo?si=IHIbTY46TbdduaRO)
+- [21:21 UTC - Secretary of Defense, Pete Hegseth: "All I ever wanted when I was in combat was to know th...](114423346072431156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423346072431156
+  - Secretary of Defense, Pete Hegseth: "All I ever wanted when I was in combat was to know that my Commander had my back no matter what. Donald J. Trump, that Commander, has your back...
+- [20:55 UTC - Truth Social post 114423244228789893](114423244228789893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423244228789893
+  - _No text content captured._
+- [20:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114423126790303007](114423223048250277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423223048250277
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114423126790303007
+- [20:25 UTC - [https://www. youtube.com/live/Ap2tSFvXSBk?s i=mdC4Xfiz02w5aLLU](https://www.youtube.com/l...](114423126790303007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114423126790303007
+  - [https://www. youtube.com/live/Ap2tSFvXSBk?s i=mdC4Xfiz02w5aLLU](https://www.youtube.com/live/Ap2tSFvXSBk?si=mdC4Xfiz02w5aLLU)
+- [19:53 UTC - Truth Social post 114422998494411881](114422998494411881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422998494411881
+  - _No text content captured._
+- [19:41 UTC - Truth Social post 114422951030661447](114422951030661447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422951030661447
+  - _No text content captured._
+- [17:22 UTC - Truth Social post 114422404017862640](114422404017862640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422404017862640
+  - _No text content captured._
+- [16:02 UTC - [https:// hannity.com/media-room/make-co lumbus-great-again-trump-vows-to-bring-columbus-d...](114422090903782085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422090903782085
+  - [https:// hannity.com/media-room/make-co lumbus-great-again-trump-vows-to-bring-columbus-day-back-from-the-ashes/](https://hannity.com/media-room/make-columbus-great-again-trump-vo...
+- [16:01 UTC - [https:// hannity.com/media-room/histori c-100-speaker-johnson-praises-trump-achieved-more...](114422088522927887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422088522927887
+  - [https:// hannity.com/media-room/histori c-100-speaker-johnson-praises-trump-achieved-more-in-first-100-days-than-most-politicians-or-presidents-accomplish-in-their-entire-lifetime...
+- [16:01 UTC - Truth Social post 114422085694530629](114422085694530629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422085694530629
+  - _No text content captured._
+- [15:59 UTC - “WE’RE LIVING IN A WHOLE NEW WORLD”](114422079545251980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422079545251980
+  - “WE’RE LIVING IN A WHOLE NEW WORLD”
+- [15:47 UTC - President Donald Trump once said, ‘No dream is too big. No challenge is too great. Nothing...](114422033648855386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114422033648855386
+  - President Donald Trump once said, ‘No dream is too big. No challenge is too great. Nothing we want for our future is beyond our reach.’ At 100 days of his second term, the presiden...
+- [15:39 UTC - [https:// nypost.com/2025/04/29/us-news/ only-nine-illegal-immigrants-released-into-us-dur...](114421999634528027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421999634528027
+  - [https:// nypost.com/2025/04/29/us-news/ only-nine-illegal-immigrants-released-into-us-during-trumps-first-100-days-99-99-drop-in-same-period-under-biden-homan/](https://nypost.com...
+- [15:38 UTC - “After just 100 days in office, the president has inspired a spiritual revival in our nati...](114421994793893090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421994793893090
+  - “After just 100 days in office, the president has inspired a spiritual revival in our nation. He’s reminding Americans that our rights come from God, not government, and he’s unafr...
+- [15:30 UTC - “President Trump is back, and in his first 100 days in his second term, he has delivered o...](114421964827021828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421964827021828
+  - “President Trump is back, and in his first 100 days in his second term, he has delivered once again. The American people returned him to the White House — and gave the Republican P...
+- [15:28 UTC - “When Americans evaluate a presidency, we ask a simple question: ‘Am I better off now than...](114421957758661888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421957758661888
+  - “When Americans evaluate a presidency, we ask a simple question: ‘Am I better off now than I was before?’ This question reflects on our personal finances, job security, safety, and...
+- [15:27 UTC - “In just 100 days, President Donald Trump has reignited a movement and reset the trajector...](114421954020400846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421954020400846
+  - “In just 100 days, President Donald Trump has reignited a movement and reset the trajectory of the United States. He is a leader who is doing exactly what he promised on the campai...
+- [15:21 UTC - “One hundred days ago, President Donald J. Trump returned to the White House with a clear ...](114421928785432623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421928785432623
+  - “One hundred days ago, President Donald J. Trump returned to the White House with a clear mandate from the American people: restore American greatness, secure our borders, unleash...
+- [15:19 UTC - “President Trump has answered the biggest question on immigration as he hits the 100-day m...](114421922580096394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421922580096394
+  - “President Trump has answered the biggest question on immigration as he hits the 100-day mark: You can shut down the border through sheer willpower. Illegal crossings are at the lo...
+- [15:19 UTC - Secretary Burgum: "POTUS has been incredibly focused on energy because he understands that...](114421921447347549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421921447347549
+  - Secretary Burgum: "POTUS has been incredibly focused on energy because he understands that energy's not just one industry; it's the foundation of all other industries. The food on...
+- [15:09 UTC - “TRUMP NEGOTIATING TRADE DEALS TO REVAMP ECONOMY”](114421883134626921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421883134626921
+  - “TRUMP NEGOTIATING TRADE DEALS TO REVAMP ECONOMY”
+- [15:06 UTC - VA Secretary Doug Collins: “The first 100 days of the second Trump Administration have bee...](114421868853801846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421868853801846
+  - VA Secretary Doug Collins: “The first 100 days of the second Trump Administration have been full of great news for America’s Veterans. Under POTUS’ leadership, we are putting Veter...
+- [15:05 UTC - Truth Social post 114421865987351283](114421865987351283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421865987351283
+  - _No text content captured._
+- [15:02 UTC - “In the first 100 days of the Trump-Vance Administration, the U.S. Department of Education...](114421856443198074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421856443198074
+  - “In the first 100 days of the Trump-Vance Administration, the U.S. Department of Education has advanced President Trump’s goal to return education to states by empowering parents t...
+- [14:55 UTC - "He is the most consequential American leader of the 21st Century, and that's an understat...](114421826540167059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421826540167059
+  - "He is the most consequential American leader of the 21st Century, and that's an understatement."
+- [14:53 UTC - Truth Social post 114421819945074846](114421819945074846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421819945074846
+  - _No text content captured._
+- [14:49 UTC - Auto Workers for Trump founder Brian Pannebecker: "I've been telling people here in the De...](114421805011603196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421805011603196
+  - Auto Workers for Trump founder Brian Pannebecker: "I've been telling people here in the Detroit area...be patient, have faith, and trust Trump. This guy wrote the book on negotiati...
+- [14:46 UTC - Truth Social post 114421792916034058](114421792916034058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421792916034058
+  - _No text content captured._
+- [14:43 UTC - TOM EMMER: “PROMISES MADE, PROMISES KEPT!”](114421780282411315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421780282411315
+  - TOM EMMER: “PROMISES MADE, PROMISES KEPT!”
+- [14:39 UTC - "I really love the cabinet meetings. He lets the American people into those rooms. We get ...](114421764021968021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421764021968021
+  - "I really love the cabinet meetings. He lets the American people into those rooms. We get to observe the questions and the answers, know what they're doing. It's really a way that...
+- [14:35 UTC - [https://www. whitehouse.gov/articles/2025/0 4/memo-first-100-days-economy/](https://www.w...](114421749543543316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421749543543316
+  - [https://www. whitehouse.gov/articles/2025/0 4/memo-first-100-days-economy/](https://www.whitehouse.gov/articles/2025/04/memo-first-100-days-economy/)
+- [14:34 UTC - Truth Social post 114421745529541233](114421745529541233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421745529541233
+  - _No text content captured._
+- [14:32 UTC - "We'll look back 20 years from now, 30 years from now and go this man fundamentally change...](114421737602815558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421737602815558
+  - "We'll look back 20 years from now, 30 years from now and go this man fundamentally changed the way that America works and the relationship that we have with our government...He do...
+- [14:29 UTC - Senator Bill Hagerty: "This has been the most effective, most impactful in a positive sens...](114421724824943399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421724824943399
+  - Senator Bill Hagerty: "This has been the most effective, most impactful in a positive sense 100 days in my lifetime...In November of last year, 75% of the American public felt that...
+- [14:26 UTC - Maria Bartiromo: "There's no other way to look at this first 100 days other than a huge su...](114421712482899408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421712482899408
+  - Maria Bartiromo: "There's no other way to look at this first 100 days other than a huge success...Look at the President's two top issues: immigration and inflation. Border crossing...
+- [14:21 UTC - “PRESIDENT TRUMP’S FIRST 100 DAYS—WIN AFTER WIN FOR AMERICA…”](114421694015203048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421694015203048
+  - “PRESIDENT TRUMP’S FIRST 100 DAYS—WIN AFTER WIN FOR AMERICA…”
+- [14:16 UTC - Truth Social post 114421675814775014](114421675814775014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421675814775014
+  - _No text content captured._
+- [14:15 UTC - “TODAY OFFICIALLY MARKS 100 DAYS OF PROMISES MADE AND PROMISES KEPT…”](114421671249396448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421671249396448
+  - “TODAY OFFICIALLY MARKS 100 DAYS OF PROMISES MADE AND PROMISES KEPT…”
+- [14:09 UTC - Truth Social post 114421644869940587](114421644869940587/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421644869940587
+  - _No text content captured._
+- [14:06 UTC - SPEAKER JOHNSON: “100 DAYS AGO, PRESIDENT TRUMP STOOD UNDER THE CAPITOL ROTUNDA…”](114421633366824263/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421633366824263
+  - SPEAKER JOHNSON: “100 DAYS AGO, PRESIDENT TRUMP STOOD UNDER THE CAPITOL ROTUNDA…”
+- [13:59 UTC - “In just 100 days, we have witnessed one of the most productive presidential administratio...](114421606759697277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421606759697277
+  - “In just 100 days, we have witnessed one of the most productive presidential administrations in modern history. Trump has already signed more than 140 executive orders, issued more...
+- [11:46 UTC - 100 VERY SPECIAL DAYS. MAKE AMERICA GREAT AGAIN!!!Danielle Alvarez of the RNC, and Paul Pe...](114421082367450202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114421082367450202
+  - 100 VERY SPECIAL DAYS. MAKE AMERICA GREAT AGAIN!!!Danielle Alvarez of the RNC, and Paul Perez of Border Patrol, were GREAT on Fox & Friends (First). Thank you both! DJT
+- [04:19 UTC - [https://www. foxbusiness.com/politics/forei gn-domestic-investments-totaling-over-5t-unde...](114419328403574118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114419328403574118
+  - [https://www. foxbusiness.com/politics/forei gn-domestic-investments-totaling-over-5t-under-trump-adds-451k-jobs-americans](https://www.foxbusiness.com/politics/foreign-domestic-in...
+- [03:49 UTC - [https:// justthenews.com/politics-polic y/polling/hold-prominent-pollster-blasts-colleagu...](114419206853798213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114419206853798213
+  - [https:// justthenews.com/politics-polic y/polling/hold-prominent-pollster-blasts-colleagues-skewing-trumps-100-day-numbers](https://justthenews.com/politics-policy/polling/hold-pr...
+- [03:43 UTC - The Polls from the Fake News are, like the News itself, FAKE! We are doing GREAT, better t...](114419185611217033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114419185611217033
+  - The Polls from the Fake News are, like the News itself, FAKE! We are doing GREAT, better than ever before.
+- [03:41 UTC - The USA lost Billions of Dollars A DAY in International Trade under Sleepy Joe Biden. I ha...](114419175691843654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114419175691843654
+  - The USA lost Billions of Dollars A DAY in International Trade under Sleepy Joe Biden. I have now stemmed that tide, and will be making a fortune, very soon. Stay tuned as we MAKE A...
+- [02:06 UTC - Truth Social post 114418803697655337](114418803697655337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114418803697655337
+  - _No text content captured._

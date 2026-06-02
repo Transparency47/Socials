@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-04-24
+
+- Posts: 14
+
+- [18:44 UTC - [https://www. youtube.com/live/DURlQ89nF6E?s i=vUeSsEmY-Rw7T6GF](https://www.youtube.com/l...](114394418231765074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114394418231765074
+  - [https://www. youtube.com/live/DURlQ89nF6E?s i=vUeSsEmY-Rw7T6GF](https://www.youtube.com/live/DURlQ89nF6E?si=vUeSsEmY-Rw7T6GF)
+- [17:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114394000397141962](114394033277997267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114394033277997267
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114394000397141962
+- [16:58 UTC - Truth Social post 114394000397141962](114394000397141962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114394000397141962
+  - _No text content captured._
+- [15:51 UTC - Later today I will be meeting with, of all people, Jeffrey Goldberg, the Editor of The Atl...](114393736523039807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114393736523039807
+  - Later today I will be meeting with, of all people, Jeffrey Goldberg, the Editor of The Atlantic, and the person responsible for many fictional stories about me, including the made-...
+- [14:43 UTC - Boeing should default China for not taking the beautifully finished planes that China comm...](114393469355437462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114393469355437462
+  - Boeing should default China for not taking the beautifully finished planes that China committed to purchase. This is just a small example of what China has done to the USA, for yea...
+- [13:54 UTC - Rupert Murdoch has told me for years that he is going to get rid of his FoxNews, Trump Hat...](114393275364471638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114393275364471638
+  - Rupert Murdoch has told me for years that he is going to get rid of his FoxNews, Trump Hating, Fake Pollster, but he has never done so. This “pollster” has gotten me, and MAGA, wro...
+- [13:33 UTC - Harvard is an Anti-Semitic, Far Left Institution, as are numerous others, with students be...](114393194962253226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114393194962253226
+  - Harvard is an Anti-Semitic, Far Left Institution, as are numerous others, with students being accepted from all over the World that want to rip our Country apart. The place is a Li...
+- [12:28 UTC - THE SOUTHERN BORDER IS NOW THE STRONGEST AND SAFEST IN USA HISTORY. IT WILL REMAIN SO!!!](114392937947872770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114392937947872770
+  - THE SOUTHERN BORDER IS NOW THE STRONGEST AND SAFEST IN USA HISTORY. IT WILL REMAIN SO!!!
+- [12:24 UTC - I am not happy with the Russian strikes on KYIV. Not necessary, and very bad timing. Vladi...](114392923237368367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114392923237368367
+  - I am not happy with the Russian strikes on KYIV. Not necessary, and very bad timing. Vladimir, STOP! 5000 soldiers a week are dying. Lets get the Peace Deal DONE!
+- [11:36 UTC - Gas and grocery prices are WAY DOWN, just like I said they would be. Eggs are plentiful, a...](114392734082544469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114392734082544469
+  - Gas and grocery prices are WAY DOWN, just like I said they would be. Eggs are plentiful, and down 87%. NICE!
+- [11:34 UTC - THE DEMOCRATS ARE FIGHTING LIKE HELL TO KEEP MURDERERS, AND ALL OTHER TYPE OF CRIMINALS, S...](114392724515353626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114392724515353626
+  - THE DEMOCRATS ARE FIGHTING LIKE HELL TO KEEP MURDERERS, AND ALL OTHER TYPE OF CRIMINALS, SOLIDLY IN THE UNITED STATES OF AMERICA. THEY HAVE GONE CRAZY, AND ARE ONLY GETTING WORSE!!...
+- [00:58 UTC - Truth Social post 114390223699350373](114390223699350373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114390223699350373
+  - _No text content captured._
+- [00:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114390006118284409](114390082762925375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114390082762925375
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114390006118284409
+- [00:02 UTC - Truth Social post 114390006118284409](114390006118284409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114390006118284409
+  - _No text content captured._

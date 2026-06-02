@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-04-26
+
+- Posts: 13
+
+- [20:38 UTC - Truth Social post 114406187912835132](114406187912835132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114406187912835132
+  - _No text content captured._
+- [20:37 UTC - We need Courageous JUSTICE in our Country. If the Courts don’t allow what we have been all...](114406186212473866/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114406186212473866
+  - We need Courageous JUSTICE in our Country. If the Courts don’t allow what we have been allowed to do for 250 years, America can no longer be the same. Crooked Joe Biden will have d...
+- [20:37 UTC - American Ships, both Military and Commercial, should be allowed to travel, free of charge,...](114406185820566958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114406185820566958
+  - American Ships, both Military and Commercial, should be allowed to travel, free of charge, through the Panama and Suez Canals! Those Canals would not exist without the United State...
+- [18:30 UTC - Truth Social post 114405686783835835](114405686783835835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405686783835835
+  - _No text content captured._
+- [16:46 UTC - Truth Social post 114405277233492622](114405277233492622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405277233492622
+  - _No text content captured._
+- [16:28 UTC - Truth Social post 114405206775429532](114405206775429532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405206775429532
+  - _No text content captured._
+- [16:19 UTC - Truth Social post 114405169511289010](114405169511289010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405169511289010
+  - _No text content captured._
+- [16:17 UTC - Truth Social post 114405162440035886](114405162440035886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405162440035886
+  - _No text content captured._
+- [16:15 UTC - Truth Social post 114405153568575792](114405153568575792/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405153568575792
+  - _No text content captured._
+- [16:13 UTC - Truth Social post 114405148175684816](114405148175684816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114405148175684816
+  - _No text content captured._
+- [13:35 UTC - No matter what deal I make with respect to Russia/Ukraine, no matter how good it is, even ...](114404524335638236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114404524335638236
+  - No matter what deal I make with respect to Russia/Ukraine, no matter how good it is, even if it’s the greatest deal ever made, The Failing New York Times will speak BADLY of it. Li...
+- [02:19 UTC - Truth Social post 114401867853442778](114401867853442778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114401867853442778
+  - _No text content captured._
+- [01:40 UTC - [https://www. breitbart.com/politics/2025/04 /18/state-farm-eases-personal-property-payout...](114401715258163922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114401715258163922
+  - [https://www. breitbart.com/politics/2025/04 /18/state-farm-eases-personal-property-payout-burden-for-l-a-fire-victims-after-talks-with-trumps-grenell/](https://www.breitbart.com/p...

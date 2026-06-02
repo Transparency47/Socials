@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-04-25
+
+- Posts: 15
+
+- [21:49 UTC - Just landed in Rome. A good day in talks and meetings with Russia and Ukraine. They are ve...](114400805703099287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400805703099287
+  - Just landed in Rome. A good day in talks and meetings with Russia and Ukraine. They are very close to a deal, and the two sides should now meet, at very high levels, to “finish it...
+- [21:40 UTC - Just landed in Italy!](114400768937823340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400768937823340
+  - Just landed in Italy!
+- [20:52 UTC - What is wrong with NFL owners, are they STUPID? Deion Sanders was a great college football...](114400583767375750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400583767375750
+  - What is wrong with NFL owners, are they STUPID? Deion Sanders was a great college football player, and was even greater in the NFL. He’s also a very good coach, streetwise and smar...
+- [20:18 UTC - Big news coming out of Africa, where I am also involved in settling violent wars and confl...](114400448382660700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400448382660700
+  - Big news coming out of Africa, where I am also involved in settling violent wars and conflicts. I don’t know why so many of these events have fallen to me and my Administration, bu...
+- [18:48 UTC - Truth Social post 114400094345520948](114400094345520948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400094345520948
+  - _No text content captured._
+- [18:48 UTC - Truth Social post 114400093383128802](114400093383128802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400093383128802
+  - _No text content captured._
+- [18:34 UTC - A MUST READ!](114400040845423536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400040845423536
+  - A MUST READ!
+- [18:32 UTC - Ukraine, headed by Volodymyr Zelenskyy, has not signed the final papers on the very import...](114400030944429028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400030944429028
+  - Ukraine, headed by Volodymyr Zelenskyy, has not signed the final papers on the very important Rare Earths Deal with the United States. It is at least three weeks late. Hopefully, i...
+- [18:31 UTC - Truth Social post 114400027790255962](114400027790255962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114400027790255962
+  - _No text content captured._
+- [17:51 UTC - Charles Payne, of Fox, is truly fantastic at what he does. He understands Tariffs, and he ...](114399870830051429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114399870830051429
+  - Charles Payne, of Fox, is truly fantastic at what he does. He understands Tariffs, and he understands Life but, most importantly, he has been supportive of “TRUMP” right from the b...
+- [15:25 UTC - [https://www. youtube.com/live/IQN6NTZ7iRg?s i=5Yt0YcIczsWZSEjt](https://www.youtube.com/l...](114399294791469578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114399294791469578
+  - [https://www. youtube.com/live/IQN6NTZ7iRg?s i=5Yt0YcIczsWZSEjt](https://www.youtube.com/live/IQN6NTZ7iRg?si=5Yt0YcIczsWZSEjt)
+- [10:13 UTC - [https:// nypost.com/2025/04/24/us-news/ trump-admin-will-increase-oil-production-in-gulf-...](114398068768949049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114398068768949049
+  - [https:// nypost.com/2025/04/24/us-news/ trump-admin-will-increase-oil-production-in-gulf-of-america-by-100k-barrels-a-day-under-new-drilling-policy/](https://nypost.com/2025/04/24...
+- [10:11 UTC - Truth Social post 114398061933768189](114398061933768189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114398061933768189
+  - _No text content captured._
+- [10:09 UTC - “President Trump signs an Executive Order to modernize workforce programs—Preparing Americ...](114398053438634680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114398053438634680
+  - “President Trump signs an Executive Order to modernize workforce programs—Preparing Americans for high-paying skilled trade jobs and refocusing youth on career preparation” [https:...
+- [10:07 UTC - “UNLEASHING AMERICA’S OFFSHORE CRITICAL MINERALS AND RESOURCES” [https://www. whitehouse.g...](114398045845237473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114398045845237473
+  - “UNLEASHING AMERICA’S OFFSHORE CRITICAL MINERALS AND RESOURCES” [https://www. whitehouse.gov/presidential-ac tions/2025/04/unleashing-americas-offshore-critical-minerals-and-resour...

@@ -1,0 +1,79 @@
+# TruthSocial / RealDonaldTrump / 2025-04-28
+
+- Posts: 25
+
+- [23:51 UTC - Truth Social post 114418271762744360](114418271762744360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114418271762744360
+  - _No text content captured._
+- [23:40 UTC - “STRENGTHENING AND UNLEASHING AMERICA’S LAW ENFORCEMENT TO PURSUE CRIMINALS AND PROTECT IN...](114418229780158440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114418229780158440
+  - “STRENGTHENING AND UNLEASHING AMERICA’S LAW ENFORCEMENT TO PURSUE CRIMINALS AND PROTECT INNOCENT CITIZENS” [https://www. whitehouse.gov/presidential-ac tions/2025/04/strengthening-...
+- [23:08 UTC - Truth Social post 114418104323707428](114418104323707428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114418104323707428
+  - _No text content captured._
+- [22:33 UTC - Truth Social post 114417966492212299](114417966492212299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417966492212299
+  - _No text content captured._
+- [22:33 UTC - Truth Social post 114417965069447747](114417965069447747/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417965069447747
+  - _No text content captured._
+- [22:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114417670321269739](114417962781177397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417962781177397
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114417670321269739
+- [21:18 UTC - [https://www. youtube.com/live/4FTghOTsjjI?s i=6IqrYGybyRW5xgh4](https://www.youtube.com/l...](114417670321269739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417670321269739
+  - [https://www. youtube.com/live/4FTghOTsjjI?s i=6IqrYGybyRW5xgh4](https://www.youtube.com/live/4FTghOTsjjI?si=6IqrYGybyRW5xgh4)
+- [21:16 UTC - As we reach our Historic First 100 Days, I am proud to announce that the Presidential Pers...](114417662551888762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417662551888762
+  - As we reach our Historic First 100 Days, I am proud to announce that the Presidential Personnel Office has surpassed 80% of all Political Hires across our largest Departments, incl...
+- [21:16 UTC - As we reach our Historic First 100 Days, I am proud to announce that the Presidential Pers...](114417662061589259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417662061589259
+  - As we reach our Historic First 100 Days, I am proud to announce that the Presidential Personnel Office has surpassed 80% of all Political Hires across our largest Departments, incl...
+- [20:00 UTC - Congressman John McGuire is an America First Warrior for Virginia’s 5th Congressional Dist...](114417364027219606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417364027219606
+  - Congressman John McGuire is an America First Warrior for Virginia’s 5th Congressional District. John bravely served our Great Country as a U.S. Navy SEAL, and is doing an incredibl...
+- [19:52 UTC - I am proud to announce the formation of the FEMA Review Council, comprised of Top Experts ...](114417332210818903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417332210818903
+  - I am proud to announce the formation of the FEMA Review Council, comprised of Top Experts in their fields, who are Highly Respected by their peers. It is my Great Honor to appoint...
+- [19:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114377783798888758](114417256043870659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417256043870659
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114377783798888758
+- [18:57 UTC - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvani...](114417114971503482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417114971503482
+  - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvania’s 10th Congressional District! A retired Army Brigadier General, Scott is a MAGA Warrior...
+- [18:53 UTC - Congressman Gabe Evans is an America First Patriot who is doing a fantastic job representi...](114417102068372350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417102068372350
+  - Congressman Gabe Evans is an America First Patriot who is doing a fantastic job representing Colorado’s 8th Congressional District! A decorated Army Helicopter Pilot and former Pol...
+- [18:53 UTC - Congressman Juan Ciscomani is a Tremendous Champion for Arizona’s 6th Congressional Distri...](114417101345799325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417101345799325
+  - Congressman Juan Ciscomani is a Tremendous Champion for Arizona’s 6th Congressional District! As a Member of the POWERFUL Appropriations Committee, Juan is fighting hard to Secure...
+- [18:53 UTC - Congressman Derrick Van Orden is an America First Warrior for Wisconsin’s 3rd Congressiona...](114417100472347708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114417100472347708
+  - Congressman Derrick Van Orden is an America First Warrior for Wisconsin’s 3rd Congressional District. A retired Navy SEAL, Derrick bravely served our Country in combat, and brings...
+- [18:07 UTC - [https://www. whitehouse.gov/articles/2025/0 4/promises-made-promises-kept-border-security...](114416919998885856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114416919998885856
+  - [https://www. whitehouse.gov/articles/2025/0 4/promises-made-promises-kept-border-security-achieved-in-fewer-than-100-days/](https://www.whitehouse.gov/articles/2025/04/promises-ma...
+- [17:59 UTC - I am thrilled to announce that the Washington Football Team will be returning to our Natio...](114416887168755037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114416887168755037
+  - I am thrilled to announce that the Washington Football Team will be returning to our Nation’s Capital! The new Stadium Deal is a HUGE WIN for Washington, D.C., and for the Team’s i...
+- [13:49 UTC - Join me tomorrow, April 29th—in Warren, Michigan at 6:00PM Eastern! Tickets: [https:// eve...](114415903776055788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114415903776055788
+  - Join me tomorrow, April 29th—in Warren, Michigan at 6:00PM Eastern! Tickets: [https:// events.gop.com/events/presiden t-donald-j-trump-to-hold-a-rally-in-warren-michigan](https://e...
+- [12:36 UTC - Good luck to the Great people of Canada. Elect the man who has the strength and wisdom to ...](114415618596069518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114415618596069518
+  - Good luck to the Great people of Canada. Elect the man who has the strength and wisdom to cut your taxes in half, increase your military power, for free, to the highest level in th...
+- [09:41 UTC - Warren Zeiders is FANTASTIC. Go to his concerts, and ENJOY! DJT](114414928875781139/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114414928875781139
+  - Warren Zeiders is FANTASTIC. Go to his concerts, and ENJOY! DJT
+- [09:32 UTC - We don’t have a Free and Fair “Press” in this Country anymore. We have a Press that writes...](114414895289941753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114414895289941753
+  - We don’t have a Free and Fair “Press” in this Country anymore. We have a Press that writes BAD STORIES, and CHEATS, BIG, ON POLLS. IT IS COMPROMISED AND CORRUPT. SAD!
+- [09:24 UTC - Great Pollster John McLaughlin, one of the most highly respected in the industry, has just...](114414863742664682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114414863742664682
+  - Great Pollster John McLaughlin, one of the most highly respected in the industry, has just stated that The Failing New York Times Poll, and the ABC/Washington Post Poll, about a pe...
+- [01:49 UTC - [https:// justthenews.com/accountability /media/editor-who-published-steele-dossier-trump-...](114413072785939775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114413072785939775
+  - [https:// justthenews.com/accountability /media/editor-who-published-steele-dossier-trump-more-ambivalent-ever-about-it-has](https://justthenews.com/accountability/media/editor-who...
+- [00:11 UTC - Truth Social post 114412687263520366](114412687263520366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114412687263520366
+  - _No text content captured._
