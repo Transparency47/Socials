@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2026-03-19
+
+- Posts: 19
+
+- [21:16 UTC - They Threw Everything They Had at Donald Trump. He’s Still Standing. America Is Better For...](116257915423728314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116257915423728314
+  - They Threw Everything They Had at Donald Trump. He’s Still Standing. America Is Better For It: [https://www. citynewsokc.com/opinion/they-t hrew-everything-they-had-at-donald-trump...
+- [20:54 UTC - GAVIN M. WAX: Trump Quietly Set Up Future Of American Manufacturing With Stroke Of A Pen: ...](116257827130389641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116257827130389641
+  - GAVIN M. WAX: Trump Quietly Set Up Future Of American Manufacturing With Stroke Of A Pen: [https:// dailycaller.com/2026/02/22/gav in-wax-donald-trump-supreme-court-tariffs-america...
+- [20:54 UTC - You Should Be Terrified by What JPMorgan Did to Trump: [https:// townhall.com/columnists/d...](116257826369374629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116257826369374629
+  - You Should Be Terrified by What JPMorgan Did to Trump: [https:// townhall.com/columnists/dougla smackinnon/2026/02/23/you-should-be-terrorized-by-what-jp-morgan-did-to-trump-n26717...
+- [20:53 UTC - Ex-police chief says Trump told him 'thank goodness you're stopping' Epstein in 2000s: [ht...](116257824115129532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116257824115129532
+  - Ex-police chief says Trump told him 'thank goodness you're stopping' Epstein in 2000s: [https:// abcnews.com/US/police-chief-tr ump-told-goodness-stopping-epstein-2006/story?id=130...
+- [20:18 UTC - Truth Social post 116257685258900412](116257685258900412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116257685258900412
+  - _No text content captured._
+- [14:07 UTC - Passing The Save America Act Is Indispensable To Preserve Representative Democracy: [https...](116256226651705916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256226651705916
+  - Passing The Save America Act Is Indispensable To Preserve Representative Democracy: [https:// paulingrassia.substack.com/p/p assing-the-save-america-act-is-indispensable](https://p...
+- [14:06 UTC - Michael Whatley is so Great! Running against a really bad former Governor who set murderer...](116256225070534165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256225070534165
+  - Michael Whatley is so Great! Running against a really bad former Governor who set murderers free to kill again, and was grossly incompetent on the big hurricane cleanup. I had to g...
+- [14:06 UTC - Britain had meltdown when China hacked voter files, but U.S. intel kept it secret in Ameri...](116256221612685192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256221612685192
+  - Britain had meltdown when China hacked voter files, but U.S. intel kept it secret in America: [https:// justthenews.com/government/sec urity/us-intel-has-known-2020-china-gained-ac...
+- [14:05 UTC - President Trump Has Prevented Another Holocaust: [https://www. israelnationalnews.com/news...](116256220292711449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256220292711449
+  - President Trump Has Prevented Another Holocaust: [https://www. israelnationalnews.com/news/42 3965](https://www.israelnationalnews.com/news/423965)
+- [14:05 UTC - Asia-Pacific Allies Ink $56 Billion in Deals with US Companies at Tokyo Forum, Burgum Says...](116256219531850396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256219531850396
+  - Asia-Pacific Allies Ink $56 Billion in Deals with US Companies at Tokyo Forum, Burgum Says: [https://www. newsmax.com/finance/streettalk /doug-burgum/2026/03/15/id/1249564/](https:...
+- [14:05 UTC - The Left Is Petrified That Trump Will Succeed in Iran and Expose Them As Mind-Twisted Frau...](116256218451397252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256218451397252
+  - The Left Is Petrified That Trump Will Succeed in Iran and Expose Them As Mind-Twisted Frauds: [https:// townhall.com/columnists/dougla smackinnon/2026/03/02/the-left-is-petrified-t...
+- [14:04 UTC - Khamenei’s Unforced Errors Proved Fatal: [https://www. wsj.com/opinion/khameneis-unfo rced...](116256217083523012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256217083523012
+  - Khamenei’s Unforced Errors Proved Fatal: [https://www. wsj.com/opinion/khameneis-unfo rced-errors-proved-fatal-635fb5e4](https://www.wsj.com/opinion/khameneis-unforced-errors-prove...
+- [14:04 UTC - MORNING GLORY: Why Trump must finish what he started with Iran’s regime: [https://www. fox...](116256215639879243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256215639879243
+  - MORNING GLORY: Why Trump must finish what he started with Iran’s regime: [https://www. foxnews.com/opinion/morning-gl ory-why-trump-must-finish-what-he-started-irans-regime](https:...
+- [14:04 UTC - From Douglas MacKinnon: “This is a photo from yesterday on the drive from LA to Palm Sprin...](116256214426681641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256214426681641
+  - From Douglas MacKinnon: “This is a photo from yesterday on the drive from LA to Palm Springs. Hundreds and Hundreds of these pieces of junk windmills. No surprise to The President,...
+- [14:01 UTC - Jon McNaughton working on The Forgotten Man in The Eisenhower Executive Office Building!](116256204305007898/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256204305007898
+  - Jon McNaughton working on The Forgotten Man in The Eisenhower Executive Office Building!
+- [13:53 UTC - Truth Social post 116256171120186590](116256171120186590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116256171120186590
+  - _No text content captured._
+- [12:21 UTC - Media, lawmakers downplay threat from the Iran regime, but evidence shows the true scope o...](116255809955960965/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116255809955960965
+  - Media, lawmakers downplay threat from the Iran regime, but evidence shows the true scope of danger: [https:// justthenews.com/government/sec urity/media-and-lawmakers-downplay-thre...
+- [02:40 UTC - Graham tears into European allies over Strait of Hormuz reluctance: [https:// thehill.com/...](116253527175738987/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116253527175738987
+  - Graham tears into European allies over Strait of Hormuz reluctance: [https:// thehill.com/homenews/senate/57 87883-lindsey-graham-trump-european-allies/](https://thehill.com/homene...
+- [02:05 UTC - Israel, out of anger for what has taken place in the Middle East, has violently lashed out...](116253388303392718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116253388303392718
+  - Israel, out of anger for what has taken place in the Middle East, has violently lashed out at a major facility known as South Pars Gas Field in Iran. A relatively small section of...

@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-03-16
+
+- Posts: 14
+
+- [23:58 UTC - Prez Trump Draws Massive Crowd Reaction At CFP Title Game In Miami: [https://www. outkick....](116241562639922898/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241562639922898
+  - Prez Trump Draws Massive Crowd Reaction At CFP Title Game In Miami: [https://www. outkick.com/sports/prez-trump- draws-massive-crowd-reaction-cfp-title-game-miami](https://www.outk...
+- [23:57 UTC - WATCH: Trump Cheered During National Anthem at College Football National Championship Game...](116241561679397928/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241561679397928
+  - WATCH: Trump Cheered During National Anthem at College Football National Championship Game: [https://www. breitbart.com/sports/2026/01/1 9/watch-trump-cheered-during-national-anthe...
+- [23:57 UTC - WATCH: Crowd Goes WILD for Trump During National Anthem at the College Football Championsh...](116241559915911661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241559915911661
+  - WATCH: Crowd Goes WILD for Trump During National Anthem at the College Football Championship in Miami, FL: [https://www. thegatewaypundit.com/2026/01/w atch-crowd-goes-wild-trump-d...
+- [23:56 UTC - Jack Smith targeted then-House Speaker McCarthy’s private phone records in J6 probe, FBI d...](116241557993544867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241557993544867
+  - Jack Smith targeted then-House Speaker McCarthy’s private phone records in J6 probe, FBI docs reveal: [https://www. foxnews.com/politics/jack-smit h-targeted-then-house-speaker-mcc...
+- [23:56 UTC - Jack Smith meeting with then-FBI Director Wray recorded as ‘significant case notification’...](116241557064413752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241557064413752
+  - Jack Smith meeting with then-FBI Director Wray recorded as ‘significant case notification’ in J6 probe: [https://www. foxnews.com/politics/jack-smit h-meeting-then-fbi-director-wra...
+- [23:55 UTC - NATO long warned of Russian, Chinese threats to Greenland, now rejects Trump’s ownership s...](116241553340894634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241553340894634
+  - NATO long warned of Russian, Chinese threats to Greenland, now rejects Trump’s ownership solution: [https:// justthenews.com/government/sec urity/nato-long-warned-russian-and-chine...
+- [23:54 UTC - Clay County Sheriff Michelle Cook honored by President Trump at Women’s History Month even...](116241548802837887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116241548802837887
+  - Clay County Sheriff Michelle Cook honored by President Trump at Women’s History Month event at White House: [https://www. news4jax.com/news/local/2026/0 3/12/clay-county-sheriff-mi...
+- [15:57 UTC - Susie Wiles is an incredible Chief of Staff, a great person, and one of the strongest peop...](116239674084445278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116239674084445278
+  - Susie Wiles is an incredible Chief of Staff, a great person, and one of the strongest people I know but, unfortunately, she has been diagnosed with early stage breast cancer, and h...
+- [13:19 UTC - News Conference today, prior to Trump Kennedy Center Board Meeting. Thank you!](116239050427498715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116239050427498715
+  - News Conference today, prior to Trump Kennedy Center Board Meeting. Thank you!
+- [13:16 UTC - The crazed Democrats are not allowing TSA Agents to get paid. The deal was made a long tim...](116239040439932874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116239040439932874
+  - The crazed Democrats are not allowing TSA Agents to get paid. The deal was made a long time ago. They broke it in order to get money for Sanctuary Cities and illegal aliens, many o...
+- [12:13 UTC - Truth Social post 116238791857146568](116238791857146568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116238791857146568
+  - _No text content captured._
+- [12:13 UTC - Truth Social post 116238790930991351](116238790930991351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116238790930991351
+  - _No text content captured._
+- [11:50 UTC - Michael Whatley is so Great! Running against a really bad former Governor who set murderer...](116238700372346046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116238700372346046
+  - Michael Whatley is so Great! Running against a really bad former Governor who set murderers free to kill again, and was grossly incompetent on the big hurricane cleanup. I had to g...
+- [03:59 UTC - Truth Social post 116236850873003597](116236850873003597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116236850873003597
+  - _No text content captured._

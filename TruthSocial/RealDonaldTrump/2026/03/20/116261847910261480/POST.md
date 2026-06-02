@@ -1,0 +1,11 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116261847910261480 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116261847910261480 -->
+<!-- date_published: 2026-03-20T13:56:53.277000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:47:14.582775+00:00 -->
+
+# I met with Hope Scheppelman and her husband Steven, of the Radical Left State of Colorado,...
+
+I met with Hope Scheppelman and her husband Steven, of the Radical Left State of Colorado, to discuss various opportunities to serve our Country in a different capacity than her current run for the United States Congress. Hope and Steven are wonderful and patriotic Veterans of our U.S. Navy, and loyal supporters of our Historic MAKE AMERICA GREAT AGAIN Movement. Therefore, I am proud to announce that they will be leaving the Campaign trail in order to join my Administration, in a capacity to be determined.
+Together with them, we decided that Congressman Jeff Hurd, of Colorado’s 3rd Congressional District, should in no way, shape, or form, be impeded from winning the District in that the Democrat alternative is a DISASTER for our Country. Therefore, I will be fully supporting Jeff’s Re-Election to the House of Representatives, giving him my Complete and Total Endorsement! Every true MAGA supporter and Republican, if they truly care about saving our Country, will do everything in their power to unify together, and defeat the Crazed Radical Left Democrats this November. If they seize power, they will spend every minute trying to “turn back the clock” to Record Inflation, Skyrocketing Prices, High Taxes, Open Borders, Men in Women’s Sports, Transgender for Everybody, Corrupt Elections, “Get Out of Jail Free Cards” for Violent Criminals, and Terrorists, and much more — We cannot let this happen! It is time to stand together against the people that want to destroy our Great Nation, and vote for Jeff Hurd, who will do a fantastic job as your Congressman, including Growing the Economy, Cutting Taxes and Regulations, Promoting MADE IN THE U.S.A., Advancing American Energy DOMINANCE, Keeping our Border SECURE, Supporting our Military/Veterans, Defending our always under siege Second Amendment, and Ensuring PEACE THROUGH STRENGTH. Congratulations to Jeff Hurd and, MAKE AMERICA GREAT AGAIN! President DJT

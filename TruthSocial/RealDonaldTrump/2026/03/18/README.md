@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2026-03-18
+
+- Posts: 20
+
+- [23:51 UTC - FREE TINA PETERS, A 73-YEAR-OLD WOMAN, WITH CANCER, GIVEN A NINE YEAR DEATH SENTENCE IN A ...](116252861649863261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116252861649863261
+  - FREE TINA PETERS, A 73-YEAR-OLD WOMAN, WITH CANCER, GIVEN A NINE YEAR DEATH SENTENCE IN A COLORADO PRISON BY A DEMOCRAT GOVERNOR, JARED POLIS, AND A CORRUPT POLITICAL MACHINE, FOR...
+- [23:23 UTC - Truth Social post 116252749732465975](116252749732465975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116252749732465975
+  - _No text content captured._
+- [23:16 UTC - Truth Social post 116252723144189442](116252723144189442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116252723144189442
+  - _No text content captured._
+- [22:52 UTC - Truth Social post 116252627848707423](116252627848707423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116252627848707423
+  - _No text content captured._
+- [12:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116250297283069512](116250298165333422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250298165333422
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116250297283069512
+- [12:59 UTC - Truth Social post 116250297283069512](116250297283069512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250297283069512
+  - _No text content captured._
+- [12:43 UTC - US allies need to get a grip – step up and help open the Strait of Hormuz: [https:// nypos...](116250236426568567/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250236426568567
+  - US allies need to get a grip – step up and help open the Strait of Hormuz: [https:// nypost.com/2026/03/17/opinion/ us-allies-germany-the-uk-owe-america-their-help-in-opening-the-s...
+- [12:36 UTC - Truth Social post 116250207334512491](116250207334512491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250207334512491
+  - _No text content captured._
+- [12:36 UTC - Truth Social post 116250206644518855](116250206644518855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250206644518855
+  - _No text content captured._
+- [12:36 UTC - Truth Social post 116250205888594298](116250205888594298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250205888594298
+  - _No text content captured._
+- [12:35 UTC - Truth Social post 116250204937254737](116250204937254737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250204937254737
+  - _No text content captured._
+- [12:35 UTC - I wonder what would happen if we “finished off” what’s left of the Iranian Terror State, a...](116250203405172359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250203405172359
+  - I wonder what would happen if we “finished off” what’s left of the Iranian Terror State, and let the Countries that use it, we don’t, be responsible for the so called “Strait?” Tha...
+- [12:20 UTC - For all of the Fake News out there, it’s called THE SAVE AMERICA ACT, not the SAVE ACT. No...](116250143939100110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250143939100110
+  - For all of the Fake News out there, it’s called THE SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!
+- [12:13 UTC - When is “Too Late” Powell lowering INTEREST RATES? President DJT](116250115423447200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250115423447200
+  - When is “Too Late” Powell lowering INTEREST RATES? President DJT
+- [12:01 UTC - Remember, for all of those absolute “fools” out there, Iran is considered, by everyone, to...](116250068528701090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116250068528701090
+  - Remember, for all of those absolute “fools” out there, Iran is considered, by everyone, to be the NUMBER ONE STATE SPONSOR OF TERROR. We are rapidly putting them out of business!
+- [11:11 UTC - The Democrat’s purposeful DHS SHUTDOWN is causing chaos at the airports. These Lunatics ar...](116249873076369025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116249873076369025
+  - The Democrat’s purposeful DHS SHUTDOWN is causing chaos at the airports. These Lunatics are being totally unreasonable in their Radical Left asks. They are FULLY TO BLAME, and must...
+- [09:23 UTC - Britain had meltdown when China hacked voter files, but U.S. intel kept it secret in Ameri...](116249447962443816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116249447962443816
+  - Britain had meltdown when China hacked voter files, but U.S. intel kept it secret in America: [https:// justthenews.com/government/sec urity/us-intel-has-known-2020-china-gained-ac...
+- [09:20 UTC - Trump steamrolls over California’s anti-fossil fuel crusade to get oil flowing from offsho...](116249435067996399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116249435067996399
+  - Trump steamrolls over California’s anti-fossil fuel crusade to get oil flowing from offshore rigs: [https:// justthenews.com/politics-polic y/energy/trump-steamrolls-over-californi...
+- [02:57 UTC - STATEHOOD!!! President DJT](116247928951810982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116247928951810982
+  - STATEHOOD!!! President DJT
+- [01:13 UTC - Truth Social post 116247522086271962](116247522086271962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116247522086271962
+  - _No text content captured._
