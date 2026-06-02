@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1994438728237064270 -->
 <!-- date_published: 2025-11-28T16:10:22+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.166136+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.654959+00:00 -->
 
 # The United States did not attend the G20 in South Africa, because the South African Govern...
 

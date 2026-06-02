@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1995676855651664182
 - Title: I am asking all America First Patriots in Tennessee’s 7th Congressional District to please...
 - Date published: 2025-12-02T02:10:14+00:00
-- Date accessed: 2026-06-02T20:30:50.165600+00:00
+- Date accessed: 2026-06-02T20:34:37.654828+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 1258
 - replies: 16926
 - retweets: 33170
-- views: 32533363
+- views: 32533431
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -498,14 +498,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -629,7 +629,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "32533363",
+      "count": "32533431",
       "state": "EnabledWithCount"
     }
   }

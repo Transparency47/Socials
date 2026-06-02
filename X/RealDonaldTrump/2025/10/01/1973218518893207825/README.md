@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1973218518893207825
 - Title: https://t.co/2yyuRkm9r8
 - Date published: 2025-10-01T02:48:50+00:00
-- Date accessed: 2026-06-02T20:30:52.661886+00:00
+- Date accessed: 2026-06-02T20:36:19.792588+00:00
 - Content kind: post
 - Language: zxx
 
@@ -19,7 +19,7 @@
 - quotes: 5421
 - replies: 21350
 - retweets: 46193
-- views: 30867909
+- views: 30867949
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -492,7 +492,7 @@
     "source": "<a href=\"http://twitter.com/download/iphone\" rel=\"nofollow\">Twitter for iPhone</a>",
     "unmention_data": {},
     "views": {
-      "count": "30867909",
+      "count": "30867949",
       "state": "EnabledWithCount"
     }
   }

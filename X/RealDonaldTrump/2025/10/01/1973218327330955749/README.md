@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1973218327330955749
 - Title: What a great couple—Congratulations! President DJT
 - Date published: 2025-10-01T02:48:04+00:00
-- Date accessed: 2026-06-02T20:30:52.662008+00:00
+- Date accessed: 2026-06-02T20:36:19.792753+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 639
 - replies: 7522
 - retweets: 20612
-- views: 62744084
+- views: 62744130
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -635,7 +635,7 @@
         "source": "<a href=\"http://twitter.com/download/iphone\" rel=\"nofollow\">Twitter for iPhone</a>",
         "unmention_data": {},
         "views": {
-          "count": "68226864",
+          "count": "68226910",
           "state": "EnabledWithCount"
         }
       }
@@ -647,7 +647,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "62744084",
+      "count": "62744130",
       "state": "EnabledWithCount"
     }
   }

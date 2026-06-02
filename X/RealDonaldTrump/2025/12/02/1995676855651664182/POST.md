@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1995676855651664182 -->
 <!-- date_published: 2025-12-02T02:10:14+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.165600+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.654828+00:00 -->
 
 # I am asking all America First Patriots in Tennessee’s 7th Congressional District to please...
 

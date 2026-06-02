@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1993469230528790869
 - Title: I am asking all America First Patriots in Tennessee’s 7th Congressional District, who have...
 - Date published: 2025-11-25T23:57:56+00:00
-- Date accessed: 2026-06-02T20:30:52.660770+00:00
+- Date accessed: 2026-06-02T20:36:19.790893+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 1434
 - replies: 16659
 - retweets: 36203
-- views: 26167877
+- views: 26167926
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -163,25 +163,11 @@
       "legacy": {
         "binding_values": [
           {
-            "key": "photo_image_full_size_large",
+            "key": "vanity_url",
             "value": {
-              "image_value": {
-                "height": 268,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=600x314",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "thumbnail_image",
-            "value": {
-              "image_value": {
-                "height": 144,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=144x144",
-                "width": 144
-              },
-              "type": "IMAGE"
+              "scribe_key": "vanity_url",
+              "string_value": "swampthevoteusa.com",
+              "type": "STRING"
             }
           },
           {
@@ -192,228 +178,10 @@
             }
           },
           {
-            "key": "thumbnail_image_large",
-            "value": {
-              "image_value": {
-                "height": 320,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=800x320_1",
-                "width": 320
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "summary_photo_image_small",
-            "value": {
-              "image_value": {
-                "height": 202,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=386x202",
-                "width": 386
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "thumbnail_image_original",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=orig",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "photo_image_full_size_small",
-            "value": {
-              "image_value": {
-                "height": 202,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=386x202",
-                "width": 386
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "summary_photo_image_large",
-            "value": {
-              "image_value": {
-                "height": 268,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=600x314",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "thumbnail_image_small",
-            "value": {
-              "image_value": {
-                "height": 100,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=100x100",
-                "width": 100
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "thumbnail_image_x_large",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=2048x2048_2_exp",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "photo_image_full_size_original",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=orig",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "vanity_url",
-            "value": {
-              "scribe_key": "vanity_url",
-              "string_value": "swampthevoteusa.com",
-              "type": "STRING"
-            }
-          },
-          {
-            "key": "photo_image_full_size",
-            "value": {
-              "image_value": {
-                "height": 268,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=600x314",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "thumbnail_image_color",
-            "value": {
-              "image_color_value": {
-                "palette": [
-                  {
-                    "percentage": 21.96,
-                    "rgb": {
-                      "blue": 45,
-                      "green": 31,
-                      "red": 215
-                    }
-                  },
-                  {
-                    "percentage": 14.63,
-                    "rgb": {
-                      "blue": 66,
-                      "green": 44,
-                      "red": 43
-                    }
-                  }
-                ]
-              },
-              "type": "IMAGE_COLOR"
-            }
-          },
-          {
             "key": "title",
             "value": {
               "string_value": "TENNESSEE: MAKE A PLAN TO VOTE!",
               "type": "STRING"
-            }
-          },
-          {
-            "key": "summary_photo_image_color",
-            "value": {
-              "image_color_value": {
-                "palette": [
-                  {
-                    "percentage": 21.96,
-                    "rgb": {
-                      "blue": 45,
-                      "green": 31,
-                      "red": 215
-                    }
-                  },
-                  {
-                    "percentage": 14.63,
-                    "rgb": {
-                      "blue": 66,
-                      "green": 44,
-                      "red": 43
-                    }
-                  }
-                ]
-              },
-              "type": "IMAGE_COLOR"
-            }
-          },
-          {
-            "key": "summary_photo_image_x_large",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=2048x2048_2_exp",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "summary_photo_image",
-            "value": {
-              "image_value": {
-                "height": 268,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=600x314",
-                "width": 512
-              },
-              "type": "IMAGE"
-            }
-          },
-          {
-            "key": "photo_image_full_size_color",
-            "value": {
-              "image_color_value": {
-                "palette": [
-                  {
-                    "percentage": 21.96,
-                    "rgb": {
-                      "blue": 45,
-                      "green": 31,
-                      "red": 215
-                    }
-                  },
-                  {
-                    "percentage": 14.63,
-                    "rgb": {
-                      "blue": 66,
-                      "green": 44,
-                      "red": 43
-                    }
-                  }
-                ]
-              },
-              "type": "IMAGE_COLOR"
-            }
-          },
-          {
-            "key": "photo_image_full_size_x_large",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=2048x2048_2_exp",
-                "width": 512
-              },
-              "type": "IMAGE"
             }
           },
           {
@@ -422,17 +190,6 @@
               "scribe_key": "card_url",
               "string_value": "https://t.co/saCiO9NLKx",
               "type": "STRING"
-            }
-          },
-          {
-            "key": "summary_photo_image_original",
-            "value": {
-              "image_value": {
-                "height": 512,
-                "url": "https://pbs.twimg.com/card_img/2059420148822351874/NDoMurqu?format=png&name=orig",
-                "width": 512
-              },
-              "type": "IMAGE"
             }
           }
         ],
@@ -498,14 +255,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -629,7 +386,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "26167877",
+      "count": "26167926",
       "state": "EnabledWithCount"
     }
   }

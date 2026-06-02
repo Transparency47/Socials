@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2015833393917747502
 - Title: MELANIA, the Movie, is a MUST WATCH. Get your tickets today — Selling out, FAST! Photo: Re...
 - Date published: 2026-01-26T17:05:08+00:00
-- Date accessed: 2026-06-02T20:30:50.164973+00:00
+- Date accessed: 2026-06-02T20:34:37.654429+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
 - bookmarks: 10278
-- favorites: 406222
+- favorites: 406223
 - quotes: 5490
 - replies: 66715
-- retweets: 41510
-- views: 59262188
+- retweets: 41511
+- views: 59262375
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -702,7 +702,7 @@
           }
         ]
       },
-      "favorite_count": 406222,
+      "favorite_count": 406223,
       "favorited": false,
       "full_text": "MELANIA, the Movie, is a MUST WATCH. Get your tickets today — Selling out, FAST!\n\nPhoto: Regine Mahaux\nhttps://t.co/rjwd5Appkv https://t.co/vFpXfV0Mg0",
       "id_str": "2015833393917747502",
@@ -712,7 +712,7 @@
       "possibly_sensitive_editable": true,
       "quote_count": 5490,
       "reply_count": 66715,
-      "retweet_count": 41510,
+      "retweet_count": 41511,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -726,7 +726,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "59262188",
+      "count": "59262375",
       "state": "EnabledWithCount"
     }
   }

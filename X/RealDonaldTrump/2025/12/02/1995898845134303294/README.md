@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1995898845134303294
 - Title: I am asking all America First Patriots in Tennessee’s 7th Congressional District to please...
 - Date published: 2025-12-02T16:52:21+00:00
-- Date accessed: 2026-06-02T20:30:50.165480+00:00
+- Date accessed: 2026-06-02T20:34:37.654759+00:00
 - Content kind: post
 - Language: en
 
@@ -18,8 +18,8 @@
 - favorites: 151419
 - quotes: 1178
 - replies: 33612
-- retweets: 28671
-- views: 39918225
+- retweets: 28672
+- views: 39918313
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -498,14 +498,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -590,7 +590,7 @@
       "lang": "en",
       "quote_count": 1178,
       "reply_count": 33612,
-      "retweet_count": 28671,
+      "retweet_count": 28672,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -629,7 +629,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "39918225",
+      "count": "39918313",
       "state": "EnabledWithCount"
     }
   }

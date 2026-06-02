@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1978148814776046046
 - Title: Don’t forget to get a copy of my son Eric’s book, “UNDER SIEGE,” which is breaking records...
 - Date published: 2025-10-14T17:20:04+00:00
-- Date accessed: 2026-06-02T20:30:52.660978+00:00
+- Date accessed: 2026-06-02T20:36:19.791153+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 5502
 - replies: 77741
 - retweets: 49890
-- views: 48808055
+- views: 48808161
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -625,7 +625,7 @@
     "source": "<a href=\"http://twitter.com/download/iphone\" rel=\"nofollow\">Twitter for iPhone</a>",
     "unmention_data": {},
     "views": {
-      "count": "48808055",
+      "count": "48808161",
       "state": "EnabledWithCount"
     }
   }

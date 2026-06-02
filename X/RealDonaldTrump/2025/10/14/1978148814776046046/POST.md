@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1978148814776046046 -->
 <!-- date_published: 2025-10-14T17:20:04+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:52.660978+00:00 -->
+<!-- date_accessed: 2026-06-02T20:36:19.791153+00:00 -->
 
 # Don’t forget to get a copy of my son Eric’s book, “UNDER SIEGE,” which is breaking records...
 

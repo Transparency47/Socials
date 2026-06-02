@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1993801758326616561
 - Title: https://t.co/oQK0HLgf88
 - Date published: 2025-11-26T21:59:16+00:00
-- Date accessed: 2026-06-02T20:30:52.660629+00:00
+- Date accessed: 2026-06-02T20:36:19.790626+00:00
 - Content kind: post
 - Language: zxx
 
@@ -19,7 +19,7 @@
 - quotes: 2364
 - replies: 24918
 - retweets: 50557
-- views: 54758930
+- views: 54759023
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -513,7 +513,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "54758930",
+      "count": "54759023",
       "state": "EnabledWithCount"
     }
   }

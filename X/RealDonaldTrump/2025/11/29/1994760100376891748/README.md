@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1994760100376891748
 - Title: To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE...
 - Date published: 2025-11-29T13:27:23+00:00
-- Date accessed: 2026-06-02T20:30:50.165820+00:00
+- Date accessed: 2026-06-02T20:34:37.654876+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
 - bookmarks: 21458
-- favorites: 583251
+- favorites: 583250
 - quotes: 13606
 - replies: 39177
 - retweets: 75043
-- views: 94150618
+- views: 94150677
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -288,7 +288,7 @@
         223
       ],
       "entities": {},
-      "favorite_count": 583251,
+      "favorite_count": 583250,
       "favorited": false,
       "full_text": "To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE ABOVE AND SURROUNDING VENEZUELA TO BE CLOSED IN ITS ENTIRETY. Thank you for your attention to this matter! PRESIDENT DONALD J. TRUMP",
       "id_str": "1994760100376891748",
@@ -310,7 +310,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "94150618",
+      "count": "94150677",
       "state": "EnabledWithCount"
     }
   }

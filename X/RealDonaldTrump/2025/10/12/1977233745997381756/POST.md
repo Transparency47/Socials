@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1977233745997381756 -->
 <!-- date_published: 2025-10-12T04:43:54+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:52.661188+00:00 -->
+<!-- date_accessed: 2026-06-02T20:36:19.791479+00:00 -->
 
 # I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief...
 

@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2014772963719991311
 - Title: COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look a...
 - Date published: 2026-01-23T18:51:21+00:00
-- Date accessed: 2026-06-02T20:30:50.165158+00:00
+- Date accessed: 2026-06-02T20:34:37.654553+00:00
 - Content kind: post
 - Language: en
 
@@ -18,8 +18,8 @@
 - favorites: 390164
 - quotes: 4058
 - replies: 40413
-- retweets: 47710
-- views: 70509725
+- retweets: 47711
+- views: 70509837
 
 ## Media Attachments
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -484,7 +484,7 @@
       "possibly_sensitive_editable": true,
       "quote_count": 4058,
       "reply_count": 40413,
-      "retweet_count": 47710,
+      "retweet_count": 47711,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -498,7 +498,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "70509725",
+      "count": "70509837",
       "state": "EnabledWithCount"
     }
   }

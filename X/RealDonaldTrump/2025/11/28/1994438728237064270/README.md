@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1994438728237064270
 - Title: The United States did not attend the G20 in South Africa, because the South African Govern...
 - Date published: 2025-11-28T16:10:22+00:00
-- Date accessed: 2026-06-02T20:30:50.166136+00:00
+- Date accessed: 2026-06-02T20:34:37.654959+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
 - bookmarks: 22827
-- favorites: 515577
+- favorites: 515576
 - quotes: 8608
 - replies: 38263
-- retweets: 74001
-- views: 68890287
+- retweets: 74000
+- views: 68890346
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -288,7 +288,7 @@
         277
       ],
       "entities": {},
-      "favorite_count": 515577,
+      "favorite_count": 515576,
       "favorited": false,
       "full_text": "The United States did not attend the G20 in South Africa, because the South African Government refuses to acknowledge or address the horrific Human Right Abuses endured by Afrikaners, and other descendants of Dutch, French, and German settlers. To put it more bluntly, they are",
       "id_str": "1994438728237064270",
@@ -296,7 +296,7 @@
       "lang": "en",
       "quote_count": 8608,
       "reply_count": 38263,
-      "retweet_count": 74001,
+      "retweet_count": 74000,
       "retweeted": false,
       "user_id_str": "25073877"
     },
@@ -325,7 +325,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "68890287",
+      "count": "68890346",
       "state": "EnabledWithCount"
     }
   }

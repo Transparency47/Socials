@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2018466659422687405
 - Title: Repost of @FoxNews: RECORD BREAKER: “Melania,” a documentary following the first lady in t...
 - Date published: 2026-02-02T23:28:47+00:00
-- Date accessed: 2026-06-02T20:30:50.164688+00:00
+- Date accessed: 2026-06-02T20:34:37.654042+00:00
 - Content kind: repost
 - Language: en
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -366,14 +366,14 @@
                   "fast_followers_count": 0,
                   "favourites_count": 28,
                   "follow_request_sent": false,
-                  "followers_count": 29098030,
+                  "followers_count": 29098047,
                   "friends_count": 282,
                   "has_custom_timelines": true,
                   "is_translator": false,
                   "listed_count": 80331,
                   "media_count": 181070,
                   "needs_phone_verification": false,
-                  "normal_followers_count": 29098030,
+                  "normal_followers_count": 29098047,
                   "notifications": false,
                   "possibly_sensitive": false,
                   "profile_banner_url": "https://pbs.twimg.com/profile_banners/1367531/1775048459",
@@ -708,7 +708,7 @@
                 }
               ]
             },
-            "favorite_count": 57836,
+            "favorite_count": 57838,
             "favorited": false,
             "full_text": "RECORD BREAKER: “Melania,” a documentary following the first lady in the 20 days before President Trump’s second inauguration, earns $8 million opening weekend — reportedly making it the biggest documentary debut in more than a decade. https://t.co/NOqjPsOYLX",
             "id_str": "2017926543629009209",
@@ -726,7 +726,7 @@
           "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",
           "unmention_data": {},
           "views": {
-            "count": "32725945",
+            "count": "32726153",
             "state": "EnabledWithCount"
           }
         }

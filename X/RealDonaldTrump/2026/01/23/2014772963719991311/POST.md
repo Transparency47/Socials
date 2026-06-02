@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 2014772963719991311 -->
 <!-- date_published: 2026-01-23T18:51:21+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.165158+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.654553+00:00 -->
 
 # COUNTDOWN: 7 Days until the World will witness an unforgettable, behind-the-scenes, look a...
 

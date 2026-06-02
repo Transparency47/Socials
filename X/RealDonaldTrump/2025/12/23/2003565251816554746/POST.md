@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 2003565251816554746 -->
 <!-- date_published: 2025-12-23T20:35:55+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.165370+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.654691+00:00 -->
 
 # THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount...
 

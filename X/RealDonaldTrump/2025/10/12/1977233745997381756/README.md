@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/1977233745997381756
 - Title: I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief...
 - Date published: 2025-10-12T04:43:54+00:00
-- Date accessed: 2026-06-02T20:30:52.661188+00:00
+- Date accessed: 2026-06-02T20:36:19.791479+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 2030
 - replies: 20084
 - retweets: 39231
-- views: 50367192
+- views: 50367228
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594259,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594259,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -325,7 +325,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "50367192",
+      "count": "50367228",
       "state": "EnabledWithCount"
     }
   }

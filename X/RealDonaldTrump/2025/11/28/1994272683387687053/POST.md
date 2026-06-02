@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1994272683387687053 -->
 <!-- date_published: 2025-11-28T05:10:34+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.166948+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.655139+00:00 -->
 
 # A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots wh...
 

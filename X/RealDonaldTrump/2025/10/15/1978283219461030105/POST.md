@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 1978283219461030105 -->
 <!-- date_published: 2025-10-15T02:14:08+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:52.660877+00:00 -->
+<!-- date_accessed: 2026-06-02T20:36:19.791021+00:00 -->
 
 # Repost of @kaitrump: I had an amazing time filming with my Grandpa to kick off my new seri...
 

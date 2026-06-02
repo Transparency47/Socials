@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2014874759473828043
 - Title: I have been briefed on the Record Cold Wave and Historic Winter Storm that will be hitting...
 - Date published: 2026-01-24T01:35:51+00:00
-- Date accessed: 2026-06-02T20:30:50.165070+00:00
+- Date accessed: 2026-06-02T20:34:37.654501+00:00
 - Content kind: post
 - Language: en
 
@@ -19,7 +19,7 @@
 - quotes: 2446
 - replies: 31719
 - retweets: 37016
-- views: 63697682
+- views: 63697856
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -204,14 +204,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -370,14 +370,14 @@
                 "fast_followers_count": 0,
                 "favourites_count": 10693,
                 "follow_request_sent": false,
-                "followers_count": 3118464,
+                "followers_count": 3118465,
                 "friends_count": 322,
                 "has_custom_timelines": true,
                 "is_translator": false,
                 "listed_count": 11473,
                 "media_count": 13231,
                 "needs_phone_verification": false,
-                "normal_followers_count": 3118464,
+                "normal_followers_count": 3118465,
                 "notifications": false,
                 "pinned_tweet_ids_str": [
                   "2050213684618703206"
@@ -694,7 +694,7 @@
         "source": "<a href=\"https://buffer.com\" rel=\"nofollow\">Buffer</a>",
         "unmention_data": {},
         "views": {
-          "count": "64386870",
+          "count": "64387042",
           "state": "EnabledWithCount"
         }
       }
@@ -706,7 +706,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "63697682",
+      "count": "63697856",
       "state": "EnabledWithCount"
     }
   }

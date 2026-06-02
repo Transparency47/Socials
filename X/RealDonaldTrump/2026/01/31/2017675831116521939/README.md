@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2017675831116521939
 - Title: Repost of @MELANIATRUMP: MELANIA, the film. #1 Highest Opening In 10 Yrs (Doc) Loved By Al...
 - Date published: 2026-01-31T19:06:19+00:00
-- Date accessed: 2026-06-02T20:30:50.164787+00:00
+- Date accessed: 2026-06-02T20:34:37.654261+00:00
 - Content kind: repost
 - Language: en
 
@@ -87,14 +87,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -212,14 +212,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -939,7 +939,7 @@
                 }
               ]
             },
-            "favorite_count": 89222,
+            "favorite_count": 89224,
             "favorited": false,
             "full_text": "MELANIA, the film.\n#1 Highest Opening In 10 Yrs (Doc)\nLoved By All - “A” CinemaScore https://t.co/HTVM0Cu2Jv",
             "id_str": "2017663305876176951",
@@ -957,7 +957,7 @@
           "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",
           "unmention_data": {},
           "views": {
-            "count": "23716455",
+            "count": "23716621",
             "state": "EnabledWithCount"
           }
         }

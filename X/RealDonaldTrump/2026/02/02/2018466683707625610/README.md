@@ -8,7 +8,7 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2018466683707625610
 - Title: Repost of @THR: Box Office: ‘Melania’ Heads for $8 Million Opening, the Best Showing in a ...
 - Date published: 2026-02-02T23:28:53+00:00
-- Date accessed: 2026-06-02T20:30:50.164590+00:00
+- Date accessed: 2026-06-02T20:34:37.653889+00:00
 - Content kind: repost
 - Language: en
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -597,14 +597,14 @@
                 "fast_followers_count": 0,
                 "favourites_count": 1485,
                 "follow_request_sent": false,
-                "followers_count": 3644853,
+                "followers_count": 3644857,
                 "friends_count": 7889,
                 "has_custom_timelines": true,
                 "is_translator": false,
                 "listed_count": 20907,
                 "media_count": 197207,
                 "needs_phone_verification": false,
-                "normal_followers_count": 3644853,
+                "normal_followers_count": 3644857,
                 "notifications": false,
                 "pinned_tweet_ids_str": [
                   "2061115528983282148"
@@ -704,14 +704,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -1264,14 +1264,14 @@
                       "fast_followers_count": 0,
                       "favourites_count": 1485,
                       "follow_request_sent": false,
-                      "followers_count": 3644853,
+                      "followers_count": 3644857,
                       "friends_count": 7889,
                       "has_custom_timelines": true,
                       "is_translator": false,
                       "listed_count": 20907,
                       "media_count": 197207,
                       "needs_phone_verification": false,
-                      "normal_followers_count": 3644853,
+                      "normal_followers_count": 3644857,
                       "notifications": false,
                       "pinned_tweet_ids_str": [
                         "2061115528983282148"
@@ -1371,14 +1371,14 @@
                   "fast_followers_count": 0,
                   "favourites_count": 1485,
                   "follow_request_sent": false,
-                  "followers_count": 3644853,
+                  "followers_count": 3644857,
                   "friends_count": 7889,
                   "has_custom_timelines": true,
                   "is_translator": false,
                   "listed_count": 20907,
                   "media_count": 197207,
                   "needs_phone_verification": false,
-                  "normal_followers_count": 3644853,
+                  "normal_followers_count": 3644857,
                   "notifications": false,
                   "pinned_tweet_ids_str": [
                     "2061115528983282148"
@@ -1469,7 +1469,7 @@
                 }
               ]
             },
-            "favorite_count": 34109,
+            "favorite_count": 34111,
             "favorited": false,
             "full_text": "Box Office: ‘Melania’ Heads for $8 Million Opening, the Best Showing in a Decade for a Doc https://t.co/2FKjEMRoxW",
             "id_str": "2017734677436445106",
@@ -1487,7 +1487,7 @@
           "source": "<a href=\"https://trueanthem.com\" rel=\"nofollow\">trueanthem_pro2</a>",
           "unmention_data": {},
           "views": {
-            "count": "30557543",
+            "count": "30557759",
             "state": "EnabledWithCount"
           }
         }

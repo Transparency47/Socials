@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 2004012442427277591 -->
 <!-- date_published: 2025-12-25T02:12:53+00:00 -->
-<!-- date_accessed: 2026-06-02T20:30:50.165268+00:00 -->
+<!-- date_accessed: 2026-06-02T20:34:37.654633+00:00 -->
 
 # Merry Christmas to all, including the Radical Left Scum that is doing everything possible ...
 

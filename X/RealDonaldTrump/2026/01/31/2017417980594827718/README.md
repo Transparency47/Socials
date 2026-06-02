@@ -8,18 +8,18 @@
 - Post URL: https://x.com/RealDonaldTrump/status/2017417980594827718
 - Title: Last night I saw, “MELANIA,” for the second time. The audience loved it, and so do I. Chec...
 - Date published: 2026-01-31T02:01:43+00:00
-- Date accessed: 2026-06-02T20:30:50.164881+00:00
+- Date accessed: 2026-06-02T20:34:37.654346+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
 - bookmarks: 6234
-- favorites: 307355
+- favorites: 307356
 - quotes: 3890
-- replies: 49743
+- replies: 49744
 - retweets: 35289
-- views: 50238568
+- views: 50238715
 
 ## Media Attachments
 
@@ -79,14 +79,14 @@
       "fast_followers_count": 0,
       "favourites_count": 0,
       "follow_request_sent": false,
-      "followers_count": 111594216,
+      "followers_count": 111594244,
       "friends_count": 53,
       "has_custom_timelines": true,
       "is_translator": false,
       "listed_count": 130471,
       "media_count": 5384,
       "needs_phone_verification": false,
-      "normal_followers_count": 111594216,
+      "normal_followers_count": 111594244,
       "notifications": false,
       "possibly_sensitive": false,
       "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -505,14 +505,14 @@
             "fast_followers_count": 0,
             "favourites_count": 0,
             "follow_request_sent": false,
-            "followers_count": 111594218,
+            "followers_count": 111594245,
             "friends_count": 53,
             "has_custom_timelines": true,
             "is_translator": false,
             "listed_count": 130471,
             "media_count": 5384,
             "needs_phone_verification": false,
-            "normal_followers_count": 111594218,
+            "normal_followers_count": 111594245,
             "notifications": false,
             "possibly_sensitive": false,
             "profile_banner_url": "https://pbs.twimg.com/profile_banners/25073877/1604214583",
@@ -603,7 +603,7 @@
           }
         ]
       },
-      "favorite_count": 307355,
+      "favorite_count": 307356,
       "favorited": false,
       "full_text": "Last night I saw, “MELANIA,” for the second time. The audience loved it, and so do I. Check it out — A MUST SEE! https://t.co/rjwd5Appkv",
       "id_str": "2017417980594827718",
@@ -612,7 +612,7 @@
       "possibly_sensitive": false,
       "possibly_sensitive_editable": true,
       "quote_count": 3890,
-      "reply_count": 49743,
+      "reply_count": 49744,
       "retweet_count": 35289,
       "retweeted": false,
       "user_id_str": "25073877"
@@ -627,7 +627,7 @@
     },
     "unmention_data": {},
     "views": {
-      "count": "50238568",
+      "count": "50238715",
       "state": "EnabledWithCount"
     }
   }
