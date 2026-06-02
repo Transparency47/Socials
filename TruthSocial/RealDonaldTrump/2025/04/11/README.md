@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-04-11
+
+- Posts: 14
+
+- [23:45 UTC - How could we be expected to go to South Africa for the very important G20 Meeting when Lan...](114321989500112442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114321989500112442
+  - How could we be expected to go to South Africa for the very important G20 Meeting when Land Confiscation and Genocide is the primary topic of conversation? They are taking the land...
+- [23:21 UTC - My friend, Douglas Murray, just released a new book, “On Democracies and Death Cults,” and...](114321895832364816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114321895832364816
+  - My friend, Douglas Murray, just released a new book, “On Democracies and Death Cults,” and it is quickly becoming a Best Seller! Based on his firsthand reporting, Douglas documents...
+- [16:42 UTC - “Trump’s first three Cabinet meetings feature more press questions and answers than all of...](114320325008375266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320325008375266
+  - “Trump’s first three Cabinet meetings feature more press questions and answers than all of Biden’s” [https://www. washingtontimes.com/news/2025/ apr/10/trumps-first-three-cabinet-m...
+- [16:39 UTC - “President Trump Is Saving Social Security and Stopping Fraud – Don’t Believe Media Lies” ...](114320315581878640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320315581878640
+  - “President Trump Is Saving Social Security and Stopping Fraud – Don’t Believe Media Lies” [https:// amac.us/newsline/society/presi dent-trump-is-saving-social-security-and-stopping...
+- [16:25 UTC - Stuart Varney: “This week, President Trump dominated the world stage. He stamped his influ...](114320258692162203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320258692162203
+  - Stuart Varney: “This week, President Trump dominated the world stage. He stamped his influence on markets and economies everywhere. I've been doing this for 50 years and I can't re...
+- [16:21 UTC - Today, President Donald J. Trump and Kirkland & Ellis LLP, Allen Overy Shearman Sterling U...](114320245355397433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320245355397433
+  - Today, President Donald J. Trump and Kirkland & Ellis LLP, Allen Overy Shearman Sterling US LLP, Simpson Thacher & Bartlett LLP, and Latham & Watkins LLP (the “Law Firms”) announce...
+- [16:21 UTC - ….Statement from the White House: "President Trump and his Administration have entered int...](114320244770957852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320244770957852
+  - ….Statement from the White House: "President Trump and his Administration have entered into an agreement with these long established firms, which have affirmed their strong commitm...
+- [16:19 UTC - Today, President Donald J. Trump and Cadwalader, Wickersham & Taft, LLP (“Cadwalader”) ann...](114320237164839938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320237164839938
+  - Today, President Donald J. Trump and Cadwalader, Wickersham & Taft, LLP (“Cadwalader”) announce the following commitments regarding a series of actions to be taken by Cadwalader: 1...
+- [16:19 UTC - ….Statement from the White House: “President Trump and his Administration have entered int...](114320236639062571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114320236639062571
+  - ….Statement from the White House: “President Trump and his Administration have entered into an agreement with Cadwalader, Wickersham & Taft, LLP, which voiced their strong commitme...
+- [13:52 UTC - The House and Senate should push hard for more Daylight at the end of a day. Very popular ...](114319659315817918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114319659315817918
+  - The House and Senate should push hard for more Daylight at the end of a day. Very popular and, most importantly, no more changing of the clocks, a big inconvenience and, for our go...
+- [13:35 UTC - Russia has to get moving. Too many people ere DYING, thousands a week, in a terrible and s...](114319592702753512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114319592702753512
+  - Russia has to get moving. Too many people ere DYING, thousands a week, in a terrible and senseless war - A war that should have never happened, and wouldn’t have happened, if I wer...
+- [13:20 UTC - We are doing really well on our TARIFF POLICY. Very exciting for America, and the World!!!...](114319533589155171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114319533589155171
+  - We are doing really well on our TARIFF POLICY. Very exciting for America, and the World!!! It is moving along quickly. DJT
+- [12:12 UTC - Truth Social post 114319266874781905](114319266874781905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114319266874781905
+  - _No text content captured._
+- [12:12 UTC - Glad to have you back home.](114319263138009661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114319263138009661
+  - Glad to have you back home.

@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-04-03
+
+- Posts: 13
+
+- [22:22 UTC - Truth Social post 114276364230836288](114276364230836288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114276364230836288
+  - _No text content captured._
+- [20:48 UTC - A Great Ad by FORD!](114275996140818073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275996140818073
+  - A Great Ad by FORD!
+- [19:46 UTC - Truth Social post 114275751974096473](114275751974096473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275751974096473
+  - _No text content captured._
+- [19:19 UTC - [https://www. rsbnetwork.com/news/trump-anno unces-wide-range-of-liberation-day-tariffs/](...](114275644780357671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275644780357671
+  - [https://www. rsbnetwork.com/news/trump-anno unces-wide-range-of-liberation-day-tariffs/](https://www.rsbnetwork.com/news/trump-announces-wide-range-of-liberation-day-tariffs/)
+- [19:18 UTC - [https://www. rsbnetwork.com/news/michigan-a utoworkers-express-support-for-trumps-tariffs...](114275641914968162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275641914968162
+  - [https://www. rsbnetwork.com/news/michigan-a utoworkers-express-support-for-trumps-tariffs/](https://www.rsbnetwork.com/news/michigan-autoworkers-express-support-for-trumps-tariffs...
+- [19:17 UTC - I think it’s going very well—The MARKETS are going to BOOM…](114275636283855793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275636283855793
+  - I think it’s going very well—The MARKETS are going to BOOM…
+- [17:07 UTC - APRIL 2, 2025🇺🇸](114275127994954369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275127994954369
+  - APRIL 2, 2025🇺🇸
+- [17:06 UTC - Truth Social post 114275122293018713](114275122293018713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275122293018713
+  - _No text content captured._
+- [17:05 UTC - Truth Social post 114275119227690147](114275119227690147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275119227690147
+  - _No text content captured._
+- [17:04 UTC - Truth Social post 114275115564162694](114275115564162694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275115564162694
+  - _No text content captured._
+- [17:04 UTC - Senator Kennedy: “President Trump is saying that if you foreign businesses want to sell in...](114275114958079107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114275114958079107
+  - Senator Kennedy: “President Trump is saying that if you foreign businesses want to sell in America, then move your business here and hire American workers."
+- [13:05 UTC - Truth Social post 114274175896236863](114274175896236863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114274175896236863
+  - _No text content captured._
+- [12:33 UTC - THE OPERATION IS OVER! THE PATIENT LIVED, AND IS HEALING. THE PROGNOSIS IS THAT THE PATIEN...](114274050526883988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114274050526883988
+  - THE OPERATION IS OVER! THE PATIENT LIVED, AND IS HEALING. THE PROGNOSIS IS THAT THE PATIENT WILL BE FAR STRONGER, BIGGER, BETTER, AND MORE RESILIENT THAN EVER BEFORE. MAKE AMERICA...

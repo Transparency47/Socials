@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-04-17
+
+- Posts: 11
+
+- [22:17 UTC - I am proud to announce the formation of my revamped Homeland Security Advisory Council (HS...](114355616823261590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114355616823261590
+  - I am proud to announce the formation of my revamped Homeland Security Advisory Council (HSAC), which is comprised of Top Experts in their field, who are highly respected by their p...
+- [16:23 UTC - My Great Honor to welcome Italy Prime Minister Giorgia Meloni to the White House!](114354225021338752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114354225021338752
+  - My Great Honor to welcome Italy Prime Minister Giorgia Meloni to the White House!
+- [14:45 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Trump attends the WH East...](114353841429897846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353841429897846
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Trump attends the WH Easter Prayer Service and Dinner during Holy Week.🙏 “It will always be In God We Trust. We wil...
+- [13:10 UTC - Congratulations to my friends, Governor Greg Abbott, Lieutenant Governor Dan Patrick, and ...](114353467767721095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353467767721095
+  - Congratulations to my friends, Governor Greg Abbott, Lieutenant Governor Dan Patrick, and Speaker Dustin Burrows, along with Texas Legislators, for finally passing SCHOOL CHOICE, w...
+- [12:02 UTC - Had a very productive call with the President of Mexico yesterday. Likewise, I met with th...](114353201227355474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353201227355474
+  - Had a very productive call with the President of Mexico yesterday. Likewise, I met with the highest level Japanese Trade Representatives. It was a very productive meeting. Every Na...
+- [11:48 UTC - [https://www. foxnews.com/video/637147010611 2](https://www.foxnews.com/video/637147010611...](114353143036503543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353143036503543
+  - [https://www. foxnews.com/video/637147010611 2](https://www.foxnews.com/video/6371470106112)
+- [11:47 UTC - [https://www. foxnews.com/video/637158167611 2](https://www.foxnews.com/video/637158167611...](114353141201024859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353141201024859
+  - [https://www. foxnews.com/video/637158167611 2](https://www.foxnews.com/video/6371581676112)
+- [11:45 UTC - American Samoa: Happy Flag Day! Today marks the 125th Anniversary of American Samoa becomi...](114353130958010667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114353130958010667
+  - American Samoa: Happy Flag Day! Today marks the 125th Anniversary of American Samoa becoming a treasured part of the United States, and our Great American Flag has flown over the I...
+- [10:12 UTC - The ECB is expected to cut interest rates for the 7th time, and yet, “Too Late” Jerome Pow...](114352766082542122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114352766082542122
+  - The ECB is expected to cut interest rates for the 7th time, and yet, “Too Late” Jerome Powell of the Fed, who is always TOO LATE AND WRONG, yesterday issued a report which was anot...
+- [03:33 UTC - These thugs were bad news. They’ll rot in hell. [https:// slingshot.news/andy-khawajas-a m...](114351199803141298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114351199803141298
+  - These thugs were bad news. They’ll rot in hell. [https:// slingshot.news/andy-khawajas-a merican-dream-became-a-nightmare-after-being-targeted-by-robert-mueller/](https://slingshot...
+- [01:38 UTC - Truth Social post 114350746117310886](114350746117310886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114350746117310886
+  - _No text content captured._

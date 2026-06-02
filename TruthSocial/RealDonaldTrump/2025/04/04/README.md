@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-04-04
+
+- Posts: 17
+
+- [23:33 UTC - Big business is not worried about the Tariffs, because they know they are here to stay, bu...](114282305980898453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114282305980898453
+  - Big business is not worried about the Tariffs, because they know they are here to stay, but they are focused on the BIG, BEAUTIFUL DEAL, which will SUPERCHARGE our Economy. Very im...
+- [21:40 UTC - These Houthis gathered for instructions on an attack. Oops, there will be no attack by the...](114281864005346951/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114281864005346951
+  - These Houthis gathered for instructions on an attack. Oops, there will be no attack by these Houthis! They will never sink our ships again!
+- [19:35 UTC - ONLY THE WEAK WILL FAIL!](114281370220943461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114281370220943461
+  - ONLY THE WEAK WILL FAIL!
+- [17:34 UTC - My Administration has been working very hard on a Deal to SAVE TIKTOK, and we have made tr...](114280893859636366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114280893859636366
+  - My Administration has been working very hard on a Deal to SAVE TIKTOK, and we have made tremendous progress. The Deal requires more work to ensure all necessary approvals are signe...
+- [16:04 UTC - Truth Social post 114280541101273362](114280541101273362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114280541101273362
+  - _No text content captured._
+- [15:08 UTC - This would be a PERFECT time for Fed Chairman Jerome Powell to cut Interest Rates. He is a...](114280322706682564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114280322706682564
+  - This would be a PERFECT time for Fed Chairman Jerome Powell to cut Interest Rates. He is always “late,” but he could now change his image, and quickly. Energy prices are down, Inte...
+- [15:01 UTC - Just had a very productive call with To Lam, General Secretary of the Communist Party of V...](114280292618523684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114280292618523684
+  - Just had a very productive call with To Lam, General Secretary of the Communist Party of Vietnam, who told me that Vietnam wants to cut their Tariffs down to ZERO if they are able...
+- [13:25 UTC - CHINA PLAYED IT WRONG, THEY PANICKED - THE ONE THING THEY CANNOT AFFORD TO DO!](114279915827492021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279915827492021
+  - CHINA PLAYED IT WRONG, THEY PANICKED - THE ONE THING THEY CANNOT AFFORD TO DO!
+- [13:07 UTC - GREAT JOB NUMBERS, FAR BETTER THAN EXPECTED. IT’S ALREADY WORKING. HANG TOUGH, WE CAN’T LO...](114279844695644343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279844695644343
+  - GREAT JOB NUMBERS, FAR BETTER THAN EXPECTED. IT’S ALREADY WORKING. HANG TOUGH, WE CAN’T LOSE!!!
+- [12:47 UTC - [https:// truthsocial.com/@gatewaypundit /114251696416087711](https://truthsocial.com/@gat...](114279764572465133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279764572465133
+  - [https:// truthsocial.com/@gatewaypundit /114251696416087711](https://truthsocial.com/@gatewaypundit/114251696416087711)
+- [12:44 UTC - TO THE MANY INVESTORS COMING INTO THE UNITED STATES AND INVESTING MASSIVE AMOUNTS OF MONEY...](114279756371714617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279756371714617
+  - TO THE MANY INVESTORS COMING INTO THE UNITED STATES AND INVESTING MASSIVE AMOUNTS OF MONEY, MY POLICIES WILL NEVER CHANGE. THIS IS A GREAT TIME TO GET RICH, RICHER THAN EVER BEFORE...
+- [12:27 UTC - [https:// x.com/americapapabear/status/1 908104761603199023?s=12](https://x.com/americapap...](114279688227499923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279688227499923
+  - [https:// x.com/americapapabear/status/1 908104761603199023?s=12](https://x.com/americapapabear/status/1908104761603199023?s=12)
+- [12:25 UTC - [https:// x.com/americapapabear/status/1 907947224090423367?s=12](https://x.com/americapap...](114279679572830449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114279679572830449
+  - [https:// x.com/americapapabear/status/1 907947224090423367?s=12](https://x.com/americapapabear/status/1907947224090423367?s=12)
+- [03:33 UTC - Truth Social post 114277587164586811](114277587164586811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114277587164586811
+  - _No text content captured._
+- [03:32 UTC - Championship golfers at Doral!!!](114277584789134714/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114277584789134714
+  - Championship golfers at Doral!!!
+- [02:53 UTC - The Witch Hunt against Marine Le Pen is another example of European Leftists using Lawfare...](114277430639309106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114277430639309106
+  - The Witch Hunt against Marine Le Pen is another example of European Leftists using Lawfare to silence Free Speech, and censor their Political Opponent, this time going so far as to...
+- [02:37 UTC - Truth Social post 114277366465676750](114277366465676750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114277366465676750
+  - _No text content captured._

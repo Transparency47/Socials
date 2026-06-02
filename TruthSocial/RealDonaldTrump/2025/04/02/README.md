@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-04-02
+
+- Posts: 19
+
+- [21:40 UTC - Speaker of the House Mike Johnson and Senate Majority Leader John Thune have been working ...](114270538820142872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270538820142872
+  - Speaker of the House Mike Johnson and Senate Majority Leader John Thune have been working tirelessly on taking the next step to pass the plan for our ONE, BIG, BEAUTIFUL BILL, as i...
+- [21:05 UTC - Truth Social post 114270398531479278](114270398531479278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270398531479278
+  - _No text content captured._
+- [21:04 UTC - Truth Social post 114270397827085442](114270397827085442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270397827085442
+  - _No text content captured._
+- [21:04 UTC - Truth Social post 114270397111664712](114270397111664712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270397111664712
+  - _No text content captured._
+- [21:04 UTC - Truth Social post 114270396482753269](114270396482753269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270396482753269
+  - _No text content captured._
+- [20:00 UTC - [https:// rumble.com/v6rk9jz-president-t rump-participates-in-the-make-america-wealthy-aga...](114270144681013238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114270144681013238
+  - [https:// rumble.com/v6rk9jz-president-t rump-participates-in-the-make-america-wealthy-again-event.html](https://rumble.com/v6rk9jz-president-trump-participates-in-the-make-america...
+- [18:05 UTC - Truth Social post 114269692330126501](114269692330126501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114269692330126501
+  - _No text content captured._
+- [17:44 UTC - Truth Social post 114269609962501046](114269609962501046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114269609962501046
+  - _No text content captured._
+- [17:20 UTC - [https://www. whitehouse.gov/articles/2025/0 4/tariffs-work-and-president-trumps-first-ter...](114269516381007191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114269516381007191
+  - [https://www. whitehouse.gov/articles/2025/0 4/tariffs-work-and-president-trumps-first-term-proves-it/](https://www.whitehouse.gov/articles/2025/04/tariffs-work-and-president-trump...
+- [16:04 UTC - “Trump's tariffs are saving the American steel industry” [https://www. post-gazette.com/op...](114269214484216882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114269214484216882
+  - “Trump's tariffs are saving the American steel industry” [https://www. post-gazette.com/opinion/guest -columns/2025/03/18/trump-steel-tariff/stories/202503170010](https://www.post-...
+- [15:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114268044617916583](114269118325764698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114269118325764698
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114268044617916583
+- [13:55 UTC - “This is an exciting day, Liberation Day. This is the single greatest salvation, for not j...](114268708154085693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114268708154085693
+  - “This is an exciting day, Liberation Day. This is the single greatest salvation, for not just small businesses, but for America. This country was traveling down an unsustainable pa...
+- [13:45 UTC - Lee Zeldin: “The historic deregulatory actions we are taking at EPA will save the American...](114268668984265677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114268668984265677
+  - Lee Zeldin: “The historic deregulatory actions we are taking at EPA will save the American people TRILLIONS of dollars while we work to provide the cleanest air, land, and water on...
+- [11:06 UTC - IT’S LIBERATION DAY IN AMERICA!](114268044617916583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114268044617916583
+  - IT’S LIBERATION DAY IN AMERICA!
+- [04:58 UTC - Mitch McConnell of Kentucky, Susan Collins of Maine, Lisa Murkowski of Alaska, and Rand Pa...](114266599439835683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114266599439835683
+  - Mitch McConnell of Kentucky, Susan Collins of Maine, Lisa Murkowski of Alaska, and Rand Paul, also of Kentucky, will hopefully get on the Republican bandwagon, for a change, and fi...
+- [02:23 UTC - VOTER I.D. JUST APPROVED IN WISCONSIN ELECTION. Democrats fought hard against this, presum...](114265988202750791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265988202750791
+  - VOTER I.D. JUST APPROVED IN WISCONSIN ELECTION. Democrats fought hard against this, presumably so they can CHEAT. This is a BIG WIN FOR REPUBLICANS, MAYBE THE BIGGEST WIN OF THE NI...
+- [00:34 UTC - Truth Social post 114265559182115048](114265559182115048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265559182115048
+  - _No text content captured._
+- [00:17 UTC - BOTH FLORIDA HOUSE SEATS HAVE BEEN WON, BIG, BY THE REPUBLICAN CANDIDATE. THE TRUMP ENDORS...](114265493906125093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265493906125093
+  - BOTH FLORIDA HOUSE SEATS HAVE BEEN WON, BIG, BY THE REPUBLICAN CANDIDATE. THE TRUMP ENDORSEMENT, AS ALWAYS, PROVED FAR GREATER THAN THE DEMOCRATS FORCES OF EVIL. CONGRATULATIONS TO...
+- [00:09 UTC - Jimmy Patronis WINS BIG! Congratulations Jimmy. DONALD J. TRUMP, PRESIDENT!](114265460175109325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265460175109325
+  - Jimmy Patronis WINS BIG! Congratulations Jimmy. DONALD J. TRUMP, PRESIDENT!

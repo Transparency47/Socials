@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-04-18
+
+- Posts: 17
+
+- [23:07 UTC - Truth Social post 114361477986715126](114361477986715126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361477986715126
+  - _No text content captured._
+- [23:06 UTC - Truth Social post 114361473468947708](114361473468947708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361473468947708
+  - _No text content captured._
+- [23:00 UTC - Truth Social post 114361449658485078](114361449658485078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361449658485078
+  - _No text content captured._
+- [23:00 UTC - Truth Social post 114361448125882128](114361448125882128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361448125882128
+  - _No text content captured._
+- [22:52 UTC - Truth Social post 114361418060564412](114361418060564412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361418060564412
+  - _No text content captured._
+- [22:00 UTC - This is the hand of the man that the Democrats feel should be brought back to the United S...](114361211919694573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114361211919694573
+  - This is the hand of the man that the Democrats feel should be brought back to the United States, because he is such “a fine and innocent person.” They said he is not a member of MS...
+- [19:32 UTC - Following my Day One Executive Order, the Office of Personnel Management will be issuing n...](114360632714487285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114360632714487285
+  - Following my Day One Executive Order, the Office of Personnel Management will be issuing new Civil Service Regulations for career government employees. Moving forward, career gover...
+- [12:48 UTC - Prime Minister Georgia Meloni of Italy was great yesterday in her visit to the White House...](114359040827344338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114359040827344338
+  - Prime Minister Georgia Meloni of Italy was great yesterday in her visit to the White House. She loves her country, and the impression she left on everyone was FANTASTIC!!! DJT
+- [12:44 UTC - Senator Chris Van Hollen of Maryland looked like a fool yesterday standing in El Salvador ...](114359025219551578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114359025219551578
+  - Senator Chris Van Hollen of Maryland looked like a fool yesterday standing in El Salvador begging for attention from the Fake News Media, or anyone. GRANDSTANDER!!!
+- [04:28 UTC - Truth Social post 114357074832989172](114357074832989172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114357074832989172
+  - _No text content captured._
+- [04:27 UTC - Truth Social post 114357072642812114](114357072642812114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114357072642812114
+  - _No text content captured._
+- [04:26 UTC - Truth Social post 114357069692848600](114357069692848600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114357069692848600
+  - _No text content captured._
+- [04:20 UTC - “Turns out you can't have your principal residence in Virginia and be AG of New York. You ...](114357043475202498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114357043475202498
+  - “Turns out you can't have your principal residence in Virginia and be AG of New York. You can’t say your dad’s your husband. Or claim a five-unit is a four. But that’s what Letitia...
+- [01:25 UTC - [https:// justthenews.com/government/whi te-house/donald-trump-establishes-new-homeland-se...](114356356715453363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114356356715453363
+  - [https:// justthenews.com/government/whi te-house/donald-trump-establishes-new-homeland-security-advisory-council](https://justthenews.com/government/white-house/donald-trump-estab...
+- [01:03 UTC - Truth Social post 114356269621686179](114356269621686179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114356269621686179
+  - _No text content captured._
+- [01:02 UTC - 🇺🇸🇮🇹](114356265216315187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114356265216315187
+  - 🇺🇸🇮🇹
+- [00:43 UTC - [https:// youtu.be/us7F6jsRpmA](https://youtu.be/us7F6jsRpmA)](114356191266497504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114356191266497504
+  - [https:// youtu.be/us7F6jsRpmA](https://youtu.be/us7F6jsRpmA)

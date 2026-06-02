@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-03-30
+
+- Posts: 10
+
+- [23:49 UTC - I got a call from a very good guy, and friend of mine, Kid Rock, asking me whether or not ...](114254057682596962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114254057682596962
+  - I got a call from a very good guy, and friend of mine, Kid Rock, asking me whether or not it would be possible for me to meet, in the White House, with Bill Maher, a man who has be...
+- [23:37 UTC - I was just informed by Prime Minister Starmer of the United Kingdom, that they caught the ...](114254009723637368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114254009723637368
+  - I was just informed by Prime Minister Starmer of the United Kingdom, that they caught the terrorists who attacked the beautiful Turnberry, in Scotland. They did serious damage, and...
+- [23:37 UTC - Kristen Welker’s entire first half hour of the Lowly Rated Meet the Fake Press this mornin...](114254008984567465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114254008984567465
+  - Kristen Welker’s entire first half hour of the Lowly Rated Meet the Fake Press this morning, was devoted to the boring Signal Witch Hunt. She doesn’t want to talk in detail about a...
+- [22:48 UTC - Brad Schimel’s Opponent, Susan Crawford, is a DISASTER! She is so Far Left that even her o...](114253819551160329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114253819551160329
+  - Brad Schimel’s Opponent, Susan Crawford, is a DISASTER! She is so Far Left that even her own Party, the Radical Democrats, don’t want ANYTHING to do with her. Wisconsin Values are...
+- [20:36 UTC - A GREAT job by Senator Markwayne Mullin on beating back Kristen Welker’s, and the the Radi...](114253297744744441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114253297744744441
+  - A GREAT job by Senator Markwayne Mullin on beating back Kristen Welker’s, and the the Radical Left’s Witch Hunt, on the never ending Signal story. They just don’t stop - Over and o...
+- [20:12 UTC - Working together with a fantastic and very talented Executive Residence Staff, along with ...](114253205784550890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114253205784550890
+  - Working together with a fantastic and very talented Executive Residence Staff, along with the wonderful people at the National Park Service, we are making tremendous enhancements t...
+- [15:00 UTC - FREE ENTERPRISE!! Winston Churchill: "Socialism is the Philosophy of Failure, the Creed of...](114251978476715796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114251978476715796
+  - FREE ENTERPRISE!! Winston Churchill: "Socialism is the Philosophy of Failure, the Creed of Ignorance, and the Gospel of Envy...The inherent Virtue of Socialism is the Equal Sharing...
+- [14:17 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Dear President Trump: Please revoke Judge...](114251807038907112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114251807038907112
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Dear President Trump: Please revoke Judge Boasberg's security clearance. He has demonstrated he cannot be trusted with keeping secr...
+- [13:53 UTC - People are shocked by what is going on with the Court System. I was elected for many reaso...](114251714651932084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114251714651932084
+  - People are shocked by what is going on with the Court System. I was elected for many reasons, but a principal one was LAW AND ORDER, a big part of which is QUICKLY removing a vast...
+- [00:41 UTC - Truth Social post 114248598410150945](114248598410150945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114248598410150945
+  - _No text content captured._

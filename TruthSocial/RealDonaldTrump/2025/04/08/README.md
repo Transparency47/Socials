@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-04-08
+
+- Posts: 10
+
+- [22:11 UTC - I had a very good meeting today with the Speaker of the House and some of our more Conserv...](114304634655292901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304634655292901
+  - I had a very good meeting today with the Speaker of the House and some of our more Conservative Members, all great people. I let them know that, I AM FOR MAJOR SPENDING CUTS! WE AR...
+- [21:34 UTC - Truth Social post 114304486780081789](114304486780081789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304486780081789
+  - _No text content captured._
+- [21:34 UTC - Truth Social post 114304486045337413](114304486045337413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304486045337413
+  - _No text content captured._
+- [21:33 UTC - Truth Social post 114304485284360133](114304485284360133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304485284360133
+  - _No text content captured._
+- [21:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114304424640936613 Today, we to...](114304476490205414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304476490205414
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114304424640936613 Today, we took historic action to help American workers, miners, families and consumers. We're ending...
+- [21:18 UTC - [https://www. youtube.com/live/yGoDK8bVB9k?s i=46Oj4YGkKNE7ACC5](https://www.youtube.com/l...](114304424640936613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114304424640936613
+  - [https://www. youtube.com/live/yGoDK8bVB9k?s i=46Oj4YGkKNE7ACC5](https://www.youtube.com/live/yGoDK8bVB9k?si=46Oj4YGkKNE7ACC5)
+- [14:44 UTC - “We're managing a massive amount of requests for negotiations…”](114302876029283093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114302876029283093
+  - “We're managing a massive amount of requests for negotiations…”
+- [13:08 UTC - I just had a great call with the Acting President of South Korea. We talked about their tr...](114302499965852704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114302499965852704
+  - I just had a great call with the Acting President of South Korea. We talked about their tremendous and unsustainable Surplus, Tariffs, Shipbuilding, large scale purchase of U.S. LN...
+- [13:05 UTC - "Border Patrol agents sign up to do Border Patrol work, and the fact that they're actually...](114302486798524913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114302486798524913
+  - "Border Patrol agents sign up to do Border Patrol work, and the fact that they're actually getting out there and patrolling...I think that makes a lot of folks in our organization...
+- [13:03 UTC - [https://www. washingtonexaminer.com/restori ng-america/courage-strength-optimism/3372557/...](114302479432515341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114302479432515341
+  - [https://www. washingtonexaminer.com/restori ng-america/courage-strength-optimism/3372557/auto-tariffs-steering-jobs-back-to-us/](https://www.washingtonexaminer.com/restoring-ameri...

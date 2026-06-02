@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-04-15
+
+- Posts: 10
+
+- [23:38 UTC - Truth Social post 114344611980889166](114344611980889166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114344611980889166
+  - _No text content captured._
+- [23:26 UTC - Truth Social post 114344562778183288](114344562778183288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114344562778183288
+  - _No text content captured._
+- [21:38 UTC - Truth Social post 114344140416519702](114344140416519702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114344140416519702
+  - _No text content captured._
+- [21:27 UTC - [https://www. youtube.com/live/LX_3YJbYZqI?s i=YU3YG0UeHsEcxkw2](https://www.youtube.com/l...](114344095674857467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114344095674857467
+  - [https://www. youtube.com/live/LX_3YJbYZqI?s i=YU3YG0UeHsEcxkw2](https://www.youtube.com/live/LX_3YJbYZqI?si=YU3YG0UeHsEcxkw2)
+- [14:46 UTC - Our farmers are GREAT, but because of their GREATNESS, they are always put on the Front Li...](114342518862792060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114342518862792060
+  - Our farmers are GREAT, but because of their GREATNESS, they are always put on the Front Line with our adversaries, such as China, whenever there is a Trade negotiation or, in this...
+- [14:09 UTC - Perhaps Harvard should lose its Tax Exempt Status and be Taxed as a Political Entity if it...](114342374504628520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114342374504628520
+  - Perhaps Harvard should lose its Tax Exempt Status and be Taxed as a Political Entity if it keeps pushing political, ideological, and terrorist inspired/supporting “Sickness?” Remem...
+- [12:18 UTC - Truth Social post 114341938067438957](114341938067438957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114341938067438957
+  - _No text content captured._
+- [11:55 UTC - BORDER CROSSINGS HIT ALL TIME RECORD LOW IN MARCH!!!](114341848091430549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114341848091430549
+  - BORDER CROSSINGS HIT ALL TIME RECORD LOW IN MARCH!!!
+- [11:36 UTC - NVIDIA COMMITS 500 BILLION DOLLARS TO BUILD A.I. SUPERCOMPUTERS, PLUS, IN THE UNITED STATE...](114341773968885783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114341773968885783
+  - NVIDIA COMMITS 500 BILLION DOLLARS TO BUILD A.I. SUPERCOMPUTERS, PLUS, IN THE UNITED STATES, EXCLUSIVELY. This is very big and exciting news. All necessary permits will be expedite...
+- [03:57 UTC - A just out NBC Poll says that MAGA is gaining tremendous support. I am not, at all, surpri...](114339966797907461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114339966797907461
+  - A just out NBC Poll says that MAGA is gaining tremendous support. I am not, at all, surprised!!!

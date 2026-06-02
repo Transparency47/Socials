@@ -1,0 +1,124 @@
+# TruthSocial / RealDonaldTrump / 2025-04-01
+
+- Posts: 40
+
+- [23:41 UTC - Congratulations Randy, a great WIN against a massive CASH AVALANCHE. DONALD J. TRUMP, PRES...](114265353051503359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265353051503359
+  - Congratulations Randy, a great WIN against a massive CASH AVALANCHE. DONALD J. TRUMP, PRESIDENT
+- [23:24 UTC - RANDY FINE WINS!!!](114265284182327245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265284182327245
+  - RANDY FINE WINS!!!
+- [23:22 UTC - [https://www. washingtonexaminer.com/news/ho use/3363490/house-federal-judges-hearing-left...](114265275768691045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265275768691045
+  - [https://www. washingtonexaminer.com/news/ho use/3363490/house-federal-judges-hearing-left-wing-activist-judges-jim-jordan/](https://www.washingtonexaminer.com/news/house/3363490/h...
+- [23:20 UTC - “Judges are just pretending to be Judges! They are making the law instead of deciding the ...](114265268833712885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114265268833712885
+  - “Judges are just pretending to be Judges! They are making the law instead of deciding the law!” — Elon Musk. In other words, they are totally out of control, in complete violation...
+- [20:59 UTC - “COMBATING UNFAIR PRACTICES IN THE LIVE ENTERTAINMENT MARKET” EXECUTIVE ORDER: [https://ww...](114264713687236941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114264713687236941
+  - “COMBATING UNFAIR PRACTICES IN THE LIVE ENTERTAINMENT MARKET” EXECUTIVE ORDER: [https://www. whitehouse.gov/presidential-ac tions/2025/03/combating-unfair-practices-in-the-live-ent...
+- [20:47 UTC - Today, President Donald J. Trump and Willkie Farr & Gallagher LLP (“Willkie”) announce the...](114264667777137553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114264667777137553
+  - Today, President Donald J. Trump and Willkie Farr & Gallagher LLP (“Willkie”) announce the following agreement regarding a series of actions to be taken by Willkie: 1. Willkie will...
+- [20:17 UTC - REPUBLICANS MUST DEFUND AND TOTALLY DISASSOCIATE THEMSELVES FROM NPR & PBS, THE RADICAL LE...](114264549657133828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114264549657133828
+  - REPUBLICANS MUST DEFUND AND TOTALLY DISASSOCIATE THEMSELVES FROM NPR & PBS, THE RADICAL LEFT “MONSTERS” THAT SO BADLY HURT OUR COUNTRY!
+- [17:36 UTC - Truth Social post 114263916301921241](114263916301921241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263916301921241
+  - _No text content captured._
+- [15:40 UTC - Senator Tim Kaine, who ran against me with Crooked Hillary in 2016, is trying to halt our ...](114263461013940328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263461013940328
+  - Senator Tim Kaine, who ran against me with Crooked Hillary in 2016, is trying to halt our critical Tariffs on deadly Fentanyl coming in from Canada. We are making progress to end t...
+- [15:21 UTC - My telephone call with President El-Sisi, of Egypt, went very well. We discussed numerous ...](114263386262728170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263386262728170
+  - My telephone call with President El-Sisi, of Egypt, went very well. We discussed numerous topics, among which was the tremendous Military progress we have made against the Ship des...
+- [13:56 UTC - WISCONSIN: There is a very important Referendum (Question 1) on the Ballot to amend the St...](114263052221266871/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263052221266871
+  - WISCONSIN: There is a very important Referendum (Question 1) on the Ballot to amend the State Constitution to require VOTER ID. This, and other Election Integrity measures, includi...
+- [13:56 UTC - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, ...](114263050632843712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263050632843712
+  - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, is running an incredible Campaign for Congress in Florida’s 1st Congressional District! A...
+- [13:55 UTC - America First Patriot Randy Fine is running to represent the Wonderful People of Florida’s...](114263048748701626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263048748701626
+  - America First Patriot Randy Fine is running to represent the Wonderful People of Florida’s 6th Congressional District! A highly successful, Harvard educated businessman, and greatl...
+- [13:49 UTC - Truth Social post 114263023321443761](114263023321443761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263023321443761
+  - _No text content captured._
+- [13:49 UTC - “Trump is A Combination of Reagan and Churchill - Only Better” [https:// nickadamsmaga.sub...](114263022222641123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263022222641123
+  - “Trump is A Combination of Reagan and Churchill - Only Better” [https:// nickadamsmaga.substack.com/p/t rump-is-a-combination-of-reagan](https://nickadamsmaga.substack.com/p/trump-...
+- [13:47 UTC - [https:// nypost.com/2025/03/27/opinion/ how-trumps-tariffs-will-boost-my-small-business/]...](114263016425726800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263016425726800
+  - [https:// nypost.com/2025/03/27/opinion/ how-trumps-tariffs-will-boost-my-small-business/](https://nypost.com/2025/03/27/opinion/how-trumps-tariffs-will-boost-my-small-business/)
+- [13:47 UTC - [https://www. newsmax.com/newsmax-tv/jim-mcl aughlin-john-mclaughlin-poll/2025/03/27/id/12...](114263014782781697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263014782781697
+  - [https://www. newsmax.com/newsmax-tv/jim-mcl aughlin-john-mclaughlin-poll/2025/03/27/id/1204559/](https://www.newsmax.com/newsmax-tv/jim-mclaughlin-john-mclaughlin-poll/2025/03/27/...
+- [13:45 UTC - [https:// nypost.com/2025/03/31/us-news/ illegal-border-crossing-for-march-hit-stunning-ne...](114263008905122858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263008905122858
+  - [https:// nypost.com/2025/03/31/us-news/ illegal-border-crossing-for-march-hit-stunning-new-low/](https://nypost.com/2025/03/31/us-news/illegal-border-crossing-for-march-hit-stunni...
+- [13:44 UTC - Truth Social post 114263005051624143](114263005051624143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263005051624143
+  - _No text content captured._
+- [13:44 UTC - Truth Social post 114263003244102667](114263003244102667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114263003244102667
+  - _No text content captured._
+- [13:43 UTC - Truth Social post 114262999027941506](114262999027941506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114262999027941506
+  - _No text content captured._
+- [13:42 UTC - [https:// youtu.be/oQE2dgqe_bI](https://youtu.be/oQE2dgqe_bI)](114262994505038793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114262994505038793
+  - [https:// youtu.be/oQE2dgqe_bI](https://youtu.be/oQE2dgqe_bI)
+- [13:17 UTC - Truth Social post 114262897209563603](114262897209563603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114262897209563603
+  - _No text content captured._
+- [00:04 UTC - [https:// justthenews.com/government/con gress/congressman-says-trumps-plans-rare-earth-mi...](114259779880197106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259779880197106
+  - [https:// justthenews.com/government/con gress/congressman-says-trumps-plans-rare-earth-minerals-could-spur-manufacturing-boom](https://justthenews.com/government/congress/congress...
+- [00:04 UTC - [https://www. washingtontimes.com/news/2025/ mar/11/trumps-tariffs-strengthening-us-jobs-n...](114259779281266692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259779281266692
+  - [https://www. washingtontimes.com/news/2025/ mar/11/trumps-tariffs-strengthening-us-jobs-national-security/](https://www.washingtontimes.com/news/2025/mar/11/trumps-tariffs-strengt...
+- [00:04 UTC - “IN A VICTORY FOR AUTOWORKERS, AUTO TARIFFS MARK THE BEGINNING OF THE END OF NAFTA AND THE...](114259778682053280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259778682053280
+  - “IN A VICTORY FOR AUTOWORKERS, AUTO TARIFFS MARK THE BEGINNING OF THE END OF NAFTA AND THE ‘FREE TRADE’ DISASTER” [https:// uaw.org/tariffs-mark-beginning -of-victory-for-autoworke...
+- [00:03 UTC - [https://www. washingtonexaminer.com/news/wh ite-house/3360713/uaw-praises-trump-auto-tari...](114259776229298213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259776229298213
+  - [https://www. washingtonexaminer.com/news/wh ite-house/3360713/uaw-praises-trump-auto-tariffs/](https://www.washingtonexaminer.com/news/white-house/3360713/uaw-praises-trump-auto-t...
+- [00:03 UTC - “Trump tariff on Venezuelan oil buyers shakes global market, major refiners pull back” [ht...](114259775317961958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259775317961958
+  - “Trump tariff on Venezuelan oil buyers shakes global market, major refiners pull back” [https://www. miamiherald.com/news/nation-wo rld/world/americas/venezuela/article302854669.ht...
+- [00:02 UTC - “Companies eye US expansion to lessen fallout from potential tariffs” [https://www. reuter...](114259773249991583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259773249991583
+  - “Companies eye US expansion to lessen fallout from potential tariffs” [https://www. reuters.com/business/energy/in dias-reliance-stop-buying-venezuelan-oil-over-us-tariffs-sources-...
+- [00:02 UTC - [https://www. foxnews.com/media/nyt-writer-s ays-dems-getting-destroyed-data-show-gen-z-mo...](114259771669169173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259771669169173
+  - [https://www. foxnews.com/media/nyt-writer-s ays-dems-getting-destroyed-data-show-gen-z-most-conservative-generation-decades](https://www.foxnews.com/media/nyt-writer-says-dems-get...
+- [00:02 UTC - [https://www. breitbart.com/environment/2025 /03/15/exclusive-epa-administrator-lee-zeldin...](114259770402371279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259770402371279
+  - [https://www. breitbart.com/environment/2025 /03/15/exclusive-epa-administrator-lee-zeldin-launches-largest-deregulatory-effort-us-history-save-coal-bring-down-cost-living/](https:...
+- [00:02 UTC - [https://www. newsmax.com/newsmax-tv/donald- trump-russia-tommy-tuberville/2025/03/13/id/1...](114259770085623128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259770085623128
+  - [https://www. newsmax.com/newsmax-tv/donald- trump-russia-tommy-tuberville/2025/03/13/id/1202682/](https://www.newsmax.com/newsmax-tv/donald-trump-russia-tommy-tuberville/2025/03/1...
+- [00:01 UTC - [https://www. foxnews.com/media/trump-wins-r esult-losses-msnbcs-maddow](https://www.foxne...](114259768729566000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259768729566000
+  - [https://www. foxnews.com/media/trump-wins-r esult-losses-msnbcs-maddow](https://www.foxnews.com/media/trump-wins-result-losses-msnbcs-maddow)
+- [00:01 UTC - [https://www. washingtontimes.com/news/2025/ mar/9/trumps-common-sense-death-democratic-pa...](114259768251097200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259768251097200
+  - [https://www. washingtontimes.com/news/2025/ mar/9/trumps-common-sense-death-democratic-party/](https://www.washingtontimes.com/news/2025/mar/9/trumps-common-sense-death-democratic...
+- [00:01 UTC - [https://www. foxnews.com/politics/leave-now -trump-admin-repurposes-controversial-cbp-one...](114259766959227030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259766959227030
+  - [https://www. foxnews.com/politics/leave-now -trump-admin-repurposes-controversial-cbp-one-app-encourage-self-deportations](https://www.foxnews.com/politics/leave-now-trump-admin-r...
+- [00:01 UTC - [https://www. foxnews.com/politics/trump-adm in-tackling-biden-backlog-campus-antisemitism...](114259765955305434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259765955305434
+  - [https://www. foxnews.com/politics/trump-adm in-tackling-biden-backlog-campus-antisemitism-complaints-immediate-priority](https://www.foxnews.com/politics/trump-admin-tackling-bide...
+- [00:00 UTC - [https://www. foxnews.com/politics/trumps-to p-accomplishments-50-days-his-oval-office-ret...](114259764911765008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259764911765008
+  - [https://www. foxnews.com/politics/trumps-to p-accomplishments-50-days-his-oval-office-return](https://www.foxnews.com/politics/trumps-top-accomplishments-50-days-his-oval-office-r...
+- [00:00 UTC - [https://www. thegatewaypundit.com/2025/03/w ayne-root-always-bet-trump-why-this-is/](http...](114259764460522127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259764460522127
+  - [https://www. thegatewaypundit.com/2025/03/w ayne-root-always-bet-trump-why-this-is/](https://www.thegatewaypundit.com/2025/03/wayne-root-always-bet-trump-why-this-is/)
+- [00:00 UTC - [https:// thespectator.com/topic/trump-d erangement-comes-home-roost-democrats/](https://t...](114259763210520587/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259763210520587
+  - [https:// thespectator.com/topic/trump-d erangement-comes-home-roost-democrats/](https://thespectator.com/topic/trump-derangement-comes-home-roost-democrats/)
+- [00:00 UTC - [https:// thehill.com/opinion/campaign/5 207965-has-trump-caused-the-democratic-party-to-i...](114259762945101410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259762945101410
+  - [https:// thehill.com/opinion/campaign/5 207965-has-trump-caused-the-democratic-party-to-implode/](https://thehill.com/opinion/campaign/5207965-has-trump-caused-the-democratic-part...

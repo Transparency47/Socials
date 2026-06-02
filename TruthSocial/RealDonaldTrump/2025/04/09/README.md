@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-04-09
+
+- Posts: 19
+
+- [22:30 UTC - It was my Great Honor to welcome the North Dakota State University, 2025 Division 1 Footba...](114310370550367017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114310370550367017
+  - It was my Great Honor to welcome the North Dakota State University, 2025 Division 1 Football Champions—to the White House this evening. CONGRATULATIONS!
+- [21:44 UTC - We are taking historic action to help American workers, miners, families, and consumers. W...](114310188132445566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114310188132445566
+  - We are taking historic action to help American workers, miners, families, and consumers. We're ending Joe Biden's war on beautiful, clean coal once and for all, and we're gonna put...
+- [21:42 UTC - Truth Social post 114310180518510028](114310180518510028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114310180518510028
+  - _No text content captured._
+- [21:40 UTC - Truth Social post 114310175585065012](114310175585065012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114310175585065012
+  - _No text content captured._
+- [19:30 UTC - CONGRATULATIONS!](114309662351113873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114309662351113873
+  - CONGRATULATIONS!
+- [17:18 UTC - Based on the lack of respect that China has shown to the World’s Markets, I am hereby rais...](114309144289505174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114309144289505174
+  - Based on the lack of respect that China has shown to the World’s Markets, I am hereby raising the Tariff charged to China by the United States of America to 125%, effective immedia...
+- [16:16 UTC - Jon Husted is doing an incredible job as Senator for the Great State of Ohio! He served as...](114308898654506738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114308898654506738
+  - Jon Husted is doing an incredible job as Senator for the Great State of Ohio! He served as your Lieutenant Governor for seven years prior to becoming a very distinguished and well...
+- [13:37 UTC - THIS IS A GREAT TIME TO BUY!!! DJT](114308272725981913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114308272725981913
+  - THIS IS A GREAT TIME TO BUY!!! DJT
+- [13:33 UTC - BE COOL! Everything is going to work out well. The USA will be bigger and better than ever...](114308258545250117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114308258545250117
+  - BE COOL! Everything is going to work out well. The USA will be bigger and better than ever before!
+- [13:25 UTC - “Fixing Trade and Tariffs is a good thing!” Jamie Dimon, JPMorgan Chase, Chairman & CEO, o...](114308228615083777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114308228615083777
+  - “Fixing Trade and Tariffs is a good thing!” Jamie Dimon, JPMorgan Chase, Chairman & CEO, on Maria B Show!
+- [12:58 UTC - It is IMPERATIVE that Republicans in the House pass the Tax Cut Bill, NOW! Our Country Wil...](114308121820846336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114308121820846336
+  - It is IMPERATIVE that Republicans in the House pass the Tax Cut Bill, NOW! Our Country Will Boom!!!
+- [11:58 UTC - Republicans, it is more important now, than ever, that we pass THE ONE, BIG, BEAUTIFUL BIL...](114307883361614427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114307883361614427
+  - Republicans, it is more important now, than ever, that we pass THE ONE, BIG, BEAUTIFUL BILL. The USA will Soar like never before!!!
+- [11:46 UTC - MAKE AMERICA GREAT AGAIN!](114307836775073198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114307836775073198
+  - MAKE AMERICA GREAT AGAIN!
+- [11:44 UTC - This is a GREAT time to move your COMPANY into the United States of America, like Apple, a...](114307832213562859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114307832213562859
+  - This is a GREAT time to move your COMPANY into the United States of America, like Apple, and so many others, in record numbers, are doing. ZERO TARIFFS, and almost immediate Electr...
+- [02:16 UTC - Truth Social post 114305595045936995](114305595045936995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114305595045936995
+  - _No text content captured._
+- [01:40 UTC - I’m proud to be the President for the workers, not the outsourcers; the President who stan...](114305454562761253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114305454562761253
+  - I’m proud to be the President for the workers, not the outsourcers; the President who stands up for Main Street, not Wall Street; who protects the middle class, not the political c...
+- [01:38 UTC - Last month, we officially designated Tren de Aragua, MS-13 and the Mexican drug cartels as...](114305448331638991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114305448331638991
+  - Last month, we officially designated Tren de Aragua, MS-13 and the Mexican drug cartels as foreign terrorist organizations—and thanks to the Supreme Court yesterday...we will conti...
+- [01:36 UTC - Truth Social post 114305441323877890](114305441323877890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114305441323877890
+  - _No text content captured._
+- [01:35 UTC - “Reinvigorating America’s Beautiful Clean Coal Industry and Amending Executive Order 14241...](114305433728064974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114305433728064974
+  - “Reinvigorating America’s Beautiful Clean Coal Industry and Amending Executive Order 14241” [https://www. whitehouse.gov/presidential-ac tions/2025/04/reinvigorating-americas-beaut...

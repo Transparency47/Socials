@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-04-20
 
-- Posts: 11
+- Posts: 23
 
 - [21:13 UTC - NON-TARIFF CHEATING: 1. Currency Manipulation 2. VATs which act as tariffs and export subs...](114372351596556599/)
   - Source: https://truthsocial.com/@realDonaldTrump/114372351596556599
@@ -35,3 +35,39 @@
 - [20:41 UTC - [https:// youtu.be/yShWIx51ECg](https://youtu.be/yShWIx51ECg)](114372225670509642/)
   - Source: https://truthsocial.com/@realDonaldTrump/114372225670509642
   - [https:// youtu.be/yShWIx51ECg](https://youtu.be/yShWIx51ECg)
+- [20:40 UTC - [https:// youtu.be/meMCASUVwzI](https://youtu.be/meMCASUVwzI)](114372223162179718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372223162179718
+  - [https:// youtu.be/meMCASUVwzI](https://youtu.be/meMCASUVwzI)
+- [20:25 UTC - Tomorrow morning is the BIG Easter Egg Hunt at the White House. 40,000 people expected. I’...](114372165978000486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372165978000486
+  - Tomorrow morning is the BIG Easter Egg Hunt at the White House. 40,000 people expected. I’ll be there! Gates open at 6:30 A.M., close at 5:30 P.M. ALL FUNDS, EVERY DIME, GO DIRECTL...
+- [20:15 UTC - HOPEFULLY RUSSIA AMD UKRAINE WILL MAKE A DEAL THIS WEEK. BOTH WILL THEN START TO DO BIG BU...](114372126396548824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372126396548824
+  - HOPEFULLY RUSSIA AMD UKRAINE WILL MAKE A DEAL THIS WEEK. BOTH WILL THEN START TO DO BIG BUSINESS WITH THE UNITED STATES OF AMERICA, WHICH IS THRIVING, AND MAKE A FORTUNE!
+- [20:09 UTC - THE GOLDEN RULE OF NEGOTIATING AND SUCCESS: HE WHO HAS THE GOLD MAKES THE RULES. THANK YOU...](114372102982066647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372102982066647
+  - THE GOLDEN RULE OF NEGOTIATING AND SUCCESS: HE WHO HAS THE GOLD MAKES THE RULES. THANK YOU!
+- [20:05 UTC - THE BUSINESSMEN WHO CRITICIZE TARIFFS ARE BAD AT BUSINESS, BUT REALLY BAD AT POLITICS. THE...](114372085732582216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372085732582216
+  - THE BUSINESSMEN WHO CRITICIZE TARIFFS ARE BAD AT BUSINESS, BUT REALLY BAD AT POLITICS. THEY DON’T UNDERSTAND OR REALIZE THAT I AM THE GREATEST FRIEND THAT AMERICAN CAPITALISM HAS E...
+- [19:57 UTC - HAPPY EASTER. WE WILL, MAKE AMERICA GREAT AGAIN! DONALD J. TRUMP, PRESIDENT OF THE UNITED ...](114372052807631514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372052807631514
+  - HAPPY EASTER. WE WILL, MAKE AMERICA GREAT AGAIN! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES.
+- [19:53 UTC - “The World will not be destroyed by those who do evil, but rather by those who watch them ...](114372038178954425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372038178954425
+  - “The World will not be destroyed by those who do evil, but rather by those who watch them without doing anything to stop them.”
+- [14:35 UTC - Truth Social post 114370788518765990](114370788518765990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114370788518765990
+  - _No text content captured._
+- [13:57 UTC - We are, together, going to make America bigger, better, stronger, wealthier, healthier, an...](114370637123886922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114370637123886922
+  - We are, together, going to make America bigger, better, stronger, wealthier, healthier, and more religious, than it has ever been before!!! DONALD J. TRUMP, PRESIDENT OF THE UNITED...
+- [12:46 UTC - Happy Easter to all, including the Radical Left Lunatics who are fighting and scheming so ...](114370361342759621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114370361342759621
+  - Happy Easter to all, including the Radical Left Lunatics who are fighting and scheming so hard to bring Murderers, Drug Lords, Dangerous Prisoners, the Mentally Insane, and well kn...
+- [12:40 UTC - Melania and I would like to wish everyone a very Happy Easter! Whether you are heading out...](114370333902322250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114370333902322250
+  - Melania and I would like to wish everyone a very Happy Easter! Whether you are heading out to Church or, watching Service from home, may this day be full of Peace and Joy for all w...
+- [00:08 UTC - TRUMP’S BEST POLL NUMBERS, EVER. THANK YOU!](114367378741589101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114367378741589101
+  - TRUMP’S BEST POLL NUMBERS, EVER. THANK YOU!

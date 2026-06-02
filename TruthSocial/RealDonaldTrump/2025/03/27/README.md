@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-03-27
+
+- Posts: 11
+
+- [18:12 UTC - As we advance our America First Agenda, it is essential that we maintain EVERY Republican ...](114235745233828789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235745233828789
+  - As we advance our America First Agenda, it is essential that we maintain EVERY Republican Seat in Congress. We must be unified to accomplish our Mission, and Elise Stefanik has bee...
+- [17:39 UTC - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvani...](114235616565301548/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235616565301548
+  - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvania’s 10th Congressional District! A retired Army Brigadier General, Scott is a MAGA Warrior...
+- [15:30 UTC - Pam Bondi, Attorney General: “Early this morning, one of the top leaders of MS-13 was appr...](114235110191857080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235110191857080
+  - Pam Bondi, Attorney General: “Early this morning, one of the top leaders of MS-13 was apprehended. He was the leader for the East Coast, one of the top three in the entire country,...
+- [15:29 UTC - Pam Bondi, Attorney General: “America is safer today because one of the top domestic terro...](114235104036085271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235104036085271
+  - Pam Bondi, Attorney General: “America is safer today because one of the top domestic terrorists in MS-13, he is off the streets. This has been an ongoing directive of President Tru...
+- [15:27 UTC - Kash Patel, FBI Director: "This task force is going to go everywhere as needed, across the...](114235097919072113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235097919072113
+  - Kash Patel, FBI Director: "This task force is going to go everywhere as needed, across the United States to bring the form of justice and measured security and safety that our Amer...
+- [15:26 UTC - Pam Bondi, Attorney General: “From the second Donald Trump took office, he said he is goin...](114235092758869964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235092758869964
+  - Pam Bondi, Attorney General: “From the second Donald Trump took office, he said he is going to make America safe. He shut down our borders and now it's our job to get these people...
+- [15:25 UTC - RT [@ OAN](https://truthsocial.com/@OAN) EPA ADMINISTRATOR LEE ZELDIN GIVES THE MATT GAETZ...](114235090957760281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235090957760281
+  - RT [@ OAN](https://truthsocial.com/@OAN) EPA ADMINISTRATOR LEE ZELDIN GIVES THE MATT GAETZ SHOW A PREVIEW OF THE CUTS AND SAVINGS THE TRUMP ADMINISTRATION IS MAKING WHILE ENSURING...
+- [15:24 UTC - Auto Workers for Trump founder Brian Pannebacker on President Trump's auto tariffs: "To he...](114235085105377425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114235085105377425
+  - Auto Workers for Trump founder Brian Pannebacker on President Trump's auto tariffs: "To hear an announcement like this that's going to force the auto companies to build their assem...
+- [15:01 UTC - Truth Social post 114234993323626415](114234993323626415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114234993323626415
+  - _No text content captured._
+- [13:57 UTC - Whatever happened to the $8,000,000 given by our “government” to Radical Left Politico mag...](114234742770558412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114234742770558412
+  - Whatever happened to the $8,000,000 given by our “government” to Radical Left Politico magazine, or whatever you would call it. Owned by wealthy guys, this money should be taken ba...
+- [13:51 UTC - “Gregg Jarrett slams judge for blocking deportations: 'He has no authority for that'” [htt...](114234717792857736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114234717792857736
+  - “Gregg Jarrett slams judge for blocking deportations: 'He has no authority for that'” [https://www. foxnews.com/video/637013905011 2](https://www.foxnews.com/video/6370139050112)

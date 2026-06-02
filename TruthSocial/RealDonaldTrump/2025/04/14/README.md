@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-04-14
+
+- Posts: 20
+
+- [23:08 UTC - Moments ago, the Illegal Criminal, who was allowed into our Country by Crooked Joe Biden, ...](114338831106475110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114338831106475110
+  - Moments ago, the Illegal Criminal, who was allowed into our Country by Crooked Joe Biden, was convicted of the heinous murder of Rachel Morin. Rachel was a beautiful mother of five...
+- [21:12 UTC - Thank you very much to all of the Record Setting Attendees! We are spending a lot of time,...](114338375079660274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114338375079660274
+  - Thank you very much to all of the Record Setting Attendees! We are spending a lot of time, effort, and money on making The Kennedy Center the spectacular venue that it was original...
+- [20:28 UTC - THANK YOU!](114338200372474561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114338200372474561
+  - THANK YOU!
+- [20:25 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114338144907960313](114338189131100070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114338189131100070
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114338144907960313
+- [20:13 UTC - [https://www. youtube.com/live/kxUejKDhy_4?s i=UbXx-7pDGrZ2B8cm](https://www.youtube.com/l...](114338144907960313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114338144907960313
+  - [https://www. youtube.com/live/kxUejKDhy_4?s i=UbXx-7pDGrZ2B8cm](https://www.youtube.com/live/kxUejKDhy_4?si=UbXx-7pDGrZ2B8cm)
+- [17:01 UTC - [https://www. youtube.com/live/UkZi5Slsau0?s i=NXf7G0gOlNzI2YK6](https://www.youtube.com/l...](114337389687040894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114337389687040894
+  - [https://www. youtube.com/live/UkZi5Slsau0?s i=NXf7G0gOlNzI2YK6](https://www.youtube.com/live/UkZi5Slsau0?si=NXf7G0gOlNzI2YK6)
+- [15:51 UTC - Truth Social post 114337112662665106](114337112662665106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114337112662665106
+  - _No text content captured._
+- [15:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114333875444620545](114337083960495695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114337083960495695
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114333875444620545
+- [14:52 UTC - “NVIDIA to Manufacture American-Made AI Supercomputers in US for First Time” [https:// blo...](114336879485867419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114336879485867419
+  - “NVIDIA to Manufacture American-Made AI Supercomputers in US for First Time” [https:// blogs.nvidia.com/blog/nvidia-m anufacture-american-made-ai-supercomputers-us/](https://blogs....
+- [14:16 UTC - Congratulations to Rory, what a great job he did! Tremendous courage and talent was on ful...](114336740381919950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114336740381919950
+  - Congratulations to Rory, what a great job he did! Tremendous courage and talent was on full display at yesterday’s Masters. What a WIN!!!
+- [14:12 UTC - The War between Russia and Ukraine is Biden’s war, not mine. I just got here, and for four...](114336723764365914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114336723764365914
+  - The War between Russia and Ukraine is Biden’s war, not mine. I just got here, and for four years during my term, had no problem in preventing it from happening. President Putin, an...
+- [13:51 UTC - Congratulations to Daniel Noboa, who will be a great leader for the wonderful people of Ec...](114336642481948430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114336642481948430
+  - Congratulations to Daniel Noboa, who will be a great leader for the wonderful people of Ecuador. He will not let you down! [https://www. bbc.com/news/articles/c4gr8dw2 0evo](https:...
+- [13:32 UTC - THE BEST DEFINITION OF INTELLIGENCE IS THE ABILITY TO PREDICT THE FUTURE!!!](114336566283341937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114336566283341937
+  - THE BEST DEFINITION OF INTELLIGENCE IS THE ABILITY TO PREDICT THE FUTURE!!!
+- [03:02 UTC - Letitia James, a totally corrupt politician, should resign from her position as New York S...](114334087867258791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114334087867258791
+  - Letitia James, a totally corrupt politician, should resign from her position as New York State Attorney General, IMMEDIATELY. Everyone is trying to MAKE NEW YORK GREAT AGAIN, and i...
+- [02:08 UTC - We look forward to seeing President Bukele, of El Salvador, tomorrow in the White House!](114333875444620545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333875444620545
+  - We look forward to seeing President Bukele, of El Salvador, tomorrow in the White House!
+- [01:13 UTC - Almost every week, 60 Minutes, which is being sued for Billions of Dollars for the fraud t...](114333660655935996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333660655935996
+  - Almost every week, 60 Minutes, which is being sued for Billions of Dollars for the fraud they committed in the 2024 Presidential Election with their Interview of Failed Presidentia...
+- [01:13 UTC - I just finished watching 60 Minutes, the FAKE News Show that was scandalously responsible ...](114333659248371323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333659248371323
+  - I just finished watching 60 Minutes, the FAKE News Show that was scandalously responsible for REMOVING a terrible and incompetently delivered answer, by failed Presidential Candida...
+- [00:57 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) ✝️"This Holy Week, Melania and I jo...](114333597014310100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333597014310100
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) ✝️"This Holy Week, Melania and I join in prayer with Christians celebrating the crucifixion and resurrection of our Lord and...
+- [00:57 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) "To all the Jewish families gatheri...](114333595733351200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333595733351200
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) "To all the Jewish families gathering with friends and loved ones this week, have a blessed Passover, and may God continue to...
+- [00:53 UTC - This Holy Week, Christians around the World remember the Crucifixion of God’s Only Begotte...](114333582402241548/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114333582402241548
+  - This Holy Week, Christians around the World remember the Crucifixion of God’s Only Begotten Son, our Lord and Savior, Jesus Christ and, on Easter Sunday, we celebrate His Glorious...

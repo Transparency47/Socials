@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-04-07
+
+- Posts: 22
+
+- [23:52 UTC - The Supreme Court has upheld the Rule of Law in our Nation by allowing a President, whoeve...](114299368234840539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114299368234840539
+  - The Supreme Court has upheld the Rule of Law in our Nation by allowing a President, whoever that may be, to be able to secure our Borders, and protect our families and our Country,...
+- [22:32 UTC - I am pleased to report that my long scheduled Annual Physical Examination will be done at ...](114299054674051787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114299054674051787
+  - I am pleased to report that my long scheduled Annual Physical Examination will be done at Walter Reed Army Medical Center on Friday of this week. I have never felt better, but neve...
+- [22:22 UTC - Secretary of Treasury, Scott Bessent: “Almost 70 countries have now approached us wanting ...](114299013914300863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114299013914300863
+  - Secretary of Treasury, Scott Bessent: “Almost 70 countries have now approached us wanting to help rebalance global trade…”
+- [22:09 UTC - The Budget Plan just passed by the United States Senate has my Complete and Total Endorsem...](114298964268045690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114298964268045690
+  - The Budget Plan just passed by the United States Senate has my Complete and Total Endorsement and Support. All of the elements we need to secure the Border, enact Historic Spending...
+- [19:11 UTC - Truth Social post 114298261720534068](114298261720534068/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114298261720534068
+  - _No text content captured._
+- [19:07 UTC - “What we're not talking about is, oil was $76, now it's $65. Gasoline prices are going to ...](114298249002673077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114298249002673077
+  - “What we're not talking about is, oil was $76, now it's $65. Gasoline prices are going to plummet…”
+- [15:46 UTC - [https:// rumble.com/v6rrzo9-visit-with- the-2024-world-series-champions-the-los-angeles-d...](114297458335828202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297458335828202
+  - [https:// rumble.com/v6rrzo9-visit-with- the-2024-world-series-champions-the-los-angeles-dodgers.html](https://rumble.com/v6rrzo9-visit-with-the-2024-world-series-champions-the-los...
+- [15:14 UTC - Yesterday, China issued Retaliatory Tariffs of 34%, on top of their already record setting...](114297331052690348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297331052690348
+  - Yesterday, China issued Retaliatory Tariffs of 34%, on top of their already record setting Tariffs, Non-Monetary Tariffs, Illegal Subsidization of companies, and massive long term...
+- [14:32 UTC - “Rates are plummeting, oil prices are plummeting, deregulation is happening. President Tru...](114297166113853713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297166113853713
+  - “Rates are plummeting, oil prices are plummeting, deregulation is happening. President Trump is not going to bend..."
+- [14:28 UTC - “I appreciate what the President is doing on tariffs...Australia has sold $29 billion wort...](114297149364879462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297149364879462
+  - “I appreciate what the President is doing on tariffs...Australia has sold $29 billion worth of beef in the United States, and we haven't been able to sell one hamburger in Australi...
+- [14:19 UTC - “To see those plants close, one after another, and just sit idle and then fall into disrep...](114297114613050884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297114613050884
+  - “To see those plants close, one after another, and just sit idle and then fall into disrepair and collapse, they become abandoned buildings...I'm glad to see Donald Trump finally s...
+- [14:17 UTC - “President Trump Unleashes Economic Prosperity” [https://www. whitehouse.gov/articles/2025...](114297105906469195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297105906469195
+  - “President Trump Unleashes Economic Prosperity” [https://www. whitehouse.gov/articles/2025/0 4/week-11-wins-president-trump-unleashes-economic-prosperity/](https://www.whitehouse.g...
+- [14:16 UTC - "The opportunity is to rebuild the global trading system in a way that works for the Unite...](114297103010119126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297103010119126
+  - "The opportunity is to rebuild the global trading system in a way that works for the United States, which we didn't have."
+- [14:14 UTC - “President Trump has secured more private investment in his first 11 weeks than Biden secu...](114297095185812879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297095185812879
+  - “President Trump has secured more private investment in his first 11 weeks than Biden secured over his ENTIRE first term.”
+- [14:12 UTC - “This is balancing our economy with countries that have taken advantage of us. There are c...](114297089462047332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297089462047332
+  - “This is balancing our economy with countries that have taken advantage of us. There are countries, for decades, that have got rich over the backs of the workers here in America…I...
+- [14:09 UTC - “More than 50 countries have reached out to the president to begin a negotiation…”](114297073854983088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297073854983088
+  - “More than 50 countries have reached out to the president to begin a negotiation…”
+- [14:06 UTC - “We added almost twice as many jobs as people were predicting…”](114297065230841780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297065230841780
+  - “We added almost twice as many jobs as people were predicting…”
+- [14:04 UTC - This is NOT SUSTAINABLE! The United States can't lose $1.9 trillion on trade…](114297055955956469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114297055955956469
+  - This is NOT SUSTAINABLE! The United States can't lose $1.9 trillion on trade…
+- [13:33 UTC - Seeing the World Champion Los Angeles Dodgers at 11:00 A.M. Exciting!!! DJT](114296933498836216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114296933498836216
+  - Seeing the World Champion Los Angeles Dodgers at 11:00 A.M. Exciting!!! DJT
+- [13:27 UTC - Countries from all over the World are talking to us. Tough but fair parameters are being s...](114296909356614075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114296909356614075
+  - Countries from all over the World are talking to us. Tough but fair parameters are being set. Spoke to the Japanese Prime Minister this morning. He is sending a top team to negotia...
+- [12:59 UTC - The United States has a chance to do something that should have been done DECADES AGO. Don...](114296801411259400/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114296801411259400
+  - The United States has a chance to do something that should have been done DECADES AGO. Don’t be Weak! Don’t be Stupid! Don’t be a PANICAN (A new party based on Weak and Stupid peop...
+- [10:49 UTC - Oil prices are down, interest rates are down (the slow moving Fed should cut rates!), food...](114296287858068040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114296287858068040
+  - Oil prices are down, interest rates are down (the slow moving Fed should cut rates!), food prices are down, there is NO INFLATION, and the long time abused USA is bringing in Billi...

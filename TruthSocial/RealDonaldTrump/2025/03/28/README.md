@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-03-28
+
+- Posts: 15
+
+- [20:52 UTC - My Administration is breaking all modern Presidential Staffing Records since taking Office...](114242038889809702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114242038889809702
+  - My Administration is breaking all modern Presidential Staffing Records since taking Office on January 20th. The Presidential Personnel Office has made over 2,200 offers, all accept...
+- [19:17 UTC - I am pleased to announce that Mark Brnovich will be our next United States Ambassador to S...](114241663757084870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241663757084870
+  - I am pleased to announce that Mark Brnovich will be our next United States Ambassador to Serbia. Mark is a proud Veteran of the Army National Guard, and previously served as Attorn...
+- [19:17 UTC - It is my great honor to announce Sara Carter as our next Director of the Office of Nationa...](114241662387997605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241662387997605
+  - It is my great honor to announce Sara Carter as our next Director of the Office of National Drug Control Policy (ONDCP). Sara is an Award Winning Journalist, who has been on the fr...
+- [18:30 UTC - Truth Social post 114241478138615282](114241478138615282/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241478138615282
+  - _No text content captured._
+- [17:57 UTC - Today, President Donald J. Trump and Skadden, Arps, Slate, Meagher & Flom LLP announce the...](114241348699704594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241348699704594
+  - Today, President Donald J. Trump and Skadden, Arps, Slate, Meagher & Flom LLP announce the following agreement regarding a series of actions to be taken by Skadden: 1. Skadden will...
+- [17:48 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/03/immediate-declassification-of-m...](114241314696321662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241314696321662
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/03/immediate-declassification-of-materials-related-to-the-federal-bureau-of-investigations-crossfire-hurricane-investigation...
+- [17:46 UTC - [https://www. whitehouse.gov/fact-sheets/202 5/03/fact-sheet-president-donald-j-trump-adju...](114241306148201991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241306148201991
+  - [https://www. whitehouse.gov/fact-sheets/202 5/03/fact-sheet-president-donald-j-trump-adjusts-imports-of-automobiles-and-automobile-parts-into-the-united-states/](https://www.white...
+- [17:42 UTC - "The University of Michigan ends its DEI programs in the wake of new guidance from the Tru...](114241290783152484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241290783152484
+  - "The University of Michigan ends its DEI programs in the wake of new guidance from the Trump Administration."
+- [17:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114240691141784921](114241273779888659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114241273779888659
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114240691141784921
+- [16:21 UTC - [https://www. foxnews.com/us/top-ms-13-leade r-arrested-virginia](https://www.foxnews.com/...](114240973486959335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240973486959335
+  - [https://www. foxnews.com/us/top-ms-13-leade r-arrested-virginia](https://www.foxnews.com/us/top-ms-13-leader-arrested-virginia)
+- [16:19 UTC - [https://www. foxbusiness.com/economy/uaw-pr aises-trumps-25-tariff-auto-imports-victory-a...](114240963084616958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240963084616958
+  - [https://www. foxbusiness.com/economy/uaw-pr aises-trumps-25-tariff-auto-imports-victory-autoworkers](https://www.foxbusiness.com/economy/uaw-praises-trumps-25-tariff-auto-imports-...
+- [16:17 UTC - [https://www. foxnews.com/politics/hhs-axes- more-than-300m-gender-dei-related-health-gran...](114240957191009251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240957191009251
+  - [https://www. foxnews.com/politics/hhs-axes- more-than-300m-gender-dei-related-health-grants-california-alone](https://www.foxnews.com/politics/hhs-axes-more-than-300m-gender-dei-r...
+- [15:10 UTC - I just finished speaking with Prime Minister Mark Carney, of Canada. It was an extremely p...](114240691141784921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240691141784921
+  - I just finished speaking with Prime Minister Mark Carney, of Canada. It was an extremely productive call, we agree on many things, and will be meeting immediately after Canada’s up...
+- [14:04 UTC - Washington, D.C., must become CLEAN and SAFE again! We need our Great Police back on the s...](114240434953893474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240434953893474
+  - Washington, D.C., must become CLEAN and SAFE again! We need our Great Police back on the street, with no excuses from the Mayor, or anyone else. The House should take up the D.C. f...
+- [13:38 UTC - “TRUMP IS ALWAYS RIGHT!” This from the New York Times!](114240331718900060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114240331718900060
+  - “TRUMP IS ALWAYS RIGHT!” This from the New York Times!

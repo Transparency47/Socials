@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2025-03-31
+
+- Posts: 35
+
+- [23:59 UTC - Truth Social post 114259761540435281](114259761540435281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259761540435281
+  - _No text content captured._
+- [23:05 UTC - [https://www. washingtonexaminer.com/news/33 42284/donald-trump-the-apprentice-amazon-prim...](114259548245459766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259548245459766
+  - [https://www. washingtonexaminer.com/news/33 42284/donald-trump-the-apprentice-amazon-prime-streaming-debut/](https://www.washingtonexaminer.com/news/3342284/donald-trump-the-appre...
+- [23:05 UTC - [https:// nypost.com/2025/03/15/opinion/ michael-goodwin-democrats-are-now-in-disarray-aft...](114259547021519827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259547021519827
+  - [https:// nypost.com/2025/03/15/opinion/ michael-goodwin-democrats-are-now-in-disarray-after-schumer-caves-in-to-gop/](https://nypost.com/2025/03/15/opinion/michael-goodwin-democra...
+- [23:05 UTC - “Europe Should Make a $200 Billion Deal With Trump” [https:// foreignpolicy.com/2025/03/05...](114259546197388041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259546197388041
+  - “Europe Should Make a $200 Billion Deal With Trump” [https:// foreignpolicy.com/2025/03/05/t rump-zelensky-ukraine-russia-arms-weapons-eu-europe-war/](https://foreignpolicy.com/202...
+- [23:04 UTC - [https:// nypost.com/2025/03/15/world-ne ws/some-canadians-in-alberta-want-to-join-the-us-...](114259544114761573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259544114761573
+  - [https:// nypost.com/2025/03/15/world-ne ws/some-canadians-in-alberta-want-to-join-the-us-as-the-51st-state/](https://nypost.com/2025/03/15/world-news/some-canadians-in-alberta-wan...
+- [23:04 UTC - [https://www. newsweek.com/president-trumps- aluminum-steel-tariffs-will-put-american-work...](114259542983472949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259542983472949
+  - [https://www. newsweek.com/president-trumps- aluminum-steel-tariffs-will-put-american-workers-first-opinion-2042425](https://www.newsweek.com/president-trumps-aluminum-steel-tariff...
+- [23:04 UTC - [https://www. tabletmag.com/sections/news/ar ticles/tariffs-good-trump-china](https://www....](114259542358563425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259542358563425
+  - [https://www. tabletmag.com/sections/news/ar ticles/tariffs-good-trump-china](https://www.tabletmag.com/sections/news/articles/tariffs-good-trump-china)
+- [23:04 UTC - [https:// dailycaller.com/2025/03/13/gav in-wax-trumps-tariffs-american-industry-china-pol...](114259542142808960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259542142808960
+  - [https:// dailycaller.com/2025/03/13/gav in-wax-trumps-tariffs-american-industry-china-pollution/](https://dailycaller.com/2025/03/13/gavin-wax-trumps-tariffs-american-industry-chi...
+- [23:03 UTC - “Trump’s Timber Triumph: An America First Blueprint for Prosperity” [https://www. american...](114259540217373057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259540217373057
+  - “Trump’s Timber Triumph: An America First Blueprint for Prosperity” [https://www. americanthinker.com/articles/2 025/03/trump_s_timber_triumph_an_america_first_blueprint_for_prospe...
+- [23:03 UTC - [https://www. dailysignal.com/2025/03/07/rec ord-pace-trump-administration-has-hired-2000-...](114259538694983595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259538694983595
+  - [https://www. dailysignal.com/2025/03/07/rec ord-pace-trump-administration-has-hired-2000-people-just-weeks/](https://www.dailysignal.com/2025/03/07/record-pace-trump-administratio...
+- [23:02 UTC - [https://www. knoxnews.com/story/news/politi cs/2025/03/14/charlie-kirk-turned-out-thousan...](114259537362120582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259537362120582
+  - [https://www. knoxnews.com/story/news/politi cs/2025/03/14/charlie-kirk-turned-out-thousands-of-conservative-ut-students/82363421007/](https://www.knoxnews.com/story/news/politics/...
+- [23:02 UTC - “French shipping magnate Rodolphe Saadé pledges $20bn US expansion in nod to Donald Trump”...](114259534733735170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259534733735170
+  - “French shipping magnate Rodolphe Saadé pledges $20bn US expansion in nod to Donald Trump” [https://www. ft.com/content/0a9aa553-6f15-4 95a-82c3-4bec0d1fee59](https://www.ft.com/co...
+- [23:00 UTC - [https:// townhall.com/columnists/larryb ehrens/2025/03/08/halfway-to-100-days-president-t...](114259529275694452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259529275694452
+  - [https:// townhall.com/columnists/larryb ehrens/2025/03/08/halfway-to-100-days-president-trump-is-golden-on-energy-n2653386](https://townhall.com/columnists/larrybehrens/2025/03/08...
+- [23:00 UTC - [https://www. washingtonexaminer.com/policy/ healthcare/3343515/brooke-rollins-egg-prices-...](114259529057006069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259529057006069
+  - [https://www. washingtonexaminer.com/policy/ healthcare/3343515/brooke-rollins-egg-prices-plunge-lower-than-when-trump-took-office/](https://www.washingtonexaminer.com/policy/healt...
+- [23:00 UTC - [https://www. breitbart.com/latin-america/20 25/03/11/panama-records-99-drop-in-u-s-bound-...](114259528200864735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259528200864735
+  - [https://www. breitbart.com/latin-america/20 25/03/11/panama-records-99-drop-in-u-s-bound-migration-through-darien-gap/](https://www.breitbart.com/latin-america/2025/03/11/panama-r...
+- [23:00 UTC - [https://www. foxnews.com/us/massive-ice-ope ration-nabs-650-illegal-aliens-texas-80-crimi...](114259526707036279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259526707036279
+  - [https://www. foxnews.com/us/massive-ice-ope ration-nabs-650-illegal-aliens-texas-80-criminal-charges-convictions](https://www.foxnews.com/us/massive-ice-operation-nabs-650-illegal...
+- [22:59 UTC - [https://www. breitbart.com/immigration/2025 /03/10/trump-doj-rampsup-illegal-alien-prosec...](114259524687291980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259524687291980
+  - [https://www. breitbart.com/immigration/2025 /03/10/trump-doj-rampsup-illegal-alien-prosecutions-michigan/](https://www.breitbart.com/immigration/2025/03/10/trump-doj-rampsup-illeg...
+- [22:59 UTC - [https://www. newsmax.com/mclaughlin/hispani cs-jeffries-schumer/2025/02/24/id/1200263/](h...](114259524457344869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259524457344869
+  - [https://www. newsmax.com/mclaughlin/hispani cs-jeffries-schumer/2025/02/24/id/1200263/](https://www.newsmax.com/mclaughlin/hispanics-jeffries-schumer/2025/02/24/id/1200263/)
+- [22:59 UTC - [https://www. washingtonexaminer.com/opinion /3353481/trump-schumer-speaker-johnson-hard-n...](114259523144047406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259523144047406
+  - [https://www. washingtonexaminer.com/opinion /3353481/trump-schumer-speaker-johnson-hard-no-republicans/](https://www.washingtonexaminer.com/opinion/3353481/trump-schumer-speaker-j...
+- [22:59 UTC - “House GOP campaign chairman says voters will ‘reward us’ for the Trump-Musk DOGE cuts” [h...](114259522932730072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259522932730072
+  - “House GOP campaign chairman says voters will ‘reward us’ for the Trump-Musk DOGE cuts” [https:// apnews.com/article/musk-doge-t rump-republicans-2026-elections-hudson-b853ea4198ad...
+- [22:58 UTC - [https://www. breitbart.com/politics/2025/03 /04/nolte-huge-majority-support-doge-audits-s...](114259520735221575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259520735221575
+  - [https://www. breitbart.com/politics/2025/03 /04/nolte-huge-majority-support-doge-audits-social-security/](https://www.breitbart.com/politics/2025/03/04/nolte-huge-majority-support...
+- [22:58 UTC - [https://www. breitbart.com/politics/2025/03 /03/exclusive-sen-jim-banks-trumps-leadership...](114259520525680521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259520525680521
+  - [https://www. breitbart.com/politics/2025/03 /03/exclusive-sen-jim-banks-trumps-leadership-america-first-agenda-brought-honda-production-indiana/](https://www.breitbart.com/politic...
+- [22:58 UTC - [https:// dailycaller.com/2025/03/17/rep ublican-national-committee-election-integrity-whi...](114259519421853071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259519421853071
+  - [https:// dailycaller.com/2025/03/17/rep ublican-national-committee-election-integrity-white-house-trump/](https://dailycaller.com/2025/03/17/republican-national-committee-election...
+- [22:58 UTC - [https:// dailycaller.com/2025/03/25/rep ublican-national-committee-election-integrity-vot...](114259519193441767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259519193441767
+  - [https:// dailycaller.com/2025/03/25/rep ublican-national-committee-election-integrity-voter-rolls-states/](https://dailycaller.com/2025/03/25/republican-national-committee-electio...
+- [21:25 UTC - [https://www. foxnews.com/politics/trump-adm in-breaking-modern-presidential-staffing-reco...](114259152775467758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114259152775467758
+  - [https://www. foxnews.com/politics/trump-adm in-breaking-modern-presidential-staffing-records-hiring-thousands-america-first-warriors](https://www.foxnews.com/politics/trump-admin-...
+- [18:35 UTC - Truth Social post 114258484098610381](114258484098610381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258484098610381
+  - _No text content captured._
+- [18:15 UTC - The Iran-backed Houthi Terrorists have been decimated by the relentless strikes over the p...](114258406263396157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258406263396157
+  - The Iran-backed Houthi Terrorists have been decimated by the relentless strikes over the past two weeks. Many of their Fighters and Leaders are no longer with us. We hit them every...
+- [18:09 UTC - Thank you President Bukele, of El Salvador, for taking the criminals that were so stupidly...](114258384664012595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258384664012595
+  - Thank you President Bukele, of El Salvador, for taking the criminals that were so stupidly allowed, by the Crooked Joe Biden Administration, to enter our Country, and giving them s...
+- [16:48 UTC - WISCONSIN: There is a very important Referendum (Question 1) on the April 1st Ballot to am...](114258064484137647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258064484137647
+  - WISCONSIN: There is a very important Referendum (Question 1) on the April 1st Ballot to amend the State Constitution to require VOTER ID. This, and other Election Integrity measure...
+- [16:47 UTC - In two months, there has been more Private Investment spoken for, and/or committed to, tha...](114258062336428979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258062336428979
+  - In two months, there has been more Private Investment spoken for, and/or committed to, than in four years of the Sleepy Joe Biden Administration — A fact that the Fake News hates t...
+- [16:47 UTC - There will never have been a transformation of a Country like the transformation that is h...](114258061899987431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114258061899987431
+  - There will never have been a transformation of a Country like the transformation that is happening, for all to see, in the United States of America. Companies are pouring into our...
+- [13:47 UTC - Truth Social post 114257353693352603](114257353693352603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114257353693352603
+  - _No text content captured._
+- [13:47 UTC - Truth Social post 114257352780906300](114257352780906300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114257352780906300
+  - _No text content captured._
+- [13:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Jimmy Patronis, Chief Fin...](114257291358086598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114257291358086598
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, is running an incredible...
+- [13:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) America First Patriot Ran...](114257291197077780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114257291197077780
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) America First Patriot Randy Fine is running to represent the Wonderful People of Florida’s 6th Congressional Distri...

@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-04-10
+
+- Posts: 19
+
+- [23:12 UTC - Terrible helicopter crash in the Hudson River. Looks like six people, the pilot, two adult...](114316199673595819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316199673595819
+  - Terrible helicopter crash in the Hudson River. Looks like six people, the pilot, two adults, and three children, are no longer with us. The footage of the accident is horrendous. G...
+- [23:09 UTC - Truth Social post 114316185108722516](114316185108722516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316185108722516
+  - _No text content captured._
+- [22:58 UTC - Mexico OWES Texas 1.3 million acre-feet of water under the 1944 Water Treaty, but Mexico i...](114316141098255318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316141098255318
+  - Mexico OWES Texas 1.3 million acre-feet of water under the 1944 Water Treaty, but Mexico is unfortunately violating their Treaty obligation. This is very unfair, and it is hurting...
+- [22:57 UTC - I am pleased to announce that William "Billy" Marshall III, of the Great State of West Vir...](114316139821071778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316139821071778
+  - I am pleased to announce that William "Billy" Marshall III, of the Great State of West Virginia, a State I love and won SIX times, as the next Director of the Bureau of Prisons. Bi...
+- [22:33 UTC - I am pleased to announce that former Congressman Mark Walker, of North Carolina, a place I...](114316044643910190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316044643910190
+  - I am pleased to announce that former Congressman Mark Walker, of North Carolina, a place I love and won SIX times, will be the United States Ambassador-at-Large for International R...
+- [22:33 UTC - I am proud to nominate Yehuda Kaploun as the United States Special Envoy to Monitor and Co...](114316044192204977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114316044192204977
+  - I am proud to nominate Yehuda Kaploun as the United States Special Envoy to Monitor and Combat Antisemitism, Ambassador-at-Large. Yehuda is a successful businessman, and staunch ad...
+- [21:57 UTC - Senator Pete Ricketts is doing a terrific job for the People of Nebraska! Pete is working ...](114315902995818386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114315902995818386
+  - Senator Pete Ricketts is doing a terrific job for the People of Nebraska! Pete is working hard to Champion our Great Farmers and American Agriculture, Stop Illegal Immigration and...
+- [21:52 UTC - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. ...](114315881639906095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114315881639906095
+  - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. As Texas Chair of our Presidential Campaigns in 2016, 2020, and 2024, Dan has been an incr...
+- [19:06 UTC - [https://www. youtube.com/live/BK2YxPPRqlg?s i=LvQtR-YoCJQd059_](https://www.youtube.com/l...](114315232218538121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114315232218538121
+  - [https://www. youtube.com/live/BK2YxPPRqlg?s i=LvQtR-YoCJQd059_](https://www.youtube.com/live/BK2YxPPRqlg?si=LvQtR-YoCJQd059_)
+- [19:03 UTC - It’s so hard to watch as Highly Qualified and Respected Ambassadors, who we desperately ne...](114315219437063160/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114315219437063160
+  - It’s so hard to watch as Highly Qualified and Respected Ambassadors, who we desperately need representing our Country in Faraway Lands, are purposefully meant to wait as the Democr...
+- [15:28 UTC - Congratulations to the House on the passage of a Bill that sets the stage for one of the G...](114314374220244880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114314374220244880
+  - Congratulations to the House on the passage of a Bill that sets the stage for one of the Greatest and Most Important Signings in the History of our Country. Among many other things...
+- [14:52 UTC - Truth Social post 114314232340935295](114314232340935295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114314232340935295
+  - _No text content captured._
+- [13:38 UTC - Just out: “INFLATION IS DOWN!!!”](114313939062499622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114313939062499622
+  - Just out: “INFLATION IS DOWN!!!”
+- [13:35 UTC - No more Sanctuary Cities! They protect the Criminals, not the Victims. They are disgracing...](114313927527638500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114313927527638500
+  - No more Sanctuary Cities! They protect the Criminals, not the Victims. They are disgracing our Country, and are being mocked all over the World. Working on papers to withhold all F...
+- [12:28 UTC - Great News! “The Big, Beautiful Bill” is coming along really well. Republicans are working...](114313667304867320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114313667304867320
+  - Great News! “The Big, Beautiful Bill” is coming along really well. Republicans are working together nicely. Biggest Tax Cuts in USA History!!! Getting close. DJT
+- [11:44 UTC - Truth Social post 114313491935852884](114313491935852884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114313491935852884
+  - _No text content captured._
+- [04:45 UTC - What a day, but more great days coming!!!](114311845711297973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114311845711297973
+  - What a day, but more great days coming!!!
+- [04:16 UTC - “EXCLUSIVE: NY Attorney General Letitia James Declares Virginia Home Her ‘Principal Reside...](114311731810349533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114311731810349533
+  - “EXCLUSIVE: NY Attorney General Letitia James Declares Virginia Home Her ‘Principal Residence’” [https:// whitecollarfraud.com/2025/04/0 1/exclusive-ny-attorney-general-letitia-jam...
+- [03:34 UTC - Thank you, Vince Molinari. Congratulations on all of your success!](114311567036095643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114311567036095643
+  - Thank you, Vince Molinari. Congratulations on all of your success!

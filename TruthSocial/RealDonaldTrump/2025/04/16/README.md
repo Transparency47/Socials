@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-04-16
+
+- Posts: 18
+
+- [22:10 UTC - I am pleased to announce that Jay Clayton will serve as the Interim United States Attorney...](114349929882626042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114349929882626042
+  - I am pleased to announce that Jay Clayton will serve as the Interim United States Attorney for the Southern District of New York. During my First Term, Jay served with great distin...
+- [21:56 UTC - Can you believe it? A Judge ruled against us on 530,000 Illegal Migrants (that Joe Biden f...](114349871024459620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114349871024459620
+  - Can you believe it? A Judge ruled against us on 530,000 Illegal Migrants (that Joe Biden flew over the Border in his program to transport Illegals into the Country by airplane) say...
+- [21:48 UTC - A Great Honor to have just met with the Japanese Delegation on Trade. Big Progress!](114349841902096375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114349841902096375
+  - A Great Honor to have just met with the Japanese Delegation on Trade. Big Progress!
+- [20:49 UTC - [https://www. youtube.com/live/8OD85ZFNKy0?s i=1tPpHpRs2mQBYUXa](https://www.youtube.com/l...](114349610355278932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114349610355278932
+  - [https://www. youtube.com/live/8OD85ZFNKy0?s i=1tPpHpRs2mQBYUXa](https://www.youtube.com/live/8OD85ZFNKy0?si=1tPpHpRs2mQBYUXa)
+- [20:35 UTC - Truth Social post 114349553479042300](114349553479042300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114349553479042300
+  - _No text content captured._
+- [17:26 UTC - [https://www. whitehouse.gov/articles/2025/0 4/permitting-technology/](https://www.whiteho...](114348811534394538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114348811534394538
+  - [https://www. whitehouse.gov/articles/2025/0 4/permitting-technology/](https://www.whitehouse.gov/articles/2025/04/permitting-technology/)
+- [17:25 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/04/restoring-common-sense-to-feder...](114348806601703018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114348806601703018
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/04/restoring-common-sense-to-federal-office-space-management/](https://www.whitehouse.gov/presidential-actions/2025/04/resto...
+- [17:24 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/04/lowering-drug-prices-by-once-ag...](114348802125579251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114348802125579251
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/04/lowering-drug-prices-by-once-again-putting-americans-first/](https://www.whitehouse.gov/presidential-actions/2025/04/lowe...
+- [15:54 UTC - “Tom Homan rips Democrats seeking to aid deported MS-13 suspect: 'Disgusting'” [https://ww...](114348450615002470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114348450615002470
+  - “Tom Homan rips Democrats seeking to aid deported MS-13 suspect: 'Disgusting'” [https://www. foxnews.com/video/637155640011 2](https://www.foxnews.com/video/6371556400112)
+- [14:57 UTC - U.S. Border Patrol Chief Mike Banks: "The Border Patrol morale is going through the roof. ...](114348224335547565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114348224335547565
+  - U.S. Border Patrol Chief Mike Banks: "The Border Patrol morale is going through the roof. We've had the handcuffs taken off. We're allowed to actually do our job which is to go out...
+- [11:50 UTC - Congresswoman Elise Stefanik is GREAT!!!](114347490565859534/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114347490565859534
+  - Congresswoman Elise Stefanik is GREAT!!!
+- [11:26 UTC - Sleepy Joe Biden, THE WORST PRESIDENT IN THE HISTORY OF THE UNITED STATES, has allowed mil...](114347397237866545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114347397237866545
+  - Sleepy Joe Biden, THE WORST PRESIDENT IN THE HISTORY OF THE UNITED STATES, has allowed millions and millions of Criminals, many of them murderers, drug dealers, and people released...
+- [11:06 UTC - MAKE AMERICA GREAT AGAIN!](114347318770577330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114347318770577330
+  - MAKE AMERICA GREAT AGAIN!
+- [11:05 UTC - Everyone knows that Harvard has “lost its way.” They hired, from New York (Bill D) and Chi...](114347313852363347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114347313852363347
+  - Everyone knows that Harvard has “lost its way.” They hired, from New York (Bill D) and Chicago (Lori L), at ridiculously high salaries/fees, two of the WORST and MOST INCOMPETENT m...
+- [10:18 UTC - Japan is coming in today to negotiate Tariffs, the cost of military support, and “TRADE FA...](114347128422370864/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114347128422370864
+  - Japan is coming in today to negotiate Tariffs, the cost of military support, and “TRADE FAIRNESS.” I will attend the meeting, along with Treasury & Commerce Secretaries. Hopefully...
+- [03:31 UTC - The United States is taking in RECORD NUMBERS in Tariffs, with the cost of almost all prod...](114345526663892197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114345526663892197
+  - The United States is taking in RECORD NUMBERS in Tariffs, with the cost of almost all products going down, including gasoline, groceries, and just about everything else. Likewise,...
+- [03:16 UTC - Wow! Fake News MSNBC has REALLY BAD RATINGS, in fact, not much better than the broken broa...](114345470440861946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114345470440861946
+  - Wow! Fake News MSNBC has REALLY BAD RATINGS, in fact, not much better than the broken broadcasting disaster known as CNN. Comcast, which also has the ailing network known as NBC, i...
+- [00:08 UTC - Truth Social post 114344728712174835](114344728712174835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114344728712174835
+  - _No text content captured._
