@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-07-29
+
+- Posts: 17
+
+- [22:58 UTC - Our Brave ICE Law Enforcement Agents are getting the WORST of the WORST Criminals out of o...](114938996274231550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114938996274231550
+  - Our Brave ICE Law Enforcement Agents are getting the WORST of the WORST Criminals out of our Country — Terrorists, pedophiles, MS-13 gang members, murderers, rapists, drug and huma...
+- [22:13 UTC - Chuck Grassley, who I got re-elected to the U.S. Senate when he was down, by a lot, in the...](114938820270436889/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114938820270436889
+  - Chuck Grassley, who I got re-elected to the U.S. Senate when he was down, by a lot, in the Great State of Iowa, could solve the “Blue Slip” problem we are having with respect to th...
+- [21:32 UTC - Everybody is saying that I was solely responsible for the firing of Stephen Colbert from C...](114938657898917536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114938657898917536
+  - Everybody is saying that I was solely responsible for the firing of Stephen Colbert from CBS, Late Night. That is not true! The reason he was fired was a pure lack of TALENT, and t...
+- [21:13 UTC - I can’t stand Jessica Tarlov of THE FIVE. A real loser!!! DJT](114938582774670397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114938582774670397
+  - I can’t stand Jessica Tarlov of THE FIVE. A real loser!!! DJT
+- [17:52 UTC - Truth Social post 114937793852837163](114937793852837163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114937793852837163
+  - _No text content captured._
+- [17:48 UTC - Truth Social post 114937776167911127](114937776167911127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114937776167911127
+  - _No text content captured._
+- [17:43 UTC - Truth Social post 114937760161538788](114937760161538788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114937760161538788
+  - _No text content captured._
+- [14:38 UTC - Truth Social post 114937028991688536](114937028991688536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114937028991688536
+  - _No text content captured._
+- [14:19 UTC - [https:// dailycaller.com/2025/07/28/opi nion-americans-support-full-transparency-and-thor...](114936956302727085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114936956302727085
+  - [https:// dailycaller.com/2025/07/28/opi nion-americans-support-full-transparency-and-thorough-investigations-to-uncover-russia-hoax-dave-bossie/](https://dailycaller.com/2025/07/2...
+- [14:19 UTC - “From Iran to the border, Trump takes on America’s toughest fights” [https://www. washingt...](114936955015376533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114936955015376533
+  - “From Iran to the border, Trump takes on America’s toughest fights” [https://www. washingtontimes.com/news/2025/ jul/3/iran-border-trump-takes-americas-toughest-fights/](https://ww...
+- [12:42 UTC - I have been briefed on the tragic shooting that took place in Manhattan, a place that I kn...](114936573214915016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114936573214915016
+  - I have been briefed on the tragic shooting that took place in Manhattan, a place that I know and love. I trust our Law Enforcement Agencies to get to the bottom of why this crazed...
+- [07:44 UTC - North Sea Oil is a TREASURE CHEST for the United Kingdom. The taxes are so high, however, ...](114935401735258022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114935401735258022
+  - North Sea Oil is a TREASURE CHEST for the United Kingdom. The taxes are so high, however, that it makes no sense. They have essentially told drillers and oil companies that, “we do...
+- [07:34 UTC - [https:// truthsocial.com/@realDonaldTru mp/114922279888085542](https://truthsocial.com/@r...](114935364302919489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114935364302919489
+  - [https:// truthsocial.com/@realDonaldTru mp/114922279888085542](https://truthsocial.com/@realDonaldTrump/114922279888085542)
+- [02:46 UTC - The Fake News is reporting that I am SEEKING a “Summit” with President Xi of China. This i...](114934232969144109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114934232969144109
+  - The Fake News is reporting that I am SEEKING a “Summit” with President Xi of China. This is not correct, I am not SEEKING anything! I may go to China, but it would only be at the i...
+- [02:36 UTC - I’m in Scotland now after having just completed the EU Deal, and numerous others. The Unit...](114934191239714896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114934191239714896
+  - I’m in Scotland now after having just completed the EU Deal, and numerous others. The United States is doing GREAT, to put it mildly!!!
+- [02:32 UTC - [https:// truthsocial.com/@realDonaldTru mp/114922713750383186](https://truthsocial.com/@r...](114934174474474898/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114934174474474898
+  - [https:// truthsocial.com/@realDonaldTru mp/114922713750383186](https://truthsocial.com/@realDonaldTrump/114922713750383186)
+- [02:31 UTC - [https:// truthsocial.com/@realDonaldTru mp/114922802971032650](https://truthsocial.com/@r...](114934173427631736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114934173427631736
+  - [https:// truthsocial.com/@realDonaldTru mp/114922802971032650](https://truthsocial.com/@realDonaldTrump/114922802971032650)

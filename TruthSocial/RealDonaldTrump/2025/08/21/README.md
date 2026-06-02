@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-08-21
+
+- Posts: 24
+
+- [21:56 UTC - You people are winners, and I just think it's such an honor to be with you—We're going to ...](115068985647592045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068985647592045
+  - You people are winners, and I just think it's such an honor to be with you—We're going to Make Washington, D.C. Great Again!
+- [21:54 UTC - The crime numbers are way down! I just wanted to thank you—you’re doing incredible….](115068979450739645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068979450739645
+  - The crime numbers are way down! I just wanted to thank you—you’re doing incredible….
+- [21:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115068968882877150](115068969989333258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068969989333258
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115068968882877150
+- [21:52 UTC - A Great Honor to visit some of the federal agents and National Guard troops working to Mak...](115068968882877150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068968882877150
+  - A Great Honor to visit some of the federal agents and National Guard troops working to Make Washington, D.C. Safe!
+- [20:20 UTC - Dustin Burrows is a True Warrior for Republicans, and is doing a fantastic job as Speaker ...](115068606930305176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068606930305176
+  - Dustin Burrows is a True Warrior for Republicans, and is doing a fantastic job as Speaker of the Texas House of Representatives! Thanks to Dustin’s strong and effective Leadership...
+- [19:25 UTC - United States Special Envoy, Steve Witkoff…](115068391246280549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115068391246280549
+  - United States Special Envoy, Steve Witkoff…
+- [16:45 UTC - Truth Social post 115067762890194941](115067762890194941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067762890194941
+  - _No text content captured._
+- [15:59 UTC - TOTAL VICTORY in the FAKE New York State Attorney General Letitia James Case! I greatly re...](115067582190707382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067582190707382
+  - TOTAL VICTORY in the FAKE New York State Attorney General Letitia James Case! I greatly respect the fact that the Court had the Courage to throw out this unlawful and disgraceful D...
+- [15:59 UTC - ….These were all Political Trials in an effort to destroy my viability as a Presidential C...](115067581427069480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067581427069480
+  - ….These were all Political Trials in an effort to destroy my viability as a Presidential Candidate before, during, and after the Election. They were strongly coordinated with the B...
+- [15:57 UTC - A GREAT WIN FOR AMERICA!!!](115067573139448361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067573139448361
+  - A GREAT WIN FOR AMERICA!!!
+- [13:46 UTC - Truth Social post 115067058287784115](115067058287784115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067058287784115
+  - _No text content captured._
+- [13:45 UTC - Truth Social post 115067056991519965](115067056991519965/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067056991519965
+  - _No text content captured._
+- [13:35 UTC - It is very hard, if not impossible, to win a war without attacking an invaders country. It...](115067017601499775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115067017601499775
+  - It is very hard, if not impossible, to win a war without attacking an invaders country. It’s like a great team in sports that has a fantastic defense, but is not allowed to play of...
+- [12:07 UTC - FREE TINA PETERS, a brave and innocent Patriot who has been tortured by Crooked Colorado p...](115066670303535454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115066670303535454
+  - FREE TINA PETERS, a brave and innocent Patriot who has been tortured by Crooked Colorado politicians, including the big Mail-In Ballot supporting the governor of the State. Let Tin...
+- [11:03 UTC - [https:// justthenews.com/government/fed eral-agencies/we-cant-talk-about-clinton-foundati...](115066416735787328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115066416735787328
+  - [https:// justthenews.com/government/fed eral-agencies/we-cant-talk-about-clinton-foundation-new-memos-show-irs-inquiry-was](https://justthenews.com/government/federal-agencies/we-...
+- [10:43 UTC - Any California school district that doesn’t adhere to our Transgender policies, will not b...](115066339632774609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115066339632774609
+  - Any California school district that doesn’t adhere to our Transgender policies, will not be funded. Thank you for your attention to this matter!
+- [10:35 UTC - [https:// truthsocial.com/@FDRLST/115062 493812068251](https://truthsocial.com/@FDRLST/115...](115066310107638731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115066310107638731
+  - [https:// truthsocial.com/@FDRLST/115062 493812068251](https://truthsocial.com/@FDRLST/115062493812068251)
+- [10:34 UTC - The Great State of Missouri is now IN. I’m not surprised. It is a great State with fabulou...](115066304815869662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115066304815869662
+  - The Great State of Missouri is now IN. I’m not surprised. It is a great State with fabulous people. I won it, all 3 times, in a landslide. We’re going to win the Midterms in Missou...
+- [04:29 UTC - Just like our Southern Border is now 100% Secure, Washington, D.C., is SAFE AGAIN, and we ...](115064867714909057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064867714909057
+  - Just like our Southern Border is now 100% Secure, Washington, D.C., is SAFE AGAIN, and we have just begun the process of revival!
+- [04:22 UTC - MSNBC IS DOING SO POORLY IN THE RATINGS THAT THEY ARE LOOKING TO CHANGE THEIR NAME IN ORDE...](115064840755804065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064840755804065
+  - MSNBC IS DOING SO POORLY IN THE RATINGS THAT THEY ARE LOOKING TO CHANGE THEIR NAME IN ORDER TO GET AWAY FROM THE STENCH OF THEIR FAKE NEWS PRODUCT. SO MUCH FUN TO WATCH THEIR WEAK...
+- [04:02 UTC - Gavin Newscum is way down in the polls. He is viewed as the man who is destroying the once...](115064763272706560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064763272706560
+  - Gavin Newscum is way down in the polls. He is viewed as the man who is destroying the once Great State of California. I will save California!!! President DJT
+- [03:57 UTC - “59% APPROVAL RATING FOR PRESIDENT TRUMP, MASSIVE LEAD OVER THE DEMOCRATS.”](115064742870542521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064742870542521
+  - “59% APPROVAL RATING FOR PRESIDENT TRUMP, MASSIVE LEAD OVER THE DEMOCRATS.”
+- [03:53 UTC - END MAIL-IN VOTING, AND GO TO PAPER BALLOTS. 100 additional seats will go to Republicans!!...](115064726295507295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064726295507295
+  - END MAIL-IN VOTING, AND GO TO PAPER BALLOTS. 100 additional seats will go to Republicans!!!
+- [03:47 UTC - Big WIN for the Great State of Texas!!! Everything Passed, on our way to FIVE more Congres...](115064705209848959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115064705209848959
+  - Big WIN for the Great State of Texas!!! Everything Passed, on our way to FIVE more Congressional seats and saving your Rights, your Freedoms, and your Country, itself. Texas never...

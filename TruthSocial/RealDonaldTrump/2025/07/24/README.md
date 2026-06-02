@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2025-07-24
+
+- Posts: 26
+
+- [23:58 UTC - Truth Social post 114910921855517012](114910921855517012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910921855517012
+  - _No text content captured._
+- [23:58 UTC - After many years Australia has agreed to accept American Beef! For a long time, and even t...](114910920265013722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910920265013722
+  - After many years Australia has agreed to accept American Beef! For a long time, and even though we are great friends, they actually banned our Beef. Now, we are going to sell so mu...
+- [23:56 UTC - America First Patriot Mike Rogers is running for U.S. Senate in the Great State of Michiga...](114910911648955433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910911648955433
+  - America First Patriot Mike Rogers is running for U.S. Senate in the Great State of Michigan, a State I love and WON BIG! From the U.S. Army to Congress, Mike has served our Nation...
+- [23:55 UTC - Senator Ashley Moody is doing a tremendous job representing the incredible people of Flori...](114910907779613104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910907779613104
+  - Senator Ashley Moody is doing a tremendous job representing the incredible people of Florida, a State I love, and WON BIG, in 2016, 2020, and 2024! A fifth generation Floridian, As...
+- [21:22 UTC - It was a Great Honor to tour the Renovation (and some new Construction!) of the Federal Re...](114910307760776254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910307760776254
+  - It was a Great Honor to tour the Renovation (and some new Construction!) of the Federal Reserve Building with Chairman Jerome Powell, Senator Tim Scott, and others. It’s got a long...
+- [20:26 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114909909285967834](114910085843551797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910085843551797
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114909909285967834
+- [19:41 UTC - Getting ready to head over to the Fed to look at their, now, $3.1 Billion Dollar (PLUS!) c...](114909909285967834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909909285967834
+  - Getting ready to head over to the Fed to look at their, now, $3.1 Billion Dollar (PLUS!) construction project. Also present will be Fed Chair Jerome Powell, Senator Tim Scott, Sena...
+- [17:51 UTC - We lost a great friend today, the “Hulkster.” Hulk Hogan was MAGA all the way — Strong, to...](114909476369684993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909476369684993
+  - We lost a great friend today, the “Hulkster.” Hulk Hogan was MAGA all the way — Strong, tough, smart, but with the biggest heart. He gave an absolutely electric speech at the Repub...
+- [17:44 UTC - America is the Country that started the AI race—And as President of the United States, I'm...](114909452180378780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909452180378780
+  - America is the Country that started the AI race—And as President of the United States, I'm here today to declare that America is going to win it…
+- [17:13 UTC - Truth Social post 114909327069949407](114909327069949407/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909327069949407
+  - _No text content captured._
+- [17:11 UTC - “PRESIDENT TRUMP SIGNS EXECUTIVE ORDERS ON ARTIFICIAL INTELLIGENCE” EXECUTIVE ORDER—PROMOT...](114909322030343605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909322030343605
+  - “PRESIDENT TRUMP SIGNS EXECUTIVE ORDERS ON ARTIFICIAL INTELLIGENCE” EXECUTIVE ORDER—PROMOTING THE EXPORT OF THE AMERICAN AI TECHNOLOGY STACK: [https://www. whitehouse.gov/president...
+- [17:04 UTC - “Trump's border crackdown brings 'positive shift' to Arizona communities after years of up...](114909292663708859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114909292663708859
+  - “Trump's border crackdown brings 'positive shift' to Arizona communities after years of upheaval—Local residents report sharp drop in illegal crossings and decreased crime since pr...
+- [13:34 UTC - Everyone is stating that I will destroy Elon’s companies by taking away some, if not all, ...](114908467282299011/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114908467282299011
+  - Everyone is stating that I will destroy Elon’s companies by taking away some, if not all, of the large scale subsidies he receives from the U.S. Government. This is not so! I want...
+- [03:10 UTC - [https://www. thegatewaypundit.com/2025/07/j ust-trump-announces-massive-deal-japan-15-rec...](114906015389311775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114906015389311775
+  - [https://www. thegatewaypundit.com/2025/07/j ust-trump-announces-massive-deal-japan-15-reciprocal/](https://www.thegatewaypundit.com/2025/07/just-trump-announces-massive-deal-japan...
+- [02:59 UTC - Truth Social post 114905972108876222](114905972108876222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905972108876222
+  - _No text content captured._
+- [02:59 UTC - Truth Social post 114905970660721212](114905970660721212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905970660721212
+  - _No text content captured._
+- [02:50 UTC - Truth Social post 114905935046356827](114905935046356827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905935046356827
+  - _No text content captured._
+- [02:50 UTC - Truth Social post 114905934152416147](114905934152416147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905934152416147
+  - _No text content captured._
+- [02:49 UTC - Truth Social post 114905933299593617](114905933299593617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905933299593617
+  - _No text content captured._
+- [02:49 UTC - Truth Social post 114905932424533231](114905932424533231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905932424533231
+  - _No text content captured._
+- [02:44 UTC - Such a GREAT WIN IN POLAND by Karol Nawrocki. He will be a GREAT PRESIDENT! He won because...](114905910987380649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905910987380649
+  - Such a GREAT WIN IN POLAND by Karol Nawrocki. He will be a GREAT PRESIDENT! He won because he truly loves the Polish people.
+- [02:39 UTC - Truth Social post 114905893074567617](114905893074567617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905893074567617
+  - _No text content captured._
+- [02:28 UTC - Nvidia CEO Jensen Huang on winning the AI race: "America's unique advantage that no countr...](114905849389326140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905849389326140
+  - Nvidia CEO Jensen Huang on winning the AI race: "America's unique advantage that no country could possibly have is President Trump."
+- [02:25 UTC - I am pleased to announce that the Trump Administration has reached a historic agreement wi...](114905836425012707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905836425012707
+  - I am pleased to announce that the Trump Administration has reached a historic agreement with Columbia University. Columbia has agreed to pay a penalty of $200 Million Dollars to th...
+- [02:24 UTC - Truth Social post 114905832739573636](114905832739573636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905832739573636
+  - _No text content captured._
+- [00:13 UTC - [https://www. bloomberg.com/news/articles/20 25-07-22/white-house-wins-court-ruling-to-exc...](114905316068069316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114905316068069316
+  - [https://www. bloomberg.com/news/articles/20 25-07-22/white-house-wins-court-ruling-to-exclude-the-associated-press](https://www.bloomberg.com/news/articles/2025-07-22/white-house-...

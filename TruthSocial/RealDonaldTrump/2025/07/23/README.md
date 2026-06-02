@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-07-23
+
+- Posts: 13
+
+- [22:43 UTC - Truth Social post 114904965327735793](114904965327735793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114904965327735793
+  - _No text content captured._
+- [22:24 UTC - Truth Social post 114904889309937152](114904889309937152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114904889309937152
+  - _No text content captured._
+- [20:37 UTC - [https:// rumble.com/v6wkpwa-live-presid ent-trump-gives-remarks-at-winning-the-ai-race-su...](114904468067482875/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114904468067482875
+  - [https:// rumble.com/v6wkpwa-live-presid ent-trump-gives-remarks-at-winning-the-ai-race-summit-72325.html](https://rumble.com/v6wkpwa-live-president-trump-gives-remarks-at-winning-...
+- [19:04 UTC - Truth Social post 114904101463878663](114904101463878663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114904101463878663
+  - _No text content captured._
+- [18:41 UTC - RT [@ DNITulsiGabbard](https://truthsocial.com/@DNITulsiGabbard) 🧵 New evidence has emerge...](114904011171224605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114904011171224605
+  - RT [@ DNITulsiGabbard](https://truthsocial.com/@DNITulsiGabbard) 🧵 New evidence has emerged of the most egregious weaponization and politicization of intelligence in American histo...
+- [14:24 UTC - “Once-secret report confirms U.S. intel used Steele Dossier to push narrative Putin helped...](114903002476976412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114903002476976412
+  - “Once-secret report confirms U.S. intel used Steele Dossier to push narrative Putin helped Trump” [https:// justthenews.com/government/sec urity/steele-dossier-cited-2016-ica-claim...
+- [13:36 UTC - I WILL ONLY LOWER TARIFFS IF A COUNTRY AGREES TO OPEN ITS MARKET. IF NOT, MUCH HIGHER TARI...](114902814296069974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114902814296069974
+  - I WILL ONLY LOWER TARIFFS IF A COUNTRY AGREES TO OPEN ITS MARKET. IF NOT, MUCH HIGHER TARIFFS! Japan’s Markets are now OPEN (for first time ever!). USA BUSINESSES WILL BOOM!
+- [13:27 UTC - I will always give up Tariff points if I can get major countries to OPEN THEIR MARKETS TO ...](114902777792812157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114902777792812157
+  - I will always give up Tariff points if I can get major countries to OPEN THEIR MARKETS TO THE USA. Another great power of Tariffs. Without them, it would be impossible to get count...
+- [13:23 UTC - Indonesia has also agreed, for the first time ever, to COMPLETELY OPEN ITS MARKET TO THE U...](114902760700024238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114902760700024238
+  - Indonesia has also agreed, for the first time ever, to COMPLETELY OPEN ITS MARKET TO THE USA. That’s BIG!!! Our businesses will make a fortune. Likewise Japan!
+- [13:18 UTC - Remember, Japan is, for the first time ever, OPENING ITS MAKET TO THE USA, even to cars, S...](114902743574618008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114902743574618008
+  - Remember, Japan is, for the first time ever, OPENING ITS MAKET TO THE USA, even to cars, SUV’s, Trucks, -and everything else, even agriculture and RICE, which was always a complete...
+- [13:08 UTC - Housing in our Country is lagging because Jerome “Too Late” Powell refuses to lower Intere...](114902704048179740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114902704048179740
+  - Housing in our Country is lagging because Jerome “Too Late” Powell refuses to lower Interest Rates. Families are being hurt because Interest Rates are too high, and even our Countr...
+- [01:37 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114897689405330708](114899985763644908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899985763644908
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114897689405330708
+- [00:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114899417740854572 I just signe...](114899729133530180/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899729133530180
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114899417740854572 I just signed the largest TRADE DEAL in history with Japan. We worked on it long and hard—It’s a great...

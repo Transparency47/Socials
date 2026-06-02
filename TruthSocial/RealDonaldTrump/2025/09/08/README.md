@@ -1,0 +1,100 @@
+# TruthSocial / RealDonaldTrump / 2025-09-08
+
+- Posts: 32
+
+- [23:23 UTC - Congratulations to Nick Bosa on an unbelievable play in the San Francisco 49ers’ Win over ...](115171248213293804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115171248213293804
+  - Congratulations to Nick Bosa on an unbelievable play in the San Francisco 49ers’ Win over Seattle. He was born to be a STAR! President DJT
+- [20:11 UTC - I have seen the horrific video of a beautiful, young Ukrainian refugee, who came to Americ...](115170494005487289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115170494005487289
+  - I have seen the horrific video of a beautiful, young Ukrainian refugee, who came to America to escape the vicious War in Ukraine, and was innocently riding the Metro in Charlotte,...
+- [17:25 UTC - Gianno Caldwell has written a powerful Book, “The Day My Brother Was Murdered: My Journey ...](115169843962994945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169843962994945
+  - Gianno Caldwell has written a powerful Book, “The Day My Brother Was Murdered: My Journey Through America's Violent Crime Crisis.” Gianno unfortunately understands the true Horror...
+- [17:11 UTC - Truth Social post 115169785946693450](115169785946693450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169785946693450
+  - _No text content captured._
+- [16:56 UTC - WHY ARE DEMOCRATS ROOTING AGAINST AMERICA?](115169727944499112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169727944499112
+  - WHY ARE DEMOCRATS ROOTING AGAINST AMERICA?
+- [16:51 UTC - Sean Hannity: “Democrats have exposed themselves as the pro-crime party.”](115169709094964283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169709094964283
+  - Sean Hannity: “Democrats have exposed themselves as the pro-crime party.”
+- [16:50 UTC - Truth Social post 115169706284455819](115169706284455819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169706284455819
+  - _No text content captured._
+- [16:50 UTC - Truth Social post 115169705008194089](115169705008194089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169705008194089
+  - _No text content captured._
+- [16:48 UTC - [https:// hannity.com/media-room/watch-n ow-president-trump-delivers-remarks-at-the-museum...](115169697443414290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169697443414290
+  - [https:// hannity.com/media-room/watch-n ow-president-trump-delivers-remarks-at-the-museum-of-the-bible/](https://hannity.com/media-room/watch-now-president-trump-delivers-remarks-...
+- [16:48 UTC - “DEPARTMENT OF WAR IS BACK, AND SO IS AMERICA”](115169695509089058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169695509089058
+  - “DEPARTMENT OF WAR IS BACK, AND SO IS AMERICA”
+- [16:46 UTC - “FEDS STOP 1,300 BARRELS OF METH CHEMICALS”](115169689479915977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169689479915977
+  - “FEDS STOP 1,300 BARRELS OF METH CHEMICALS”
+- [16:46 UTC - “U.S. CRACKS DOWN ON CARTEL ON CARTEL CRUISES”](115169686997623003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169686997623003
+  - “U.S. CRACKS DOWN ON CARTEL ON CARTEL CRUISES”
+- [16:39 UTC - Truth Social post 115169661443239054](115169661443239054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169661443239054
+  - _No text content captured._
+- [16:37 UTC - Truth Social post 115169652770566361](115169652770566361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169652770566361
+  - _No text content captured._
+- [16:35 UTC - [https:// justthenews.com/government/sec urity/trump-spin-monroe-doctrine-focuses-military...](115169645272594518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169645272594518
+  - [https:// justthenews.com/government/sec urity/trump-spin-monroe-doctrine-focuses-military-power-western-hemisphere](https://justthenews.com/government/security/trump-spin-monroe-d...
+- [14:55 UTC - Happy Birthday Mary, Queen of Peace!](115169254084774448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169254084774448
+  - Happy Birthday Mary, Queen of Peace!
+- [14:22 UTC - Truth Social post 115169122679953643](115169122679953643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169122679953643
+  - _No text content captured._
+- [14:22 UTC - Truth Social post 115169121556552190](115169121556552190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169121556552190
+  - _No text content captured._
+- [14:21 UTC - Truth Social post 115169120389767003](115169120389767003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169120389767003
+  - _No text content captured._
+- [14:21 UTC - Truth Social post 115169119847763012](115169119847763012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115169119847763012
+  - _No text content captured._
+- [13:34 UTC - 6 people were murdered in Chicago this weekend, 12 others were shot, and in serious condit...](115168933967621443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168933967621443
+  - 6 people were murdered in Chicago this weekend, 12 others were shot, and in serious condition. This would mean that over the past number of weeks, approximately 50 people were kill...
+- [12:55 UTC - Washington, D.C. IS A SAFE ZONE IN JUST A MATTER OF WEEKS. Thank you, President Trump. Who...](115168778764944128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168778764944128
+  - Washington, D.C. IS A SAFE ZONE IN JUST A MATTER OF WEEKS. Thank you, President Trump. Who’s Next???
+- [12:49 UTC - Our great West Point (getting greater all the time!) has smartly cancelled the Award Cerem...](115168758828419703/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168758828419703
+  - Our great West Point (getting greater all the time!) has smartly cancelled the Award Ceremony for actor Tom Hanks. Important move! We don’t need destructive, WOKE recipients gettin...
+- [12:39 UTC - THE BIDEN AUTOPEN SCANDAL IS BIG, NOT AS BIG AS THE RUSSIA, RUSSIA, RUSSIA HOAX, OR THE RI...](115168717159863645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168717159863645
+  - THE BIDEN AUTOPEN SCANDAL IS BIG, NOT AS BIG AS THE RUSSIA, RUSSIA, RUSSIA HOAX, OR THE RIGGED 2020 PRESIDENTIAL ELECTION, BUT, NEVERTHELESS, ONE OF THE BIGGEST, EVER!!!
+- [11:49 UTC - Truth Social post 115168520280312209](115168520280312209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168520280312209
+  - _No text content captured._
+- [11:48 UTC - Truth Social post 115168516786423135](115168516786423135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168516786423135
+  - _No text content captured._
+- [11:47 UTC - Truth Social post 115168514165980228](115168514165980228/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168514165980228
+  - _No text content captured._
+- [11:47 UTC - Truth Social post 115168511297310412](115168511297310412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168511297310412
+  - _No text content captured._
+- [11:45 UTC - Truth Social post 115168507218622260](115168507218622260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168507218622260
+  - _No text content captured._
+- [11:45 UTC - “NYC is becoming safer under Trump.”](115168503787643723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168503787643723
+  - “NYC is becoming safer under Trump.”
+- [11:43 UTC - Truth Social post 115168498016899741](115168498016899741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168498016899741
+  - _No text content captured._
+- [11:31 UTC - Truth Social post 115168451957226800](115168451957226800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115168451957226800
+  - _No text content captured._

@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-07-26
+
+- Posts: 11
+
+- [23:45 UTC - I’m looking at the large amount of money owed by the Democrats, after the Presidential Ele...](114922194000687458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114922194000687458
+  - I’m looking at the large amount of money owed by the Democrats, after the Presidential Election, and the fact that they admit to paying, probably illegally, Eleven Million Dollars...
+- [18:57 UTC - The Great Gary Player: “Turnberry is, without a question, in the Top Five Greatest Golf Co...](114921063256769586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114921063256769586
+  - The Great Gary Player: “Turnberry is, without a question, in the Top Five Greatest Golf Courses I’ve ever played in my 73 years as a Pro.“ Thank you, Gary!
+- [18:07 UTC - Very Important. Republicans must play to win. Clear the 135. So badly needed!](114920864979561533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920864979561533
+  - Very Important. Republicans must play to win. Clear the 135. So badly needed!
+- [18:06 UTC - Truth Social post 114920863589440510](114920863589440510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920863589440510
+  - _No text content captured._
+- [18:06 UTC - Truth Social post 114920862606866803](114920862606866803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920862606866803
+  - _No text content captured._
+- [18:05 UTC - Truth Social post 114920858933880439](114920858933880439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920858933880439
+  - _No text content captured._
+- [18:05 UTC - Truth Social post 114920858062155848](114920858062155848/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920858062155848
+  - _No text content captured._
+- [16:23 UTC - I just had a very good call with the Prime Minister of Cambodia, and informed him of my di...](114920456511077924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920456511077924
+  - I just had a very good call with the Prime Minister of Cambodia, and informed him of my discussions with Thailand, and its Acting Prime Minister. Both Parties are looking for an im...
+- [15:49 UTC - I have just spoken to the Acting Prime Minister of Thailand, and it was a very good conver...](114920321241792451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920321241792451
+  - I have just spoken to the Acting Prime Minister of Thailand, and it was a very good conversation. Thailand, like Cambodia, wants to have an immediate Ceasefire, and PEACE. I am now...
+- [15:28 UTC - Just spoke to the Prime Minister of Cambodia relative to stopping the War with Thailand. I...](114920242180121128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920242180121128
+  - Just spoke to the Prime Minister of Cambodia relative to stopping the War with Thailand. I am calling the Acting Prime Minister of Thailand, right now, to likewise request a Ceasef...
+- [15:27 UTC - Truth Social post 114920238032329393](114920238032329393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114920238032329393
+  - _No text content captured._

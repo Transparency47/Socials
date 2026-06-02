@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-08-12
+
+- Posts: 22
+
+- [21:55 UTC - Truth Social post 115018020886436181](115018020886436181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115018020886436181
+  - _No text content captured._
+- [20:57 UTC - Truth Social post 115017794699194260](115017794699194260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017794699194260
+  - _No text content captured._
+- [20:56 UTC - Truth Social post 115017791417530672](115017791417530672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017791417530672
+  - _No text content captured._
+- [20:55 UTC - Truth Social post 115017783727602240](115017783727602240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017783727602240
+  - _No text content captured._
+- [20:40 UTC - I am pleased to nominate Bill Lewis to serve as Judge on the United States District Court ...](115017726956136844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017726956136844
+  - I am pleased to nominate Bill Lewis to serve as Judge on the United States District Court for the Middle District of Alabama. As a Justice on the Alabama Supreme Court, Judge on th...
+- [20:40 UTC - It is my honor to nominate Harold “Hal” Mooty as Judge for the Northern District of Alabam...](115017725871815255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017725871815255
+  - It is my honor to nominate Harold “Hal” Mooty as Judge for the Northern District of Alabama. Hal is one of the top Commercial Litigators in Alabama, a State that I love, and won BI...
+- [20:40 UTC - I am pleased to nominate Edmund LaCour as Judge for the Northern District of Alabama. As t...](115017724759134535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017724759134535
+  - I am pleased to nominate Edmund LaCour as Judge for the Northern District of Alabama. As the Solicitor General, Edmund has done a terrific job representing the Great State of Alaba...
+- [20:39 UTC - It is my honor to nominate Robert Chamberlin to serve as Judge on the United States Distri...](115017724357338500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017724357338500
+  - It is my honor to nominate Robert Chamberlin to serve as Judge on the United States District Court for the Northern District of Mississippi. Throughout his time as Justice on the M...
+- [20:39 UTC - I am pleased to announce the nomination of James Maxwell to serve as Judge on the United S...](115017723403358459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017723403358459
+  - I am pleased to announce the nomination of James Maxwell to serve as Judge on the United States District Court for the Northern District of Mississippi. Prior to becoming a Justice...
+- [19:35 UTC - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-is-delivering-on-his-campai...](115017471508894772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017471508894772
+  - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-is-delivering-on-his-campaign-promise-to-make-d-c-safe-again/](https://www.whitehouse.gov/articles/2025/08/president-...
+- [19:33 UTC - Bryson DeChambeau on the mission of the President's Council on Sports, Fitness, and Nutrit...](115017465040283855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017465040283855
+  - Bryson DeChambeau on the mission of the President's Council on Sports, Fitness, and Nutrition: "We're thinking about different ideas on how to give people the best opportunity to l...
+- [19:30 UTC - Jeanine Pirro, U.S. Attorney for the District of Columbia: "I am here today to tell you th...](115017453387635948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115017453387635948
+  - Jeanine Pirro, U.S. Attorney for the District of Columbia: "I am here today to tell you that on behalf of all of these victims — all of these families... that we ARE going to make...
+- [16:08 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115012797087354875](115016658835509914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115016658835509914
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115012797087354875
+- [14:24 UTC - Trillions of Dollars are being taken in on Tariffs, which has been incredible for our Coun...](115016246479417087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115016246479417087
+  - Trillions of Dollars are being taken in on Tariffs, which has been incredible for our Country, its Stock Market, its General Wealth, and just about everything else. It has been pro...
+- [13:44 UTC - Jerome “Too Late” Powell must NOW lower the rate. Steve “Manouychin” really gave me a “bea...](115016089386029482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115016089386029482
+  - Jerome “Too Late” Powell must NOW lower the rate. Steve “Manouychin” really gave me a “beauty”when he pushed this loser. The damage he has done by always being Too Late is incalcul...
+- [12:58 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/declaring-a-crime-emergency-in-...](115015911066634785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115015911066634785
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/declaring-a-crime-emergency-in-the-district-of-columbia/](https://www.whitehouse.gov/presidential-actions/2025/08/declari...
+- [12:30 UTC - GREAT Nominees for the TRUMP/KENNEDY CENTER, whoops, I mean, KENNEDY CENTER, AWARDS. They ...](115015798555807745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115015798555807745
+  - GREAT Nominees for the TRUMP/KENNEDY CENTER, whoops, I mean, KENNEDY CENTER, AWARDS. They will be announced Wednesday. Tremendous work is being done, and money being spent, on brin...
+- [11:10 UTC - “I don’t think we’ve had anybody with this much impact on the Country since FDR.” Chuck To...](115015483801151739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115015483801151739
+  - “I don’t think we’ve had anybody with this much impact on the Country since FDR.” Chuck Todd, formerly of NBC FAKE NEWS, in an interview with journalist David Brody. Wow, thank you...
+- [03:38 UTC - [https:// x.com/basedmikelee/status/1955 103701254967367?s=46](https://x.com/basedmikelee/...](115013709590251813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115013709590251813
+  - [https:// x.com/basedmikelee/status/1955 103701254967367?s=46](https://x.com/basedmikelee/status/1955103701254967367?s=46)
+- [03:38 UTC - [https:// x.com/basedmikelee/status/1951 721214030086496?s=46](https://x.com/basedmikelee/...](115013707652029480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115013707652029480
+  - [https:// x.com/basedmikelee/status/1951 721214030086496?s=46](https://x.com/basedmikelee/status/1951721214030086496?s=46)
+- [01:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011115206831709](115013162223256861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115013162223256861
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011115206831709
+- [00:00 UTC - I have just signed an Executive Order that will extend the Tariff Suspension on China for ...](115012849265805680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012849265805680
+  - I have just signed an Executive Order that will extend the Tariff Suspension on China for another 90 days. All other elements of the Agreement will remain the same. Thank you for y...

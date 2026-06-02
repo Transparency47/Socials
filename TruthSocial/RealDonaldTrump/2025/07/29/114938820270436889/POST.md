@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114938820270436889 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114938820270436889 -->
+<!-- date_published: 2025-07-29T22:13:33.644000+00:00 -->
+<!-- date_accessed: 2026-06-02T17:38:43.644842+00:00 -->
+
+# Chuck Grassley, who I got re-elected to the U.S. Senate when he was down, by a lot, in the...
+
+Chuck Grassley, who I got re-elected to the U.S. Senate when he was down, by a lot, in the Great State of Iowa, could solve the “Blue Slip” problem we are having with respect to the appointment of Highly Qualified Judges and U.S. Attorneys, with a mere flick of the pen. Democrats like Schumer, Warner, Kaine, Booker, Schiff, and others, SLEAZEBAGS ALL, have an ironclad stoppage of Great Republican Candidates. Put simply, the President of the United States will never be permitted to appoint the person of his choice because of an ancient, and probably Unconstitutional, “CUSTOM,” that if you have, even one person in the opposite Party serving in the U.S. Senate, he/she must give consent, thereby completely stopping the opposite Party’s Nomination. The only way to beat this Hoax is to appoint a Democrat or, a weak and ineffective Republican. Therefore, I would never be able to appoint Great Judges or U.S. Attorneys in California, New York, New Jersey, Illinois, Virginia, and other places, where there is, coincidentally, the highest level of crime and corruption — The places where fantastic people are most needed! Senator Grassley must step up, like Crooked Joe Biden did, when he openly broke, at least two times, the “Blue Slip” SCAM, and like others have done over the years, and let our Great Republican Judges and U.S. Attorneys BE CONFIRMED. He should do this, IMMEDIATELY, and not let the Democrats laugh at him and the Republican Party for being weak and ineffective. The Democrats have broken this ridiculous custom on us, it’s time that we break it on them. Chuck, I know you have the Courage to do this, DO IT!

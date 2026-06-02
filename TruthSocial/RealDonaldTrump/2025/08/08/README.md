@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-08-08
+
+- Posts: 18
+
+- [23:40 UTC - “It's a truly historic day...These two countries have been in some form of conflict…for ov...](114995786897421241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114995786897421241
+  - “It's a truly historic day...These two countries have been in some form of conflict…for over 35 years. This is yet another example President Trump’s effective leadership."
+- [23:39 UTC - “President Trump’s tariffs are WORKING — $152 BILLION collected since January!”](114995779410398631/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114995779410398631
+  - “President Trump’s tariffs are WORKING — $152 BILLION collected since January!”
+- [22:03 UTC - The highly anticipated meeting between myself, as President of the United States of Americ...](114995403653615328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114995403653615328
+  - The highly anticipated meeting between myself, as President of the United States of America, and President Vladimir Putin, of Russia, will take place next Friday, August 15, 2025,...
+- [20:54 UTC - Truth Social post 114995132873629524](114995132873629524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114995132873629524
+  - _No text content captured._
+- [20:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114994974199724855 It's a long ...](114994989118495992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114994989118495992
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114994974199724855 It's a long time... 35 years they fought — and now, they're friends... It's a big beautiful honor to w...
+- [20:14 UTC - As President, my highest aspiration is to bring peace and stability to the world. Today's ...](114994974199724855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114994974199724855
+  - As President, my highest aspiration is to bring peace and stability to the world. Today's signing follows our success with India and Pakistan... the Congo and Rwanda... Also, just...
+- [19:54 UTC - Truth Social post 114994895877461850](114994895877461850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114994895877461850
+  - _No text content captured._
+- [19:31 UTC - Truth Social post 114994805324662696](114994805324662696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114994805324662696
+  - _No text content captured._
+- [18:38 UTC - Truth Social post 114994598552362928](114994598552362928/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114994598552362928
+  - _No text content captured._
+- [14:38 UTC - Tariffs are having a huge positive impact on the Stock Market. Almost every day, new recor...](114993652992825116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114993652992825116
+  - Tariffs are having a huge positive impact on the Stock Market. Almost every day, new records are set. In addition, Hundreds of Billions of Dollars are pouring into our Country’s co...
+- [05:07 UTC - Failed former Lt. Governor Geoff Duncan, of Georgia, is a total loser. Was never able to g...](114991409673956369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114991409673956369
+  - Failed former Lt. Governor Geoff Duncan, of Georgia, is a total loser. Was never able to get anything done, all he ever did was complain. We didn’t want him in the Republican Party...
+- [02:33 UTC - [https:// truthsocial.com/@realDonaldTru mp/114984071671252631](https://truthsocial.com/@r...](114990801436290933/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990801436290933
+  - [https:// truthsocial.com/@realDonaldTru mp/114984071671252631](https://truthsocial.com/@realDonaldTrump/114984071671252631)
+- [01:55 UTC - Truth Social post 114990655491959853](114990655491959853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990655491959853
+  - _No text content captured._
+- [01:55 UTC - Truth Social post 114990654174388628](114990654174388628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990654174388628
+  - _No text content captured._
+- [01:55 UTC - [https://www. cnbc.com/2025/08/05/trump-murd och-epstein-health-deposition-delay.html](htt...](114990652488487712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990652488487712
+  - [https://www. cnbc.com/2025/08/05/trump-murd och-epstein-health-deposition-delay.html](https://www.cnbc.com/2025/08/05/trump-murdoch-epstein-health-deposition-delay.html)
+- [01:38 UTC - PROMISES MADE, PROMISES KEPT!](114990585891728756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990585891728756
+  - PROMISES MADE, PROMISES KEPT!
+- [01:27 UTC - Melania is GREAT!!! [https://www. dailymail.co.uk/news/article-1 4980601/melania-trump-jam...](114990543084538507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990543084538507
+  - Melania is GREAT!!! [https://www. dailymail.co.uk/news/article-1 4980601/melania-trump-james-carville-donald-trump-jeffrey-epstein.html](https://www.dailymail.co.uk/news/article-14...
+- [00:10 UTC - Truth Social post 114990239799856454](114990239799856454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114990239799856454
+  - _No text content captured._

@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114911072057863888 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114911072057863888 -->
+<!-- date_published: 2025-07-25T00:36:49.526000+00:00 -->
+<!-- date_accessed: 2026-06-02T17:41:27.191430+00:00 -->
+
+# To the Great People of North Carolina, one of the most capable executives in our Country s...
+
+To the Great People of North Carolina, one of the most capable executives in our Country successfully ran, along with Lara Trump, the Republican National Committee. He happens to live in your incredible State, which I love, and won, including Primaries, six times in a row! My relationship with you has been fantastic, and only enhanced by the job I did after January 20th, when I took over the flood drenched areas that were abandoned by Sleepy Joe Biden and your Governor, and, through the infusion of money and hard work, fixed the problem like nobody else has the ability to do. The one that energized that project, and so many more, was the Chairman of the RNC, Michael Whatley. I am sending this Statement out for a very good reason. Mike would make an unbelievable Senator from North Carolina. He is fantastic at everything he does, and he was certainly great at the RNC where, in the Presidential Election, we won every Swing State, the Popular Vote, and the Electoral College by a landslide! But I have a mission for my friends in North Carolina, and that is to get Michael Whatley to run for the U.S. Senate. He is STRONG on the Border, stopping Crime, supporting our Military/Veterans, cutting Taxes, and saving our always under siege Second Amendment. I need him in Washington, and I need him representing YOU! Fortunately, I have somebody who will do a wonderful job as the Chairman of the RNC. His name is, Joe Gruters, and he will have my Complete and Total Endorsement. So, should Michael Whatley run for the Senate, please let this notification represent my Complete and Total Endorsement. HE WILL NEVER LET YOU DOWN!

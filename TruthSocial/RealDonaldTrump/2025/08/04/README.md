@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-08-04
+
+- Posts: 14
+
+- [23:17 UTC - Good day in the Stock Market (Dow + 585.06, 1.34%, S&P 500 + 91.93, 1.47%, NASDAQ + 403.45...](114973044056093260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114973044056093260
+  - Good day in the Stock Market (Dow + 585.06, 1.34%, S&P 500 + 91.93, 1.47%, NASDAQ + 403.45, 1.95%), but there will be many more days like this. America is very rich again, and stro...
+- [19:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114971584293011580](114972119166778541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114972119166778541
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114971584293011580
+- [17:20 UTC - “When the President signed his Big Beautiful Bill, suddenly ICE had $75B in new funding. N...](114971642899192957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114971642899192957
+  - “When the President signed his Big Beautiful Bill, suddenly ICE had $75B in new funding. Now, ICE is rapidly trying to hire 10,000 more agents." JOIN TODAY: [https:// join.ice.gov/...
+- [17:17 UTC - Truth Social post 114971629705846213](114971629705846213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114971629705846213
+  - _No text content captured._
+- [17:05 UTC - HAPPY BIRTHDAY TO THE UNITED STATES COAST GUARD!](114971584293011580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114971584293011580
+  - HAPPY BIRTHDAY TO THE UNITED STATES COAST GUARD!
+- [14:50 UTC - India is not only buying massive amounts of Russian Oil, they are then, for much of the Oi...](114971053091282290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114971053091282290
+  - India is not only buying massive amounts of Russian Oil, they are then, for much of the Oil purchased, selling it on the Open Market for big profits. They don’t care how many peopl...
+- [14:43 UTC - Ask Pocahontas the real questions, CNBC!!!](114971023059049812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114971023059049812
+  - Ask Pocahontas the real questions, CNBC!!!
+- [14:32 UTC - Elizabeth Warren is a LOSER! She lies about everything, including the fact that she is an ...](114970981123138842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114970981123138842
+  - Elizabeth Warren is a LOSER! She lies about everything, including the fact that she is an Indian. She’s NOT. She’s no Pocahontas!!!
+- [14:29 UTC - In just 6 months, I cut costs, especially Energy and Taxes, Tremendously. Elizabeth “Pocah...](114970970276629752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114970970276629752
+  - In just 6 months, I cut costs, especially Energy and Taxes, Tremendously. Elizabeth “Pocahontas” Warren, on CNBC, said costs have gone up. She is just angry that I blew up her terr...
+- [14:25 UTC - Sydney Sweeney, a registered Republican, has the “HOTTEST” ad out there. It’s for American...](114970952739677687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114970952739677687
+  - Sydney Sweeney, a registered Republican, has the “HOTTEST” ad out there. It’s for American Eagle, and the jeans are “flying off the shelves.” Go get ‘em Sydney! On the other side o...
+- [13:03 UTC - Last weeks Job’s Report was RIGGED, just like the numbers prior to the Presidential Electi...](114970631477859993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114970631477859993
+  - Last weeks Job’s Report was RIGGED, just like the numbers prior to the Presidential Election were Rigged. That’s why, in both cases, there was massive, record setting revisions, in...
+- [12:09 UTC - Mark Levin’s Book, “On Power,” is Number One on the Best Seller List. Salena Zito’s GREAT ...](114970416998677033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114970416998677033
+  - Mark Levin’s Book, “On Power,” is Number One on the Best Seller List. Salena Zito’s GREAT new Book, “Butler,” is already on the List for three straight weeks. These are incredible...
+- [03:18 UTC - Democrats, lead by Cryin’ Chuck Schumer, are slow walking my Nominees, more than 150 of th...](114968330079746127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114968330079746127
+  - Democrats, lead by Cryin’ Chuck Schumer, are slow walking my Nominees, more than 150 of them. They wanted us to pay, originally, two billion dollars for approvals. The Dems are CRA...
+- [02:51 UTC - Truth Social post 114968223937958315](114968223937958315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114968223937958315
+  - _No text content captured._

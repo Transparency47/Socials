@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-09-06
+
+- Posts: 10
+
+- [23:40 UTC - THE DEPARTMENT OF WAR…](115159991746199053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159991746199053
+  - THE DEPARTMENT OF WAR…
+- [23:37 UTC - Truth Social post 115159978637938052](115159978637938052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159978637938052
+  - _No text content captured._
+- [23:36 UTC - Truth Social post 115159977907333752](115159977907333752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159977907333752
+  - _No text content captured._
+- [23:36 UTC - Truth Social post 115159977370370668](115159977370370668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159977370370668
+  - _No text content captured._
+- [23:36 UTC - Truth Social post 115159976692382673](115159976692382673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159976692382673
+  - _No text content captured._
+- [23:34 UTC - [https://www. rsbnetwork.com/news/trump-appr oves-ufc-fight-on-white-house-south-lawn/](ht...](115159968318967322/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159968318967322
+  - [https://www. rsbnetwork.com/news/trump-appr oves-ufc-fight-on-white-house-south-lawn/](https://www.rsbnetwork.com/news/trump-approves-ufc-fight-on-white-house-south-lawn/)
+- [23:33 UTC - Truth Social post 115159963391626601](115159963391626601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159963391626601
+  - _No text content captured._
+- [20:37 UTC - Truth Social post 115159273956501500](115159273956501500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159273956501500
+  - _No text content captured._
+- [19:38 UTC - Truth Social post 115159039936397143](115159039936397143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115159039936397143
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 115158096026629509](115158096026629509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115158096026629509
+  - _No text content captured._

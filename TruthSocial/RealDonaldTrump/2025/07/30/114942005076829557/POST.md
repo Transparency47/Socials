@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114942005076829557 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114942005076829557 -->
+<!-- date_published: 2025-07-30T11:43:29.928000+00:00 -->
+<!-- date_accessed: 2026-06-02T17:37:14.561873+00:00 -->
+
+# THE AUGUST FIRST DEADLINE IS THE AUGUST FIRST DEADLINE — IT STANDS STRONG, AND WILL NOT BE...
+
+THE AUGUST FIRST DEADLINE IS THE AUGUST FIRST DEADLINE — IT STANDS STRONG, AND WILL NOT BE EXTENDED. A BIG DAY FOR AMERICA!!!

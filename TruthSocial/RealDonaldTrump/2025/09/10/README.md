@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-09-10
+
+- Posts: 9
+
+- [21:02 UTC - In honor of Charlie Kirk, a truly Great American Patriot, I am ordering all American Flags...](115182019266546196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115182019266546196
+  - In honor of Charlie Kirk, a truly Great American Patriot, I am ordering all American Flags throughout the United States lowered to Half Mast until Sunday evening at 6 P.M.
+- [20:40 UTC - The Great, and even Legendary, Charlie Kirk, is dead. No one understood or had the Heart o...](115181934991844419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115181934991844419
+  - The Great, and even Legendary, Charlie Kirk, is dead. No one understood or had the Heart of the Youth in the United States of America better than Charlie. He was loved and admired...
+- [19:02 UTC - We must all pray for Charlie Kirk, who has been shot. A great guy from top to bottom. GOD ...](115181549363103818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115181549363103818
+  - We must all pray for Charlie Kirk, who has been shot. A great guy from top to bottom. GOD BLESS HIM!
+- [15:09 UTC - What’s with Russia violating Poland’s airspace with drones? Here we go!](115180631135047280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115180631135047280
+  - What’s with Russia violating Poland’s airspace with drones? Here we go!
+- [14:46 UTC - Truth Social post 115180540183651739](115180540183651739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115180540183651739
+  - _No text content captured._
+- [13:08 UTC - Just out: No Inflation!!! “Too Late” must lower the RATE, BIG, right now. Powell is a tota...](115180154793561569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115180154793561569
+  - Just out: No Inflation!!! “Too Late” must lower the RATE, BIG, right now. Powell is a total disaster, who doesn’t have a clue!!! President DJT
+- [12:44 UTC - The ANIMAL who so violently killed the beautiful young lady from Ukraine, who came to Amer...](115180060678818221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115180060678818221
+  - The ANIMAL who so violently killed the beautiful young lady from Ukraine, who came to America searching for peace and safety, should be given a “Quick” (there is no doubt!) Trial,...
+- [03:38 UTC - Thank you Lenny. Great to be a WINNER, and that is you, a WINNER and a CHAMPION!!! MAKE AM...](115177916289896131/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115177916289896131
+  - Thank you Lenny. Great to be a WINNER, and that is you, a WINNER and a CHAMPION!!! MAKE AMERICA GREAT AGAIN! President DJT [https://www. newsmax.com/newsfront/croton-o n-hudson-res...
+- [03:15 UTC - Truth Social post 115177826055476962](115177826055476962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115177826055476962
+  - _No text content captured._

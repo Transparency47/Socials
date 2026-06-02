@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-07-05
+
+- Posts: 13
+
+- [22:28 UTC - Truth Social post 114802983336139767](114802983336139767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802983336139767
+  - _No text content captured._
+- [22:27 UTC - [https://www. foxnews.com/politics/trump-rid es-major-wave-momentum-going-july-fourth-afte...](114802978472580881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802978472580881
+  - [https://www. foxnews.com/politics/trump-rid es-major-wave-momentum-going-july-fourth-after-iran-bbb-supreme-court-lawsuit-victories](https://www.foxnews.com/politics/trump-rides-m...
+- [22:20 UTC - [https:// nypost.com/2025/07/05/us-news/ sweeping-federal-operation-nabs-264-suspects-incl...](114802953729903183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802953729903183
+  - [https:// nypost.com/2025/07/05/us-news/ sweeping-federal-operation-nabs-264-suspects-including-migrants/](https://nypost.com/2025/07/05/us-news/sweeping-federal-operation-nabs-264...
+- [20:48 UTC - The One Big Beautiful Bill will deliver the strongest border on Earth, the strongest econo...](114802591195240494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802591195240494
+  - The One Big Beautiful Bill will deliver the strongest border on Earth, the strongest economy on Earth, the strongest military on Earth, & ensure the United States of America will r...
+- [20:13 UTC - Truth Social post 114802454409452089](114802454409452089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802454409452089
+  - _No text content captured._
+- [19:44 UTC - Truth Social post 114802338481041350](114802338481041350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114802338481041350
+  - _No text content captured._
+- [16:50 UTC - This July 4th weekend I want to give a big “THANK YOU!” to the Heroic ICE Officers fightin...](114801653749329102/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114801653749329102
+  - This July 4th weekend I want to give a big “THANK YOU!” to the Heroic ICE Officers fighting every day to reclaim our Sovereignty and Freedom. One of the most exciting parts of the...
+- [14:58 UTC - The Trump Administration is working with State and Local Officials on the ground in Texas ...](114801213969191305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114801213969191305
+  - The Trump Administration is working with State and Local Officials on the ground in Texas in response to the tragic flooding that took place yesterday. Our Secretary of Homeland Se...
+- [03:40 UTC - HAPPY 4TH OF JULY! 🎇🎆🇺🇸🦅](114798547490380707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114798547490380707
+  - HAPPY 4TH OF JULY! 🎇🎆🇺🇸🦅
+- [03:13 UTC - Truth Social post 114798443884707836](114798443884707836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114798443884707836
+  - _No text content captured._
+- [03:12 UTC - Truth Social post 114798436828289333](114798436828289333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114798436828289333
+  - _No text content captured._
+- [03:11 UTC - Truth Social post 114798432563619704](114798432563619704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114798432563619704
+  - _No text content captured._
+- [01:48 UTC - Truth Social post 114798109077749205](114798109077749205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114798109077749205
+  - _No text content captured._

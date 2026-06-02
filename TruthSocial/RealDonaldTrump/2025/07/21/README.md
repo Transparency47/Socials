@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-07-21
+
+- Posts: 19
+
+- [22:39 UTC - Truth Social post 114893622892167380](114893622892167380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893622892167380
+  - _No text content captured._
+- [21:53 UTC - “Louisiana's Tunica-Biloxi Tribe to nominate President Donald Trump for Nobel Peace Prize”...](114893444758138173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893444758138173
+  - “Louisiana's Tunica-Biloxi Tribe to nominate President Donald Trump for Nobel Peace Prize” [https://www. citynewsokc.com/opinion/louisi anas-tunica-biloxi-tribe-to-nominate-preside...
+- [21:30 UTC - Truth Social post 114893353003200271](114893353003200271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893353003200271
+  - _No text content captured._
+- [19:34 UTC - One of the Great Success Stories in the History of Borders, and I’m including Borders from...](114892895177732471/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892895177732471
+  - One of the Great Success Stories in the History of Borders, and I’m including Borders from anywhere in the World. Congratulations to Kristi Noem, Tom Homan, Rodney Scott, Pam Bondi...
+- [18:41 UTC - Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dak...](114892689845138877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892689845138877
+  - Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dakota, a State I love, and WON BIG, in 2016, 2020, and 2024! An America First Patriot, Mike...
+- [18:24 UTC - Truth Social post 114892622202529719](114892622202529719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892622202529719
+  - _No text content captured._
+- [17:54 UTC - “Fact Sheet: President Donald J. Trump Signs GENIUS Act into Law” [https://www. whitehouse...](114892503981994226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892503981994226
+  - “Fact Sheet: President Donald J. Trump Signs GENIUS Act into Law” [https://www. whitehouse.gov/fact-sheets/202 5/07/fact-sheet-president-donald-j-trump-signs-genius-act-into-law/](...
+- [17:50 UTC - The Harvard case was just tried in Massachusetts before an Obama appointed Judge. She is a...](114892486666754017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892486666754017
+  - The Harvard case was just tried in Massachusetts before an Obama appointed Judge. She is a TOTAL DISASTER, which I say even before hearing her Ruling. She has systematically taken...
+- [17:50 UTC - Bryan Kohberger, who was responsible, in Idaho, for the deaths of four wonderful young sou...](114892485746950799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892485746950799
+  - Bryan Kohberger, who was responsible, in Idaho, for the deaths of four wonderful young souls, has made a plea bargain deal in order to avoid the Death Penalty. These were vicious m...
+- [17:49 UTC - “President Trump Marks Six Months in Office with Historic Successes” [https://www. whiteho...](114892483107767009/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892483107767009
+  - “President Trump Marks Six Months in Office with Historic Successes” [https://www. whitehouse.gov/articles/2025/0 7/president-trump-marks-six-months-in-office-with-historic-success...
+- [17:47 UTC - “Data Shows U.S. Economy Is Back on Track Under President Trump” [https://www. whitehouse....](114892476183296427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892476183296427
+  - “Data Shows U.S. Economy Is Back on Track Under President Trump” [https://www. whitehouse.gov/articles/2025/0 7/data-shows-u-s-economy-is-back-on-track-under-president-trump/](http...
+- [17:46 UTC - “President Trump Has Kept His Promises — and Then Some” [https://www. whitehouse.gov/artic...](114892470792068047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892470792068047
+  - “President Trump Has Kept His Promises — and Then Some” [https://www. whitehouse.gov/articles/2025/0 7/president-trump-has-kept-his-promises-and-then-some/](https://www.whitehouse....
+- [17:43 UTC - SIX MONTHS OF WINNING!](114892461129725355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892461129725355
+  - SIX MONTHS OF WINNING!
+- [16:55 UTC - Senator Dan Sullivan is doing a fantastic job representing the Great People of Alaska! Pri...](114892270098322352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114892270098322352
+  - Senator Dan Sullivan is doing a fantastic job representing the Great People of Alaska! Prior to becoming a very distinguished and Highly Respected Senator, Dan served as State Atto...
+- [13:50 UTC - Crime in American Cities started to significantly rise when they went to CASHLESS BAIL. Th...](114891542921713362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114891542921713362
+  - Crime in American Cities started to significantly rise when they went to CASHLESS BAIL. The WORST criminals are flooding our streets and endangering even our great law enforcement...
+- [00:53 UTC - Adam “Shifty” Schiff is in BIG TROUBLE! He falsified Loan Documents. He once said my son w...](114888488677783141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888488677783141
+  - Adam “Shifty” Schiff is in BIG TROUBLE! He falsified Loan Documents. He once said my son would go to prison on a SCAM that Schiff, along with other Crooked Dems, illegally “manufac...
+- [00:16 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114888040876029481](114888343868910502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888343868910502
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114888040876029481
+- [00:06 UTC - Go get the GREAT NEW BOOK by Mark Levin. It’s entitled “ON POWER,” and it’s the talk of th...](114888305041609390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888305041609390
+  - Go get the GREAT NEW BOOK by Mark Levin. It’s entitled “ON POWER,” and it’s the talk of the town. Read it, digest it, and enjoy it. He is truly, ONE OF A KIND!!! DJT
+- [00:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114888219088263084](114888303617113000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888303617113000
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114888219088263084

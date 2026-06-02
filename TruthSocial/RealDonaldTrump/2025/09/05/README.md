@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-09-05
+
+- Posts: 9
+
+- [22:57 UTC - Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I lov...](115154159518653872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115154159518653872
+  - Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024. I know Ashley well, and she is a WINN...
+- [21:05 UTC - Truth Social post 115153720226851346](115153720226851346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115153720226851346
+  - _No text content captured._
+- [19:54 UTC - The Democrats have gone CRAZY.](115153443118480614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115153443118480614
+  - The Democrats have gone CRAZY.
+- [19:38 UTC - In addition to my previously posted TRUTH concerning Google, please let this Statement ser...](115153378284802465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115153378284802465
+  - In addition to my previously posted TRUTH concerning Google, please let this Statement serve to represent that Google has also paid, in the past, $13 Billion Dollars in false claim...
+- [19:01 UTC - Europe today “hit” another great American company, Google, with a $3.5 Billion Dollar fine...](115153232183118149/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115153232183118149
+  - Europe today “hit” another great American company, Google, with a $3.5 Billion Dollar fine, effectively taking money that would otherwise go to American Investments and Jobs. This...
+- [14:16 UTC - Jerome “Too Late” Powell should have lowered rates long ago. As usual, he’s “Too Late!”](115152111914572913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115152111914572913
+  - Jerome “Too Late” Powell should have lowered rates long ago. As usual, he’s “Too Late!”
+- [13:56 UTC - The confused and badly failing Democrat Party did nothing about Jeffrey Epstein while he w...](115152031890524220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115152031890524220
+  - The confused and badly failing Democrat Party did nothing about Jeffrey Epstein while he was alive except befriend him, socialize with him, travel to his Island, and take his money...
+- [10:15 UTC - Jerry Nadler, one of the most disgusting Congressmen in USA History is, at long last, call...](115151165397446776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115151165397446776
+  - Jerry Nadler, one of the most disgusting Congressmen in USA History is, at long last, calling it “quits” - He’s finally leaving Congress! I’ve been beating this bum for 40 years, f...
+- [10:14 UTC - Looks like we’ve lost India and Russia to deepest, darkest, China. May they have a long an...](115151159839778614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115151159839778614
+  - Looks like we’ve lost India and Russia to deepest, darkest, China. May they have a long and prosperous future together! President Donald J. Trump

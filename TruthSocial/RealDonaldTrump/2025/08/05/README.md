@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-08-05
+
+- Posts: 10
+
+- [23:28 UTC - The Democrat Party is self-destructing! When you have Low IQ people…](114978749252122903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114978749252122903
+  - The Democrat Party is self-destructing! When you have Low IQ people…
+- [23:26 UTC - One year ago, our Country was dead. Now, we have the hottest Country anywhere in the world...](114978742843933698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114978742843933698
+  - One year ago, our Country was dead. Now, we have the hottest Country anywhere in the world, BY FAR…
+- [21:12 UTC - Thank you to Casey Wasserman, Chairman of 2028 LA Olympics…](114978217713394397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114978217713394397
+  - Thank you to Casey Wasserman, Chairman of 2028 LA Olympics…
+- [21:10 UTC - Today, we took a major step to ensure the U.S. is fully prepared to welcome the world to L...](114978210414172569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114978210414172569
+  - Today, we took a major step to ensure the U.S. is fully prepared to welcome the world to Los Angeles for the 2028 Summer Olympic Games…
+- [21:04 UTC - They are having the “Hulkster’s” funeral today, and I thought everybody would enjoy seeing...](114978185450691314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114978185450691314
+  - They are having the “Hulkster’s” funeral today, and I thought everybody would enjoy seeing this picture.
+- [20:13 UTC - Crime in Washington, D.C., is totally out of control. Local “youths” and gang members, som...](114977985620971126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114977985620971126
+  - Crime in Washington, D.C., is totally out of control. Local “youths” and gang members, some only 14, 15, and 16-years-old, are randomly attacking, mugging, maiming, and shooting in...
+- [05:17 UTC - THIS IS GREAT NEWS!!! Should be Nationwide!!! President DJT “Appeals court upholds Texas l...](114974461343997782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114974461343997782
+  - THIS IS GREAT NEWS!!! Should be Nationwide!!! President DJT “Appeals court upholds Texas law requiring ID numbers to cast mail-in ballots” [https://www. politico.com/news/2025/08/0...
+- [04:31 UTC - Our GREAT Senator, Tim Scott, one of the finest men I know, wrote a fantastic new book ent...](114974282191317621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114974282191317621
+  - Our GREAT Senator, Tim Scott, one of the finest men I know, wrote a fantastic new book entitled, “ONE NATION ALWAYS UNDER GOD.” Get it now!!! President DJT
+- [01:56 UTC - The TRUTH always wins out. This is great news. God Bless America! President DJT [https:// ...](114973670406612532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114973670406612532
+  - The TRUTH always wins out. This is great news. God Bless America! President DJT [https:// nypost.com/2025/08/04/us-news/ ex-obama-officials-face-federal-grand-jury-probe-into-wheth...
+- [01:55 UTC - Gayle King’s career is over. She should have stayed with her belief in TRUMP. She never ha...](114973667966400208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114973667966400208
+  - Gayle King’s career is over. She should have stayed with her belief in TRUMP. She never had the courage to do so. No talent, no ratings, no strength!!! [https:// nypost.com/2025/08...

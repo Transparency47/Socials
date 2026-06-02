@@ -1,0 +1,139 @@
+# TruthSocial / RealDonaldTrump / 2025-08-31
+
+- Posts: 45
+
+- [22:40 UTC - This is a list I get every single day! DC Safe SIT REP 8/30 - 76 Arrests were made during ...](115125782692352784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125782692352784
+  - This is a list I get every single day! DC Safe SIT REP 8/30 - 76 Arrests were made during the reporting period. - 5 Firearms were seized. Significant activity: - an El Salvadorian...
+- [20:46 UTC - Truth Social post 115125334499012569](115125334499012569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125334499012569
+  - _No text content captured._
+- [20:46 UTC - Truth Social post 115125333667466412](115125333667466412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125333667466412
+  - _No text content captured._
+- [20:46 UTC - Truth Social post 115125332935443426](115125332935443426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125332935443426
+  - _No text content captured._
+- [20:45 UTC - Truth Social post 115125332179414593](115125332179414593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125332179414593
+  - _No text content captured._
+- [20:45 UTC - Truth Social post 115125331316025181](115125331316025181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125331316025181
+  - _No text content captured._
+- [20:45 UTC - Truth Social post 115125330420101141](115125330420101141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125330420101141
+  - _No text content captured._
+- [20:45 UTC - DC IS NOW A CRIME FREE ZONE, IN JUST 12 DAYS!!! President DJT](115125330212310166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125330212310166
+  - DC IS NOW A CRIME FREE ZONE, IN JUST 12 DAYS!!! President DJT
+- [20:42 UTC - [https:// truthsocial.com/@DC_Draino/115 118089050516091](https://truthsocial.com/@DC_Drai...](115125318282199234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125318282199234
+  - [https:// truthsocial.com/@DC_Draino/115 118089050516091](https://truthsocial.com/@DC_Draino/115118089050516091) . NEVER FELT BETTER IN MY LIFE. Also, DC IS A CRIME FREE ZONE! Pres...
+- [20:38 UTC - [https:// truthsocial.com/@KariLake/1150 76337298662311](https://truthsocial.com/@KariLake...](115125304306019834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125304306019834
+  - [https:// truthsocial.com/@KariLake/1150 76337298662311](https://truthsocial.com/@KariLake/115076337298662311)
+- [20:23 UTC - [https://www. foxnews.com/video/637792033111 2](https://www.foxnews.com/video/637792033111...](115125243549876966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125243549876966
+  - [https://www. foxnews.com/video/637792033111 2](https://www.foxnews.com/video/6377920331112)
+- [20:23 UTC - [https://www. foxnews.com/video/637785659611 2](https://www.foxnews.com/video/637785659611...](115125242914777199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125242914777199
+  - [https://www. foxnews.com/video/637785659611 2](https://www.foxnews.com/video/6377856596112)
+- [20:20 UTC - [https://www. newsmax.com/newsfront/war-depa rtment-trump/2025/08/31/id/1224565/](https://...](115125230438581088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125230438581088
+  - [https://www. newsmax.com/newsfront/war-depa rtment-trump/2025/08/31/id/1224565/](https://www.newsmax.com/newsfront/war-department-trump/2025/08/31/id/1224565/)
+- [20:19 UTC - [https://www. newsmax.com/newsfront/marsha-b lackburn-trump-law-enforcement/2025/08/31/id/...](115125229519088761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115125229519088761
+  - [https://www. newsmax.com/newsfront/marsha-b lackburn-trump-law-enforcement/2025/08/31/id/1224601/](https://www.newsmax.com/newsfront/marsha-blackburn-trump-law-enforcement/2025/08...
+- [18:01 UTC - Without Tariffs, and all of the TRILLIONS OF DOLLARS we have already taken in, our Country...](115124685956430001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124685956430001
+  - Without Tariffs, and all of the TRILLIONS OF DOLLARS we have already taken in, our Country would be completely destroyed, and our military power would be instantly obliterated. In...
+- [16:23 UTC - Truth Social post 115124299029636213](115124299029636213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124299029636213
+  - _No text content captured._
+- [15:49 UTC - Great playing Golf with Jon Gruden — A really nice guy, and true character!](115124166787814415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124166787814415
+  - Great playing Golf with Jon Gruden — A really nice guy, and true character!
+- [15:48 UTC - I hope that Major League Baseball is getting ready to put Roger Clemens in the Hall of Fam...](115124163211780188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124163211780188
+  - I hope that Major League Baseball is getting ready to put Roger Clemens in the Hall of Fame, a place where he has belonged for many years! 354 Wins, second in Total Strike Outs, Lo...
+- [15:21 UTC - Truth Social post 115124057470427478](115124057470427478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124057470427478
+  - _No text content captured._
+- [15:21 UTC - [https:// nypost.com/2025/08/19/opinion/ michael-goodwin-trumps-unique-talents-make-him-a-...](115124054389301739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124054389301739
+  - [https:// nypost.com/2025/08/19/opinion/ michael-goodwin-trumps-unique-talents-make-him-a-true-leader-and-have-redefined-what-it-means-to-be-commander-in-chief/](https://nypost.com...
+- [15:20 UTC - Truth Social post 115124052257153942](115124052257153942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124052257153942
+  - _No text content captured._
+- [15:20 UTC - Truth Social post 115124052023322894](115124052023322894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124052023322894
+  - _No text content captured._
+- [15:19 UTC - Truth Social post 115124046473565140](115124046473565140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124046473565140
+  - _No text content captured._
+- [15:18 UTC - Truth Social post 115124045808181563](115124045808181563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124045808181563
+  - _No text content captured._
+- [15:17 UTC - Thank you to Elise Stefanik, a Great Warrior!](115124041395193539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124041395193539
+  - Thank you to Elise Stefanik, a Great Warrior!
+- [15:16 UTC - “Senate Bill that would have turned lost Pacific Palisades homes into affordable housing p...](115124034604820821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124034604820821
+  - “Senate Bill that would have turned lost Pacific Palisades homes into affordable housing put on pause” [https://www. foxla.com/news/senate-bill-wou ld-have-turned-lost-pacific-pali...
+- [15:15 UTC - Can you imagine being so stupid as to destroy one of the best areas in the United States b...](115124030766596526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115124030766596526
+  - Can you imagine being so stupid as to destroy one of the best areas in the United States by building Low Income Housing there? The people must be having a "fit." [https://www. thec...
+- [13:54 UTC - Miranda Devine and Katie Pavlich were terrific on FoxNews yesterday. Smart, exciting, and ...](115123713005977554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115123713005977554
+  - Miranda Devine and Katie Pavlich were terrific on FoxNews yesterday. Smart, exciting, and really know their “stuff.” Two great professionals. Thank you!!! President DJT
+- [13:44 UTC - Just watched Hilary Fordwich on the Armstrong Williams Show. She was FANTASTIC -- Really g...](115123673064341664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115123673064341664
+  - Just watched Hilary Fordwich on the Armstrong Williams Show. She was FANTASTIC -- Really gets “IT.” Thank you to Hilary and Armstrong for a great interview on AMERICA & STRENGTH!!!...
+- [02:06 UTC - [https:// truthsocial.com/@RyanAFournier /115120661828101213](https://truthsocial.com/@Rya...](115120929244830906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120929244830906
+  - [https:// truthsocial.com/@RyanAFournier /115120661828101213](https://truthsocial.com/@RyanAFournier/115120661828101213)
+- [02:05 UTC - [https:// truthsocial.com/@NewsMax/11511 7804114808263](https://truthsocial.com/@NewsMax/1...](115120925187256761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120925187256761
+  - [https:// truthsocial.com/@NewsMax/11511 7804114808263](https://truthsocial.com/@NewsMax/115117804114808263) GREAT!
+- [02:03 UTC - [https:// truthsocial.com/@RonnyJacksonT X/115115292262551684](https://truthsocial.com/@Ro...](115120918284653465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120918284653465
+  - [https:// truthsocial.com/@RonnyJacksonT X/115115292262551684](https://truthsocial.com/@RonnyJacksonTX/115115292262551684)
+- [02:02 UTC - [https:// truthsocial.com/@realDonaldTru mp/115078969663814221](https://truthsocial.com/@r...](115120914755366309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120914755366309
+  - [https:// truthsocial.com/@realDonaldTru mp/115078969663814221](https://truthsocial.com/@realDonaldTrump/115078969663814221)
+- [02:00 UTC - A must watch — The Great Mark Levin…](115120906287440313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120906287440313
+  - A must watch — The Great Mark Levin…
+- [01:59 UTC - [https:// hannity.com/media-room/preside nt-of-the-american-worker-white-house-releases-hi...](115120903149029031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120903149029031
+  - [https:// hannity.com/media-room/preside nt-of-the-american-worker-white-house-releases-highlight-video-ahead-of-labor-day-weekend-watch/](https://hannity.com/media-room/president-...
+- [01:59 UTC - [https:// truthsocial.com/@mrddmia/11507 5801500477766](https://truthsocial.com/@mrddmia/1...](115120903147275123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120903147275123
+  - [https:// truthsocial.com/@mrddmia/11507 5801500477766](https://truthsocial.com/@mrddmia/115075801500477766)
+- [01:58 UTC - [https:// youtu.be/pkGLrZubRfI](https://youtu.be/pkGLrZubRfI)](115120899954000786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120899954000786
+  - [https:// youtu.be/pkGLrZubRfI](https://youtu.be/pkGLrZubRfI)
+- [01:58 UTC - [https:// truthsocial.com/@joemccuiston/ 115079559300053772](https://truthsocial.com/@joem...](115120897148219865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120897148219865
+  - [https:// truthsocial.com/@joemccuiston/ 115079559300053772](https://truthsocial.com/@joemccuiston/115079559300053772)
+- [01:54 UTC - Enjoy your Labor Day weekend. A big year ahead for the USA, maybe the BEST EVER, if the Ta...](115120881794624188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120881794624188
+  - Enjoy your Labor Day weekend. A big year ahead for the USA, maybe the BEST EVER, if the Tariffs are finally approved by the Courts!!! President DJT
+- [01:49 UTC - Voter I.D. Must Be Part of Every Single Vote. NO EXCEPTIONS! I Will Be Doing An Executive ...](115120863399877029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120863399877029
+  - Voter I.D. Must Be Part of Every Single Vote. NO EXCEPTIONS! I Will Be Doing An Executive Order To That End!!! Also, No Mail-In Voting, Except For Those That Are Very Ill, And The...
+- [01:46 UTC - THE RUSSIA HOAX — “SHOCKING DETAILS!”](115120853104354494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120853104354494
+  - THE RUSSIA HOAX — “SHOCKING DETAILS!”
+- [01:40 UTC - “Blue Slips” need to go, bad for the Republican Party, and our Country!](115120828581193223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120828581193223
+  - “Blue Slips” need to go, bad for the Republican Party, and our Country!
+- [01:19 UTC - THE RUSSIA HOAX!](115120744696536461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120744696536461
+  - THE RUSSIA HOAX!
+- [00:50 UTC - Truth Social post 115120631770963521](115120631770963521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120631770963521
+  - _No text content captured._
+- [00:25 UTC - Truth Social post 115120534068635640](115120534068635640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120534068635640
+  - _No text content captured._

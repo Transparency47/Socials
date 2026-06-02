@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-08-06
+
+- Posts: 15
+
+- [22:04 UTC - The shooter at Fort Stewart in Georgia is now in custody—and the Army Criminal Investigati...](114984083092546777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114984083092546777
+  - The shooter at Fort Stewart in Georgia is now in custody—and the Army Criminal Investigation Division is on site to ensure that the perpetrator of this atrocity…
+- [22:01 UTC - Truth Social post 114984071671252631](114984071671252631/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114984071671252631
+  - _No text content captured._
+- [22:00 UTC - [https://www. foxnews.com/politics/exclusive -trump-admin-nixes-giant-wind-farm-approved-l...](114984066802040665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114984066802040665
+  - [https://www. foxnews.com/politics/exclusive -trump-admin-nixes-giant-wind-farm-approved-last-minute-biden-team](https://www.foxnews.com/politics/exclusive-trump-admin-nixes-giant-...
+- [21:59 UTC - [https://www. whitehouse.gov/articles/2025/0 8/americans-are-winning-big-with-the-one-big-...](114984064840648167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114984064840648167
+  - [https://www. whitehouse.gov/articles/2025/0 8/americans-are-winning-big-with-the-one-big-beautiful-bill/](https://www.whitehouse.gov/articles/2025/08/americans-are-winning-big-wit...
+- [21:59 UTC - [https://www. bloomberg.com/news/articles/20 25-08-06/trump-apple-to-announce-fresh-100-bi...](114984063665976199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114984063665976199
+  - [https://www. bloomberg.com/news/articles/20 25-08-06/trump-apple-to-announce-fresh-100-billion-in-us-manufacturing](https://www.bloomberg.com/news/articles/2025-08-06/trump-apple-...
+- [17:03 UTC - My Special Envoy, Steve Witkoff, just had a highly productive meeting with Russian Preside...](114982898525988419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982898525988419
+  - My Special Envoy, Steve Witkoff, just had a highly productive meeting with Russian President Vladimir Putin. Great progress was made! Afterwards, I updated some of our European All...
+- [15:26 UTC - I am proud to be the only President (with the possible exception of the Late, Great George...](114982518659334871/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982518659334871
+  - I am proud to be the only President (with the possible exception of the Late, Great George Washington) to donate my Salary. My first “Paycheck” went to the White House Historical A...
+- [15:11 UTC - Director of National Intelligence, Tulsi Gabbard: “Obama directed that a National Security...](114982457914490323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982457914490323
+  - Director of National Intelligence, Tulsi Gabbard: “Obama directed that a National Security Council meeting be called... They were tasked to create an Intelligence Assessment that d...
+- [15:07 UTC - [https:// dailycaller.com/2025/08/05/tru mp-admin-bars-visas-men-competing-womens-sports/]...](114982444565086155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982444565086155
+  - [https:// dailycaller.com/2025/08/05/tru mp-admin-bars-visas-men-competing-womens-sports/](https://dailycaller.com/2025/08/05/trump-admin-bars-visas-men-competing-womens-sports/)
+- [13:35 UTC - Politically embattled Senator, Cryin’ Chuck Schumer, wants the Republicans to pay, as EXTO...](114982081738276986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982081738276986
+  - Politically embattled Senator, Cryin’ Chuck Schumer, wants the Republicans to pay, as EXTORTION, TWO BILLION DOLLARS in order for the Radical Left Democrats to approve the hundreds...
+- [13:22 UTC - 36 Club Championships!](114982029525531406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114982029525531406
+  - 36 Club Championships!
+- [03:51 UTC - Truth Social post 114979785051523536](114979785051523536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114979785051523536
+  - _No text content captured._
+- [03:50 UTC - Thank you Ken. Very nice!](114979780193413708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114979780193413708
+  - Thank you Ken. Very nice!
+- [00:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114979027654442708](114979028850117216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114979028850117216
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114979027654442708
+- [00:38 UTC - “ESTABLISHING THE WHITE HOUSE TASK FORCE ON THE 2028 SUMMER OLYMPICS” [https://www. whiteh...](114979027654442708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114979027654442708
+  - “ESTABLISHING THE WHITE HOUSE TASK FORCE ON THE 2028 SUMMER OLYMPICS” [https://www. whitehouse.gov/presidential-ac tions/2025/08/establishing-the-white-house-task-force-on-the-2028...

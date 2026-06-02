@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115049485680941254 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115049485680941254 -->
+<!-- date_published: 2025-08-18T11:17:13.747000+00:00 -->
+<!-- date_accessed: 2026-06-02T17:21:49.967313+00:00 -->
+
+# I am going to lead a movement to get rid of MAIL-IN BALLOTS, and also, while we’re at it, ...
+
+I am going to lead a movement to get rid of MAIL-IN BALLOTS, and also, while we’re at it, Highly “Inaccurate,” Very Expensive, and Seriously Controversial VOTING MACHINES, which cost Ten Times more than accurate and sophisticated Watermark Paper, which is faster, and leaves NO DOUBT, at the end of the evening, as to who WON, and who LOST, the Election. We are now the only Country in the World that uses Mail-In Voting. All others gave it up because of the MASSIVE VOTER FRAUD ENCOUNTERED. WE WILL BEGIN THIS EFFORT, WHICH WILL BE STRONGLY OPPOSED BY THE DEMOCRATS BECAUSE THEY CHEAT AT LEVELS NEVER SEEN BEFORE, by signing an EXECUTIVE ORDER to help bring HONESTY to the 2026 Midterm Elections. Remember, the States are merely an “agent” for the Federal Government in counting and tabulating the votes. They must do what the Federal Government, as represented by the President of the United States, tells them, FOR THE GOOD OF OUR COUNTRY, to do. With their HORRIBLE Radical Left policies, like Open Borders, Men Playing in Women’s Sports, Transgender and “WOKE” for everyone, and so much more, Democrats are virtually Unelectable without using this completely disproven Mail-In SCAM. ELECTIONS CAN NEVER BE HONEST WITH MAIL IN BALLOTS/VOTING, and everybody, IN PARTICULAR THE DEMOCRATS, KNOWS THIS. I, AND THE REPUBLICAN PARTY, WILL FIGHT LIKE HELL TO BRING HONESTY AND INTEGRITY BACK TO OUR ELECTIONS. THE MAIL-IN BALLOT HOAX, USING VOTING MACHINES THAT ARE A COMPLETE AND TOTAL DISASTER, MUST END, NOW!!! REMEMBER, WITHOUT FAIR AND HONEST ELECTIONS, AND STRONG AND POWERFUL BORDERS, YOU DON’T HAVE EVEN A SEMBLANCE OF A COUNTRY. THANK YOU FOR YOUR ATTENTION TO THIS MATTER!!! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES OF AMERICA

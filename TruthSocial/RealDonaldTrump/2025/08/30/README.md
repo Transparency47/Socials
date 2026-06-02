@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2025-08-30
+
+- Posts: 26
+
+- [22:27 UTC - DC is virtually, in just 14 days, a CRIME FREE ZONE. The people living and working there a...](115120067667186412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120067667186412
+  - DC is virtually, in just 14 days, a CRIME FREE ZONE. The people living and working there are ecstatic!!! President DJT
+- [22:19 UTC - Six people were killed, and 24 people were shot, in Chicago last weekend, and JB Pritzker,...](115120036321239638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115120036321239638
+  - Six people were killed, and 24 people were shot, in Chicago last weekend, and JB Pritzker, the weak and pathetic Governor of Illinois, just said that he doesn’t need help in preven...
+- [22:00 UTC - [https:// x.com/florintruth/status/19619 10701125165161?s=12](https://x.com/florintruth/st...](115119962578158249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119962578158249
+  - [https:// x.com/florintruth/status/19619 10701125165161?s=12](https://x.com/florintruth/status/1961910701125165161?s=12)
+- [21:53 UTC - [https:// x.com/patriot6962/status/19034 00696717701378?s=12](https://x.com/patriot6962/st...](115119936158265299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119936158265299
+  - [https:// x.com/patriot6962/status/19034 00696717701378?s=12](https://x.com/patriot6962/status/1903400696717701378?s=12) . THIS IS RATHER INCREDIBLE. WHO DID IT??? PRESIDENT DJT
+- [21:50 UTC - [https:// x.com/patriot6962/status/19588 66171941241287?s=12](https://x.com/patriot6962/st...](115119924274127753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119924274127753
+  - [https:// x.com/patriot6962/status/19588 66171941241287?s=12](https://x.com/patriot6962/status/1958866171941241287?s=12)
+- [21:40 UTC - [https:// x.com/patriot6962/status/19034 00696717701378?s=12](https://x.com/patriot6962/st...](115119885961999051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119885961999051
+  - [https:// x.com/patriot6962/status/19034 00696717701378?s=12](https://x.com/patriot6962/status/1903400696717701378?s=12)
+- [21:37 UTC - [https:// x.com/gunthereagleman/status/1 961759387774591287?s=12](https://x.com/gunthereag...](115119870918389862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119870918389862
+  - [https:// x.com/gunthereagleman/status/1 961759387774591287?s=12](https://x.com/gunthereagleman/status/1961759387774591287?s=12)
+- [21:36 UTC - [https:// x.com/gatewaypundit/status/196 1769973711298767?s=12](https://x.com/gatewaypundi...](115119866549220928/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119866549220928
+  - [https:// x.com/gatewaypundit/status/196 1769973711298767?s=12](https://x.com/gatewaypundit/status/1961769973711298767?s=12)
+- [21:30 UTC - [https:// x.com/dogeai_gov/status/196158 4805490966842?s=12](https://x.com/dogeai_gov/stat...](115119846661336547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119846661336547
+  - [https:// x.com/dogeai_gov/status/196158 4805490966842?s=12](https://x.com/dogeai_gov/status/1961584805490966842?s=12)
+- [21:28 UTC - [https:// x.com/politicklenews/status/19 61585158970094017?s=12](https://x.com/politicklen...](115119836055324426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119836055324426
+  - [https:// x.com/politicklenews/status/19 61585158970094017?s=12](https://x.com/politicklenews/status/1961585158970094017?s=12)
+- [21:27 UTC - [https:// x.com/gunthereagleman/status/1 961584479673217302?s=12](https://x.com/gunthereag...](115119834639768486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119834639768486
+  - [https:// x.com/gunthereagleman/status/1 961584479673217302?s=12](https://x.com/gunthereagleman/status/1961584479673217302?s=12)
+- [21:26 UTC - [https:// x.com/johnstrandusa/status/196 1827055202361847?s=12](https://x.com/johnstrandus...](115119830694150294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119830694150294
+  - [https:// x.com/johnstrandusa/status/196 1827055202361847?s=12](https://x.com/johnstrandusa/status/1961827055202361847?s=12)
+- [20:49 UTC - [https:// x.com/eyesonliberty76/status/1 961636427650985998?s=12](https://x.com/eyesonlibe...](115119683938761745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119683938761745
+  - [https:// x.com/eyesonliberty76/status/1 961636427650985998?s=12](https://x.com/eyesonliberty76/status/1961636427650985998?s=12)
+- [20:44 UTC - [https:// x.com/snarky22shark/status/195 8617006757892590?s=12](https://x.com/snarky22shar...](115119665755074090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119665755074090
+  - [https:// x.com/snarky22shark/status/195 8617006757892590?s=12](https://x.com/snarky22shark/status/1958617006757892590?s=12)
+- [20:44 UTC - [https:// x.com/ebeth360/status/19585752 22069895545?s=12](https://x.com/ebeth360/status/1...](115119662831215503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119662831215503
+  - [https:// x.com/ebeth360/status/19585752 22069895545?s=12](https://x.com/ebeth360/status/1958575222069895545?s=12)
+- [20:43 UTC - [https:// x.com/eyesonliberty76/status/1 958577079408013786?s=12](https://x.com/eyesonlibe...](115119659914112970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119659914112970
+  - [https:// x.com/eyesonliberty76/status/1 958577079408013786?s=12](https://x.com/eyesonliberty76/status/1958577079408013786?s=12)
+- [19:53 UTC - [https:// dailycaller.com/2025/08/30/opi nion-dnc-and-mamdani-expose-the-coming-disaster-f...](115119464943186092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119464943186092
+  - [https:// dailycaller.com/2025/08/30/opi nion-dnc-and-mamdani-expose-the-coming-disaster-for-democrats-dave-bossie/](https://dailycaller.com/2025/08/30/opinion-dnc-and-mamdani-expo...
+- [19:40 UTC - [https://www. thegatewaypundit.com/2025/08/l etitia-james-caught-harboring-fugitive-jailbi...](115119413113277023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119413113277023
+  - [https://www. thegatewaypundit.com/2025/08/l etitia-james-caught-harboring-fugitive-jailbird-niece-is/](https://www.thegatewaypundit.com/2025/08/letitia-james-caught-harboring-fugi...
+- [19:02 UTC - Truth Social post 115119263613714098](115119263613714098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119263613714098
+  - _No text content captured._
+- [18:34 UTC - I used, at the White House, the most beautiful marble and stone available anywhere. Surfac...](115119151783895076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115119151783895076
+  - I used, at the White House, the most beautiful marble and stone available anywhere. Surfaces are very important to me as a Builder. As everyone knows, I built many GREAT Buildings,...
+- [17:16 UTC - Truth Social post 115118846474669640](115118846474669640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118846474669640
+  - _No text content captured._
+- [17:15 UTC - Truth Social post 115118842665396883](115118842665396883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118842665396883
+  - _No text content captured._
+- [17:14 UTC - Truth Social post 115118839360385323](115118839360385323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118839360385323
+  - _No text content captured._
+- [17:12 UTC - [https://www. washingtonexaminer.com/restori ng-america/courage-strength-optimism/3782918/...](115118831787836436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118831787836436
+  - [https://www. washingtonexaminer.com/restori ng-america/courage-strength-optimism/3782918/are-you-better-off-under-trump-answer-yes/](https://www.washingtonexaminer.com/restoring-a...
+- [17:11 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/labor-day-2025/](https://www.wh...](115118826884357437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118826884357437
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/labor-day-2025/](https://www.whitehouse.gov/presidential-actions/2025/08/labor-day-2025/)
+- [17:09 UTC - Secretary of Veterans Affairs, Doug Collins: “An average of 17 Veterans die by suicide eac...](115118817792640786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115118817792640786
+  - Secretary of Veterans Affairs, Doug Collins: “An average of 17 Veterans die by suicide each day, and that is 17 too many. If you’re a Veteran in crisis or concerned about one, cont...

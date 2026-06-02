@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-09-23
+
+- Posts: 12
+
+- [22:34 UTC - Truth Social post 115255993688845482](115255993688845482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255993688845482
+  - _No text content captured._
+- [21:30 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115255738716942949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255738716942949
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "Not only is the U.N. not solving the pro...
+- [21:29 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115255737765474303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255737765474303
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : In the event that Russia is not ready to...
+- [21:29 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115255737062768438/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255737062768438
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "My position is very simple: the world’s...
+- [21:29 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115255736160072070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255736160072070
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : In a period of just 7 months, I have ende...
+- [21:29 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115255735673394803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255735673394803
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) at the UN: One year ago, our country was in...
+- [19:46 UTC - [https:// rumble.com/v6zcs26-president-t rump-delivers-remarks-to-the-united-nations-gener...](115255332943579284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255332943579284
+  - [https:// rumble.com/v6zcs26-president-t rump-delivers-remarks-to-the-united-nations-general-assembly.html](https://rumble.com/v6zcs26-president-trump-delivers-remarks-to-the-unite...
+- [18:55 UTC - After getting to know and fully understand the Ukraine/Russia Military and Economic situat...](115255130298104593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255130298104593
+  - After getting to know and fully understand the Ukraine/Russia Military and Economic situation and, after seeing the Economic trouble it is causing Russia, I think Ukraine, with the...
+- [18:51 UTC - Congratulations to Attorney General Pam Bondi, Deputy Attorney General Todd Blanche, and t...](115255115250137156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115255115250137156
+  - Congratulations to Attorney General Pam Bondi, Deputy Attorney General Todd Blanche, and the entire DOJ team on the conviction, in Florida, of the person who attempted an assassina...
+- [16:26 UTC - Highly Respected President of Argentina, Javier Milei, has proven to be a truly fantastic ...](115254544745193117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115254544745193117
+  - Highly Respected President of Argentina, Javier Milei, has proven to be a truly fantastic and powerful Leader for the Great People of Argentina, advancing on all levels at record s...
+- [15:40 UTC - It was a great honor to speak before the United Nations. I believe the speech was very wel...](115254363337739989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115254363337739989
+  - It was a great honor to speak before the United Nations. I believe the speech was very well received. It focused very much on energy and migration/immigration. I have been talking...
+- [13:42 UTC - After reviewing the details of the unserious and ridiculous demands being made by the Mino...](115253901757845391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115253901757845391
+  - After reviewing the details of the unserious and ridiculous demands being made by the Minority Radical Left Democrats in return for their Votes to keep our thriving Country open, I...

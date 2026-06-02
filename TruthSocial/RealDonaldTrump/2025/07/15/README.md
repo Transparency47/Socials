@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-07-15
+
+- Posts: 17
+
+- [22:15 UTC - BIG WIN today in Florida State Court for powerhouse TRUTH Social! Fake claims against the ...](114859554812594090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114859554812594090
+  - BIG WIN today in Florida State Court for powerhouse TRUTH Social! Fake claims against the Company, and your favorite President, ME, were dismissed in a thoughtful and smart opinion...
+- [20:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114837554019633896 I am pleased...](114859213229042831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114859213229042831
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114837554019633896 I am pleased to announce that Salena just reached NUMBER ONE!
+- [19:32 UTC - Join me LIVE in Pittsburgh, Pennsylvania! [https://www. youtube.com/live/5N8iGKpU_-A?s i=F...](114858915682735686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114858915682735686
+  - Join me LIVE in Pittsburgh, Pennsylvania! [https://www. youtube.com/live/5N8iGKpU_-A?s i=FtKPtP54S67EfeEO](https://www.youtube.com/live/5N8iGKpU_-A?si=FtKPtP54S67EfeEO)
+- [18:48 UTC - Thank you to Ken Langone. Very nice!](114858743257523727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114858743257523727
+  - Thank you to Ken Langone. Very nice!
+- [18:09 UTC - To the many Great Americans enjoying their Summer Vacations in Atlantic City, Wildwood, an...](114858589852139958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114858589852139958
+  - To the many Great Americans enjoying their Summer Vacations in Atlantic City, Wildwood, and Cape May, in the wonderful State of New Jersey, overlooking the Atlantic Ocean: Remember...
+- [18:09 UTC - This morning I finalized an important Deal with the Republic of Indonesia after speaking w...](114858589029028619/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114858589029028619
+  - This morning I finalized an important Deal with the Republic of Indonesia after speaking with their Highly Respected President Prabowo Subianto. This landmark Deal opens up Indones...
+- [17:59 UTC - On my way to Pittsburgh, Pennsylvania…](114858547001755577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114858547001755577
+  - On my way to Pittsburgh, Pennsylvania…
+- [15:29 UTC - HAPPY CRYPTO WEEK! The House will soon VOTE on a tremendous Bill to Make America the UNDIS...](114857957325423668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857957325423668
+  - HAPPY CRYPTO WEEK! The House will soon VOTE on a tremendous Bill to Make America the UNDISPUTED, NUMBER ONE LEADER in Digital Assets - Nobody does it better! The GENIUS Act is goin...
+- [15:11 UTC - Just spoke to our Great Congressmen and women of Texas. One of them sent me my Results in ...](114857889773040947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857889773040947
+  - Just spoke to our Great Congressmen and women of Texas. One of them sent me my Results in Texas, and even I didn’t know how well I did, but here they are — Won by one and a half mi...
+- [15:02 UTC - Truth Social post 114857853214560315](114857853214560315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857853214560315
+  - _No text content captured._
+- [14:59 UTC - “America has the power to lead the AI revolution and the leadership to make it happen—Pres...](114857842089554705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857842089554705
+  - “America has the power to lead the AI revolution and the leadership to make it happen—President brings industry leaders to Pittsburgh to leverage natural gas for powering the next...
+- [14:58 UTC - Maria Bartiromo on today's inflation report: "You've got to look at this report as another...](114857835698390465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857835698390465
+  - Maria Bartiromo on today's inflation report: "You've got to look at this report as another victory for President Trump, who has focused on reining in inflation — and that’s what we...
+- [14:20 UTC - I have always suspected Shifty Adam Schiff was a scam artist. And now I learn that Fannie ...](114857687712359546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857687712359546
+  - I have always suspected Shifty Adam Schiff was a scam artist. And now I learn that Fannie Mae’s Financial Crimes Division have concluded that Adam Schiff has engaged in a sustained...
+- [14:08 UTC - Fed should cut Rates by 3 Points. Very Low Inflation. One Trillion Dollars a year would be...](114857639804190832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857639804190832
+  - Fed should cut Rates by 3 Points. Very Low Inflation. One Trillion Dollars a year would be saved!!!
+- [14:05 UTC - Truth Social post 114857627176417783](114857627176417783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857627176417783
+  - _No text content captured._
+- [14:02 UTC - Consumer Prices LOW. Bring down the Fed Rate, NOW!!!](114857617089281818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857617089281818
+  - Consumer Prices LOW. Bring down the Fed Rate, NOW!!!
+- [13:50 UTC - Great deal, for everybody, just made with Indonesia. I dealt directly with with their high...](114857569436636352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114857569436636352
+  - Great deal, for everybody, just made with Indonesia. I dealt directly with with their highly respected President. DETAILS TO FOLLOW!!!

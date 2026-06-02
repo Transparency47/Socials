@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-09-25
 
-- Posts: 11
+- Posts: 21
 
 - [23:38 UTC - Great Numbers came out today on the Economy (3.8%!), and the SUCCESS we are having, but ou...](115267566687091858/)
   - Source: https://truthsocial.com/@realDonaldTrump/115267566687091858
@@ -35,3 +35,33 @@
 - [21:59 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes ...](115267178422597085/)
   - Source: https://truthsocial.com/@realDonaldTrump/115267178422597085
   - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes the elite Marine Corps Silent Drill Platoon to the Oval Office, personally presenting each...
+- [15:32 UTC - New lobby leading to Oval Office — Magnificent marble floor, compliments of President Dona...](115265657211315840/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115265657211315840
+  - New lobby leading to Oval Office — Magnificent marble floor, compliments of President Donald J. Trump!
+- [13:51 UTC - What a great couple—Congratulations! President DJT](115265260242945334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115265260242945334
+  - What a great couple—Congratulations! President DJT
+- [13:45 UTC - RT [@ Rasmussen_Poll](https://truthsocial.com/@Rasmussen_Poll) Trump Overnight Presidentia...](115265235959919425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115265235959919425
+  - RT [@ Rasmussen_Poll](https://truthsocial.com/@Rasmussen_Poll) Trump Overnight Presidential Job Approval - is in Single overnight approval for last night: 57.11% His approval moves...
+- [12:14 UTC - Truth Social post 115264879838572893](115264879838572893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264879838572893
+  - _No text content captured._
+- [12:13 UTC - Truth Social post 115264874798270851](115264874798270851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264874798270851
+  - _No text content captured._
+- [12:13 UTC - Truth Social post 115264873993713646](115264873993713646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264873993713646
+  - _No text content captured._
+- [12:11 UTC - Truth Social post 115264867788479647](115264867788479647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264867788479647
+  - _No text content captured._
+- [12:11 UTC - Truth Social post 115264866817077198](115264866817077198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264866817077198
+  - _No text content captured._
+- [12:11 UTC - Truth Social post 115264865783562094](115264865783562094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264865783562094
+  - _No text content captured._
+- [12:06 UTC - Wow!!! A just out poll has Jack Ciattarelli essentially beating close to incompetent Mike ...](115264848871452989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115264848871452989
+  - Wow!!! A just out poll has Jack Ciattarelli essentially beating close to incompetent Mike Sherrill in the race for Governor of New Jersey. Jack is tough on crime and cutting taxes,...

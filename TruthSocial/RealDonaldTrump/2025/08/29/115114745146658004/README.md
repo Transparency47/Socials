@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115114745146658004
+- Post URL: https://truthsocial.com/@realDonaldTrump/115114745146658004
+- Title: RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) THE APPELLATE COURT MAJORITY ...
+- Date published: 2025-08-29T23:53:34.171000+00:00
+- Date accessed: 2026-06-02T17:14:28.423931+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 1
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12745088,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12745167,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34031,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@marklevinshow\" class=\"u-url mention\">@<span>marklevinshow</span></a></span>THE APPELLATE COURT MAJORITY TARIFF DECISION WAS WRONG</p><p>The appellate court majority that ruled against most of the president's tariffs has it wrong.  Whether you like tariffs or not, the act at issue does, in fact, grant the president broad powers to declare an emergency.  Even more, the Constitution, under Article II, grants the president broad powers to make foreign policy.  The president's lawyers are obviously aware of this, which is why the executive orders at issue rely, in part, on serious foreign policy considerations, including, as an example, Mexico, Canada, and China, which the president has determined are not doing enough to prevent the flow of deadly drugs into our country.  The combination of broad authority and Article II powers trump the issues raised by the court's majority.  Moreover, judges should not be the final decision-makers about such matters as they're exercising authority that was never delegated to them, and they should not substitute their own policy preferences for the president's.  The check here is Congress -- that is, if it wishes to amend the law or pass a new law curbing the president's power here.  That said, Congress does not have boundless power, and it could run into separation of powers issues, given Article II and the president's foreign policy authority.  The Supreme Court will, once again, rule on this.  In the past, Justices Thomas, Gorsuch, and Kavanaugh have noted the broad authority of the president in circumstances similar to this.  I expect Justice Alito would concur.  </p>",
+    "created_at": "2025-08-29T23:53:34.171Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 1,
+    "group": null,
+    "id": "115114745146658004",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": false,
+        "acct": "marklevinshow",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/809/721/243/372/667/original/3658389e3e7fad97.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/809/721/243/372/667/original/3658389e3e7fad97.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-16T21:09:59.183Z",
+        "discoverable": false,
+        "display_name": "Mark Levin",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 1497760,
+        "following_count": 2,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/809/721/243/372/667/original/8ead40d16b8eeba9.jpg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/809/721/243/372/667/original/8ead40d16b8eeba9.jpg",
+        "id": "107809721243372667",
+        "last_status_at": "2026-06-02",
+        "location": "Underground Bunker ",
+        "locked": false,
+        "note": "<p>THIS IS THE OFFICIAL MARK LEVIN SHOW TRUTH SOCIAL PAGE.<br/>DOWNLOAD MY PODCAST FOR FREE <a href=\"http://marklevinshow.com/audio-rewind\" rel=\"nofollow noopener noreferrer\" target=\"_blank\"><span class=\"invisible\">http://</span><span class=\"\">marklevinshow.com/audio-rewind</span><span class=\"invisible\"></span></a> Libertys Voice <a href=\"https://www.youtube.com/@libertysvoice\" rel=\"nofollow noopener noreferrer\" target=\"_blank\"><span class=\"invisible\">https://www.</span><span class=\"\">youtube.com/@libertysvoice</span><span class=\"invisible\"></span></a></p>",
+        "premium": false,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 19694,
+        "tv_account": false,
+        "tv_onboarded": true,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@marklevinshow",
+        "username": "marklevinshow",
+        "verified": true,
+        "website": "https://www.marklevinshow.com/links/"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>THE APPELLATE COURT MAJORITY TARIFF DECISION WAS WRONG</p><p>The appellate court majority that ruled against most of the president's tariffs has it wrong.  Whether you like tariffs or not, the act at issue does, in fact, grant the president broad powers to declare an emergency.  Even more, the Constitution, under Article II, grants the president broad powers to make foreign policy.  The president's lawyers are obviously aware of this, which is why the executive orders at issue rely, in part, on serious foreign policy considerations, including, as an example, Mexico, Canada, and China, which the president has determined are not doing enough to prevent the flow of deadly drugs into our country.  The combination of broad authority and Article II powers trump the issues raised by the court's majority.  Moreover, judges should not be the final decision-makers about such matters as they're exercising authority that was never delegated to them, and they should not substitute their own policy preferences for the president's.  The check here is Congress -- that is, if it wishes to amend the law or pass a new law curbing the president's power here.  That said, Congress does not have boundless power, and it could run into separation of powers issues, given Article II and the president's foreign policy authority.  The Supreme Court will, once again, rule on this.  In the past, Justices Thomas, Gorsuch, and Kavanaugh have noted the broad authority of the president in circumstances similar to this.  I expect Justice Alito would concur.  </p>",
+      "created_at": "2025-08-29T23:13:35.543Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 20889,
+      "group": null,
+      "id": "115114587950181071",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 5717,
+      "replies_count": 2003,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 20889,
+      "uri": "https://truthsocial.com/@marklevinshow/115114587950181071",
+      "url": "https://truthsocial.com/@marklevinshow/115114587950181071",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 1,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115114745146658004",
+    "url": "https://truthsocial.com/@realDonaldTrump/115114745146658004",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

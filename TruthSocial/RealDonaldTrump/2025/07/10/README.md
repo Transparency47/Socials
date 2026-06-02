@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-07-10
+
+- Posts: 14
+
+- [23:04 UTC - It is very important that all Republicans adhere to my Recissions Bill and, in particular,...](114831435031070955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114831435031070955
+  - It is very important that all Republicans adhere to my Recissions Bill and, in particular, DEFUND THE CORPORATION FOR PUBLIC BROADCASTING (PBS and NPR), which is worse than CNN & M...
+- [23:03 UTC - It is my Great Honor to nominate William W. Mercer to serve as Judge on the United States ...](114831433790826577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114831433790826577
+  - It is my Great Honor to nominate William W. Mercer to serve as Judge on the United States District Court for the District of Montana! Bill has TREMENDOUS experience, previously ser...
+- [21:35 UTC - I am pleased to announce that Nick Adams will be nominated as the next United States Ambas...](114831088465448187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114831088465448187
+  - I am pleased to announce that Nick Adams will be nominated as the next United States Ambassador to Malaysia. Nick is an incredible Patriot and very successful entrepreneur, whose l...
+- [14:54 UTC - Gregg Jarrett: “In a blockbuster report, the CIA has belatedly exposed the rank corruption...](114829511761589815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829511761589815
+  - Gregg Jarrett: “In a blockbuster report, the CIA has belatedly exposed the rank corruption among top intelligence officials who connived to frame President Donald Trump and drive h...
+- [14:41 UTC - “VIOLENT RHETORIC AGAINST ICE AGENTS…”](114829459123698934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829459123698934
+  - “VIOLENT RHETORIC AGAINST ICE AGENTS…”
+- [14:39 UTC - “A DAY LATE AND A DOLLAR SHORT…”](114829451788147674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829451788147674
+  - “A DAY LATE AND A DOLLAR SHORT…”
+- [14:37 UTC - “Too Late” DEMEANS THE GREAT CREDIT OF THE USA. We are now, again, the Number One Credit i...](114829442018326447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829442018326447
+  - “Too Late” DEMEANS THE GREAT CREDIT OF THE USA. We are now, again, the Number One Credit in the World! “Gigantic Comeback.” The Fed Rate should be reflective of this. We should be...
+- [14:28 UTC - Tech Stocks, Industrial Stocks, & NASDAQ, HIT ALL-TIME, RECORD HIGHS! CRYPTO, “Through the...](114829408208555940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829408208555940
+  - Tech Stocks, Industrial Stocks, & NASDAQ, HIT ALL-TIME, RECORD HIGHS! CRYPTO, “Through the Roof.” NVIDIA IS UP 47% SINCE TRUMP TARIFFS. USA is taking in Hundreds of Billions of Dol...
+- [13:13 UTC - The GREAT Gregg Jarrett: “It’s clear Trump was framed. The collusion narrative was a consp...](114829111657785430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114829111657785430
+  - The GREAT Gregg Jarrett: “It’s clear Trump was framed. The collusion narrative was a conspiracy itself. The collaborators knew it was a lie, but they manipulated the Dossier and th...
+- [00:29 UTC - I am pleased to announce that I am directing our GREAT Secretary of Transportation, Sean D...](114826109463640311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114826109463640311
+  - I am pleased to announce that I am directing our GREAT Secretary of Transportation, Sean Duffy, to be Interim Administrator of NASA. Sean is doing a TREMENDOUS job in handling our...
+- [00:29 UTC - I am announcing a 50% TARIFF on Copper, effective August 1, 2025, after receiving a robust...](114826107762484260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114826107762484260
+  - I am announcing a 50% TARIFF on Copper, effective August 1, 2025, after receiving a robust NATIONAL SECURITY ASSESSMENT. Copper is necessary for Semiconductors, Aircraft, Ships, Am...
+- [00:13 UTC - HAPPY BIRTHDAY TO SENATOR LINDSEY GRAHAM! He is always there when I need him, and I hope e...](114826044404420382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114826044404420382
+  - HAPPY BIRTHDAY TO SENATOR LINDSEY GRAHAM! He is always there when I need him, and I hope everyone in the Great State of South Carolina will help Lindsey have a BIG WIN in his Re-El...
+- [00:12 UTC - Senator Tom Cotton is working incredibly hard for the Great State of Arkansas, which I lov...](114826040324238044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114826040324238044
+  - Senator Tom Cotton is working incredibly hard for the Great State of Arkansas, which I love and WON BIG in 2016, 2020, and 2024. He loves the U.S.A., and is truly an American Patri...
+- [00:11 UTC - Senator Roger Marshall is an incredibly strong advocate for the wonderful people of Kansas...](114826039777950636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114826039777950636
+  - Senator Roger Marshall is an incredibly strong advocate for the wonderful people of Kansas, a State I love, and WON BIG, in 2016, 2020, and 2024! A distinguished Medical Doctor and...

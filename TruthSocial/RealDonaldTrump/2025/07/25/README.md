@@ -1,0 +1,79 @@
+# TruthSocial / RealDonaldTrump / 2025-07-25
+
+- Posts: 25
+
+- [23:56 UTC - I’m in Scotland now. Many meetings planned!!!](114916575834000041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114916575834000041
+  - I’m in Scotland now. Many meetings planned!!!
+- [23:48 UTC - [https://www. newsmax.com/politics/poll-dona ld-trump-economy/2025/07/25/id/1220069/](http...](114916546140102852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114916546140102852
+  - [https://www. newsmax.com/politics/poll-dona ld-trump-economy/2025/07/25/id/1220069/](https://www.newsmax.com/politics/poll-donald-trump-economy/2025/07/25/id/1220069/)
+- [23:48 UTC - Truth Social post 114916545176585935](114916545176585935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114916545176585935
+  - _No text content captured._
+- [23:43 UTC - “FIREAID” IS A TOTAL DISASTER. LOOKS LIKE ANOTHER DEMOCRAT INSPIRED SCAM. 100 MILLION DOLL...](114916524424194175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114916524424194175
+  - “FIREAID” IS A TOTAL DISASTER. LOOKS LIKE ANOTHER DEMOCRAT INSPIRED SCAM. 100 MILLION DOLLARS IS MISSING. WAS SUPPOSED TO TO GO TO THE LOS ANGELES FIRE VICTIMS, FIRES THAT, WITH PR...
+- [20:35 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/07/saving-college-sports/](https:/...](114915785741053341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915785741053341
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/07/saving-college-sports/](https://www.whitehouse.gov/presidential-actions/2025/07/saving-college-sports/)
+- [20:28 UTC - Truth Social post 114915757983432829](114915757983432829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915757983432829
+  - _No text content captured._
+- [20:28 UTC - Truth Social post 114915757353144117](114915757353144117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915757353144117
+  - _No text content captured._
+- [20:28 UTC - Truth Social post 114915756503160211](114915756503160211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915756503160211
+  - _No text content captured._
+- [20:27 UTC - Truth Social post 114915755720450146](114915755720450146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915755720450146
+  - _No text content captured._
+- [20:27 UTC - Truth Social post 114915754891421998](114915754891421998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915754891421998
+  - _No text content captured._
+- [20:27 UTC - Truth Social post 114915753520014880](114915753520014880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915753520014880
+  - _No text content captured._
+- [20:27 UTC - Truth Social post 114915752765600863](114915752765600863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915752765600863
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 114915751183283946](114915751183283946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915751183283946
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 114915750404308994](114915750404308994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915750404308994
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 114915749555872742](114915749555872742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915749555872742
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 114915748755013661](114915748755013661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915748755013661
+  - _No text content captured._
+- [20:25 UTC - Truth Social post 114915747900947797](114915747900947797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915747900947797
+  - _No text content captured._
+- [20:25 UTC - Truth Social post 114915746925406855](114915746925406855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915746925406855
+  - _No text content captured._
+- [18:04 UTC - Truth Social post 114915192081712473](114915192081712473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114915192081712473
+  - _No text content captured._
+- [16:40 UTC - WOW! Record setting “stuff.” [https://www. newsmax.com/politics/poll-dona ld-trump-economy...](114914859685995338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114914859685995338
+  - WOW! Record setting “stuff.” [https://www. newsmax.com/politics/poll-dona ld-trump-economy/2025/07/25/id/1220069/](https://www.newsmax.com/politics/poll-donald-trump-economy/2025/0...
+- [14:27 UTC - Australia to take U.S. BEEF for first time. A very BIG market. I hope our GREAT FARMERS AR...](114914339003272307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114914339003272307
+  - Australia to take U.S. BEEF for first time. A very BIG market. I hope our GREAT FARMERS ARE HAPPY. MAKE AMERICA GREAT AGAIN!!!
+- [03:32 UTC - WHAT A GREAT FAMILY, WOW!!!](114911764279724622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114911764279724622
+  - WHAT A GREAT FAMILY, WOW!!!
+- [00:52 UTC - The Radical Left Democrats are doing everything in their power to distract and obfuscate f...](114911132620191745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114911132620191745
+  - The Radical Left Democrats are doing everything in their power to distract and obfuscate from our GREAT six months of service to America, results of which many are saying is the BE...
+- [00:36 UTC - To the Great People of North Carolina, one of the most capable executives in our Country s...](114911072057863888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114911072057863888
+  - To the Great People of North Carolina, one of the most capable executives in our Country successfully ran, along with Lara Trump, the Republican National Committee. He happens to l...
+- [00:14 UTC - Congressman Bill Huizenga is a Tremendous Champion, and Highly Effective Representative, f...](114910985530072276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114910985530072276
+  - Congressman Bill Huizenga is a Tremendous Champion, and Highly Effective Representative, for the incredible people of Michigan's 4th Congressional District! As a very successful Sm...

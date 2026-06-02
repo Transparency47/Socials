@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-08-25
+
+- Posts: 20
+
+- [20:58 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/taking-steps-to-end-cashless-ba...](115091409279960691/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115091409279960691
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/taking-steps-to-end-cashless-bail-to-protect-americans/](https://www.whitehouse.gov/presidential-actions/2025/08/taking-s...
+- [20:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115091353360343813 This is a ve...](115091405547047211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115091405547047211
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115091353360343813 This is a very special group of people who I have been with from the beginning…
+- [20:44 UTC - Truth Social post 115091353360343813](115091353360343813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115091353360343813
+  - _No text content captured._
+- [17:03 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115090458296153017](115090484564215860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090484564215860
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115090458296153017
+- [16:57 UTC - Live in the Oval Office: [https://www. youtube.com/live/mRBy-v6mn08?s i=cedriccsmuxJKwPf](...](115090458296153017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090458296153017
+  - Live in the Oval Office: [https://www. youtube.com/live/mRBy-v6mn08?s i=cedriccsmuxJKwPf](https://www.youtube.com/live/mRBy-v6mn08?si=cedriccsmuxJKwPf)
+- [16:47 UTC - Truth Social post 115090419402034936](115090419402034936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090419402034936
+  - _No text content captured._
+- [16:46 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/prosecuting-burning-of-the-amer...](115090417485938276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090417485938276
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/prosecuting-burning-of-the-american-flag/](https://www.whitehouse.gov/presidential-actions/2025/08/prosecuting-burning-of...
+- [16:46 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/taking-steps-to-end-cashless-ba...](115090415354986665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090415354986665
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/taking-steps-to-end-cashless-bail-to-protect-americans/](https://www.whitehouse.gov/presidential-actions/2025/08/taking-s...
+- [16:45 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/additional-measures-to-address-...](115090412835301856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090412835301856
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/additional-measures-to-address-the-crime-emergency-in-the-district-of-columbia/](https://www.whitehouse.gov/presidential-...
+- [16:44 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/prosecuting-burning-of-the-amer...](115090409314263578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090409314263578
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/prosecuting-burning-of-the-american-flag/](https://www.whitehouse.gov/presidential-actions/2025/08/prosecuting-burning-of...
+- [16:41 UTC - Truth Social post 115090396320880966](115090396320880966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090396320880966
+  - _No text content captured._
+- [15:33 UTC - [https://www. youtube.com/live/rlPfxyCnxHg?s i=J5CXomQHUsOIvUlO](https://www.youtube.com/l...](115090130584962869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115090130584962869
+  - [https://www. youtube.com/live/rlPfxyCnxHg?s i=J5CXomQHUsOIvUlO](https://www.youtube.com/live/rlPfxyCnxHg?si=J5CXomQHUsOIvUlO)
+- [13:20 UTC - WHAT IS GOING ON IN SOUTH KOREA? Seems like a Purge or Revolution. We can’t have that and ...](115089605510353605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115089605510353605
+  - WHAT IS GOING ON IN SOUTH KOREA? Seems like a Purge or Revolution. We can’t have that and do business there. I am seeing the new President today at the White House. Thank you for y...
+- [13:14 UTC - I PAID ZERO FOR INTEL, IT IS WORTH APPROXIMATELY 11 BILLION DOLLARS. All goes to the USA. ...](115089582863713336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115089582863713336
+  - I PAID ZERO FOR INTEL, IT IS WORTH APPROXIMATELY 11 BILLION DOLLARS. All goes to the USA. Why are “stupid” people unhappy with that? I will make deals like that for our Country all...
+- [12:42 UTC - The incompetent Mayor of Chicago just stated that, in DC, where crime has been brought dow...](115089457027851323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115089457027851323
+  - The incompetent Mayor of Chicago just stated that, in DC, where crime has been brought down to almost nothing, there have been no murders in 9 days, something which hasn’t happened...
+- [02:58 UTC - Why is it that ABC and NBC FAKE NEWS, two of the absolute worst and most biased networks a...](115087160158530143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115087160158530143
+  - Why is it that ABC and NBC FAKE NEWS, two of the absolute worst and most biased networks anywhere in the World, aren’t paying Millions of Dollars a year in LICENSE FEES. They shoul...
+- [01:59 UTC - Despite a very high popularity and, according to many, among the greatest 8 months in Pres...](115086929873163909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115086929873163909
+  - Despite a very high popularity and, according to many, among the greatest 8 months in Presidential History, ABC & NBC FAKE NEWS, two of the worst and most biased networks in histor...
+- [01:46 UTC - Except what is written and broadcast in the Fake News, I now have the highest poll numbers...](115086877071260300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115086877071260300
+  - Except what is written and broadcast in the Fake News, I now have the highest poll numbers I’ve ever had, some in the 60’s and even 70’s. Thank you. MAKE AMERICA GREAT AGAIN!!!
+- [01:00 UTC - I have a Constitutional Right to appoint Judges and U.S. Attorneys, but that RIGHT has bee...](115086695163847248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115086695163847248
+  - I have a Constitutional Right to appoint Judges and U.S. Attorneys, but that RIGHT has been completely taken away from me in States that have just one Democrat United States Senato...
+- [00:26 UTC - I just watched Sloppy Chris Christie be interviewed on a ratings challenged “News” Show, “...](115086563627159779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115086563627159779
+  - I just watched Sloppy Chris Christie be interviewed on a ratings challenged “News” Show, “This Week With George Slopadopolus,” on ABC Fake News (By the way, what the “hell” happene...

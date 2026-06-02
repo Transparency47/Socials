@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2025-07-20
+
+- Posts: 35
+
+- [23:56 UTC - HOW DID SAMANTHA POWER MAKE ALL OF THAT MONEY???](114888263063561606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888263063561606
+  - HOW DID SAMANTHA POWER MAKE ALL OF THAT MONEY???
+- [23:55 UTC - [https:// oig.justice.gov/reports/2019/o 1902.pdf](https://oig.justice.gov/reports/2019/o1...](114888261207802647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888261207802647
+  - [https:// oig.justice.gov/reports/2019/o 1902.pdf](https://oig.justice.gov/reports/2019/o1902.pdf)
+- [23:53 UTC - Watch Mark Levin on FoxNews! NOW!!!](114888253428431066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888253428431066
+  - Watch Mark Levin on FoxNews! NOW!!!
+- [23:45 UTC - Truth Social post 114888219088263084](114888219088263084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888219088263084
+  - _No text content captured._
+- [23:01 UTC - Truth Social post 114888049356639230](114888049356639230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888049356639230
+  - _No text content captured._
+- [22:59 UTC - Truth Social post 114888040876029481](114888040876029481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888040876029481
+  - _No text content captured._
+- [22:59 UTC - Truth Social post 114888039819743609](114888039819743609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888039819743609
+  - _No text content captured._
+- [22:59 UTC - Truth Social post 114888038444665064](114888038444665064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888038444665064
+  - _No text content captured._
+- [22:58 UTC - Truth Social post 114888035401340357](114888035401340357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888035401340357
+  - _No text content captured._
+- [22:58 UTC - Truth Social post 114888034840500453](114888034840500453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888034840500453
+  - _No text content captured._
+- [22:52 UTC - Truth Social post 114888014165855771](114888014165855771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888014165855771
+  - _No text content captured._
+- [22:50 UTC - “Greatest Bitcoin explanation of all time”](114888005422699333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114888005422699333
+  - “Greatest Bitcoin explanation of all time”
+- [22:49 UTC - Truth Social post 114887999995033128](114887999995033128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887999995033128
+  - _No text content captured._
+- [22:47 UTC - Truth Social post 114887992924632896](114887992924632896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887992924632896
+  - _No text content captured._
+- [22:46 UTC - Truth Social post 114887988928438128](114887988928438128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887988928438128
+  - _No text content captured._
+- [22:46 UTC - Truth Social post 114887987160672735](114887987160672735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887987160672735
+  - _No text content captured._
+- [19:37 UTC - The Wall Street Journal ran a typically untruthful story today by saying that Secretary of...](114887244433511273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887244433511273
+  - The Wall Street Journal ran a typically untruthful story today by saying that Secretary of the Treasury, Scott Bessent, explained to me that firing Jerome “Too Late” Powell, the Wo...
+- [19:35 UTC - My statement on the Washington Redskins has totally blown up, but only in a very positive ...](114887236310446076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887236310446076
+  - My statement on the Washington Redskins has totally blown up, but only in a very positive way. I may put a restriction on them that if they don’t change the name back to the origin...
+- [19:34 UTC - Truth Social post 114887232223355661](114887232223355661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887232223355661
+  - _No text content captured._
+- [19:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114885422115933668](114887226633459338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887226633459338
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114885422115933668
+- [19:31 UTC - Last night, in New York City, an incredible CBP Officer was shot in the face by an Illegal...](114887221069099658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114887221069099658
+  - Last night, in New York City, an incredible CBP Officer was shot in the face by an Illegal Alien Monster freed into the Country under Joe Biden. He was apprehended at the Border in...
+- [18:03 UTC - Adam Schiff is a THIEF! He should be prosecuted, just like they tried to prosecute me, and...](114886877289379131/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114886877289379131
+  - Adam Schiff is a THIEF! He should be prosecuted, just like they tried to prosecute me, and everyone else — The only difference is, WE WERE TOTALLY INNOCENT, IT WAS ALL A GIANT HOAX...
+- [18:00 UTC - Congratulations to William J. Pulte, Chairman of Fannie Mae and Freddie Mac, and Director ...](114886865806490349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114886865806490349
+  - Congratulations to William J. Pulte, Chairman of Fannie Mae and Freddie Mac, and Director of the Federal Housing Finance Agency, on the outstanding job he is doing. KEEP MOVING FOR...
+- [14:56 UTC - “In the months leading up to the November 2016 election, the Intelligence Community agreed...](114886140818665946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114886140818665946
+  - “In the months leading up to the November 2016 election, the Intelligence Community agreed that there was no Intelligence that reflected that Russia was trying to hack the election...
+- [14:51 UTC - “It's worse than even politicization of intelligence; it was manufactured intelligence tha...](114886122800161990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114886122800161990
+  - “It's worse than even politicization of intelligence; it was manufactured intelligence that sought to achieve President Obama's and his team's objective, which was undermining Pres...
+- [14:17 UTC - The Washington “Whatever’s” should IMMEDIATELY change their name back to the Washington Re...](114885987478070699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114885987478070699
+  - The Washington “Whatever’s” should IMMEDIATELY change their name back to the Washington Redskins Football Team. There is a big clamoring for this. Likewise, the Cleveland Indians,...
+- [13:06 UTC - I will try to save them, starting right now. [https:// justthenews.com/world/middle-e ast/...](114885709058497784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114885709058497784
+  - I will try to save them, starting right now. [https:// justthenews.com/world/middle-e ast/lara-logan-piece](https://justthenews.com/world/middle-east/lara-logan-piece)
+- [12:07 UTC - My Poll Numbers within the Republican Party, and MAGA, have gone up, significantly, since ...](114885474879269820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114885474879269820
+  - My Poll Numbers within the Republican Party, and MAGA, have gone up, significantly, since the Jeffrey Epstein Hoax was exposed by the Radical Left Democrats and, just plain “troubl...
+- [11:53 UTC - Wow, time flies! Today is that Sixth Month Anniversary of my Second Term. Importantly, it’...](114885422115933668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114885422115933668
+  - Wow, time flies! Today is that Sixth Month Anniversary of my Second Term. Importantly, it’s being hailed as one of the most consequential periods of any President. In other words,...
+- [02:07 UTC - "BLOCKBUSTER SCANDAL"](114883115543279223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114883115543279223
+  - "BLOCKBUSTER SCANDAL"
+- [02:05 UTC - Truth Social post 114883109373789134](114883109373789134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114883109373789134
+  - _No text content captured._
+- [02:04 UTC - [https://www. breitbart.com/politics/2025/07 /18/gop-erupts-after-gabbard-exposes-obama-ad...](114883106649182145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114883106649182145
+  - [https://www. breitbart.com/politics/2025/07 /18/gop-erupts-after-gabbard-exposes-obama-admins-treasonous-intel-plot-framing-trump-makes-watergate-look-like-amateur-hour/](https://...
+- [02:04 UTC - [https://www. breitbart.com/clips/2025/07/19 /gabbard-we-referred-obama-russia-docs-to-doj...](114883105341500052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114883105341500052
+  - [https://www. breitbart.com/clips/2025/07/19 /gabbard-we-referred-obama-russia-docs-to-doj/](https://www.breitbart.com/clips/2025/07/19/gabbard-we-referred-obama-russia-docs-to-doj...
+- [02:03 UTC - Truth Social post 114883099938394319](114883099938394319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114883099938394319
+  - _No text content captured._
+- [00:54 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-how-obama-cronies-created-trump-russia-ho...](114882829212997531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882829212997531
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-how-obama-cronies-created-trump-russia-hoax-what-happens-next](https://www.foxnews.com/opinion/gregg-jarrett-how-obama-cronies-crea...

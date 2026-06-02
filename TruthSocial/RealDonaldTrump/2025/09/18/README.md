@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-09-18
+
+- Posts: 13
+
+- [23:45 UTC - Truth Social post 115227959567944482](115227959567944482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227959567944482
+  - _No text content captured._
+- [23:23 UTC - "On 27 August, the U.S. Military Academy at West Point reinstalled the nearly 20ft canvas ...](115227872322760999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227872322760999
+  - "On 27 August, the U.S. Military Academy at West Point reinstalled the nearly 20ft canvas portrait of Confederate General Robert E. Lee at the West Point Library on campus. The pai...
+- [23:22 UTC - Ilhan Omar’s Country of Somalia is plagued by a lack of central Government control, persis...](115227870570776224/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227870570776224
+  - Ilhan Omar’s Country of Somalia is plagued by a lack of central Government control, persistent Poverty, Hunger, Resurgent Terrorism, Piracy, decades of Civil War, Corruption, and p...
+- [22:11 UTC - Does Ilhan Omar know these people? Are they from her wonderfully managed Home Country of S...](115227590551904968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227590551904968
+  - Does Ilhan Omar know these people? Are they from her wonderfully managed Home Country of Somalia?
+- [22:06 UTC - Our Raid on Chicago Illegals??? MAKE CHICAGO GREAT AGAIN!](115227570336805813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227570336805813
+  - Our Raid on Chicago Illegals??? MAKE CHICAGO GREAT AGAIN!
+- [21:39 UTC - [https://www. thegatewaypundit.com/2025/09/a bove-law-landlord-letitia-james-caught-violat...](115227465599554149/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227465599554149
+  - [https://www. thegatewaypundit.com/2025/09/a bove-law-landlord-letitia-james-caught-violating-new/](https://www.thegatewaypundit.com/2025/09/above-law-landlord-letitia-james-caught...
+- [21:33 UTC - From Great Republican Congressman Juan Ciscomani: “Hello Mr. President - this is Juan Cisc...](115227439432496065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227439432496065
+  - From Great Republican Congressman Juan Ciscomani: “Hello Mr. President - this is Juan Ciscomani from AZ-06. Love what you’re doing oversees!  Wanted to let you know that 19 years a...
+- [21:23 UTC - “Days before fatal Mag Mile crash-and-grab, accused man posed with governor at ‘peacekeepe...](115227402361307056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227402361307056
+  - “Days before fatal Mag Mile crash-and-grab, accused man posed with governor at ‘peacekeeper’ event — while wanted in 4 states” [https:// cwbchicago.com/2025/09/days-be fore-fatal-m...
+- [21:21 UTC - Jimmy Kimmel, just before announcement of the Best Picture of the Year, felt that he had t...](115227391845966364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227391845966364
+  - Jimmy Kimmel, just before announcement of the Best Picture of the Year, felt that he had to respond to a TRUTH put out by me toward the end of the Show. He made a total FOOL of him...
+- [21:05 UTC - TOMORROW, House Republicans are taking a very important Vote to pass a CLEAN TEMPORARY FUN...](115227330235996125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115227330235996125
+  - TOMORROW, House Republicans are taking a very important Vote to pass a CLEAN TEMPORARY FUNDING BILL. The Leader of the Democrats, Cryin’ Chuck Schumer, wants to shut the Government...
+- [18:36 UTC - Truth Social post 115226746216038135](115226746216038135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115226746216038135
+  - _No text content captured._
+- [00:26 UTC - I am pleased to inform our many U.S.A. Patriots that I am designating ANTIFA, A SICK, DANG...](115222459539841970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115222459539841970
+  - I am pleased to inform our many U.S.A. Patriots that I am designating ANTIFA, A SICK, DANGEROUS, RADICAL LEFT DISASTER, AS A MAJOR TERRORIST ORGANIZATION. I will also be strongly r...
+- [00:04 UTC - Great News for America: The ratings challenged Jimmy Kimmel Show is CANCELLED. Congratulat...](115222372625104790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115222372625104790
+  - Great News for America: The ratings challenged Jimmy Kimmel Show is CANCELLED. Congratulations to ABC for finally having the courage to do what had to be done. Kimmel has ZERO tale...

@@ -1,0 +1,112 @@
+# TruthSocial / RealDonaldTrump / 2025-09-04
+
+- Posts: 36
+
+- [23:35 UTC - From a Delta Captain: "I thought you would get a kick out of this. Delta’s official memo t...](115148649416502990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115148649416502990
+  - From a Delta Captain: "I thought you would get a kick out of this. Delta’s official memo to employees. Big changes Gulf of Mexico to Gulf of America. And the liberals thought Notic...
+- [22:21 UTC - Truth Social post 115148357751898958](115148357751898958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115148357751898958
+  - _No text content captured._
+- [21:28 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/09/implementing-the-united-states-...](115148146712938038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115148146712938038
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/09/implementing-the-united-states-japan-agreement/](https://www.whitehouse.gov/presidential-actions/2025/09/implementing-the...
+- [19:39 UTC - Truth Social post 115147720861616435](115147720861616435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147720861616435
+  - _No text content captured._
+- [19:39 UTC - Truth Social post 115147720112978156](115147720112978156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147720112978156
+  - _No text content captured._
+- [19:38 UTC - Truth Social post 115147717442227105](115147717442227105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147717442227105
+  - _No text content captured._
+- [19:38 UTC - Truth Social post 115147716501809338](115147716501809338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147716501809338
+  - _No text content captured._
+- [19:38 UTC - [https:// nypost.com/2025/08/16/us-news/ nfls-washington-redskins-should-restore-name-logo...](115147715107379808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147715107379808
+  - [https:// nypost.com/2025/08/16/us-news/ nfls-washington-redskins-should-restore-name-logo-white-calf-family/](https://nypost.com/2025/08/16/us-news/nfls-washington-redskins-should...
+- [19:37 UTC - [https:// nypost.com/2025/08/16/opinion/ insane-energy-policies-are-set-to-burn-democrats-...](115147714017953758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147714017953758
+  - [https:// nypost.com/2025/08/16/opinion/ insane-energy-policies-are-set-to-burn-democrats-in-new-jersey-new-york/](https://nypost.com/2025/08/16/opinion/insane-energy-policies-are-...
+- [19:37 UTC - [https://www. foxnews.com/politics/over-100k -americans-rush-join-trumps-massive-ice-hirin...](115147712523063491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147712523063491
+  - [https://www. foxnews.com/politics/over-100k -americans-rush-join-trumps-massive-ice-hiring-spree-nationwide-dhs-says](https://www.foxnews.com/politics/over-100k-americans-rush-joi...
+- [19:37 UTC - [https:// thehill.com/opinion/national-s ecurity/5468893-john-bolton-cashed-in-and-america...](115147711409856134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147711409856134
+  - [https:// thehill.com/opinion/national-s ecurity/5468893-john-bolton-cashed-in-and-america-paid-the-price/](https://thehill.com/opinion/national-security/5468893-john-bolton-cashed...
+- [19:37 UTC - [https://www. foxnews.com/politics/witkoff-m eets-ukraine-officials-new-york-ahead-emergen...](115147710459645408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147710459645408
+  - [https://www. foxnews.com/politics/witkoff-m eets-ukraine-officials-new-york-ahead-emergency-un-security-council-meeting-very-productive](https://www.foxnews.com/politics/witkoff-m...
+- [19:36 UTC - [https://www. washingtonexaminer.com/restori ng-america/patriotism-unity/3760381/trump-smi...](115147706849930892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147706849930892
+  - [https://www. washingtonexaminer.com/restori ng-america/patriotism-unity/3760381/trump-smithsonian-review-is-long-overdue/](https://www.washingtonexaminer.com/restoring-america/pat...
+- [19:27 UTC - Truth Social post 115147672931327306](115147672931327306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115147672931327306
+  - _No text content captured._
+- [15:02 UTC - Truth Social post 115146631420931783](115146631420931783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115146631420931783
+  - _No text content captured._
+- [14:31 UTC - [https://www. whitehouse.gov/articles/2025/0 9/winning-streak-record-breaking-tariffs-bord...](115146507881082331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115146507881082331
+  - [https://www. whitehouse.gov/articles/2025/0 9/winning-streak-record-breaking-tariffs-border-security-and-safer-cities/](https://www.whitehouse.gov/articles/2025/09/winning-streak-...
+- [13:31 UTC - Truth Social post 115146271323799799](115146271323799799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115146271323799799
+  - _No text content captured._
+- [12:46 UTC - Truth Social post 115146094163166255](115146094163166255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115146094163166255
+  - _No text content captured._
+- [04:28 UTC - United States Attorney for the District of Columbia, Jeanine Pirro: “You are looking at th...](115144139539095661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115144139539095661
+  - United States Attorney for the District of Columbia, Jeanine Pirro: “You are looking at the largest seizure of precursor chemicals used to manufacture methamphetamine in U.S. histo...
+- [04:26 UTC - Truth Social post 115144128369424802](115144128369424802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115144128369424802
+  - _No text content captured._
+- [04:22 UTC - [https://www. cbsnews.com/news/trump-committ ed-to-russia-ukraine-peace-deal/](https://www...](115144112422142711/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115144112422142711
+  - [https://www. cbsnews.com/news/trump-committ ed-to-russia-ukraine-peace-deal/](https://www.cbsnews.com/news/trump-committed-to-russia-ukraine-peace-deal/)
+- [04:20 UTC - Stephen Miller: "They (criminals in Democrat-run cities) are never kept in jail...A small ...](115144108080211609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115144108080211609
+  - Stephen Miller: "They (criminals in Democrat-run cities) are never kept in jail...A small percentage of the population that are serial criminal killers, gangbangers, hoodlums, and...
+- [04:13 UTC - The Mayor and Governor should be begging me for help. Crime is out of control in Chicago, ...](115144078281517668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115144078281517668
+  - The Mayor and Governor should be begging me for help. Crime is out of control in Chicago, potentially one of the greatest cities in the World (Again!). I could fix it in one month!...
+- [02:28 UTC - Truth Social post 115143664986776370](115143664986776370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143664986776370
+  - _No text content captured._
+- [02:27 UTC - Truth Social post 115143662429499960](115143662429499960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143662429499960
+  - _No text content captured._
+- [02:25 UTC - Truth Social post 115143655123481643](115143655123481643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143655123481643
+  - _No text content captured._
+- [02:23 UTC - Truth Social post 115143647388212083](115143647388212083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143647388212083
+  - _No text content captured._
+- [02:23 UTC - Truth Social post 115143645294071041](115143645294071041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143645294071041
+  - _No text content captured._
+- [02:21 UTC - Truth Social post 115143636918260509](115143636918260509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143636918260509
+  - _No text content captured._
+- [02:20 UTC - Truth Social post 115143635413560059](115143635413560059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143635413560059
+  - _No text content captured._
+- [02:18 UTC - Truth Social post 115143628007589229](115143628007589229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143628007589229
+  - _No text content captured._
+- [02:07 UTC - Truth Social post 115143582465780366](115143582465780366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143582465780366
+  - _No text content captured._
+- [01:43 UTC - As previously mentioned, we are giving serious thought to taking away Rosie O’Donnell’s Ci...](115143490689155283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143490689155283
+  - As previously mentioned, we are giving serious thought to taking away Rosie O’Donnell’s Citizenship. She is not a Great American and is, in my opinion, incapable of being so!
+- [01:21 UTC - Truth Social post 115143400580589380](115143400580589380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143400580589380
+  - _No text content captured._
+- [01:20 UTC - SSA ACCOMPLISHMENTS…](115143399928532593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143399928532593
+  - SSA ACCOMPLISHMENTS…
+- [01:14 UTC - Truth Social post 115143373679545724](115143373679545724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115143373679545724
+  - _No text content captured._

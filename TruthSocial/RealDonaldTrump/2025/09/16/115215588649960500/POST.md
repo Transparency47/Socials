@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115215588649960500 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115215588649960500 -->
+<!-- date_published: 2025-09-16T19:19:23.960000+00:00 -->
+<!-- date_accessed: 2026-06-02T17:01:59.369193+00:00 -->
+
+# BREAKING NEWS! In a Big WIN for Justice and Law in Georgia, the Georgia Supreme Court just...
+
+BREAKING NEWS! In a Big WIN for Justice and Law in Georgia, the Georgia Supreme Court just ruled that District Attorney Fani Willis and her “team” of Weaponized Prosecutors are DISQUALIFIED, once and for all, from the Fake Witch Hunt against me, and many other Great American Patriots, people that were treated so unfairly, and indeed, viciously. Willis and her lover, Nathan Wade, who she hired even though he was completely unqualified and had never prosecuted such a case before, blatantly lied, under oath, about their torrid “love” affair, the ridiculous amounts of money she paid him, their Caribbean vacations together, her clear Campaign Finance violations, unlawfully taking money from the honest Taxpayers of Georgia, and, most importantly, about their obsession with doing anything and everything they can to “GET TRUMP,” which included destroying the lives of many other people. Just like the purely political, lawless, and dismissed Witch Hunts brought through the Biden White House by Deranged Jack Smith, and others, this Unconstitutional Georgia Hoax, together with the remaining Shams in New York, should now be dead for good. The Prosecutorial Weaponization of DONALD J. TRUMP had no limits. They went after their Political Opponent at levels never seen before, and LOST. They are now CRIMINALS who will hopefully pay serious consequences for their illegal actions. Our Country was dead a year ago, in large part because of the illegal Weaponization of the American Justice System by the Radical Left Democrats. As we end illegal Political Lawfare, the U.S.A. is BACK now, bigger and better than ever before. MAKE AMERICA GREAT AGAIN! President DJT

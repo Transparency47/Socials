@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-08-22
+
+- Posts: 21
+
+- [22:49 UTC - It is my Great Honor to nominate Lindsey Freeman to serve as Judge on the United States Di...](115074855100531685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074855100531685
+  - It is my Great Honor to nominate Lindsey Freeman to serve as Judge on the United States District Court for the Middle District of North Carolina. During my First Term, Lindsey work...
+- [22:48 UTC - It is my Great Honor to announce the nomination of David Bragdon to serve as Judge on the ...](115074853922882875/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074853922882875
+  - It is my Great Honor to announce the nomination of David Bragdon to serve as Judge on the United States District Court for the Middle District of North Carolina. A proud graduate o...
+- [22:48 UTC - I am pleased to nominate Susan Courtwright Rodriguez to serve as Judge on the United State...](115074852826314245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074852826314245
+  - I am pleased to nominate Susan Courtwright Rodriguez to serve as Judge on the United States District Court for the Western District of North Carolina. As a Magistrate Judge for the...
+- [22:48 UTC - I am pleased to nominate Matthew Orso to serve as Judge on the United States District Cour...](115074851803012151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074851803012151
+  - I am pleased to nominate Matthew Orso to serve as Judge on the United States District Court for the Western District of North Carolina. Matthew is an America First Patriot, who has...
+- [22:47 UTC - In many ways, it all started in Mobile, Alabama, 10 years ago today, on August 21, 2015. I...](115074849478784264/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074849478784264
+  - In many ways, it all started in Mobile, Alabama, 10 years ago today, on August 21, 2015. It was hot, we signed with a ballroom at a hotel, and the hotel said, after one day, “We ca...
+- [21:04 UTC - It is my Great Honor to report that the United States of America now fully owns and contro...](115074444617901812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074444617901812
+  - It is my Great Honor to report that the United States of America now fully owns and controls 10% of INTEL, a Great American Company that has an even more incredible future. I negot...
+- [20:39 UTC - I am pleased to announce that I am promoting Sergio Gor to be our next United States Ambas...](115074344428193585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074344428193585
+  - I am pleased to announce that I am promoting Sergio Gor to be our next United States Ambassador to the Republic of India, and Special Envoy for South and Central Asian Affairs. As...
+- [20:31 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-victim-not-villain-lawfare-war-agai...](115074312571627108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074312571627108
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-victim-not-villain-lawfare-war-against-him-crumbles](https://www.foxnews.com/opinion/gregg-jarrett-trump-victim-not-villain-l...
+- [20:19 UTC - I am pleased to announce that the Radical Left Representatives working at the Congressiona...](115074268844516691/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074268844516691
+  - I am pleased to announce that the Radical Left Representatives working at the Congressional Budget Office (CBO) have now admitted how incredible my Tariff strategy has been, saying...
+- [20:19 UTC - I am pleased to announce that we are doing a major Tariff Investigation on Furniture comin...](115074267817502694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074267817502694
+  - I am pleased to announce that we are doing a major Tariff Investigation on Furniture coming into the United States. Within the next 50 days, that Investigation will be completed, a...
+- [19:51 UTC - Congratulations to MAGA Warrior Joe Gruters, who I very strongly Endorsed, on his unanimou...](115074158839984797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115074158839984797
+  - Congratulations to MAGA Warrior Joe Gruters, who I very strongly Endorsed, on his unanimous Election as Chairman of the Republican National Committee, succeeding the incredible Mic...
+- [17:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115073624732858033](115073638120839015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115073638120839015
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115073624732858033
+- [17:36 UTC - 2026 FIFA WORLD CUP ANNOUNCEMENT!](115073624732858033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115073624732858033
+  - 2026 FIFA WORLD CUP ANNOUNCEMENT!
+- [13:10 UTC - MAKE AMERICA GREAT AGAIN!](115072579716416093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115072579716416093
+  - MAKE AMERICA GREAT AGAIN!
+- [13:06 UTC - The United States is the “Hottest” Country anywhere in the World. There is no other Countr...](115072565335011054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115072565335011054
+  - The United States is the “Hottest” Country anywhere in the World. There is no other Country that is even close…And just think, one year ago, we were a “DEAD” Country, with no hope...
+- [05:57 UTC - Washington, D.C. is SAFE AGAIN! The crowds are coming back, the spirit is high, and our D....](115070876988527695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115070876988527695
+  - Washington, D.C. is SAFE AGAIN! The crowds are coming back, the spirit is high, and our D.C. National Guard and Police are doing a fantastic job. They are out in force, and are NOT...
+- [05:38 UTC - Big win today against the totally corrupt and incompetent New York State Attorney General,...](115070802633295008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115070802633295008
+  - Big win today against the totally corrupt and incompetent New York State Attorney General, Leticia James, and her equally incompetent, hand picked, New York State Judge. The 5 to 0...
+- [02:36 UTC - U.S. Attorney General, Pam Bondi: “There has not been a homicide in a week because of the ...](115070088108962428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115070088108962428
+  - U.S. Attorney General, Pam Bondi: “There has not been a homicide in a week because of the presence of law enforcement. The President being out there today was an incredible inspira...
+- [02:34 UTC - [https:// hannity.com/media-room/out-her e-in-these-streets-trump-to-patrol-d-c-with-polic...](115070078459684297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115070078459684297
+  - [https:// hannity.com/media-room/out-her e-in-these-streets-trump-to-patrol-d-c-with-police-military-as-part-of-crime-crackdown-report/](https://hannity.com/media-room/out-here-in-...
+- [02:33 UTC - Truth Social post 115070076696918942](115070076696918942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115070076696918942
+  - _No text content captured._
+- [00:45 UTC - MAKE WASHINGTON, D.C. GREAT AGAIN!](115069649774874469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115069649774874469
+  - MAKE WASHINGTON, D.C. GREAT AGAIN!

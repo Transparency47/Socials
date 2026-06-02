@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-09-15
+
+- Posts: 14
+
+- [21:56 UTC - Today, at the request of Governor Bill Lee of Tennessee, I signed a Presidential Memorandu...](115210542156462323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115210542156462323
+  - Today, at the request of Governor Bill Lee of Tennessee, I signed a Presidential Memorandum to establish the Memphis Safe Task Force… Memorandum: [https://www. whitehouse.gov/presi...
+- [20:42 UTC - I have just read a News Report that Hamas has moved the hostages above ground to use them ...](115210251262068973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115210251262068973
+  - I have just read a News Report that Hamas has moved the hostages above ground to use them as human shields against Israel’s ground offensive. I hope the Leaders of Hamas know what...
+- [19:57 UTC - This morning, on my Orders, U.S. Military Forces conducted a SECOND Kinetic Strike against...](115210075167747572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115210075167747572
+  - This morning, on my Orders, U.S. Military Forces conducted a SECOND Kinetic Strike against positively identified, extraordinarily violent drug trafficking cartels and narcoterroris...
+- [17:43 UTC - Congressional Republicans, including Leader John Thune and Speaker Mike Johnson, are worki...](115209549037822166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115209549037822166
+  - Congressional Republicans, including Leader John Thune and Speaker Mike Johnson, are working on a short term “CLEAN” extension of Government Funding to stop Cryin’ Chuck Schumer fr...
+- [16:42 UTC - MY son Eric’s just out book, “UNDER SIEGE,” immediately went to NUMBER ONE on Amazon. Grea...](115209308362990527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115209308362990527
+  - MY son Eric’s just out book, “UNDER SIEGE,” immediately went to NUMBER ONE on Amazon. Great going Eric, you deserve it!!! [https:// a.co/d/7oPyLF5](https://a.co/d/7oPyLF5)
+- [16:20 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We honor the extraordinar...](115209221305670983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115209221305670983
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We honor the extraordinary life and service of Retired U.S. Army Sergeant Michael Verardo, a true American Hero, wh...
+- [12:58 UTC - [https:// truthsocial.com/@realDonaldTru mp/115206570863756188](https://truthsocial.com/@r...](115208428190944040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115208428190944040
+  - [https:// truthsocial.com/@realDonaldTru mp/115206570863756188](https://truthsocial.com/@realDonaldTrump/115206570863756188)
+- [12:39 UTC - “Too Late” MUST CUT INTEREST RATES, NOW, AND BIGGER THAN HE HAD IN MIND. HOUSING WILL SOAR...](115208353139528932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115208353139528932
+  - “Too Late” MUST CUT INTEREST RATES, NOW, AND BIGGER THAN HE HAD IN MIND. HOUSING WILL SOAR!!! President DJT
+- [12:15 UTC - The big Trade Meeting in Europe between The United States of America, and China, has gone ...](115208260926006345/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115208260926006345
+  - The big Trade Meeting in Europe between The United States of America, and China, has gone VERY WELL! It will be concluding shortly. A deal was also reached on a “certain” company t...
+- [12:05 UTC - Subject to SEC Approval, Companies and Corporations should no longer be forced to “Report”...](115208219886830624/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115208219886830624
+  - Subject to SEC Approval, Companies and Corporations should no longer be forced to “Report” on a quarterly basis (Quarterly Reporting!), but rather to Report on a “Six (6) Month Bas...
+- [11:46 UTC - The NFL has to get rid of that ridiculous looking new Kickoff Rule. How can they make such...](115208143657180249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115208143657180249
+  - The NFL has to get rid of that ridiculous looking new Kickoff Rule. How can they make such a big and sweeping change so easily and quickly. It’s at least as dangerous as the “norma...
+- [11:07 UTC - Governor Kathy Hochul of New York has Endorsed the “Liddle’ Communist,” Zohran Mamdani, ru...](115207991871277413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115207991871277413
+  - Governor Kathy Hochul of New York has Endorsed the “Liddle’ Communist,” Zohran Mamdani, running for Mayor of New York. This is a rather shocking development, and a very bad one for...
+- [05:06 UTC - The Federal Government, under my auspices as President of the United States of America, ha...](115206570863756188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115206570863756188
+  - The Federal Government, under my auspices as President of the United States of America, has stepped into the complete criminal mess that was Washington, D.C., our Nation’s Capital....
+- [00:38 UTC - I am aware of the terrible reports regarding the murder of Chandra Nagamallaiah, a well re...](115205520510774944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115205520510774944
+  - I am aware of the terrible reports regarding the murder of Chandra Nagamallaiah, a well respected person in Dallas, Texas, who was brutally beheaded, in front of his wife and son,...

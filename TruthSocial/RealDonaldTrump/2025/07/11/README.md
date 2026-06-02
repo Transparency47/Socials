@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-07-11
+
+- Posts: 13
+
+- [23:32 UTC - I am on my way back from Texas, and watched in disbelief as THUGS were violently throwing ...](114837208737137477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114837208737137477
+  - I am on my way back from Texas, and watched in disbelief as THUGS were violently throwing rocks and bricks at ICE Officers while they were moving down a roadway in their car and/or...
+- [23:06 UTC - I HAVE AN OBLIGATION TO DO A GOOD JOB—THE REASON I WAS SAVED, WAS TO SAVE OUR COUNTRY!](114837106641185031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114837106641185031
+  - I HAVE AN OBLIGATION TO DO A GOOD JOB—THE REASON I WAS SAVED, WAS TO SAVE OUR COUNTRY!
+- [20:01 UTC - [https://www. youtube.com/live/icPpj1yqkQM?s i=YfvC375yg1zjInfz](https://www.youtube.com/l...](114836378597889697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114836378597889697
+  - [https://www. youtube.com/live/icPpj1yqkQM?s i=YfvC375yg1zjInfz](https://www.youtube.com/live/icPpj1yqkQM?si=YfvC375yg1zjInfz)
+- [19:51 UTC - Truth Social post 114836339995001387](114836339995001387/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114836339995001387
+  - _No text content captured._
+- [19:00 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114836043587859602](114836141181758205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114836141181758205
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114836043587859602
+- [18:36 UTC - [https://www. youtube.com/live/icPpj1yqkQM?s i=OwkY8rV8LG7tJSKj](https://www.youtube.com/l...](114836043587859602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114836043587859602
+  - [https://www. youtube.com/live/icPpj1yqkQM?s i=OwkY8rV8LG7tJSKj](https://www.youtube.com/live/icPpj1yqkQM?si=OwkY8rV8LG7tJSKj)
+- [16:44 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump and First...](114835604550766852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114835604550766852
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump and First Lady Melania Trump on their way to meet with flood victims in Kerrville, Texas. 🇺🇸
+- [15:19 UTC - We're the hottest Country anywhere in the world!](114835272416034171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114835272416034171
+  - We're the hottest Country anywhere in the world!
+- [14:47 UTC - Tom Homan and Kristi Noem are doing a FANTASTIC job. Thank you both! DJT](114835146294645750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114835146294645750
+  - Tom Homan and Kristi Noem are doing a FANTASTIC job. Thank you both! DJT
+- [14:36 UTC - Secretary of War Pete Hegseth was great on FoxNews this morning. Talking about modern weap...](114835102167904861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114835102167904861
+  - Secretary of War Pete Hegseth was great on FoxNews this morning. Talking about modern weapons and warfare. Thank you also to Brett Velicovich, who really knows his “stuff.” We are...
+- [03:57 UTC - Thank you USA TODAY. So nice! “Trump deserves Nobel Peace Prize. He's achieved more than t...](114832587355133963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114832587355133963
+  - Thank you USA TODAY. So nice! “Trump deserves Nobel Peace Prize. He's achieved more than those who've won before” [https://www. usatoday.com/story/opinion/col umnist/2025/07/10/tru...
+- [03:52 UTC - Congratulations to Bryan Bedford, who was just confirmed to head the FAA. A very talented ...](114832570720111172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114832570720111172
+  - Congratulations to Bryan Bedford, who was just confirmed to head the FAA. A very talented guy!!! DJT
+- [00:15 UTC - Truth Social post 114831716625825473](114831716625825473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114831716625825473
+  - _No text content captured._

@@ -1,0 +1,124 @@
+# TruthSocial / RealDonaldTrump / 2025-07-31
+
+- Posts: 40
+
+- [23:26 UTC - “PRESIDENT’S COUNCIL ON SPORTS, FITNESS, AND NUTRITION, AND THE REESTABLISHMENT OF THE PRE...](114950433397228924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950433397228924
+  - “PRESIDENT’S COUNCIL ON SPORTS, FITNESS, AND NUTRITION, AND THE REESTABLISHMENT OF THE PRESIDENTIAL FITNESS TEST” [https://www. whitehouse.gov/presidential-ac tions/2025/07/preside...
+- [23:05 UTC - Maria Bartiromo: "Everybody that I speak with—money managers, business managers, CEOs—they...](114950348792604159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950348792604159
+  - Maria Bartiromo: "Everybody that I speak with—money managers, business managers, CEOs—they all say the same thing: America is BACK. America is HOT, and it has everything to do with...
+- [22:38 UTC - This is what the Democrats are doing to our Nation! They are refusing to approve some of t...](114950241999184378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950241999184378
+  - This is what the Democrats are doing to our Nation! They are refusing to approve some of the best Nominees in the History of our Country. If we had George Washington and Abraham Li...
+- [21:40 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Bryson DeChambeau: "We ha...](114950014022887738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950014022887738
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Bryson DeChambeau: "We have an opportunity — it being the 70th anniversary of the President's Council on Sports, Fi...
+- [21:40 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114950013896234553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950013896234553
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "They're going to also be working on coll...
+- [21:39 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114950012788777153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114950012788777153
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "I'm pleased to announce that we're offic...
+- [17:40 UTC - Truth Social post 114949071230614578](114949071230614578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949071230614578
+  - _No text content captured._
+- [17:40 UTC - Truth Social post 114949070339324064](114949070339324064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949070339324064
+  - _No text content captured._
+- [17:40 UTC - Truth Social post 114949069548564252](114949069548564252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949069548564252
+  - _No text content captured._
+- [17:39 UTC - Truth Social post 114949068624952696](114949068624952696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949068624952696
+  - _No text content captured._
+- [17:39 UTC - Truth Social post 114949067758085949](114949067758085949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949067758085949
+  - _No text content captured._
+- [17:39 UTC - Truth Social post 114949066973087038](114949066973087038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949066973087038
+  - _No text content captured._
+- [17:38 UTC - Truth Social post 114949064902823431](114949064902823431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949064902823431
+  - _No text content captured._
+- [17:38 UTC - Truth Social post 114949063846293148](114949063846293148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949063846293148
+  - _No text content captured._
+- [17:38 UTC - Truth Social post 114949062024340246](114949062024340246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949062024340246
+  - _No text content captured._
+- [17:37 UTC - Truth Social post 114949061202459969](114949061202459969/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949061202459969
+  - _No text content captured._
+- [17:37 UTC - Truth Social post 114949059166743406](114949059166743406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949059166743406
+  - _No text content captured._
+- [17:37 UTC - Truth Social post 114949058048660778](114949058048660778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949058048660778
+  - _No text content captured._
+- [17:36 UTC - Truth Social post 114949055879790174](114949055879790174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949055879790174
+  - _No text content captured._
+- [17:36 UTC - Truth Social post 114949054223938788](114949054223938788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949054223938788
+  - _No text content captured._
+- [17:35 UTC - Truth Social post 114949053111575171](114949053111575171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949053111575171
+  - _No text content captured._
+- [17:35 UTC - Truth Social post 114949052123284414](114949052123284414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949052123284414
+  - _No text content captured._
+- [17:34 UTC - Truth Social post 114949049238065269](114949049238065269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114949049238065269
+  - _No text content captured._
+- [15:03 UTC - I have just concluded a telephone conversation with the President of Mexico, Claudia Shein...](114948452793702817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114948452793702817
+  - I have just concluded a telephone conversation with the President of Mexico, Claudia Sheinbaum, which was very successful in that, more and more, we are getting to know and underst...
+- [13:01 UTC - Congratulations to Brown University on the settlement made with the United States Governme...](114947973077448174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947973077448174
+  - Congratulations to Brown University on the settlement made with the United States Government. There will be no more Anti-Semitism, or Anti-Christian, or Anti-Anything Else! Woke is...
+- [11:17 UTC - The fastest way to end the Humanitarian Crises in Gaza is for Hamas to SURRENDER AND RELEA...](114947563324977082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947563324977082
+  - The fastest way to end the Humanitarian Crises in Gaza is for Hamas to SURRENDER AND RELEASE THE HOSTAGES!!!
+- [11:11 UTC - Jerome “Too Late” Powell has done it again!!! He is TOO LATE, and actually, TOO ANGRY, TOO...](114947541528857255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947541528857255
+  - Jerome “Too Late” Powell has done it again!!! He is TOO LATE, and actually, TOO ANGRY, TOO STUPID, & TOO POLITICAL, to have the job of Fed Chair. He is costing our Country TRILLION...
+- [10:46 UTC - MAKE AMERICA GREAT AGAIN!!!](114947443411844432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947443411844432
+  - MAKE AMERICA GREAT AGAIN!!!
+- [10:42 UTC - To all of my great lawyers who have fought so hard to save our Country, good luck in Ameri...](114947427321891876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947427321891876
+  - To all of my great lawyers who have fought so hard to save our Country, good luck in America’s big case today. If our Country was not able to protect itself by using TARIFFS AGAINS...
+- [10:28 UTC - Tariffs are making America GREAT & RICH Again. They were successfully used against the USA...](114947373855664074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947373855664074
+  - Tariffs are making America GREAT & RICH Again. They were successfully used against the USA for decades and, coupled with really dumb, pathetic, and crooked politicians, we’re havin...
+- [10:04 UTC - OAN is making a huge comeback, with millions of new viewers. Congratulations to OAN and al...](114947277897378239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114947277897378239
+  - OAN is making a huge comeback, with millions of new viewers. Congratulations to OAN and all of those who worked so hard to get you there!
+- [04:29 UTC - Wow! Canada has just announced that it is backing statehood for Palestine. That will make ...](114945962278773358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945962278773358
+  - Wow! Canada has just announced that it is backing statehood for Palestine. That will make it very hard for us to make a Trade Deal with them. Oh’ Canada!!!
+- [04:26 UTC - Truth Social post 114945949617912075](114945949617912075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945949617912075
+  - _No text content captured._
+- [04:26 UTC - Truth Social post 114945948653671641](114945948653671641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945948653671641
+  - _No text content captured._
+- [04:26 UTC - Truth Social post 114945947548008635](114945947548008635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945947548008635
+  - _No text content captured._
+- [04:25 UTC - Truth Social post 114945946529394028](114945946529394028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945946529394028
+  - _No text content captured._
+- [04:25 UTC - Truth Social post 114945945516276328](114945945516276328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945945516276328
+  - _No text content captured._
+- [04:25 UTC - Truth Social post 114945944430003274](114945944430003274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945944430003274
+  - _No text content captured._
+- [04:17 UTC - [https:// justthenews.com/government/whi te-house/trump-economic-policy-defies-critics-sho...](114945911961804985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945911961804985
+  - [https:// justthenews.com/government/whi te-house/trump-economic-policy-defies-critics-shows-steady-improvements](https://justthenews.com/government/white-house/trump-economic-poli...
+- [04:00 UTC - I don’t care what India does with Russia. They can take their dead economies down together...](114945847973193713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114945847973193713
+  - I don’t care what India does with Russia. They can take their dead economies down together, for all I care. We have done very little business with India, their Tariffs are too high...

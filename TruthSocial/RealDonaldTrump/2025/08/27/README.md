@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-08-27
+
+- Posts: 15
+
+- [21:54 UTC - Monday’s Court Order in Utah is absolutely Unconstitutional. How did such a wonderful Repu...](115102954264650044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115102954264650044
+  - Monday’s Court Order in Utah is absolutely Unconstitutional. How did such a wonderful Republican State like Utah, which I won in every Election, end up with so many Radical Left Ju...
+- [21:36 UTC - We honor the extraordinary life and service of Retired U.S. Army Sergeant Michael Verardo,...](115102880953568178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115102880953568178
+  - We honor the extraordinary life and service of Retired U.S. Army Sergeant Michael Verardo, a true American Hero, who gave everything for our Nation. After suffering catastrophic in...
+- [19:36 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/honoring-the-victims-of-the-tra...](115102410793427766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115102410793427766
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/honoring-the-victims-of-the-tragedy-in-minneapolis-minnesota/](https://www.whitehouse.gov/presidential-actions/2025/08/ho...
+- [14:47 UTC - I have been fully briefed on the tragic shooting in Minneapolis, Minnesota. The FBI quickl...](115101274999111772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115101274999111772
+  - I have been fully briefed on the tragic shooting in Minneapolis, Minnesota. The FBI quickly responded and they are on the scene. The White House will continue to monitor this terri...
+- [13:04 UTC - RINO Karl Rove, when asked on Fox & Friends this morning how to explain the tremendous suc...](115100868745163117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115100868745163117
+  - RINO Karl Rove, when asked on Fox & Friends this morning how to explain the tremendous success of the Republican Party, with millions of people joining it, and the Dems losing mill...
+- [12:45 UTC - George Soros, and his wonderful Radical Left son, should be charged with RICO because of t...](115100792784831675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115100792784831675
+  - George Soros, and his wonderful Radical Left son, should be charged with RICO because of their support of Violent Protests, and much more, all throughout the United States of Ameri...
+- [05:56 UTC - There is a sick rumor going around that Fake News NBC extended the contract of one of the ...](115099185736327475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115099185736327475
+  - There is a sick rumor going around that Fake News NBC extended the contract of one of the least talented Late Night television hosts out there, Seth Meyers. He has no Ratings, Tale...
+- [04:59 UTC - Truth Social post 115098961864460286](115098961864460286/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098961864460286
+  - _No text content captured._
+- [04:45 UTC - Republicans: BAN MAIL-IN VOTING!!! President DJT](115098905035838387/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098905035838387
+  - Republicans: BAN MAIL-IN VOTING!!! President DJT
+- [04:34 UTC - CRIME NUMBERS ARE WAY DOWN IN DC! AMAZING PROGRESS BEING MADE! Thank you for your attentio...](115098861391135351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098861391135351
+  - CRIME NUMBERS ARE WAY DOWN IN DC! AMAZING PROGRESS BEING MADE! Thank you for your attention to this matter. President DJT
+- [04:31 UTC - Speaker Mike Johnson, and Leader John Thune, are working with me, and other Republicans, o...](115098852835094028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098852835094028
+  - Speaker Mike Johnson, and Leader John Thune, are working with me, and other Republicans, on a Comprehensive Crime Bill. It’s what our Country need, and NOW! More to follow. MAKE AM...
+- [04:28 UTC - I am pleased to report that I have raised, since the Great Presidential Election of 2024, ...](115098837339559726/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098837339559726
+  - I am pleased to report that I have raised, since the Great Presidential Election of 2024, in various forms and political entities, in excess of 1.5 Billion Dollars. MAKE AMERICA GR...
+- [04:03 UTC - Truth Social post 115098739670131257](115098739670131257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098739670131257
+  - _No text content captured._
+- [03:42 UTC - Number One New York Times Bestselling Author, Trey Gowdy, has just written a GREAT new nov...](115098660302858709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098660302858709
+  - Number One New York Times Bestselling Author, Trey Gowdy, has just written a GREAT new novel, “THE COLOR OF DEATH,” an in-depth study of justice and grief. Trey is also a Political...
+- [01:36 UTC - A really DEADLY weekend in Chicago. 6 DEAD, 27 HURT IN CRIME SPREES ALLOVER THE CITY. Pani...](115098161051613732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115098161051613732
+  - A really DEADLY weekend in Chicago. 6 DEAD, 27 HURT IN CRIME SPREES ALLOVER THE CITY. Panic stricken Governor Pritzker says that crime is under control, when in fact it is just the...

@@ -1,0 +1,100 @@
+# TruthSocial / RealDonaldTrump / 2025-07-09
+
+- Posts: 32
+
+- [22:30 UTC - Truth Social post 114825639384438689](114825639384438689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825639384438689
+  - _No text content captured._
+- [20:17 UTC - Truth Social post 114825119138468153](114825119138468153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825119138468153
+  - _No text content captured._
+- [20:08 UTC - Truth Social post 114825083896330746](114825083896330746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825083896330746
+  - _No text content captured._
+- [20:08 UTC - Truth Social post 114825083197098989](114825083197098989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825083197098989
+  - _No text content captured._
+- [20:05 UTC - [https://www. doi.gov/pressreleases/new-coal -mining-permit-approved-tennessee-boost-ameri...](114825071504087355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825071504087355
+  - [https://www. doi.gov/pressreleases/new-coal -mining-permit-approved-tennessee-boost-americas-energy-independence](https://www.doi.gov/pressreleases/new-coal-mining-permit-approved...
+- [20:03 UTC - Secretary Lori Chavez-DeRemer: “The promises made by President Trump was that he was going...](114825064535529179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825064535529179
+  - Secretary Lori Chavez-DeRemer: “The promises made by President Trump was that he was going to pay attention to the American worker, and that's why you're seeing American-born jobs...
+- [20:01 UTC - “Sharp drop in police killed on duty credited to Trump-driven shift away from anti-police ...](114825055413704674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825055413704674
+  - “Sharp drop in police killed on duty credited to Trump-driven shift away from anti-police culture” [https://www. washingtontimes.com/news/2025/ jul/8/sharp-drop-police-killed-duty-...
+- [20:00 UTC - "I love the border policy. I love the tax policy. I love the foreign policy. America is no...](114825052103127845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825052103127845
+  - "I love the border policy. I love the tax policy. I love the foreign policy. America is no longer a joke — America is taken seriously."
+- [19:59 UTC - "High Hopes for Local Aluminum Plant" "Since its expansion, Rosemount business is adding n...](114825046600516465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825046600516465
+  - "High Hopes for Local Aluminum Plant" "Since its expansion, Rosemount business is adding needed domestic aluminum supply in face of tariffs."
+- [19:57 UTC - [https://www. whitehouse.gov/articles/2025/0 7/trust-in-trump-sentiment-surges-as-economy-...](114825040022624306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825040022624306
+  - [https://www. whitehouse.gov/articles/2025/0 7/trust-in-trump-sentiment-surges-as-economy-booms/](https://www.whitehouse.gov/articles/2025/07/trust-in-trump-sentiment-surges-as-eco...
+- [19:52 UTC - [https:// dailycaller.com/2025/07/09/opi nion-one-year-since-butler-theres-a-lot-to-be-tha...](114825017833102811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114825017833102811
+  - [https:// dailycaller.com/2025/07/09/opi nion-one-year-since-butler-theres-a-lot-to-be-thankful-for-david-bossie/](https://dailycaller.com/2025/07/09/opinion-one-year-since-butler-...
+- [17:49 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114824534775570026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824534775570026
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) is already working very hard in favor of pe...
+- [17:48 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President Trump welcomes ...](114824533719993305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824533719993305
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President Trump welcomes leaders of Gabon, Guinea-Bissau, Liberia, Mauritania, and Senegal to the White House 🇺🇸🇬🇦🇬...
+- [17:34 UTC - [https://www. youtube.com/live/fVDNHD5IEeQ?s i=a7QlrlU02DXBAYUh](https://www.youtube.com/l...](114824477569819531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824477569819531
+  - [https://www. youtube.com/live/fVDNHD5IEeQ?s i=a7QlrlU02DXBAYUh](https://www.youtube.com/live/fVDNHD5IEeQ?si=a7QlrlU02DXBAYUh)
+- [15:39 UTC - Truth Social post 114824023967307505](114824023967307505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824023967307505
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 114824021539741481](114824021539741481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824021539741481
+  - _No text content captured._
+- [15:38 UTC - Truth Social post 114824019927996260](114824019927996260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824019927996260
+  - _No text content captured._
+- [15:37 UTC - Truth Social post 114824018420835079](114824018420835079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824018420835079
+  - _No text content captured._
+- [15:37 UTC - Truth Social post 114824016607656018](114824016607656018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824016607656018
+  - _No text content captured._
+- [15:36 UTC - Truth Social post 114824014589920439](114824014589920439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824014589920439
+  - _No text content captured._
+- [15:36 UTC - Nevada: On Saturday, July 12th, GET OUT AND VOTE for Michael J. McDonald for Chair of the ...](114824012434844395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114824012434844395
+  - Nevada: On Saturday, July 12th, GET OUT AND VOTE for Michael J. McDonald for Chair of the Republican Party, and the entire Executive Board: Jim Hindle, Barbara Hawn, Kathy Njus, Br...
+- [14:30 UTC - “Marco Rubio: Trump defense deal with NATO is a big, beautiful win for America” [https://w...](114823753748748089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823753748748089
+  - “Marco Rubio: Trump defense deal with NATO is a big, beautiful win for America” [https://www. usatoday.com/story/opinion/202 5/07/09/trump-nato-defense-spending-rubio/84503719007/]...
+- [14:30 UTC - “Golden Age: Trump Stacks Up MAGA Wins in First Six Months” [https://www. breitbart.com/po...](114823751368001174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823751368001174
+  - “Golden Age: Trump Stacks Up MAGA Wins in First Six Months” [https://www. breitbart.com/politics/2025/07 /08/golden-age-trump-stacks-up-maga-wins-in-first-six-months/](https://www....
+- [14:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Any Country aligning them...](114823672509191522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823672509191522
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Any Country aligning themselves with the Anti-American policies of BRICS, will be charged an ADDITIONAL 10% Tariff....
+- [14:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Brazil is doing a terribl...](114823670695168547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823670695168547
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Brazil is doing a terrible thing on their treatment of former President Jair Bolsonaro. I have watched, as has the...
+- [14:00 UTC - Our Fed Rate is AT LEAST 3 Points too high. “Too Late” is costing the U.S. 360 Billion Dol...](114823635614745836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823635614745836
+  - Our Fed Rate is AT LEAST 3 Points too high. “Too Late” is costing the U.S. 360 Billion Dollars a Point, PER YEAR, in refinancing costs. No Inflation, COMPANIES POURING INTO AMERICA...
+- [13:31 UTC - ANYBODY BUT “TOO LATE.”](114823519364945627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114823519364945627
+  - ANYBODY BUT “TOO LATE.”
+- [02:27 UTC - I brought down costs more than any President in recorded history. The Crooked Democrats ar...](114820908713657769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114820908713657769
+  - I brought down costs more than any President in recorded history. The Crooked Democrats are using the opposite narrative, even though they know it is a total LIE. Remember this whe...
+- [02:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114812490799920916 Leave the Gr...](114820873191783674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114820873191783674
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114812490799920916 Leave the Great Former President of Brazil alone. WITCH HUNT!!!
+- [01:54 UTC - The great Gary Player, winner of over 150 golf tournaments, and 9 Majors, plus many tourna...](114820780308440795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114820780308440795
+  - The great Gary Player, winner of over 150 golf tournaments, and 9 Majors, plus many tournaments and Majors on the Senior Tour. Based on his incredible record, only Tiger and Jack,...
+- [00:59 UTC - It has been brought to my attention that the Great State of Florida, which I won BIG three...](114820563898758883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114820563898758883
+  - It has been brought to my attention that the Great State of Florida, which I won BIG three times, and where I am a proud Resident, has renamed an important four-mile stretch of Sou...
+- [00:58 UTC - Truth Social post 114820561219593151](114820561219593151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114820561219593151
+  - _No text content captured._

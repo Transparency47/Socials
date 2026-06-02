@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2025-08-11
+
+- Posts: 23
+
+- [23:46 UTC - Great Honor being with the Prime Minister of Armenia, Nikol Pashinyan, and the President o...](115012797087354875/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012797087354875
+  - Great Honor being with the Prime Minister of Armenia, Nikol Pashinyan, and the President of Azerbaijan, Ilham Aliyev, as we signed a Peace Treaty after decades of War and Death. Th...
+- [23:26 UTC - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the ne...](115012717750060479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012717750060479
+  - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the next Governor of the Great State of Georgia, a very special place to me in that we had a BIG...
+- [23:04 UTC - Truth Social post 115012632187225638](115012632187225638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012632187225638
+  - _No text content captured._
+- [23:03 UTC - Truth Social post 115012628171015893](115012628171015893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012628171015893
+  - _No text content captured._
+- [23:02 UTC - DC Police Union Chairman Gregg Pemberton: "We completely agree with the President that cri...](115012623456747637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012623456747637
+  - DC Police Union Chairman Gregg Pemberton: "We completely agree with the President that crime in the District of Columbia is out of control and something needs to be done with it."
+- [22:39 UTC - I am pleased to announce that I am nominating Highly Respected Economist, Dr. E.J. Antoni,...](115012532470689820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012532470689820
+  - I am pleased to announce that I am nominating Highly Respected Economist, Dr. E.J. Antoni, as the next Commissioner of the Bureau of Labor Statistics. Our Economy is booming, and E...
+- [20:57 UTC - I met with Mr. Lip-Bu Tan, of Intel, along with Secretary of Commerce, Howard Lutnick, and...](115012131343690532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115012131343690532
+  - I met with Mr. Lip-Bu Tan, of Intel, along with Secretary of Commerce, Howard Lutnick, and Secretary of the Treasury, Scott Bessent. The meeting was a very interesting one. His suc...
+- [18:42 UTC - [https://www. whitehouse.gov/articles/2025/0 8/its-liberation-day-in-washington-d-c/](http...](115011598986527785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011598986527785
+  - [https://www. whitehouse.gov/articles/2025/0 8/its-liberation-day-in-washington-d-c/](https://www.whitehouse.gov/articles/2025/08/its-liberation-day-in-washington-d-c/)
+- [17:32 UTC - A Statement from Donald J. Trump, President of the United States of America: Gold will not...](115011325631302905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011325631302905
+  - A Statement from Donald J. Trump, President of the United States of America: Gold will not be Tariffed!
+- [16:49 UTC - [https://www. newsmax.com/newsfront/trump-wa shington-crime/2025/08/11/id/1221981/](https:...](115011157686837571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011157686837571
+  - [https://www. newsmax.com/newsfront/trump-wa shington-crime/2025/08/11/id/1221981/](https://www.newsmax.com/newsfront/trump-washington-crime/2025/08/11/id/1221981/)
+- [16:39 UTC - [https:// nypost.com/2025/08/11/us-news/ trump-federalizing-dc-police-deploying-national-g...](115011115206831709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011115206831709
+  - [https:// nypost.com/2025/08/11/us-news/ trump-federalizing-dc-police-deploying-national-guard-in-capital-crime-crackdown/](https://nypost.com/2025/08/11/us-news/trump-federalizing...
+- [16:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011030509341542](115011111086512782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011111086512782
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011030509341542
+- [16:36 UTC - Truth Social post 115011103006391025](115011103006391025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011103006391025
+  - _No text content captured._
+- [16:20 UTC - This dire public safety crisis stems directly from the abject failures of the city's local...](115011042098548305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011042098548305
+  - This dire public safety crisis stems directly from the abject failures of the city's local leadership…
+- [16:17 UTC - The murder rate in Washington today is higher than that of Bogotá, Colombia…](115011030509341542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011030509341542
+  - The murder rate in Washington today is higher than that of Bogotá, Colombia…
+- [16:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011008545146420 Today we are...](115011010669803263/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011010669803263
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115011008545146420 Today we are declaring a public safety emergency in the District of Columbia…
+- [16:11 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/declaring-a-crime-emergency-in-...](115011008545146420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115011008545146420
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/declaring-a-crime-emergency-in-the-district-of-columbia/](https://www.whitehouse.gov/presidential-actions/2025/08/declari...
+- [12:11 UTC - Washington, D.C. will be LIBERATED today! Crime, Savagery, Filth, and Scum will DISAPPEAR....](115010061198729847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115010061198729847
+  - Washington, D.C. will be LIBERATED today! Crime, Savagery, Filth, and Scum will DISAPPEAR. I will, MAKE OUR CAPITAL GREAT AGAIN! The days of ruthlessly killing, or hurting, innocen...
+- [12:08 UTC - Tariffs are making our Country Strong and Rich!!!](115010049469121326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115010049469121326
+  - Tariffs are making our Country Strong and Rich!!!
+- [12:05 UTC - LIBERATION DAY IN D.C. WE ARE TAKING OUR CAPITAL BACK!!!](115010039843011888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115010039843011888
+  - LIBERATION DAY IN D.C. WE ARE TAKING OUR CAPITAL BACK!!!
+- [11:36 UTC - “Congresswoman” Jasmine Crockett is a Low (Very!!!) I.Q. Individual, much in the mold of t...](115009924991505341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115009924991505341
+  - “Congresswoman” Jasmine Crockett is a Low (Very!!!) I.Q. Individual, much in the mold of the AOC Plus Three Gang of Country Destroying Morons - Only slightly dumber. Each of these...
+- [03:48 UTC - Paul Krugman of the New York Times has been predicting Doom and Gloom ever since my great ...](115008083924128265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115008083924128265
+  - Paul Krugman of the New York Times has been predicting Doom and Gloom ever since my great election success in 2016. In other words, he has been wrong for YEARS, as ALL markets have...
+- [03:21 UTC - China is worried about its shortage of soybeans. Our great farmers produce the most robust...](115007977998503665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115007977998503665
+  - China is worried about its shortage of soybeans. Our great farmers produce the most robust soybeans. I hope China will quickly quadruple its soybean orders. This is also a way of s...

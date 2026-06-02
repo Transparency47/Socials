@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-07-07
+
+- Posts: 21
+
+- [22:37 UTC - Truth Social post 114814343031924346](114814343031924346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114814343031924346
+  - _No text content captured._
+- [20:38 UTC - Truth Social post 114813877378281211](114813877378281211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813877378281211
+  - _No text content captured._
+- [20:37 UTC - Truth Social post 114813871213779514](114813871213779514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813871213779514
+  - _No text content captured._
+- [20:36 UTC - Truth Social post 114813868233643692](114813868233643692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813868233643692
+  - _No text content captured._
+- [20:36 UTC - Truth Social post 114813866366780377](114813866366780377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813866366780377
+  - _No text content captured._
+- [20:35 UTC - Truth Social post 114813864598173973](114813864598173973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813864598173973
+  - _No text content captured._
+- [20:30 UTC - Truth Social post 114813842665448662](114813842665448662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813842665448662
+  - _No text content captured._
+- [20:26 UTC - The FBI, under the direction of Director Kash Patel and Deputy Director Dan Bongino, is ba...](114813826512783399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813826512783399
+  - The FBI, under the direction of Director Kash Patel and Deputy Director Dan Bongino, is back to the basics: Locking up criminals, and cleaning up America’s streets. We have the Gre...
+- [18:16 UTC - Truth Social post 114813317938414369](114813317938414369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813317938414369
+  - _No text content captured._
+- [18:16 UTC - Truth Social post 114813315678267454](114813315678267454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813315678267454
+  - _No text content captured._
+- [18:15 UTC - Truth Social post 114813313928083257](114813313928083257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813313928083257
+  - _No text content captured._
+- [18:15 UTC - Truth Social post 114813311746463509](114813311746463509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813311746463509
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 114813308840303879](114813308840303879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813308840303879
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 114813307541052002](114813307541052002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813307541052002
+  - _No text content captured._
+- [17:34 UTC - [https:// justthenews.com/accountability /media/monpulitzer-follies-trump-lawsuit-exposes-...](114813153992543004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813153992543004
+  - [https:// justthenews.com/accountability /media/monpulitzer-follies-trump-lawsuit-exposes-uncomfortable-truths-about](https://justthenews.com/accountability/media/monpulitzer-folli...
+- [17:34 UTC - [https:// justthenews.com/government/whi te-house/trump-touts-successes-his-one-big-beauti...](114813152946253610/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114813152946253610
+  - [https:// justthenews.com/government/whi te-house/trump-touts-successes-his-one-big-beautiful-bill-could-reshape-american](https://justthenews.com/government/white-house/trump-tout...
+- [16:19 UTC - Truth Social post 114812856757774700](114812856757774700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114812856757774700
+  - _No text content captured._
+- [16:18 UTC - Truth Social post 114812854233087572](114812854233087572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114812854233087572
+  - _No text content captured._
+- [14:46 UTC - Brazil is doing a terrible thing on their treatment of former President Jair Bolsonaro. I ...](114812490799920916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114812490799920916
+  - Brazil is doing a terrible thing on their treatment of former President Jair Bolsonaro. I have watched, as has the World, as they have done nothing but come after him, day after da...
+- [02:24 UTC - Any Country aligning themselves with the Anti-American policies of BRICS, will be charged ...](114809574296066307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114809574296066307
+  - Any Country aligning themselves with the Anti-American policies of BRICS, will be charged an ADDITIONAL 10% Tariff. There will be no exceptions to this policy. Thank you for your a...
+- [02:12 UTC - I am pleased to announce that the UNITED STATES TARIFF Letters, and/or Deals, with various...](114809528606729733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114809528606729733
+  - I am pleased to announce that the UNITED STATES TARIFF Letters, and/or Deals, with various Countries from around the World, will be delivered starting 12:00 P.M. (Eastern), Monday,...

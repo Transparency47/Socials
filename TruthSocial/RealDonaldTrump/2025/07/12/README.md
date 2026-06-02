@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-07-12
+
+- Posts: 11
+
+- [23:50 UTC - I will be interviewed by my wonderful daughter-in-law, Lara Trump, on FoxNews, at 9:00 P.M...](114842941355477197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114842941355477197
+  - I will be interviewed by my wonderful daughter-in-law, Lara Trump, on FoxNews, at 9:00 P.M. (TONIGHT!). Enjoy!
+- [21:21 UTC - What’s going on with my “boys” and, in some cases, “gals?” They’re all going after Attorne...](114842356238631061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114842356238631061
+  - What’s going on with my “boys” and, in some cases, “gals?” They’re all going after Attorney General Pam Bondi, who is doing a FANTASTIC JOB! We’re on one Team, MAGA, and I don’t li...
+- [19:57 UTC - They haven’t lost since they saw me in the Oval. 8 wins in a row!](114842026934691545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114842026934691545
+  - They haven’t lost since they saw me in the Oval. 8 wins in a row!
+- [18:01 UTC - “Treasury posts unexpected surplus in June as tariff receipts surge” [https://www. cnbc.co...](114841568204031318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114841568204031318
+  - “Treasury posts unexpected surplus in June as tariff receipts surge” [https://www. cnbc.com/2025/07/11/treasury-p osts-unexpected-surplus-in-june-as-tariff-receipts-surge.html](htt...
+- [18:00 UTC - “US customs duties top $100 billion for first time in a fiscal year” [https://www. reuters...](114841565274628116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114841565274628116
+  - “US customs duties top $100 billion for first time in a fiscal year” [https://www. reuters.com/business/trumps-ta riff-collections-expected-grow-june-us-budget-data-2025-07-11/](ht...
+- [16:40 UTC - Truth Social post 114841251623993690](114841251623993690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114841251623993690
+  - _No text content captured._
+- [13:42 UTC - Because of the fact that Rosie O’Donnell is not in the best interests of our Great Country...](114840552173805537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114840552173805537
+  - Because of the fact that Rosie O’Donnell is not in the best interests of our Great Country, I am giving serious consideration to taking away her Citizenship. She is a Threat to Hum...
+- [12:31 UTC - Truth Social post 114840270617633946](114840270617633946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114840270617633946
+  - _No text content captured._
+- [12:29 UTC - Truth Social post 114840265771030416](114840265771030416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114840265771030416
+  - _No text content captured._
+- [01:11 UTC - Just spoke to Great Combat Veteran Zach Nunn, and he is committed to the mission of, HOLDI...](114837597286883732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114837597286883732
+  - Just spoke to Great Combat Veteran Zach Nunn, and he is committed to the mission of, HOLDING THE MAJORITY. He is a team player, with a tremendous future — And 100% MAGA. Zach needs...
+- [01:00 UTC - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassi...](114837554019633896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114837554019633896
+  - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassination of Donald Trump and the Fight for America’s Heartland.” Salena was an eyewitness to...

@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-08-13
+
+- Posts: 20
+
+- [23:46 UTC - “DISTRICT IN DISTRESS”](115024121222434538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115024121222434538
+  - “DISTRICT IN DISTRESS”
+- [23:33 UTC - Washington, D.C., has one of the Highest Rates of Crime in the World, more than many of th...](115024069066734919/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115024069066734919
+  - Washington, D.C., has one of the Highest Rates of Crime in the World, more than many of the most violent Third World Countries. The City’s Homicide Rate is higher than places notor...
+- [16:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115022453383517920 CHAIRMAN OF ...](115022464168438478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022464168438478
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115022453383517920 CHAIRMAN OF THE HOUSE OVERSIGHT COMMITTEE, REPRESENTATIVE JAMES COMER…
+- [16:42 UTC - “DOCUMENTS REVEAL JAMES COMEY ASSOCIATE LEAKED CLASSIFIED INFORMATION TO THE NYT”](115022453383517920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022453383517920
+  - “DOCUMENTS REVEAL JAMES COMEY ASSOCIATE LEAKED CLASSIFIED INFORMATION TO THE NYT”
+- [16:21 UTC - KENNEDY CENTER 2025 HONOREES…](115022369167178401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022369167178401
+  - KENNEDY CENTER 2025 HONOREES…
+- [15:42 UTC - [@ DonaldJTrumpJr](https://truthsocial.com/@DonaldJTrumpJr) : “We hit rock bottoms as a Co...](115022215816175004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022215816175004
+  - [@ DonaldJTrumpJr](https://truthsocial.com/@DonaldJTrumpJr) : “We hit rock bottoms as a Country. We know the people who are on our team, they are fighting together as one engine, a...
+- [15:37 UTC - “MARIA HAS CALLED OUT SCHIFF’S CLAIMS FOR YEARS”](115022199052825878/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022199052825878
+  - “MARIA HAS CALLED OUT SCHIFF’S CLAIMS FOR YEARS”
+- [15:25 UTC - Newt Gingrich: “Every time you turn around Trump is doing something entirely amazing…”](115022151227119695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022151227119695
+  - Newt Gingrich: “Every time you turn around Trump is doing something entirely amazing…”
+- [14:50 UTC - Wow! Highest polling Republican President in HISTORY! Thank you.](115022012587872496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022012587872496
+  - Wow! Highest polling Republican President in HISTORY! Thank you.
+- [14:50 UTC - [https://www. breitbart.com/politics/2025/08 /12/white-house-touts-wages-outpacing-inflati...](115022012364097404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022012364097404
+  - [https://www. breitbart.com/politics/2025/08 /12/white-house-touts-wages-outpacing-inflation-ignore-the-panicans-and-trust-in-president-trump/](https://www.breitbart.com/politics/2...
+- [14:48 UTC - [https://www. foxnews.com/opinion/big-beauti ful-bill-gives-parents-choice-kids-chance](ht...](115022005966983612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115022005966983612
+  - [https://www. foxnews.com/opinion/big-beauti ful-bill-gives-parents-choice-kids-chance](https://www.foxnews.com/opinion/big-beautiful-bill-gives-parents-choice-kids-chance)
+- [14:21 UTC - [@ EricTrump](https://truthsocial.com/@EricTrump) : “My father has a Cabinet that’s unpara...](115021897738089560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115021897738089560
+  - [@ EricTrump](https://truthsocial.com/@EricTrump) : “My father has a Cabinet that’s unparalleled… He’s making America PROUD, he’s making transformational change to this Country, an...
+- [12:55 UTC - She is a disgrace. [https://www. thegatewaypundit.com/2025/07/h er-biggest-scandal-yet-ira...](115021559223615445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115021559223615445
+  - She is a disgrace. [https://www. thegatewaypundit.com/2025/07/h er-biggest-scandal-yet-iran-china-are-circumventing/](https://www.thegatewaypundit.com/2025/07/her-biggest-scandal-y...
+- [11:42 UTC - Very unfair media is at work on my meeting with Putin. Constantly quoting fired losers and...](115021272837599192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115021272837599192
+  - Very unfair media is at work on my meeting with Putin. Constantly quoting fired losers and really dumb people like John Bolton, who just said that, even though the meeting is on Am...
+- [11:15 UTC - Will be speaking to European Leaders in a short while. They are great people who want to s...](115021166810580379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115021166810580379
+  - Will be speaking to European Leaders in a short while. They are great people who want to see a deal done.
+- [10:17 UTC - Just out, irrefutable proof that Adam Shifty Schiff “APPROVED PLAN TO LEAK CLASSIFIED INFO...](115020938176485683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115020938176485683
+  - Just out, irrefutable proof that Adam Shifty Schiff “APPROVED PLAN TO LEAK CLASSIFIED INFORMATION TO DAMAGE DONALD TRUMP.”
+- [03:00 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115015798555807745](115019222200325189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115019222200325189
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115015798555807745
+- [00:54 UTC - [https://www. rsbnetwork.com/news/trump-deta ils-federal-takeover-to-make-d-c-great-again/...](115018726366384874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115018726366384874
+  - [https://www. rsbnetwork.com/news/trump-deta ils-federal-takeover-to-make-d-c-great-again/](https://www.rsbnetwork.com/news/trump-details-federal-takeover-to-make-d-c-great-again/)
+- [00:52 UTC - [https:// hannity.com/media-room/post-op -ed-trumps-takeover-of-dc-policing-is-entirely-se...](115018718910921660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115018718910921660
+  - [https:// hannity.com/media-room/post-op -ed-trumps-takeover-of-dc-policing-is-entirely-sensible-and-a-win-for-the-people-of-washington/](https://hannity.com/media-room/post-op-ed-...
+- [00:49 UTC - Truth Social post 115018704675008961](115018704675008961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115018704675008961
+  - _No text content captured._

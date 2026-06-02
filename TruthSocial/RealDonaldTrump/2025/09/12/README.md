@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-09-12
+
+- Posts: 15
+
+- [23:43 UTC - Truth Social post 115193977977876444](115193977977876444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115193977977876444
+  - _No text content captured._
+- [23:43 UTC - Truth Social post 115193976379856715](115193976379856715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115193976379856715
+  - _No text content captured._
+- [23:42 UTC - Truth Social post 115193973865972895](115193973865972895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115193973865972895
+  - _No text content captured._
+- [20:02 UTC - Thank you very much to the Great State of Missouri for the Redistricting which will, hopef...](115193110827591178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115193110827591178
+  - Thank you very much to the Great State of Missouri for the Redistricting which will, hopefully, give us an additional Seat in Congress! A new, much fairer, and much improved, Congr...
+- [14:01 UTC - Everybody Loved Charlie!](115191689087302108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115191689087302108
+  - Everybody Loved Charlie!
+- [06:39 UTC - Truth Social post 115189950427467147](115189950427467147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189950427467147
+  - _No text content captured._
+- [05:29 UTC - Truth Social post 115189677904900764](115189677904900764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189677904900764
+  - _No text content captured._
+- [04:05 UTC - Truth Social post 115189346697494678](115189346697494678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189346697494678
+  - _No text content captured._
+- [03:52 UTC - Truth Social post 115189296175402398](115189296175402398/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189296175402398
+  - _No text content captured._
+- [03:50 UTC - Truth Social post 115189286533055069](115189286533055069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189286533055069
+  - _No text content captured._
+- [03:50 UTC - Truth Social post 115189285885791570](115189285885791570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189285885791570
+  - _No text content captured._
+- [03:50 UTC - Truth Social post 115189285101036203](115189285101036203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189285101036203
+  - _No text content captured._
+- [03:48 UTC - Truth Social post 115189277515213727](115189277515213727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189277515213727
+  - _No text content captured._
+- [03:37 UTC - Truth Social post 115189235634811091](115189235634811091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189235634811091
+  - _No text content captured._
+- [03:36 UTC - Truth Social post 115189230998770532](115189230998770532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115189230998770532
+  - _No text content captured._

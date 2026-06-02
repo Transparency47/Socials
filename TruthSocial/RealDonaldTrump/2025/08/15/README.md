@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-08-15
+
+- Posts: 9
+
+- [23:40 UTC - Truth Social post 115035421503762544](115035421503762544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115035421503762544
+  - _No text content captured._
+- [16:32 UTC - On my way to Alaska!](115033738310216825/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115033738310216825
+  - On my way to Alaska!
+- [15:51 UTC - Jasmine Crockett is the future of the Democrat Party!](115033577620780867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115033577620780867
+  - Jasmine Crockett is the future of the Democrat Party!
+- [15:50 UTC - It’s just been found that the Democrats are buying protestors in order to fight my attack ...](115033574125099183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115033574125099183
+  - It’s just been found that the Democrats are buying protestors in order to fight my attack on crime. These are criminals who support crime. They are unelectable!
+- [13:58 UTC - I had a wonderful talk with the highly respected President of Belarus, Aleksandr Lukashenk...](115033133751064517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115033133751064517
+  - I had a wonderful talk with the highly respected President of Belarus, Aleksandr Lukashenko. The purpose of the call was to thank him for the release of 16 prisoners. We are also d...
+- [12:32 UTC - Truth Social post 115032796292247902](115032796292247902/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115032796292247902
+  - _No text content captured._
+- [12:23 UTC - Truth Social post 115032759459494563](115032759459494563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115032759459494563
+  - _No text content captured._
+- [11:44 UTC - 10 YEARS AGO TODAY—AT THE IOWA STATE FAIR!](115032607453603307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115032607453603307
+  - 10 YEARS AGO TODAY—AT THE IOWA STATE FAIR!
+- [10:59 UTC - HIGH STAKES!!!](115032429826787232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115032429826787232
+  - HIGH STAKES!!!

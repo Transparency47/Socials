@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2025-08-09
+
+- Posts: 30
+
+- [23:14 UTC - Truth Social post 115001344422343742](115001344422343742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115001344422343742
+  - _No text content captured._
+- [23:13 UTC - Crooked Nancy Pelosi, and her very “interesting” husband, beat every Hedge Fund in 2024. I...](115001339487533426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115001339487533426
+  - Crooked Nancy Pelosi, and her very “interesting” husband, beat every Hedge Fund in 2024. In other words, these two very average “minds” beat ALL of the Super Geniuses on Wall Stree...
+- [22:07 UTC - Last week in Aberdeen, Scotland.](115001082084019408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115001082084019408
+  - Last week in Aberdeen, Scotland.
+- [19:32 UTC - I am pleased to announce that I am nominating Tammy Bruce, a Great Patriot, Television Per...](115000471177982480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115000471177982480
+  - I am pleased to announce that I am nominating Tammy Bruce, a Great Patriot, Television Personality, and Bestselling Author, as our next Deputy Representative of the United States t...
+- [19:31 UTC - Truth Social post 115000468326828539](115000468326828539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115000468326828539
+  - _No text content captured._
+- [13:40 UTC - On Monday a Press Conference will be held at the White House which will, essentially, stop...](114999087271735961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114999087271735961
+  - On Monday a Press Conference will be held at the White House which will, essentially, stop violent crime in Washington, D.C. It has become one of the most dangerous cities anywhere...
+- [13:38 UTC - Truth Social post 114999079292068835](114999079292068835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114999079292068835
+  - _No text content captured._
+- [13:08 UTC - [https://www. dailywire.com/news/trump-econo my-beat-bidens-for-all-americans-economist-sa...](114998962964272531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114998962964272531
+  - [https://www. dailywire.com/news/trump-econo my-beat-bidens-for-all-americans-economist-says](https://www.dailywire.com/news/trump-economy-beat-bidens-for-all-americans-economist-s...
+- [13:04 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114998916216091134 As President...](114998948130255225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114998948130255225
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114998916216091134 As President, my highest aspiration is to bring PEACE and STABILITY to the WORLD.
+- [13:02 UTC - For more than 35 years, Armenia and Azerbaijan have fought a bitter conflict that resulted...](114998940595835853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114998940595835853
+  - For more than 35 years, Armenia and Azerbaijan have fought a bitter conflict that resulted in tremendous suffering... many tried to find a resolution... and they were unsuccessful....
+- [12:56 UTC - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-brokers-another-historic-pe...](114998916216091134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114998916216091134
+  - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-brokers-another-historic-peace-deal/](https://www.whitehouse.gov/articles/2025/08/president-trump-brokers-another-his...
+- [03:26 UTC - [https:// truthsocial.com/@realDonaldTru mp/114989652109671625](https://truthsocial.com/@r...](114996672870693632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996672870693632
+  - [https:// truthsocial.com/@realDonaldTru mp/114989652109671625](https://truthsocial.com/@realDonaldTrump/114989652109671625)
+- [03:22 UTC - [https:// truthsocial.com/@realDonaldTru mp/114989710007699329](https://truthsocial.com/@r...](114996659642409379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996659642409379
+  - [https:// truthsocial.com/@realDonaldTru mp/114989710007699329](https://truthsocial.com/@realDonaldTrump/114989710007699329)
+- [03:21 UTC - [https:// truthsocial.com/@realDonaldTru mp/114990239799856454](https://truthsocial.com/@r...](114996655816700753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996655816700753
+  - [https:// truthsocial.com/@realDonaldTru mp/114990239799856454](https://truthsocial.com/@realDonaldTrump/114990239799856454) …..AND STRONGER THAN EVER!!!
+- [03:20 UTC - [https:// truthsocial.com/@realDonaldTru mp/114990585891728756](https://truthsocial.com/@r...](114996650928048410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996650928048410
+  - [https:// truthsocial.com/@realDonaldTru mp/114990585891728756](https://truthsocial.com/@realDonaldTrump/114990585891728756)
+- [03:20 UTC - [https:// truthsocial.com/@realDonaldTru mp/114990801436290933](https://truthsocial.com/@r...](114996648926253605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996648926253605
+  - [https:// truthsocial.com/@realDonaldTru mp/114990801436290933](https://truthsocial.com/@realDonaldTrump/114990801436290933)
+- [03:19 UTC - [https:// truthsocial.com/@realDonaldTru mp/114993652992825116](https://truthsocial.com/@r...](114996647292850109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996647292850109
+  - [https:// truthsocial.com/@realDonaldTru mp/114993652992825116](https://truthsocial.com/@realDonaldTrump/114993652992825116)
+- [03:19 UTC - [https:// truthsocial.com/@realDonaldTru mp/114994598552362928](https://truthsocial.com/@r...](114996645749563632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996645749563632
+  - [https:// truthsocial.com/@realDonaldTru mp/114994598552362928](https://truthsocial.com/@realDonaldTrump/114994598552362928)
+- [03:18 UTC - [https:// truthsocial.com/@realDonaldTru mp/114994805324662696](https://truthsocial.com/@r...](114996644066040523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996644066040523
+  - [https:// truthsocial.com/@realDonaldTru mp/114994805324662696](https://truthsocial.com/@realDonaldTrump/114994805324662696)
+- [03:18 UTC - [https:// truthsocial.com/@realDonaldTru mp/114994895877461850](https://truthsocial.com/@r...](114996643340552226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996643340552226
+  - [https:// truthsocial.com/@realDonaldTru mp/114994895877461850](https://truthsocial.com/@realDonaldTrump/114994895877461850)
+- [03:17 UTC - [https:// truthsocial.com/@realDonaldTru mp/114995132873629524](https://truthsocial.com/@r...](114996640052653074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996640052653074
+  - [https:// truthsocial.com/@realDonaldTru mp/114995132873629524](https://truthsocial.com/@realDonaldTrump/114995132873629524)
+- [03:17 UTC - [https:// truthsocial.com/@realDonaldTru mp/114995403653615328](https://truthsocial.com/@r...](114996639371063415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996639371063415
+  - [https:// truthsocial.com/@realDonaldTru mp/114995403653615328](https://truthsocial.com/@realDonaldTrump/114995403653615328)
+- [03:17 UTC - [https:// !!!truthsocial.com/@realDonald Trump/114995779410398631](https://!!!truthsocial....](114996638198251019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996638198251019
+  - [https:// !!!truthsocial.com/@realDonald Trump/114995779410398631](https://!!!truthsocial.com/@realDonaldTrump/114995779410398631) . Actually, 300 BILLION DOLLARS!
+- [03:11 UTC - [https:// truthsocial.com/@realDonaldTru mp/114995786897421241](https://truthsocial.com/@r...](114996615469970230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996615469970230
+  - [https:// truthsocial.com/@realDonaldTru mp/114995786897421241](https://truthsocial.com/@realDonaldTrump/114995786897421241)
+- [03:11 UTC - [https:// truthsocial.com/@realDonaldTru mp/114995993048537630](https://truthsocial.com/@r...](114996614063432455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996614063432455
+  - [https:// truthsocial.com/@realDonaldTru mp/114995993048537630](https://truthsocial.com/@realDonaldTrump/114995993048537630)
+- [03:10 UTC - [https:// truthsocial.com/@realDonaldTru mp/114996078632921118](https://truthsocial.com/@r...](114996612835827547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996612835827547
+  - [https:// truthsocial.com/@realDonaldTru mp/114996078632921118](https://truthsocial.com/@realDonaldTrump/114996078632921118)
+- [03:10 UTC - [https:// truthsocial.com/@realDonaldTru mp/114996095625446183](https://truthsocial.com/@r...](114996610724935360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996610724935360
+  - [https:// truthsocial.com/@realDonaldTru mp/114996095625446183](https://truthsocial.com/@realDonaldTrump/114996095625446183)
+- [00:59 UTC - Every Purple Heart tells a story of courage, sacrifice, and purpose. It speaks of a price ...](114996095625446183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996095625446183
+  - Every Purple Heart tells a story of courage, sacrifice, and purpose. It speaks of a price paid for the soldier beside you, the country behind you, and the generations of Americans...
+- [00:55 UTC - [https://www. breitbart.com/politics/2025/08 /07/donald-trumps-six-biggest-wins-200-days-o...](114996078632921118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114996078632921118
+  - [https://www. breitbart.com/politics/2025/08 /07/donald-trumps-six-biggest-wins-200-days-office/](https://www.breitbart.com/politics/2025/08/07/donald-trumps-six-biggest-wins-200-d...
+- [00:33 UTC - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-brokers-another-historic-pe...](114995993048537630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114995993048537630
+  - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-brokers-another-historic-peace-deal/](https://www.whitehouse.gov/articles/2025/08/president-trump-brokers-another-his...

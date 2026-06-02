@@ -1,0 +1,154 @@
+# TruthSocial / RealDonaldTrump / 2025-09-16
+
+- Posts: 50
+
+- [23:39 UTC - “KATIE MILLER REACTS TO LEFTIST PROTESTS…”](115216612718850378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216612718850378
+  - “KATIE MILLER REACTS TO LEFTIST PROTESTS…”
+- [23:38 UTC - RT [@ DanScavino](https://truthsocial.com/@DanScavino) Moments Ago—President [@ realDonald...](115216608951706816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216608951706816
+  - RT [@ DanScavino](https://truthsocial.com/@DanScavino) Moments Ago—President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) and First Lady [@ MelaniaTrump](https://t...
+- [23:38 UTC - RT [@ DanScavino](https://truthsocial.com/@DanScavino) 9/16/25 — President [@ realDonaldTr...](115216608540435454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216608540435454
+  - RT [@ DanScavino](https://truthsocial.com/@DanScavino) 9/16/25 — President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) and First Lady [@ MelaniaTrump](https://tru...
+- [23:08 UTC - [https:// truthsocial.com/@PressSec/1152 14217060493507](https://truthsocial.com/@PressSec...](115216489497370449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216489497370449
+  - [https:// truthsocial.com/@PressSec/1152 14217060493507](https://truthsocial.com/@PressSec/115214217060493507)
+- [23:07 UTC - [https:// truthsocial.com/@PressSec/1152 14238717730733](https://truthsocial.com/@PressSec...](115216485737053030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216485737053030
+  - [https:// truthsocial.com/@PressSec/1152 14238717730733](https://truthsocial.com/@PressSec/115214238717730733)
+- [23:07 UTC - [https:// truthsocial.com/@PressSec/1152 14244420899397](https://truthsocial.com/@PressSec...](115216483691167608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216483691167608
+  - [https:// truthsocial.com/@PressSec/1152 14244420899397](https://truthsocial.com/@PressSec/115214244420899397)
+- [23:04 UTC - [https:// truthsocial.com/@PressSec/1152 14281194786828](https://truthsocial.com/@PressSec...](115216473023573231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216473023573231
+  - [https:// truthsocial.com/@PressSec/1152 14281194786828](https://truthsocial.com/@PressSec/115214281194786828)
+- [23:04 UTC - [https:// truthsocial.com/@PressSec/1152 15502820328556](https://truthsocial.com/@PressSec...](115216471857965166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216471857965166
+  - [https:// truthsocial.com/@PressSec/1152 15502820328556](https://truthsocial.com/@PressSec/115215502820328556)
+- [23:02 UTC - [https:// truthsocial.com/@PressSec/1152 15522669417184](https://truthsocial.com/@PressSec...](115216465885487095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216465885487095
+  - [https:// truthsocial.com/@PressSec/1152 15522669417184](https://truthsocial.com/@PressSec/115215522669417184)
+- [23:01 UTC - [https:// truthsocial.com/@PressSec/1152 15542188721888](https://truthsocial.com/@PressSec...](115216462883434045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216462883434045
+  - [https:// truthsocial.com/@PressSec/1152 15542188721888](https://truthsocial.com/@PressSec/115215542188721888)
+- [23:00 UTC - [https:// truthsocial.com/@PressSec/1152 15724707131236](https://truthsocial.com/@PressSec...](115216456375834971/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216456375834971
+  - [https:// truthsocial.com/@PressSec/1152 15724707131236](https://truthsocial.com/@PressSec/115215724707131236)
+- [22:57 UTC - [https:// truthsocial.com/@realDonaldTru mp/115197977441542163](https://truthsocial.com/@r...](115216445416479469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216445416479469
+  - [https:// truthsocial.com/@realDonaldTru mp/115197977441542163](https://truthsocial.com/@realDonaldTrump/115197977441542163) TTHANK YOU, LEO!
+- [22:54 UTC - I am getting amazing feedback on my Lawsuit against The New York Times. The predominant fe...](115216434940272027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216434940272027
+  - I am getting amazing feedback on my Lawsuit against The New York Times. The predominant feeling and sentiment is, “IT’S ABOUT TIME!” The case was filed in the Great State of Florid...
+- [22:33 UTC - [https:// nypost.com/2025/09/16/us-news/ zohran-mamdani-refuses-to-back-kathy-hochul-for-r...](115216351604644170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216351604644170
+  - [https:// nypost.com/2025/09/16/us-news/ zohran-mamdani-refuses-to-back-kathy-hochul-for-re-election-after-she-endorsed-him-in-nyc-mayoral-race-she-got-played/](https://nypost.com/...
+- [21:25 UTC - Truth Social post 115216083800208232](115216083800208232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115216083800208232
+  - _No text content captured._
+- [20:47 UTC - No place like the White House!](115215935113008933/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215935113008933
+  - No place like the White House!
+- [19:19 UTC - BREAKING NEWS! In a Big WIN for Justice and Law in Georgia, the Georgia Supreme Court just...](115215588649960500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215588649960500
+  - BREAKING NEWS! In a Big WIN for Justice and Law in Georgia, the Georgia Supreme Court just ruled that District Attorney Fani Willis and her “team” of Weaponized Prosecutors are DIS...
+- [19:04 UTC - Such an Honor to have helped settle the War with Azerbaijan and Armenia and, at the same t...](115215531079925851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215531079925851
+  - Such an Honor to have helped settle the War with Azerbaijan and Armenia and, at the same time, become friends with these two Great Leaders and Men, President Ilham Aliyev and Prime...
+- [18:36 UTC - Shockingly, I have just learned, that Gavin Newscum, the Governor of California, is in fin...](115215419860494912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215419860494912
+  - Shockingly, I have just learned, that Gavin Newscum, the Governor of California, is in final stages of approval to build Low Income Housing in Pacific Palisades. How unfair is that...
+- [18:34 UTC - Truth Social post 115215411190625427](115215411190625427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215411190625427
+  - _No text content captured._
+- [18:00 UTC - Just had a wonderful phone call with my friend, Prime Minister Narendra Modi. I wished him...](115215278610415981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215278610415981
+  - Just had a wonderful phone call with my friend, Prime Minister Narendra Modi. I wished him a very Happy Birthday! He is doing a tremendous job. Narendra: Thank you for your support...
+- [17:56 UTC - The Republicans are going to do a Midterm Convention in order to show the great things we ...](115215261916717696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215261916717696
+  - The Republicans are going to do a Midterm Convention in order to show the great things we have done since the Presidential Election of 2024. Time and place to be determined. Stay t...
+- [16:50 UTC - Truth Social post 115215003015653168](115215003015653168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215003015653168
+  - _No text content captured._
+- [16:50 UTC - Truth Social post 115215002390997746](115215002390997746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115215002390997746
+  - _No text content captured._
+- [15:15 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I have just read a News R...](115214628263440524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214628263440524
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I have just read a News Report that Hamas has moved the hostages above ground to use them as human shields against...
+- [15:15 UTC - [https://www. telegraph.co.uk/world-news/202 5/09/15/hamas-hostages-gaza-israel/](https://...](115214627673767594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214627673767594
+  - [https://www. telegraph.co.uk/world-news/202 5/09/15/hamas-hostages-gaza-israel/](https://www.telegraph.co.uk/world-news/2025/09/15/hamas-hostages-gaza-israel/)
+- [15:14 UTC - [https://www. timesofisrael.com/liveblog_ent ry/ahead-of-gaza-city-op-hamas-moved-hostages...](115214626521204183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214626521204183
+  - [https://www. timesofisrael.com/liveblog_ent ry/ahead-of-gaza-city-op-hamas-moved-hostages-above-ground-to-restrict-armys-movements-report/](https://www.timesofisrael.com/liveblog_...
+- [15:13 UTC - [https:// justthenews.com/accountability /political-ethics/sweeping-wh-autopen-review-find...](115214623618057198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214623618057198
+  - [https:// justthenews.com/accountability /political-ethics/sweeping-wh-autopen-review-finds-scant-record-bidens-approvals](https://justthenews.com/accountability/political-ethics/s...
+- [15:13 UTC - [https://www. wsj.com/economy/trade/tariff-c ase-could-give-trump-massive-new-fiscal-power...](115214622379049350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214622379049350
+  - [https://www. wsj.com/economy/trade/tariff-c ase-could-give-trump-massive-new-fiscal-powers-cfa385a1](https://www.wsj.com/economy/trade/tariff-case-could-give-trump-massive-new-fis...
+- [15:12 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Biden imported--and even housed in 4-star...](115214619726470267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214619726470267
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Biden imported--and even housed in 4-star hotels--the most dangerous terrorists and vicious gang members in the Western hemisphere....
+- [15:12 UTC - [https://www. dailymail.co.uk/news/article-1 5080607/Obama-presidential-center-Chicago-cos...](115214618898446937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214618898446937
+  - [https://www. dailymail.co.uk/news/article-1 5080607/Obama-presidential-center-Chicago-cost-budget-eyesore.html](https://www.dailymail.co.uk/news/article-15080607/Obama-presidentia...
+- [15:12 UTC - [https://www. axios.com/2025/08/08/trump-pri tzker-tension-great-lakes-carp](https://www.a...](115214617777906734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214617777906734
+  - [https://www. axios.com/2025/08/08/trump-pri tzker-tension-great-lakes-carp](https://www.axios.com/2025/08/08/trump-pritzker-tension-great-lakes-carp)
+- [15:11 UTC - [https://www. breitbart.com/politics/2025/09 /08/exclusive-fbi-director-kash-patel-after-s...](115214615299175020/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214615299175020
+  - [https://www. breitbart.com/politics/2025/09 /08/exclusive-fbi-director-kash-patel-after-series-of-voter-fraud-charges-voter-fraud-is-a-serious-crime/](https://www.breitbart.com/po...
+- [15:11 UTC - [https:// abcnews.go.com/US/michigan-jud ge-dismisses-case-15-alleged-fake-electors/story?...](115214614413271972/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214614413271972
+  - [https:// abcnews.go.com/US/michigan-jud ge-dismisses-case-15-alleged-fake-electors/story?id=125399789](https://abcnews.go.com/US/michigan-judge-dismisses-case-15-alleged-fake-elec...
+- [15:10 UTC - [https://www. wsj.com/opinion/europe-has-bee n-going-cold-on-net-zero-5d0ab184](https://ww...](115214611639210222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214611639210222
+  - [https://www. wsj.com/opinion/europe-has-bee n-going-cold-on-net-zero-5d0ab184](https://www.wsj.com/opinion/europe-has-been-going-cold-on-net-zero-5d0ab184)
+- [15:10 UTC - [https://www. dailywire.com/news/noem-cuts-3 0-million-in-frivolous-homeland-security-spen...](115214608738832255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214608738832255
+  - [https://www. dailywire.com/news/noem-cuts-3 0-million-in-frivolous-homeland-security-spending-in-three-weeks](https://www.dailywire.com/news/noem-cuts-30-million-in-frivolous-home...
+- [15:09 UTC - [https://www. foxnews.com/sports/aaron-boone -recalls-special-night-after-trumps-meeting-y...](115214607525114929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214607525114929
+  - [https://www. foxnews.com/sports/aaron-boone -recalls-special-night-after-trumps-meeting-yankees-9-11-anniversary](https://www.foxnews.com/sports/aaron-boone-recalls-special-night-...
+- [15:09 UTC - “Trump’s Man With a Plan in Hollywood Opens Up” [https://www. hollywoodreporter.com/busine...](115214606264586178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214606264586178
+  - “Trump’s Man With a Plan in Hollywood Opens Up” [https://www. hollywoodreporter.com/business /business-news/trump-steven-paul-jon-voight-hollywood-incentives-1236367149/](https://w...
+- [15:08 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) My latest: “While [Judge Aileen] Cannon e...](115214602833487353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214602833487353
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) My latest: “While [Judge Aileen] Cannon epitomizes the gold standard of the federal judiciary, Obama-appointed D.C. Chief District...
+- [15:07 UTC - Truth Social post 115214598414061328](115214598414061328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214598414061328
+  - _No text content captured._
+- [15:07 UTC - Truth Social post 115214597844491830](115214597844491830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214597844491830
+  - _No text content captured._
+- [15:04 UTC - Truth Social post 115214585467068233](115214585467068233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214585467068233
+  - _No text content captured._
+- [15:03 UTC - Truth Social post 115214584219779071](115214584219779071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214584219779071
+  - _No text content captured._
+- [15:03 UTC - Truth Social post 115214582518088835](115214582518088835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214582518088835
+  - _No text content captured._
+- [15:02 UTC - Truth Social post 115214580045356929](115214580045356929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214580045356929
+  - _No text content captured._
+- [15:02 UTC - Truth Social post 115214577541944786](115214577541944786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214577541944786
+  - _No text content captured._
+- [14:36 UTC - [https://www. washingtonexaminer.com/opinion /columnists/3800566/michael-whatley-is-runnin...](115214478126238663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115214478126238663
+  - [https://www. washingtonexaminer.com/opinion /columnists/3800566/michael-whatley-is-running-to-restore-north-carolina-values/](https://www.washingtonexaminer.com/opinion/columnists...
+- [07:40 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The only reason crime is ...](115212839080179321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115212839080179321
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The only reason crime is somewhat down in Memphis is because the FBI, and others in the Federal Government, at my d...
+- [07:39 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) When Foreign Companies wh...](115212836965154737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115212836965154737
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) When Foreign Companies who are building extremely complex products, machines, and various other “things,” come into...
+- [03:45 UTC - Today, I have the Great Honor of bringing a $15 Billion Dollar Defamation and Libel Lawsui...](115211918198289404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115211918198289404
+  - Today, I have the Great Honor of bringing a $15 Billion Dollar Defamation and Libel Lawsuit against The New York Times, one of the worst and most degenerate newspapers in the Histo...

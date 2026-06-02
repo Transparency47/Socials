@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-09-01
+
+- Posts: 15
+
+- [23:46 UTC - [https://www. foxnews.com/video/637807420611 2](https://www.foxnews.com/video/637807420611...](115131702839970386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115131702839970386
+  - [https://www. foxnews.com/video/637807420611 2](https://www.foxnews.com/video/6378074206112)
+- [22:42 UTC - “Woody Allen Wants to Direct Donald Trump in Another Movie After 1998’s ‘Celebrity’: ‘A Pl...](115131453547647085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115131453547647085
+  - “Woody Allen Wants to Direct Donald Trump in Another Movie After 1998’s ‘Celebrity’: ‘A Pleasure to Work With and a Very Good Actor’” [https:// variety.com/2025/film/news/woo dy-al...
+- [20:11 UTC - As President of the United States of America, I am pleased to announce that Rudy Giuliani,...](115130857021044948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115130857021044948
+  - As President of the United States of America, I am pleased to announce that Rudy Giuliani, the greatest Mayor in the history of New York City, and an equally great American Patriot...
+- [20:01 UTC - Truth Social post 115130820169010877](115130820169010877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115130820169010877
+  - _No text content captured._
+- [17:52 UTC - Truth Social post 115130313763809042](115130313763809042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115130313763809042
+  - _No text content captured._
+- [13:25 UTC - What few people understand is that we do very little business with India, but they do a tr...](115129261076571259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115129261076571259
+  - What few people understand is that we do very little business with India, but they do a tremendous amount of business with us. In other words, they sell us massive amounts of goods...
+- [12:15 UTC - It is very important that the Drug Companies justify the success of their various Covid Dr...](115128985245605660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115128985245605660
+  - It is very important that the Drug Companies justify the success of their various Covid Drugs. Many people think they are a miracle that saved Millions of lives. Others disagree! W...
+- [11:41 UTC - Wow! Mayor Muriel Bowser of D.C. has become very popular because she worked with me and my...](115128853265372429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115128853265372429
+  - Wow! Mayor Muriel Bowser of D.C. has become very popular because she worked with me and my great people in bringing CRIME down to virtually NOTHING in D.C. Her statements and actio...
+- [01:54 UTC - GOOD NIGHT!!!](115126546079910626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126546079910626
+  - GOOD NIGHT!!!
+- [01:42 UTC - More than 15 Trillion Dollars will be invested in the USA, a RECORD. Much of this investme...](115126499944858986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126499944858986
+  - More than 15 Trillion Dollars will be invested in the USA, a RECORD. Much of this investment is because of Tariffs. If a Radical Left Court is allowed to terminate these Tariffs, a...
+- [01:30 UTC - CRIME IS TOTALLY OUT OF CONTROL IN CHICAGO. 6 DEAD, 24 BADLY WOUNDED, LAST WEEK ALONE!!!](115126449469247578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126449469247578
+  - CRIME IS TOTALLY OUT OF CONTROL IN CHICAGO. 6 DEAD, 24 BADLY WOUNDED, LAST WEEK ALONE!!!
+- [01:24 UTC - Same Judge as on Fed Case. I wonder how that happened??? Must recuse!!! President DJT “Fed...](115126426327367030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126426327367030
+  - Same Judge as on Fed Case. I wonder how that happened??? Must recuse!!! President DJT “Federal judge blocks Trump effort to expand fast-track deportations” [https://www. politico.c...
+- [01:23 UTC - This is a total Conflict of Interest. The Judge must RECUSE, IMMEDIATELY!!! President DJT](115126421567567735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126421567567735
+  - This is a total Conflict of Interest. The Judge must RECUSE, IMMEDIATELY!!! President DJT
+- [01:13 UTC - Prices are “WAY DOWN” in the USA, with virtually no inflation. With the exception of ridic...](115126384708348116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126384708348116
+  - Prices are “WAY DOWN” in the USA, with virtually no inflation. With the exception of ridiculous, corrupt politician approved “Windmills,” which are killing every State and Country...
+- [00:54 UTC - Why does Fake News ABC’S This Week With George Slopadopolus have Low IQ “commentator” Donn...](115126310071570564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115126310071570564
+  - Why does Fake News ABC’S This Week With George Slopadopolus have Low IQ “commentator” Donna Brazile on the show? Wasn’t she totally discredited when she gave Crooked Hillary Clinto...

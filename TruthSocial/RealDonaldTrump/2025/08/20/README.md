@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-08-20
+
+- Posts: 10
+
+- [14:27 UTC - Secretary Marco Rubio: "The only leader in the world that can talk to both [Putin and Zele...](115061558603769379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061558603769379
+  - Secretary Marco Rubio: "The only leader in the world that can talk to both [Putin and Zelensky] and bring them both to a meeting is Donald J. Trump… We should be proud that we have...
+- [14:22 UTC - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-recaps-breakthroughs-in-ukr...](115061540285465600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061540285465600
+  - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-recaps-breakthroughs-in-ukraine-peace-talks/](https://www.whitehouse.gov/articles/2025/08/president-trump-recaps-brea...
+- [14:20 UTC - Environmental Protection Agency Administrator, Lee Zeldin: “ZERO TOLERANCE: The Trump EPA ...](115061532152460260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061532152460260
+  - Environmental Protection Agency Administrator, Lee Zeldin: “ZERO TOLERANCE: The Trump EPA terminates ALL green slush funds riddled with waste and abuse. Up to $29+ BILLION CANCELLE...
+- [14:18 UTC - Environmental Protection Agency Administrator, Lee Zeldin: “We want to power the great Ame...](115061523871381886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061523871381886
+  - Environmental Protection Agency Administrator, Lee Zeldin: “We want to power the great American comeback, which means clean air, land, and water for all Americans — but we can also...
+- [14:16 UTC - Secretary Scott Bessent: "President Trump is the only person in the world—only person in t...](115061515379882720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061515379882720
+  - Secretary Scott Bessent: "President Trump is the only person in the world—only person in the world—who can stop this conflict."
+- [14:13 UTC - [https://www. foxnews.com/opinion/sen-tom-co tton-trump-right-bring-law-order-back-dc](htt...](115061504465158687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061504465158687
+  - [https://www. foxnews.com/opinion/sen-tom-co tton-trump-right-bring-law-order-back-dc](https://www.foxnews.com/opinion/sen-tom-cotton-trump-right-bring-law-order-back-dc)
+- [13:51 UTC - Any State that has built and relied on WINDMILLS and SOLAR for power are seeing RECORD BRE...](115061417084982814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061417084982814
+  - Any State that has built and relied on WINDMILLS and SOLAR for power are seeing RECORD BREAKING INCREASES IN ELECTRICITY AND ENERGY COSTS. THE SCAM OF THE CENTURY! We will not appr...
+- [12:37 UTC - [https:// truthsocial.com/@mrddmia/11504 9130901914359](https://truthsocial.com/@mrddmia/1...](115061125297048753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061125297048753
+  - [https:// truthsocial.com/@mrddmia/11504 9130901914359](https://truthsocial.com/@mrddmia/115049130901914359)
+- [12:31 UTC - Cook must resign, now!!! [https://www. bloomberg.com/news/articles/20 25-08-20/trump-ally-...](115061104213677946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115061104213677946
+  - Cook must resign, now!!! [https://www. bloomberg.com/news/articles/20 25-08-20/trump-ally-calls-on-bondi-to-probe-fed-s-cook-over-mortgages](https://www.bloomberg.com/news/articles...
+- [01:03 UTC - Truth Social post 115058397130134562](115058397130134562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115058397130134562
+  - _No text content captured._

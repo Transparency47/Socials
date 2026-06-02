@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2025-07-04
+
+- Posts: 30
+
+- [22:45 UTC - Truth Social post 114797386854813671](114797386854813671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114797386854813671
+  - _No text content captured._
+- [21:02 UTC - JOIN ME LIVE AT THE WHITE HOUSE! [https://www. youtube.com/live/_-3rqsYqXOI?s i=QHvYrsPuDr...](114796981884907603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114796981884907603
+  - JOIN ME LIVE AT THE WHITE HOUSE! [https://www. youtube.com/live/_-3rqsYqXOI?s i=QHvYrsPuDreDEwTS](https://www.youtube.com/live/_-3rqsYqXOI?si=QHvYrsPuDreDEwTS)
+- [19:31 UTC - Truth Social post 114796626413754796](114796626413754796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114796626413754796
+  - _No text content captured._
+- [19:28 UTC - Truth Social post 114796613578986692](114796613578986692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114796613578986692
+  - _No text content captured._
+- [16:16 UTC - Truth Social post 114795860013772529](114795860013772529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795860013772529
+  - _No text content captured._
+- [16:15 UTC - [https://www. breitbart.com/politics/2025/07 /04/18-big-beautiful-trump-victories-as-ameri...](114795854885832509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795854885832509
+  - [https://www. breitbart.com/politics/2025/07 /04/18-big-beautiful-trump-victories-as-america-celebrates-independence-day/](https://www.breitbart.com/politics/2025/07/04/18-big-beau...
+- [16:12 UTC - Truth Social post 114795841125154456](114795841125154456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795841125154456
+  - _No text content captured._
+- [16:01 UTC - Truth Social post 114795800307575763](114795800307575763/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795800307575763
+  - _No text content captured._
+- [15:08 UTC - Truth Social post 114795589940537416](114795589940537416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795589940537416
+  - _No text content captured._
+- [15:06 UTC - Truth Social post 114795583413642136](114795583413642136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795583413642136
+  - _No text content captured._
+- [14:48 UTC - It was my great honor to welcome Edan Alexander, held hostage by Hamas for 584 days—to the...](114795512010210371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795512010210371
+  - It was my great honor to welcome Edan Alexander, held hostage by Hamas for 584 days—to the Oval Office with his loved ones. We remain committed to bringing every hostage home!
+- [14:36 UTC - Truth Social post 114795463500981045](114795463500981045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795463500981045
+  - _No text content captured._
+- [14:27 UTC - Republican Strategist T.J. McCormack was fantastic this morning on NewsMax. He really know...](114795430236594813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795430236594813
+  - Republican Strategist T.J. McCormack was fantastic this morning on NewsMax. He really knows his “stuff!”
+- [14:23 UTC - The wonderful Newt Gingrich has just written a book that is the talk of D.C. It’s called, ...](114795415752881784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114795415752881784
+  - The wonderful Newt Gingrich has just written a book that is the talk of D.C. It’s called, “TRUMP’S TRIUMPH, America’s Greatest Comeback.” Word is that it’s Fantastic, but I haven’t...
+- [05:31 UTC - WOW! 218-2. Has a number like that ever happened before???](114793322724573514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114793322724573514
+  - WOW! 218-2. Has a number like that ever happened before???
+- [04:39 UTC - [https:// justthenews.com/government/whi te-house/trump-touts-successes-his-one-big-beauti...](114793118060937324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114793118060937324
+  - [https:// justthenews.com/government/whi te-house/trump-touts-successes-his-one-big-beautiful-bill-could-reshape-american](https://justthenews.com/government/white-house/trump-tout...
+- [04:05 UTC - THANK YOU IOWA! 🇺🇸 [https://www. youtube.com/live/kS-Sqie9bgU?s i=4X36avESOd0BRuHz](https:...](114792982825562101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792982825562101
+  - THANK YOU IOWA! 🇺🇸 [https://www. youtube.com/live/kS-Sqie9bgU?s i=4X36avESOd0BRuHz](https://www.youtube.com/live/kS-Sqie9bgU?si=4X36avESOd0BRuHz)
+- [04:04 UTC - Truth Social post 114792979110904202](114792979110904202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792979110904202
+  - _No text content captured._
+- [04:01 UTC - Truth Social post 114792969463149352](114792969463149352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792969463149352
+  - _No text content captured._
+- [04:00 UTC - Truth Social post 114792963470929483](114792963470929483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792963470929483
+  - _No text content captured._
+- [03:58 UTC - [https:// nypost.com/2025/07/03/opinion/ trump-notches-wins-on-iran-budget-courts-and-more...](114792958107210722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792958107210722
+  - [https:// nypost.com/2025/07/03/opinion/ trump-notches-wins-on-iran-budget-courts-and-more/](https://nypost.com/2025/07/03/opinion/trump-notches-wins-on-iran-budget-courts-and-more...
+- [03:57 UTC - [https:// dailycaller.com/2025/07/03/big -beautiful-bill-to-change-immigration/](https://d...](114792954117196974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792954117196974
+  - [https:// dailycaller.com/2025/07/03/big -beautiful-bill-to-change-immigration/](https://dailycaller.com/2025/07/03/big-beautiful-bill-to-change-immigration/)
+- [03:57 UTC - [https://www. breitbart.com/politics/2025/07 /03/watch-live-donald-trump-holds-salute-to-a...](114792950906768785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792950906768785
+  - [https://www. breitbart.com/politics/2025/07 /03/watch-live-donald-trump-holds-salute-to-america-celebration/](https://www.breitbart.com/politics/2025/07/03/watch-live-donald-trump...
+- [03:56 UTC - [https://www. breitbart.com/politics/2025/07 /03/legacy-unlocked-trumps-big-beautiful-bill...](114792948665657083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792948665657083
+  - [https://www. breitbart.com/politics/2025/07 /03/legacy-unlocked-trumps-big-beautiful-bill-clears-final-house-hurdle-en-route-white-house/](https://www.breitbart.com/politics/2025/...
+- [03:52 UTC - [https://www. foxnews.com/politics/trump-say s-economy-rocket-after-signing-big-beautiful-...](114792931089487611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792931089487611
+  - [https://www. foxnews.com/politics/trump-say s-economy-rocket-after-signing-big-beautiful-bill-its-going-really-great](https://www.foxnews.com/politics/trump-says-economy-rocket-af...
+- [03:51 UTC - [https://www. foxnews.com/politics/trump-tou ts-promises-kept-america250-kick-off-event-io...](114792929754154620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792929754154620
+  - [https://www. foxnews.com/politics/trump-tou ts-promises-kept-america250-kick-off-event-iowa-state-fairgrounds](https://www.foxnews.com/politics/trump-touts-promises-kept-america25...
+- [03:50 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114792926488639355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792926488639355
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "As President of the United States, I am...
+- [03:50 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114792926305153405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792926305153405
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : Exactly one year from tomorrow, we will c...
+- [03:50 UTC - I’m on Air Force One, traveling back to Washington from the Great State of Iowa, with many...](114792925370595712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792925370595712
+  - I’m on Air Force One, traveling back to Washington from the Great State of Iowa, with many of our wonderful and talented Cabinet Secretaries, including Kristi Noem, Doug Burgum, Br...
+- [03:41 UTC - Kentucky 4th Congressional District—Republican Primary Poll Summary…](114792890397428568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114792890397428568
+  - Kentucky 4th Congressional District—Republican Primary Poll Summary…

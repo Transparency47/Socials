@@ -1,0 +1,91 @@
+# TruthSocial / RealDonaldTrump / 2025-08-18
+
+- Posts: 29
+
+- [23:27 UTC - Ursula von der Leyen, the distinguished and Highly Respected President of the European Com...](115052358324894178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115052358324894178
+  - Ursula von der Leyen, the distinguished and Highly Respected President of the European Commission, and I have been discussing the massive Worldwide problem of missing children. Thi...
+- [22:04 UTC - I had a very good meeting with distinguished guests, President Volodymyr Zelenskyy, of Ukr...](115052030103944534/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115052030103944534
+  - I had a very good meeting with distinguished guests, President Volodymyr Zelenskyy, of Ukraine, President Emmanuel Macron, of France, President Alexander Stubb, of Finland, Prime M...
+- [21:32 UTC - Republican State Legislators in the Great State of Texas, which I love, and WON BIG three ...](115051906127274792/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051906127274792
+  - Republican State Legislators in the Great State of Texas, which I love, and WON BIG three times, including with 6.4 Million Votes in 2024 (by far the most Votes in History!), just...
+- [20:16 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115051603075336638](115051604419460250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051604419460250
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115051603075336638
+- [20:15 UTC - [https://www. youtube.com/live/CpsG75j-0hY?s i=tEfNYzcHuUkQ3bnr](https://www.youtube.com/l...](115051603075336638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051603075336638
+  - [https://www. youtube.com/live/CpsG75j-0hY?s i=tEfNYzcHuUkQ3bnr](https://www.youtube.com/live/CpsG75j-0hY?si=tEfNYzcHuUkQ3bnr)
+- [20:14 UTC - Truth Social post 115051596712169969](115051596712169969/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051596712169969
+  - _No text content captured._
+- [20:12 UTC - [https://www. youtube.com/live/tTz6E_uCG6I?s i=zSmaNCPJ09voq7Bv](https://www.youtube.com/l...](115051588579573108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051588579573108
+  - [https://www. youtube.com/live/tTz6E_uCG6I?s i=zSmaNCPJ09voq7Bv](https://www.youtube.com/live/tTz6E_uCG6I?si=zSmaNCPJ09voq7Bv)
+- [20:11 UTC - Truth Social post 115051586067319988](115051586067319988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115051586067319988
+  - _No text content captured._
+- [14:09 UTC - I’ve settled 6 Wars in 6 months, one of them a possible Nuclear disaster, and yet I have t...](115050161923440039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115050161923440039
+  - I’ve settled 6 Wars in 6 months, one of them a possible Nuclear disaster, and yet I have to read & listen to the Wall Street Journal, and many other who truly don’t have a clue, te...
+- [13:44 UTC - I am totally convinced that if Russia raised their hands and said, “We give up, we concede...](115050064654728051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115050064654728051
+  - I am totally convinced that if Russia raised their hands and said, “We give up, we concede, we surrender, we will GIVE Ukraine and the great United States of America, the most reve...
+- [13:26 UTC - MAKE AMERICA GREAT AGAIN!](115049995743385270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049995743385270
+  - MAKE AMERICA GREAT AGAIN!
+- [13:21 UTC - D.C. gave Fake Crime numbers in order to create a false illusion of safety. This is a very...](115049974697549520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049974697549520
+  - D.C. gave Fake Crime numbers in order to create a false illusion of safety. This is a very bad and dangerous thing to do, and they are under serious investigation for so doing! Unt...
+- [13:08 UTC - A big day at the White House. We have never had so many European Leaders here at one time....](115049921290485283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049921290485283
+  - A big day at the White House. We have never had so many European Leaders here at one time. A great honor for America!!! Lets see what the results will be??? President DJT
+- [13:03 UTC - We will only see the return of the remaining hostages when Hamas is confronted and destroy...](115049902258471066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049902258471066
+  - We will only see the return of the remaining hostages when Hamas is confronted and destroyed!!! The sooner this takes place, the better the chances of success will be. Remember, I...
+- [11:17 UTC - I am going to lead a movement to get rid of MAIL-IN BALLOTS, and also, while we’re at it, ...](115049485680941254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049485680941254
+  - I am going to lead a movement to get rid of MAIL-IN BALLOTS, and also, while we’re at it, Highly “Inaccurate,” Very Expensive, and Seriously Controversial VOTING MACHINES, which co...
+- [10:38 UTC - Truth Social post 115049331470296175](115049331470296175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049331470296175
+  - _No text content captured._
+- [09:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115047211271212413](115049004927815757/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115049004927815757
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115047211271212413
+- [03:03 UTC - “DEEP STATE RECKONING”](115047544829124027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047544829124027
+  - “DEEP STATE RECKONING”
+- [03:02 UTC - “FAR LEFT HYSTERICS”](115047539472526860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047539472526860
+  - “FAR LEFT HYSTERICS”
+- [01:48 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) President Trump Has Achieve...](115047250010052256/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047250010052256
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) President Trump Has Achieved Peace Between: –India & Pakistan –Israel & Iran (Ceasefire) –Serbia & Kosovo (Trump’s in...
+- [01:38 UTC - Do the great American Flags I put up in front of both entrances of the White House look FA...](115047211271212413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047211271212413
+  - Do the great American Flags I put up in front of both entrances of the White House look FANTASTIC, or what??? WOW, what a difference!!! President DJT
+- [01:31 UTC - One year ago, the United States was an almost DEAD COUNTRY. Now we are the “HOTTEST” Count...](115047181541136552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047181541136552
+  - One year ago, the United States was an almost DEAD COUNTRY. Now we are the “HOTTEST” Country anywhere in the World, the envy of all. What a difference a President makes!!!
+- [01:27 UTC - The Fake News will say that it is a big loss for President Trump to host so many great Eur...](115047166895807142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047166895807142
+  - The Fake News will say that it is a big loss for President Trump to host so many great European Leaders at our beautiful White House. Actually, it is a great honor for America!!! P...
+- [01:21 UTC - Big day at the White House tomorrow. Never had so many European Leaders at one time. My gr...](115047141648054993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047141648054993
+  - Big day at the White House tomorrow. Never had so many European Leaders at one time. My great honor to host them!!! President DJT
+- [01:17 UTC - President Zelenskyy of Ukraine can end the war with Russia almost immediately, if he wants...](115047128460078066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047128460078066
+  - President Zelenskyy of Ukraine can end the war with Russia almost immediately, if he wants to, or he can continue to fight. Remember how it started. No getting back Obama given Cri...
+- [01:10 UTC - The very unattractive (both inside and out!) Senator from Connecticut, Chris Murphy, said ...](115047099758548722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115047099758548722
+  - The very unattractive (both inside and out!) Senator from Connecticut, Chris Murphy, said “Putin got everything that he wanted.” Actually, “nobody got anything,” too soon, but gett...
+- [00:35 UTC - Truth Social post 115046961423148057](115046961423148057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115046961423148057
+  - _No text content captured._
+- [00:23 UTC - [https://www. foxnews.com/video/637701947411 2](https://www.foxnews.com/video/637701947411...](115046914267186663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115046914267186663
+  - [https://www. foxnews.com/video/637701947411 2](https://www.foxnews.com/video/6377019474112)
+- [00:03 UTC - The Fake News has been saying for 3 days that I suffered a “major defeat” by allowing Pres...](115046837910548412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115046837910548412
+  - The Fake News has been saying for 3 days that I suffered a “major defeat” by allowing President Vladimir Putin of Russia to have a major Summit in the United States. Actually, he w...

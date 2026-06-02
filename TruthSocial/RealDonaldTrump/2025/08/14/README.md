@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-08-14
+
+- Posts: 19
+
+- [23:27 UTC - Truth Social post 115029706768964450](115029706768964450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115029706768964450
+  - _No text content captured._
+- [23:07 UTC - Since 1978, the Kennedy Center Honors have been among the most prestigious awards in the p...](115029630097967935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115029630097967935
+  - Since 1978, the Kennedy Center Honors have been among the most prestigious awards in the performing arts. This year, the board has selected a truly exceptional class of honorees…
+- [23:01 UTC - It is my Great Honor to nominate Rebecca Taibleson to serve as a Judge on the United State...](115029606475866015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115029606475866015
+  - It is my Great Honor to nominate Rebecca Taibleson to serve as a Judge on the United States Court of Appeals, for the Seventh Circuit, in the Great State of Wisconsin. Rebecca brin...
+- [20:06 UTC - Truth Social post 115028916499622190](115028916499622190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028916499622190
+  - _No text content captured._
+- [19:59 UTC - Truth Social post 115028890161025572](115028890161025572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028890161025572
+  - _No text content captured._
+- [18:30 UTC - Last month, I signed the One Big Beautiful Bill, and allowed No Tax on Social Security for...](115028539481492668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028539481492668
+  - Last month, I signed the One Big Beautiful Bill, and allowed No Tax on Social Security for our great seniors…and to protect our benefits, we've already kicked nearly 275,000 illega...
+- [18:28 UTC - Almost 60 MILLION American Seniors rely on Social Security for peace of mind and a life of...](115028533639212309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028533639212309
+  - Almost 60 MILLION American Seniors rely on Social Security for peace of mind and a life of dignity and retirement…
+- [18:22 UTC - Social Security Commissioner, Frank Bisignano: “If you make an appointment to have a field...](115028508095150798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028508095150798
+  - Social Security Commissioner, Frank Bisignano: “If you make an appointment to have a field office visit, it now happens in 6 minutes — unprecedented. We are serving more people, an...
+- [18:19 UTC - [https://www. foxnews.com/politics/exclusive -trump-touts-zero-tax-benefits-most-seniors-s...](115028497206416498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028497206416498
+  - [https://www. foxnews.com/politics/exclusive -trump-touts-zero-tax-benefits-most-seniors-social-securitys-90th-anniversary](https://www.foxnews.com/politics/exclusive-trump-touts-z...
+- [18:19 UTC - [https://www. youtube.com/live/Lbuhxmt3DwE?s i=DlHVBNOZ2hbSex6y](https://www.youtube.com/l...](115028495350338753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115028495350338753
+  - [https://www. youtube.com/live/Lbuhxmt3DwE?s i=DlHVBNOZ2hbSex6y](https://www.youtube.com/live/Lbuhxmt3DwE?si=DlHVBNOZ2hbSex6y)
+- [13:10 UTC - [https://www. foxnews.com/politics/clapper-p ushed-compromise-normal-steps-rush-2017-ica-d...](115027280336154255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115027280336154255
+  - [https://www. foxnews.com/politics/clapper-p ushed-compromise-normal-steps-rush-2017-ica-despite-concerns-from-nsa-director](https://www.foxnews.com/politics/clapper-pushed-comprom...
+- [12:18 UTC - Truth Social post 115027077218828065](115027077218828065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115027077218828065
+  - _No text content captured._
+- [12:10 UTC - “Made in America Agenda Delivers Manufacturing Boom” [https://www. whitehouse.gov/articles...](115027044434535539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115027044434535539
+  - “Made in America Agenda Delivers Manufacturing Boom” [https://www. whitehouse.gov/articles/2025/0 8/made-in-america-agenda-delivers-manufacturing-boom/](https://www.whitehouse.gov/...
+- [11:29 UTC - “Declassified Emails Show James Clapper Told Intelligence Officials to ‘Compromise’ on Pro...](115026882886904014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026882886904014
+  - “Declassified Emails Show James Clapper Told Intelligence Officials to ‘Compromise’ on Procedures for 2017 Report” [https://www. breitbart.com/politics/2025/08 /13/declassified-ema...
+- [11:26 UTC - “Obama Intel Chief James Clapper Told NSA Head To Get On Board With ‘Our Story’ On Russiag...](115026874005799261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026874005799261
+  - “Obama Intel Chief James Clapper Told NSA Head To Get On Board With ‘Our Story’ On Russiagate Intel” [https:// dailycaller.com/2025/08/13/jam es-clapper-nsa-evidence-russia-hoax-de...
+- [11:25 UTC - “Yes, D.C. Is Just As Bad As Trump Says It Is” [https:// thefederalist.com/2025/08/13/y es...](115026867722383342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026867722383342
+  - “Yes, D.C. Is Just As Bad As Trump Says It Is” [https:// thefederalist.com/2025/08/13/y es-d-c-is-just-as-bad-as-trump-says-it-is/](https://thefederalist.com/2025/08/13/yes-d-c-is-...
+- [11:17 UTC - Director of National Intelligence, Tulsi Gabbard: “Newly declassified Top Secret emails se...](115026837372200506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026837372200506
+  - Director of National Intelligence, Tulsi Gabbard: “Newly declassified Top Secret emails sent on December 22, 2016 complying with President Obama's order to create the manufactured...
+- [11:02 UTC - “Comey's media mole told FBI he shaped Russia narrative, needed ‘discount’ to deny leaking...](115026776769476976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026776769476976
+  - “Comey's media mole told FBI he shaped Russia narrative, needed ‘discount’ to deny leaking intel” [https:// justthenews.com/government/fed eral-agencies/comey-media-mole-admitted-f...
+- [11:01 UTC - “‘Shut it down’: Bombshell FBI timeline exposes political interference in Clinton corrupti...](115026773200228622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115026773200228622
+  - “‘Shut it down’: Bombshell FBI timeline exposes political interference in Clinton corruption probe” [https:// justthenews.com/government/fed eral-agencies/shut-it-down-bombshell-fb...

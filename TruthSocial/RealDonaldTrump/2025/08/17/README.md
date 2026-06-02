@@ -1,0 +1,100 @@
+# TruthSocial / RealDonaldTrump / 2025-08-17
+
+- Posts: 32
+
+- [20:52 UTC - Truth Social post 115046087367001694](115046087367001694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115046087367001694
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 115046081691509644](115046081691509644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115046081691509644
+  - _No text content captured._
+- [15:09 UTC - Truth Social post 115044736191307422](115044736191307422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044736191307422
+  - _No text content captured._
+- [14:15 UTC - [https:// truthsocial.com/users/Justice2 123/statuses/115044368749331099](https://truthsoc...](115044523086480891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044523086480891
+  - [https:// truthsocial.com/users/Justice2 123/statuses/115044368749331099](https://truthsocial.com/users/Justice2123/statuses/115044368749331099) She is a loser, with bad ratings, w...
+- [14:12 UTC - [https:// truthsocial.com/users/LexMagnu m/statuses/115044353698947351](https://truthsocia...](115044512175792356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044512175792356
+  - [https:// truthsocial.com/users/LexMagnu m/statuses/115044353698947351](https://truthsocial.com/users/LexMagnum/statuses/115044353698947351)
+- [14:11 UTC - [https:// truthsocial.com/users/rcale177 6/statuses/115044364929279378](https://truthsocia...](115044510202150814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044510202150814
+  - [https:// truthsocial.com/users/rcale177 6/statuses/115044364929279378](https://truthsocial.com/users/rcale1776/statuses/115044364929279378) So nice!
+- [14:11 UTC - [https:// truthsocial.com/users/lbotero/ statuses/115044415797916463](https://truthsocial....](115044508022400579/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044508022400579
+  - [https:// truthsocial.com/users/lbotero/ statuses/115044415797916463](https://truthsocial.com/users/lbotero/statuses/115044415797916463)
+- [14:09 UTC - [https:// truthsocial.com/users/maga4161 /statuses/115044366015235540](https://truthsocial...](115044501208580776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044501208580776
+  - [https:// truthsocial.com/users/maga4161 /statuses/115044366015235540](https://truthsocial.com/users/maga4161/statuses/115044366015235540)
+- [14:08 UTC - [https:// truthsocial.com/users/shanesmi th29/statuses/115044359777927724](https://truthso...](115044496848994251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044496848994251
+  - [https:// truthsocial.com/users/shanesmi th29/statuses/115044359777927724](https://truthsocial.com/users/shanesmith29/statuses/115044359777927724) That will NEVER happen!
+- [14:05 UTC - [https:// truthsocial.com/users/mon0121/ statuses/115044400284628849](https://truthsocial....](115044486482508415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044486482508415
+  - [https:// truthsocial.com/users/mon0121/ statuses/115044400284628849](https://truthsocial.com/users/mon0121/statuses/115044400284628849)
+- [14:05 UTC - [https:// truthsocial.com/users/hddubble u/statuses/115044364595992315](https://truthsocia...](115044484114930338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044484114930338
+  - [https:// truthsocial.com/users/hddubble u/statuses/115044364595992315](https://truthsocial.com/users/hddubbleu/statuses/115044364595992315)
+- [14:04 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/115044364455159846](https://truths...](115044482020034178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044482020034178
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/115044364455159846](https://truthsocial.com/users/Imaluckyangel/statuses/115044364455159846)
+- [14:04 UTC - [https:// truthsocial.com/users/TomasAnd erson/statuses/115044377283764206](https://truths...](115044481286200746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044481286200746
+  - [https:// truthsocial.com/users/TomasAnd erson/statuses/115044377283764206](https://truthsocial.com/users/TomasAnderson/statuses/115044377283764206)
+- [14:04 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/115044361815197151](https://truths...](115044479755763458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044479755763458
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/115044361815197151](https://truthsocial.com/users/Imaluckyangel/statuses/115044361815197151) It is happening before your ver...
+- [14:02 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/115044375668804663](https://truths...](115044474918851144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044474918851144
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/115044375668804663](https://truthsocial.com/users/Imaluckyangel/statuses/115044375668804663)
+- [14:02 UTC - [https:// truthsocial.com/users/lauramar ks/statuses/115044395448047303](https://truthsoci...](115044473709839333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044473709839333
+  - [https:// truthsocial.com/users/lauramar ks/statuses/115044395448047303](https://truthsocial.com/users/lauramarks/statuses/115044395448047303)
+- [14:02 UTC - [https:// truthsocial.com/users/Iloveore o/statuses/115044357413313022](https://truthsocia...](115044472378299538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044472378299538
+  - [https:// truthsocial.com/users/Iloveore o/statuses/115044357413313022](https://truthsocial.com/users/Iloveoreo/statuses/115044357413313022)
+- [14:01 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/115044356765551459](https://truths...](115044470778577129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044470778577129
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/115044356765551459](https://truthsocial.com/users/Imaluckyangel/statuses/115044356765551459)
+- [14:01 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044369013105628](https://tr...](115044469636182947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044469636182947
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044369013105628](https://truthsocial.com/users/IStandWithTrump47/statuses/115044369013105628) SO TRUE. THANK YOU!
+- [14:00 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/115044359352496302](https://truths...](115044465588535262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044465588535262
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/115044359352496302](https://truthsocial.com/users/Imaluckyangel/statuses/115044359352496302)
+- [14:00 UTC - [https:// truthsocial.com/users/kallitou t/statuses/115044390846531406](https://truthsocia...](115044463870504970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044463870504970
+  - [https:// truthsocial.com/users/kallitou t/statuses/115044390846531406](https://truthsocial.com/users/kallitout/statuses/115044390846531406) THANK YOU TO BELARUS AND ITS POWERFUL L...
+- [13:57 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044372010635001](https://tr...](115044453395421544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044453395421544
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044372010635001](https://truthsocial.com/users/IStandWithTrump47/statuses/115044372010635001) THANK YOU!
+- [13:56 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044386946993263](https://tr...](115044451166294077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044451166294077
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115044386946993263](https://truthsocial.com/users/IStandWithTrump47/statuses/115044386946993263)
+- [13:31 UTC - Bela](115044351128754901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044351128754901
+  - Bela
+- [13:16 UTC - BIG PROGRESS ON RUSSIA. STAY TUNED! President DJT](115044290751337518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044290751337518
+  - BIG PROGRESS ON RUSSIA. STAY TUNED! President DJT
+- [13:11 UTC - If I got Russia to give up Moscow as part of the Deal, the Fake News, and their PARTNER, t...](115044273350523209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044273350523209
+  - If I got Russia to give up Moscow as part of the Deal, the Fake News, and their PARTNER, the Radical Left Democrats, would say I made a terrible mistake and a very bad deal. That’s...
+- [13:03 UTC - It’s incredible how the Fake News violently distorts the TRUTH when it comes to me. There ...](115044243039440041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115044243039440041
+  - It’s incredible how the Fake News violently distorts the TRUTH when it comes to me. There is NOTHING I can say or do that would lead them to write or report honestly about me. I ha...
+- [02:21 UTC - Victor Davis Hanson: "They're melting down. I don’t even think there is a Democratic Party...](115041715493538714/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115041715493538714
+  - Victor Davis Hanson: "They're melting down. I don’t even think there is a Democratic Party right now…”
+- [02:16 UTC - Victor Davis Hanson: “Donald Trump broke the Democratic Party—and he exposed it for what i...](115041695270508991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115041695270508991
+  - Victor Davis Hanson: “Donald Trump broke the Democratic Party—and he exposed it for what it was…”
+- [01:39 UTC - Truth Social post 115041550877531791](115041550877531791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115041550877531791
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 115041533415988751](115041533415988751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115041533415988751
+  - _No text content captured._
+- [00:27 UTC - [https://www. nytimes.com/2025/08/16/us/poli tics/jeanine-pirro-trump-dc-police.html](http...](115041270318116177/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115041270318116177
+  - [https://www. nytimes.com/2025/08/16/us/poli tics/jeanine-pirro-trump-dc-police.html](https://www.nytimes.com/2025/08/16/us/politics/jeanine-pirro-trump-dc-police.html)

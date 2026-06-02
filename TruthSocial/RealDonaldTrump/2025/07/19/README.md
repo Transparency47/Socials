@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-07-19
+
+- Posts: 12
+
+- [23:24 UTC - “We had, in President Obama and his leadership team, people who did not want to accept the...](114882476831486897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882476831486897
+  - “We had, in President Obama and his leadership team, people who did not want to accept the will of the American people in electing Donald Trump in 2016 — and therefore cooked up th...
+- [23:15 UTC - Great job by young and talented Harrison Fields on FoxNews. The Panel was fantastic on pro...](114882442101879216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882442101879216
+  - Great job by young and talented Harrison Fields on FoxNews. The Panel was fantastic on prosecuting Obama and the “thugs” who have just been unequivocally exposed on highest level E...
+- [22:35 UTC - Hopefully the very talented John Thune, fresh off our many victories over the past two wee...](114882283904953607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882283904953607
+  - Hopefully the very talented John Thune, fresh off our many victories over the past two weeks and, indeed, 6 months, will cancel August recess (and long weekends!), in order to get...
+- [21:41 UTC - [https:// nypost.com/2025/07/19/opinion/ trump-deserves-a-decision-on-his-fraud-ruling-app...](114882072934644957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882072934644957
+  - [https:// nypost.com/2025/07/19/opinion/ trump-deserves-a-decision-on-his-fraud-ruling-appeal-free-of-political-foot-dragging/](https://nypost.com/2025/07/19/opinion/trump-deserves...
+- [21:41 UTC - [https://www. foxnews.com/video/637582422911 2](https://www.foxnews.com/video/637582422911...](114882071199726147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114882071199726147
+  - [https://www. foxnews.com/video/637582422911 2](https://www.foxnews.com/video/6375824229112)
+- [13:13 UTC - I have asked the Justice Department to release all Grand Jury testimony with respect to Je...](114880074981803996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114880074981803996
+  - I have asked the Justice Department to release all Grand Jury testimony with respect to Jeffrey Epstein, subject only to Court Approval. With that being said, and even if the Court...
+- [13:02 UTC - All three nuclear sites in Iran were completely destroyed and/or OBLITERATED. It would tak...](114880031264786538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114880031264786538
+  - All three nuclear sites in Iran were completely destroyed and/or OBLITERATED. It would take years to bring them back into service and, if Iran wanted to do so, they would be much b...
+- [03:17 UTC - Truth Social post 114877731689384062](114877731689384062/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114877731689384062
+  - _No text content captured._
+- [02:03 UTC - Truth Social post 114877440199192177](114877440199192177/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114877440199192177
+  - _No text content captured._
+- [01:39 UTC - We have fulfilled so many of our promises… ✅One Big Beautiful Bill ✅Laken Riley Act ✅TAKE ...](114877342999804008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114877342999804008
+  - We have fulfilled so many of our promises… ✅One Big Beautiful Bill ✅Laken Riley Act ✅TAKE IT DOWN Act ✅Rescissions Act of 2025 ✅HALT Fentanyl Act ✅GENIUS Act
+- [00:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Everybody should watch Se...](114877155422684149/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114877155422684149
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Everybody should watch Sean Hannity tonight. He really gets it! 9PM ET Fox News
+- [00:46 UTC - Truth Social post 114877135727820857](114877135727820857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114877135727820857
+  - _No text content captured._

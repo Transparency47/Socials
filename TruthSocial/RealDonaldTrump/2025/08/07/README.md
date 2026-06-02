@@ -1,0 +1,85 @@
+# TruthSocial / RealDonaldTrump / 2025-08-07
+
+- Posts: 27
+
+- [22:43 UTC - I look forward to hosting the President of Azerbaijan, Ilham Aliyev, and the Prime Ministe...](114989897956103830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989897956103830
+  - I look forward to hosting the President of Azerbaijan, Ilham Aliyev, and the Prime Minister of Armenia, Nikol Pashinyan, at the White House tomorrow for a Historic Peace Summit. Th...
+- [21:55 UTC - [https:// thespectator.com/topic/trump-w inning-executive-orders-gop-problem/](https://the...](114989710007699329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989710007699329
+  - [https:// thespectator.com/topic/trump-w inning-executive-orders-gop-problem/](https://thespectator.com/topic/trump-winning-executive-orders-gop-problem/)
+- [21:54 UTC - Winning the Senior Club Championship, and the Super Senior Club Championship, last weekend...](114989707720957929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989707720957929
+  - Winning the Senior Club Championship, and the Super Senior Club Championship, last weekend at Bedminster — But my heart wasn’t into it, my heart is only for the U.S.A.!
+- [21:54 UTC - The beautiful Executive Office Building, opposite the White House, as it would have looked...](114989706308668257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989706308668257
+  - The beautiful Executive Office Building, opposite the White House, as it would have looked in white stone but, nevertheless, is still beautiful in its original grey stone. What a g...
+- [21:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114977985620971126 Edward: The ...](114989699566674317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989699566674317
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114977985620971126 Edward: The Crime situation in Washington, just like our Southern Border where ZERO Illegals entered i...
+- [21:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114988051107686593 8/7/2025 — P...](114989652109671625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989652109671625
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114988051107686593 8/7/2025 — PURPLE HEART DAY…
+- [21:27 UTC - Stephen Moore: "Mr. President, you gained ten times more income for the average family tha...](114989601141841568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989601141841568
+  - Stephen Moore: "Mr. President, you gained ten times more income for the average family than Joe Biden…Every income group did better under Trump than Biden — by a wide margin…”
+- [20:19 UTC - The reason that The Wall Street Journal Editorial Board is always negative on “TRUMP,” and...](114989330714602000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989330714602000
+  - The reason that The Wall Street Journal Editorial Board is always negative on “TRUMP,” and the Hundreds of Billions of Dollars we’re bringing into our Country through Tariffs, numb...
+- [19:44 UTC - It is my Great Honor to announce that I have chosen Dr. Stephen Miran, current Chairman of...](114989195031706823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114989195031706823
+  - It is my Great Honor to announce that I have chosen Dr. Stephen Miran, current Chairman of the Council of Economic Advisors, to serve in the just vacated seat on the Federal Reserv...
+- [18:29 UTC - Truth Social post 114988900161877083](114988900161877083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988900161877083
+  - _No text content captured._
+- [16:45 UTC - “200 Days of Winning: President Trump Is Keeping His Promises” [https://www. whitehouse.go...](114988489340134546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988489340134546
+  - “200 Days of Winning: President Trump Is Keeping His Promises” [https://www. whitehouse.gov/articles/2025/0 8/200-days-of-winning-president-trump-is-keeping-his-promises/](https://...
+- [16:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114984063665976199](114988448215438756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988448215438756
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114984063665976199
+- [16:23 UTC - [https:// nypost.com/2025/08/06/opinion/ miranda-devine-biden-abused-his-authority-by-turn...](114988403910087237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988403910087237
+  - [https:// nypost.com/2025/08/06/opinion/ miranda-devine-biden-abused-his-authority-by-turning-fema-into-a-far-left-political-machine/](https://nypost.com/2025/08/06/opinion/miranda...
+- [16:22 UTC - [https:// townhall.com/tipsheet/mattvesp a/2025/08/07/trumps-200-days-of-winning-n2661524]...](114988401624949953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988401624949953
+  - [https:// townhall.com/tipsheet/mattvesp a/2025/08/07/trumps-200-days-of-winning-n2661524](https://townhall.com/tipsheet/mattvespa/2025/08/07/trumps-200-days-of-winning-n2661524)
+- [14:53 UTC - “President Trump to honor 100 Purple Heart recipients at special White House ceremony” [ht...](114988051107686593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114988051107686593
+  - “President Trump to honor 100 Purple Heart recipients at special White House ceremony” [https://www. usatoday.com/story/news/politi cs/2025/08/07/trump-honors-purple-heart-recipien...
+- [14:32 UTC - Truth Social post 114987969590768055](114987969590768055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987969590768055
+  - _No text content captured._
+- [14:10 UTC - “THE PANICANS ARE WRONG AGAIN!”](114987880403039332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987880403039332
+  - “THE PANICANS ARE WRONG AGAIN!”
+- [14:08 UTC - THE GOLDEN AGE OF AMERICA!](114987872108405561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987872108405561
+  - THE GOLDEN AGE OF AMERICA!
+- [14:07 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114982518659334871 “TRUMP DONAT...](114987869747445205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987869747445205
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114982518659334871 “TRUMP DONATES FIRST PAYCHECK”
+- [13:53 UTC - [https://www. foxnews.com/video/637658208011 2](https://www.foxnews.com/video/637658208011...](114987814175702129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987814175702129
+  - [https://www. foxnews.com/video/637658208011 2](https://www.foxnews.com/video/6376582080112)
+- [13:42 UTC - Should be number ONE. New York Times RIGGED IT??? Selena is great! President DJT](114987769694082982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987769694082982
+  - Should be number ONE. New York Times RIGGED IT??? Selena is great! President DJT
+- [11:39 UTC - The CEO of INTEL is highly CONFLICTED and must resign, immediately. There is no other solu...](114987288040725570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987288040725570
+  - The CEO of INTEL is highly CONFLICTED and must resign, immediately. There is no other solution to this problem. Thank you for your attention to this problem!
+- [11:35 UTC - Tariffs are flowing into the USA at levels not thought even possible!](114987271488966063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987271488966063
+  - Tariffs are flowing into the USA at levels not thought even possible!
+- [11:31 UTC - Now that the nuclear arsenal being “created” by Iran has been totally OBLITERATED, it is v...](114987257158661963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987257158661963
+  - Now that the nuclear arsenal being “created” by Iran has been totally OBLITERATED, it is very important to me that all Middle Eastern Countries join the Abraham Accords. This will...
+- [11:22 UTC - I have instructed our Department of Commerce to immediately begin work on a new and highly...](114987220997209419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114987220997209419
+  - I have instructed our Department of Commerce to immediately begin work on a new and highly accurate CENSUS based on modern day facts and figures and, importantly, using the results...
+- [03:58 UTC - IT’S MIDNIGHT!!! BILLIONS OF DOLLARS IN TARIFFS ARE NOW FLOWING INTO THE UNITED STATES OF ...](114985474632707201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114985474632707201
+  - IT’S MIDNIGHT!!! BILLIONS OF DOLLARS IN TARIFFS ARE NOW FLOWING INTO THE UNITED STATES OF AMERICA!
+- [03:44 UTC - RECIPROCAL TARIFFS TAKE EFFECT AT MIDNIGHT TONIGHT! BILLIONS OF DOLLARS, LARGELY FROM COUN...](114985420201139599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114985420201139599
+  - RECIPROCAL TARIFFS TAKE EFFECT AT MIDNIGHT TONIGHT! BILLIONS OF DOLLARS, LARGELY FROM COUNTRIES THAT HAVE TAKEN ADVANTAGE OF THE UNITED STATES FOR MANY YEARS, LAUGHING ALL THE WAY,...

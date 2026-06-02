@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-08-26
+
+- Posts: 10
+
+- [23:42 UTC - Congratulations “Cracker Barrel” on changing your logo back to what it was. All of your fa...](115097715754727825/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115097715754727825
+  - Congratulations “Cracker Barrel” on changing your logo back to what it was. All of your fans very much appreciate it. Good luck into the future. Make lots of money and, most import...
+- [23:42 UTC - Truth Social post 115097714023567258](115097714023567258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115097714023567258
+  - _No text content captured._
+- [16:12 UTC - Join today’s Cabinet Meeting live at the White House—> [https://www. youtube.com/live/inRX...](115095945859977843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095945859977843
+  - Join today’s Cabinet Meeting live at the White House—> [https://www. youtube.com/live/inRXd4OWt2M?s i=syYCJVkqtEelTWpA](https://www.youtube.com/live/inRXd4OWt2M?si=syYCJVkqtEelTWpA...
+- [15:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115095685005096287 PROCLAMATION...](115095712740396417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095712740396417
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115095685005096287 PROCLAMATION: “FOURTH ANNIVERSARY OF THE ATTACK AT ABBEY GATE, 2025” [https://www. whitehouse.gov/pres...
+- [15:06 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/08/fourth-anniversary-of-the-attac...](115095685005096287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095685005096287
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/08/fourth-anniversary-of-the-attack-at-abbey-gate-2025/](https://www.whitehouse.gov/presidential-actions/2025/08/fourth-anni...
+- [14:47 UTC - Happy Birthday to my wonderful brother, Robert. He is in Heaven now, watching down on us, ...](115095611962356054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095611962356054
+  - Happy Birthday to my wonderful brother, Robert. He is in Heaven now, watching down on us, and very proud with what he is seeing. What a great guy he was! I miss him, and always wil...
+- [14:39 UTC - Cracker Barrel should go back to the old logo, admit a mistake based on customer response ...](115095579197949665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095579197949665
+  - Cracker Barrel should go back to the old logo, admit a mistake based on customer response (the ultimate Poll), and manage the company better than ever before. They got a Billion Do...
+- [13:16 UTC - “TRUMP’S TURNING D.C. INTO DISNEY WORLD…”](115095254091273904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115095254091273904
+  - “TRUMP’S TURNING D.C. INTO DISNEY WORLD…”
+- [00:31 UTC - As the President of the United States, I will stand up to Countries that attack our incred...](115092243259973570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115092243259973570
+  - As the President of the United States, I will stand up to Countries that attack our incredible American Tech Companies. Digital Taxes, Digital Services Legislation, and Digital Mar...
+- [00:02 UTC - Truth Social post 115092130707196133](115092130707196133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115092130707196133
+  - _No text content captured._

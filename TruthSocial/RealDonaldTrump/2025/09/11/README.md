@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-09-11
+
+- Posts: 13
+
+- [19:01 UTC - I just informed Senator Ron Johnson that, based on his request, I am approving $29.8 Milli...](115187206743663378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115187206743663378
+  - I just informed Senator Ron Johnson that, based on his request, I am approving $29.8 Million Dollars for the wonderful State of Wisconsin to help them recover from the major storms...
+- [19:01 UTC - I just got off the phone with our wonderful Republican Leader John Thune. I am approving o...](115187206020244589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115187206020244589
+  - I just got off the phone with our wonderful Republican Leader John Thune. I am approving over $500,000 for the Sisseton-Wahpeton Oyate Tribe in the Great State of South Dakota for...
+- [19:01 UTC - I have just spoken with Senator Roger Marshall, and informed him that we will be granting ...](115187205784578767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115187205784578767
+  - I have just spoken with Senator Roger Marshall, and informed him that we will be granting $5.7 Million Dollars to assist with the severe storms, tornadoes, and flooding that ravage...
+- [18:01 UTC - I am proud to approve nearly $32 Million Dollars in assistance for the Great State of Nort...](115186969669045268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186969669045268
+  - I am proud to approve nearly $32 Million Dollars in assistance for the Great State of North Carolina, which I WON BIG all six times, including Primaries, in response to their recen...
+- [17:35 UTC - Senator Roger Marshall is an incredibly strong advocate for the wonderful people of Kansas...](115186868794986559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186868794986559
+  - Senator Roger Marshall is an incredibly strong advocate for the wonderful people of Kansas, a State I love, and WON BIG, in 2016, 2020, and 2024! A distinguished Medical Doctor and...
+- [16:02 UTC - This morning, we recall the light of America's best and bravest and the love they showed i...](115186503899309206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186503899309206
+  - This morning, we recall the light of America's best and bravest and the love they showed in their final moments. In their memory, we make a solemn pledge and a noble promise: we wi...
+- [14:53 UTC - 84 years ago this morning, the banks of the Potomac were filled with the clamor of constru...](115186230726893391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186230726893391
+  - 84 years ago this morning, the banks of the Potomac were filled with the clamor of construction workers who broke ground on the building now known as the Pentagon, on September 11t...
+- [14:52 UTC - On that fateful day, savage monsters attacked the very symbols of our civilization. Yet he...](115186228312744900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186228312744900
+  - On that fateful day, savage monsters attacked the very symbols of our civilization. Yet here in Virginia, and in New York, and in the skies over Pennsylvania, Americans did not hes...
+- [14:46 UTC - Charlie Kirk was a GIANT of his generation…](115186203931436783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115186203931436783
+  - Charlie Kirk was a GIANT of his generation…
+- [13:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115185770430238129](115185867862436836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115185867862436836
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115185770430238129
+- [12:56 UTC - [https://www. youtube.com/live/vC7lPbOTffA?s i=hJZE1c0mAiXu3IkU](https://www.youtube.com/l...](115185770430238129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115185770430238129
+  - [https://www. youtube.com/live/vC7lPbOTffA?s i=hJZE1c0mAiXu3IkU](https://www.youtube.com/live/vC7lPbOTffA?si=hJZE1c0mAiXu3IkU)
+- [04:42 UTC - Great interview by Congressman Mark Harris of North Carolina, on FoxNews. Thank you Mark!!...](115183827069786801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115183827069786801
+  - Great interview by Congressman Mark Harris of North Carolina, on FoxNews. Thank you Mark!!! President DJT
+- [00:44 UTC - TO MY GREAT FELLOW AMERICANS…](115182892535295750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115182892535295750
+  - TO MY GREAT FELLOW AMERICANS…

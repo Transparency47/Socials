@@ -1,0 +1,130 @@
+# TruthSocial / RealDonaldTrump / 2025-07-30
+
+- Posts: 42
+
+- [22:16 UTC - I am pleased to announce that the United States of America has agreed to a Full and Comple...](114944494894008041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114944494894008041
+  - I am pleased to announce that the United States of America has agreed to a Full and Complete Trade Deal with the Republic of Korea. The Deal is that South Korea will give to the Un...
+- [20:29 UTC - Why would one “Republican,” Senator Josh Hawley from the Great State of Missouri, join wit...](114944074791548865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114944074791548865
+  - Why would one “Republican,” Senator Josh Hawley from the Great State of Missouri, join with all of the Democrats to block a Review, sponsored by Senator Rick Scott, and with the su...
+- [20:27 UTC - Truth Social post 114944067055745823](114944067055745823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114944067055745823
+  - _No text content captured._
+- [19:52 UTC - We are very busy in the White House today working on Trade Deals. I have spoken to the Lea...](114943927434273211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114943927434273211
+  - We are very busy in the White House today working on Trade Deals. I have spoken to the Leaders of many Countries, all of whom want to make the United States “extremely happy.” I wi...
+- [14:39 UTC - Mandy Gunasekara was FANTASTIC talking about the “Environment Scam” on Varney & Co. Wow, s...](114942699102296981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942699102296981
+  - Mandy Gunasekara was FANTASTIC talking about the “Environment Scam” on Varney & Co. Wow, she really gets it, including the biggest Hoax of them all, WINDMILLS! We won’t be approvin...
+- [13:44 UTC - THANK YOU RALPH, SO NICE! [https:// justthenews.com/politics-polic y/all-things-trump/rep-...](114942479229447490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942479229447490
+  - THANK YOU RALPH, SO NICE! [https:// justthenews.com/politics-polic y/all-things-trump/rep-ralph-norman-calls-trump-phenom-making-federal-government](https://justthenews.com/politic...
+- [12:38 UTC - 2Q GDP JUST OUT: 3%, WAY BETTER THAN EXPECTED! “Too Late” MUST NOW LOWER THE RATE. No Infl...](114942222209732295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942222209732295
+  - 2Q GDP JUST OUT: 3%, WAY BETTER THAN EXPECTED! “Too Late” MUST NOW LOWER THE RATE. No Inflation! Let people buy, and refinance, their homes!
+- [12:11 UTC - WE HAVE A MASSIVE TRADE DEFICIT WITH INDIA!!!](114942113260599578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942113260599578
+  - WE HAVE A MASSIVE TRADE DEFICIT WITH INDIA!!!
+- [12:09 UTC - Remember, while India is our friend, we have, over the years, done relatively little busin...](114942106248731470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942106248731470
+  - Remember, while India is our friend, we have, over the years, done relatively little business with them because their Tariffs are far too high, among the highest in the World, and...
+- [11:46 UTC - AUGUST FIRST, A GREAT DAY FOR AMERICA!!!](114942017839445131/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942017839445131
+  - AUGUST FIRST, A GREAT DAY FOR AMERICA!!!
+- [11:43 UTC - THE AUGUST FIRST DEADLINE IS THE AUGUST FIRST DEADLINE — IT STANDS STRONG, AND WILL NOT BE...](114942005076829557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114942005076829557
+  - THE AUGUST FIRST DEADLINE IS THE AUGUST FIRST DEADLINE — IT STANDS STRONG, AND WILL NOT BE EXTENDED. A BIG DAY FOR AMERICA!!!
+- [11:37 UTC - [https:// truthsocial.com/users/Sprok/st atuses/114939065895750263](https://truthsocial.co...](114941980107053184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941980107053184
+  - [https:// truthsocial.com/users/Sprok/st atuses/114939065895750263](https://truthsocial.com/users/Sprok/statuses/114939065895750263)
+- [11:36 UTC - [https:// truthsocial.com/users/goodwoma n6ix/statuses/114938824962124330](https://truthso...](114941977170452710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941977170452710
+  - [https:// truthsocial.com/users/goodwoma n6ix/statuses/114938824962124330](https://truthsocial.com/users/goodwoman6ix/statuses/114938824962124330)
+- [11:35 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter17/statuses/114938844060870987](htt...](114941972452751679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941972452751679
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter17/statuses/114938844060870987](https://truthsocial.com/users/SpiritualStreetfighter17/statuses/114938844060870987)
+- [11:31 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter17/statuses/114938844060870987](htt...](114941959065130529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941959065130529
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter17/statuses/114938844060870987](https://truthsocial.com/users/SpiritualStreetfighter17/statuses/114938844060870987)
+- [11:31 UTC - [https:// truthsocial.com/users/bamabino /statuses/114938856429028248](https://truthsocial...](114941956199166642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941956199166642
+  - [https:// truthsocial.com/users/bamabino /statuses/114938856429028248](https://truthsocial.com/users/bamabino/statuses/114938856429028248)
+- [11:27 UTC - [https:// truthsocial.com/users/RobertEL eedom/statuses/114938851281043537](https://truths...](114941941061610652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941941061610652
+  - [https:// truthsocial.com/users/RobertEL eedom/statuses/114938851281043537](https://truthsocial.com/users/RobertELeedom/statuses/114938851281043537)
+- [11:26 UTC - [https:// truthsocial.com/users/PepeDelu xe/statuses/114938982677050686](https://truthsoci...](114941939126005561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941939126005561
+  - [https:// truthsocial.com/users/PepeDelu xe/statuses/114938982677050686](https://truthsocial.com/users/PepeDeluxe/statuses/114938982677050686)
+- [11:23 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114941876125516717](https://tr...](114941924694786441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941924694786441
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114941876125516717](https://truthsocial.com/users/IStandWithTrump47/statuses/114941876125516717)
+- [11:22 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114941879562590061](https://tr...](114941921195418335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941921195418335
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114941879562590061](https://truthsocial.com/users/IStandWithTrump47/statuses/114941879562590061)
+- [11:21 UTC - [https:// truthsocial.com/users/MojoJojo 63/statuses/114939871998991216](https://truthsoci...](114941917188019991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941917188019991
+  - [https:// truthsocial.com/users/MojoJojo 63/statuses/114939871998991216](https://truthsocial.com/users/MojoJojo63/statuses/114939871998991216)
+- [11:20 UTC - [https:// truthsocial.com/users/MAHDavis /statuses/114939931717145350](https://truthsocial...](114941915530363622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941915530363622
+  - [https:// truthsocial.com/users/MAHDavis /statuses/114939931717145350](https://truthsocial.com/users/MAHDavis/statuses/114939931717145350)
+- [11:19 UTC - [https:// truthsocial.com/users/GabrielM cCainMAGA/statuses/114938822896831197](https://tr...](114941910660903116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941910660903116
+  - [https:// truthsocial.com/users/GabrielM cCainMAGA/statuses/114938822896831197](https://truthsocial.com/users/GabrielMcCainMAGA/statuses/114938822896831197)
+- [11:18 UTC - [https:// truthsocial.com/users/JnJ/stat uses/114939891201480145](https://truthsocial.com/...](114941906682800185/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941906682800185
+  - [https:// truthsocial.com/users/JnJ/stat uses/114939891201480145](https://truthsocial.com/users/JnJ/statuses/114939891201480145)
+- [11:17 UTC - [https:// truthsocial.com/users/Jenetics /statuses/114939653679167525](https://truthsocial...](114941903406279582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941903406279582
+  - [https:// truthsocial.com/users/Jenetics /statuses/114939653679167525](https://truthsocial.com/users/Jenetics/statuses/114939653679167525)
+- [11:16 UTC - [https:// truthsocial.com/users/Chrissy3 607/statuses/114939054433580550](https://truthsoc...](114941898766331572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941898766331572
+  - [https:// truthsocial.com/users/Chrissy3 607/statuses/114939054433580550](https://truthsocial.com/users/Chrissy3607/statuses/114939054433580550)
+- [11:15 UTC - [https:// truthsocial.com/users/erichrei mer/statuses/114938840424673781](https://truthsoc...](114941894149537090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941894149537090
+  - [https:// truthsocial.com/users/erichrei mer/statuses/114938840424673781](https://truthsocial.com/users/erichreimer/statuses/114938840424673781)
+- [11:14 UTC - [https:// truthsocial.com/users/DeeDee47 /statuses/114938843496663507](https://truthsocial...](114941889935283300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941889935283300
+  - [https:// truthsocial.com/users/DeeDee47 /statuses/114938843496663507](https://truthsocial.com/users/DeeDee47/statuses/114938843496663507)
+- [11:13 UTC - [https:// truthsocial.com/users/PROBOSSM EMES/statuses/114938838685118368](https://truthso...](114941888515171472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941888515171472
+  - [https:// truthsocial.com/users/PROBOSSM EMES/statuses/114938838685118368](https://truthsocial.com/users/PROBOSSMEMES/statuses/114938838685118368)
+- [11:12 UTC - [https:// truthsocial.com/users/ViolinMa n89/statuses/114938873229690806](https://truthsoc...](114941884240497681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941884240497681
+  - [https:// truthsocial.com/users/ViolinMa n89/statuses/114938873229690806](https://truthsocial.com/users/ViolinMan89/statuses/114938873229690806)
+- [11:11 UTC - [https:// truthsocial.com/users/BlakeMul key/statuses/114939521085859152](https://truthsoc...](114941880721629150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941880721629150
+  - [https:// truthsocial.com/users/BlakeMul key/statuses/114939521085859152](https://truthsocial.com/users/BlakeMulkey/statuses/114939521085859152)
+- [11:10 UTC - [https:// truthsocial.com/users/GNorberg /statuses/114938852775843671](https://truthsocial...](114941873546793353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941873546793353
+  - [https:// truthsocial.com/users/GNorberg /statuses/114938852775843671](https://truthsocial.com/users/GNorberg/statuses/114938852775843671)
+- [11:09 UTC - [https:// truthsocial.com/users/theresa3 57/statuses/114939066350774030](https://truthsoci...](114941871437154580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941871437154580
+  - [https:// truthsocial.com/users/theresa3 57/statuses/114939066350774030](https://truthsocial.com/users/theresa357/statuses/114939066350774030)
+- [11:08 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938846748080893](https://tr...](114941867778033134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941867778033134
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938846748080893](https://truthsocial.com/users/IStandWithTrump47/statuses/114938846748080893)
+- [11:07 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938867105761669](https://tr...](114941864923435422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941864923435422
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938867105761669](https://truthsocial.com/users/IStandWithTrump47/statuses/114938867105761669)
+- [11:07 UTC - [https:// truthsocial.com/users/kallitou t/statuses/114938863760728743](https://truthsocia...](114941862446820927/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941862446820927
+  - [https:// truthsocial.com/users/kallitou t/statuses/114938863760728743](https://truthsocial.com/users/kallitout/statuses/114938863760728743)
+- [11:04 UTC - [https:// truthsocial.com/users/katieb77 7/statuses/114939116308176884](https://truthsocia...](114941851573336612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941851573336612
+  - [https:// truthsocial.com/users/katieb77 7/statuses/114939116308176884](https://truthsocial.com/users/katieb777/statuses/114939116308176884)
+- [11:03 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938882691295376](https://tr...](114941849370408699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941849370408699
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114938882691295376](https://truthsocial.com/users/IStandWithTrump47/statuses/114938882691295376)
+- [11:03 UTC - [https:// truthsocial.com/users/mazurikl /statuses/114939340019378681](https://truthsocial...](114941846891513964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941846891513964
+  - [https:// truthsocial.com/users/mazurikl /statuses/114939340019378681](https://truthsocial.com/users/mazurikl/statuses/114939340019378681) . SO WELL STATED!
+- [11:01 UTC - [https:// truthsocial.com/users/mazurikl /statuses/114939295209318552](https://truthsocial...](114941838086618833/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941838086618833
+  - [https:// truthsocial.com/users/mazurikl /statuses/114939295209318552](https://truthsocial.com/users/mazurikl/statuses/114939295209318552)
+- [10:56 UTC - [https:// truthsocial.com/@realDonaldTru mp/114938820270436889](https://truthsocial.com/@r...](114941820333487910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114941820333487910
+  - [https:// truthsocial.com/@realDonaldTru mp/114938820270436889](https://truthsocial.com/@realDonaldTrump/114938820270436889)
+- [02:12 UTC - Due to a massive earthquake that occurred in the Pacific Ocean, a Tsunami Warning is in ef...](114939759564715119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114939759564715119
+  - Due to a massive earthquake that occurred in the Pacific Ocean, a Tsunami Warning is in effect for those living in Hawaii. A Tsunami Watch is in effect for Alaska and the Pacific C...

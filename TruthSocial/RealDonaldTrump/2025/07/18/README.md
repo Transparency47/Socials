@@ -1,0 +1,103 @@
+# TruthSocial / RealDonaldTrump / 2025-07-18
+
+- Posts: 33
+
+- [23:53 UTC - I pledged that we would bring back American liberty and leadership and make the U.S. the c...](114876927258467384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876927258467384
+  - I pledged that we would bring back American liberty and leadership and make the U.S. the crypto capital of the world—The Genius Act creates a clear and simple regulatory framework...
+- [22:51 UTC - BREAKING NEWS: We have just filed a POWERHOUSE Lawsuit against everyone involved in publis...](114876683513144253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876683513144253
+  - BREAKING NEWS: We have just filed a POWERHOUSE Lawsuit against everyone involved in publishing the false, malicious, defamatory, FAKE NEWS “article” in the useless “rag” that is, T...
+- [22:48 UTC - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful peop...](114876671293627236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876671293627236
+  - Congresswoman Monica De La Cruz is doing an incredible job representing the wonderful people of Texas’ 15th Congressional District! A very successful Small Businesswoman, Monica kn...
+- [22:43 UTC - Congressman Mark Harris is a terrific Representative for the incredible people of North Ca...](114876653599100275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876653599100275
+  - Congressman Mark Harris is a terrific Representative for the incredible people of North Carolina’s 8th Congressional District! Mark has a strong Record of SUCCESS, and compelling s...
+- [22:40 UTC - Congressman Derek Schmidt is an incredible Representative of Kansas’ 2nd Congressional Dis...](114876640511652135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876640511652135
+  - Congressman Derek Schmidt is an incredible Representative of Kansas’ 2nd Congressional District! A fifth generation Kansan, Derek served as State Attorney General for 12 years prio...
+- [22:39 UTC - Congressman Barry Loudermilk is a Tremendous Advocate for the Great People of Georgia’s 11...](114876638674610838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876638674610838
+  - Congressman Barry Loudermilk is a Tremendous Advocate for the Great People of Georgia’s 11th Congressional District! A Brave U.S. Air Force Veteran, Barry knows what is required to...
+- [22:39 UTC - Congressman Tracey Mann is an incredible Representative for the wonderful people of Kansas...](114876637907797002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876637907797002
+  - Congressman Tracey Mann is an incredible Representative for the wonderful people of Kansas’ “Big First” Congressional District! A fifth generation Farmer, Tracey is a strong and ef...
+- [22:39 UTC - Congressman Mark Messmer is a Fantastic Representative for the Great People of Indiana’s 8...](114876636997078377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876636997078377
+  - Congressman Mark Messmer is a Fantastic Representative for the Great People of Indiana’s 8th Congressional District! Mark has an incredible Record of Success, and strong support fr...
+- [22:39 UTC - Congressman Kevin Hern is a Tremendous Champion for Oklahoma’s 1st Congressional District!...](114876636266908918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876636266908918
+  - Congressman Kevin Hern is a Tremendous Champion for Oklahoma’s 1st Congressional District! As the Chair of the House Republican Policy Committee, Kevin is doing a fantastic job adv...
+- [22:39 UTC - Congresswoman Ann Wagner is doing an incredible job representing the amazing people of Mis...](114876635509809217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876635509809217
+  - Congresswoman Ann Wagner is doing an incredible job representing the amazing people of Missouri’s 2nd Congressional District! As the Chair of the Financial Services Subcommittee on...
+- [22:38 UTC - Congresswoman Stephanie Bice is doing a truly fantastic job representing the incredible pe...](114876634662612316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876634662612316
+  - Congresswoman Stephanie Bice is doing a truly fantastic job representing the incredible people of Oklahoma’s 5th Congressional District! Stephanie has a strong Record of Success, a...
+- [22:38 UTC - Congresswoman Lauren Boebert is an America First Patriot, who is doing an incredible job r...](114876633650538046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876633650538046
+  - Congresswoman Lauren Boebert is an America First Patriot, who is doing an incredible job representing Colorado’s 4th Congressional District! A MAGA Warrior, who has been with us fr...
+- [22:38 UTC - Congressman Max Miller is a fantastic Champion for the Great People of Ohio’s 1st Congress...](114876632946481372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876632946481372
+  - Congressman Max Miller is a fantastic Champion for the Great People of Ohio’s 1st Congressional District! Max bravely served our Country in the U.S. Marine Corps and, during my Fir...
+- [22:38 UTC - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congr...](114876632160599681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876632160599681
+  - Congressman Brandon Gill is a “MAGA” Warrior for the wonderful people of Texas’ 26th Congressional District! I have known Brandon’s family for many years. He has an incredible wife...
+- [22:27 UTC - Truth Social post 114876590063260023](114876590063260023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876590063260023
+  - _No text content captured._
+- [22:24 UTC - [https://www. youtube.com/live/1izvMU1WfBU?s i=LpP-U2atBqMXiG5e](https://www.youtube.com/l...](114876577056869987/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114876577056869987
+  - [https://www. youtube.com/live/1izvMU1WfBU?s i=LpP-U2atBqMXiG5e](https://www.youtube.com/live/1izvMU1WfBU?si=LpP-U2atBqMXiG5e)
+- [16:14 UTC - Everybody should watch Sean Hannity tonight. He really gets it! 9PM ET Fox News](114875121407553446/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114875121407553446
+  - Everybody should watch Sean Hannity tonight. He really gets it! 9PM ET Fox News
+- [13:30 UTC - Big signing at 2:30 in the White House. Congratulations to our GREAT REPUBLICANS for being...](114874476139755852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114874476139755852
+  - Big signing at 2:30 in the White House. Congratulations to our GREAT REPUBLICANS for being able to accomplish so much, a record, in so short a period of time. All the Democrats do...
+- [13:17 UTC - I look forward to getting Rupert Murdoch to testify in my lawsuit against him and his “pil...](114874426878030436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114874426878030436
+  - I look forward to getting Rupert Murdoch to testify in my lawsuit against him and his “pile of garbage” newspaper, the WSJ. That will be an interesting experience!!!
+- [13:16 UTC - I absolutely love that Colbert’ got fired. His talent was even less than his ratings. I he...](114874422468516376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114874422468516376
+  - I absolutely love that Colbert’ got fired. His talent was even less than his ratings. I hear Jimmy Kimmel is next. Has even less talent than Colbert! Greg Gutfeld is better than al...
+- [12:04 UTC - If there was a “smoking gun” on Epstein, why didn’t the Dems, who controlled the “files” f...](114874138131177867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114874138131177867
+  - If there was a “smoking gun” on Epstein, why didn’t the Dems, who controlled the “files” for four years, and had Garland and Comey in charge, use it? BECAUSE THEY HAD NOTHING!!!
+- [11:26 UTC - Lower the Rate, Too Late!](114873989056155321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114873989056155321
+  - Lower the Rate, Too Late!
+- [11:24 UTC - [https:// truthsocial.com/@DevinNunes/11 4872288502291088](https://truthsocial.com/@DevinN...](114873983312710250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114873983312710250
+  - [https:// truthsocial.com/@DevinNunes/11 4872288502291088](https://truthsocial.com/@DevinNunes/114872288502291088)
+- [11:24 UTC - [https:// truthsocial.com/@FoxNews/11487 2313893797342](https://truthsocial.com/@FoxNews/1...](114873981816583750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114873981816583750
+  - [https:// truthsocial.com/@FoxNews/11487 2313893797342](https://truthsocial.com/@FoxNews/114872313893797342)
+- [10:45 UTC - “Too Late,” and the Fed, are choking out the housing market with their high rate, making i...](114873827864802531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114873827864802531
+  - “Too Late,” and the Fed, are choking out the housing market with their high rate, making it difficult for people, especially the young, to buy a house. He is truly one of my worst...
+- [04:40 UTC - HOUSE APPROVES NINE BILLION DOLLAR CUTS PACKAGE, INCLUDING ATROCIOUS NPR AND PUBLIC BROADC...](114872393229075156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114872393229075156
+  - HOUSE APPROVES NINE BILLION DOLLAR CUTS PACKAGE, INCLUDING ATROCIOUS NPR AND PUBLIC BROADCASTING, WHERE BILLIONS OF DOLLARS A YEAR WERE WASTED. REPUBLICANS HAVE TRIED DOING THIS FO...
+- [01:57 UTC - The Wall Street Journal printed a FAKE letter, supposedly to Epstein. These are not my wor...](114871752316281496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871752316281496
+  - The Wall Street Journal printed a FAKE letter, supposedly to Epstein. These are not my words, not the way I talk. Also, I don’t draw pictures. I told Rupert Murdoch it was a Scam,...
+- [01:28 UTC - Truth Social post 114871640814206560](114871640814206560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871640814206560
+  - _No text content captured._
+- [01:28 UTC - Truth Social post 114871639845080140](114871639845080140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871639845080140
+  - _No text content captured._
+- [01:28 UTC - Truth Social post 114871638626071511](114871638626071511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871638626071511
+  - _No text content captured._
+- [01:27 UTC - Truth Social post 114871635791337087](114871635791337087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871635791337087
+  - _No text content captured._
+- [01:07 UTC - Based on the ridiculous amount of publicity given to Jeffrey Epstein, I have asked Attorne...](114871557460531003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871557460531003
+  - Based on the ridiculous amount of publicity given to Jeffrey Epstein, I have asked Attorney General Pam Bondi to produce any and all pertinent Grand Jury testimony, subject to Cour...
+- [00:33 UTC - The Wall Street Journal, and Rupert Murdoch, personally, were warned directly by President...](114871422727186590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871422727186590
+  - The Wall Street Journal, and Rupert Murdoch, personally, were warned directly by President Donald J. Trump that the supposed letter they printed by President Trump to Epstein was a...

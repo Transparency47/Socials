@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-08-29
+
+- Posts: 9
+
+- [23:53 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) THE APPELLATE COURT MAJORITY ...](115114745146658004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115114745146658004
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) THE APPELLATE COURT MAJORITY TARIFF DECISION WAS WRONG The appellate court majority that ruled against most of the pres...
+- [22:10 UTC - ALL TARIFFS ARE STILL IN EFFECT! Today a Highly Partisan Appeals Court incorrectly said th...](115114339832960282/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115114339832960282
+  - ALL TARIFFS ARE STILL IN EFFECT! Today a Highly Partisan Appeals Court incorrectly said that our Tariffs should be removed, but they know the United States of America will win in t...
+- [21:52 UTC - GREAT Governor Mike Kehoe, of the Wonderful State of Missouri, which I love and won SIX ti...](115114270276925608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115114270276925608
+  - GREAT Governor Mike Kehoe, of the Wonderful State of Missouri, which I love and won SIX times, including with 1.8 Million Votes in 2024 (by far the most Votes in History!), just ca...
+- [17:19 UTC - Truth Social post 115113197488720780](115113197488720780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115113197488720780
+  - _No text content captured._
+- [16:11 UTC - A great tribute to the incredible “Hulkster” that you won’t want to miss! Hulk Hogan Tribu...](115112927549205725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115112927549205725
+  - A great tribute to the incredible “Hulkster” that you won’t want to miss! Hulk Hogan Tribute: [https://www. realamericanfreestyle.com/](https://www.realamericanfreestyle.com/)
+- [13:56 UTC - [https://www. washingtontimes.com/news/2025/ aug/28/wes-moore-professional-leftist/](https...](115112398763394549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115112398763394549
+  - [https://www. washingtontimes.com/news/2025/ aug/28/wes-moore-professional-leftist/](https://www.washingtontimes.com/news/2025/aug/28/wes-moore-professional-leftist/)
+- [03:08 UTC - Carjacking in DC is down 87%. ALL other categories of crime are likewise down massively si...](115109848555666148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115109848555666148
+  - Carjacking in DC is down 87%. ALL other categories of crime are likewise down massively since I got involved. DC will soon be a CRIME FREE ZONE, in only 14 days, far faster than sc...
+- [02:36 UTC - “Pulte Ups Cook Scrutiny With Criminal Referral on Third Mortgage” [https://www. bloomberg...](115109725372043595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115109725372043595
+  - “Pulte Ups Cook Scrutiny With Criminal Referral on Third Mortgage” [https://www. bloomberg.com/news/articles/20 25-08-29/pulte-ups-cook-scrutiny-with-criminal-referral-on-third-mor...
+- [01:50 UTC - Truth Social post 115109543486256563](115109543486256563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115109543486256563
+  - _No text content captured._

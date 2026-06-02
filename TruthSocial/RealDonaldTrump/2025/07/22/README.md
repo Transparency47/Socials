@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-07-22
+
+- Posts: 24
+
+- [23:12 UTC - We just completed a massive Deal with Japan, perhaps the largest Deal ever made. Japan wil...](114899417740854572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899417740854572
+  - We just completed a massive Deal with Japan, perhaps the largest Deal ever made. Japan will invest, at my direction, $550 Billion Dollars into the United States, which will receive...
+- [21:30 UTC - It is my Great Honor to grant $11.7 Million Dollars to the beautiful State of West Virgini...](114899014766252904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899014766252904
+  - It is my Great Honor to grant $11.7 Million Dollars to the beautiful State of West Virginia, for severe tornados and flooding that impacted their incredible people in June. I just...
+- [21:30 UTC - I just finished speaking with the Governor Mike Braun, of the Great State of Indiana, whic...](114899014019794877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899014019794877
+  - I just finished speaking with the Governor Mike Braun, of the Great State of Indiana, which I won BIG in 2016, 2020, and 2024. We are approving $15.1 Million Dollars for severe flo...
+- [21:30 UTC - I just spoke with Governor Gretchen Whitmer to let her know I am approving $50 Million Dol...](114899013294297540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899013294297540
+  - I just spoke with Governor Gretchen Whitmer to let her know I am approving $50 Million Dollars for the wonderful State of Michigan for Public Assistance to help them recover from t...
+- [21:29 UTC - I just gladly approved two Declarations for the Great Commonwealth of Kentucky for two Sto...](114899012522491926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114899012522491926
+  - I just gladly approved two Declarations for the Great Commonwealth of Kentucky for two Storms in April and May, one for $28.9 Million Dollars, and the other, $27.1 Million Dollars,...
+- [19:21 UTC - It is my Great Honor to announce our Trade Agreement with the Republic of Indonesia, as re...](114898507608732258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114898507608732258
+  - It is my Great Honor to announce our Trade Agreement with the Republic of Indonesia, as represented by their Highly Respected President, Prabowo Subianto. It is agreed that Indones...
+- [19:20 UTC - We had the Greatest Six Months of any President in the History of our Country, and all the...](114898503111677568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114898503111677568
+  - We had the Greatest Six Months of any President in the History of our Country, and all the Fake News wants to talk about is the Jeffrey Epstein Hoax!
+- [18:10 UTC - BREAKING NEWS! We have just achieved a BIG AND IMPORTANT WIN in our Historic Lawsuit again...](114898229237459086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114898229237459086
+  - BREAKING NEWS! We have just achieved a BIG AND IMPORTANT WIN in our Historic Lawsuit against 60 Minutes, CBS, and Paramount. Just like ABC and George Slopadopoulos, CBS and its Cor...
+- [17:30 UTC - President Ferdinand Marcos, of the Philippines, is just leaving the White House, with all ...](114898069194751986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114898069194751986
+  - President Ferdinand Marcos, of the Philippines, is just leaving the White House, with all of his many Representatives. It was a beautiful visit, and we concluded our Trade Deal, wh...
+- [17:29 UTC - “This makes Watergate look like small potatoes.” Victor Davis Hanson, Senior Fellow, Hoove...](114898065961645958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114898065961645958
+  - “This makes Watergate look like small potatoes.” Victor Davis Hanson, Senior Fellow, Hoover Institution. They are caught, irrefutable evidence. They should ALL go to jail, or it wi...
+- [16:44 UTC - [https://www. youtube.com/live/tBEuoGSrG40?s i=TLm_kLwlWLcY5lke](https://www.youtube.com/l...](114897889930058779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114897889930058779
+  - [https://www. youtube.com/live/tBEuoGSrG40?s i=TLm_kLwlWLcY5lke](https://www.youtube.com/live/tBEuoGSrG40?si=TLm_kLwlWLcY5lke)
+- [15:53 UTC - It's a great honor to have President Ferdinand Marcos Jr. of the Philippines…](114897689405330708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114897689405330708
+  - It's a great honor to have President Ferdinand Marcos Jr. of the Philippines…
+- [15:30 UTC - The word is, and it’s a strong word at that, Jimmy Kimmel is NEXT to go in the untalented ...](114897600777919524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114897600777919524
+  - The word is, and it’s a strong word at that, Jimmy Kimmel is NEXT to go in the untalented Late Night Sweepstakes and, shortly thereafter, Fallon will be gone. These are people with...
+- [02:18 UTC - Laura Ingraham: “We have too many actings and not enough permanent and confirmed appointee...](114894485362763615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894485362763615
+  - Laura Ingraham: “We have too many actings and not enough permanent and confirmed appointees in the Trump Administration. The Senate has got to stay in session and get these Appella...
+- [01:26 UTC - Victor Davis Hanson: “This was a three-year project to overturn the will of the American p...](114894279798283247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894279798283247
+  - Victor Davis Hanson: “This was a three-year project to overturn the will of the American people—Makes Watergate look like small potatoes….”
+- [01:03 UTC - [https:// truthsocial.com/@FireThomasMas sie/114863187595086017](https://truthsocial.com/@...](114894188921935031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894188921935031
+  - [https:// truthsocial.com/@FireThomasMas sie/114863187595086017](https://truthsocial.com/@FireThomasMassie/114863187595086017) . Thomas Massie, the worst Republican Congressman, an...
+- [00:54 UTC - [https:// truthsocial.com/@KarliBonne/11 4886309973915956](https://truthsocial.com/@KarliB...](114894153647881802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894153647881802
+  - [https:// truthsocial.com/@KarliBonne/11 4886309973915956](https://truthsocial.com/@KarliBonne/114886309973915956)
+- [00:53 UTC - [https:// truthsocial.com/@VaporTechAsso c/114843220637972986](https://truthsocial.com/@Va...](114894150600510368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894150600510368
+  - [https:// truthsocial.com/@VaporTechAsso c/114843220637972986](https://truthsocial.com/@VaporTechAssoc/114843220637972986)
+- [00:52 UTC - [https:// truthsocial.com/@realDonaldTru mp/114886877289379131](https://truthsocial.com/@r...](114894148345306829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894148345306829
+  - [https:// truthsocial.com/@realDonaldTru mp/114886877289379131](https://truthsocial.com/@realDonaldTrump/114886877289379131)
+- [00:52 UTC - [https:// truthsocial.com/@realDonaldTru mp/114893622892167380](https://truthsocial.com/@r...](114894146320789875/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894146320789875
+  - [https:// truthsocial.com/@realDonaldTru mp/114893622892167380](https://truthsocial.com/@realDonaldTrump/114893622892167380)
+- [00:51 UTC - [https:// truthsocial.com/@realDonaldTru mp/114893353003200271](https://truthsocial.com/@r...](114894144312978329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114894144312978329
+  - [https:// truthsocial.com/@realDonaldTru mp/114893353003200271](https://truthsocial.com/@realDonaldTrump/114893353003200271)
+- [00:14 UTC - [https:// truthsocial.com/@realDonaldTru mp/114893622892167380](https://truthsocial.com/@r...](114893999105518153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893999105518153
+  - [https:// truthsocial.com/@realDonaldTru mp/114893622892167380](https://truthsocial.com/@realDonaldTrump/114893622892167380)
+- [00:11 UTC - Obama himself manufactured the Russia, Russia, Russia HOAX. Crooked Hillary, Sleepy Joe, a...](114893984552850709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893984552850709
+  - Obama himself manufactured the Russia, Russia, Russia HOAX. Crooked Hillary, Sleepy Joe, and numerous others participated in this, THE CRIME OF THE CENTURY!. Irrefutable EVIDENCE....
+- [00:01 UTC - Iran’s Foreign Minister, Abbas Araghchi, on the Iran Nuclear Sites: “Damages are very seve...](114893947519507520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114893947519507520
+  - Iran’s Foreign Minister, Abbas Araghchi, on the Iran Nuclear Sites: “Damages are very severe, they are destroyed.” Of course they are, just like I said, and we will do it again, if...

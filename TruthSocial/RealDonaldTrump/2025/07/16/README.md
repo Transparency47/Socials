@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-07-16
+
+- Posts: 24
+
+- [23:29 UTC - Americans know we need a better Healthcare System to properly serve our Great Communities ...](114865507306954051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865507306954051
+  - Americans know we need a better Healthcare System to properly serve our Great Communities that were abandoned by the Radical Left Democrats. That is why Republicans included $50 Bi...
+- [23:28 UTC - To the Law abiding, Tax paying, Hardworking Citizens of the United States of America, I am...](114865506222851432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865506222851432
+  - To the Law abiding, Tax paying, Hardworking Citizens of the United States of America, I am thrilled to announce that I have officially freed you from funding California’s disastrou...
+- [22:57 UTC - Truth Social post 114865383936200982](114865383936200982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865383936200982
+  - _No text content captured._
+- [22:49 UTC - I am pleased to nominate Jennifer Mascott to serve as a Judge on the United States Court o...](114865352052263270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865352052263270
+  - I am pleased to nominate Jennifer Mascott to serve as a Judge on the United States Court of Appeals for the Third Circuit. Jennifer clerked for Justice Clarence Thomas and Justice...
+- [22:47 UTC - It was my Great Honor to welcome the Prime Minister and Crown Prince of Bahrain today at t...](114865342296740017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865342296740017
+  - It was my Great Honor to welcome the Prime Minister and Crown Prince of Bahrain today at the White House. We have had a tremendous relationship with Bahrain over the years—and they...
+- [22:40 UTC - “President Trump Signs HALT Fentanyl Act into Law” [https://www. whitehouse.gov/articles/2...](114865317698739416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865317698739416
+  - “President Trump Signs HALT Fentanyl Act into Law” [https://www. whitehouse.gov/articles/2025/0 7/president-trump-signs-halt-fentanyl-act-into-law/](https://www.whitehouse.gov/arti...
+- [20:53 UTC - [https://www. dol.gov/newsroom/releases/osec /osec20250715](https://www.dol.gov/newsroom/r...](114864894061244766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864894061244766
+  - [https://www. dol.gov/newsroom/releases/osec /osec20250715](https://www.dol.gov/newsroom/releases/osec/osec20250715)
+- [20:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114864568970937982](114864861471056633/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864861471056633
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114864568970937982
+- [20:19 UTC - I have been speaking to Coca-Cola about using REAL Cane Sugar in Coke in the United States...](114864763487869986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864763487869986
+  - I have been speaking to Coca-Cola about using REAL Cane Sugar in Coke in the United States, and they have agreed to do so. I’d like to thank all of those in authority at Coca-Cola....
+- [19:30 UTC - [https://www. youtube.com/live/IfWtPnOmjQ0?s i=Kn2uKq-5fF53SHb2](https://www.youtube.com/l...](114864568970937982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864568970937982
+  - [https://www. youtube.com/live/IfWtPnOmjQ0?s i=Kn2uKq-5fF53SHb2](https://www.youtube.com/live/IfWtPnOmjQ0?si=Kn2uKq-5fF53SHb2)
+- [18:54 UTC - Truth Social post 114864427988614592](114864427988614592/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864427988614592
+  - _No text content captured._
+- [18:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114864120152216438](114864260433758417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864260433758417
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114864120152216438
+- [17:36 UTC - [https://www. youtube.com/live/jLgk7WImT5g?s i=H5u_OszKeh4AnKJy](https://www.youtube.com/l...](114864120152216438/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114864120152216438
+  - [https://www. youtube.com/live/jLgk7WImT5g?s i=H5u_OszKeh4AnKJy](https://www.youtube.com/live/jLgk7WImT5g?si=H5u_OszKeh4AnKJy)
+- [15:17 UTC - Truth Social post 114863575374163565](114863575374163565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863575374163565
+  - _No text content captured._
+- [14:39 UTC - Secretary of Energy, Chris Wright: “President Trump has TRANSFORMED the American energy la...](114863423197999192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863423197999192
+  - Secretary of Energy, Chris Wright: “President Trump has TRANSFORMED the American energy landscape. You're going to see a lot more of big, beautiful, clean coal!”
+- [14:35 UTC - Fox Business: “Tariff revenues topped a record $113 billion for the first time during the ...](114863410012919913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863410012919913
+  - Fox Business: “Tariff revenues topped a record $113 billion for the first time during the fiscal year — a revelation that comes as President Donald Trump imposes near-weekly duties...
+- [14:32 UTC - [https://www. whitehouse.gov/obbb/](https://www.whitehouse.gov/obbb/)](114863395443845008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863395443845008
+  - [https://www. whitehouse.gov/obbb/](https://www.whitehouse.gov/obbb/)
+- [14:28 UTC - “President Trump Solidifies U.S. Position as Leader in AI” [https://www. whitehouse.gov/ar...](114863380166048416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863380166048416
+  - “President Trump Solidifies U.S. Position as Leader in AI” [https://www. whitehouse.gov/articles/2025/0 7/president-trump-solidifies-u-s-position-as-leader-in-ai/](https://www.whit...
+- [14:17 UTC - Truth Social post 114863337599611394](114863337599611394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863337599611394
+  - _No text content captured._
+- [14:17 UTC - Truth Social post 114863336353076906](114863336353076906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863336353076906
+  - _No text content captured._
+- [13:43 UTC - The Radical Left Democrats have hit pay dirt, again! Just like with the FAKE and fully dis...](114863203348237352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114863203348237352
+  - The Radical Left Democrats have hit pay dirt, again! Just like with the FAKE and fully discredited Steele Dossier, the lying 51 “Intelligence” Agents, the Laptop from Hell, which t...
+- [12:15 UTC - [https:// justthenews.com/government/whi te-house/balanced-budget](https://justthenews.com...](114862860410362463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114862860410362463
+  - [https:// justthenews.com/government/whi te-house/balanced-budget](https://justthenews.com/government/white-house/balanced-budget)
+- [00:43 UTC - I am in the Oval Office with 11 of the 12 Congressmen/women necessary to pass the GENIUS A...](114860136006223294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114860136006223294
+  - I am in the Oval Office with 11 of the 12 Congressmen/women necessary to pass the GENIUS Act and, after a short discussion, they have all agreed to vote tomorrow morning in favor o...
+- [00:20 UTC - Truth Social post 114860047895918254](114860047895918254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114860047895918254
+  - _No text content captured._

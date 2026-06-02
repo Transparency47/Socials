@@ -1,0 +1,115 @@
+# TruthSocial / RealDonaldTrump / 2025-08-01
+
+- Posts: 37
+
+- [22:05 UTC - “Too Late” Powell should resign, just like Adriana Kugler, a Biden Appointee, resigned. Sh...](114955773655328634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114955773655328634
+  - “Too Late” Powell should resign, just like Adriana Kugler, a Biden Appointee, resigned. She knew he was doing the wrong thing on Interest Rates. He should resign, also!
+- [21:58 UTC - [https:// justthenews.com/government/whi te-house/biden-took-lead-tying-trump-putin-follow...](114955747552379353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114955747552379353
+  - [https:// justthenews.com/government/whi te-house/biden-took-lead-tying-trump-putin-following-alleged-approval-clintons](https://justthenews.com/government/white-house/biden-took-l...
+- [21:58 UTC - [https:// substack.com/inbox/post/169766 681](https://substack.com/inbox/post/169766681)](114955746317569383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114955746317569383
+  - [https:// substack.com/inbox/post/169766 681](https://substack.com/inbox/post/169766681)
+- [21:01 UTC - I’m doing Rob Finnerty tonight, on Newsmax. He has been so terrific, I thought it would be...](114955523525768040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114955523525768040
+  - I’m doing Rob Finnerty tonight, on Newsmax. He has been so terrific, I thought it would be appropriate to do his Show. Enjoy!
+- [19:44 UTC - In my opinion, today’s Jobs Numbers were RIGGED in order to make the Republicans, and ME, ...](114955222046259464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114955222046259464
+  - In my opinion, today’s Jobs Numbers were RIGGED in order to make the Republicans, and ME, look bad — Just like when they had three great days around the 2024 Presidential Election,...
+- [18:09 UTC - I was just informed that our Country’s “Jobs Numbers” are being produced by a Biden Appoin...](114954846612623858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114954846612623858
+  - I was just informed that our Country’s “Jobs Numbers” are being produced by a Biden Appointee, Dr. Erika McEntarfer, the Commissioner of Labor Statistics, who faked the Jobs Number...
+- [16:53 UTC - Based on the highly provocative statements of the Former President of Russia, Dmitry Medve...](114954549017557270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114954549017557270
+  - Based on the highly provocative statements of the Former President of Russia, Dmitry Medvedev, who is now the Deputy Chairman of the Security Council of the Russian Federation, I h...
+- [15:41 UTC - I have just been informed that almost 20,000 Russian soldiers died this month in the ridic...](114954267210702518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114954267210702518
+  - I have just been informed that almost 20,000 Russian soldiers died this month in the ridiculous War with Ukraine. Russia has lost 112,500 soldiers since the beginning of the year....
+- [14:25 UTC - MAGA Warrior Joe Gruters, who has been with us from the very beginning, is running to beco...](114953968595024935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953968595024935
+  - MAGA Warrior Joe Gruters, who has been with us from the very beginning, is running to become the next Chairman of the Republican National Committee, succeeding the Great Michael Wh...
+- [14:24 UTC - Great news for North Carolina! Michael Whatley, one of the most capable executives in our ...](114953962646647794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953962646647794
+  - Great news for North Carolina! Michael Whatley, one of the most capable executives in our Country, who successfully ran, along with Lara Trump, the Republican National Committee, h...
+- [12:51 UTC - Too Little, Too Late. Jerome “Too Late” Powell is a disaster. DROP THE RATE! The good news...](114953595203270237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953595203270237
+  - Too Little, Too Late. Jerome “Too Late” Powell is a disaster. DROP THE RATE! The good news is that Tariffs are bringing Billions of Dollars into the USA!
+- [12:15 UTC - Truth Social post 114953457389046877](114953457389046877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953457389046877
+  - _No text content captured._
+- [12:14 UTC - Jonathan Turley: “It appears that everyone was in on the trick: the U.S. government, the m...](114953451498807072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953451498807072
+  - Jonathan Turley: “It appears that everyone was in on the trick: the U.S. government, the media, even foreign governments. The only chumps were the American people. Now they are abo...
+- [12:08 UTC - STRONG DISSENTS ON FED BOARD. IT WILL ONLY GET STRONGER! “TOO LATE!”](114953428953267494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953428953267494
+  - STRONG DISSENTS ON FED BOARD. IT WILL ONLY GET STRONGER! “TOO LATE!”
+- [11:19 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. foxnews.com...](114953237219424637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953237219424637
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. foxnews.com/opinion/gregg-jarr ett-newly-declassified-documents-destroy-russian-collusion-hoax](https...
+- [11:19 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Victor Davis Hanson: “NEW...](114953235834871445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953235834871445
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Victor Davis Hanson: “NEW Information on Obama-Russiagate Setup Surfaces”
+- [11:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114951267991258751 They must pa...](114953234645615294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953234645615294
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114951267991258751 They must pay for the crime of the Century!
+- [11:15 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Senate must stay in S...](114953220461302380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953220461302380
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Senate must stay in Session, taking no recess, until the entire Executive Calendar is CLEAR!!! We have to save...
+- [10:58 UTC - Great analysis of the market by Stephen Auth of Federated Hermes, as interviewed by Maria ...](114953151877294098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953151877294098
+  - Great analysis of the market by Stephen Auth of Federated Hermes, as interviewed by Maria Bartiromo on Fox Business!
+- [10:48 UTC - The Russia, Russia, Russia HOAX is now TOTALLY UNDISPUTED! THE FACTS ARE ALL THERE, IN BLA...](114953114494129479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953114494129479
+  - The Russia, Russia, Russia HOAX is now TOTALLY UNDISPUTED! THE FACTS ARE ALL THERE, IN BLACK AND WHITE. It is the biggest scandal in American History. The perpetrators of this CRIM...
+- [10:32 UTC - Jerome “Too Late” Powell, a stubborn MORON, must substantially lower interest rates, NOW. ...](114953049546233760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114953049546233760
+  - Jerome “Too Late” Powell, a stubborn MORON, must substantially lower interest rates, NOW. IF HE CONTINUES TO REFUSE, THE BOARD SHOULD ASSUME CONTROL, AND DO WHAT EVERYONE KNOWS HAS...
+- [04:18 UTC - “THE PANICANS WERE WRONG AGAIN”](114951578287181512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951578287181512
+  - “THE PANICANS WERE WRONG AGAIN”
+- [02:59 UTC - Truth Social post 114951267991258751](114951267991258751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951267991258751
+  - _No text content captured._
+- [02:57 UTC - Victor Davis Hanson: “NEW Information on Obama-Russiagate Setup Surfaces”](114951262882039337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951262882039337
+  - Victor Davis Hanson: “NEW Information on Obama-Russiagate Setup Surfaces”
+- [02:55 UTC - [https://www. foxnews.com/sports/trump-sets- up-presidential-fitness-test-another-revamp-a...](114951251738944271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951251738944271
+  - [https://www. foxnews.com/sports/trump-sets- up-presidential-fitness-test-another-revamp-after-obama-retired-during-presidency](https://www.foxnews.com/sports/trump-sets-up-preside...
+- [02:54 UTC - [https://www. foxbusiness.com/politics/trump -escalates-canada-tariffs-35-while-setting-ne...](114951250321324818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951250321324818
+  - [https://www. foxbusiness.com/politics/trump -escalates-canada-tariffs-35-while-setting-new-tariff-rates-dozens-other-countries](https://www.foxbusiness.com/politics/trump-escalate...
+- [02:52 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-newly-declassified-documents-destroy-russ...](114951242050741992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951242050741992
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-newly-declassified-documents-destroy-russian-collusion-hoax](https://www.foxnews.com/opinion/gregg-jarrett-newly-declassified-docum...
+- [02:52 UTC - [https://www. foxnews.com/opinion/jonathan-t urley-dems-pulled-greatest-political-con-job-...](114951240941875608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951240941875608
+  - [https://www. foxnews.com/opinion/jonathan-t urley-dems-pulled-greatest-political-con-job-ever-americans-its-finally-unraveling](https://www.foxnews.com/opinion/jonathan-turley-dem...
+- [02:50 UTC - MARK LEVIN: “THE LEFT’S WEAPONIZATION OF POWER”](114951234439366866/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951234439366866
+  - MARK LEVIN: “THE LEFT’S WEAPONIZATION OF POWER”
+- [02:48 UTC - Jonathan Turley: “Well, there are a lot of people worried in this city tonight. This is th...](114951224261822778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951224261822778
+  - Jonathan Turley: “Well, there are a lot of people worried in this city tonight. This is the great reveal that John Ratcliffe was promising, and there is more to come.”
+- [02:46 UTC - “What we now know for sure is not only was this a plan by Hillary Clinton, but this is als...](114951217704804168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951217704804168
+  - “What we now know for sure is not only was this a plan by Hillary Clinton, but this is also a plan of the Soros Society…the same people doing the same nonsense—from 2016 all the wa...
+- [02:16 UTC - [https://www. washingtontimes.com/news/2025/ jul/31/russiagate-trump-administrations-searc...](114951101118966349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951101118966349
+  - [https://www. washingtontimes.com/news/2025/ jul/31/russiagate-trump-administrations-search-truth-transparency/](https://www.washingtontimes.com/news/2025/jul/31/russiagate-trump-a...
+- [02:16 UTC - [https:// dailycaller.com/2025/07/28/opi nion-americans-support-full-transparency-and-thor...](114951100149113290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951100149113290
+  - [https:// dailycaller.com/2025/07/28/opi nion-americans-support-full-transparency-and-thorough-investigations-to-uncover-russia-hoax-dave-bossie/](https://dailycaller.com/2025/07/2...
+- [02:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114950433397228924](114951088961975277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951088961975277
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114950433397228924
+- [02:03 UTC - [https:// truthsocial.com/@realDonaldTru mp/114950348792604159](https://truthsocial.com/@r...](114951050923974932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951050923974932
+  - [https:// truthsocial.com/@realDonaldTru mp/114950348792604159](https://truthsocial.com/@realDonaldTrump/114950348792604159)
+- [02:01 UTC - Republicans, when in doubt, vote the exact opposite of Senator Susan Collins. Generally sp...](114951042178223048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951042178223048
+  - Republicans, when in doubt, vote the exact opposite of Senator Susan Collins. Generally speaking, you can’t go wrong. Thank you for your attention to this matter and, MAKE AMERICA...
+- [01:52 UTC - The Senate must stay in Session, taking no recess, until the entire Executive Calendar is ...](114951007246294127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114951007246294127
+  - The Senate must stay in Session, taking no recess, until the entire Executive Calendar is CLEAR!!! We have to save our Country from the Lunatic Left. Republicans, for the health an...

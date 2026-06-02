@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-08-03
+
+- Posts: 9
+
+- [20:25 UTC - Thank you to Congressman Tom Emmer of Minnesota for his great defense of everything Republ...](114966707076456802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114966707076456802
+  - Thank you to Congressman Tom Emmer of Minnesota for his great defense of everything Republican. His television appearances are GOLD! The Dems are in a state of collapse!!!
+- [20:19 UTC - Great Job by Representative Erin Houchin, Republican of Indiana, in discussing the Labor S...](114966684792614752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114966684792614752
+  - Great Job by Representative Erin Houchin, Republican of Indiana, in discussing the Labor Statistics Scam on FoxNews. Thank you, Erin!
+- [20:16 UTC - Head of the Bureau of of Labor Statistics did the same thing just before the Presidential ...](114966671063911029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114966671063911029
+  - Head of the Bureau of of Labor Statistics did the same thing just before the Presidential Election, when she lifted the numbers for jobs to an all time high. I then won the Electio...
+- [16:20 UTC - Truth Social post 114965743014527126](114965743014527126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114965743014527126
+  - _No text content captured._
+- [16:19 UTC - Truth Social post 114965740839460663](114965740839460663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114965740839460663
+  - _No text content captured._
+- [16:19 UTC - Truth Social post 114965738545590547](114965738545590547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114965738545590547
+  - _No text content captured._
+- [16:19 UTC - Truth Social post 114965737808653339](114965737808653339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114965737808653339
+  - _No text content captured._
+- [16:18 UTC - Truth Social post 114965736947426880](114965736947426880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114965736947426880
+  - _No text content captured._
+- [05:49 UTC - The very wonderful and talented Lara Trump, whose show is a big ratings success, put racis...](114963263700328714/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114963263700328714
+  - The very wonderful and talented Lara Trump, whose show is a big ratings success, put racist sleazebag Charlamagne “The God” (Why is he allowed to use the word “GOD” when describing...

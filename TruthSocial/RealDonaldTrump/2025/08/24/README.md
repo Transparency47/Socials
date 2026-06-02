@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-08-24
+
+- Posts: 10
+
+- [20:05 UTC - The Appellate Court removed incompetent Judge Engoron, but he refused to go, or even to ac...](115085538447688269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115085538447688269
+  - The Appellate Court removed incompetent Judge Engoron, but he refused to go, or even to acknowledge them. He’s a highly overturned, CROOKED Judge, who is retiring into a life of la...
+- [16:24 UTC - I played Golf yesterday with the Great Roger Clemens and his son, Kacy. Roger Clemens was ...](115084666474687343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084666474687343
+  - I played Golf yesterday with the Great Roger Clemens and his son, Kacy. Roger Clemens was easily one of the few Greatest Pitchers of All Time, winning 354 Games, the Cy Young Award...
+- [16:23 UTC - [https:// humanevents.com/2025/08/21/she a-bradley-farrell-trump-has-world-leaders-at-his-...](115084662923767383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084662923767383
+  - [https:// humanevents.com/2025/08/21/she a-bradley-farrell-trump-has-world-leaders-at-his-fingertips-in-his-fight-for-peace](https://humanevents.com/2025/08/21/shea-bradley-farrell...
+- [16:23 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-victim-not-villain-lawfare-war-agai...](115084662084030070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084662084030070
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-victim-not-villain-lawfare-war-against-him-crumbles](https://www.foxnews.com/opinion/gregg-jarrett-trump-victim-not-villain-l...
+- [16:22 UTC - Truth Social post 115084661083955420](115084661083955420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084661083955420
+  - _No text content captured._
+- [16:22 UTC - Truth Social post 115084658942614946](115084658942614946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084658942614946
+  - _No text content captured._
+- [14:16 UTC - Did Wes Moore, the Governor of Maryland, lie about getting a Bronze Star?](115084162750679122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084162750679122
+  - Did Wes Moore, the Governor of Maryland, lie about getting a Bronze Star?
+- [14:12 UTC - Governor Wes Moore of Maryland has asked, in a rather nasty and provocative tone, that I “...](115084149454997135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115084149454997135
+  - Governor Wes Moore of Maryland has asked, in a rather nasty and provocative tone, that I “walk the streets of Maryland” with him. I assume he is talking about out of control, crime...
+- [02:44 UTC - The greatest and most beautiful fighter jet ever made —— F-22 Raptor!](115081441604745953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115081441604745953
+  - The greatest and most beautiful fighter jet ever made —— F-22 Raptor!
+- [02:41 UTC - Keegan Bradley should DEFINITELY be on the American Ryder Cup Team - As Captain!!! He is a...](115081430531030440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115081430531030440
+  - Keegan Bradley should DEFINITELY be on the American Ryder Cup Team - As Captain!!! He is an AMAZING guy. It will be a great Ryder Cup. At the invite of the PGA Tour, I will be ther...

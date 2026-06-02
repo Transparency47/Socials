@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-07-17
+
+- Posts: 18
+
+- [23:56 UTC - [https:// truthsocial.com/@realDonaldTru mp/114857853214560315](https://truthsocial.com/@r...](114871277769228150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114871277769228150
+  - [https:// truthsocial.com/@realDonaldTru mp/114857853214560315](https://truthsocial.com/@realDonaldTrump/114857853214560315)
+- [21:52 UTC - Truth Social post 114870788445875372](114870788445875372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114870788445875372
+  - _No text content captured._
+- [21:51 UTC - [https:// therightscoop.com/breaking-vid eo-cnn-reveals-trumps-approval-rating-with-base-a...](114870784731384381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114870784731384381
+  - [https:// therightscoop.com/breaking-vid eo-cnn-reveals-trumps-approval-rating-with-base-amidst-anger-epstein/](https://therightscoop.com/breaking-video-cnn-reveals-trumps-approval...
+- [21:50 UTC - Truth Social post 114870783586546452](114870783586546452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114870783586546452
+  - _No text content captured._
+- [19:53 UTC - RT: https://truthsocial.com/users/rapidresponse47/statuses/114869053826157428](114870321104131050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114870321104131050
+  - RT: https://truthsocial.com/users/rapidresponse47/statuses/114869053826157428
+- [19:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114837554019633896 I am pleased...](114870310221162497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114870310221162497
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114837554019633896 I am pleased to announce that Salena just reached NUMBER ONE!
+- [14:20 UTC - [https:// truthsocial.com/@realDonaldTru mp/114859213229042831](https://truthsocial.com/@r...](114869011672710921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114869011672710921
+  - [https:// truthsocial.com/@realDonaldTru mp/114859213229042831](https://truthsocial.com/@realDonaldTrump/114859213229042831)
+- [14:19 UTC - [https:// truthsocial.com/@realDonaldTru mp/114862860410362463](https://truthsocial.com/@r...](114869008775823492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114869008775823492
+  - [https:// truthsocial.com/@realDonaldTru mp/114862860410362463](https://truthsocial.com/@realDonaldTrump/114862860410362463)
+- [14:19 UTC - [https:// truthsocial.com/@realDonaldTru mp/114863336353076906](https://truthsocial.com/@r...](114869006934555163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114869006934555163
+  - [https:// truthsocial.com/@realDonaldTru mp/114863336353076906](https://truthsocial.com/@realDonaldTrump/114863336353076906)
+- [14:18 UTC - [https:// truthsocial.com/@realDonaldTru mp/114863337599611394](https://truthsocial.com/@r...](114869005878356823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114869005878356823
+  - [https:// truthsocial.com/@realDonaldTru mp/114863337599611394](https://truthsocial.com/@realDonaldTrump/114863337599611394)
+- [14:18 UTC - [https:// truthsocial.com/@realDonaldTru mp/114863410012919913](https://truthsocial.com/@r...](114869004494193888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114869004494193888
+  - [https:// truthsocial.com/@realDonaldTru mp/114863410012919913](https://truthsocial.com/@realDonaldTrump/114863410012919913)
+- [14:15 UTC - [https:// truthsocial.com/@realDonaldTru mp/114865740034919353](https://truthsocial.com/@r...](114868993954020671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114868993954020671
+  - [https:// truthsocial.com/@realDonaldTru mp/114865740034919353](https://truthsocial.com/@realDonaldTrump/114865740034919353)
+- [14:15 UTC - [https:// truthsocial.com/@realDonaldTru mp/114865949272268114](https://truthsocial.com/@r...](114868992703819695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114868992703819695
+  - [https:// truthsocial.com/@realDonaldTru mp/114865949272268114](https://truthsocial.com/@realDonaldTrump/114865949272268114)
+- [14:14 UTC - [https:// truthsocial.com/@realDonaldTru mp/114866148855492915](https://truthsocial.com/@r...](114868990583289743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114868990583289743
+  - [https:// truthsocial.com/@realDonaldTru mp/114866148855492915](https://truthsocial.com/@realDonaldTrump/114866148855492915)
+- [14:12 UTC - “Too Late:” Great numbers just out. LOWER THE RATE!!! DJT](114868979061610454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114868979061610454
+  - “Too Late:” Great numbers just out. LOWER THE RATE!!! DJT
+- [02:12 UTC - Tom Homan: “President Trump secured this border, the highest level EVER-/in seven weeks…he...](114866148855492915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114866148855492915
+  - Tom Homan: “President Trump secured this border, the highest level EVER-/in seven weeks…he took the most unsecure border we’ve ever seen…and secured it in seven weeks.”
+- [01:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114865317698739416](114865949272268114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865949272268114
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114865317698739416
+- [00:28 UTC - Truth Social post 114865740034919353](114865740034919353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114865740034919353
+  - _No text content captured._

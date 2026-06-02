@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-09-22
+
+- Posts: 9
+
+- [22:29 UTC - Earlier this month I spoke with the Highly Respected President of Uzbekistan, Shavkat Mirz...](115250311291343080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115250311291343080
+  - Earlier this month I spoke with the Highly Respected President of Uzbekistan, Shavkat Mirziyoyev. Today I want to congratulate President Mirziyoyev on signing a GREAT Deal with Boe...
+- [17:15 UTC - I just concluded a wonderful call with the Highly Respected President of Kazakhstan, Kassy...](115249076293700355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115249076293700355
+  - I just concluded a wonderful call with the Highly Respected President of Kazakhstan, Kassym-Jomart Kemeluly Tokayev. They have signed the largest Railroad Equipment Purchase in His...
+- [15:50 UTC - [https:// justthenews.com/politics-polic y/convention-states-effort-surges-support-trump](...](115248742370699788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115248742370699788
+  - [https:// justthenews.com/politics-polic y/convention-states-effort-surges-support-trump](https://justthenews.com/politics-policy/convention-states-effort-surges-support-trump)
+- [15:43 UTC - TOP SECRET: We caught the Venezuelan Militia in training. A very serious threat!](115248712390172467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115248712390172467
+  - TOP SECRET: We caught the Venezuelan Militia in training. A very serious threat!
+- [03:49 UTC - Truth Social post 115245905888029489](115245905888029489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115245905888029489
+  - _No text content captured._
+- [02:15 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115245534673160086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115245534673160086
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "We grieve for the friend and leader we h...
+- [02:14 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115245534214805940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115245534214805940
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "Perhaps it should be no surprise that Ch...
+- [02:14 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) Today, hundreds of thousands of Ame...](115245532791064885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115245532791064885
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) Today, hundreds of thousands of Americans unite to honor Charlie Kirk—his vision, his mission, his impact, and his deep love...
+- [02:12 UTC - [https:// youtu.be/YyMghy2Zpqk?feature=s hared](https://youtu.be/YyMghy2Zpqk?feature=share...](115245524632868198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115245524632868198
+  - [https:// youtu.be/YyMghy2Zpqk?feature=s hared](https://youtu.be/YyMghy2Zpqk?feature=shared)

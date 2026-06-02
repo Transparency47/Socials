@@ -1,0 +1,118 @@
+# TruthSocial / RealDonaldTrump / 2025-08-19
+
+- Posts: 38
+
+- [22:38 UTC - Could somebody please inform Jerome “Too Late” Powell that he is hurting the Housing Indus...](115057827631877948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057827631877948
+  - Could somebody please inform Jerome “Too Late” Powell that he is hurting the Housing Industry, very badly? People can’t get a Mortgage because of him. There is no Inflation, and ev...
+- [20:08 UTC - My good friend, Eric Schmitt, former Attorney General, and now Senator, from the GREAT Sta...](115057235181892448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057235181892448
+  - My good friend, Eric Schmitt, former Attorney General, and now Senator, from the GREAT State of Missouri, has a wonderful new Book just out, entitled, “THE LAST LINE OF DEFENSE: HO...
+- [20:07 UTC - CONGRATULATIONS TEXAS! The July Border Statistics are in and, once again, they are the LOW...](115057232009491029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057232009491029
+  - CONGRATULATIONS TEXAS! The July Border Statistics are in and, once again, they are the LOWEST RECORDED NUMBERS IN UNITED STATES HISTORY. The U.S. Border Patrol reported ZERO releas...
+- [20:06 UTC - Congressman Mark Alford is an America First Patriot, who is doing a fantastic job represen...](115057229339116421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057229339116421
+  - Congressman Mark Alford is an America First Patriot, who is doing a fantastic job representing Missouri’s 4th Congressional District! Mark worked for 35 years as a local News Ancho...
+- [20:06 UTC - Congressman Ron Estes is a Tremendous Champion for Kansas’ 4th Congressional District! A F...](115057228167480219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057228167480219
+  - Congressman Ron Estes is a Tremendous Champion for Kansas’ 4th Congressional District! A Fifth Generation Kansan, Ron served as State Treasurer for six years prior to becoming a ve...
+- [20:06 UTC - Congressman Jeff Crank is doing a truly fantastic job representing the Great People of Col...](115057227758129383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057227758129383
+  - Congressman Jeff Crank is doing a truly fantastic job representing the Great People of Colorado’s 5th Congressional District! Jeff is a Fierce Advocate for our America First Agenda...
+- [20:05 UTC - Congressman Frank Lucas is an incredible Representative for the wonderful people of Oklaho...](115057226416192109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057226416192109
+  - Congressman Frank Lucas is an incredible Representative for the wonderful people of Oklahoma’s 3rd Congressional District! A Fifth Generation Oklahoman, and lifelong Farmer and Ran...
+- [20:05 UTC - Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South ...](115057226006495872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057226006495872
+  - Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South Carolina’s 3rd Congressional District! A distinguished Nurse and Lieutenant Colonel in the...
+- [20:05 UTC - Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of No...](115057224848483899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057224848483899
+  - Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of North Dakota, a State I love, and WON BIG THREE TIMES, in 2016, 2020, and 2024! Julie has an...
+- [20:05 UTC - Congressman Dave Taylor is doing an incredible job representing the wonderful people of Oh...](115057224448370906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057224448370906
+  - Congressman Dave Taylor is doing an incredible job representing the wonderful people of Ohio’s 2nd Congressional District! A very successful Small Businessman, Dave knows the Ameri...
+- [20:05 UTC - Congresswoman Mary Miller is a fantastic Representative of Illinois’ 15th Congressional Di...](115057223325978530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057223325978530
+  - Congresswoman Mary Miller is a fantastic Representative of Illinois’ 15th Congressional District! A Third Generation Family Farmer, Mary is a strong and effective Voice for America...
+- [20:04 UTC - Pat Harrigan is a tremendous Representative for the Great People of North Carolina’s 10th ...](115057222950737259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057222950737259
+  - Pat Harrigan is a tremendous Representative for the Great People of North Carolina’s 10th Congressional District! A West Point Graduate and a Combat Decorated Green Beret, Pat know...
+- [20:04 UTC - Leigh Wambsganss is an incredible Candidate who will be a fantastic State Senator for Texa...](115057221778612718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057221778612718
+  - Leigh Wambsganss is an incredible Candidate who will be a fantastic State Senator for Texas Senate District 9! An America First Patriot, Leigh will work tirelessly to Champion Scho...
+- [20:04 UTC - Highly Respected State Representative David Cook is running to represent the wonderful peo...](115057221353307566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115057221353307566
+  - Highly Respected State Representative David Cook is running to represent the wonderful people of Texas Senate District 22. David has a strong Record of Success, and incredible supp...
+- [18:58 UTC - A Copper Mine in Arizona, “Resolution,” was just delayed by a Radical Left Court for two m...](115056962817663370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115056962817663370
+  - A Copper Mine in Arizona, “Resolution,” was just delayed by a Radical Left Court for two months — 3,800 Jobs are affected, and our Country, quite simply, needs Copper — AND NOW! Th...
+- [18:46 UTC - The Museums throughout Washington, but all over the Country are, essentially, the last rem...](115056914674717313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115056914674717313
+  - The Museums throughout Washington, but all over the Country are, essentially, the last remaining segment of “WOKE.” The Smithsonian is OUT OF CONTROL, where everything discussed is...
+- [18:44 UTC - Will be calling into The Mark Levin Show tonight at 6:05PM EST. Enjoy!](115056908379843753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115056908379843753
+  - Will be calling into The Mark Levin Show tonight at 6:05PM EST. Enjoy!
+- [18:35 UTC - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-recaps-breakthroughs-in-ukr...](115056872262405628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115056872262405628
+  - [https://www. whitehouse.gov/articles/2025/0 8/president-trump-recaps-breakthroughs-in-ukraine-peace-talks/](https://www.whitehouse.gov/articles/2025/08/president-trump-recaps-brea...
+- [15:20 UTC - Truth Social post 115056104238909398](115056104238909398/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115056104238909398
+  - _No text content captured._
+- [14:22 UTC - [https://www. breitbart.com/politics/2025/08 /18/poll-trump-approval-surges-to-54-after-me...](115055874809666081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055874809666081
+  - [https://www. breitbart.com/politics/2025/08 /18/poll-trump-approval-surges-to-54-after-meeting-with-putin/](https://www.breitbart.com/politics/2025/08/18/poll-trump-approval-surge...
+- [13:24 UTC - “US economy maintains its high S&P credit rating, analysts find Trump tariffs offset his t...](115055649201137901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055649201137901
+  - “US economy maintains its high S&P credit rating, analysts find Trump tariffs offset his tax cuts” [https:// justthenews.com/nation/economy /sp-affirms-credit-rating-approves-trump...
+- [11:28 UTC - STUPID AND UGLY WINDMILLS ARE KILLING NEW JERSEY. Energy prices up 28% this year, and not ...](115055190585472069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055190585472069
+  - STUPID AND UGLY WINDMILLS ARE KILLING NEW JERSEY. Energy prices up 28% this year, and not enough electricity to take care of state. STOP THE WINDMILLS!
+- [11:20 UTC - I will be interviewed on Fox & Friends at 8:00 A.M. Enjoy!](115055161214269452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055161214269452
+  - I will be interviewed on Fox & Friends at 8:00 A.M. Enjoy!
+- [11:05 UTC - [https:// truthsocial.com/@DanScavino/11 5049069236483434](https://truthsocial.com/@DanSca...](115055102880232026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055102880232026
+  - [https:// truthsocial.com/@DanScavino/11 5049069236483434](https://truthsocial.com/@DanScavino/115049069236483434)
+- [11:05 UTC - [https:// truthsocial.com/@DanScavino/11 5049073105242326](https://truthsocial.com/@DanSca...](115055101597612156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055101597612156
+  - [https:// truthsocial.com/@DanScavino/11 5049073105242326](https://truthsocial.com/@DanScavino/115049073105242326)
+- [11:04 UTC - [https:// truthsocial.com/@DanScavino/11 5049399711902394](https://truthsocial.com/@DanSca...](115055099713454001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055099713454001
+  - [https:// truthsocial.com/@DanScavino/11 5049399711902394](https://truthsocial.com/@DanScavino/115049399711902394)
+- [11:04 UTC - [https:// truthsocial.com/@DanScavino/11 5050236283495948](https://truthsocial.com/@DanSca...](115055097125397884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055097125397884
+  - [https:// truthsocial.com/@DanScavino/11 5050236283495948](https://truthsocial.com/@DanScavino/115050236283495948)
+- [11:02 UTC - [https:// truthsocial.com/@mrddmia/11504 9130901914359](https://truthsocial.com/@mrddmia/1...](115055091459424762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055091459424762
+  - [https:// truthsocial.com/@mrddmia/11504 9130901914359](https://truthsocial.com/@mrddmia/115049130901914359)
+- [11:02 UTC - [https:// truthsocial.com/@RedState/1150 51464817227646](https://truthsocial.com/@RedState...](115055089712252581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055089712252581
+  - [https:// truthsocial.com/@RedState/1150 51464817227646](https://truthsocial.com/@RedState/115051464817227646)
+- [11:01 UTC - [https:// truthsocial.com/@seanhannity/1 15050174022226340](https://truthsocial.com/@seanh...](115055085176391143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055085176391143
+  - [https:// truthsocial.com/@seanhannity/1 15050174022226340](https://truthsocial.com/@seanhannity/115050174022226340)
+- [11:00 UTC - [https:// truthsocial.com/@IHatetheDemoc ratParty/115052165378895049](https://truthsocial....](115055080426786043/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055080426786043
+  - [https:// truthsocial.com/@IHatetheDemoc ratParty/115052165378895049](https://truthsocial.com/@IHatetheDemocratParty/115052165378895049)
+- [10:59 UTC - [https:// truthsocial.com/@RichSementa/1 15051050642068512](https://truthsocial.com/@RichS...](115055079075082277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055079075082277
+  - [https:// truthsocial.com/@RichSementa/1 15051050642068512](https://truthsocial.com/@RichSementa/115051050642068512)
+- [10:59 UTC - [https:// truthsocial.com/@realLizUSA/11 5051030190429108](https://truthsocial.com/@realLi...](115055076617351857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055076617351857
+  - [https:// truthsocial.com/@realLizUSA/11 5051030190429108](https://truthsocial.com/@realLizUSA/115051030190429108)
+- [10:58 UTC - [https:// truthsocial.com/@DiamondandSil k/115051873703172553](https://truthsocial.com/@Di...](115055074468426203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055074468426203
+  - [https:// truthsocial.com/@DiamondandSil k/115051873703172553](https://truthsocial.com/@DiamondandSilk/115051873703172553)
+- [10:44 UTC - [https:// truthsocial.com/@WhiteHatGuy/1 15052952880965530](https://truthsocial.com/@White...](115055020912210245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115055020912210245
+  - [https:// truthsocial.com/@WhiteHatGuy/1 15052952880965530](https://truthsocial.com/@WhiteHatGuy/115052952880965530)
+- [01:45 UTC - [https://www. whitehouse.gov/articles/2025/0 8/american-leadership-is-back-under-president...](115052899966542855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115052899966542855
+  - [https://www. whitehouse.gov/articles/2025/0 8/american-leadership-is-back-under-president-trump/](https://www.whitehouse.gov/articles/2025/08/american-leadership-is-back-under-pre...
+- [01:29 UTC - Truth Social post 115052837446204372](115052837446204372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115052837446204372
+  - _No text content captured._
+- [01:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115052030103944534](115052796099056346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115052796099056346
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115052030103944534

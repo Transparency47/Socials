@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-09-09
+
+- Posts: 11
+
+- [22:41 UTC - Congratulations to Missouri’s incredible Republican State Legislators, who just overwhelmi...](115176746512388246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176746512388246
+  - Congratulations to Missouri’s incredible Republican State Legislators, who just overwhelmingly voted to pass their new, much fairer, and improved, Congressional Map. It was my Grea...
+- [21:31 UTC - I am pleased to announce that India, and the United States of America, are continuing nego...](115176472700835865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176472700835865
+  - I am pleased to announce that India, and the United States of America, are continuing negotiations to address the Trade Barriers between our two Nations. I look forward to speaking...
+- [20:25 UTC - I am pleased to report that Elizabeth Tsurkov, a Princeton Student, whose sister is an Ame...](115176212194047212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176212194047212
+  - I am pleased to report that Elizabeth Tsurkov, a Princeton Student, whose sister is an American Citizen, was just released by Kata’ib Hezbollah (MILITANT Hezbollah), and is now saf...
+- [20:20 UTC - This morning, the Trump Administration was notified by the United States Military that Isr...](115176193823019593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176193823019593
+  - This morning, the Trump Administration was notified by the United States Military that Israel was attacking Hamas which, very unfortunately, was located in a section of Doha, the C...
+- [20:03 UTC - Truth Social post 115176127744645625](115176127744645625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176127744645625
+  - _No text content captured._
+- [20:03 UTC - Truth Social post 115176125002692869](115176125002692869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176125002692869
+  - _No text content captured._
+- [20:02 UTC - Truth Social post 115176121566369433](115176121566369433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115176121566369433
+  - _No text content captured._
+- [17:53 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump denounces...](115175614236815526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115175614236815526
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump denounces senseless crime in Democrat-run cities & the horrific murder of a young woman in Charlott...
+- [17:53 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) G20 IS COMING TO MIAMI!](115175614068554916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115175614068554916
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) G20 IS COMING TO MIAMI!
+- [13:11 UTC - “If the Fed had followed what we published, they would have raised rates in early 2021. Th...](115174504752942494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115174504752942494
+  - “If the Fed had followed what we published, they would have raised rates in early 2021. The entire Organization is broken. It needs to be fixed. They need to use modern sources of...
+- [01:43 UTC - America has always been a nation that believes in the power of prayer... Together we will ...](115171801902619547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115171801902619547
+  - America has always been a nation that believes in the power of prayer... Together we will make our Country greater, stronger, more united, and more faithful than ever before!

@@ -1,0 +1,79 @@
+# TruthSocial / RealDonaldTrump / 2025-09-20
+
+- Posts: 25
+
+- [23:51 UTC - Pam Bondi is doing a GREAT job as Attorney General of the United States. She is very caref...](115239306164275142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115239306164275142
+  - Pam Bondi is doing a GREAT job as Attorney General of the United States. She is very careful, very smart, loves our Country, but needs a tough prosecutor in the Eastern District of...
+- [22:44 UTC - Pam: I have reviewed over 30 statements and posts saying that, essentially, “same old stor...](115239044548033727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115239044548033727
+  - Pam: I have reviewed over 30 statements and posts saying that, essentially, “same old story as last time, all talk, no action. Nothing is being done. What about Comey, Adam “Shifty...
+- [22:44 UTC - JUSTICE MUST BE SERVED, NOW!!!](115239044263612470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115239044263612470
+  - JUSTICE MUST BE SERVED, NOW!!!
+- [22:36 UTC - Just toured Washington, D.C., and it is a totally different place than it was last year. N...](115239012437859070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115239012437859070
+  - Just toured Washington, D.C., and it is a totally different place than it was last year. No tents, manicured grass and parks, clean streets, no gangs or vicious criminals — THE PLA...
+- [21:28 UTC - If Afghanistan doesn’t give Bagram Airbase back to those that built it, the United States ...](115238745589536576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238745589536576
+  - If Afghanistan doesn’t give Bagram Airbase back to those that built it, the United States of America, BAD THINGS ARE GOING TO HAPPEN!!! President DJT
+- [21:14 UTC - [https:// truthsocial.com/users/rodneyGo ttii/statuses/115216032292825794](https://truthso...](115238691640411841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238691640411841
+  - [https:// truthsocial.com/users/rodneyGo ttii/statuses/115216032292825794](https://truthsocial.com/users/rodneyGottii/statuses/115216032292825794)
+- [21:14 UTC - [https:// truthsocial.com/users/dshepbuy andsell/statuses/115217291062608667](https://trut...](115238690602224300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238690602224300
+  - [https:// truthsocial.com/users/dshepbuy andsell/statuses/115217291062608667](https://truthsocial.com/users/dshepbuyandsell/statuses/115217291062608667)
+- [21:11 UTC - [https:// truthsocial.com/users/EternalP erspective7/statuses/115215742377323630](https://...](115238677480908244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238677480908244
+  - [https:// truthsocial.com/users/EternalP erspective7/statuses/115215742377323630](https://truthsocial.com/users/EternalPerspective7/statuses/115215742377323630)
+- [21:09 UTC - [https:// truthsocial.com/users/Lucy03/s tatuses/115215755155505393](https://truthsocial.c...](115238670228621251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238670228621251
+  - [https:// truthsocial.com/users/Lucy03/s tatuses/115215755155505393](https://truthsocial.com/users/Lucy03/statuses/115215755155505393)
+- [21:08 UTC - [https:// truthsocial.com/users/archieka ner/statuses/115215757774811035](https://truthsoc...](115238668268936281/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238668268936281
+  - [https:// truthsocial.com/users/archieka ner/statuses/115215757774811035](https://truthsocial.com/users/archiekaner/statuses/115215757774811035)
+- [21:08 UTC - [https:// truthsocial.com/users/WaltC3/s tatuses/115215769940641640](https://truthsocial.c...](115238666027134171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238666027134171
+  - [https:// truthsocial.com/users/WaltC3/s tatuses/115215769940641640](https://truthsocial.com/users/WaltC3/statuses/115215769940641640)
+- [21:02 UTC - [https:// truthsocial.com/users/TexasNan n5/statuses/115215859505628408](https://truthsoci...](115238645103601701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238645103601701
+  - [https:// truthsocial.com/users/TexasNan n5/statuses/115215859505628408](https://truthsocial.com/users/TexasNann5/statuses/115215859505628408)
+- [21:02 UTC - [https:// truthsocial.com/@PressSec/1152 15724707131236](https://truthsocial.com/@PressSec...](115238643698843681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238643698843681
+  - [https:// truthsocial.com/@PressSec/1152 15724707131236](https://truthsocial.com/@PressSec/115215724707131236)
+- [21:01 UTC - Nicole Parker, former FBI, was great today on FoxNews. Thank you Nicole!!! President DJT](115238637490866159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115238637490866159
+  - Nicole Parker, former FBI, was great today on FoxNews. Thank you Nicole!!! President DJT
+- [16:56 UTC - We want Venezuela to immediately accept all of the prisoners, and people from mental insti...](115237675581682288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115237675581682288
+  - We want Venezuela to immediately accept all of the prisoners, and people from mental institutions, which includes the Worst in the World Insane Asylums, that Venezuelan “Leadership...
+- [13:55 UTC - Truth Social post 115236963558656289](115236963558656289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115236963558656289
+  - _No text content captured._
+- [04:14 UTC - Today I withdrew the Nomination of Erik Siebert as U.S. Attorney for the Eastern District ...](115234681538876098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115234681538876098
+  - Today I withdrew the Nomination of Erik Siebert as U.S. Attorney for the Eastern District of Virginia, when I was informed that he received the UNUSUALLY STRONG support of the two...
+- [03:26 UTC - Truth Social post 115234490101726895](115234490101726895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115234490101726895
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115234487807529598](115234487807529598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115234487807529598
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115234485740385772](115234485740385772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115234485740385772
+  - _No text content captured._
+- [03:20 UTC - Truth Social post 115234469269682037](115234469269682037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115234469269682037
+  - _No text content captured._
+- [00:45 UTC - MAKE AMERICA GREAT AGAIN!!!](115233858097105046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115233858097105046
+  - MAKE AMERICA GREAT AGAIN!!!
+- [00:41 UTC - Whatever happened to the very highly overrated David Letterman, whose ratings were never v...](115233841743981161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115233841743981161
+  - Whatever happened to the very highly overrated David Letterman, whose ratings were never very good, either. He looks like hell, but at least he knew when to quit. LOSER!!!
+- [00:36 UTC - The Republican Party wants, very badly, a Convention for the 2026 Midterm Election. We wil...](115233821158063044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115233821158063044
+  - The Republican Party wants, very badly, a Convention for the 2026 Midterm Election. We will have one at the highest level. It will be both fun, and very productive. MAKE AMERICA GR...
+- [00:23 UTC - Truth Social post 115233769686950290](115233769686950290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115233769686950290
+  - _No text content captured._
