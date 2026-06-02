@@ -16,6 +16,7 @@ from __future__ import annotations
 import argparse
 import atexit
 import base64
+import concurrent.futures
 import contextlib
 import datetime as dt
 import fcntl
@@ -53,6 +54,7 @@ LISTING_GENERATOR_PATH = SCRAPER_DIR / "generate_listing.py"
 REQUEST_TIMEOUT = 30
 REQUEST_DELAY_SECONDS = 0.35
 MEDIA_DOWNLOAD_MAX_SECONDS = 60
+DEFAULT_MEDIA_WORKERS = 5
 DEFAULT_MAX_ITEMS = 20
 DEFAULT_BACKFILL_MAX_ITEMS = 10000
 DEFAULT_MAX_MEDIA_MB = 250
@@ -835,7 +837,7 @@ def upload_media_to_r2(record: ArchiveRecord, folder: Path, args: argparse.Names
                 raise ScrapeError(f"Could not upload {local_path.relative_to(ROOT_DIR)} to R2: {media.upload_error}") from exc
 
 
-def archive_record(session: requests.Session, record: ArchiveRecord, state: dict[str, Any], args: argparse.Namespace) -> bool:
+def archive_record_files(session: requests.Session, record: ArchiveRecord, args: argparse.Namespace) -> bool:
     folder = output_dir_for(record)
     restore_existing_media_paths(record, folder)
     if record.platform != "youtube":
@@ -851,8 +853,12 @@ def archive_record(session: requests.Session, record: ArchiveRecord, state: dict
         wrote |= write_if_changed(folder / "TRANSCRIPT.md", transcript_markdown(record))
     else:
         wrote |= write_if_changed(folder / "POST.md", post_markdown(record))
+    return wrote
 
-    state["seen_posts"][state_key(record)] = {
+
+def seen_post_entry(record: ArchiveRecord) -> dict[str, Any]:
+    folder = output_dir_for(record)
+    return {
         "platform": record.platform,
         "account": record.account,
         "post_id": record.post_id,
@@ -862,6 +868,13 @@ def archive_record(session: requests.Session, record: ArchiveRecord, state: dict
         "path": str(folder.relative_to(ROOT_DIR)),
         "last_accessed": record.accessed.isoformat(),
         "content_kind": record.content_kind,
+    }
+
+
+def archive_record(session: requests.Session, record: ArchiveRecord, state: dict[str, Any], args: argparse.Namespace) -> bool:
+    wrote = archive_record_files(session, record, args)
+    state["seen_posts"][state_key(record)] = {
+        **seen_post_entry(record),
     }
     return wrote
 
@@ -1039,6 +1052,107 @@ def iter_truth_social_records(
 
 def scrape_truth_social(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
     return list(iter_truth_social_records(session, account, args))
+
+
+def archive_record_worker(record: ArchiveRecord, args: argparse.Namespace) -> tuple[ArchiveRecord, bool]:
+    session = requests.Session()
+    return record, archive_record_files(session, record, args)
+
+
+def run_truth_social_backfill(
+    session: requests.Session,
+    account: str,
+    args: argparse.Namespace,
+    state: dict[str, Any],
+) -> tuple[int, int]:
+    archived = 0
+    seen = 0
+    workers = max(1, int(getattr(args, "media_workers", DEFAULT_MEDIA_WORKERS)))
+    truth_cursors = state.setdefault("truthsocial_backfill_cursors", {})
+    cursor_key = f"{account}:{args.since_dt.date().isoformat()}"
+    args.truth_social_start_max_id = truth_cursors.get(cursor_key)
+
+    page_order: list[str] = []
+    page_totals: dict[str, int] = {}
+    page_processed: dict[str, int] = {}
+    page_closed: set[str] = set()
+    next_cursor_index = 0
+
+    def note_page(record: ArchiveRecord) -> str:
+        page_id = getattr(record, "_truth_social_page_last_id", record.post_id)
+        if page_id not in page_totals:
+            page_order.append(page_id)
+            page_totals[page_id] = 0
+            page_processed[page_id] = 0
+        page_totals[page_id] += 1
+        if record.post_id == page_id:
+            page_closed.add(page_id)
+        return page_id
+
+    def mark_processed(page_id: str) -> None:
+        page_processed[page_id] = page_processed.get(page_id, 0) + 1
+
+    def advance_cursor() -> None:
+        nonlocal next_cursor_index
+        while next_cursor_index < len(page_order):
+            page_id = page_order[next_cursor_index]
+            if page_id not in page_closed:
+                break
+            if page_processed.get(page_id, 0) < page_totals.get(page_id, 0):
+                break
+            truth_cursors[cursor_key] = page_id
+            next_cursor_index += 1
+
+    def handle_completed(record: ArchiveRecord, changed: bool) -> None:
+        nonlocal archived, seen
+        key = state_key(record)
+        state["seen_posts"][key] = seen_post_entry(record)
+        if changed:
+            archived += 1
+            print(f"Archived: {record.url}", flush=True)
+            day_dir = output_dir_for(record).parent
+            if write_if_changed(day_dir / "README.md", day_readme_markdown(day_dir)):
+                print(f"Wrote {day_dir.relative_to(ROOT_DIR)}/README.md", flush=True)
+        else:
+            seen += 1
+        mark_processed(getattr(record, "_truth_social_page_last_id", record.post_id))
+        advance_cursor()
+        save_state(state)
+        refresh_listing()
+
+    with concurrent.futures.ThreadPoolExecutor(max_workers=workers) as executor:
+        pending: set[concurrent.futures.Future[tuple[ArchiveRecord, bool]]] = set()
+
+        def drain(done: set[concurrent.futures.Future[tuple[ArchiveRecord, bool]]]) -> None:
+            for future in done:
+                record, changed = future.result()
+                handle_completed(record, changed)
+
+        for record in iter_truth_social_records(session, account, args):
+            if not in_date_window(record.published, args):
+                continue
+            page_id = note_page(record)
+            key = state_key(record)
+            already_seen = key in state["seen_posts"]
+            if already_seen and not args.force:
+                seen += 1
+                mark_processed(page_id)
+                advance_cursor()
+                continue
+
+            pending.add(executor.submit(archive_record_worker, record, args))
+            if len(pending) >= workers:
+                done, pending = concurrent.futures.wait(pending, return_when=concurrent.futures.FIRST_COMPLETED)
+                drain(done)
+            time.sleep(REQUEST_DELAY_SECONDS)
+
+        while pending:
+            done, pending = concurrent.futures.wait(pending, return_when=concurrent.futures.FIRST_COMPLETED)
+            drain(done)
+
+    save_state(state)
+    refresh_listing()
+    return archived, seen
 
 
 def x_bearer_token() -> str | None:
@@ -2328,33 +2442,10 @@ def run(args: argparse.Namespace) -> int:
             continue
 
         if platform == "truthsocial" and args.backfill and getattr(args, "since_dt", None):
-            truth_cursors = state.setdefault("truthsocial_backfill_cursors", {})
-            cursor_key = f"{account}:{args.since_dt.date().isoformat()}"
-            args.truth_social_start_max_id = truth_cursors.get(cursor_key)
             try:
-                for record in iter_truth_social_records(session, account, args):
-                    if not in_date_window(record.published, args):
-                        continue
-                    key = state_key(record)
-                    already_seen = key in state["seen_posts"]
-                    if already_seen and not args.force:
-                        seen += 1
-                        continue
-                    changed = archive_record(session, record, state, args)
-                    if changed:
-                        archived += 1
-                        print(f"Archived: {record.url}", flush=True)
-                        day_dir = output_dir_for(record).parent
-                        if write_if_changed(day_dir / "README.md", day_readme_markdown(day_dir)):
-                            print(f"Wrote {day_dir.relative_to(ROOT_DIR)}/README.md", flush=True)
-                    else:
-                        seen += 1
-                    page_last_id = getattr(record, "_truth_social_page_last_id", None)
-                    if page_last_id and record.post_id == page_last_id:
-                        truth_cursors[cursor_key] = page_last_id
-                    save_state(state)
-                    refresh_listing()
-                    time.sleep(REQUEST_DELAY_SECONDS)
+                account_archived, account_seen = run_truth_social_backfill(session, account, args, state)
+                archived += account_archived
+                seen += account_seen
             except RateLimitError as exc:
                 message = f"{canonical_platform_dir(platform)}/{account}: {exc}"
                 state["last_errors"].append(message)
@@ -2452,6 +2543,12 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
     parser.add_argument("--include-replies", action="store_true", help="Include replies where the platform API supports it.")
     parser.add_argument("--skip-media", action="store_true", help="Write metadata/posts without downloading attachments.")
     parser.add_argument("--max-media-mb", type=int, default=DEFAULT_MAX_MEDIA_MB, help="Maximum size per media file.")
+    parser.add_argument(
+        "--media-workers",
+        type=int,
+        default=DEFAULT_MEDIA_WORKERS,
+        help="Concurrent media download/upload workers for streaming backfills.",
+    )
     parser.add_argument("--skip-r2-upload", action="store_true", help="Download media locally without uploading it to Cloudflare R2.")
     parser.add_argument("--require-r2-upload", action="store_true", help="Fail the run if media cannot be uploaded to Cloudflare R2.")
     parser.add_argument(

@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-09-26
 
-- Posts: 6
+- Posts: 16
 
 - [22:40 UTC - I’d like to thank Kash Patel, and the outstanding members of the FBI, for their brilliant ...](115273002921064922/)
   - Source: https://truthsocial.com/@realDonaldTrump/115273002921064922
@@ -20,3 +20,33 @@
 - [16:39 UTC - Truth Social post 115271583512073685](115271583512073685/)
   - Source: https://truthsocial.com/@realDonaldTrump/115271583512073685
   - _No text content captured._
+- [16:39 UTC - Truth Social post 115271582656082947](115271582656082947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115271582656082947
+  - _No text content captured._
+- [16:37 UTC - Truth Social post 115271576272405246](115271576272405246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115271576272405246
+  - _No text content captured._
+- [15:11 UTC - Truth Social post 115271235385916611](115271235385916611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115271235385916611
+  - _No text content captured._
+- [14:59 UTC - Flying over Ryder Cup, now! DJT](115271189838263038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115271189838263038
+  - Flying over Ryder Cup, now! DJT
+- [14:45 UTC - Pregnant Women, DON’T USE TYLENOL UNLESS ABSOLUTELY NECESSARY, DON’T GIVE TYLENOL TO YOUR ...](115271135823530018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115271135823530018
+  - Pregnant Women, DON’T USE TYLENOL UNLESS ABSOLUTELY NECESSARY, DON’T GIVE TYLENOL TO YOUR YOUNG CHILD FOR VIRTUALLY ANY REASON, BREAK UP THE MMR SHOT INTO THREE TOTALLY SEPARATE SH...
+- [11:17 UTC - Truth Social post 115270315499953389](115270315499953389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115270315499953389
+  - _No text content captured._
+- [11:11 UTC - Truth Social post 115270294313273556](115270294313273556/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115270294313273556
+  - _No text content captured._
+- [11:00 UTC - JAMES COMEY IS A DIRTY COP. MAKE AMERICA GREAT AGAIN!](115270250599016202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115270250599016202
+  - JAMES COMEY IS A DIRTY COP. MAKE AMERICA GREAT AGAIN!
+- [10:57 UTC - Whether you like Corrupt James Comey or not, and I can’t imagine too many people liking hi...](115270236987768479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115270236987768479
+  - Whether you like Corrupt James Comey or not, and I can’t imagine too many people liking him, HE LIED! It is not a complex lie, it’s a very simple, but IMPORTANT one. There is no wa...
+- [03:15 UTC - Wow: A Radical Left Democrat Scam! [https:// justthenews.com/accountability /fbi-bombshell...](115268421148098339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115268421148098339
+  - Wow: A Radical Left Democrat Scam! [https:// justthenews.com/accountability /fbi-bombshell-274-agents-sent-capitol-j6-many-later-complained-they-were-political](https://justthenews...

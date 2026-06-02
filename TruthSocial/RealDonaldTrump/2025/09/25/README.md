@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-09-25
+
+- Posts: 11
+
+- [23:38 UTC - Great Numbers came out today on the Economy (3.8%!), and the SUCCESS we are having, but ou...](115267566687091858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267566687091858
+  - Great Numbers came out today on the Economy (3.8%!), and the SUCCESS we are having, but our Interest Rates are too high! If it weren’t for Jerome “Too Late” Powell, we would be at...
+- [23:30 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/09/gold-star-mothers-and-familys-d...](115267537522563116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267537522563116
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/09/gold-star-mothers-and-familys-day-2025/](https://www.whitehouse.gov/presidential-actions/2025/09/gold-star-mothers-and-fa...
+- [23:24 UTC - JUSTICE IN AMERICA! One of the worst human beings this Country has ever been exposed to is...](115267513846352215/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267513846352215
+  - JUSTICE IN AMERICA! One of the worst human beings this Country has ever been exposed to is James Comey, the former Corrupt Head of the FBI. Today he was indicted by a Grand Jury on...
+- [23:24 UTC - Starting October 1st, 2025, we will be imposing a 100% Tariff on any branded or patented P...](115267512131958759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267512131958759
+  - Starting October 1st, 2025, we will be imposing a 100% Tariff on any branded or patented Pharmaceutical Product, unless a Company IS BUILDING their Pharmaceutical Manufacturing Pla...
+- [23:10 UTC - We will be imposing a 50% Tariff on all Kitchen Cabinets, Bathroom Vanities, and associate...](115267459188661048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267459188661048
+  - We will be imposing a 50% Tariff on all Kitchen Cabinets, Bathroom Vanities, and associated products, starting October 1st, 2025. Additionally, we will be charging a 30% Tariff on...
+- [22:51 UTC - In order to protect our Great Heavy Truck Manufacturers from unfair outside competition, I...](115267382531822964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267382531822964
+  - In order to protect our Great Heavy Truck Manufacturers from unfair outside competition, I will be imposing, as of October 1st, 2025, a 25% Tariff on all “Heavy (Big!) Trucks” made...
+- [22:14 UTC - Truth Social post 115267239455900732](115267239455900732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267239455900732
+  - _No text content captured._
+- [22:09 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/09/saving-tiktok-while-protecting-...](115267219849543695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267219849543695
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/09/saving-tiktok-while-protecting-national-security/](https://www.whitehouse.gov/presidential-actions/2025/09/saving-tiktok-...
+- [22:00 UTC - Truth Social post 115267182780354740](115267182780354740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267182780354740
+  - _No text content captured._
+- [21:59 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes ...](115267178635217801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267178635217801
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes Turkish President Recep Tayyip Erdoğan to the White House. 🇺🇸🇹🇷
+- [21:59 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes ...](115267178422597085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115267178422597085
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump welcomes the elite Marine Corps Silent Drill Platoon to the Oval Office, personally presenting each...
