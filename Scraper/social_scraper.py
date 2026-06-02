@@ -55,7 +55,7 @@ REQUEST_TIMEOUT = 30
 REQUEST_DELAY_SECONDS = 0.35
 MEDIA_DOWNLOAD_MAX_SECONDS = 60
 DEFAULT_MEDIA_WORKERS = 5
-DEFAULT_MAX_ITEMS = 20
+DEFAULT_INCREMENTAL_MAX_ITEMS = 100
 DEFAULT_BACKFILL_MAX_ITEMS = 10000
 DEFAULT_MAX_MEDIA_MB = 250
 INCREMENTAL_SEEN_LIMIT = 25
@@ -2602,7 +2602,10 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
         "--max-items",
         type=int,
         default=None,
-        help=f"Maximum posts/videos per account. Defaults to {DEFAULT_MAX_ITEMS} for incremental runs and {DEFAULT_BACKFILL_MAX_ITEMS} for backfills.",
+        help=(
+            f"Maximum posts/videos per account. Defaults to {DEFAULT_INCREMENTAL_MAX_ITEMS} "
+            f"for incremental runs and {DEFAULT_BACKFILL_MAX_ITEMS} for backfills."
+        ),
     )
     parser.add_argument("--max-pages", type=int, default=None, help="Maximum paginated pages where supported.")
     parser.add_argument("--since", help="Only archive posts published at or after this date/time, e.g. 2025-01-20.")
@@ -2645,7 +2648,7 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
     if not args.incremental:
         args.backfill = True
     if args.max_items is None:
-        args.max_items = DEFAULT_MAX_ITEMS if args.incremental else DEFAULT_BACKFILL_MAX_ITEMS
+        args.max_items = DEFAULT_INCREMENTAL_MAX_ITEMS if args.incremental else DEFAULT_BACKFILL_MAX_ITEMS
     if args.max_items < 1:
         parser.error("--max-items must be at least 1")
     args.since_dt = parse_date_boundary(args.since)
