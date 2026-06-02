@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-03-24
 
-- Posts: 12
+- Posts: 19
 
 - [23:19 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116286710096907230/)
   - Source: https://truthsocial.com/@realDonaldTrump/116286710096907230
@@ -38,3 +38,24 @@
 - [19:39 UTC - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great ...](116285846284609248/)
   - Source: https://truthsocial.com/@realDonaldTrump/116285846284609248
   - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great People of Indiana’s 45th State Senate District! As the Majority Floor Leader of the Indian...
+- [19:39 UTC - State Senator Randy Maxwell is a Tremendous Champion for the incredible people of Indiana’...](116285845418508842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285845418508842
+  - State Senator Randy Maxwell is a Tremendous Champion for the incredible people of Indiana’s 43rd State Senate District! As a very successful Businessman, Randy knows the America Fi...
+- [19:39 UTC - State Senator Jeff Raatz is an America First Patriot doing a fantastic job representing In...](116285844543723984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285844543723984
+  - State Senator Jeff Raatz is an America First Patriot doing a fantastic job representing Indiana’s 27th State Senate District! A Brave U.S. Army Veteran, Jeff knows the Wisdom and C...
+- [19:39 UTC - State Senator Scott Alexander is doing a terrific job representing the wonderful people of...](116285842940120300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285842940120300
+  - State Senator Scott Alexander is doing a terrific job representing the wonderful people of Indiana’s 26th State Senate District! A Successful Entrepreneur and Civic Leader, before...
+- [19:37 UTC - State Senator Mike Gaskill is a MAGA Warrior who is doing a tremendous job representing In...](116285837978693829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285837978693829
+  - State Senator Mike Gaskill is a MAGA Warrior who is doing a tremendous job representing Indiana’s 25th State Senate District! A Highly Successful Businessman, Mike knows the AMERIC...
+- [19:37 UTC - State Senator Ron Alting is a Strong Champion and Highly Effective Representative for the ...](116285835312448196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285835312448196
+  - State Senator Ron Alting is a Strong Champion and Highly Effective Representative for the Great People of  Indiana’s 22nd State Senate District! A respected Businessman, Lafayette...
+- [19:36 UTC - State Senator Liz Brown is a MAGA Warrior who is doing an incredible job representing Indi...](116285833366800856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285833366800856
+  - State Senator Liz Brown is a MAGA Warrior who is doing an incredible job representing Indiana’s 15th State Senate District! A successful Attorney, and Fort Wayne City Council Membe...
+- [19:36 UTC - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job repre...](116285831257066510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285831257066510
+  - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job representing Indiana’s 14th State Senate District! A Proven Leader, Tyler serves his Community...
