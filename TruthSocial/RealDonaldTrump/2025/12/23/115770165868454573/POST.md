@@ -1,0 +1,11 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115770165868454573 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115770165868454573 -->
+<!-- date_published: 2025-12-23T17:55:40.715000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:25:53.109294+00:00 -->
+
+# THE TRUMP RULE: The Financial News today was great — GDP up 4.2% as opposed to the predict...
+
+THE TRUMP RULE:
+The Financial News today was great — GDP up 4.2% as opposed to the predicted 2.5% (and this, despite the downward pressure of the recent Democrat Shutdown!) — But in the Modern Market, when you have good news, the Market stays even, or goes down, because Wall Street’s “heads” are wired differently than they used to be. In the old days, when there was good news, the Market went up. Nowadays, when there is good news, the Market goes down, because everybody thinks that Interest Rates will be immediately lifted to take care of “potential” Inflation. That means that, essentially, we can never have a Great Market again, those Markets from the time when our Nation was building up, and becoming great. Strong Markets, even phenomenal Markets, don’t cause Inflation, stupidity does! I want my new Fed Chairman to lower Interest Rates if the Market is doing well, not destroy the Market for no reason whatsoever. I want to have a Market the likes of which we haven’t had in many decades, a Market that goes up on good news, and down on bad news, the way it should be, and the way it was. Inflation will take care of itself and, if it doesn’t, we can always raise Rates at the appropriate time — But the appropriate time is not to kill Rallies, which could lift our Nation by 10, 15, and even 20 GDP points in a year — and maybe even more than that! A Nation can never be Economically GREAT if “eggheads” are allowed to do everything within their power to destroy the upward slope. We are going to be encouraging the Good Market to get better, rather than make it impossible for it to do so. We are going to see numbers that are far more natural, and far better, than they have ever been before. We are going to, MAKE AMERICA GREAT AGAIN! The United States should be rewarded for SUCCESS, not brought down by it. Anybody that disagrees with me will never be the Fed Chairman!

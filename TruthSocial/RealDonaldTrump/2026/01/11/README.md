@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-01-11
+
+- Posts: 17
+
+- [16:04 UTC - The Entrance to Mar-a-Lago!](115877313568182404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877313568182404
+  - The Entrance to Mar-a-Lago!
+- [15:55 UTC - How Three Judges Dismantled a Federal Indictment: Judicial Overreach in United States v. C...](115877277396911389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877277396911389
+  - How Three Judges Dismantled a Federal Indictment: Judicial Overreach in United States v. Comey: [https://www. thegatewaypundit.com/2025/12/h ow-three-judges-dismantled-federal-indi...
+- [15:30 UTC - The Case for Pardoning Former President of Honduras Juan Orlando Hernandez: [https://www. ...](115877176968623599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877176968623599
+  - The Case for Pardoning Former President of Honduras Juan Orlando Hernandez: [https://www. stonecoldtruth.com/p/the-case- for-pardoning-former-president/](https://www.stonecoldtruth...
+- [15:28 UTC - Stop the Netflix Cultural Takeover: [https://www. oann.com/commentary/stop-the-n etflix-cu...](115877170851219343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877170851219343
+  - Stop the Netflix Cultural Takeover: [https://www. oann.com/commentary/stop-the-n etflix-cultural-takeover/](https://www.oann.com/commentary/stop-the-netflix-cultural-takeover/)
+- [15:27 UTC - Now we are breaking $1.99 a gallon. AFFORDABILITY!](115877168331849670/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877168331849670
+  - Now we are breaking $1.99 a gallon. AFFORDABILITY!
+- [15:25 UTC - This is according to Michael F. Cannon, Director of Healthcare Policy at the CATO Institut...](115877159371615050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877159371615050
+  - This is according to Michael F. Cannon, Director of Healthcare Policy at the CATO Institute: “Don’t extend the ObamaCare subsidies — Would be like making ObamaCare permanent. You h...
+- [15:24 UTC - 100% CORRECT! [https://www. ft.com/content/039868b5-d2d2-4 3d0-a2e1-aa654529d9f0](https://...](115877154046314028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877154046314028
+  - 100% CORRECT! [https://www. ft.com/content/039868b5-d2d2-4 3d0-a2e1-aa654529d9f0](https://www.ft.com/content/039868b5-d2d2-43d0-a2e1-aa654529d9f0)
+- [15:21 UTC - Truth Social post 115877144569944090](115877144569944090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877144569944090
+  - _No text content captured._
+- [15:21 UTC - Truth Social post 115877142510655586](115877142510655586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115877142510655586
+  - _No text content captured._
+- [12:27 UTC - Cuba lived, for many years, on large amounts of OIL and MONEY from Venezuela. In return, C...](115876460615555838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876460615555838
+  - Cuba lived, for many years, on large amounts of OIL and MONEY from Venezuela. In return, Cuba provided “Security Services” for the last two Venezuelan dictators, BUT NOT ANYMORE! M...
+- [11:44 UTC - Truth Social post 115876290884752915](115876290884752915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876290884752915
+  - _No text content captured._
+- [11:42 UTC - Sounds good to me!](115876282507423685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876282507423685
+  - Sounds good to me!
+- [11:41 UTC - Truth Social post 115876279845318822](115876279845318822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876279845318822
+  - _No text content captured._
+- [11:41 UTC - Truth Social post 115876278302069455](115876278302069455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876278302069455
+  - _No text content captured._
+- [11:41 UTC - Truth Social post 115876277389957995](115876277389957995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876277389957995
+  - _No text content captured._
+- [11:40 UTC - Truth Social post 115876276236138214](115876276236138214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876276236138214
+  - _No text content captured._
+- [11:40 UTC - Truth Social post 115876275372067195](115876275372067195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115876275372067195
+  - _No text content captured._

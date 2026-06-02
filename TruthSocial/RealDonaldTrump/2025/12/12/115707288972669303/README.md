@@ -1,0 +1,180 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115707288972669303
+- Post URL: https://truthsocial.com/@realDonaldTrump/115707288972669303
+- Title: Truth Social post 115707288972669303
+- Date published: 2025-12-12T15:25:15.428000+00:00
+- Date accessed: 2026-06-02T15:30:48.343566+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 9949
+- reblogs: 2324
+- replies: 241
+
+## Media Attachments
+
+### Attachment 1: image
+- Source URL: https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/707/288/807/091/921/original/b8d9060c5418076a.jpg
+- Local file: media/01_image_115707288807091921.jpg
+- Remote URL: https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b8d9060c5418076a.jpg
+- Remote path: archive/truthsocial/realdonaldtrump/b8d9060c5418076a.jpg
+- Preview URL: https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/707/288/807/091/921/small/b8d9060c5418076a.jpg
+- Content type: image/jpeg
+- Dimensions: 966 x 1062
+
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744665,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p></p>",
+    "created_at": "2025-12-12T15:25:15.428Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 9949,
+    "group": null,
+    "id": "115707288972669303",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [
+      {
+        "blurhash": "UoF$U~WCs:of01ogWAWB%LWCoffQxvWDoKof",
+        "description": null,
+        "external_video_id": null,
+        "id": "115707288807091921",
+        "meta": {
+          "original": {
+            "aspect": 0.9096045197740112,
+            "height": 1062,
+            "size": "966x1062",
+            "width": 966
+          },
+          "small": {
+            "aspect": 0.9094159713945172,
+            "height": 839,
+            "size": "763x839",
+            "width": 763
+          }
+        },
+        "preview_remote_url": null,
+        "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/707/288/807/091/921/small/b8d9060c5418076a.jpg",
+        "processing": "complete",
+        "remote_url": null,
+        "text_url": null,
+        "type": "image",
+        "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/707/288/807/091/921/original/b8d9060c5418076a.jpg"
+      }
+    ],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": null,
+    "reblogged": false,
+    "reblogs_count": 2324,
+    "replies_count": 241,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 9949,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115707288972669303",
+    "url": "https://truthsocial.com/@realDonaldTrump/115707288972669303",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

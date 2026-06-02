@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-11-15
+
+- Posts: 14
+
+- [23:57 UTC - NBC’s Seth Meyers is suffering from an incurable case of Trump Derangement Syndrome (TDS)....](115556419150424739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115556419150424739
+  - NBC’s Seth Meyers is suffering from an incurable case of Trump Derangement Syndrome (TDS). He was viewed last night in an uncontrollable rage, likely due to the fact that his “show...
+- [14:17 UTC - Marjorie “Traitor” Green is a disgrace to our GREAT REPUBLICAN PARTY!](115554138689247811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115554138689247811
+  - Marjorie “Traitor” Green is a disgrace to our GREAT REPUBLICAN PARTY!
+- [13:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am withdrawing my suppo...](115554021678474447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115554021678474447
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am withdrawing my support and Endorsement of “Congresswoman” Marjorie Taylor Greene, of the Great State of Georgi...
+- [13:40 UTC - Lightweight Congresswoman Marjorie Taylor Brown (Green grass turns Brown when it begins to...](115553994466678093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115553994466678093
+  - Lightweight Congresswoman Marjorie Taylor Brown (Green grass turns Brown when it begins to ROT!), betrayed the entire Republican Party when she turned Left, performed poorly on the...
+- [05:10 UTC - [https:// americanrefugees.substack.com/ p/will-john-brennan-finally-get-his](https://amer...](115551988312310912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551988312310912
+  - [https:// americanrefugees.substack.com/ p/will-john-brennan-finally-get-his](https://americanrefugees.substack.com/p/will-john-brennan-finally-get-his)
+- [03:30 UTC - UNAFFORDABLE CARE ACT!](115551595974876455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551595974876455
+  - UNAFFORDABLE CARE ACT!
+- [03:26 UTC - Truth Social post 115551581539595415](115551581539595415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551581539595415
+  - _No text content captured._
+- [03:26 UTC - Truth Social post 115551578800980341](115551578800980341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551578800980341
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115551578059567149](115551578059567149/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551578059567149
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115551577011516505](115551577011516505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551577011516505
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115551576202419406](115551576202419406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551576202419406
+  - _No text content captured._
+- [03:25 UTC - Truth Social post 115551575141501829](115551575141501829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551575141501829
+  - _No text content captured._
+- [01:31 UTC - I am withdrawing my support and Endorsement of “Congresswoman” Marjorie Taylor Greene, of ...](115551127714537339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551127714537339
+  - I am withdrawing my support and Endorsement of “Congresswoman” Marjorie Taylor Greene, of the Great State of Georgia. Over the past few weeks, despite my creating Record Achievemen...
+- [01:12 UTC - Did Thomas Massie, sometimes referred to as Rand Paul Jr., because of the fact that he alw...](115551054294277065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115551054294277065
+  - Did Thomas Massie, sometimes referred to as Rand Paul Jr., because of the fact that he always votes against the Republican Party, get married already??? Boy, that was quick! No won...

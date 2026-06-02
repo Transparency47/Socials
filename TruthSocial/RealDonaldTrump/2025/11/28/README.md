@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-11-28
+
+- Posts: 11
+
+- [21:18 UTC - If Tito Asfura wins for President of Honduras, because the United States has so much confi...](115629406693931908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629406693931908
+  - If Tito Asfura wins for President of Honduras, because the United States has so much confidence in him, his Policies, and what he will do for the Great People of Honduras, we will...
+- [21:00 UTC - Democracy is on trial in the coming Elections in the beautiful country of Honduras on Nove...](115629335172411031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629335172411031
+  - Democracy is on trial in the coming Elections in the beautiful country of Honduras on November 30th. Will Maduro and his Narcoterrorists take over another country like they have ta...
+- [20:02 UTC - TRUMPLICANS!](115629105165918036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629105165918036
+  - TRUMPLICANS!
+- [19:42 UTC - Truth Social post 115629028965147561](115629028965147561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629028965147561
+  - _No text content captured._
+- [19:40 UTC - Truth Social post 115629020373547932](115629020373547932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629020373547932
+  - _No text content captured._
+- [19:37 UTC - Any document signed by Sleepy Joe Biden with the Autopen, which was approximately 92% of t...](115629010097815862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115629010097815862
+  - Any document signed by Sleepy Joe Biden with the Autopen, which was approximately 92% of them, is hereby terminated, and of no further force or effect. The Autopen is not allowed t...
+- [07:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) GOD BLESS AMERICA!](115626154411943337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115626154411943337
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) GOD BLESS AMERICA!
+- [07:30 UTC - “Twilight’s Last Gleaming, Can America Be Saved” (YES!), by the Great Todd Starnes. A fant...](115626148731779942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115626148731779942
+  - “Twilight’s Last Gleaming, Can America Be Saved” (YES!), by the Great Todd Starnes. A fantastic NEW BOOK. Get it now!!! President DJT
+- [04:27 UTC - A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots wh...](115625429081411360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115625429081411360
+  - A very Happy Thanksgiving salutation to all of our Great American Citizens and Patriots who have been so nice in allowing our Country to be divided, disrupted, carved up, murdered,...
+- [04:26 UTC - …Even as we have progressed technologically, Immigration Policy has eroded those gains and...](115625427648743414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115625427648743414
+  - …Even as we have progressed technologically, Immigration Policy has eroded those gains and living conditions for many. I will permanently pause migration from all Third World Count...
+- [04:25 UTC - This is part of the horrendous airlift from Afghanistan. Hundreds of thousands of people p...](115625421503636680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115625421503636680
+  - This is part of the horrendous airlift from Afghanistan. Hundreds of thousands of people poured into our Country totally unvetted and unchecked. We will fix it, but will never forg...

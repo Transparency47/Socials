@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115483103242712538
+- Post URL: https://truthsocial.com/@realDonaldTrump/115483103242712538
+- Title: RT [@ PeteHegseth](https://truthsocial.com/@PeteHegseth) I just spoke to President Trump, ...
+- Date published: 2025-11-03T01:11:52.661000+00:00
+- Date accessed: 2026-06-02T16:20:33.858235+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744890,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@PeteHegseth\" class=\"u-url mention\">@<span>PeteHegseth</span></a></span>I just spoke to President Trump, and we agree — the relationship between the United States and China has never been better. Following President Trump’s historic meeting with Chairman Xi in South Korea, I had an equally positive meeting with my counterpart, China’s Minister of National Defense Admiral Dong Jun in Malaysia. And we spoke again last night. The Admiral and I agree that peace, stability, and good relations are the best path for our two great and strong countries. As President Trump said, his historic “G2 meeting” set the tone for everlasting peace and success for the U.S. and China. The Department of War will do the same — peace through strength, mutual respect, and positive relations. Admiral Dong and I also agreed that we should set up military-to-military channels to deconflict and deescalate any problems that arise. We have more meetings on that coming soon. God bless both China and the USA!</p>",
+    "created_at": "2025-11-03T01:11:52.661Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "115483103242712538",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": true,
+        "acct": "PeteHegseth",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/889/619/433/136/341/original/7e1df97bff033d85.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/889/619/433/136/341/original/7e1df97bff033d85.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-03-02T23:49:05.390Z",
+        "discoverable": true,
+        "display_name": "Pete Hegseth",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 85886,
+        "following_count": 17,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/889/619/433/136/341/original/ae3b64792a3d869f.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/889/619/433/136/341/original/ae3b64792a3d869f.jpeg",
+        "id": "107889619433136341",
+        "last_status_at": "2026-06-02",
+        "location": "",
+        "locked": false,
+        "note": "<p>Christian | American | Husband | Father | Author | Veteran | SecWar</p>",
+        "premium": false,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 100,
+        "tv_account": false,
+        "tv_onboarded": false,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@PeteHegseth",
+        "username": "PeteHegseth",
+        "verified": true,
+        "website": ""
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>I just spoke to President Trump, and we agree — the relationship between the United States and China has never been better. Following President Trump’s historic meeting with Chairman Xi in South Korea, I had an equally positive meeting with my counterpart, China’s Minister of National Defense Admiral Dong Jun in Malaysia. And we spoke again last night. The Admiral and I agree that peace, stability, and good relations are the best path for our two great and strong countries. As President Trump said, his historic “G2 meeting” set the tone for everlasting peace and success for the U.S. and China. The Department of War will do the same — peace through strength, mutual respect, and positive relations. Admiral Dong and I also agreed that we should set up military-to-military channels to deconflict and deescalate any problems that arise. We have more meetings on that coming soon. God bless both China and the USA!</p>",
+      "created_at": "2025-11-01T22:21:51.470Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 12333,
+      "group": null,
+      "id": "115476772387145483",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 2844,
+      "replies_count": 469,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 12333,
+      "uri": "https://truthsocial.com/@PeteHegseth/115476772387145483",
+      "url": "https://truthsocial.com/@PeteHegseth/115476772387145483",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115483103242712538",
+    "url": "https://truthsocial.com/@realDonaldTrump/115483103242712538",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

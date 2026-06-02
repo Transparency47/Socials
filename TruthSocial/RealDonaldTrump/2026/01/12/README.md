@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-01-12
+
+- Posts: 10
+
+- [23:38 UTC - Under Sleepy Joe Biden and the Radical Left Democrats, the average American Household’s mo...](115884759090137876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115884759090137876
+  - Under Sleepy Joe Biden and the Radical Left Democrats, the average American Household’s monthly Utility bills went up MASSIVELY — over 30%! I never want Americans to pay higher Ele...
+- [22:13 UTC - Congestion Pricing in Manhattan is a DISASTER for New York. It’s got to be ended, IMMEDIAT...](115884425860726582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115884425860726582
+  - Congestion Pricing in Manhattan is a DISASTER for New York. It’s got to be ended, IMMEDIATELY! It’s never worked before, and it will never work now. I love New York, and hate to se...
+- [21:46 UTC - Effective immediately, any Country doing business with the Islamic Republic of Iran will p...](115884319075881590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115884319075881590
+  - Effective immediately, any Country doing business with the Islamic Republic of Iran will pay a Tariff of 25% on any and all business being done with the United States of America. T...
+- [21:07 UTC - These FBI Agents are total Scum, in their own way no better than the insurrectionists in P...](115884164936451552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115884164936451552
+  - These FBI Agents are total Scum, in their own way no better than the insurrectionists in Portland, Minnesota, Los Angeles, etc. Kash better get them out, NOW! Radical Left Lunatics...
+- [18:11 UTC - The actual numbers that we would have to pay back if, for any reason, the Supreme Court we...](115883475463948362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115883475463948362
+  - The actual numbers that we would have to pay back if, for any reason, the Supreme Court were to rule against the United States of America on Tariffs, would be many Hundreds of Bill...
+- [14:06 UTC - Congratulations to DINA POWELL MCCORMICK, WHO HAS JUST BEEN NAMED THE NEW PRESIDENT OF MET...](115882511750475574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115882511750475574
+  - Congratulations to DINA POWELL MCCORMICK, WHO HAS JUST BEEN NAMED THE NEW PRESIDENT OF META. A great choice by Mark Z!!! She is a fantastic, and very talented, person, who served t...
+- [12:55 UTC - I’m the one who SAVED NATO!!! President DJT](115882232505676630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115882232505676630
+  - I’m the one who SAVED NATO!!! President DJT
+- [02:01 UTC - Mortgage rates sink to three-year low after shock Trump move: [https://www. dailymail.co.u...](115879659776888469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115879659776888469
+  - Mortgage rates sink to three-year low after shock Trump move: [https://www. dailymail.co.uk/yourmoney/arti cle-15450547/amp/mortgage-rates-trump-order-housing-impact.html](https://...
+- [01:23 UTC - Truth Social post 115879509461234235](115879509461234235/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115879509461234235
+  - _No text content captured._
+- [01:17 UTC - Federal prosecutors launch new probe into NY AG Letitia James involving campaign payments ...](115879485276291693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115879485276291693
+  - Federal prosecutors launch new probe into NY AG Letitia James involving campaign payments to longtime hairdresser: report: [https:// nypost.com/2026/01/08/us-news/ prosecutors-laun...

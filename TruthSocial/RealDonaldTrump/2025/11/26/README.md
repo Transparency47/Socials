@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-11-26
+
+- Posts: 22
+
+- [22:23 UTC - “President Donald Trump remains with strong approval at 50%…”](115618335917111212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115618335917111212
+  - “President Donald Trump remains with strong approval at 50%…”
+- [21:58 UTC - Democracy is on trial in the coming Elections in the beautiful country of Honduras on Nove...](115618236412963848/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115618236412963848
+  - Democracy is on trial in the coming Elections in the beautiful country of Honduras on November 30th. Will Maduro and his Narcoterrorists take over another country like they have ta...
+- [20:23 UTC - The animal that shot the two National Guardsmen, with both being critically wounded, and n...](115617866419112089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115617866419112089
+  - The animal that shot the two National Guardsmen, with both being critically wounded, and now in two separate hospitals, is also severely wounded, but regardless, will pay a very st...
+- [19:41 UTC - The United States did not attend the G20 in South Africa, because the South African Govern...](115617700844849134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115617700844849134
+  - The United States did not attend the G20 in South Africa, because the South African Government refuses to acknowledge or address the horrific Human Right Abuses endured by Afrikane...
+- [19:31 UTC - BREAKING NEWS! LAW and JUSTICE have prevailed in the Great State of Georgia, as the corrup...](115617658912008194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115617658912008194
+  - BREAKING NEWS! LAW and JUSTICE have prevailed in the Great State of Georgia, as the corrupt Fani Willis Witch Hunt against me, and other Great American Patriots, has been DISMISSED...
+- [16:56 UTC - This is the Lincoln Memorial Reflecting Pool before Secretary of the Interior Doug Burgum ...](115617052659110736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115617052659110736
+  - This is the Lincoln Memorial Reflecting Pool before Secretary of the Interior Doug Burgum and I fix it. Study it hard because you won’t be seeing this Biden filth and incompetence...
+- [14:49 UTC - [https:// justthenews.com/government/whi te-house/russia-ukraine-need-js-top](https://just...](115616549656369099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115616549656369099
+  - [https:// justthenews.com/government/whi te-house/russia-ukraine-need-js-top](https://justthenews.com/government/white-house/russia-ukraine-need-js-top)
+- [14:48 UTC - VICTORIA COATES was GREAT on Maria B this morning. Always solid policy, analysis, and advi...](115616548418162346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115616548418162346
+  - VICTORIA COATES was GREAT on Maria B this morning. Always solid policy, analysis, and advice - A total WINNER!!! President DJT
+- [14:48 UTC - There is a new word for a TRUMP REPUBLICAN, which is almost everyone (GREAT POLICY IS THE ...](115616546926814479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115616546926814479
+  - There is a new word for a TRUMP REPUBLICAN, which is almost everyone (GREAT POLICY IS THE KEY!). It is, TEPUBLICAN??? Or, TPUBLICAN???
+- [14:47 UTC - The Creeps at the Failing New York Times are at it again. I won the 2024 Presidential Elec...](115616545250020843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115616545250020843
+  - The Creeps at the Failing New York Times are at it again. I won the 2024 Presidential Election in a Landslide, winning all Seven Swing States, the Popular Vote, and the Electoral C...
+- [04:34 UTC - [https:// truthsocial.com/@PressSec/1155 83956149724264](https://truthsocial.com/@PressSec...](115614131579316550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115614131579316550
+  - [https:// truthsocial.com/@PressSec/1155 83956149724264](https://truthsocial.com/@PressSec/115583956149724264)
+- [02:52 UTC - Truth Social post 115613731684257037](115613731684257037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613731684257037
+  - _No text content captured._
+- [01:19 UTC - [https:// truthsocial.com/@bldgusafuture /115578251599288841](https://truthsocial.com/@bld...](115613366375908842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613366375908842
+  - [https:// truthsocial.com/@bldgusafuture /115578251599288841](https://truthsocial.com/@bldgusafuture/115578251599288841)
+- [00:35 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612080950534491](https://truthsocial.com/...](115613192857088845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613192857088845
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612080950534491](https://truthsocial.com/@IStandWithTrump47/115612080950534491)
+- [00:34 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612080950534491](https://truthsocial.com/...](115613189882851599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613189882851599
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612080950534491](https://truthsocial.com/@IStandWithTrump47/115612080950534491)
+- [00:34 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612078125486538](https://truthsocial.com/...](115613188541593977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613188541593977
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612078125486538](https://truthsocial.com/@IStandWithTrump47/115612078125486538)
+- [00:33 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612095607845390](https://truthsocial.com/...](115613186399395182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613186399395182
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612095607845390](https://truthsocial.com/@IStandWithTrump47/115612095607845390)
+- [00:33 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612091705730742](https://truthsocial.com/...](115613185117145657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613185117145657
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612091705730742](https://truthsocial.com/@IStandWithTrump47/115612091705730742)
+- [00:32 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612090826656817](https://truthsocial.com/...](115613183150676189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613183150676189
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612090826656817](https://truthsocial.com/@IStandWithTrump47/115612090826656817)
+- [00:32 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612900764699443](https://truthsocial.com/...](115613180282745268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613180282745268
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612900764699443](https://truthsocial.com/@IStandWithTrump47/115612900764699443)
+- [00:31 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115612929453854389](https://truthsocial.com/...](115613178390800497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613178390800497
+  - [https:// truthsocial.com/@IStandWithTru mp47/115612929453854389](https://truthsocial.com/@IStandWithTrump47/115612929453854389)
+- [00:31 UTC - [https:// truthsocial.com/@IStandWithTru mp47/115613049054014152](https://truthsocial.com/...](115613177393189247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115613177393189247
+  - [https:// truthsocial.com/@IStandWithTru mp47/115613049054014152](https://truthsocial.com/@IStandWithTrump47/115613049054014152)

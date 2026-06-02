@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-01-13
+
+- Posts: 10
+
+- [21:39 UTC - Under my stewardship, the Economy is booming! A Manufacturing Renaissance and soaring Hous...](115889956193740965/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115889956193740965
+  - Under my stewardship, the Economy is booming! A Manufacturing Renaissance and soaring Household Incomes are powering GDP gains that have not been seen in decades, and we are underg...
+- [21:39 UTC - Minnesota is Trump Country! I won 78 out of 87 Counties. The Election was swung by Corrupt...](115889954671261109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115889954671261109
+  - Minnesota is Trump Country! I won 78 out of 87 Counties. The Election was swung by Corrupt Counties around Minneapolis and St. Paul, represented by disgusting Ilhan Omar. Moronic T...
+- [16:09 UTC - Sadly, the Great Influencer, Scott Adams, has passed away. He was a fantastic guy, who lik...](115888656099131562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115888656099131562
+  - Sadly, the Great Influencer, Scott Adams, has passed away. He was a fantastic guy, who liked and respected me when it wasn’t fashionable to do so. He bravely fought a long battle a...
+- [14:43 UTC - Iranian Patriots, KEEP PROTESTING - TAKE OVER YOUR INSTITUTIONS!!! Save the names of the k...](115888317758045915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115888317758045915
+  - Iranian Patriots, KEEP PROTESTING - TAKE OVER YOUR INSTITUTIONS!!! Save the names of the killers and abusers. They will pay a big price. I have cancelled all meetings with Iranian...
+- [14:28 UTC - JUST OUT: Great (LOW!) Inflation numbers for the USA. That means that Jerome “Too Late” Po...](115888260399895701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115888260399895701
+  - JUST OUT: Great (LOW!) Inflation numbers for the USA. That means that Jerome “Too Late” Powell should cut interest rates, MEANINGFULLY!!! If he doesn’t he will just continue to be,...
+- [13:40 UTC - Do the people of Minnesota really want to live in a community in which there are thousands...](115888070937502023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115888070937502023
+  - Do the people of Minnesota really want to live in a community in which there are thousands of already convicted murderers, drug dealers and addicts, rapists, violent released and e...
+- [12:32 UTC - Truth Social post 115887804236765510](115887804236765510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115887804236765510
+  - _No text content captured._
+- [12:32 UTC - Truth Social post 115887803138807843](115887803138807843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115887803138807843
+  - _No text content captured._
+- [10:36 UTC - Patel fired 'corrupt' FBI agents in anti-Trump Arctic Frost inquiry who 'weaponized' law e...](115887347099564233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115887347099564233
+  - Patel fired 'corrupt' FBI agents in anti-Trump Arctic Frost inquiry who 'weaponized' law enforcement: [https:// justthenews.com/government/cou rts-law/patel-fired-corrupt-fbi-agent...
+- [05:15 UTC - Everyone should support great Republican Senator Roger Marshall’s Credit Card Competition ...](115886085338434959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115886085338434959
+  - Everyone should support great Republican Senator Roger Marshall’s Credit Card Competition Act, in order to stop the out of control Swipe Fee ripoff. Roger is a FANTASTIC Senator!!!...

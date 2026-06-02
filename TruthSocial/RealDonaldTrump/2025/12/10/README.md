@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-12-10
+
+- Posts: 13
+
+- [19:56 UTC - THE UNITED STATES GOVERNMENT’S TRUMP GOLD CARD IS HERE TODAY! A direct path to Citizenship...](115697029631709665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115697029631709665
+  - THE UNITED STATES GOVERNMENT’S TRUMP GOLD CARD IS HERE TODAY! A direct path to Citizenship for all qualified and vetted people. SO EXCITING! Our Great American Companies can finall...
+- [16:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115696177881410455 Mexico must ...](115696262289771554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115696262289771554
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115696177881410455 Mexico must take care of its water and sewage problem, IMMEDIATELY. It is a true Threat to the People...
+- [16:19 UTC - Truth Social post 115696177881410455](115696177881410455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115696177881410455
+  - _No text content captured._
+- [04:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) There has never been a Pr...](115693286099298725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693286099298725
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) There has never been a President that has worked as hard as me! My hours are the longest, and my results are among...
+- [04:03 UTC - One month before a monster took him away from us, the Great Charlie Kirk finished his fina...](115693285064758445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693285064758445
+  - One month before a monster took him away from us, the Great Charlie Kirk finished his final Book, “Stop, in the Name of God: Why Honoring the Sabbath Will Transform Your Life.” As...
+- [04:02 UTC - Truth Social post 115693278492971855](115693278492971855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693278492971855
+  - _No text content captured._
+- [04:02 UTC - Truth Social post 115693277943735278](115693277943735278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693277943735278
+  - _No text content captured._
+- [04:01 UTC - Truth Social post 115693277009765422](115693277009765422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693277009765422
+  - _No text content captured._
+- [04:01 UTC - Truth Social post 115693276387375687](115693276387375687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693276387375687
+  - _No text content captured._
+- [04:01 UTC - Truth Social post 115693275712717390](115693275712717390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693275712717390
+  - _No text content captured._
+- [04:01 UTC - Truth Social post 115693275048740038](115693275048740038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693275048740038
+  - _No text content captured._
+- [03:51 UTC - Truth Social post 115693237607695300](115693237607695300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115693237607695300
+  - _No text content captured._
+- [02:11 UTC - There has never been a President that has worked as hard as me! My hours are the longest, ...](115692843128539904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115692843128539904
+  - There has never been a President that has worked as hard as me! My hours are the longest, and my results are among the best. I’ve stopped Eight Wars, saving many millions of lives...

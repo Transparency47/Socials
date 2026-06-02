@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-12-07
+
+- Posts: 13
+
+- [19:50 UTC - While the United States has other methods of charging TARIFFS against foreign countries, m...](115680021178321608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115680021178321608
+  - While the United States has other methods of charging TARIFFS against foreign countries, many of whom have, for YEARS, TAKEN ADVANTAGE OF OUR NATION, the current method of Tariffin...
+- [18:50 UTC - It was the Obama DOJ (of course!) that viciously went after the great Roger Clemens. ROGER...](115679783474101246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115679783474101246
+  - It was the Obama DOJ (of course!) that viciously went after the great Roger Clemens. ROGER WAS FULLY ACQUITTED OF ALL CHARGES!!! President DJT
+- [18:45 UTC - Roger Clemens, who won 354 games, went through his own Witch Hunt. HE WAS ACQUITTED OF ALL...](115679765232612242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115679765232612242
+  - Roger Clemens, who won 354 games, went through his own Witch Hunt. HE WAS ACQUITTED OF ALL CHARGES!!! If he doesn’t get into the Hall of Fame, he should sue the hell out of Major L...
+- [15:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Can you imagine??? The De...](115678922974468523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678922974468523
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Can you imagine??? The Democrats, under the Crooked Joe Biden Administration, who always use extreme force and jail...
+- [15:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](115678922837159470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678922837159470
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [15:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Miami’s Mayor Race is Tue...](115678922605832215/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678922605832215
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Miami’s Mayor Race is Tuesday. It is a big and important race!!! Vote for Republican Gonzalez. He is FANTASTIC! You...
+- [15:11 UTC - Truth Social post 115678922252475516](115678922252475516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678922252475516
+  - _No text content captured._
+- [15:06 UTC - Miami’s Mayor Race is Tuesday. It is a big and important race!!! Vote for Republican Gonza...](115678904344018257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678904344018257
+  - Miami’s Mayor Race is Tuesday. It is a big and important race!!! Vote for Republican Gonzalez. He is FANTASTIC! You can also vote today. MAKE AMERICA GREAT AGAIN!
+- [14:38 UTC - Truth Social post 115678792986547824](115678792986547824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678792986547824
+  - _No text content captured._
+- [14:30 UTC - Truth Social post 115678762943165554](115678762943165554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678762943165554
+  - _No text content captured._
+- [13:11 UTC - Can you imagine??? The Democrats, under the Crooked Joe Biden Administration, who always u...](115678452939414622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678452939414622
+  - Can you imagine??? The Democrats, under the Crooked Joe Biden Administration, who always use extreme force and jail-time to destroy their political opponent, wanted to put Congress...
+- [11:58 UTC - Truth Social post 115678164034377962](115678164034377962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115678164034377962
+  - _No text content captured._
+- [04:35 UTC - WATCH: President Trump Delivers Remarks at State Department Kennedy Center Honors Dinner: ...](115676421048496642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115676421048496642
+  - WATCH: President Trump Delivers Remarks at State Department Kennedy Center Honors Dinner: [https://www. c-span.org/program/white-house -event/pres-trump-delivers-remarks-at-state-d...

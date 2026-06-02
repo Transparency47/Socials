@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-01-07
+
+- Posts: 10
+
+- [23:53 UTC - It was a Great Honor to speak with the President of Colombia, Gustavo Petro, who called to...](115856506155736586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115856506155736586
+  - It was a Great Honor to speak with the President of Colombia, Gustavo Petro, who called to explain the situation of drugs and other disagreements that we have had. I appreciated hi...
+- [22:04 UTC - I have just been informed that Venezuela is going to be purchasing ONLY American Made Prod...](115856078669121098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115856078669121098
+  - I have just been informed that Venezuela is going to be purchasing ONLY American Made Products, with the money they receive from our new Oil Deal. These purchases will include, amo...
+- [21:17 UTC - After long and difficult negotiations with Senators, Congressmen, Secretaries, and other P...](115855894695940909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855894695940909
+  - After long and difficult negotiations with Senators, Congressmen, Secretaries, and other Political Representatives, I have determined that, for the Good of our Country, especially...
+- [21:02 UTC - I have been informed by the Department of War that Defense Contractor, Raytheon, has been ...](115855836062461949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855836062461949
+  - I have been informed by the Department of War that Defense Contractor, Raytheon, has been the least responsive to the needs of the Department of War, the slowest in increasing thei...
+- [20:28 UTC - I have just viewed the clip of the event which took place in Minneapolis, Minnesota. It is...](115855701696773990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855701696773990
+  - I have just viewed the clip of the event which took place in Minneapolis, Minnesota. It is a horrible thing to watch. The woman screaming was, obviously, a professional agitator, a...
+- [19:08 UTC - All United State Defense Contractors, and the Defense Industry as a whole, BEWARE: While w...](115855387946005468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855387946005468
+  - All United State Defense Contractors, and the Defense Industry as a whole, BEWARE: While we make the best Military Equipment in the World (No other Country is even close!), Defense...
+- [17:45 UTC - For a very long time, buying and owning a home was considered the pinnacle of the American...](115855059527504524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855059527504524
+  - For a very long time, buying and owning a home was considered the pinnacle of the American Dream. It was the reward for working hard, and doing the right thing, but now, because of...
+- [17:36 UTC - In honor of the late, GREAT, Congressman Doug LaMalfa, a true American Patriot and fantast...](115855025749206304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115855025749206304
+  - In honor of the late, GREAT, Congressman Doug LaMalfa, a true American Patriot and fantastic Representative of Northern California, yesterday I ordered all American Flags throughou...
+- [14:45 UTC - Remember, for all of those big NATO fans, they were at 2% GDP, and most weren’t paying the...](115854352740910460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115854352740910460
+  - Remember, for all of those big NATO fans, they were at 2% GDP, and most weren’t paying their bills, UNTIL I CAME ALONG. The USA was, foolishly, paying for them! I, respectfully, go...
+- [14:16 UTC - HIRE JOHN HARBAUGH, FAST. HE, AND HIS BROTHER, ARE TOTAL WINNERS!!! President DJT](115854238467475779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115854238467475779
+  - HIRE JOHN HARBAUGH, FAST. HE, AND HIS BROTHER, ARE TOTAL WINNERS!!! President DJT

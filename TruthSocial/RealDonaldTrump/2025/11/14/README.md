@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-11-14
+
+- Posts: 18
+
+- [20:22 UTC - It is my honor to nominate Justin Olson to serve as Judge on the United States District Co...](115549914983720555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549914983720555
+  - It is my honor to nominate Justin Olson to serve as Judge on the United States District Court for the Southern District of Indiana! Graduating magna cum laude from the Indiana Univ...
+- [20:20 UTC - I am pleased to nominate Megan Benton to serve as Judge on the United States District Cour...](115549907135940696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549907135940696
+  - I am pleased to nominate Megan Benton to serve as Judge on the United States District Court for the Western District of Missouri. Megan earned her J.D. from the highly respected Va...
+- [20:18 UTC - I am honored to nominate Brian Lea to serve as Judge on the U.S. District Court for the We...](115549898479582155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549898479582155
+  - I am honored to nominate Brian Lea to serve as Judge on the U.S. District Court for the Western District of Tennessee! Brian has tremendous experience, currently serving as a Deput...
+- [19:44 UTC - Please be advised that I am withdrawing the nomination of Donald Korb to be Assistant Gene...](115549764700461483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549764700461483
+  - Please be advised that I am withdrawing the nomination of Donald Korb to be Assistant General Counsel in the Department of the Treasury. Thank you for your attention to this matter...
+- [18:14 UTC - Truth Social post 115549408584350115](115549408584350115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549408584350115
+  - _No text content captured._
+- [18:14 UTC - Truth Social post 115549407855779666](115549407855779666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549407855779666
+  - _No text content captured._
+- [17:52 UTC - Truth Social post 115549324288872230](115549324288872230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549324288872230
+  - _No text content captured._
+- [17:52 UTC - Truth Social post 115549323575885489](115549323575885489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549323575885489
+  - _No text content captured._
+- [17:47 UTC - Truth Social post 115549305278853350](115549305278853350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549305278853350
+  - _No text content captured._
+- [17:47 UTC - Truth Social post 115549304492957395](115549304492957395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549304492957395
+  - _No text content captured._
+- [17:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115549287803709107 [https://www...](115549295835194986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549295835194986
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115549287803709107 [https://www. dailymail.co.uk/news/article-1 4952289/Bond-star-Sir-Sean-drove-golf-course-plans-claims...
+- [17:43 UTC - Blast from the past! [https://www. express.co.uk/celebrity-news/7 1740/Connery-raves-over-...](115549287803709107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115549287803709107
+  - Blast from the past! [https://www. express.co.uk/celebrity-news/7 1740/Connery-raves-over-Trump-s-Scotland-project](https://www.express.co.uk/celebrity-news/71740/Connery-raves-ove...
+- [15:45 UTC - Cost, and INFLATION, were far higher under the Sleepy Joe Biden Administration, than they ...](115548824413984773/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115548824413984773
+  - Cost, and INFLATION, were far higher under the Sleepy Joe Biden Administration, than they are now. In fact, costs under the TRUMP ADMINISTRATION are tumbling down, helped greatly b...
+- [15:35 UTC - Now that the Democrats are using the Epstein Hoax, involving Democrats, not Republicans, t...](115548785919046772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115548785919046772
+  - Now that the Democrats are using the Epstein Hoax, involving Democrats, not Republicans, to try and deflect from their disastrous SHUTDOWN, and all of their other failures, I will...
+- [14:33 UTC - The Democrats are doing everything in their withering power to push the Epstein Hoax again...](115548539359870302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115548539359870302
+  - The Democrats are doing everything in their withering power to push the Epstein Hoax again, despite the DOJ releasing 50,000 pages of documents, in order to deflect from all of the...
+- [12:46 UTC - THE JEFFREY EPSTEIN HOAX](115548119929978278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115548119929978278
+  - THE JEFFREY EPSTEIN HOAX
+- [01:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115205301127455058 NEW RELEASE:...](115545559394082144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115545559394082144
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115205301127455058 NEW RELEASE: Tyrus has written a fantastic new Book, “WHAT IT IS, AMERICA.” Make sure you get a copy!...
+- [01:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115527575773543165 Get your cop...](115545558485420962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115545558485420962
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115527575773543165 Get your copy of Nicole Parker’s GREAT new Book, “The Two FBIs: The Bravery and Betrayal I Saw in My T...

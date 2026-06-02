@@ -1,0 +1,14 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115579394833948106 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115579394833948106 -->
+<!-- date_published: 2025-11-20T01:20:05.743000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:55:14.185890+00:00 -->
+
+# Jeffrey Epstein, who was charged by the Trump Justice Department in 2019 (Not the Democrat...
+
+Jeffrey Epstein, who was charged by the Trump Justice Department in 2019 (Not the Democrats!), was a lifelong Democrat, donated Thousands of Dollars to Democrat Politicians, and was deeply associated with many well-known Democrat figures, such as Bill Clinton (who traveled on his plane 26 times), Larry Summers (who just resigned from many Boards, including Harvard), Sleazebag Political Activist Reid Hoffman, Minority Leader Hakeem Jeffries (who asked Epstein to donate to his Campaign AFTER Epstein was charged), Democrat Congresswoman Stacey Plaskett, and many more. Perhaps the truth about these Democrats, and their associations with Jeffrey Epstein, will soon be revealed, because I HAVE JUST SIGNED THE BILL TO RELEASE THE EPSTEIN FILES! As everyone knows, I asked Speaker of the House Mike Johnson, and Senate Majority Leader John Thune, to pass this Bill in the House and Senate, respectively. Because of this request, the votes were almost unanimous in favor of passage. At my direction, the Department of Justice has already turned over close to fifty thousand pages of documents to Congress. Do not forget — The Biden Administration did not turn over a SINGLE file or page related to Democrat Epstein, nor did they ever even speak about him. Democrats have used the “Epstein” issue, which affects them far more than the Republican Party, in order to try and distract from our AMAZING Victories, including THE GREAT BIG BEAUTIFUL TAX CUT BILL, Strong Borders, No Men in Women’s Sports or Transgender for Everyone, ending DEI, stopping Biden’s Record Setting Inflation, lowering Prices, Biggest Tax and Regulation Cuts in History, ending EIGHT Wars, rebuilding our Military, knocking out Iran’s Nuclear capability, getting Trillions of Dollars INVESTED in the U.S.A., creating the “HOTTEST” Country anywhere in the World, and even delivering a HUGE DEFEAT to the Democrats on the recent Shutdown Disaster. For years our Great Nation has had to endure RUSSIA, RUSSIA, RUSSIA, UKRAINE, UKRAINE, UKRAINE, IMPEACHMENT HOAX
+[# 1](https://truthsocial.com/tags/1)
+, IMPEACHMENT HOAX
+[# 2](https://truthsocial.com/tags/2)
+, and many other Democrat created Witch Hunts and Scams, all of which have been so terrible and divisive for our Country, and have been done to confuse, deflect, and distract from the GREAT JOB that Republicans, and the Trump Administration, are doing. This latest Hoax will backfire on the Democrats just as all of the rest have! Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN!

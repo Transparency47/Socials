@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-01-23
 
-- Posts: 127
+- Posts: 138
 
 - [23:48 UTC - I want to thank President Aliyev of Azerbaijan, and Prime Minister Pashinyan of Armenia fo...](115947083395862222/)
   - Source: https://truthsocial.com/@realDonaldTrump/115947083395862222
@@ -383,3 +383,36 @@
 - [04:19 UTC - Truth Social post 115942487099453568](115942487099453568/)
   - Source: https://truthsocial.com/@realDonaldTrump/115942487099453568
   - _No text content captured._
+- [03:42 UTC - Truth Social post 115942340962960201](115942340962960201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942340962960201
+  - _No text content captured._
+- [02:52 UTC - I am so happy to have helped in saving TikTok! It will now be owned by a group of Great Am...](115942147803684675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942147803684675
+  - I am so happy to have helped in saving TikTok! It will now be owned by a group of Great American Patriots and Investors, the Biggest in the World, and will be an important Voice. A...
+- [01:53 UTC - Truth Social post 115941915466836273](115941915466836273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941915466836273
+  - _No text content captured._
+- [01:50 UTC - Dear Prime Minister Carney: Please let this Letter serve to represent that the Board of Pe...](115941901312153410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941901312153410
+  - Dear Prime Minister Carney: Please let this Letter serve to represent that the Board of Peace is withdrawing its invitation to you regarding Canada’s joining, what will be, the mos...
+- [01:29 UTC - Trump in Davos: 'When America Booms, the Entire World Booms': [https://www. newsmax.com/ne...](115941820495067205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941820495067205
+  - Trump in Davos: 'When America Booms, the Entire World Booms': [https://www. newsmax.com/newsfront/donald-t rump-davos-economy/2026/01/21/id/1242951/](https://www.newsmax.com/newsfr...
+- [01:27 UTC - Maybe we should have put NATO to the test: Invoked Article 5, and forced NATO to come here...](115941811687438015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941811687438015
+  - Maybe we should have put NATO to the test: Invoked Article 5, and forced NATO to come here and protect our Southern Border from further Invasions of Illegal Immigrants, thus freein...
+- [01:23 UTC - Gavin Newscum, as a “Lame Duck” Governor of a Failing State, should not be at Davos runnin...](115941794659998195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941794659998195
+  - Gavin Newscum, as a “Lame Duck” Governor of a Failing State, should not be at Davos running around screaming for the attention of Foreign Leaders, and embarrassing our Country. He...
+- [01:10 UTC - Mortgage Rates just hit a Three Year Low despite Jerome “Too Late” Powell, and his never e...](115941745683532182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941745683532182
+  - Mortgage Rates just hit a Three Year Low despite Jerome “Too Late” Powell, and his never ending quest to keep Interest Rates high (against “TRUMP!”). It just shows that he has been...
+- [00:39 UTC - Highly Respected Senator, “Coach” Tommy Tuberville, is running for Governor of Alabama, a ...](115941624936659389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941624936659389
+  - Highly Respected Senator, “Coach” Tommy Tuberville, is running for Governor of Alabama, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! A forme...
+- [00:33 UTC - I am hearing that Alabama GOP Chairman, John Wahl, a true MAGA Warrior and America First P...](115941601213450831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941601213450831
+  - I am hearing that Alabama GOP Chairman, John Wahl, a true MAGA Warrior and America First Patriot, is considering launching his Campaign for Lieutenant Governor, and I hope he does!...
+- [00:25 UTC - I am hearing that Bluffton City Councilman Blake Fiechter, a True America First Patriot, i...](115941568330748012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115941568330748012
+  - I am hearing that Bluffton City Councilman Blake Fiechter, a True America First Patriot, is considering a primary challenge against “RINO” State Senator Travis Holdman, in Indiana’...

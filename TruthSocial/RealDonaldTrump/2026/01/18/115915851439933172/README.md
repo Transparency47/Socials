@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115915851439933172
+- Post URL: https://truthsocial.com/@realDonaldTrump/115915851439933172
+- Title: RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We have subsidized Denmar...
+- Date published: 2026-01-18T11:25:26.122000+00:00
+- Date accessed: 2026-06-02T14:55:35.565011+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 1
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744509,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@realDonaldTrump\" class=\"u-url mention\">@<span>realDonaldTrump</span></a></span>We have subsidized Denmark, and all of the Countries of the European Union, and others, for many years by not charging them Tariffs, or any other forms of remuneration. Now, after Centuries, it is time for Denmark to give back — World Peace is at stake! China and Russia want Greenland, and there is not a thing that Denmark can do about it. They currently have two dogsleds as protection, one added recently. Only the United States of America, under PRESIDENT DONALD J. TRUMP, can play in this game, and very successfully, at that! Nobody will touch this sacred piece of Land, especially since the National Security of the United States, and the World at large, is at stake. On top of everything else, Denmark, Norway, Sweden, France, Germany, The United Kingdom, The Netherlands, and Finland have journeyed to Greenland, for purposes unknown. This is a very dangerous situation for the Safety, Security, and Survival of our Planet. These Countries, who are playing this very dangerous game, have put a level of risk in play that is not tenable or sustainable. Therefore, it is imperative that, in order to protect Global Peace and Security, strong measures be taken so that this potentially perilous situation end quickly, and without question. Starting on February 1st, 2026, all of the above mentioned Countries (Denmark, Norway, Sweden, France, Germany, The United Kingdom, The Netherlands, and Finland), will be charged a 10% Tariff on any and all goods sent to the United States of America. On June 1st, 2026, the Tariff will be increased to 25%. This Tariff will be due and payable until such time as a Deal is reached for the Complete and Total purchase of Greenland. The United States has been trying to do this transaction for over 150 years. Many Presidents have tried, and for good reason, but Denmark has always refused. Now, because of The Golden Dome, and Modern Day Weapons Systems, both Offensive and Defensive, the need to ACQUIRE is especially important. Hundreds of Billions of Dollars are currently being spent on Security Programs having to do with “The Dome,” including for the possible protection of Canada, and this very brilliant, but highly complex system can only work at its maximum potential and efficiency, because of angles, metes, and bounds, if this Land is included in it. The United States of America is immediately open to negotiation with Denmark and/or any of these Countries that have put so much at risk, despite all that we have done for them, including maximum protection, over so many decades. Thank you for your attention to this matter!</p><p>DONALD J. TRUMP<br/>PRESIDENT OF THE UNITED STATES OF AMERICA</p>",
+    "created_at": "2026-01-18T11:25:26.122Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 1,
+    "group": null,
+    "id": "115915851439933172",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": false,
+        "acct": "realDonaldTrump",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-11T16:16:57.705Z",
+        "discoverable": false,
+        "display_name": "Donald J. Trump",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 12744509,
+        "following_count": 69,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "id": "107780257626128497",
+        "last_status_at": "2026-06-02",
+        "location": "",
+        "locked": false,
+        "note": "<p></p>",
+        "premium": true,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 34030,
+        "tv_account": false,
+        "tv_onboarded": false,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@realDonaldTrump",
+        "username": "realDonaldTrump",
+        "verified": true,
+        "website": "www.DonaldJTrump.com"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>We have subsidized Denmark, and all of the Countries of the European Union, and others, for many years by not charging them Tariffs, or any other forms of remuneration. Now, after Centuries, it is time for Denmark to give back — World Peace is at stake! China and Russia want Greenland, and there is not a thing that Denmark can do about it. They currently have two dogsleds as protection, one added recently. Only the United States of America, under PRESIDENT DONALD J. TRUMP, can play in this game, and very successfully, at that! Nobody will touch this sacred piece of Land, especially since the National Security of the United States, and the World at large, is at stake. On top of everything else, Denmark, Norway, Sweden, France, Germany, The United Kingdom, The Netherlands, and Finland have journeyed to Greenland, for purposes unknown. This is a very dangerous situation for the Safety, Security, and Survival of our Planet. These Countries, who are playing this very dangerous game, have put a level of risk in play that is not tenable or sustainable. Therefore, it is imperative that, in order to protect Global Peace and Security, strong measures be taken so that this potentially perilous situation end quickly, and without question. Starting on February 1st, 2026, all of the above mentioned Countries (Denmark, Norway, Sweden, France, Germany, The United Kingdom, The Netherlands, and Finland), will be charged a 10% Tariff on any and all goods sent to the United States of America. On June 1st, 2026, the Tariff will be increased to 25%. This Tariff will be due and payable until such time as a Deal is reached for the Complete and Total purchase of Greenland. The United States has been trying to do this transaction for over 150 years. Many Presidents have tried, and for good reason, but Denmark has always refused. Now, because of The Golden Dome, and Modern Day Weapons Systems, both Offensive and Defensive, the need to ACQUIRE is especially important. Hundreds of Billions of Dollars are currently being spent on Security Programs having to do with “The Dome,” including for the possible protection of Canada, and this very brilliant, but highly complex system can only work at its maximum potential and efficiency, because of angles, metes, and bounds, if this Land is included in it. The United States of America is immediately open to negotiation with Denmark and/or any of these Countries that have put so much at risk, despite all that we have done for them, including maximum protection, over so many decades. Thank you for your attention to this matter!</p><p>DONALD J. TRUMP<br/>PRESIDENT OF THE UNITED STATES OF AMERICA</p>",
+      "created_at": "2026-01-17T16:19:14.858Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 61466,
+      "group": null,
+      "id": "115911344443637897",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 16383,
+      "replies_count": 10838,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 61466,
+      "uri": "https://truthsocial.com/@realDonaldTrump/115911344443637897",
+      "url": "https://truthsocial.com/@realDonaldTrump/115911344443637897",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 1,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115915851439933172",
+    "url": "https://truthsocial.com/@realDonaldTrump/115915851439933172",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

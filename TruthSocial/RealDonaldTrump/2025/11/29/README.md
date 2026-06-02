@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-11-29
+
+- Posts: 18
+
+- [23:38 UTC - [https:// justthenews.com/accountability /waste-fraud-and-abuse/stunning-fraud-involving-s...](115635618188860575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635618188860575
+  - [https:// justthenews.com/accountability /waste-fraud-and-abuse/stunning-fraud-involving-somalis-minnesota-hand-gop-political](https://justthenews.com/accountability/waste-fraud-an...
+- [23:37 UTC - [https:// justthenews.com/politics-polic y/all-things-trump/trump-says-he-will-designate-m...](115635616038841099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635616038841099
+  - [https:// justthenews.com/politics-polic y/all-things-trump/trump-says-he-will-designate-muslim-brotherhood-terrorist](https://justthenews.com/politics-policy/all-things-trump/trum...
+- [23:37 UTC - [https://www. jns.org/netanyahu-lauds-trump- decision-to-list-muslim-brotherhood-as-terror...](115635614692804684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635614692804684
+  - [https://www. jns.org/netanyahu-lauds-trump- decision-to-list-muslim-brotherhood-as-terror-org/](https://www.jns.org/netanyahu-lauds-trump-decision-to-list-muslim-brotherhood-as-te...
+- [23:37 UTC - [https:// justthenews.com/government/whi te-house/russia-ukraine-need-js-top](https://just...](115635612638129914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635612638129914
+  - [https:// justthenews.com/government/whi te-house/russia-ukraine-need-js-top](https://justthenews.com/government/white-house/russia-ukraine-need-js-top)
+- [23:36 UTC - [https:// justthenews.com/government/sec urity/ambush-national-guard-near-white-house-tied...](115635611704582621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635611704582621
+  - [https:// justthenews.com/government/sec urity/ambush-national-guard-near-white-house-tied-bungled-biden-vetting-afghans](https://justthenews.com/government/security/ambush-nationa...
+- [22:36 UTC - [https:// justthenews.com/nation/economy /trump-bump-black-friday-online-spending-soars-20...](115635374222203902/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635374222203902
+  - [https:// justthenews.com/nation/economy /trump-bump-black-friday-online-spending-soars-2025-poised-be-first-quarter-trillion](https://justthenews.com/nation/economy/trump-bump-bla...
+- [21:17 UTC - Winning is always nice!](115635064661785681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115635064661785681
+  - Winning is always nice!
+- [20:53 UTC - Great being with the Highly Respected future King of Saudi Arabia, Mohammed bin Salman. He...](115634967838729337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634967838729337
+  - Great being with the Highly Respected future King of Saudi Arabia, Mohammed bin Salman. He is doing tremendous things for his Country!
+- [20:50 UTC - Truth Social post 115634957347668771](115634957347668771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634957347668771
+  - _No text content captured._
+- [20:49 UTC - Immigration and Nationality Act, Section 212(f): “Whenever the President finds that the en...](115634952920337470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634952920337470
+  - Immigration and Nationality Act, Section 212(f): “Whenever the President finds that the entry of any aliens or of any class of aliens into the United States would be detrimental to...
+- [20:45 UTC - Truth Social post 115634938538270688](115634938538270688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634938538270688
+  - _No text content captured._
+- [20:44 UTC - Truth Social post 115634936191665268](115634936191665268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634936191665268
+  - _No text content captured._
+- [20:43 UTC - Truth Social post 115634931025682946](115634931025682946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634931025682946
+  - _No text content captured._
+- [20:43 UTC - Truth Social post 115634929179976272](115634929179976272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115634929179976272
+  - _No text content captured._
+- [13:17 UTC - Because I have invoked FAVORED NATIONS STATUS FOR THE UNITED STATES OF AMERICA, DRUG PRICE...](115633174669225455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115633174669225455
+  - Because I have invoked FAVORED NATIONS STATUS FOR THE UNITED STATES OF AMERICA, DRUG PRICES ARE FALLING AT LEVELS NEVER SEEN BEFORE, 500%, 600%, 700%, and more. No other President...
+- [12:43 UTC - To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE...](115633041089714842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115633041089714842
+  - To all Airlines, Pilots, Drug Dealers, and Human Traffickers, please consider THE AIRSPACE ABOVE AND SURROUNDING VENEZUELA TO BE CLOSED IN ITS ENTIRETY. Thank you for your attentio...
+- [12:22 UTC - Tariffs have made our Country Rich, Strong, Powerful, and Safe. They have been successfull...](115632959311037868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115632959311037868
+  - Tariffs have made our Country Rich, Strong, Powerful, and Safe. They have been successfully used by other Countries against us for Decades, but when it comes to Tariffs, and becaus...
+- [11:29 UTC - [https:// truthsocial.com/@realDonaldTru mp/115618335917111212](https://truthsocial.com/@r...](115632752581160577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115632752581160577
+  - [https:// truthsocial.com/@realDonaldTru mp/115618335917111212](https://truthsocial.com/@realDonaldTrump/115618335917111212)

@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-01-10
+
+- Posts: 23
+
+- [23:42 UTC - Venezuela has started the process, in a BIG WAY, of releasing their political prisoners. T...](115873451908160529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115873451908160529
+  - Venezuela has started the process, in a BIG WAY, of releasing their political prisoners. Thank you! I hope those prisoners will remember how lucky they got that the USA came along...
+- [23:13 UTC - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to repre...](115873337954422404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115873337954422404
+  - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to represent the wonderful people of Florida’s 87th State House District. Jon is a very successful...
+- [22:35 UTC - Protester scales Iranian Embassy in London, tears down regime flag, hoists pre-revolution ...](115873188207807497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115873188207807497
+  - Protester scales Iranian Embassy in London, tears down regime flag, hoists pre-revolution symbol: [https://www. foxnews.com/world/protester-sc ales-iranian-embassy-in-london-tears-...
+- [20:49 UTC - Dr. Marc Siegel, a wonderful guy, wrote a great new book, “The Miracles Among Us.” Get it ...](115872769704977517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115872769704977517
+  - Dr. Marc Siegel, a wonderful guy, wrote a great new book, “The Miracles Among Us.” Get it now!!! President DJT
+- [20:27 UTC - The United States of America is the Hottest and most Successful Country anywhere in the WO...](115872684220634537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115872684220634537
+  - The United States of America is the Hottest and most Successful Country anywhere in the WORLD!!! President DJT
+- [20:22 UTC - The New York Football Giants should hire, without question, John Harbaugh - And John, a gr...](115872664324587956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115872664324587956
+  - The New York Football Giants should hire, without question, John Harbaugh - And John, a great guy, should TAKE THE JOB!!! President DJT
+- [18:27 UTC - Iran is looking at FREEDOM, perhaps like never before. The USA stands ready to help!!! Pre...](115872214156165257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115872214156165257
+  - Iran is looking at FREEDOM, perhaps like never before. The USA stands ready to help!!! President DONALD J. TRUMP
+- [18:22 UTC - I love the Venezuelan people, and am already making Venezuela rich and safe again. Congrat...](115872191697421818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115872191697421818
+  - I love the Venezuelan people, and am already making Venezuela rich and safe again. Congratulations and thank you to all of those people who are making this possible!!! President DJ...
+- [16:35 UTC - Truth Social post 115871771723743252](115871771723743252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871771723743252
+  - _No text content captured._
+- [16:32 UTC - ‘Ten-year stain:’ Bondi asks prosecutors to probe Obama-Biden lawfare as criminal conspira...](115871761540198799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871761540198799
+  - ‘Ten-year stain:’ Bondi asks prosecutors to probe Obama-Biden lawfare as criminal conspiracy: [https:// justthenews.com/accountability /political-ethics/monten-year-stain-pam-bondi...
+- [16:27 UTC - Deranged Jack Smith should be sitting in prison for all that he has done to disgrace our C...](115871740731557028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871740731557028
+  - Deranged Jack Smith should be sitting in prison for all that he has done to disgrace our Country! Jack Smith team approved $20k payment to informant to snitch on Trump team during...
+- [15:43 UTC - GREGG JARRETT: Comey’s Russian hoax is a reminder of how he is similar to Nixon: [https://...](115871569409937657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871569409937657
+  - GREGG JARRETT: Comey’s Russian hoax is a reminder of how he is similar to Nixon: [https://www. foxnews.com/opinion/gregg-jarr ett-comeys-russian-hoax-reminder-how-he-similar-nixon/...
+- [15:43 UTC - GREGG JARRETT: No, Trump's order to snatch Maduro was not illegal or unconstitutional: [ht...](115871567004197826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871567004197826
+  - GREGG JARRETT: No, Trump's order to snatch Maduro was not illegal or unconstitutional: [https://www. foxnews.com/opinion/gregg-jarr ett-no-trumps-order-snatch-maduro-not-illegal-un...
+- [15:42 UTC - Gregg Jarrett is GREAT!!! GREGG JARRETT: If Walz is charged in Minnesota fraud scandal, hi...](115871564802315111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871564802315111
+  - Gregg Jarrett is GREAT!!! GREGG JARRETT: If Walz is charged in Minnesota fraud scandal, his best defense is incompetence: [https://www. foxnews.com/opinion/gregg-jarr ett-walz-char...
+- [15:39 UTC - Bill Pulte to Newsmax: Trump Cutting Home Costs, Rates: [https://www. newsmax.com/newsmax-...](115871553613947408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115871553613947408
+  - Bill Pulte to Newsmax: Trump Cutting Home Costs, Rates: [https://www. newsmax.com/newsmax-tv/pulte-t rump-home/2026/01/09/id/1241553/](https://www.newsmax.com/newsmax-tv/pulte-trum...
+- [01:50 UTC - Truth Social post 115868294134554688](115868294134554688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868294134554688
+  - _No text content captured._
+- [01:50 UTC - Truth Social post 115868292968772820](115868292968772820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868292968772820
+  - _No text content captured._
+- [01:35 UTC - Truth Social post 115868232924041391](115868232924041391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868232924041391
+  - _No text content captured._
+- [01:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115670577719463498 Venom and Va...](115868224630084983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868224630084983
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115670577719463498 Venom and Valor Earns Prestigious Recognition as Best Leadership and Resilience Book of 2025: [https:/...
+- [01:31 UTC - Truth Social post 115868215789468319](115868215789468319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868215789468319
+  - _No text content captured._
+- [01:17 UTC - Now featured at the National Portrait Gallery (8th and G Streets NW, Washington, D.C. 2000...](115868163614710077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868163614710077
+  - Now featured at the National Portrait Gallery (8th and G Streets NW, Washington, D.C. 20001)!
+- [01:10 UTC - Mortgage Rates are NOW 5.7%! Mortgage costs were HUGE under Biden (around 8%). That’s why ...](115868134941083354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868134941083354
+  - Mortgage Rates are NOW 5.7%! Mortgage costs were HUGE under Biden (around 8%). That’s why almost no young families could afford a home. With my focus on Housing Affordability, and...
+- [01:10 UTC - Please be informed that we will no longer let the American Public be “ripped off” by Credi...](115868132990949589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115868132990949589
+  - Please be informed that we will no longer let the American Public be “ripped off” by Credit Card Companies that are charging Interest Rates of 20 to 30%, and even more, which feste...

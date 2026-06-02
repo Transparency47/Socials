@@ -1,0 +1,88 @@
+# TruthSocial / RealDonaldTrump / 2025-11-22
+
+- Posts: 28
+
+- [22:53 UTC - Truth Social post 115595804877109856](115595804877109856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595804877109856
+  - _No text content captured._
+- [22:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595800637998041](115595802557799344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595802557799344
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595800637998041
+- [22:52 UTC - Truth Social post 115595800637998041](115595800637998041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595800637998041
+  - _No text content captured._
+- [22:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595794541559331](115595795451504255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595795451504255
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595794541559331
+- [22:50 UTC - Truth Social post 115595794541559331](115595794541559331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595794541559331
+  - _No text content captured._
+- [22:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595792158647587](115595793308641663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595793308641663
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115595792158647587
+- [22:50 UTC - Truth Social post 115595792158647587](115595792158647587/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595792158647587
+  - _No text content captured._
+- [22:48 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) [@ StephenM](https://trut...](115595786066506817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595786066506817
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) [@ StephenM](https://truthsocial.com/@StephenM) : "It is insurrection—plainly, directly, without question... It’s a...
+- [22:44 UTC - Truth Social post 115595768929480863](115595768929480863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595768929480863
+  - _No text content captured._
+- [22:43 UTC - Thank you to Greg Kelly, of Newsmax, for this wonderful piece on sedition — A MUST WATCH!](115595765848682100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595765848682100
+  - Thank you to Greg Kelly, of Newsmax, for this wonderful piece on sedition — A MUST WATCH!
+- [22:43 UTC - Truth Social post 115595764489385388](115595764489385388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595764489385388
+  - _No text content captured._
+- [22:42 UTC - Truth Social post 115595763126000541](115595763126000541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595763126000541
+  - _No text content captured._
+- [22:41 UTC - Truth Social post 115595758863908855](115595758863908855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595758863908855
+  - _No text content captured._
+- [22:41 UTC - Truth Social post 115595758141553066](115595758141553066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595758141553066
+  - _No text content captured._
+- [22:41 UTC - Truth Social post 115595757527864982](115595757527864982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595757527864982
+  - _No text content captured._
+- [22:40 UTC - Truth Social post 115595755773132472](115595755773132472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595755773132472
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 115595739563542073](115595739563542073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595739563542073
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 115595737825518819](115595737825518819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595737825518819
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 115595736719726423](115595736719726423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595736719726423
+  - _No text content captured._
+- [22:35 UTC - Truth Social post 115595735588027079](115595735588027079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595735588027079
+  - _No text content captured._
+- [22:35 UTC - Truth Social post 115595734495764448](115595734495764448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595734495764448
+  - _No text content captured._
+- [22:34 UTC - Truth Social post 115595728693809218](115595728693809218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595728693809218
+  - _No text content captured._
+- [22:33 UTC - Truth Social post 115595727341503158](115595727341503158/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595727341503158
+  - _No text content captured._
+- [22:33 UTC - Truth Social post 115595726024930335](115595726024930335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595726024930335
+  - _No text content captured._
+- [20:38 UTC - Massive crime and rioting in the Chicago Loop area. Multiple Police Officers attacked and ...](115595274389789024/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115595274389789024
+  - Massive crime and rioting in the Chicago Loop area. Multiple Police Officers attacked and badly injured. 300 people rioting, 6 victims shot, one critical and one DEAD. In the meant...
+- [12:01 UTC - I HAVE JUST GOTTEN THE HIGHEST POLL NUMBERS OF MY “POLITICAL CAREER.” While my great work ...](115593240147764609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115593240147764609
+  - I HAVE JUST GOTTEN THE HIGHEST POLL NUMBERS OF MY “POLITICAL CAREER.” While my great work on the Economy has not yet been fully appreciated, it will be! Things are really Rockin’....
+- [11:45 UTC - Marjorie “Traitor” Brown, because of PLUMMETING Poll Numbers, and not wanting to face a Pr...](115593179521083607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115593179521083607
+  - Marjorie “Traitor” Brown, because of PLUMMETING Poll Numbers, and not wanting to face a Primary Challenger with a strong Trump Endorsement (where she would have no chance of winnin...
+- [01:37 UTC - Minnesota, under Governor Waltz, is a hub of fraudulent money laundering activity. I am, a...](115590786862216464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115590786862216464
+  - Minnesota, under Governor Waltz, is a hub of fraudulent money laundering activity. I am, as President of the United States, hereby terminating, effective immediately, the Temporary...

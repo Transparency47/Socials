@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-11-01
+
+- Posts: 13
+
+- [22:09 UTC - Happy Birthday to the GREAT Gary Player. Winner of 18 Majors, 9 Regular, 9 Senior, and 168...](115476722685054429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476722685054429
+  - Happy Birthday to the GREAT Gary Player. Winner of 18 Majors, 9 Regular, 9 Senior, and 168 tournaments, he is TOP 3 All Time. He’s 90 years old, and stronger than ever. WHAT A MAN!...
+- [21:47 UTC - Remember, Republicans, regardless of the Schumer Shutdown, the Democrats will terminate th...](115476637068029863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476637068029863
+  - Remember, Republicans, regardless of the Schumer Shutdown, the Democrats will terminate the Filibuster the first chance they get. They will Pack the Supreme Court, pick up two Stat...
+- [20:43 UTC - If the Nigerian Government continues to allow the killing of Christians, the U.S.A. will i...](115476385101120405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476385101120405
+  - If the Nigerian Government continues to allow the killing of Christians, the U.S.A. will immediately stop all aid and assistance to Nigeria, and may very well go into that now disg...
+- [20:11 UTC - My G2 meeting with President Xi of China was a great one for both of our countries. This m...](115476261248208645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476261248208645
+  - My G2 meeting with President Xi of China was a great one for both of our countries. This meeting will lead to everlasting peace and success. God bless both China and the USA!
+- [20:03 UTC - I will be interviewed tomorrow night on 60 Minutes. Enjoy!!!](115476226653143069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476226653143069
+  - I will be interviewed tomorrow night on 60 Minutes. Enjoy!!!
+- [20:01 UTC - Seth Meyers of NBC may be the least talented person to “perform” live in the history of te...](115476218592581611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115476218592581611
+  - Seth Meyers of NBC may be the least talented person to “perform” live in the history of television. In fact, he may be the WORST to perform, live or otherwise. I watched his show t...
+- [14:36 UTC - Truth Social post 115474943750520720](115474943750520720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474943750520720
+  - _No text content captured._
+- [14:36 UTC - She should go back!](115474943732989523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474943732989523
+  - She should go back!
+- [14:36 UTC - Truth Social post 115474943152358383](115474943152358383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474943152358383
+  - _No text content captured._
+- [14:35 UTC - Truth Social post 115474936698962470](115474936698962470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474936698962470
+  - _No text content captured._
+- [14:34 UTC - Truth Social post 115474934407319810](115474934407319810/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474934407319810
+  - _No text content captured._
+- [14:33 UTC - So bad!](115474932439744266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474932439744266
+  - So bad!
+- [14:32 UTC - Truth Social post 115474927742054623](115474927742054623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115474927742054623
+  - _No text content captured._

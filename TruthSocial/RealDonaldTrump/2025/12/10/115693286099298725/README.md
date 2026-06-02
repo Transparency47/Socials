@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115693286099298725
+- Post URL: https://truthsocial.com/@realDonaldTrump/115693286099298725
+- Title: RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) There has never been a Pr...
+- Date published: 2025-12-10T04:04:08.539000+00:00
+- Date accessed: 2026-06-02T15:31:24.140641+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744665,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@realDonaldTrump\" class=\"u-url mention\">@<span>realDonaldTrump</span></a></span>There has never been a President that has worked as hard as me! My hours are the longest, and my results are among the best. I’ve stopped Eight Wars, saving many millions of lives in the process, created the Greatest Economy in the History of our Country, brought Business back into the United States at levels never seen before, rebuilt our Military, created the Largest Tax Cuts and Regulation Cuts, EVER, closed our open and very dangerous Southern Border, when previous Administrations were unable to do so, and created an “aura” around the United States of America that has led every Country in the World to respect us more than ever before. In addition to all of that, I go out of my way to do long, thorough, and very boring Medical Examinations at the Great Walter Reed National Military Medical Center, seen and supervised by top doctors, all of whom have given me PERFECT Marks — Some have even said they have never seen such Strong Results. I do these Tests because I owe it to our Country. In addition to the Medical, I have done something that no other President has done, on three separate occasions, the last one being recently, by taking what is known as a Cognitive Examination, something which few people would be able to do very well, including those working at The New York Times, and I ACED all three of them in front of large numbers of doctors and experts, most of whom I do not know. I have been told that few people have been able to “ace” this Examination and, in fact, most do very poorly, which is why many other Presidents have decided not to take it at all. Despite all of this, the time and work involved, The New York Times, and some others, like to pretend that I am “slowing up,” am maybe not as sharp as I once was, or am in poor physical health, knowing that it is not true, and knowing that I work very hard, probably harder than I have ever worked before. I will know when I am “slowing up,” but it’s not now! After all of the work I have done with Medical Exams, Cognitive Exams, and everything else, I actually believe it’s seditious, perhaps even treasonous, for The New York Times, and others, to consistently do FAKE reports in order to libel and demean  “THE PRESIDENT OF THE UNITED STATES.” They are true Enemies of the People, and we should do something about it. They have inaccurately reported on all of my Election Results and, in fact, were forced to apologize on much of what they wrote. The best thing that could happen to this Country would be if The New York Times would cease publication because they are a horrible, biased, and untruthful “source” of information. Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN!</p>",
+    "created_at": "2025-12-10T04:04:08.539Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "115693286099298725",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": false,
+        "acct": "realDonaldTrump",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-11T16:16:57.705Z",
+        "discoverable": false,
+        "display_name": "Donald J. Trump",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 12744665,
+        "following_count": 69,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "id": "107780257626128497",
+        "last_status_at": "2026-06-02",
+        "location": "",
+        "locked": false,
+        "note": "<p></p>",
+        "premium": true,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 34030,
+        "tv_account": false,
+        "tv_onboarded": false,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@realDonaldTrump",
+        "username": "realDonaldTrump",
+        "verified": true,
+        "website": "www.DonaldJTrump.com"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>There has never been a President that has worked as hard as me! My hours are the longest, and my results are among the best. I’ve stopped Eight Wars, saving many millions of lives in the process, created the Greatest Economy in the History of our Country, brought Business back into the United States at levels never seen before, rebuilt our Military, created the Largest Tax Cuts and Regulation Cuts, EVER, closed our open and very dangerous Southern Border, when previous Administrations were unable to do so, and created an “aura” around the United States of America that has led every Country in the World to respect us more than ever before. In addition to all of that, I go out of my way to do long, thorough, and very boring Medical Examinations at the Great Walter Reed National Military Medical Center, seen and supervised by top doctors, all of whom have given me PERFECT Marks — Some have even said they have never seen such Strong Results. I do these Tests because I owe it to our Country. In addition to the Medical, I have done something that no other President has done, on three separate occasions, the last one being recently, by taking what is known as a Cognitive Examination, something which few people would be able to do very well, including those working at The New York Times, and I ACED all three of them in front of large numbers of doctors and experts, most of whom I do not know. I have been told that few people have been able to “ace” this Examination and, in fact, most do very poorly, which is why many other Presidents have decided not to take it at all. Despite all of this, the time and work involved, The New York Times, and some others, like to pretend that I am “slowing up,” am maybe not as sharp as I once was, or am in poor physical health, knowing that it is not true, and knowing that I work very hard, probably harder than I have ever worked before. I will know when I am “slowing up,” but it’s not now! After all of the work I have done with Medical Exams, Cognitive Exams, and everything else, I actually believe it’s seditious, perhaps even treasonous, for The New York Times, and others, to consistently do FAKE reports in order to libel and demean  “THE PRESIDENT OF THE UNITED STATES.” They are true Enemies of the People, and we should do something about it. They have inaccurately reported on all of my Election Results and, in fact, were forced to apologize on much of what they wrote. The best thing that could happen to this Country would be if The New York Times would cease publication because they are a horrible, biased, and untruthful “source” of information. Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN!</p>",
+      "created_at": "2025-12-10T02:11:29.339Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 37962,
+      "group": null,
+      "id": "115692843128539904",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 9668,
+      "replies_count": 9013,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 37962,
+      "uri": "https://truthsocial.com/@realDonaldTrump/115692843128539904",
+      "url": "https://truthsocial.com/@realDonaldTrump/115692843128539904",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115693286099298725",
+    "url": "https://truthsocial.com/@realDonaldTrump/115693286099298725",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

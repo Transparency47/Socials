@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-12-15
+
+- Posts: 11
+
+- [21:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115567293174185547 NEW RELEASE:...](115725803987363092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115725803987363092
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115567293174185547 NEW RELEASE: Get your copy of Scott Jennings’ GREAT Book today: [https://www. amazon.com/Revolution-Co...
+- [14:51 UTC - A very sad thing happened last night in Hollywood. Rob Reiner, a tortured and struggling, ...](115724141568860081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115724141568860081
+  - A very sad thing happened last night in Hollywood. Rob Reiner, a tortured and struggling, but once very talented movie director and comedy star, has passed away, together with his...
+- [13:21 UTC - RT [@ hanssalten](https://truthsocial.com/@hanssalten) Do NOT let corrupt and incompetent ...](115723789685784051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723789685784051
+  - RT [@ hanssalten](https://truthsocial.com/@hanssalten) Do NOT let corrupt and incompetent Democrats blame Republicans for the Democrats abuse and squander of the American dream. De...
+- [13:09 UTC - RT [@ SongofGrace](https://truthsocial.com/@SongofGrace) 💯 I trust my President, [@ realDo...](115723741748071230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723741748071230
+  - RT [@ SongofGrace](https://truthsocial.com/@SongofGrace) 💯 I trust my President, [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) !
+- [13:09 UTC - RT [@ DMcKin68](https://truthsocial.com/@DMcKin68)](115723740988431602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723740988431602
+  - RT [@ DMcKin68](https://truthsocial.com/@DMcKin68)
+- [13:08 UTC - RT [@ SomethinG00D](https://truthsocial.com/@SomethinG00D)](115723737240814821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723737240814821
+  - RT [@ SomethinG00D](https://truthsocial.com/@SomethinG00D)
+- [13:07 UTC - RT [@ inkster](https://truthsocial.com/@inkster) Takes time to fix 4 years of destruction.](115723732358773802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723732358773802
+  - RT [@ inkster](https://truthsocial.com/@inkster) Takes time to fix 4 years of destruction.
+- [13:06 UTC - RT [@ desertsunset1](https://truthsocial.com/@desertsunset1) Press Secretary Leavitt, than...](115723731715188850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723731715188850
+  - RT [@ desertsunset1](https://truthsocial.com/@desertsunset1) Press Secretary Leavitt, thank you for being awesome in every way…You are incredibly well-versed and professional in ke...
+- [13:05 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)](115723726120792675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723726120792675
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)
+- [13:05 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) President Trump has t...](115723725056711325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723725056711325
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) President Trump has turned the “Biden- Depression” into the [# NewGoldenAge](https://truthsocial.com/tags/NewGo...
+- [13:04 UTC - RT [@ PressSec](https://truthsocial.com/@PressSec) We know that Americans are still hurtin...](115723721796049924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115723721796049924
+  - RT [@ PressSec](https://truthsocial.com/@PressSec) We know that Americans are still hurting from the 40-year high inflation caused by Joe Biden and the Democrats, but President Tru...

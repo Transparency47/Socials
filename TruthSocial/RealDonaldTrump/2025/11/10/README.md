@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-11-10
+
+- Posts: 15
+
+- [23:02 UTC - Truth Social post 115527891580433136](115527891580433136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527891580433136
+  - _No text content captured._
+- [23:01 UTC - Truth Social post 115527890275887289](115527890275887289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527890275887289
+  - _No text content captured._
+- [23:01 UTC - Truth Social post 115527889237046350](115527889237046350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527889237046350
+  - _No text content captured._
+- [22:59 UTC - Truth Social post 115527879780551963](115527879780551963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527879780551963
+  - _No text content captured._
+- [21:41 UTC - Former FBI Special Agent Nicole Parker has written a powerful new Book, “The Two FBIs: The...](115527575773543165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527575773543165
+  - Former FBI Special Agent Nicole Parker has written a powerful new Book, “The Two FBIs: The Bravery and Betrayal I Saw in My Time at the Bureau.” Nicole is a strong voice for elimin...
+- [20:22 UTC - HAPPY 250TH BIRTHDAY TO OUR INCREDIBLE UNITED STATES MARINE CORPS! FROM ITS FOUNDING AT TU...](115527262176895128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527262176895128
+  - HAPPY 250TH BIRTHDAY TO OUR INCREDIBLE UNITED STATES MARINE CORPS! FROM ITS FOUNDING AT TUN TAVERN IN PHILADELPHIA, TO THE SANDS OF IWO JIMA, KOREA, VIETNAM, AND THE MIDDLE EAST, A...
+- [19:55 UTC - The “Pay Back” Numbers being quoted by the Radical Left Lunatics, who would love to see us...](115527159095475127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115527159095475127
+  - The “Pay Back” Numbers being quoted by the Radical Left Lunatics, who would love to see us lose on Tariffs because of how bad it would be for our Country, are much higher than thos...
+- [15:43 UTC - All money left over from the $2000 payments made to low and middle income USA Citizens, fr...](115526165519672797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115526165519672797
+  - All money left over from the $2000 payments made to low and middle income USA Citizens, from the massive Tariff Income pouring into our Country from foreign countries, which will b...
+- [15:32 UTC - All Air Traffic Controllers must get back to work, NOW!!! Anyone who doesn’t will be subst...](115526123205979749/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115526123205979749
+  - All Air Traffic Controllers must get back to work, NOW!!! Anyone who doesn’t will be substantially “docked.” For those Air Traffic Controllers who were GREAT PATRIOTS, and didn’t t...
+- [14:44 UTC - Truth Social post 115525935004661142](115525935004661142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525935004661142
+  - _No text content captured._
+- [13:45 UTC - Truth Social post 115525703625699159](115525703625699159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525703625699159
+  - _No text content captured._
+- [13:29 UTC - Truth Social post 115525641692505805](115525641692505805/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525641692505805
+  - _No text content captured._
+- [13:28 UTC - Truth Social post 115525636532373104](115525636532373104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525636532373104
+  - _No text content captured._
+- [13:28 UTC - Truth Social post 115525634593510433](115525634593510433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525634593510433
+  - _No text content captured._
+- [13:15 UTC - Liz Peek is great on Maria Bartiromo. She really gets it. Thank you Liz!](115525582895720508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115525582895720508
+  - Liz Peek is great on Maria Bartiromo. She really gets it. Thank you Liz!

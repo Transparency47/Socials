@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-11-08
+
+- Posts: 17
+
+- [22:56 UTC - TERMINATE THE FILIBUSTER!](115516544869113613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115516544869113613
+  - TERMINATE THE FILIBUSTER!
+- [22:55 UTC - Make America Great Again!!!](115516542005966562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115516542005966562
+  - Make America Great Again!!!
+- [22:55 UTC - Watch Mark Levin and Lara Trump tonight on FoxNews, 8 to 10 P.M. Two very SPECIAL shows ar...](115516539764708833/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115516539764708833
+  - Watch Mark Levin and Lara Trump tonight on FoxNews, 8 to 10 P.M. Two very SPECIAL shows are planned. Enjoy!!!
+- [22:33 UTC - NO MORE MONEY, HUNDREDS OF BILLIONS OF DOLLARS, TO THE DEMOCRAT SUPPORTED INSURANCE COMPAN...](115516453396913877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115516453396913877
+  - NO MORE MONEY, HUNDREDS OF BILLIONS OF DOLLARS, TO THE DEMOCRAT SUPPORTED INSURANCE COMPANIES FOR REALLY BAD OBAMACARE. THE MONEY MUST NOW GO DIRECTLY TO THE PEOPLE, TAKING THE “FA...
+- [20:32 UTC - Watch the All New “ABOVE, BELOW & BEYOND: A PRESIDENTIAL SPECIAL” airing tomorrow on FOX N...](115515978292380146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115515978292380146
+  - Watch the All New “ABOVE, BELOW & BEYOND: A PRESIDENTIAL SPECIAL” airing tomorrow on FOX Nation, celebrating 250 years of the United States Navy and Marine Corps!
+- [18:36 UTC - The Democrats are cracking like dogs on the Shutdown because they are deathly afraid that ...](115515520504887050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115515520504887050
+  - The Democrats are cracking like dogs on the Shutdown because they are deathly afraid that I am making progress with the Republicans on TERMINATING THE FILIBUSTER! Whether we make a...
+- [18:10 UTC - Truth Social post 115515420947464459](115515420947464459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115515420947464459
+  - _No text content captured._
+- [18:10 UTC - Truth Social post 115515420151896895](115515420151896895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115515420151896895
+  - _No text content captured._
+- [14:04 UTC - I am recommending to Senate Republicans that the Hundreds of Billions of Dollars currently...](115514453574326959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115514453574326959
+  - I am recommending to Senate Republicans that the Hundreds of Billions of Dollars currently being sent to money sucking Insurance Companies in order to save the bad Healthcare provi...
+- [13:40 UTC - The Democrats are winning in that they are destroying our great, miracle economy, which is...](115514359098158106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115514359098158106
+  - The Democrats are winning in that they are destroying our great, miracle economy, which is exactly what they set out to do. TERMINATE THE FILIBUSTER!
+- [13:14 UTC - Truth Social post 115514256931323441](115514256931323441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115514256931323441
+  - _No text content captured._
+- [04:55 UTC - Big News. A Rigged Election! [https:// justthenews.com/government/sec urity/j6-shocker-fbi...](115512295613216843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115512295613216843
+  - Big News. A Rigged Election! [https:// justthenews.com/government/sec urity/j6-shocker-fbi-informants-warned-armed-violence-antifa-presence-riot-lawmaker](https://justthenews.com/g...
+- [02:42 UTC - Truth Social post 115511772163607334](115511772163607334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511772163607334
+  - _No text content captured._
+- [01:21 UTC - Vivek Ramaswamy is running for Governor of the Great State of Ohio, a place I love and WON...](115511452695728702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511452695728702
+  - Vivek Ramaswamy is running for Governor of the Great State of Ohio, a place I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024! I know Vivek well, competed against him, and h...
+- [01:19 UTC - RT [@ RogerMarshallMD](https://truthsocial.com/@RogerMarshallMD) Every day Democrats drag ...](115511443931476605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511443931476605
+  - RT [@ RogerMarshallMD](https://truthsocial.com/@RogerMarshallMD) Every day Democrats drag out this shutdown, they make a stronger case for ending the filibuster. Unless someone can...
+- [01:11 UTC - Yesterday, it was my Great Honor to host a Summit at the White House with the Presidents o...](115511412965888296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511412965888296
+  - Yesterday, it was my Great Honor to host a Summit at the White House with the Presidents of five incredible Countries, Kassym-Jomart Tokayev, of Kazakhstan, Shavkat Mirziyoyev, of...
+- [00:46 UTC - It’s time for Republican Senators to stop playing games with the Radical Left Democrats an...](115511314225352462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511314225352462
+  - It’s time for Republican Senators to stop playing games with the Radical Left Democrats and TERMINATE THE FILIBUSTER, IMMEDIATELY OPEN OUR COUNTRY, AND PASS GREAT COMMON SENSE LEGI...

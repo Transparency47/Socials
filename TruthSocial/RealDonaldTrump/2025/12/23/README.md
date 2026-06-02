@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-12-23
+
+- Posts: 13
+
+- [23:16 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE TRUMP KENNEDY CENTER ...](115771425501030740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115771425501030740
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount+. Tune in at 8 P.M. EST!...
+- [23:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115771424134739431 Thank you Jo...](115771425061663851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115771425061663851
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115771424134739431 Thank you Joshua. Total Crooks!!!
+- [23:15 UTC - Truth Social post 115771424134739431](115771424134739431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115771424134739431
+  - _No text content captured._
+- [18:46 UTC - Highly Respected Congresswoman, Harriet Hageman, is running for the United States Senate i...](115770367420942580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115770367420942580
+  - Highly Respected Congresswoman, Harriet Hageman, is running for the United States Senate in the Great State of Wyoming, a place I love and WON BIG in 2016, 2020, and 2024! I know H...
+- [17:55 UTC - THE TRUMP RULE: The Financial News today was great — GDP up 4.2% as opposed to the predict...](115770165868454573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115770165868454573
+  - THE TRUMP RULE: The Financial News today was great — GDP up 4.2% as opposed to the predicted 2.5% (and this, despite the downward pressure of the recent Democrat Shutdown!) — But i...
+- [15:11 UTC - Q3 GDP came in at 4.3%, BLOWING PAST expectations of 3.2%. 60 of 61 Bloomberg Economists g...](115769520157248739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115769520157248739
+  - Q3 GDP came in at 4.3%, BLOWING PAST expectations of 3.2%. 60 of 61 Bloomberg Economists got it WRONG, but “TRUMP,” and some other Geniuses, got it right. The SUCCESS is due to Goo...
+- [14:55 UTC - THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount...](115769455906748881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115769455906748881
+  - THE TRUMP KENNEDY CENTER HONORS will be broadcast tonight, on CBS, and Stream on Paramount+. Tune in at 8 P.M. EST! At the request of the Board, and just about everybody else in Am...
+- [14:45 UTC - I had two wonderful telephone calls this morning with Kassym-Jomart Tokayev, the President...](115769417518541473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115769417518541473
+  - I had two wonderful telephone calls this morning with Kassym-Jomart Tokayev, the President of the Republic of Kazakhstan, and Shavkat Mirziyoyev, the President of the Republic of U...
+- [14:16 UTC - The TARIFFS are responsible for the GREAT USA Economic Numbers JUST ANNOUNCED…AND THEY WIL...](115769302680506780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115769302680506780
+  - The TARIFFS are responsible for the GREAT USA Economic Numbers JUST ANNOUNCED…AND THEY WILL ONLY GET BETTER! Also, NO INFLATION & GREAT NATIONAL SECURITY. Pray for the U.S. Supreme...
+- [05:32 UTC - The Failing New York Times, and their lies and purposeful misrepresentations, is a serious...](115767241940653010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115767241940653010
+  - The Failing New York Times, and their lies and purposeful misrepresentations, is a serious threat to the National Security of our Nation. Their Radical Left, Unhinged Behavior, wri...
+- [02:07 UTC - Truth Social post 115766436001136705](115766436001136705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115766436001136705
+  - _No text content captured._
+- [02:04 UTC - Truth Social post 115766427527255324](115766427527255324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115766427527255324
+  - _No text content captured._
+- [01:05 UTC - Thank you to highly respected Alex Marlow, Editor-In-Chief of Breitbart, for his nice word...](115766194471748593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115766194471748593
+  - Thank you to highly respected Alex Marlow, Editor-In-Chief of Breitbart, for his nice words on The Ingraham Angle. Likewise to Jason Miller and Rod Blagojevich. So nice!!! Presiden...

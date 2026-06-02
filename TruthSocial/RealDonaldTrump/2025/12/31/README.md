@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-12-31
+
+- Posts: 16
+
+- [21:54 UTC - Good News! George and Amal Clooney, two of the worst political prognosticators of all time...](115816402893182666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115816402893182666
+  - Good News! George and Amal Clooney, two of the worst political prognosticators of all time, have officially become citizens of France which is, sadly, in the midst of a major crime...
+- [20:55 UTC - We are removing the National Guard from Chicago, Los Angeles, and Portland, despite the fa...](115816171466225987/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115816171466225987
+  - We are removing the National Guard from Chicago, Los Angeles, and Portland, despite the fact that CRIME has been greatly reduced by having these great Patriots in those cities, and...
+- [20:36 UTC - The Democrats are a bunch of cheaters and thieves that never want to do what’s good for Am...](115816098525451632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115816098525451632
+  - The Democrats are a bunch of cheaters and thieves that never want to do what’s good for America. As an example, they refuse to even consider Voter Identification. Why??? Because th...
+- [20:28 UTC - Republicans: No more money to Fat Cat Insurance Companies. The money must go directly to t...](115816063544553030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115816063544553030
+  - Republicans: No more money to Fat Cat Insurance Companies. The money must go directly to the people to buy their own Healthcare. President DJT
+- [20:04 UTC - The United States has set a World Record on investments being made into a Country, and it ...](115815971019162695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815971019162695
+  - The United States has set a World Record on investments being made into a Country, and it is Trillions of Dollars more than number two, China. This is singularly because of TARIFFS...
+- [18:44 UTC - A total FRAUD! Minnesota Somali-run day care bizarrely reports all their important documen...](115815655902009476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815655902009476
+  - A total FRAUD! Minnesota Somali-run day care bizarrely reports all their important documents about child care were stolen in mysterious break-in: [https:// nypost.com/2025/12/31/us...
+- [18:43 UTC - Minnesota day care scandal sparks concern over election policy that allows a voter to ‘vou...](115815651158028007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815651158028007
+  - Minnesota day care scandal sparks concern over election policy that allows a voter to ‘vouch’ for others: ‘Made for fraud’: [https:// nypost.com/2025/12/31/us-news/ minnesota-day-c...
+- [18:42 UTC - Putin ‘attack’ bluster shows Russia is the one standing in the way of peace: [https:// nyp...](115815648382815071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815648382815071
+  - Putin ‘attack’ bluster shows Russia is the one standing in the way of peace: [https:// nypost.com/2025/12/30/opinion/ putin-attack-bluster-shows-russia-is-one-standing-in-way-of-pe...
+- [18:32 UTC - Douglas Murray: Trump cleaned up crime in DC – and taught everyone a lesson in public safe...](115815610061050583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815610061050583
+  - Douglas Murray: Trump cleaned up crime in DC – and taught everyone a lesson in public safety: [https:// nypost.com/2025/12/18/opinion/ douglas-murray-trump-cleaned-up-crime-in-dc-a...
+- [17:27 UTC - God Bless Tina Peters, who is now, for two years out of nine, sitting in a Colorado Maximu...](115815355325954705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115815355325954705
+  - God Bless Tina Peters, who is now, for two years out of nine, sitting in a Colorado Maximum Security Prison, at the age of 73, and sick, for the “crime” of trying to stop the massi...
+- [15:55 UTC - Much of the Minnesota Fraud, up to 90%, is caused by people that came into our Country, il...](115814993074933464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115814993074933464
+  - Much of the Minnesota Fraud, up to 90%, is caused by people that came into our Country, illegally, from Somalia. “Congresswoman” Omar, an ungrateful loser who only complains and ne...
+- [15:15 UTC - There is more FRAUD in California than there is in Minnesota, if that is even possible. Wh...](115814835032750025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115814835032750025
+  - There is more FRAUD in California than there is in Minnesota, if that is even possible. When you add in Election Fraud, then they are tied for first. Two Crooked Governors, two Cro...
+- [14:26 UTC - Tim Waltz of Minnesota is a Crooked Governor!!!](115814640881301083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115814640881301083
+  - Tim Waltz of Minnesota is a Crooked Governor!!!
+- [13:58 UTC - California and Colorado are two of the TOP OUTBOUND STATES IN 2025 (United Van Lines!) - I...](115814530455966257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115814530455966257
+  - California and Colorado are two of the TOP OUTBOUND STATES IN 2025 (United Van Lines!) - In other words, PEOPLE LEAVING!!! That’s what bad governors do to even places blessed with...
+- [13:22 UTC - Paul Perez and the Border Patrol have done a fantastic job, and so proud that more than ha...](115814390834030545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115814390834030545
+  - Paul Perez and the Border Patrol have done a fantastic job, and so proud that more than half are of Hispanic heritage, which Los Angeles’ incompetent Mayor, Karen Bass (who hasn’t...
+- [02:58 UTC - The polls are rigged even more than the writers. The real number is 64%, and why not, our ...](115811936714151078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115811936714151078
+  - The polls are rigged even more than the writers. The real number is 64%, and why not, our Country is “hotter” than ever before. Isn’t it nice to have a STRONG BORDER, No Inflation,...

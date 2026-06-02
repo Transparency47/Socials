@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-10-30
+
+- Posts: 14
+
+- [17:57 UTC - For all Great Law Enforcement Patriots who would like to join the World’s Premier Law Enfo...](115464409692406079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464409692406079
+  - For all Great Law Enforcement Patriots who would like to join the World’s Premier Law Enforcement Task Force, where Police Officers are fully allowed and empowered to do their job...
+- [17:57 UTC - [https://www. foxnews.com/politics/fbi-fires -agents-dismantles-corruption-squad-after-pro...](115464407330482685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464407330482685
+  - [https://www. foxnews.com/politics/fbi-fires -agents-dismantles-corruption-squad-after-probe-unveils-monitoring-gop-senators-patel-says](https://www.foxnews.com/politics/fbi-fires-...
+- [17:57 UTC - Chris Wright: "A former Lawrence Berkeley National Lab scientist won the Nobel Prize in ph...](115464406342534500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464406342534500
+  - Chris Wright: "A former Lawrence Berkeley National Lab scientist won the Nobel Prize in physics for work in Quantum physics. Quantum computing, along with AI and Fusion, are the th...
+- [17:56 UTC - [https://www. businessinsider.com/jensen-hua ng-nvidia-ceo-sponsor-h1bs-memo-2025-10](http...](115464405163293762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464405163293762
+  - [https://www. businessinsider.com/jensen-hua ng-nvidia-ceo-sponsor-h1bs-memo-2025-10](https://www.businessinsider.com/jensen-huang-nvidia-ceo-sponsor-h1bs-memo-2025-10)
+- [17:56 UTC - [https:// dailycaller.com/2025/10/06/gri m-reaper-russ-vought-omb-democrats-donald-trump-s...](115464404432376802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464404432376802
+  - [https:// dailycaller.com/2025/10/06/gri m-reaper-russ-vought-omb-democrats-donald-trump-shutdown-government/](https://dailycaller.com/2025/10/06/grim-reaper-russ-vought-omb-democr...
+- [17:56 UTC - [https://www. stonecoldtruth.com/p/why-i-was -gagged-by-a-federal-judge](https://www.stone...](115464403717688752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464403717688752
+  - [https://www. stonecoldtruth.com/p/why-i-was -gagged-by-a-federal-judge](https://www.stonecoldtruth.com/p/why-i-was-gagged-by-a-federal-judge)
+- [16:48 UTC - Truth Social post 115464137633399560](115464137633399560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464137633399560
+  - _No text content captured._
+- [16:45 UTC - I am more confident than ever that the friendship between the United States and Japan is s...](115464125214326353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464125214326353
+  - I am more confident than ever that the friendship between the United States and Japan is strong—It's thriving, it's prosperous, and it will soon be greater than ever before!🇺🇸🇯🇵
+- [16:41 UTC - Heading back to Washington, D.C. after a Historic trip to Asia! “𝗣𝗿𝗲𝘀𝗶𝗱𝗲𝗻𝘁 𝗗𝗼𝗻𝗮𝗹𝗱 𝗝. 𝗧𝗿𝘂𝗺𝗽...](115464111207583333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115464111207583333
+  - Heading back to Washington, D.C. after a Historic trip to Asia! “𝗣𝗿𝗲𝘀𝗶𝗱𝗲𝗻𝘁 𝗗𝗼𝗻𝗮𝗹𝗱 𝗝. 𝗧𝗿𝘂𝗺𝗽 𝗕𝗿𝗶𝗻𝗴𝘀 𝗛𝗼𝗺𝗲 𝗠𝗼𝗿𝗲 𝗕𝗶𝗹𝗹𝗶𝗼𝗻 𝗗𝗼𝗹𝗹𝗮𝗿 𝗗𝗲𝗮𝗹𝘀 𝗗𝘂𝗿𝗶𝗻𝗴 𝗦𝘁𝗮𝘁𝗲 𝗩𝗶𝘀𝗶𝘁 𝘁𝗼 𝘁𝗵𝗲 𝗥𝗲𝗽𝘂𝗯𝗹𝗶𝗰 𝗼𝗳 𝗞𝗼𝗿𝗲𝗮” [https...
+- [13:59 UTC - He is a CRIMINAL AND SHOULD BE IN JAIL. A MAJOR LOWLIFE AND FAILURE. An ugly person, both ...](115463473432662826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115463473432662826
+  - He is a CRIMINAL AND SHOULD BE IN JAIL. A MAJOR LOWLIFE AND FAILURE. An ugly person, both inside and out! I beat him badly, and love watching him squirm now. [https:// justthenews....
+- [08:09 UTC - I had a truly great meeting with President Xi of China. There is enormous respect between ...](115462098072054944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115462098072054944
+  - I had a truly great meeting with President Xi of China. There is enormous respect between our two Countries, and that will only be enhanced with what just took place. We agreed on...
+- [07:46 UTC - Worked really hard, 24/7, took in Trillions of Dollars, and Chuck Schumer said trip was “a...](115462006949579771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115462006949579771
+  - Worked really hard, 24/7, took in Trillions of Dollars, and Chuck Schumer said trip was “a total dud,” even though he knows it was a spectacular success. Words like that are almost...
+- [01:08 UTC - THE G2 WILL BE CONVENING SHORTLY!](115460439199531354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115460439199531354
+  - THE G2 WILL BE CONVENING SHORTLY!
+- [01:04 UTC - The United States has more Nuclear Weapons than any other country. This was accomplished, ...](115460423936412555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115460423936412555
+  - The United States has more Nuclear Weapons than any other country. This was accomplished, including a complete update and renovation of existing weapons, during my First Term in of...

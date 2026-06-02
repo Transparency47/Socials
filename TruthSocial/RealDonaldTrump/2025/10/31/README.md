@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-10-31
+
+- Posts: 15
+
+- [22:10 UTC - Our Government lawyers do not think we have the legal authority to pay SNAP with certain m...](115471065919157533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115471065919157533
+  - Our Government lawyers do not think we have the legal authority to pay SNAP with certain monies we have available, and now two Courts have issued conflicting opinions on what we ca...
+- [18:09 UTC - Christianity is facing an existential threat in Nigeria. Thousands of Christians are being...](115470116607441456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115470116607441456
+  - Christianity is facing an existential threat in Nigeria. Thousands of Christians are being killed. Radical Islamists are responsible for this mass slaughter. I am hereby making Nig...
+- [17:47 UTC - I just inspected the construction on The Kennedy Center. It is really looking good! The ex...](115470031277654302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115470031277654302
+  - I just inspected the construction on The Kennedy Center. It is really looking good! The exterior columns, which were in serious danger of corrosion if something weren’t done, are c...
+- [17:24 UTC - The Refurbished Lincoln Bathroom in the White House — Highly polished, Statuary marble!](115469942090837414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469942090837414
+  - The Refurbished Lincoln Bathroom in the White House — Highly polished, Statuary marble!
+- [17:24 UTC - Truth Social post 115469940475459112](115469940475459112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469940475459112
+  - _No text content captured._
+- [17:24 UTC - Truth Social post 115469939036283137](115469939036283137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469939036283137
+  - _No text content captured._
+- [17:23 UTC - Truth Social post 115469936930114974](115469936930114974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469936930114974
+  - _No text content captured._
+- [17:22 UTC - Truth Social post 115469934613810277](115469934613810277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469934613810277
+  - _No text content captured._
+- [17:22 UTC - Truth Social post 115469932908965879](115469932908965879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469932908965879
+  - _No text content captured._
+- [17:02 UTC - I renovated the Lincoln Bathroom in the White House. It was renovated in the 1940s in an a...](115469852646643521/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469852646643521
+  - I renovated the Lincoln Bathroom in the White House. It was renovated in the 1940s in an art deco green tile style, which was totally inappropriate for the Lincoln Era. I did it in...
+- [15:46 UTC - “President Donald J. Trump Brings Home More Billion Dollar Deals During State Visit to the...](115469554183399273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469554183399273
+  - “President Donald J. Trump Brings Home More Billion Dollar Deals During State Visit to the Republic of Korea” [https://www. whitehouse.gov/fact-sheets/202 5/10/fact-sheet-president...
+- [15:40 UTC - Truth Social post 115469531855464467](115469531855464467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115469531855464467
+  - _No text content captured._
+- [02:36 UTC - I just got back from Asia where I met the Leaders of many Countries, including China, Japa...](115466450476422202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115466450476422202
+  - I just got back from Asia where I met the Leaders of many Countries, including China, Japan, South Korea, Malaysia, Australia, Canada, New Zealand, Singapore, Thailand, Cambodia, V...
+- [02:36 UTC - ….BECAUSE OF THE FACT THAT THE DEMOCRATS HAVE GONE STONE COLD “CRAZY,” THE CHOICE IS CLEAR...](115466449868630054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115466449868630054
+  - ….BECAUSE OF THE FACT THAT THE DEMOCRATS HAVE GONE STONE COLD “CRAZY,” THE CHOICE IS CLEAR — INITIATE THE “NUCLEAR OPTION,” GET RID OF THE FILIBUSTER AND, MAKE AMERICA GREAT AGAIN!
+- [00:46 UTC - As I have said for years, OBAMACARE IS A DISASTER! Rates are going through the roof for re...](115466017324489749/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115466017324489749
+  - As I have said for years, OBAMACARE IS A DISASTER! Rates are going through the roof for really bad healthcare!!! Do something Democrats!!!

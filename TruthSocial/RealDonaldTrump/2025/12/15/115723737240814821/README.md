@@ -1,0 +1,361 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115723737240814821
+- Post URL: https://truthsocial.com/@realDonaldTrump/115723737240814821
+- Title: RT [@ SomethinG00D](https://truthsocial.com/@SomethinG00D)
+- Date published: 2025-12-15T13:08:16.081000+00:00
+- Date accessed: 2026-06-02T15:29:11.546802+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744658,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@SomethinG00D\" class=\"u-url mention\">@<span>SomethinG00D</span></a></span></p>",
+    "created_at": "2025-12-15T13:08:16.081Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "115723737240814821",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": true,
+        "acct": "SomethinG00D",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/114/888/824/400/402/993/original/f8e7d967c277bddc.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/114/888/824/400/402/993/original/f8e7d967c277bddc.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2025-07-21T02:18:57.166Z",
+        "discoverable": true,
+        "display_name": "SomethinG00D",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 310,
+        "following_count": 16,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/114/888/824/400/402/993/original/1a6d7633a0d9f882.png",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/114/888/824/400/402/993/original/1a6d7633a0d9f882.png",
+        "id": "114888824400402993",
+        "last_status_at": "2026-06-01",
+        "location": "",
+        "locked": false,
+        "note": "<p>\"Gift from GOD\"-Zane \"Promptus\"-Russell \"Æthelstan\"-Æston<br/>July 9, 1993<br/>Welcome to the (T) party.</p>",
+        "premium": true,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 6947,
+        "tv_account": false,
+        "tv_onboarded": true,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@SomethinG00D",
+        "username": "SomethinG00D",
+        "verified": true,
+        "website": ""
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p></p>",
+      "created_at": "2025-11-26T04:38:37.942Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 9179,
+      "group": null,
+      "id": "115614149371708314",
+      "in_reply_to": {
+        "account": {
+          "accepting_messages": true,
+          "acct": "PressSec",
+          "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/114/185/734/110/788/881/original/d05c006618c49b31.jpeg",
+          "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/114/185/734/110/788/881/original/d05c006618c49b31.jpeg",
+          "bot": false,
+          "chats_onboarded": true,
+          "created_at": "2025-03-18T22:13:50.747Z",
+          "discoverable": true,
+          "display_name": "Karoline Leavitt",
+          "emojis": [],
+          "feeds_onboarded": true,
+          "fields": [],
+          "followers_count": 3634316,
+          "following_count": 4,
+          "group": false,
+          "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/114/185/734/110/788/881/original/16230cbbb3d7bc37.jpeg",
+          "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/114/185/734/110/788/881/original/16230cbbb3d7bc37.jpeg",
+          "id": "114185734110788881",
+          "last_status_at": "2026-04-30",
+          "location": "Washington, DC",
+          "locked": false,
+          "note": "<p>Assistant to the President and White House Press Secretary</p>",
+          "premium": false,
+          "show_nonmember_group_statuses": false,
+          "statuses_count": 3075,
+          "tv_account": false,
+          "tv_onboarded": true,
+          "unauth_visibility": true,
+          "url": "https://truthsocial.com/@PressSec",
+          "username": "PressSec",
+          "verified": true,
+          "website": "wh.gov"
+        },
+        "bookmarked": false,
+        "card": null,
+        "content": "<p>We know that Americans are still hurting from the 40-year high inflation caused by Joe Biden and the Democrats, but President Trump is making significant progress to fix it, and he won’t stop working until he solves it:</p><p>✅The latest jobs report showed the American economy remains strong with 119,000 new jobs added – more than double expectations. In particular, construction jobs surged by 19,000 in the month of September, the largest monthly gain in a year.</p><p>✅Inflation remains under control and real wages are on pace to increase roughly $1,200 for the average worker. This is a complete reversal of the failed Biden era where we saw inflation skyrocket to 9%, causing private sector workers to see their real wages decline by approximately $3,000 dollars.</p><p>✅Since President Trump took office, all employment gains have gone to native-born workers rather than foreigners like we saw under Biden.</p><p>Trust in Trump.</p>",
+        "created_at": "2025-11-20T20:40:05.898Z",
+        "downvotes_count": 0,
+        "editable": false,
+        "edited_at": null,
+        "emojis": [],
+        "favourited": false,
+        "favourites_count": 15291,
+        "group": null,
+        "id": "115583956149724264",
+        "in_reply_to": null,
+        "in_reply_to_account_id": null,
+        "in_reply_to_id": null,
+        "language": "en",
+        "media_attachments": [
+          {
+            "blurhash": "UKC$[@%2IAw^0Ms-xBxZ_NodV?NbIUxaxbR+",
+            "description": null,
+            "external_video_id": "v6ztr12",
+            "id": "115583941779785283",
+            "meta": {
+              "colors": {
+                "accent": "#b396a2",
+                "background": "#070822",
+                "foreground": "#edeae9"
+              },
+              "original": {
+                "bitrate": 1107079,
+                "duration": 90.690233,
+                "frame_rate": "30000/1001",
+                "height": 720,
+                "width": 1280
+              },
+              "small": {
+                "aspect": 1.7783333333333333,
+                "height": 600,
+                "size": "1067x600",
+                "width": 1067
+              }
+            },
+            "preview_remote_url": null,
+            "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/thumbnails/115/583/941/779/785/283/original/46b760a2fe162d28.jpg",
+            "processing": "complete",
+            "remote_url": null,
+            "text_url": null,
+            "type": "video",
+            "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/583/941/779/785/283/original/27d9dcc3e07b07c4.mp4"
+          }
+        ],
+        "mentions": [],
+        "muted": false,
+        "pinned": false,
+        "poll": null,
+        "quote": null,
+        "quote_id": null,
+        "reaction": null,
+        "reblog": null,
+        "reblogged": false,
+        "reblogs_count": 4259,
+        "replies_count": 1097,
+        "sensitive": false,
+        "spoiler_text": "",
+        "sponsored": false,
+        "tags": [],
+        "title": null,
+        "upvotes_count": 15291,
+        "uri": "https://truthsocial.com/@PressSec/115583956149724264",
+        "url": "https://truthsocial.com/@PressSec/115583956149724264",
+        "version": "1",
+        "visibility": "public",
+        "votable": false
+      },
+      "in_reply_to_account_id": "114185734110788881",
+      "in_reply_to_id": "115583956149724264",
+      "language": null,
+      "media_attachments": [
+        {
+          "blurhash": "U$P$?uoe%hay-UaeS2of?wa}RPay5Rj]xEa{",
+          "description": null,
+          "external_video_id": null,
+          "id": "115614149006827986",
+          "meta": {
+            "original": {
+              "aspect": 0.75,
+              "height": 516,
+              "size": "387x516",
+              "width": 387
+            },
+            "small": {
+              "aspect": 0.75,
+              "height": 516,
+              "size": "387x516",
+              "width": 387
+            }
+          },
+          "preview_remote_url": null,
+          "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/614/149/006/827/986/small/a3c8d481256be374.jpg",
+          "processing": "complete",
+          "remote_url": null,
+          "text_url": null,
+          "type": "image",
+          "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/614/149/006/827/986/original/a3c8d481256be374.jpg"
+        }
+      ],
+      "mentions": [
+        {
+          "acct": "PressSec",
+          "id": "114185734110788881",
+          "url": "https://truthsocial.com/@PressSec",
+          "username": "PressSec"
+        }
+      ],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 2141,
+      "replies_count": 279,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 9179,
+      "uri": "https://truthsocial.com/@SomethinG00D/115614149371708314",
+      "url": "https://truthsocial.com/@SomethinG00D/115614149371708314",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115723737240814821",
+    "url": "https://truthsocial.com/@realDonaldTrump/115723737240814821",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

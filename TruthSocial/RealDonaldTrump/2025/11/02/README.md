@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-11-02
+
+- Posts: 10
+
+- [23:59 UTC - The Orthodox Jewish communities all across America voted in very big numbers for me in our...](115482817545218922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115482817545218922
+  - The Orthodox Jewish communities all across America voted in very big numbers for me in our Historic 2024 Presidential Campaign. Lakewood, New Jersey, was one of our biggest Wins an...
+- [23:54 UTC - Next week’s Case on Tariffs is one of the most important in the History of the Country. If...](115482797655964985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115482797655964985
+  - Next week’s Case on Tariffs is one of the most important in the History of the Country. If a President is not allowed to use Tariffs, we will be at a major disadvantage against all...
+- [23:52 UTC - America First Patriot Bruce Blakeman is doing a fantastic job as Nassau County Executive! ...](115482790527492824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115482790527492824
+  - America First Patriot Bruce Blakeman is doing a fantastic job as Nassau County Executive! Bruce has been with us from the very beginning, and is 100% MAGA. He is working tirelessly...
+- [19:00 UTC - On it!](115481642855833812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115481642855833812
+  - On it!
+- [18:57 UTC - Truth Social post 115481632779938708](115481632779938708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115481632779938708
+  - _No text content captured._
+- [18:55 UTC - Jay Clayton is GREAT!!! President DJT [https:// wabcradio.com/episode/us-attor ney-jay-cla...](115481621608702748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115481621608702748
+  - Jay Clayton is GREAT!!! President DJT [https:// wabcradio.com/episode/us-attor ney-jay-clayton-sdny-nypd-is-essential-as-state-sponsored-drug-rings-hit-nyc-10-min/](https://wabcrad...
+- [18:54 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) OPERATION ARCTIC FROST is w...](115481619319604547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115481619319604547
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) OPERATION ARCTIC FROST is worse than "Russian Collusion," both bogus Impeachments, the Jan. 6 Documents Hoax, and Jac...
+- [14:55 UTC - [https:// dailycaller.com/2025/11/01/opi nion-arctic-frost-accountability-starts-with-impe...](115480679177726394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115480679177726394
+  - [https:// dailycaller.com/2025/11/01/opi nion-arctic-frost-accountability-starts-with-impeaching-judge-boasberg-dave-bossie/](https://dailycaller.com/2025/11/01/opinion-arctic-fros...
+- [14:55 UTC - [https:// nypost.com/2025/11/01/us-news/ rep-nicole-malliotakis-rips-gerrymandering-lawsui...](115480677965099989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115480677965099989
+  - [https:// nypost.com/2025/11/01/us-news/ rep-nicole-malliotakis-rips-gerrymandering-lawsuit-for-staten-island-house-seat-as-nonsensical-power-grab/](https://nypost.com/2025/11/01/u...
+- [05:06 UTC - Congratulations to the L.A. Dodgers, a game won by incredible CHAMPIONS!!! A lesser group ...](115478361803609448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115478361803609448
+  - Congratulations to the L.A. Dodgers, a game won by incredible CHAMPIONS!!! A lesser group of men would never have been able to win that game, or game 6, for that matter. So many st...

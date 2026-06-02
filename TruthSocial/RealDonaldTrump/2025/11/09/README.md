@@ -1,0 +1,136 @@
+# TruthSocial / RealDonaldTrump / 2025-11-09
+
+- Posts: 44
+
+- [23:17 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](115522290403013809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522290403013809
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [23:17 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) They ripped the hell out ...](115522289728886659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522289728886659
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) They ripped the hell out of the Rainforest of Brazil to build a four lane highway for Environmentalists to travel....
+- [23:17 UTC - [https:// thehill.com/homenews/house/554 7437-luna-endorses-trump-nobel/](https://thehill....](115522288424489358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522288424489358
+  - [https:// thehill.com/homenews/house/554 7437-luna-endorses-trump-nobel/](https://thehill.com/homenews/house/5547437-luna-endorses-trump-nobel/)
+- [23:07 UTC - [https://www. dailymail.co.uk/news/article-1 5187603/letitia-james-niece-virginia-home-fug...](115522248485816947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522248485816947
+  - [https://www. dailymail.co.uk/news/article-1 5187603/letitia-james-niece-virginia-home-fugitive.html](https://www.dailymail.co.uk/news/article-15187603/letitia-james-niece-virginia...
+- [23:05 UTC - [https:// nypost.com/2025/10/10/us-news/ nobel-peace-prize-winner-maria-corina-machado-ded...](115522240748429827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522240748429827
+  - [https:// nypost.com/2025/10/10/us-news/ nobel-peace-prize-winner-maria-corina-machado-dedicates-it-to-trump/](https://nypost.com/2025/10/10/us-news/nobel-peace-prize-winner-maria-...
+- [22:51 UTC - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) The New York Post report on the...](115522186645083678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115522186645083678
+  - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) The New York Post report on the Nobel Peace Prize Winner dedicating her prize to President Trump may be a bigger honor th...
+- [21:53 UTC - Truth Social post 115521958875373662](115521958875373662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521958875373662
+  - _No text content captured._
+- [21:38 UTC - [https:// nypost.com/2025/10/24/us-news/ kash-patel-skewers-stephen-a-smith-for-suggesting...](115521900450117807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521900450117807
+  - [https:// nypost.com/2025/10/24/us-news/ kash-patel-skewers-stephen-a-smith-for-suggesting-trump-was-behind-nba-gambling-ring-arrests/](https://nypost.com/2025/10/24/us-news/kash-p...
+- [21:27 UTC - [https:// thefederalist.com/2025/10/23/l indsey-halligan-brings-russiagates-last-case-to-a...](115521856416541316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521856416541316
+  - [https:// thefederalist.com/2025/10/23/l indsey-halligan-brings-russiagates-last-case-to-a-close-after-seven-years-of-injustice/](https://thefederalist.com/2025/10/23/lindsey-halli...
+- [21:21 UTC - DHS sees biggest jump in public approval among federal agencies: [https:// thehill.com/hom...](115521834138408370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521834138408370
+  - DHS sees biggest jump in public approval among federal agencies: [https:// thehill.com/homenews/administr ation/5546975-trump-administration-immigration-crackdown/](https://thehill...
+- [21:19 UTC - I just received the key to the City of Miami from Mayor Francis Suarez. Such a Great Honor...](115521826049485056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521826049485056
+  - I just received the key to the City of Miami from Mayor Francis Suarez. Such a Great Honor — Thank you!
+- [21:16 UTC - Salena Zito knows her stuff! [https://www. washingtonexaminer.com/opinion /columnists/3839...](115521813139896886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521813139896886
+  - Salena Zito knows her stuff! [https://www. washingtonexaminer.com/opinion /columnists/3839530/what-democrats-are-missing-in-trying-to-recapture-young-people/](https://www.washingto...
+- [21:12 UTC - The Main Entrance to the new Ballroom at the White House!](115521797504730572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521797504730572
+  - The Main Entrance to the new Ballroom at the White House!
+- [21:06 UTC - [https:// m.independent.ie/sport/soccer/ fifa-president-gianni-infantino-calls-for-donald-...](115521775550752201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521775550752201
+  - [https:// m.independent.ie/sport/soccer/ fifa-president-gianni-infantino-calls-for-donald-trump-to-be-awarded-nobel-peace-prize-after-gaza-ceasefire/a1762644450.html](https://m.ind...
+- [20:55 UTC - [https://www. bbc.com/news/articles/c3vn25d5 dq7o](https://www.bbc.com/news/articles/c3vn2...](115521730115424071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521730115424071
+  - [https://www. bbc.com/news/articles/c3vn25d5 dq7o](https://www.bbc.com/news/articles/c3vn25d5dq7o)
+- [20:53 UTC - [https://www. telegraph.co.uk/us/news/2025/1 1/07/donald-trump-attacks-bbc-bias-jan-6-spee...](115521725387177325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521725387177325
+  - [https://www. telegraph.co.uk/us/news/2025/1 1/07/donald-trump-attacks-bbc-bias-jan-6-speech/](https://www.telegraph.co.uk/us/news/2025/11/07/donald-trump-attacks-bbc-bias-jan-6-sp...
+- [20:51 UTC - [https://www. dailymail.co.uk/debate/article -15269975/BORIS-JOHNSON-BBC-Tim-Davie-Panoram...](115521714586759820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521714586759820
+  - [https://www. dailymail.co.uk/debate/article -15269975/BORIS-JOHNSON-BBC-Tim-Davie-Panorama-Trump.html](https://www.dailymail.co.uk/debate/article-15269975/BORIS-JOHNSON-BBC-Tim-Da...
+- [20:46 UTC - The TOP people in the BBC, including TIM DAVIE, the BOSS, are all quitting/FIRED, because ...](115521695808009888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521695808009888
+  - The TOP people in the BBC, including TIM DAVIE, the BOSS, are all quitting/FIRED, because they were caught “doctoring” my very good (PERFECT!) speech of January 6th. Thank you to T...
+- [18:50 UTC - How easy should VOTER I.D. (IDENTIFICATION!) be to get from the Radical Left Democrats??? ...](115521239983259817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115521239983259817
+  - How easy should VOTER I.D. (IDENTIFICATION!) be to get from the Radical Left Democrats??? There should be nothing easier, right??? Well, out of 47 Dems, we don’t have even ONE VOTE...
+- [16:16 UTC - They ripped the hell out of the Rainforest of Brazil to build a four lane highway for Envi...](115520633257497938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520633257497938
+  - They ripped the hell out of the Rainforest of Brazil to build a four lane highway for Environmentalists to travel. It’s become a big scandal!
+- [15:32 UTC - Senator Lindsey Graham: “The Schumer Shutdown is inflicting real pain on hardworking Ameri...](115520462584981053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520462584981053
+  - Senator Lindsey Graham: “The Schumer Shutdown is inflicting real pain on hardworking Americans. Senate Democrats need to stop playing political games, and reopen the Government now...
+- [15:29 UTC - Truth Social post 115520449435351182](115520449435351182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520449435351182
+  - _No text content captured._
+- [15:29 UTC - “AUTOPEN” Sleepy Joe Biden was, by far, the worst President in American History. Taking of...](115520448197201824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520448197201824
+  - “AUTOPEN” Sleepy Joe Biden was, by far, the worst President in American History. Taking office as a result of the most corrupt Election ever seen in the United States, Biden oversa...
+- [15:25 UTC - Senator Lindsey Graham: “ObamaCare increased the cost of Healthcare while worsening the qu...](115520432241623568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520432241623568
+  - Senator Lindsey Graham: “ObamaCare increased the cost of Healthcare while worsening the quality. We won’t continue to fund this broken system that only rewards Insurance Companies!...
+- [15:24 UTC - Senator Lindsey Graham: “Democrats are demanding we continue to throw money at a broken He...](115520428779875897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520428779875897
+  - Senator Lindsey Graham: “Democrats are demanding we continue to throw money at a broken Healthcare System that enriches Insurance Companies at the expense of American Consumers. We...
+- [15:20 UTC - Truth Social post 115520413403670949](115520413403670949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520413403670949
+  - _No text content captured._
+- [15:18 UTC - Truth Social post 115520407393319018](115520407393319018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520407393319018
+  - _No text content captured._
+- [15:17 UTC - This is who is getting your Healthcare Dollars!](115520402338272699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520402338272699
+  - This is who is getting your Healthcare Dollars!
+- [15:16 UTC - Truth Social post 115520398664362531](115520398664362531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520398664362531
+  - _No text content captured._
+- [15:15 UTC - Democrats claim to be working for “the little guy,” and driving down your Health Insurance...](115520395997089111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520395997089111
+  - Democrats claim to be working for “the little guy,” and driving down your Health Insurance, but the OBAMACARE SCAM goes STRAIGHT TO THEIR BEST FRIENDS IN THE INSURANCE INDUSTRY. TH...
+- [15:13 UTC - I am sorry that the American People are being terrorized by Democrats who have decided to ...](115520387746375038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520387746375038
+  - I am sorry that the American People are being terrorized by Democrats who have decided to shut the Government down to make me and other Republicans continue ObamaCare subsidies, wh...
+- [15:12 UTC - [https:// nypost.com/2025/10/31/us-news/ judge-hands-doj-win-in-letitia-james-mortgage-fra...](115520381817839297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520381817839297
+  - [https:// nypost.com/2025/10/31/us-news/ judge-hands-doj-win-in-letitia-james-mortgage-fraud-case/](https://nypost.com/2025/10/31/us-news/judge-hands-doj-win-in-letitia-james-mortg...
+- [15:11 UTC - WOW!](115520378078620283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520378078620283
+  - WOW!
+- [15:10 UTC - Truth Social post 115520375803714599](115520375803714599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520375803714599
+  - _No text content captured._
+- [15:09 UTC - RT [@ repgregsteube](https://truthsocial.com/@repgregsteube) Yessir! I've been saying this...](115520369773943487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520369773943487
+  - RT [@ repgregsteube](https://truthsocial.com/@repgregsteube) Yessir! I've been saying this for weeks! [# KilltheFil](https://truthsocial.com/tags/KilltheFil)
+- [15:08 UTC - [https:// justthenews.com/government/whi te-house/trump-urges-senate-gop-give-healthcare-s...](115520368732012609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520368732012609
+  - [https:// justthenews.com/government/whi te-house/trump-urges-senate-gop-give-healthcare-subsidies-directly-people](https://justthenews.com/government/white-house/trump-urges-senat...
+- [14:47 UTC - I am pleased to announce that John Coale, Esq., known as one of our Country’s truly GREAT ...](115520282513349957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115520282513349957
+  - I am pleased to announce that John Coale, Esq., known as one of our Country’s truly GREAT lawyers, whose Victories included the first major Tobacco Case Win, is being nominated as...
+- [13:22 UTC - So, let’s get this straight??? The President of the United States is allowed (and fully ap...](115519951705472870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519951705472870
+  - So, let’s get this straight??? The President of the United States is allowed (and fully approved by Congress!) to stop ALL TRADE with a Foreign Country (Which is far more onerous t...
+- [12:47 UTC - LESS CRIME, MORE TRUMP!](115519814244677655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519814244677655
+  - LESS CRIME, MORE TRUMP!
+- [12:29 UTC - WITHOUT TARIFFS, WE HAVE NONE OF THE FOLLOWING (JUST POSTED) TRUTH!!! President DJT](115519740341195886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519740341195886
+  - WITHOUT TARIFFS, WE HAVE NONE OF THE FOLLOWING (JUST POSTED) TRUTH!!! President DJT
+- [12:25 UTC - People that are against Tariffs are FOOLS! We are now the Richest, Most Respected Country ...](115519726463094783/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519726463094783
+  - People that are against Tariffs are FOOLS! We are now the Richest, Most Respected Country In the World, With Almost No Inflation, and A Record Stock Market Price. 401k’s are Highes...
+- [12:11 UTC - OBAMACARE “SUCKS.” THE WORST HEALTHCARE FOR THE HIGHEST PRICE.](115519669621468424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519669621468424
+  - OBAMACARE “SUCKS.” THE WORST HEALTHCARE FOR THE HIGHEST PRICE.
+- [12:07 UTC - PAY THE PEOPLE, NOT THE INSURANCE COMPANIES!](115519656372603789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519656372603789
+  - PAY THE PEOPLE, NOT THE INSURANCE COMPANIES!
+- [12:05 UTC - Republicans Should Terminate the Filibuster (THE DEMS WILL DO IT THE FIRST CHANCE THEY GET...](115519648221128582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115519648221128582
+  - Republicans Should Terminate the Filibuster (THE DEMS WILL DO IT THE FIRST CHANCE THEY GET!), End the Shutdown, Pass lots of Great “Things,” and Win the Midterms. SO EASY TO DO - B...

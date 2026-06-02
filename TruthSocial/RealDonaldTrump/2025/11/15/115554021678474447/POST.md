@@ -1,0 +1,12 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115554021678474447 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115554021678474447 -->
+<!-- date_published: 2025-11-15T13:47:22.114000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:57:43.439597+00:00 -->
+
+# RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am withdrawing my suppo...
+
+RT
+[@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+I am withdrawing my support and Endorsement of “Congresswoman” Marjorie Taylor Greene, of the Great State of Georgia. Over the past few weeks, despite my creating Record Achievements for our Country including, a Total and Complete Victory on the Shutdown, Closed Borders, Low Taxes, No Men in Women’s Sports or Transgender for Everyone, ending DEI, stopping Biden’s Record Setting Inflation, Biggest Regulation Cuts in History, stopping EIGHT WARS, rebuilding our Military, being RESPECTED by every Country in the World (as opposed to being the laughingstock that we were just 12 months ago!), having Trillions of Dollars (Record Setting!) INVESTED in the U.S.A., and having created the “HOTTEST” Country anywhere in the World from being a DEAD Country just 12 months ago (and so much more!), all I see “Wacky” Marjorie do is COMPLAIN, COMPLAIN, COMPLAIN! It seemed to all begin when I sent her a Poll stating that she should not run for Senator, or Governor, she was at 12%, and didn’t have a chance (unless, of course, she had my Endorsement — which she wasn’t about to get!). She has told many people that she is upset that I don’t return her phone calls anymore, but with 219 Congressmen/women, 53 U.S. Senators, 24 Cabinet Members, almost 200 Countries, and an otherwise normal life to lead, I can’t take a ranting Lunatic’s call every day. I understand that wonderful, Conservative people are thinking about primarying Marjorie in her District of Georgia, that they too are fed up with her and her antics and, if the right person runs, they will have my Complete and Unyielding Support. She has gone Far Left, even doing The View, with their Low IQ Republican hating Anchors. Thank you for your attention to this matter. MAKE AMERICA GREAT AGAIN!

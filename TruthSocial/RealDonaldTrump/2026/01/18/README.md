@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-01-18
+
+- Posts: 10
+
+- [12:15 UTC - ICE is removing some of the most violent criminals in the World from our Country, and brin...](115916047821747370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115916047821747370
+  - ICE is removing some of the most violent criminals in the World from our Country, and bring them back home, where they belong. Why is Minnesota fighting this? Do they really want m...
+- [11:52 UTC - Great interview last night with Senator Tim Scott and Lara Trump. Wow!!!](115915958962150760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115915958962150760
+  - Great interview last night with Senator Tim Scott and Lara Trump. Wow!!!
+- [11:51 UTC - “It’s important to know how we got here. The reckless Open Borders Policy of Joe Biden led...](115915952093312324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115915952093312324
+  - “It’s important to know how we got here. The reckless Open Borders Policy of Joe Biden led to the violent criminals that have gone into places like Minneapolis, which has forced IC...
+- [11:33 UTC - Jimmy Failla’s opening monologue was GREAT. Very funny guy!!! Also, wonderful wife! Presid...](115915881410679214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115915881410679214
+  - Jimmy Failla’s opening monologue was GREAT. Very funny guy!!! Also, wonderful wife! President DJT
+- [11:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We have subsidized Denmar...](115915851439933172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115915851439933172
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We have subsidized Denmark, and all of the Countries of the European Union, and others, for many years by not charg...
+- [03:26 UTC - I was with David McIntosh of the Club for Growth, and we agreed that we will both work tir...](115913968629100828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115913968629100828
+  - I was with David McIntosh of the Club for Growth, and we agreed that we will both work tirelessly together to take out Indiana Senate Majority Leader Rod Bray, a total RINO, who be...
+- [02:48 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected America ...](115913818366988479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115913818366988479
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, h...
+- [02:46 UTC - Congressman Barry Moore, an America First Patriot who has been with me from the very begin...](115913809230823901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115913809230823901
+  - Congressman Barry Moore, an America First Patriot who has been with me from the very beginning (he was the first Elected Official in the Country to Endorse me!), is running for the...
+- [02:24 UTC - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Loui...](115913724519885202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115913724519885202
+  - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, has been from the very beginning, and only gets better! I am heari...
+- [02:00 UTC - The Army-Navy Game is one of our Greatest American Traditions — Unmatched Patriotism, Cour...](115913629513015604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115913629513015604
+  - The Army-Navy Game is one of our Greatest American Traditions — Unmatched Patriotism, Courage, and Honor! This incredible Tradition is now at risk of being pushed aside by more Col...

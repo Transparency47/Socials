@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-11-11
+
+- Posts: 19
+
+- [23:33 UTC - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON B...](115533678904226335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115533678904226335
+  - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON BIG three times, including with 6.4 Million Votes in 2024 (The most Votes in History, BY FA...
+- [23:30 UTC - I am proud to announce that Chicago, Illinois, despite all of the radical opposition and o...](115533666048445520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115533666048445520
+  - I am proud to announce that Chicago, Illinois, despite all of the radical opposition and obstruction we have from the Mayor and the Governor, has seen Car Theft, Shootings, Robberi...
+- [21:04 UTC - Fortunately for the Great State of Texas, their Former Speaker, who is no longer Speaker, ...](115533090607800907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115533090607800907
+  - Fortunately for the Great State of Texas, their Former Speaker, who is no longer Speaker, Dade Phelan, is quitting Politics. He was the one responsible for killing every Bill havin...
+- [20:22 UTC - Dan Patrick is a terrific and powerful Lieutenant Governor for the Great State of Texas, a...](115532927507491211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115532927507491211
+  - Dan Patrick is a terrific and powerful Lieutenant Governor for the Great State of Texas, a place I truly love. I WON BIG in 2016, 2020, and 2024 (Getting the Highest Number of Vote...
+- [12:30 UTC - [https:// truthsocial.com/group/now-you- know/posts/115527319906037358](https://truthsocia...](115531069050814016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531069050814016
+  - [https:// truthsocial.com/group/now-you- know/posts/115527319906037358](https://truthsocial.com/group/now-you-know/posts/115527319906037358)
+- [12:28 UTC - [https:// truthsocial.com/group/history/ statuses/115527127031678139](https://truthsocial....](115531061441001905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531061441001905
+  - [https:// truthsocial.com/group/history/ statuses/115527127031678139](https://truthsocial.com/group/history/statuses/115527127031678139)
+- [12:26 UTC - [https:// truthsocial.com/group/governme nt-gangsters/statuses/115525803837432752](https:/...](115531054212530455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531054212530455
+  - [https:// truthsocial.com/group/governme nt-gangsters/statuses/115525803837432752](https://truthsocial.com/group/government-gangsters/statuses/115525803837432752)
+- [12:23 UTC - [https:// truthsocial.com/group/leftist- tears/statuses/115486200597147322](https://truths...](115531044031780999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531044031780999
+  - [https:// truthsocial.com/group/leftist- tears/statuses/115486200597147322](https://truthsocial.com/group/leftist-tears/statuses/115486200597147322)
+- [12:23 UTC - [https:// truthsocial.com/group/make-ame rica-great-again/statuses/115485156673673505](htt...](115531041631686212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531041631686212
+  - [https:// truthsocial.com/group/make-ame rica-great-again/statuses/115485156673673505](https://truthsocial.com/group/make-america-great-again/statuses/115485156673673505)
+- [12:22 UTC - [https:// truthsocial.com/group/guns/sta tuses/115484416405734516](https://truthsocial.com...](115531037605048331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531037605048331
+  - [https:// truthsocial.com/group/guns/sta tuses/115484416405734516](https://truthsocial.com/group/guns/statuses/115484416405734516)
+- [12:21 UTC - [https:// truthsocial.com/group/matt-s-m uck/statuses/115484035284489011](https://truthsoc...](115531035242373440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531035242373440
+  - [https:// truthsocial.com/group/matt-s-m uck/statuses/115484035284489011](https://truthsocial.com/group/matt-s-muck/statuses/115484035284489011)
+- [12:20 UTC - [https:// truthsocial.com/group/patrioti c-pinups/statuses/115483998051014408](https://tru...](115531030485309412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531030485309412
+  - [https:// truthsocial.com/group/patrioti c-pinups/statuses/115483998051014408](https://truthsocial.com/group/patriotic-pinups/statuses/115483998051014408)
+- [12:17 UTC - [https:// truthsocial.com/group/californ ia/statuses/115483350647897970](https://truthsoci...](115531018452147561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531018452147561
+  - [https:// truthsocial.com/group/californ ia/statuses/115483350647897970](https://truthsocial.com/group/california/statuses/115483350647897970)
+- [12:15 UTC - [https:// truthsocial.com/group/ultra-ma ga/statuses/115483208068341369](https://truthsoci...](115531012698360167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531012698360167
+  - [https:// truthsocial.com/group/ultra-ma ga/statuses/115483208068341369](https://truthsocial.com/group/ultra-maga/statuses/115483208068341369) CORRECT!!!
+- [12:13 UTC - [https:// truthsocial.com/group/xteam/st atuses/115482658347382401](https://truthsocial.co...](115531003188189673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115531003188189673
+  - [https:// truthsocial.com/group/xteam/st atuses/115482658347382401](https://truthsocial.com/group/xteam/statuses/115482658347382401)
+- [05:51 UTC - The Miracle Mile Shopping Center in Chicago, once considered our Nation’s BEST, now has a ...](115529500724371786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115529500724371786
+  - The Miracle Mile Shopping Center in Chicago, once considered our Nation’s BEST, now has a more than 28% vacancy factor, and is ready to call it quits unless something is done about...
+- [05:37 UTC - The U.S. Supreme Court was given the wrong numbers. The “unwind” in the event of a negativ...](115529446165908851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115529446165908851
+  - The U.S. Supreme Court was given the wrong numbers. The “unwind” in the event of a negative decision on Tariffs, would be, including investments made, to be made, and return of fun...
+- [04:20 UTC - The Obamacare secret at the heart of the shutdown: insurers made billions at taxpayer expe...](115529141758455385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115529141758455385
+  - The Obamacare secret at the heart of the shutdown: insurers made billions at taxpayer expense: [https:// justthenews.com/government/con gress/obamacare-secret-heart-shutdown-insure...
+- [00:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115527891580433136 It was an Ho...](115528250588455261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115528250588455261
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115527891580433136 It was an Honor to spend time with Ahmed Hussein al-Sharaa, the new President of Syria, where we discu...

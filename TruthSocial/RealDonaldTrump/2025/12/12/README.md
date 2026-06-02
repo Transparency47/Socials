@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-12-12
+
+- Posts: 22
+
+- [17:37 UTC - I had a very good conversation this morning with the Prime Minister of Thailand, Anutin Ch...](115707808536071986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707808536071986
+  - I had a very good conversation this morning with the Prime Minister of Thailand, Anutin Charnvirakul, and the Prime Minister of Cambodia, Hun Manet, concerning the very unfortunate...
+- [15:31 UTC - Truth Social post 115707313502798437](115707313502798437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707313502798437
+  - _No text content captured._
+- [15:31 UTC - Truth Social post 115707312087324144](115707312087324144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707312087324144
+  - _No text content captured._
+- [15:29 UTC - Truth Social post 115707306832597765](115707306832597765/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707306832597765
+  - _No text content captured._
+- [15:28 UTC - Truth Social post 115707302550052794](115707302550052794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707302550052794
+  - _No text content captured._
+- [15:27 UTC - Truth Social post 115707299491354555](115707299491354555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707299491354555
+  - _No text content captured._
+- [15:27 UTC - Truth Social post 115707298063435018](115707298063435018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707298063435018
+  - _No text content captured._
+- [15:27 UTC - Truth Social post 115707297435999316](115707297435999316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707297435999316
+  - _No text content captured._
+- [15:27 UTC - Truth Social post 115707296732406642](115707296732406642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707296732406642
+  - _No text content captured._
+- [15:27 UTC - Truth Social post 115707295934917011](115707295934917011/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707295934917011
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115707295337356337](115707295337356337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707295337356337
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115707294544466975](115707294544466975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707294544466975
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115707293949388284](115707293949388284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707293949388284
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115707292992703359](115707292992703359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707292992703359
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115707292375565578](115707292375565578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707292375565578
+  - _No text content captured._
+- [15:25 UTC - Truth Social post 115707291795053824](115707291795053824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707291795053824
+  - _No text content captured._
+- [15:25 UTC - Truth Social post 115707291061563146](115707291061563146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707291061563146
+  - _No text content captured._
+- [15:25 UTC - Truth Social post 115707290386031508](115707290386031508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707290386031508
+  - _No text content captured._
+- [15:25 UTC - Truth Social post 115707289756293431](115707289756293431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707289756293431
+  - _No text content captured._
+- [15:25 UTC - Truth Social post 115707288972669303](115707288972669303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707288972669303
+  - _No text content captured._
+- [15:24 UTC - Truth Social post 115707286945157516](115707286945157516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707286945157516
+  - _No text content captured._
+- [15:24 UTC - Truth Social post 115707286150817572](115707286150817572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115707286150817572
+  - _No text content captured._

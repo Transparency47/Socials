@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115599455037289127 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115599455037289127 -->
+<!-- date_published: 2025-11-23T14:21:40.153000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:51:36.766433+00:00 -->
+
+# FREE TINA PETERS, WHO SITS IN A COLORADO PRISON, DYING & OLD, FOR ATTEMPTING TO EXPOSE VOT...
+
+FREE TINA PETERS, WHO SITS IN A COLORADO PRISON, DYING & OLD, FOR ATTEMPTING TO EXPOSE VOTER FRAUD IN THE RIGGED 2O20 PRESIDENTIAL ELECTION!!!

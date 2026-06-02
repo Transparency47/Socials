@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-12-24
+
+- Posts: 10
+
+- [23:41 UTC - Ex-FBI agent says Bondi has ‘slam dunk’ conspiracy case against Obama's feds for election ...](115777189961532523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115777189961532523
+  - Ex-FBI agent says Bondi has ‘slam dunk’ conspiracy case against Obama's feds for election meddling: [https:// justthenews.com/accountability /political-ethics/slam-dunk-ex-fbi-agen...
+- [23:41 UTC - John Brennan's lawyers confirm he is 'target' of Florida grand jury probe, asks judge to i...](115777187532951131/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115777187532951131
+  - John Brennan's lawyers confirm he is 'target' of Florida grand jury probe, asks judge to intervene: [https:// justthenews.com/accountability /political-ethics/john-brennans-lawyers...
+- [23:40 UTC - Trump’s policy appeal with urban Americans has a surprising new messenger in Nicki Minaj: ...](115777185874091441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115777185874091441
+  - Trump’s policy appeal with urban Americans has a surprising new messenger in Nicki Minaj: [https:// justthenews.com/government/whi te-house/trumps-election-appeal-black-americans-h...
+- [23:40 UTC - Rubio imposes visa restrictions on European officials who attempted to censor American fre...](115777183958226675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115777183958226675
+  - Rubio imposes visa restrictions on European officials who attempted to censor American free speech: [https:// justthenews.com/government/dip lomacy/rubio-issues-sanctions-european-...
+- [23:40 UTC - Democrats’ push for Epstein files boomeranged with Clinton featured prominently throughout...](115777182422408467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115777182422408467
+  - Democrats’ push for Epstein files boomeranged with Clinton featured prominently throughout: [https:// justthenews.com/politics-polic y/clintons-doj-had-first-chance-prosecute-epste...
+- [05:39 UTC - MERRY CHRISTMAS!!!](115772932017222359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115772932017222359
+  - MERRY CHRISTMAS!!!
+- [05:36 UTC - If Network NEWSCASTS, and their Late Night Shows, are almost 100% Negative to President Do...](115772922954148853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115772922954148853
+  - If Network NEWSCASTS, and their Late Night Shows, are almost 100% Negative to President Donald J. Trump, MAGA, and the Republican Party, shouldn’t their very valuable Broadcast Lic...
+- [05:23 UTC - Who has the worst Late Night host, CBS, ABC, or NBC??? They all have three things in commo...](115772871198579287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115772871198579287
+  - Who has the worst Late Night host, CBS, ABC, or NBC??? They all have three things in common: High Salaries, No Talent, REALLY LOW RATINGS!
+- [05:16 UTC - Stephen Colbert is a pathetic trainwreck, with no talent or anything else necessary for sh...](115772841536331132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115772841536331132
+  - Stephen Colbert is a pathetic trainwreck, with no talent or anything else necessary for show business success. Now, after being terminated by CBS, but left out to dry, he has actua...
+- [00:10 UTC - Growth is up and Inflation is down in President Trump’s first year! Matthew Continetti, Am...](115771638702591740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115771638702591740
+  - Growth is up and Inflation is down in President Trump’s first year! Matthew Continetti, American Enterprise Institute

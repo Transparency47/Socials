@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-10-27
+
+- Posts: 15
+
+- [08:03 UTC - After winning THREE Elections, BY A LOT, I am now getting the best Polling Numbers that I ...](115445084269284249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115445084269284249
+  - After winning THREE Elections, BY A LOT, I am now getting the best Polling Numbers that I have ever received. People see how strong the Economy is, the Trillions of Dollars of Inve...
+- [07:53 UTC - Landing in Japan now. Looking forward to seeing the Emperor! President DJT](115445047857168881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115445047857168881
+  - Landing in Japan now. Looking forward to seeing the Emperor! President DJT
+- [07:41 UTC - Truth Social post 115444998986965113](115444998986965113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444998986965113
+  - _No text content captured._
+- [07:41 UTC - Truth Social post 115444997684121179](115444997684121179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444997684121179
+  - _No text content captured._
+- [07:25 UTC - Many people are petrified by the Radical Left, but I’m not, they keep getting me, and othe...](115444936741535260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444936741535260
+  - Many people are petrified by the Radical Left, but I’m not, they keep getting me, and other Republicans, elected!
+- [07:22 UTC - Look how beautiful the Oval Office is, now. Many of those great paintings of past Presiden...](115444924244999128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444924244999128
+  - Look how beautiful the Oval Office is, now. Many of those great paintings of past Presidents were in the vaults for over 100 years. Now they are for everyone to enjoy!
+- [07:21 UTC - In the Oval Office, getting ready to leave our imprint on the World. MAKE AMERICA GREAT AG...](115444920810335631/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444920810335631
+  - In the Oval Office, getting ready to leave our imprint on the World. MAKE AMERICA GREAT AGAIN!
+- [07:18 UTC - BIG WIN in Argentina for Javier Milei, a wonderful Trump Endorsed Candidate! He’s making u...](115444908825959315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444908825959315
+  - BIG WIN in Argentina for Javier Milei, a wonderful Trump Endorsed Candidate! He’s making us all look good. Congratulations Javier!
+- [07:14 UTC - The new TRUMP KENNEDY, whoops, I mean, KENNEDY CENTER, columns, beautifully painted in a l...](115444894900287475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444894900287475
+  - The new TRUMP KENNEDY, whoops, I mean, KENNEDY CENTER, columns, beautifully painted in a luxuriant white enamel color, replacing the fake looking gold paint that was there for year...
+- [06:58 UTC - Why would anyone vote for New Jersey and Virginia Gubernatorial Candidates, Mikie Sherrill...](115444830915442121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444830915442121
+  - Why would anyone vote for New Jersey and Virginia Gubernatorial Candidates, Mikie Sherrill and Abigail Spanberger, when they want transgender for everybody, men playing in women’s...
+- [04:13 UTC - Truth Social post 115444182190229379](115444182190229379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444182190229379
+  - _No text content captured._
+- [04:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115444178660278615](115444180455250491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444180455250491
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115444178660278615
+- [04:12 UTC - Truth Social post 115444178660278615](115444178660278615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444178660278615
+  - _No text content captured._
+- [04:08 UTC - Congratulations to President Javier Milei on his Landslide Victory in Argentina. He is doi...](115444163384468198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115444163384468198
+  - Congratulations to President Javier Milei on his Landslide Victory in Argentina. He is doing a wonderful job! Our confidence in him was justified by the People of Argentina.
+- [01:36 UTC - Just leaving Malaysia, a great and very vibrant Country. Signed major Trade and Rare Earth...](115443565409065734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115443565409065734
+  - Just leaving Malaysia, a great and very vibrant Country. Signed major Trade and Rare Earth Deals, and yesterday, most importantly, signed the Peace Treaty between Thailand and Camb...

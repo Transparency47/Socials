@@ -1,0 +1,79 @@
+# TruthSocial / RealDonaldTrump / 2025-12-06
+
+- Posts: 25
+
+- [23:52 UTC - RT [@ sergiogor](https://truthsocial.com/@sergiogor) Congratulations to all the AMAZING Ho...](115675311093916589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115675311093916589
+  - RT [@ sergiogor](https://truthsocial.com/@sergiogor) Congratulations to all the AMAZING Honorees who are receiving the Kennedy Center Honors! President [@ realDonaldTrump](https://...
+- [20:12 UTC - Another stabbing by an Illegal Migrant in Charlotte, North Carolina. What’s going on in Ch...](115674446098726232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115674446098726232
+  - Another stabbing by an Illegal Migrant in Charlotte, North Carolina. What’s going on in Charlotte? Democrats are destroying it, like everything else, piece by piece!!! President DJ...
+- [19:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115669815800105560 Why would a ...](115674376798726553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115674376798726553
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115669815800105560 Why would a REAL Republican vote against this when the Dems have been doing it for years??? If they st...
+- [19:48 UTC - [https:// open.substack.com/pub/american refugees/p/will-john-brennan-finally-get-his?utm_...](115674352074786953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115674352074786953
+  - [https:// open.substack.com/pub/american refugees/p/will-john-brennan-finally-get-his?utm_campaign=post&utm_medium=web](https://open.substack.com/pub/americanrefugees/p/will-john-b...
+- [19:48 UTC - Trump blasts Indiana Republicans who defied redistricting pressure: [https://www. axios.co...](115674349662139906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115674349662139906
+  - Trump blasts Indiana Republicans who defied redistricting pressure: [https://www. axios.com/2025/11/16/trump-ind iana-republicans-redistricting-pressure](https://www.axios.com/2025...
+- [18:45 UTC - The Baseball Hall of Fame Committee is voting on admitting new Members TOMORROW, and these...](115674102596009965/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115674102596009965
+  - The Baseball Hall of Fame Committee is voting on admitting new Members TOMORROW, and these highly respected owners, executives, writers, and, most importantly, Hall of Famers, shou...
+- [17:13 UTC - College Sports is in $BIG trouble, just like I said it would be. A judge, with no knowledg...](115673738803217830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673738803217830
+  - College Sports is in $BIG trouble, just like I said it would be. A judge, with no knowledge or experience, ruled and, rather than fighting, the sports reps FOLDED. Can’t do that.
+- [17:06 UTC - DHS disputes Democrat's claim she was pepper sprayed by ICE: [https://www. foxnews.com/vid...](115673713225538385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673713225538385
+  - DHS disputes Democrat's claim she was pepper sprayed by ICE: [https://www. foxnews.com/video/638611675911 2](https://www.foxnews.com/video/6386116759112)
+- [17:04 UTC - Cristiano Ronaldo, the GREAT soccer (football!) player, just called to thank me for his to...](115673706520574050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673706520574050
+  - Cristiano Ronaldo, the GREAT soccer (football!) player, just called to thank me for his tour this week of the White House and Oval Office. What an incredible guy he is, not only as...
+- [16:58 UTC - Dr. Oz warns Walz fraud could cost Minnesota Medicaid: [https://www. foxnews.com/video/638...](115673681347141352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673681347141352
+  - Dr. Oz warns Walz fraud could cost Minnesota Medicaid: [https://www. foxnews.com/video/638611991411 2](https://www.foxnews.com/video/6386119914112)
+- [16:57 UTC - Greg Gutfeld: “It took Trump no time to get the DC pipe bomber.” [https://www. foxnews.com...](115673677994343056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673677994343056
+  - Greg Gutfeld: “It took Trump no time to get the DC pipe bomber.” [https://www. foxnews.com/video/638608751811 2](https://www.foxnews.com/video/6386087518112)
+- [16:57 UTC - EXCLUSIVE: Watch a Coast Guard helicopter sniper disable a go-fast drug vessel in interdic...](115673676055612429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673676055612429
+  - EXCLUSIVE: Watch a Coast Guard helicopter sniper disable a go-fast drug vessel in interdiction operation. [https://www. foxnews.com/video/638606174511 2](https://www.foxnews.com/vi...
+- [16:50 UTC - DAVID MARCUS: Trump's aggression toward Venezuela a warning to Putin: [https://www. foxnew...](115673648564690818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673648564690818
+  - DAVID MARCUS: Trump's aggression toward Venezuela a warning to Putin: [https://www. foxnews.com/opinion/david-marc us-trumps-aggression-toward-venezuela-warning-putin](https://www....
+- [16:48 UTC - Angel Families thank Trump in new Thanksgiving video for his border security efforts: 'We ...](115673641220529524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673641220529524
+  - Angel Families thank Trump in new Thanksgiving video for his border security efforts: 'We appreciate you': [https://www. foxnews.com/us/angel-families- thank-trump-new-thanksgiving...
+- [16:09 UTC - Such a great honor. Thank you FIFA, and have a historic World Cup! [https://www. newsmax.c...](115673487263910414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673487263910414
+  - Such a great honor. Thank you FIFA, and have a historic World Cup! [https://www. newsmax.com/newsfront/trump-fi fa-peace-prize/2025/12/05/id/1237219/](https://www.newsmax.com/newsf...
+- [15:18 UTC - [https:// justthenews.com/government/whi te-house/trumps-affordability-crusade-hits-street...](115673286896769652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673286896769652
+  - [https:// justthenews.com/government/whi te-house/trumps-affordability-crusade-hits-streets-tiny-truck-solution](https://justthenews.com/government/white-house/trumps-affordability...
+- [15:17 UTC - [https:// justthenews.com/government/sec urity/afghan-watchdog-report-wasted-billions-weap...](115673284915323419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115673284915323419
+  - [https:// justthenews.com/government/sec urity/afghan-watchdog-report-wasted-billions-weapons-us-left-behind-form-core-taliban](https://justthenews.com/government/security/afghan-w...
+- [13:07 UTC - Caitlin Collin’s of Fake News CNN, always Stupid and Nasty, asked me why the new Ballroom ...](115672772354075395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115672772354075395
+  - Caitlin Collin’s of Fake News CNN, always Stupid and Nasty, asked me why the new Ballroom was costing more money than originally thought one year ago. I said because it is going to...
+- [12:31 UTC - Why would Fox and Friends Weekend (of all things?) put on a “Stockbroker” named Peter Schi...](115672630683376515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115672630683376515
+  - Why would Fox and Friends Weekend (of all things?) put on a “Stockbroker” named Peter Schiff, a Trump hating loser who has already proven to be wrong. Either the show made a mistak...
+- [03:49 UTC - Dr. James Jones, the Great White House Doctor, has written a fantastic Book, “Venom and Va...](115670577719463498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115670577719463498
+  - Dr. James Jones, the Great White House Doctor, has written a fantastic Book, “Venom and Valor: A White House Physician Assistant’s Battle for Survival in the Amazon.” Our Nation is...
+- [03:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115670539534836133](115670540343801653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115670540343801653
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115670539534836133
+- [03:39 UTC - Truth Social post 115670539534836133](115670539534836133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115670539534836133
+  - _No text content captured._
+- [03:19 UTC - Trump Honored With FIFA's First Peace Prize: [https://www. newsmax.com/newsfront/trump-fi ...](115670459480108739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115670459480108739
+  - Trump Honored With FIFA's First Peace Prize: [https://www. newsmax.com/newsfront/trump-fi fa-peace-prize/2025/12/05/id/1237219/](https://www.newsmax.com/newsfront/trump-fifa-peace-...
+- [00:36 UTC - Today, the CDC Vaccine Committee made a very good decision to END their Hepatitis B Vaccin...](115669821715563033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115669821715563033
+  - Today, the CDC Vaccine Committee made a very good decision to END their Hepatitis B Vaccine Recommendation for babies, the vast majority of whom are at NO RISK of Hepatitis B, a di...
+- [00:35 UTC - Congratulations to Indiana's tremendous Republican State Representatives, led by GREAT Spe...](115669815800105560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115669815800105560
+  - Congratulations to Indiana's tremendous Republican State Representatives, led by GREAT Speaker Todd Huston, Bill Sponsor Ben Smaltz, and Elections Committee Chairman Tim Wesco, who...

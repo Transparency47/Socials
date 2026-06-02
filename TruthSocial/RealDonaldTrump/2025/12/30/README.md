@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-12-30
+
+- Posts: 18
+
+- [22:44 UTC - Windmills are killing all of our beautiful Bald Eagles!](115810938895873142/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810938895873142
+  - Windmills are killing all of our beautiful Bald Eagles!
+- [22:44 UTC - Truth Social post 115810936844871833](115810936844871833/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810936844871833
+  - _No text content captured._
+- [22:43 UTC - Truth Social post 115810934711959436](115810934711959436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810934711959436
+  - _No text content captured._
+- [22:43 UTC - Truth Social post 115810932655688574](115810932655688574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810932655688574
+  - _No text content captured._
+- [22:38 UTC - [https://www. washingtonpost.com/opinions/20 25/11/19/trump-interview-pennsylvania-steel-t...](115810913167120058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810913167120058
+  - [https://www. washingtonpost.com/opinions/20 25/11/19/trump-interview-pennsylvania-steel-tariffs/](https://www.washingtonpost.com/opinions/2025/11/19/trump-interview-pennsylvania-s...
+- [22:36 UTC - Truth Social post 115810906977143099](115810906977143099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810906977143099
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 115810906095063775](115810906095063775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810906095063775
+  - _No text content captured._
+- [22:36 UTC - Truth Social post 115810905345610788](115810905345610788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810905345610788
+  - _No text content captured._
+- [21:48 UTC - Liberal activist judges are waging war against Trump: [https:// thehill.com/opinion/judici...](115810718304828331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810718304828331
+  - Liberal activist judges are waging war against Trump: [https:// thehill.com/opinion/judiciary/ 5617407-trump-policies-challenged-activist-judges/](https://thehill.com/opinion/judic...
+- [21:48 UTC - Trump address ignites hope for future as ‘gangbuster’ economy forecasted for 2026: [https:...](115810716798307317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810716798307317
+  - Trump address ignites hope for future as ‘gangbuster’ economy forecasted for 2026: [https:// nypost.com/2025/12/18/business /trump-address-ignites-hope-for-future-as-gangbuster-eco...
+- [21:47 UTC - Trump: We're Bringing Economy Back From Ruin: [https://www. newsmax.com/newsfront/trump-ec...](115810715225124666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810715225124666
+  - Trump: We're Bringing Economy Back From Ruin: [https://www. newsmax.com/newsfront/trump-ec onomy-rebound/2025/12/17/id/1238770/](https://www.newsmax.com/newsfront/trump-economy-reb...
+- [21:47 UTC - ‘He’s Their Salesman’: Jennings Says Trump’s Speech Signifies Change In GOP 2026 Strategy:...](115810713030550767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810713030550767
+  - ‘He’s Their Salesman’: Jennings Says Trump’s Speech Signifies Change In GOP 2026 Strategy: [https:// dailycaller.com/2025/12/17/sco tt-jennings-trump-speech-change/](https://dailyc...
+- [21:46 UTC - Trump Delivers Rousing Primetime Address, Announces “Warrior Dividend” for Troops: [https:...](115810711432191643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810711432191643
+  - Trump Delivers Rousing Primetime Address, Announces “Warrior Dividend” for Troops: [https:// amac.us/newsline/economy/trump -delivers-rousing-primetime-address-announces-warrior-di...
+- [21:46 UTC - Trump Hammers the ‘Mess’ Biden Left on Border, Inflation, Wages: ‘I’m Fixing It’: [https:/...](115810709647434944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810709647434944
+  - Trump Hammers the ‘Mess’ Biden Left on Border, Inflation, Wages: ‘I’m Fixing It’: [https://www. breitbart.com/politics/2025/12 /18/trump-hammers-the-mess-biden-left-on-border-infla...
+- [21:40 UTC - Kennedy Center Board Votes Unanimously to Add Donald Trump’s Name to Iconic D.C. Venue: [h...](115810686186203677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810686186203677
+  - Kennedy Center Board Votes Unanimously to Add Donald Trump’s Name to Iconic D.C. Venue: [https://www. breitbart.com/entertainment/20 25/12/18/kennedy-center-board-votes-unanimously...
+- [21:39 UTC - Board votes Kennedy Center to be renamed 'Trump-Kennedy Center': [https://www. foxnews.com...](115810683606018453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810683606018453
+  - Board votes Kennedy Center to be renamed 'Trump-Kennedy Center': [https://www. foxnews.com/politics/board-vot es-kennedy-center-renamed-trump-kennedy-center-leavitt-says](https://w...
+- [21:39 UTC - Kennedy Center to Be Renamed Trump-Kennedy Center: [https://www. newsmax.com/us/kennedy-ce...](115810682102252570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810682102252570
+  - Kennedy Center to Be Renamed Trump-Kennedy Center: [https://www. newsmax.com/us/kennedy-center- donald-trump-board/2025/12/18/id/1238860/](https://www.newsmax.com/us/kennedy-center...
+- [21:18 UTC - Amazon to invest up to $50B to build AI infrastructure for US government agencies: [https:...](115810597668691530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115810597668691530
+  - Amazon to invest up to $50B to build AI infrastructure for US government agencies: [https://www. foxbusiness.com/markets/amazon -invest-up-50b-build-ai-infrastructure-us-government...

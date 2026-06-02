@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-12-17
+
+- Posts: 11
+
+- [20:47 UTC - Raphael Warnock was on Meet the Fake Press with a one sided and very biased Kristen Welker...](115736866317724246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115736866317724246
+  - Raphael Warnock was on Meet the Fake Press with a one sided and very biased Kristen Welker as the Host(ess!). Warnock spent the entire show using Religion to try and divide the Cou...
+- [05:40 UTC - Why did Brown University have so few Security Cameras? There can be no excuse for that. In...](115733300541760842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115733300541760842
+  - Why did Brown University have so few Security Cameras? There can be no excuse for that. In the modern age, it just doesn’t get worse!!! President DJT
+- [04:00 UTC - RT: https://truthsocial.com/users/Jay_Anthony45/statuses/115732900424005065 …And many othe...](115732907047025888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732907047025888
+  - RT: https://truthsocial.com/users/Jay_Anthony45/statuses/115732900424005065 …And many others!!!
+- [03:57 UTC - Unreasonable Search and Seizure!!! That was the FBI’s CRIMINAL RAID on Mar-a-Lago. This ca...](115732896552615984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732896552615984
+  - Unreasonable Search and Seizure!!! That was the FBI’s CRIMINAL RAID on Mar-a-Lago. This can never be allowed to happen again!!! President DJT
+- [03:56 UTC - Truth Social post 115732893354237810](115732893354237810/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732893354237810
+  - _No text content captured._
+- [03:37 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Hamas marks 38 years sinc...](115732816096748860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732816096748860
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Hamas marks 38 years since its founding, cites October 7 massacre as milestone: [https://www. jpost.com/middle-east...
+- [03:00 UTC - Trump orders 'blockade' of sanctioned oil tankers leaving, entering Venezuela: [https://ww...](115732670084362796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732670084362796
+  - Trump orders 'blockade' of sanctioned oil tankers leaving, entering Venezuela: [https://www. reuters.com/world/americas/tru mp-orders-blockade-sanctioned-oil-tankers-leaving-enteri...
+- [02:57 UTC - Hamas marks 38 years since its founding, cites October 7 massacre as milestone: [https://w...](115732659042964265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732659042964265
+  - Hamas marks 38 years since its founding, cites October 7 massacre as milestone: [https://www. jpost.com/middle-east/article- 880312](https://www.jpost.com/middle-east/article-88031...
+- [01:19 UTC - It is great to see Andrej Babis appointed again as Prime Minister of the Czech Republic. T...](115732274245124697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732274245124697
+  - It is great to see Andrej Babis appointed again as Prime Minister of the Czech Republic. Together, we will once again achieve Great Success on Defense, Energy, and Illegal Immigrat...
+- [01:05 UTC - “The Alvin Bragg case against President Donald J. Trump is the worst case I’ve ever seen i...](115732218449256267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732218449256267
+  - “The Alvin Bragg case against President Donald J. Trump is the worst case I’ve ever seen in 62 years of practicing Law in the United States of America. It was totally contrived, un...
+- [00:41 UTC - Today, I am proud to announce my nomination of Troy Edgar as the next United States Ambass...](115732126619539882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115732126619539882
+  - Today, I am proud to announce my nomination of Troy Edgar as the next United States Ambassador to El Salvador. Since returning to DHS on January 20th, Troy has shown outstanding le...

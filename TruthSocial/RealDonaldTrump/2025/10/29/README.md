@@ -1,0 +1,133 @@
+# TruthSocial / RealDonaldTrump / 2025-10-29
+
+- Posts: 43
+
+- [23:02 UTC - [https:// truthsocial.com/users/traleeca n/statuses/115459728361788892](https://truthsocia...](115459944013578860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459944013578860
+  - [https:// truthsocial.com/users/traleeca n/statuses/115459728361788892](https://truthsocial.com/users/traleecan/statuses/115459728361788892)
+- [22:12 UTC - [https:// truthsocial.com/users/traleeca n/statuses/115459728361788892](https://truthsocia...](115459747028353384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459747028353384
+  - [https:// truthsocial.com/users/traleeca n/statuses/115459728361788892](https://truthsocial.com/users/traleecan/statuses/115459728361788892) Such an honor. Millions of lives saved....
+- [22:09 UTC - [https:// truthsocial.com/users/Angela73 /statuses/115459704231729695](https://truthsocial...](115459738210721273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459738210721273
+  - [https:// truthsocial.com/users/Angela73 /statuses/115459704231729695](https://truthsocial.com/users/Angela73/statuses/115459704231729695)
+- [22:08 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459665531112888](https://tr...](115459733946137433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459733946137433
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459665531112888](https://truthsocial.com/users/IStandWithTrump47/statuses/115459665531112888)
+- [22:08 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459695902816008](https://tr...](115459732624471213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459732624471213
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459695902816008](https://truthsocial.com/users/IStandWithTrump47/statuses/115459695902816008)
+- [22:06 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459668920841338](https://tr...](115459723613028303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459723613028303
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/115459668920841338](https://truthsocial.com/users/IStandWithTrump47/statuses/115459668920841338)
+- [22:05 UTC - [https:// truthsocial.com/users/joemccui ston/statuses/115459655502285032](https://truthso...](115459721816394295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459721816394295
+  - [https:// truthsocial.com/users/joemccui ston/statuses/115459655502285032](https://truthsocial.com/users/joemccuiston/statuses/115459655502285032) Thank you! President DJT
+- [22:03 UTC - South Korea will be building its Nuclear Powered Submarine in the Philadelphia Shipyards, ...](115459712836946359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459712836946359
+  - South Korea will be building its Nuclear Powered Submarine in the Philadelphia Shipyards, right here in the good ol’ U.S.A. Shipbuilding in our Country will soon be making a BIG CO...
+- [21:47 UTC - South Korea has agreed to pay the USA 350 Billion Dollars for a lowering of the Tariff’s c...](115459650821125830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459650821125830
+  - South Korea has agreed to pay the USA 350 Billion Dollars for a lowering of the Tariff’s charged against them by the United States. Additionally, they have agreed to buy our Oil an...
+- [21:45 UTC - I (WE!) just won the War on the Climate Change Hoax. Bill Gates has finally admitted that ...](115459641125796285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459641125796285
+  - I (WE!) just won the War on the Climate Change Hoax. Bill Gates has finally admitted that he was completely WRONG on the issue. It took courage to do so, and for that we are all gr...
+- [21:37 UTC - Virginia and New Jersey, VOTE REPUBLICAN IF YOU WANT MASSIVE ENERGY COST AND CRIME REDUCTI...](115459612900259962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459612900259962
+  - Virginia and New Jersey, VOTE REPUBLICAN IF YOU WANT MASSIVE ENERGY COST AND CRIME REDUCTIONS. The Democrats will double and even triple your Energy Costs, and CRIME will be rampan...
+- [21:23 UTC - Very much looking forward to my meeting with President Xi of China. It will take place in ...](115459554252660428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459554252660428
+  - Very much looking forward to my meeting with President Xi of China. It will take place in a few hours! President DJT
+- [20:56 UTC - MAGA, NEVER FORGET, OR IT WILL HAPPEN AGAIN!!!](115459449416715730/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459449416715730
+  - MAGA, NEVER FORGET, OR IT WILL HAPPEN AGAIN!!!
+- [20:55 UTC - Former FBI Agent Walter Giardina is a DIRTY COP! He should be, along with Deranged Jack Sm...](115459446440286252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459446440286252
+  - Former FBI Agent Walter Giardina is a DIRTY COP! He should be, along with Deranged Jack Smith, the sinister team of Lisa Monaco and Andrew Weissmann, Liddle’ Jay Bratt, Norm Eisen...
+- [20:49 UTC - Truth Social post 115459421646598388](115459421646598388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459421646598388
+  - _No text content captured._
+- [19:53 UTC - The more people learn about Mamdani, the less they like him!](115459203578150327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115459203578150327
+  - The more people learn about Mamdani, the less they like him!
+- [18:17 UTC - “President Trump Opens Asia Trip by Securing Landmark Wins for America” [https://www. whit...](115458823430143771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458823430143771
+  - “President Trump Opens Asia Trip by Securing Landmark Wins for America” [https://www. whitehouse.gov/articles/2025/1 0/president-trump-opens-asia-trip-by-securing-landmark-wins-for...
+- [17:29 UTC - “President Donald J. Trump Brings Home More Billion Dollar Deals During State Visit to the...](115458636243379847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458636243379847
+  - “President Donald J. Trump Brings Home More Billion Dollar Deals During State Visit to the Republic of Korea” [https://www. whitehouse.gov/fact-sheets/202 5/10/fact-sheet-president...
+- [17:25 UTC - THANK YOU, USS GEORGE WASHINGTON!](115458619294621505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458619294621505
+  - THANK YOU, USS GEORGE WASHINGTON!
+- [16:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115458478288023570](115458513840347802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458513840347802
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115458478288023570
+- [16:55 UTC - A GREAT HONOR, THANK YOU!🇺🇸🇰🇷](115458501745548033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458501745548033
+  - A GREAT HONOR, THANK YOU!🇺🇸🇰🇷
+- [16:53 UTC - The Gyeongju National Museum🇺🇸🇰🇷](115458493961045086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458493961045086
+  - The Gyeongju National Museum🇺🇸🇰🇷
+- [16:50 UTC - When America thrives, our partners thrive — and our alliances thrive…](115458483828065961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458483828065961
+  - When America thrives, our partners thrive — and our alliances thrive…
+- [16:49 UTC - The Republic of Korea is a cherished American friend and a close ally, and as we can see i...](115458478288023570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458478288023570
+  - The Republic of Korea is a cherished American friend and a close ally, and as we can see in this beautiful city, it's truly one of the most remarkable nations anywhere on earth…
+- [16:47 UTC - Thank you for the incredible welcome, South Korea!](115458471324307354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115458471324307354
+  - Thank you for the incredible welcome, South Korea!
+- [13:06 UTC - These thugs should all be investigated and put in prison. A disgrace to humanity. Deranged...](115457600588415376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115457600588415376
+  - These thugs should all be investigated and put in prison. A disgrace to humanity. Deranged Jack Smith is a criminal!!! [https:// justthenews.com/government/cou rts-law/160-republic...
+- [09:19 UTC - Bringing back Trillions of Dollars to USA! A great trip. Dealing with very smart, talented...](115456708839350276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115456708839350276
+  - Bringing back Trillions of Dollars to USA! A great trip. Dealing with very smart, talented, and wonderful Leaders. Tomorrow, President Xi of China. It will be a great meeting for b...
+- [05:14 UTC - RT [@ SecWar](https://truthsocial.com/@SecWar) Yesterday, at the direction of President Tr...](115455747368897621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455747368897621
+  - RT [@ SecWar](https://truthsocial.com/@SecWar) Yesterday, at the direction of President Trump, the Department of War carried out three lethal kinetic strikes on four vessels operat...
+- [05:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115455741456971566](115455745913462141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455745913462141
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115455741456971566
+- [05:13 UTC - Truth Social post 115455741456971566](115455741456971566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455741456971566
+  - _No text content captured._
+- [05:11 UTC - Truth Social post 115455733920138155](115455733920138155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455733920138155
+  - _No text content captured._
+- [05:10 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115455730886682811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455730886682811
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "I was just told by the Prime Minister th...
+- [05:10 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115455730459117260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455730459117260
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "Everywhere we go, America is actually ma...
+- [05:10 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115455730231203333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455730231203333
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) on the USS George Washington: "For two and...
+- [05:10 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115455728692631605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455728692631605
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) joins Prime Minister Sanae Takaichi in meet...
+- [05:00 UTC - James Woods: “This whole video is pure gold. Adam Schiff clinging to the last shreds of a ...](115455691749593540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455691749593540
+  - James Woods: “This whole video is pure gold. Adam Schiff clinging to the last shreds of a Democrat conspiracy that has backfired horribly. Eric Schmitt then points out Schiff’s big...
+- [04:59 UTC - Truth Social post 115455686597734647](115455686597734647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455686597734647
+  - _No text content captured._
+- [04:59 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Trump’s Asia tour kicks o...](115455685813411125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455685813411125
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Trump’s Asia tour kicks off in Malaysia with historic peace accords, slashed trade barriers, & transformative criti...
+- [04:59 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump and Japan...](115455685283681353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455685283681353
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) President Donald J. Trump and Japanese Prime Minister Sanae Takaichi. 🇺🇸🤝🇯🇵
+- [04:58 UTC - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) American strength is roaring back l...](115455684649502636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455684649502636
+  - RT [@ WhiteHouse](https://truthsocial.com/@WhiteHouse) American strength is roaring back like NEVER before on the world stage. PEACE THROUGH STRENGTH. 🇺🇸
+- [03:29 UTC - For those that are asking, we didn’t come to South Korea to see Canada!](115455332224820388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455332224820388
+  - For those that are asking, we didn’t come to South Korea to see Canada!
+- [02:15 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Paul Gosar, D...](115455040845274285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115455040845274285
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Congressman Paul Gosar, D.D.S., is an America First Patriot, who is doing a fantastic job representing Arizona’s 9t...
+- [00:35 UTC - Truth Social post 115454650342550193](115454650342550193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115454650342550193
+  - _No text content captured._

@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-01-09
+
+- Posts: 18
+
+- [22:24 UTC - Many of my strongest supporters and friends in Wyoming have been calling and telling me ho...](115867481802224393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115867481802224393
+  - Many of my strongest supporters and friends in Wyoming have been calling and telling me how great “MAGA” Megan Degenfelder is, because she is considering launching a Campaign to be...
+- [22:04 UTC - “Our Country would be Venezuela on steroids if it weren’t for President Donald J. Trump!” ...](115867403112667181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115867403112667181
+  - “Our Country would be Venezuela on steroids if it weren’t for President Donald J. Trump!” “The strongest Economic Growth since 1990!” — Mark Penn
+- [22:00 UTC - Art Laffer and Stephen Moore have written an incredible Book, “The Trump Economic Miracle:...](115867385857410443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115867385857410443
+  - Art Laffer and Stephen Moore have written an incredible Book, “The Trump Economic Miracle: And the Plan to Unleash Prosperity Again.” In just under one year, thanks to our use of T...
+- [19:58 UTC - Today, the United States of America, in coordination with the Interim Authorities of Venez...](115866908684935165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115866908684935165
+  - Today, the United States of America, in coordination with the Interim Authorities of Venezuela, seized an oil tanker which departed Venezuela without our approval. This tanker is n...
+- [18:46 UTC - The largest Oil Companies in the World are coming to the White House at 2:30 P.M. Everybod...](115866624593954329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115866624593954329
+  - The largest Oil Companies in the World are coming to the White House at 2:30 P.M. Everybody wants to be there. It’s too bad that the Ballroom hasn’t completed because, if it were,...
+- [18:45 UTC - I look forward to having a meeting with Gustavo Petro, the President of Colombia, in the W...](115866622554668872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115866622554668872
+  - I look forward to having a meeting with Gustavo Petro, the President of Colombia, in the White House, during the first week of February. I am sure it will work out very well for Co...
+- [13:32 UTC - Truth Social post 115865390789458148](115865390789458148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115865390789458148
+  - _No text content captured._
+- [13:30 UTC - Truth Social post 115865383345771601](115865383345771601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115865383345771601
+  - _No text content captured._
+- [09:19 UTC - Venezuela is releasing large numbers of political prisoners as a sign of “Seeking Peace.” ...](115864395969123502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115864395969123502
+  - Venezuela is releasing large numbers of political prisoners as a sign of “Seeking Peace.” This is a very important and smart gesture. The U.S.A. and Venezuela are working well toge...
+- [05:01 UTC - Over million people rally: Iran’s 2nd largest city under protesters’ control, regime force...](115863379883214601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115863379883214601
+  - Over million people rally: Iran’s 2nd largest city under protesters’ control, regime forces leave: [https:// youtube.com/watch?v=eDpP53YMys U&pp=0gcJCTIBo7VqN5tD](https://youtube.c...
+- [02:04 UTC - I will be interviewed by Sean Hannity, NOW! FoxNews. President DJT](115862684255980250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862684255980250
+  - I will be interviewed by Sean Hannity, NOW! FoxNews. President DJT
+- [01:59 UTC - Incompetent California “Leaders,” headed by Governor Gavin Newscum, and a traveling Mayor ...](115862665860473431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862665860473431
+  - Incompetent California “Leaders,” headed by Governor Gavin Newscum, and a traveling Mayor who likes Africa better than the USA (she chose to go there rather than stay home and figh...
+- [01:27 UTC - FREE TINA PETERS!](115862540912655667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862540912655667
+  - FREE TINA PETERS!
+- [01:21 UTC - Truth Social post 115862514405297551](115862514405297551/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862514405297551
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 115862513677602476](115862513677602476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862513677602476
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 115862512875924231](115862512875924231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862512875924231
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 115862512059171188](115862512059171188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862512059171188
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 115862511063957968](115862511063957968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115862511063957968
+  - _No text content captured._

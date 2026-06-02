@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2026-01-21
+
+- Posts: 12
+
+- [23:03 UTC - FCC takes aim at ‘The View,’ ‘Jimmy Kimmel Live!’ in fight over ‘equal time’ rules for pol...](115935584105062053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115935584105062053
+  - FCC takes aim at ‘The View,’ ‘Jimmy Kimmel Live!’ in fight over ‘equal time’ rules for politicians: [https://www. latimes.com/entertainment-arts /business/story/2026-01-21/fcc-says...
+- [20:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115935044672081563](115935054001895380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115935054001895380
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115935044672081563
+- [20:46 UTC - Truth Social post 115935044672081563](115935044672081563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115935044672081563
+  - _No text content captured._
+- [19:27 UTC - Based upon a very productive meeting that I have had with the Secretary General of NATO, M...](115934734335579278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115934734335579278
+  - Based upon a very productive meeting that I have had with the Secretary General of NATO, Mark Rutte, we have formed the framework of a future deal with respect to Greenland and, in...
+- [15:14 UTC - Wow! Biden's FBI paid anti-Trump 'Sedition Hunters' as informants in J6, Arctic Frost prob...](115933737815800647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115933737815800647
+  - Wow! Biden's FBI paid anti-Trump 'Sedition Hunters' as informants in J6, Arctic Frost probes, memos show: [https:// justthenews.com/government/fed eral-agencies/biden-era-fbi-paid-...
+- [03:00 UTC - Truth Social post 115930851302772912](115930851302772912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930851302772912
+  - _No text content captured._
+- [02:40 UTC - [https:// x.com/BasedMikeLee/status/2013 782673924170231](https://x.com/BasedMikeLee/statu...](115930772612778456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930772612778456
+  - [https:// x.com/BasedMikeLee/status/2013 782673924170231](https://x.com/BasedMikeLee/status/2013782673924170231)
+- [02:24 UTC - Ruddy: Bessent Sees 7 Trump Successes: [https://www. newsmax.com/ruddy/chris-ruddy- scott-...](115930712550582091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930712550582091
+  - Ruddy: Bessent Sees 7 Trump Successes: [https://www. newsmax.com/ruddy/chris-ruddy- scott-bessent-donald-trump/2026/01/19/id/1242743/](https://www.newsmax.com/ruddy/chris-ruddy-sco...
+- [02:24 UTC - America will be well represented in Davos — by me. GOD BLESS YOU ALL! PRESIDENT DONALD J. ...](115930710693248379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930710693248379
+  - America will be well represented in Davos — by me. GOD BLESS YOU ALL! PRESIDENT DONALD J. TRUMP
+- [02:22 UTC - Heading for Davos! Will be interviewed by Katie Pavlich at 10 P.M. on NewsNation. Enjoy!](115930705131305934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930705131305934
+  - Heading for Davos! Will be interviewed by Katie Pavlich at 10 P.M. on NewsNation. Enjoy!
+- [01:32 UTC - [https:// truthsocial.com/@repstutzman/1 15930377798794346](https://truthsocial.com/@repst...](115930506752012690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930506752012690
+  - [https:// truthsocial.com/@repstutzman/1 15930377798794346](https://truthsocial.com/@repstutzman/115930377798794346)
+- [01:31 UTC - [https:// truthsocial.com/@RepBrianMast/ 115930472232876992](https://truthsocial.com/@RepB...](115930503861527141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115930503861527141
+  - [https:// truthsocial.com/@RepBrianMast/ 115930472232876992](https://truthsocial.com/@RepBrianMast/115930472232876992)

@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2026-01-02
+
+- Posts: 12
+
+- [20:47 UTC - Truth Social post 115827465620588754](115827465620588754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115827465620588754
+  - _No text content captured._
+- [14:22 UTC - Tariffs are an overwhelming benefit to our Nation, as they have been incredible for our Na...](115825951172960005/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825951172960005
+  - Tariffs are an overwhelming benefit to our Nation, as they have been incredible for our National Security and Prosperity (like nobody has ever seen before!). Losing our ability to...
+- [14:19 UTC - How beautiful of a building is this?](115825939879230793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825939879230793
+  - How beautiful of a building is this?
+- [14:17 UTC - [https://www. washingtonpost.com/opinions/20 25/11/19/trump-interview-pennsylvania-steel-t...](115825932077745763/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825932077745763
+  - [https://www. washingtonpost.com/opinions/20 25/11/19/trump-interview-pennsylvania-steel-tariffs/](https://www.washingtonpost.com/opinions/2025/11/19/trump-interview-pennsylvania-s...
+- [14:16 UTC - Eagles going down!](115825927097030404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825927097030404
+  - Eagles going down!
+- [14:15 UTC - Killing birds by the millions!](115825922328928515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825922328928515
+  - Killing birds by the millions!
+- [13:50 UTC - Green energy company in the hot seat after bald eagles knocked out of the skies: [https://...](115825822957307790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825822957307790
+  - Green energy company in the hot seat after bald eagles knocked out of the skies: [https://www. foxnews.com/politics/green-ene rgy-company-hot-seat-after-bald-eagles-knocked-out-of-...
+- [13:24 UTC - Antifa violence exposes UC Berkeley’s hypocrisy on free speech and tolerance: [https://www...](115825721310088041/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825721310088041
+  - Antifa violence exposes UC Berkeley’s hypocrisy on free speech and tolerance: [https://www. foxnews.com/opinion/antifa-vio lence-exposes-uc-berkeleys-hypocrisy-free-speech-toleranc...
+- [11:56 UTC - The White House Doctors have just reported that I am in “PERFECT HEALTH,” and that I “ACED...](115825378093317232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115825378093317232
+  - The White House Doctors have just reported that I am in “PERFECT HEALTH,” and that I “ACED” (Meaning, was correct on 100% of the questions asked!), for the third straight time, my...
+- [07:58 UTC - If Iran shots and violently kills peaceful protesters, which is their custom, the United S...](115824439366264186/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115824439366264186
+  - If Iran shots and violently kills peaceful protesters, which is their custom, the United States of America will come to their rescue. We are locked and loaded and ready to go. Than...
+- [02:26 UTC - Great job by Art Del Cueto, a Border hero, in explaining, on FoxNews, that Border crossing...](115823137139241980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115823137139241980
+  - Great job by Art Del Cueto, a Border hero, in explaining, on FoxNews, that Border crossings are virtually nonexistent under the Trump Administration. In past years, under Sleepy Jo...
+- [01:30 UTC - WOW!](115822915162697186/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115822915162697186
+  - WOW!

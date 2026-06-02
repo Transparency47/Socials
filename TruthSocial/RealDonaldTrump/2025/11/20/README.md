@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-11-20
+
+- Posts: 22
+
+- [15:21 UTC - SEDITIOUS BEHAVIOR, punishable by DEATH!](115582703277798715/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582703277798715
+  - SEDITIOUS BEHAVIOR, punishable by DEATH!
+- [14:17 UTC - RT: https://truthsocial.com/users/WashingtonExaminer/statuses/115579789920906826 This is r...](115582451169685243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582451169685243
+  - RT: https://truthsocial.com/users/WashingtonExaminer/statuses/115579789920906826 This is really bad, and Dangerous to our Country. Their words cannot be allowed to stand. SEDITIOUS...
+- [14:12 UTC - RT [@ pengal82](https://truthsocial.com/@pengal82) Insurrection. TREASON!](115582432927601271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582432927601271
+  - RT [@ pengal82](https://truthsocial.com/@pengal82) Insurrection. TREASON!
+- [14:12 UTC - RT [@ DSharp1958](https://truthsocial.com/@DSharp1958) Sedition](115582432734779071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582432734779071
+  - RT [@ DSharp1958](https://truthsocial.com/@DSharp1958) Sedition
+- [14:12 UTC - RT [@ sandyjp](https://truthsocial.com/@sandyjp) Indict all of them.](115582431815542761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582431815542761
+  - RT [@ sandyjp](https://truthsocial.com/@sandyjp) Indict all of them.
+- [14:12 UTC - RT [@ Lauriedt](https://truthsocial.com/@Lauriedt) UNLAWFUL is the key word, folks! UNLAWF...](115582431583005585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582431583005585
+  - RT [@ Lauriedt](https://truthsocial.com/@Lauriedt) UNLAWFUL is the key word, folks! UNLAWFUL!
+- [14:12 UTC - RT [@ Nathan6617](https://truthsocial.com/@Nathan6617) Traitors](115582430673800900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582430673800900
+  - RT [@ Nathan6617](https://truthsocial.com/@Nathan6617) Traitors
+- [14:11 UTC - RT [@ enigma48](https://truthsocial.com/@enigma48) The Dems are getting closer and closer ...](115582429157321995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582429157321995
+  - RT [@ enigma48](https://truthsocial.com/@enigma48) The Dems are getting closer and closer to being on their way out.
+- [14:11 UTC - RT [@ Jet63](https://truthsocial.com/@Jet63) If they don’t follow orders they should be fi...](115582428512525396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582428512525396
+  - RT [@ Jet63](https://truthsocial.com/@Jet63) If they don’t follow orders they should be fired
+- [14:10 UTC - RT [@ DeplorableWorldNewsi](https://truthsocial.com/@DeplorableWorldNewsi) A!nd they can b...](115582425227683549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582425227683549
+  - RT [@ DeplorableWorldNewsi](https://truthsocial.com/@DeplorableWorldNewsi) A!nd they can be brought to justice under the UCMJ, get busted down or Dishonorably Discharged, and lose...
+- [14:10 UTC - RT [@ Earl34](https://truthsocial.com/@Earl34) Anything these traitors disagree with is wh...](115582424437984953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582424437984953
+  - RT [@ Earl34](https://truthsocial.com/@Earl34) Anything these traitors disagree with is what they consider an illegal order. They are all a disgrace to their uniforms.
+- [14:10 UTC - RT [@ Larrydean093](https://truthsocial.com/@Larrydean093) Domestic terrorist Democrats al...](115582422242555421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582422242555421
+  - RT [@ Larrydean093](https://truthsocial.com/@Larrydean093) Domestic terrorist Democrats always causing chaos and destruction destroying people's lives
+- [14:09 UTC - RT [@ Beersnake](https://truthsocial.com/@Beersnake) I think they should be charged with s...](115582421661644971/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582421661644971
+  - RT [@ Beersnake](https://truthsocial.com/@Beersnake) I think they should be charged with sedition Also save those tapes and run them when the next democommy is in office
+- [14:09 UTC - RT [@ RFD3](https://truthsocial.com/@RFD3) It's called a seditious conspiracy and every on...](115582420617091947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582420617091947
+  - RT [@ RFD3](https://truthsocial.com/@RFD3) It's called a seditious conspiracy and every one of them should be frog marched out of their homes at 3:00 AM with FOX News cameras filmi...
+- [14:09 UTC - RT [@ KathrynKQ](https://truthsocial.com/@KathrynKQ) Why aren't they under arrest for sedi...](115582419866601979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582419866601979
+  - RT [@ KathrynKQ](https://truthsocial.com/@KathrynKQ) Why aren't they under arrest for sedition......thrown out of their offices...ENOUGH IS ENOUGH...
+- [14:08 UTC - [https:// truthsocial.com/@WashingtonExa miner/115579789920906826](https://truthsocial.com...](115582417825161974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115582417825161974
+  - [https:// truthsocial.com/@WashingtonExa miner/115579789920906826](https://truthsocial.com/@WashingtonExaminer/115579789920906826) . It’s called SEDITIOUS BEHAVIOR AT THE HIGHEST L...
+- [05:49 UTC - Why does ABC Fake News keep Jimmy Kimmel, a man with NO TALENT and VERY POOR TELEVISION RA...](115580455960616035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115580455960616035
+  - Why does ABC Fake News keep Jimmy Kimmel, a man with NO TALENT and VERY POOR TELEVISION RATINGS, on the air? Why do the TV Syndicates put up with it? Also, totally biased coverage....
+- [05:48 UTC - Ronaldo is a GREAT GUY. Loved meeting him at the White House. Really smart, and cool!!! Pr...](115580448819564585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115580448819564585
+  - Ronaldo is a GREAT GUY. Loved meeting him at the White House. Really smart, and cool!!! President DJT
+- [05:32 UTC - According to most, “One of the best opening ten months for a President in USA History.” Th...](115580387278716452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115580387278716452
+  - According to most, “One of the best opening ten months for a President in USA History.” Thank you!
+- [01:38 UTC - Truth Social post 115579465880072890](115579465880072890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115579465880072890
+  - _No text content captured._
+- [01:29 UTC - Communist Mayor of New York City, Zohran “Kwame” Mamdani, has asked for a meeting. We have...](115579432475646132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115579432475646132
+  - Communist Mayor of New York City, Zohran “Kwame” Mamdani, has asked for a meeting. We have agreed that this meeting will take place at the Oval Office on Friday, November 21st. Fur...
+- [01:20 UTC - Jeffrey Epstein, who was charged by the Trump Justice Department in 2019 (Not the Democrat...](115579394833948106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115579394833948106
+  - Jeffrey Epstein, who was charged by the Trump Justice Department in 2019 (Not the Democrats!), was a lifelong Democrat, donated Thousands of Dollars to Democrat Politicians, and wa...

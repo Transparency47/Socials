@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-12-13
+
+- Posts: 9
+
+- [23:03 UTC - The Brown University Police reversed their previous statement — The suspect is NOT in cust...](115714751735035903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115714751735035903
+  - The Brown University Police reversed their previous statement — The suspect is NOT in custody.
+- [22:44 UTC - I have been briefed on the shooting that took place at Brown University in Rhode Island. T...](115714676658999589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115714676658999589
+  - I have been briefed on the shooting that took place at Brown University in Rhode Island. The FBI is on the scene. The suspect is in custody. God bless the victims and the families...
+- [20:09 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Getting ready to land at ...](115714068900493554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115714068900493554
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Getting ready to land at Fort McHenry for my short drive to the Army-Navy Game. Everyone is asking who am I support...
+- [20:09 UTC - The new mirror and bronze lettering at the door to The West Wing, along The Presidential W...](115714068315379947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115714068315379947
+  - The new mirror and bronze lettering at the door to The West Wing, along The Presidential Walk of Fame!
+- [19:14 UTC - Getting ready to land at Fort McHenry for my short drive to the Army-Navy Game. Everyone i...](115713851852551574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115713851852551574
+  - Getting ready to land at Fort McHenry for my short drive to the Army-Navy Game. Everyone is asking who am I supporting, Army or Navy? My answer is: “You must be joking if you think...
+- [18:55 UTC - We mourn the loss of three Great American Patriots in Syria, two soldiers, and one Civilia...](115713778827349150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115713778827349150
+  - We mourn the loss of three Great American Patriots in Syria, two soldiers, and one Civilian Interpreter. Likewise, we pray for the three injured soldiers who, it has just been conf...
+- [15:52 UTC - Wow! The great Art (Arthur) Laffer, Ronald Reagan’s economic “whiz,” and highly respected ...](115713058860389475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115713058860389475
+  - Wow! The great Art (Arthur) Laffer, Ronald Reagan’s economic “whiz,” and highly respected by all, said in a speech last night that, “Donald Trump is the greatest President in histo...
+- [14:00 UTC - [https:// justthenews.com/politics-polic y/4x-more-illegals-ny-prisons-share-population-de...](115712618491228158/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115712618491228158
+  - [https:// justthenews.com/politics-polic y/4x-more-illegals-ny-prisons-share-population-despite-sanctuary-policies-releasing](https://justthenews.com/politics-policy/4x-more-illega...
+- [05:52 UTC - Republicans in the Indiana State Senate, who voted against a Majority in the U.S. House of...](115710698623079249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115710698623079249
+  - Republicans in the Indiana State Senate, who voted against a Majority in the U.S. House of Representatives, should be ashamed of themselves. Headed by a total loser named Rod Bray,...

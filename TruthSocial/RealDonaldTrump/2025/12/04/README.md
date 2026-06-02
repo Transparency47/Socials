@@ -1,0 +1,97 @@
+# TruthSocial / RealDonaldTrump / 2025-12-04
+
+- Posts: 31
+
+- [23:55 UTC - Truth Social post 115663996627837764](115663996627837764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663996627837764
+  - _No text content captured._
+- [23:54 UTC - Truth Social post 115663994752799535](115663994752799535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663994752799535
+  - _No text content captured._
+- [23:53 UTC - [https://www. foxnews.com/opinion/day-hittin g-golf-balls-driving-range-trump-revealed-rea...](115663989421753362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663989421753362
+  - [https://www. foxnews.com/opinion/day-hittin g-golf-balls-driving-range-trump-revealed-real-difference-between-presidents](https://www.foxnews.com/opinion/day-hitting-golf-balls-dr...
+- [23:51 UTC - In the good old days, long before Reverend Al Sharpton had massive stomach surgery, he wou...](115663982335866800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663982335866800
+  - In the good old days, long before Reverend Al Sharpton had massive stomach surgery, he would do anything to be with me, but he has to be faithful to the Radical Left in order to ke...
+- [23:51 UTC - Truth Social post 115663980401449941](115663980401449941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663980401449941
+  - _No text content captured._
+- [23:50 UTC - Truth Social post 115663979001006580](115663979001006580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663979001006580
+  - _No text content captured._
+- [23:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663976628593590](115663977245845999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663977245845999
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663976628593590
+- [23:50 UTC - Truth Social post 115663976628593590](115663976628593590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663976628593590
+  - _No text content captured._
+- [23:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663974715531786](115663975525032776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663975525032776
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663974715531786
+- [23:49 UTC - Truth Social post 115663974715531786](115663974715531786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663974715531786
+  - _No text content captured._
+- [23:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663972462970679](115663973745847763/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663973745847763
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115663972462970679
+- [23:49 UTC - Truth Social post 115663972462970679](115663972462970679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663972462970679
+  - _No text content captured._
+- [23:48 UTC - Truth Social post 115663970041030162](115663970041030162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663970041030162
+  - _No text content captured._
+- [23:48 UTC - Truth Social post 115663968461702019](115663968461702019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663968461702019
+  - _No text content captured._
+- [23:47 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) It’s time to revoke the legal status of t...](115663964699918360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663964699918360
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) It’s time to revoke the legal status of the Afghanis. Even the ones who we thought we could trust the most are extremely dangerous....
+- [23:46 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) This is why we elected Trump. This is why...](115663963090899760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663963090899760
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) This is why we elected Trump. This is why he’ll go down as one of the most consequential presidents in American history. With Washi...
+- [23:46 UTC - ‘First Lady of Technology’ Melania Trump pioneers FLOTUS book with global enthusiasm: [htt...](115663961478701629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663961478701629
+  - ‘First Lady of Technology’ Melania Trump pioneers FLOTUS book with global enthusiasm: [https:// justthenews.com/government/whi te-house/first-lady-technology-melania-trump-pioneers...
+- [23:45 UTC - Ignore Failing New York Times, Trump Remains Most Accessible, Energetic President in Histo...](115663957175232306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663957175232306
+  - Ignore Failing New York Times, Trump Remains Most Accessible, Energetic President in History: [https:// amac.us/newsline/politics/igno re-failing-new-york-times-trump-remains-most-...
+- [23:44 UTC - Hooray for Manhattan US Attorney Jay Clayton and his war against gangs: [https:// nypost.c...](115663952570644904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663952570644904
+  - Hooray for Manhattan US Attorney Jay Clayton and his war against gangs: [https:// nypost.com/2025/12/01/opinion/ hooray-for-manhattan-us-attorney-jay-clayton-and-his-war-against-ga...
+- [23:43 UTC - Netanyahu submits request to President Herzog for pardon: [https://www. israelnationalnews...](115663947824431940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115663947824431940
+  - Netanyahu submits request to President Herzog for pardon: [https://www. israelnationalnews.com/news/41 8578](https://www.israelnationalnews.com/news/418578)
+- [17:02 UTC - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incre...](115662373086221699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662373086221699
+  - It is my Honor to endorse MAGA Warrior TREVER NEHLS, who is running to represent the incredible people of Texas’ 22nd Congressional District. Trever's brother is the GREAT Congress...
+- [17:01 UTC - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texa...](115662369700704369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662369700704369
+  - Congressman John “Judge” Carter is a Fantastic Representative for the Great People of Texas’ 31st Congressional District! “Judge” served over 20 years as a District Court Judge in...
+- [17:01 UTC - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texa...](115662367365090087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662367365090087
+  - Congressman Randy Weber is doing a fantastic job representing the wonderful people of Texas’ 14th Congressional District! A successful Businessman, Randy knows the America First Po...
+- [17:00 UTC - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Con...](115662365895882699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662365895882699
+  - Congressman Michael Cloud is a Tremendous Advocate for the Great People of Texas’ 27th Congressional District! As a Member of the POWERFUL House Appropriations Committee, Michael i...
+- [17:00 UTC - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texa...](115662364552464423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662364552464423
+  - Congressman Nathaniel Moran is doing a fantastic job representing the Great People of Texas’ 1st Congressional District! Nathaniel has an incredible Record of Success, and strong s...
+- [17:00 UTC - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional Dis...](115662363349008651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115662363349008651
+  - Congressman Craig Goldman is an incredible Representative of Texas’ 12th Congressional District! A Fifth Generation Texan, Craig served as a State Representative for 12 years prior...
+- [12:25 UTC - I’m dealing with, THE POISONING OF AMERICA!](115661283977133711/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115661283977133711
+  - I’m dealing with, THE POISONING OF AMERICA!
+- [04:32 UTC - Turnberry in Scotland. Number One Rated in the World!!!](115659423260785023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115659423260785023
+  - Turnberry in Scotland. Number One Rated in the World!!!
+- [04:31 UTC - Great! Our Elections are Crooked and Rigged. The voters know it. Must bring integrity back...](115659421538834732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115659421538834732
+  - Great! Our Elections are Crooked and Rigged. The voters know it. Must bring integrity back to Voting. START WITH VOTER ID! [https:// justthenews.com/politics-polic y/elections/elec...
+- [03:37 UTC - Great job by wonderful TRICIA MCLAUGHLIN, DHS Assistant Secretary, on the Sean Hannity Sho...](115659207921669230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115659207921669230
+  - Great job by wonderful TRICIA MCLAUGHLIN, DHS Assistant Secretary, on the Sean Hannity Show. Many Illegals from around our Nation charged with serious crimes this week. Tricia real...
+- [01:07 UTC - The SLEAZEBAG Governor of Colorado, Jared Polis, refuses to allow an elderly woman, Tina P...](115658619396755634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115658619396755634
+  - The SLEAZEBAG Governor of Colorado, Jared Polis, refuses to allow an elderly woman, Tina Peters, who was unfairly convicted of what the Democrats do, cheating on Elections, out of...

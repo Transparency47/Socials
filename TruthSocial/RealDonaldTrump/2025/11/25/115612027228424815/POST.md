@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115612027228424815 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115612027228424815 -->
+<!-- date_published: 2025-11-25T19:38:56.566000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:49:03.845967+00:00 -->
+
+# It looks like the Indiana Senate Republicans will be coming back in two weeks to take up R...
+
+It looks like the Indiana Senate Republicans will be coming back in two weeks to take up Redistricting, a very important initiative to balance out the Democrats’ endless “Sue to Blue” and Census rigging strategy that has stolen seats from Republicans, and given them to Democrats who would not have them if they played fairly. Radical Left Democrats have rigged the game for a long time — Remember, until the GREAT Speaker Newt Gingrich, Democrats controlled the House for 40 YEARS in a row, and now, Republicans must fight back for the American People who want and need the Massive Tax and Regulation Cuts, Lower Prices, Strong Borders, Powerful Military, and Safe Cities that Republicans are delivering, and Democrats are fighting against every step of the way. Democrats, if they steal power back, will again give us the Highest Ever Inflation, Sky High Prices, Open Borders, Transgender for Everybody, DEI, and unlimited Violent Crime that they caused and allowed until we came back into Office this year. Republicans must do what is necessary to stop the destruction of our Country by these people who hate America, and are so ungrateful for the opportunities our Nation has given them. Our Country and Democracy is special, and we must do everything we possibly can to defend it from the Far Left infiltrators who want to destroy it. I am glad to hear the Indiana House is stepping up to do the right thing, and I hope the Senate finds the Votes. If they do, I will make sure that all of those people supporting me win their Primaries, and go on to Greatness but, if they don’t, I will partner with the incredibly powerful MAGA Grassroots Republicans to elect STRONG Republicans who are ready to do what is needed to protect our Country and, MAKE AMERICA GREAT AGAIN!

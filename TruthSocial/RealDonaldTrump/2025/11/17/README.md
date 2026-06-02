@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2025-11-17
+
+- Posts: 35
+
+- [22:44 UTC - Congratulations to the World on the incredible Vote of the United Nations Security Council...](115567457865630938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115567457865630938
+  - Congratulations to the World on the incredible Vote of the United Nations Security Council, just moments ago, acknowledging and endorsing the BOARD OF PEACE, which will be chaired...
+- [22:02 UTC - Scott Jennings has just written a powerful new book, “A Revolution of Common Sense: How Do...](115567293174185547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115567293174185547
+  - Scott Jennings has just written a powerful new book, “A Revolution of Common Sense: How Donald Trump Stormed Washington and Fought for Western Civilization.” With his distinctive W...
+- [21:08 UTC - Lines are forming to run against RINO Indiana Senator Rod Bray, and those few other Senato...](115567081810209795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115567081810209795
+  - Lines are forming to run against RINO Indiana Senator Rod Bray, and those few other Senators who support him, in the upcoming Primaries. Every one of them will lose, in Record Numb...
+- [21:05 UTC - In the entire United States of America, Republican or Democrat, only Indiana “Republican” ...](115567070909453272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115567070909453272
+  - In the entire United States of America, Republican or Democrat, only Indiana “Republican” State Senator Rod Bray, a Complete and Total RINO, is opposed to redistricting for purpose...
+- [16:03 UTC - I will be strongly endorsing against any State Senator or House member from the Great Stat...](115565882166681770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115565882166681770
+  - I will be strongly endorsing against any State Senator or House member from the Great State of Indiana that votes against the Republican Party, and our Nation, by not allowing for...
+- [14:35 UTC - RT: https://truthsocial.com/users/ChrisMartineauAuthor/statuses/115277428755861763 Wray li...](115565536337360159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115565536337360159
+  - RT: https://truthsocial.com/users/ChrisMartineauAuthor/statuses/115277428755861763 Wray lied!!!
+- [14:35 UTC - RT [@ GNorberg](https://truthsocial.com/@GNorberg) Obama’s Russia HOAX Treason Club.](115565534074829466/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115565534074829466
+  - RT [@ GNorberg](https://truthsocial.com/@GNorberg) Obama’s Russia HOAX Treason Club.
+- [14:34 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It was just revealed that...](115565531688158629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115565531688158629
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It was just revealed that the FBI had secretly placed, against all Rules, Regulations, Protocols, and Standards, 27...
+- [13:51 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115562700432868071 Emilio is al...](115565361275932801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115565361275932801
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115562700432868071 Emilio is also a great friend of UFC STAR, a truly great and popular fighting “machine,” Jorge Masvida...
+- [05:26 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115563376409527643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563376409527643
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) on the border: "I had a very safe border th...
+- [05:26 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115563375844609829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563375844609829
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "I always would say to my kids, 'No drugs...
+- [05:25 UTC - Truth Social post 115563373386292846](115563373386292846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563373386292846
+  - _No text content captured._
+- [05:25 UTC - Truth Social post 115563372477031098](115563372477031098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563372477031098
+  - _No text content captured._
+- [05:23 UTC - [https:// x.com/ericldaugh/status/198971 3580380373459?s=46](https://x.com/ericldaugh/stat...](115563364738024266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563364738024266
+  - [https:// x.com/ericldaugh/status/198971 3580380373459?s=46](https://x.com/ericldaugh/status/1989713580380373459?s=46)
+- [05:23 UTC - [https:// x.com/thethe1776/status/199012 6259817635929?s=46](https://x.com/thethe1776/stat...](115563363957913782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563363957913782
+  - [https:// x.com/thethe1776/status/199012 6259817635929?s=46](https://x.com/thethe1776/status/1990126259817635929?s=46)
+- [05:23 UTC - [https:// x.com/willsmi1/status/19898283 32704395618?s=46](https://x.com/willsmi1/status/1...](115563363141806280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563363141806280
+  - [https:// x.com/willsmi1/status/19898283 32704395618?s=46](https://x.com/willsmi1/status/1989828332704395618?s=46)
+- [05:20 UTC - [https:// x.com/milalovesjoe/status/1989 855346995921101?s=46](https://x.com/milalovesjoe/...](115563351711677385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563351711677385
+  - [https:// x.com/milalovesjoe/status/1989 855346995921101?s=46](https://x.com/milalovesjoe/status/1989855346995921101?s=46)
+- [05:19 UTC - [https:// x.com/ilegvm/status/1989794667 903553742?s=46](https://x.com/ilegvm/status/19897...](115563350840001007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563350840001007
+  - [https:// x.com/ilegvm/status/1989794667 903553742?s=46](https://x.com/ilegvm/status/1989794667903553742?s=46)
+- [05:19 UTC - [https:// x.com/trumpwarroom/status/1989 451862781665722?s=46](https://x.com/trumpwarroom/...](115563350067629860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563350067629860
+  - [https:// x.com/trumpwarroom/status/1989 451862781665722?s=46](https://x.com/trumpwarroom/status/1989451862781665722?s=46)
+- [05:19 UTC - RT [@ KarliBonne](https://truthsocial.com/@KarliBonne) They raided Mar-a-Lago to get cross...](115563348326364884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563348326364884
+  - RT [@ KarliBonne](https://truthsocial.com/@KarliBonne) They raided Mar-a-Lago to get crossfire hurricane documents
+- [05:18 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Treasury Secretary Scott ...](115563344843726813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563344843726813
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Treasury Secretary Scott Bessent: "It's going to be through growth... In the first two quarters, we are going to se...
+- [05:18 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) NEC Director Kevin Hasset...](115563343653353957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563343653353957
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) NEC Director Kevin Hassett: Purchasing power dropped by about $3,000 under Joe Biden because the wages didn't keep...
+- [05:17 UTC - [https:// x.com/car_oline2001/status/199 0045277538210034?s=46](https://x.com/car_oline200...](115563340826536474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563340826536474
+  - [https:// x.com/car_oline2001/status/199 0045277538210034?s=46](https://x.com/car_oline2001/status/1990045277538210034?s=46)
+- [05:16 UTC - [https:// x.com/thewriterme/status/19900 95480504684645?s=46](https://x.com/thewriterme/st...](115563339113497353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563339113497353
+  - [https:// x.com/thewriterme/status/19900 95480504684645?s=46](https://x.com/thewriterme/status/1990095480504684645?s=46)
+- [05:13 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) 🚨 Fed Study Vindicates Tr...](115563327405529077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563327405529077
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) 🚨 Fed Study Vindicates Trump Trade Policy: 150 Years of Evidence Shows Tariffs Lower Inflation [https://www. breitb...
+- [05:13 UTC - [https:// x.com/gunthereagleman/status/1 990024787490423014?s=46](https://x.com/gunthereag...](115563324420939648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563324420939648
+  - [https:// x.com/gunthereagleman/status/1 990024787490423014?s=46](https://x.com/gunthereagleman/status/1990024787490423014?s=46)
+- [05:12 UTC - [https:// x.com/trump_army_/status/19900 78332830937158?s=46](https://x.com/trump_army_/st...](115563322388441031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563322388441031
+  - [https:// x.com/trump_army_/status/19900 78332830937158?s=46](https://x.com/trump_army_/status/1990078332830937158?s=46)
+- [05:12 UTC - [https:// x.com/girlpatriot1974/status/1 989775016251330763?s=46](https://x.com/girlpatrio...](115563320941269104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563320941269104
+  - [https:// x.com/girlpatriot1974/status/1 989775016251330763?s=46](https://x.com/girlpatriot1974/status/1989775016251330763?s=46)
+- [05:11 UTC - [https:// x.com/_maga_news_/status/19897 61598890938414?s=46](https://x.com/_maga_news_/st...](115563319778393213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563319778393213
+  - [https:// x.com/_maga_news_/status/19897 61598890938414?s=46](https://x.com/_maga_news_/status/1989761598890938414?s=46)
+- [05:11 UTC - [https:// x.com/vigilantfox/status/19895 54633627291702?s=46](https://x.com/vigilantfox/st...](115563317900045180/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563317900045180
+  - [https:// x.com/vigilantfox/status/19895 54633627291702?s=46](https://x.com/vigilantfox/status/1989554633627291702?s=46)
+- [05:11 UTC - [https:// x.com/chicago1ray/status/19901 98243284914261?s=46](https://x.com/chicago1ray/st...](115563316424570330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563316424570330
+  - [https:// x.com/chicago1ray/status/19901 98243284914261?s=46](https://x.com/chicago1ray/status/1990198243284914261?s=46)
+- [05:06 UTC - It’s a Democrat Hoax for purposes of deflection, just like the Russia, Russia, Russia Scam...](115563298458806964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115563298458806964
+  - It’s a Democrat Hoax for purposes of deflection, just like the Russia, Russia, Russia Scam!!! They had the sleazy relationships with Epstein, and should be prosecuted!!!
+- [02:34 UTC - It is my Great Honor to endorse Emilio T. Gonzales to be the next Mayor of the Beautiful C...](115562700432868071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115562700432868071
+  - It is my Great Honor to endorse Emilio T. Gonzales to be the next Mayor of the Beautiful City of Miami, Florida! A very successful Businessman, Civic Leader, former CEO of Miami In...
+- [02:30 UTC - Wacky Marjorie “Traitor” Brown (Remember, Green turns to Brown where there is ROT involved...](115562684567737579/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115562684567737579
+  - Wacky Marjorie “Traitor” Brown (Remember, Green turns to Brown where there is ROT involved!) is working overtime to try and portray herself as a victim when, in actuality, she is t...
+- [02:15 UTC - As I said on Friday night aboard Air Force One to the Fake News Media, House Republicans s...](115562626931599548/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115562626931599548
+  - As I said on Friday night aboard Air Force One to the Fake News Media, House Republicans should vote to release the Epstein files, because we have nothing to hide, and it’s time to...

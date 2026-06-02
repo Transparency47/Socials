@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-11-19
+
+- Posts: 17
+
+- [22:03 UTC - Truth Social post 115578622345372918](115578622345372918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115578622345372918
+  - _No text content captured._
+- [22:03 UTC - Truth Social post 115578621607243249](115578621607243249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115578621607243249
+  - _No text content captured._
+- [21:32 UTC - [https:// thefederalist.com/2025/11/17/i f-trump-has-the-power-to-ban-trade-then-he-has-th...](115578499574800494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115578499574800494
+  - [https:// thefederalist.com/2025/11/17/i f-trump-has-the-power-to-ban-trade-then-he-has-the-power-to-moderate-it-through-tariffs/](https://thefederalist.com/2025/11/17/if-trump-has...
+- [19:16 UTC - Tremendous atrocities are taking place in Sudan. It has become the most violent place on E...](115577964949117047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577964949117047
+  - Tremendous atrocities are taking place in Sudan. It has become the most violent place on Earth and, likewise, the single biggest Humanitarian Crisis. Food, doctors, and everything...
+- [15:49 UTC - Truth Social post 115577152420589738](115577152420589738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577152420589738
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115577061101480324](115577061101480324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577061101480324
+  - _No text content captured._
+- [15:25 UTC - Jensen Huang: “As I promised, production of Blackwell has started. AI - invented in Americ...](115577056018106234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577056018106234
+  - Jensen Huang: “As I promised, production of Blackwell has started. AI - invented in America, made in America, built for America and the world.”
+- [15:24 UTC - Jensen Huang: “After less than a year, we're now manufacturing the most advanced chips for...](115577053608486130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577053608486130
+  - Jensen Huang: “After less than a year, we're now manufacturing the most advanced chips for AI here in the U.S. All of this started with President Trump wanting to re-industrialize...
+- [15:24 UTC - Jensen Huang: “We are manufacturing in America because of President Trump.”](115577050910593912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577050910593912
+  - Jensen Huang: “We are manufacturing in America because of President Trump.”
+- [15:22 UTC - [https://www. nytimes.com/2025/10/10/opinion /trump-compact-universities-rowan.html](https...](115577046957612924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577046957612924
+  - [https://www. nytimes.com/2025/10/10/opinion /trump-compact-universities-rowan.html](https://www.nytimes.com/2025/10/10/opinion/trump-compact-universities-rowan.html)
+- [15:22 UTC - RT [@ LeeSmith](https://truthsocial.com/@LeeSmith) "Nobody did anything about it until I c...](115577043217430992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577043217430992
+  - RT [@ LeeSmith](https://truthsocial.com/@LeeSmith) "Nobody did anything about it until I came along," Donald Trump told me in an exclusive interview for my new book. THE CHINA MATR...
+- [15:21 UTC - MIKE DAVIS: Why SCOTUS must affirm Trump's birthright citizenship order: [https://www. fox...](115577042043264984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577042043264984
+  - MIKE DAVIS: Why SCOTUS must affirm Trump's birthright citizenship order: [https://www. foxnews.com/opinion/mike-davis -why-scotus-must-affirm-trumps-birthright-citizenship-order](h...
+- [15:21 UTC - Letitia James up against 'by the book' prosecutor 'who means business,' former Kentucky AG...](115577040776570054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577040776570054
+  - Letitia James up against 'by the book' prosecutor 'who means business,' former Kentucky AG Cameron says: [https://www. foxnews.com/politics/prosecuto r-letitia-james-case-means-bus...
+- [15:21 UTC - Trump’s success in securing hostage releases is a victory for all who cherish Peace: [http...](115577039288167821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577039288167821
+  - Trump’s success in securing hostage releases is a victory for all who cherish Peace: [https://www. jpost.com/opinion/article-8709 21](https://www.jpost.com/opinion/article-870921)
+- [15:20 UTC - Trump is making Healthcare a Winning “80/20” Political Issue for GOP: [https://www. forbes...](115577037384069112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577037384069112
+  - Trump is making Healthcare a Winning “80/20” Political Issue for GOP: [https://www. forbes.com/sites/steveforbes/2 025/08/18/trump-is-making-healthcare-a-winning-8020-political-iss...
+- [15:19 UTC - 'President of peace': Trump tapped for Nobel Prize amid talks to end Russia-Ukraine war: [...](115577034428518924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577034428518924
+  - 'President of peace': Trump tapped for Nobel Prize amid talks to end Russia-Ukraine war: [https://www. foxnews.com/politics/president -peace-trump-tapped-nobel-prize-amid-talks-end...
+- [15:19 UTC - Scoop: 'Make America Fentanyl Free' campaign launches to help Trump lower overdose deaths:...](115577032965627237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115577032965627237
+  - Scoop: 'Make America Fentanyl Free' campaign launches to help Trump lower overdose deaths: [https://www. foxnews.com/politics/scoop-mak e-america-fentanyl-free-campaign-launches-he...

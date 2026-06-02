@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-01-14
+
+- Posts: 9
+
+- [22:27 UTC - This morning I had a very good call with the Interim President of Venezuela, Delcy Rodrígu...](115895806350456434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115895806350456434
+  - This morning I had a very good call with the Interim President of Venezuela, Delcy Rodríguez. We are making tremendous progress, as we help Venezuela stabilize and recover. Many to...
+- [13:26 UTC - Truth Social post 115893678545300982](115893678545300982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893678545300982
+  - _No text content captured._
+- [13:21 UTC - NATO: Tell Denmark to get them out of here, NOW! Two dogsleds won’t do it! Only the USA ca...](115893658269457561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893658269457561
+  - NATO: Tell Denmark to get them out of here, NOW! Two dogsleds won’t do it! Only the USA can!!! Danish intel warned last year about Russian and Chinese military goals toward Greenla...
+- [13:13 UTC - House Whip says evidence from whistleblowers could lead to Walz indictment: ‘Should be in ...](115893627273067088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893627273067088
+  - House Whip says evidence from whistleblowers could lead to Walz indictment: ‘Should be in cuffs’: [https:// justthenews.com/house-whip-say s-whistleblowers-signing-affidavits-sayin...
+- [13:13 UTC - They should be thrown out of the USA. Get it done, NOW! That includes their loser Rep. Oma...](115893625622462941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893625622462941
+  - They should be thrown out of the USA. Get it done, NOW! That includes their loser Rep. Omar, who married her brother (gross!). President DJT Somali Suitcase Stash: Feds say $130 mi...
+- [11:57 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: Numbers re...](115893327392413821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893327392413821
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) BREAKING NEWS: Numbers released today show that the United States of America has the lowest Trade Deficit since 200...
+- [11:52 UTC - EFFECTIVE FEBRUARY FIRST, NO MORE PAYMENTS WILL BE MADE BY THE FEDERAL GOVERNMENT TO STATE...](115893309945152200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893309945152200
+  - EFFECTIVE FEBRUARY FIRST, NO MORE PAYMENTS WILL BE MADE BY THE FEDERAL GOVERNMENT TO STATES FOR THEIR CORRUPT CRIMINAL PROTECTION CENTERS KNOWN AS SANCTUARY CITIES. ALL THEY DO IS...
+- [11:39 UTC - The United States needs Greenland for the purpose of National Security. It is vital for th...](115893255826342514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115893255826342514
+  - The United States needs Greenland for the purpose of National Security. It is vital for the Golden Dome that we are building. NATO should be leading the way for us to get it. IF WE...
+- [01:32 UTC - Congratulations Jon!](115890870756720067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115890870756720067
+  - Congratulations Jon!

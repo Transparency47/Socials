@@ -1,0 +1,127 @@
+# TruthSocial / RealDonaldTrump / 2025-11-05
+
+- Posts: 41
+
+- [23:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](115499741831070064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499741831070064
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [23:40 UTC - HAPPY ANNIVERSARY — MAGA!](115499732754537441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499732754537441
+  - HAPPY ANNIVERSARY — MAGA!
+- [23:38 UTC - In nine short months, we have delivered Historic Results for the American People and, THE ...](115499724149347850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499724149347850
+  - In nine short months, we have delivered Historic Results for the American People and, THE BEST IS YET TO COME!
+- [23:36 UTC - Our 2024 Presidential Campaign was HISTORIC and, together, we are Making America Great Aga...](115499715894035999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499715894035999
+  - Our 2024 Presidential Campaign was HISTORIC and, together, we are Making America Great Again, GREATER THAN EVER BEFORE!
+- [23:35 UTC - Truth Social post 115499712574852310](115499712574852310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499712574852310
+  - _No text content captured._
+- [23:35 UTC - Truth Social post 115499709462983855](115499709462983855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499709462983855
+  - _No text content captured._
+- [23:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115497796099239673 Happy Annive...](115499697091735267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499697091735267
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115497796099239673 Happy Anniversary! 🇺🇸
+- [23:31 UTC - REPUBLICANS: BE TOUGH, SMART, AND WIN!](115499694708692358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499694708692358
+  - REPUBLICANS: BE TOUGH, SMART, AND WIN!
+- [23:30 UTC - Truth Social post 115499692369427170](115499692369427170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499692369427170
+  - _No text content captured._
+- [23:28 UTC - END THE FILIBUSTER!](115499684929738733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499684929738733
+  - END THE FILIBUSTER!
+- [23:22 UTC - OBAMACARE IS A TOTAL DISASTER!](115499661270945292/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499661270945292
+  - OBAMACARE IS A TOTAL DISASTER!
+- [23:14 UTC - WARNING: The Nigerian Government better move fast to stop the killing of Christians!](115499626990484138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499626990484138
+  - WARNING: The Nigerian Government better move fast to stop the killing of Christians!
+- [23:12 UTC - Walmart just announced that Prices for a Thanksgiving Dinner is now down 25% since under S...](115499622304174991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499622304174991
+  - Walmart just announced that Prices for a Thanksgiving Dinner is now down 25% since under Sleepy/Crooked Joe Biden, in 2024. AFFORDABILITY is a Republican Stronghold. Hopefully, Rep...
+- [23:12 UTC - Former FBI Special Agent Nicole Parker has written a powerful new Book, “The Two FBIs: The...](115499621107006705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499621107006705
+  - Former FBI Special Agent Nicole Parker has written a powerful new Book, “The Two FBIs: The Bravery and Betrayal I Saw in My Time at the Bureau.” Nicole is a strong voice for elimin...
+- [23:11 UTC - I recently met with Great American Patriot, Gianno Caldwell. He has written a powerful Boo...](115499615432000308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499615432000308
+  - I recently met with Great American Patriot, Gianno Caldwell. He has written a powerful Book, “The Day My Brother Was Murdered: My Journey Through America's Violent Crime Crisis.” G...
+- [23:09 UTC - Congressman Barry Loudermilk, of the Great State of Georgia, has written an inspiring Book...](115499609714844979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499609714844979
+  - Congressman Barry Loudermilk, of the Great State of Georgia, has written an inspiring Book, “And Then They Prayed: Moments in American History Impacted By Prayer.” Barry understand...
+- [23:07 UTC - Peter Navarro, who is doing an incredible job as Senior Counselor for Trade and Manufactur...](115499601111135687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499601111135687
+  - Peter Navarro, who is doing an incredible job as Senior Counselor for Trade and Manufacturing, has written a powerful new Book, “I Went to Prison So You Won't Have To: A Love and L...
+- [23:05 UTC - Christina Bobb’s new Book, “DEFIANT: Inside the Mar-a-Lago Raid and the Left’s Ongoing Law...](115499595196200926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499595196200926
+  - Christina Bobb’s new Book, “DEFIANT: Inside the Mar-a-Lago Raid and the Left’s Ongoing Lawfare,” is AVAILABLE NOW — It was my Great Honor to write the Foreword! In this MUST READ e...
+- [22:52 UTC - My G2 Meeting with President Xi, of China, was a great one for both of our Countries!](115499540273989970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499540273989970
+  - My G2 Meeting with President Xi, of China, was a great one for both of our Countries!
+- [22:49 UTC - It was my Great Honor to meet with Sanae Takaichi, the wonderful new Prime Minister of Jap...](115499529258415888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499529258415888
+  - It was my Great Honor to meet with Sanae Takaichi, the wonderful new Prime Minister of Japan!
+- [22:40 UTC - [https://www. breitbart.com/economy/2025/11/ 05/trump-celebrates-affordability-one-year-af...](115499493983889382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499493983889382
+  - [https://www. breitbart.com/economy/2025/11/ 05/trump-celebrates-affordability-one-year-after-historic-election-groceries-gas-rental-prices-falling/](https://www.breitbart.com/econ...
+- [22:25 UTC - We had an incredibly successful trip to Asia. No President has ever brought more business ...](115499436761437618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499436761437618
+  - We had an incredibly successful trip to Asia. No President has ever brought more business into the United States of America!
+- [22:15 UTC - Congratulations to everyone at the Republican Jewish Coalition on 40 amazing years!](115499397897941707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499397897941707
+  - Congratulations to everyone at the Republican Jewish Coalition on 40 amazing years!
+- [22:04 UTC - Christianity is facing an existential threat in Nigeria. The United States cannot stand by...](115499354921504983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499354921504983
+  - Christianity is facing an existential threat in Nigeria. The United States cannot stand by while such atrocities are happening there, and in numerous other Countries. We stand read...
+- [21:57 UTC - The United States has more Nuclear Weapons than any other country. This was accomplished, ...](115499324245510580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499324245510580
+  - The United States has more Nuclear Weapons than any other country. This was accomplished, including a complete update and renovation of existing weapons, during my First Term. Beca...
+- [21:54 UTC - Thank you to Miami Mayor Francis Suarez, for a key to the city. A Great Honor!](115499313489581846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499313489581846
+  - Thank you to Miami Mayor Francis Suarez, for a key to the city. A Great Honor!
+- [21:34 UTC - The American Business Forum in Miami, Florida—Full Remarks: [https:// rumble.com/v719kki-p...](115499233518098762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499233518098762
+  - The American Business Forum in Miami, Florida—Full Remarks: [https:// rumble.com/v719kki-president-t rump-delivers-remarks-at-the-america-business-forum-miami.html](https://rumble....
+- [21:31 UTC - We're gathered today on the 1 year anniversary of the single most consequential election v...](115499222370397593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499222370397593
+  - We're gathered today on the 1 year anniversary of the single most consequential election victory in American History. On 11/5/2024, the American People reclaimed our government, we...
+- [21:24 UTC - I am pleased to report that today, the United States has the STRONGEST ECONOMY, the STRONG...](115499196526115634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499196526115634
+  - I am pleased to report that today, the United States has the STRONGEST ECONOMY, the STRONGEST BORDER, the STRONGEST MILITARY, the STRONGEST FRIENDSHIPS, and the STRONGEST SPIRIT of...
+- [21:21 UTC - In 9 months, we've lifted over 600,000 Americans off food stamps. 1.9 million more America...](115499184567907673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499184567907673
+  - In 9 months, we've lifted over 600,000 Americans off food stamps. 1.9 million more American-born workers are employed today than when I took office, and we have more people working...
+- [21:19 UTC - With the reckless Democrat Shutdown, virtually every Democrat in Congress has voted to hol...](115499177304548955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499177304548955
+  - With the reckless Democrat Shutdown, virtually every Democrat in Congress has voted to hold the American People hostage in an effort to extort hundreds of billions of dollars in ne...
+- [21:18 UTC - The Radical Left Democrats are causing millions of Americans who depend on food stamps to ...](115499172943770311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499172943770311
+  - The Radical Left Democrats are causing millions of Americans who depend on food stamps to go without benefits, they’re forcing federal workers to go without paychecks, and they're...
+- [21:17 UTC - It is time for Chuck Schumer and the Radical Democrat Congress to stop playing games with ...](115499168374068086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115499168374068086
+  - It is time for Chuck Schumer and the Radical Democrat Congress to stop playing games with peoples' lives and to pass a clean funding bill, that they've done 30 times before — and t...
+- [15:28 UTC - Happy Anniversary! On this day, November 5th, one year ago, we had one of the Greatest Pre...](115497796099239673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115497796099239673
+  - Happy Anniversary! On this day, November 5th, one year ago, we had one of the Greatest Presidential Victories in History — Such an Honor to represent our Country. Our Economy is BO...
+- [14:32 UTC - [https://www. youtube.com/live/Bo8bMllxsDg?s i=xO7KgV1wiz0jENDA](https://www.youtube.com/l...](115497577451954601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115497577451954601
+  - [https://www. youtube.com/live/Bo8bMllxsDg?s i=xO7KgV1wiz0jENDA](https://www.youtube.com/live/Bo8bMllxsDg?si=xO7KgV1wiz0jENDA)
+- [13:52 UTC - Truth Social post 115497419288017100](115497419288017100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115497419288017100
+  - _No text content captured._
+- [04:34 UTC - …AND SO IT BEGINS!](115495225031046506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115495225031046506
+  - …AND SO IT BEGINS!
+- [03:58 UTC - Pass Voter Reform, Voter ID, No Mail-In Ballots. Save our Supreme Court from “Packing,” No...](115495081097004172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115495081097004172
+  - Pass Voter Reform, Voter ID, No Mail-In Ballots. Save our Supreme Court from “Packing,” No Two State addition, etc. TERMINATE THE FILIBUSTER!!!
+- [03:41 UTC - REPUBLICANS, TERMINATE THE FILIBUSTER! GET BACK TO PASSING LEGISLATION AND VOTER REFORM! P...](115495015896453646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115495015896453646
+  - REPUBLICANS, TERMINATE THE FILIBUSTER! GET BACK TO PASSING LEGISLATION AND VOTER REFORM! President DJT
+- [03:19 UTC - JUST OUT: The 60 Minutes interview of Donald J. Trump, on CBS, Sunday night, was the highe...](115494928414626214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115494928414626214
+  - JUST OUT: The 60 Minutes interview of Donald J. Trump, on CBS, Sunday night, was the highest rated 60 Minutes IN YEARS!
+- [03:05 UTC - “TRUMP WASN’T ON THE BALLOT, AND SHUTDOWN, WERE THE TWO REASONS THAT REPUBLICANS LOST ELEC...](115494873923565600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115494873923565600
+  - “TRUMP WASN’T ON THE BALLOT, AND SHUTDOWN, WERE THE TWO REASONS THAT REPUBLICANS LOST ELECTIONS TONIGHT,” according to Pollsters.

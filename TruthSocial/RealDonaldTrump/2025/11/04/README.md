@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-11-04
+
+- Posts: 14
+
+- [22:42 UTC - Sean Duffy has done an incredible job as Interim Administrator of the National Aeronautics...](115493839582779089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115493839582779089
+  - Sean Duffy has done an incredible job as Interim Administrator of the National Aeronautics and Space Administration (NASA). This evening, I am pleased to nominate Jared Isaacman, a...
+- [22:30 UTC - I just heard that 32,000 Orthodox Jews around Lakewood and Jackson, New Jersey, have showe...](115493792769655959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115493792769655959
+  - I just heard that 32,000 Orthodox Jews around Lakewood and Jackson, New Jersey, have showed up BIG for Jack Ciattarelli. My friends in this Great Community know how important this...
+- [22:17 UTC - It was my Great Honor to just meet with high level Representatives of Switzerland. We disc...](115493742592679097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115493742592679097
+  - It was my Great Honor to just meet with high level Representatives of Switzerland. We discussed many subjects including, and most importantly, Trade and Trade Imbalance. The meetin...
+- [21:59 UTC - Tomorrow’s United States Supreme Court case is, literally, LIFE OR DEATH for our Country. ...](115493671705492320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115493671705492320
+  - Tomorrow’s United States Supreme Court case is, literally, LIFE OR DEATH for our Country. With a Victory, we have tremendous, but fair, Financial and National Security. Without it,...
+- [18:28 UTC - Congressman Rob Wittman is doing a truly fantastic job representing the wonderful people o...](115492840195051630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492840195051630
+  - Congressman Rob Wittman is doing a truly fantastic job representing the wonderful people of Virginia’s 1st Congressional District! As the Vice Chairman of the House Armed Services...
+- [18:26 UTC - Congresswoman Claudia Tenney is a Fantastic Advocate for the Wonderful People of New York’...](115492832612668287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492832612668287
+  - Congresswoman Claudia Tenney is a Fantastic Advocate for the Wonderful People of New York’s 24th Congressional District! As the Chairwoman of the House Election Integrity Caucus, C...
+- [16:26 UTC - The Unconstitutional Redistricting Vote in California is a GIANT SCAM in that the entire p...](115492361756063244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492361756063244
+  - The Unconstitutional Redistricting Vote in California is a GIANT SCAM in that the entire process, in particular the Voting itself, is RIGGED. All “Mail-In” Ballots, where the Repub...
+- [16:06 UTC - SNAP BENEFITS, which increased by Billions and Billions of Dollars (MANY FOLD!) during Cro...](115492285081397189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492285081397189
+  - SNAP BENEFITS, which increased by Billions and Billions of Dollars (MANY FOLD!) during Crooked Joe Biden’s disastrous term in office (Due to the fact that they were haphazardly “ha...
+- [15:14 UTC - Wow! Joe Scarborough’s Television Ratings are really bad. They have gone, as they say, “do...](115492078911838554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492078911838554
+  - Wow! Joe Scarborough’s Television Ratings are really bad. They have gone, as they say, “down the tubes,” as has the rest of MSNBC. It’s a beautiful thing to watch! President DJT
+- [14:55 UTC - TERMINATE THE FILIBUSTER!!!](115492004240702808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115492004240702808
+  - TERMINATE THE FILIBUSTER!!!
+- [14:53 UTC - If affordability is you issue, VOTE REPUBLICAN! Energy costs, as and example, are plummeti...](115491996994152487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115491996994152487
+  - If affordability is you issue, VOTE REPUBLICAN! Energy costs, as and example, are plummeting - Getting close to 2 Dollar a gallon gasoline. When energy goes down, everything else f...
+- [14:46 UTC - Any Jewish person that votes for Zohran Mamdani, a proven and self professed JEW HATER, is...](115491968446085363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115491968446085363
+  - Any Jewish person that votes for Zohran Mamdani, a proven and self professed JEW HATER, is a stupid person!!!
+- [13:21 UTC - The Democrats are far more likely to win the Midterms, and the next Presidential Election,...](115491634358714159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115491634358714159
+  - The Democrats are far more likely to win the Midterms, and the next Presidential Election, if we don’t do the Termination of the Filibuster (The Nuclear Option!), because it will b...
+- [00:51 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) If Communist Candidate Zo...](115488685804892153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115488685804892153
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) If Communist Candidate Zohran Mamdani wins the Election for Mayor of New York City, it is highly unlikely that I wi...

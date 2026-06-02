@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-12-26
+
+- Posts: 18
+
+- [23:41 UTC - Truth Social post 115788511889412411](115788511889412411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115788511889412411
+  - _No text content captured._
+- [22:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115782891296626533 Now 1,000,00...](115788344840750960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115788344840750960
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115782891296626533 Now 1,000,000 more pages on Epstein are found. DOJ is being forced to spend all of its time on this De...
+- [20:44 UTC - Potential Marble armrests for the seating at The Trump Kennedy Center. Unlike anything eve...](115787817857959030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115787817857959030
+  - Potential Marble armrests for the seating at The Trump Kennedy Center. Unlike anything ever done or seen before!
+- [20:43 UTC - The renovated Palm Room!](115787811699981289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115787811699981289
+  - The renovated Palm Room!
+- [16:24 UTC - Truth Social post 115786795634809942](115786795634809942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786795634809942
+  - _No text content captured._
+- [16:24 UTC - Truth Social post 115786794866668336](115786794866668336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786794866668336
+  - _No text content captured._
+- [16:20 UTC - Senator Mike Lee: “This, in my humble opinion—informed by 15 years of Senate hell—is the o...](115786778118857114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786778118857114
+  - Senator Mike Lee: “This, in my humble opinion—informed by 15 years of Senate hell—is the only way out of the Senate-imposed zombie apocalypse.”
+- [16:17 UTC - It’s time to end the filibuster: [https://www. washingtonpost.com/opinions/20 25/11/23/sco...](115786765163808034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786765163808034
+  - It’s time to end the filibuster: [https://www. washingtonpost.com/opinions/20 25/11/23/scott-bessent-treasury-senate-republicans-filibuster/](https://www.washingtonpost.com/opinion...
+- [16:14 UTC - MIKE DAVIS: Deranged Democrats' latest coup attempt seeks military mutiny: [https://www. f...](115786753989451101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786753989451101
+  - MIKE DAVIS: Deranged Democrats' latest coup attempt seeks military mutiny: [https://www. foxnews.com/opinion/mike-davis -deranged-mocrats-latest-coup-attempt-seeks-military-mutiny....
+- [16:12 UTC - Grand jury properly voted on James Comey’s indictment, foreman claims in blow to defense: ...](115786745967133949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115786745967133949
+  - Grand jury properly voted on James Comey’s indictment, foreman claims in blow to defense: ‘Eliminates any doubt’: [https:// nypost.com/2025/11/20/us-news/ grand-jury-vote-in-james-...
+- [12:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115785988808868725](115785989562903976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785989562903976
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115785988808868725
+- [12:59 UTC - Truth Social post 115785988808868725](115785988808868725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785988808868725
+  - _No text content captured._
+- [12:57 UTC - “TRUMP IS DOING AN AMAZING JOB!”](115785980589547737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785980589547737
+  - “TRUMP IS DOING AN AMAZING JOB!”
+- [12:46 UTC - Big news for the USA! President DJT](115785935602103818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785935602103818
+  - Big news for the USA! President DJT
+- [12:39 UTC - Rubio imposes visa restrictions on European officials who attempted to censor American fre...](115785910842203078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785910842203078
+  - Rubio imposes visa restrictions on European officials who attempted to censor American free speech: [https:// justthenews.com/government/dip lomacy/rubio-issues-sanctions-european-...
+- [12:39 UTC - Democrats’ push for Epstein files boomeranged with Clinton featured prominently throughout...](115785909319650055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785909319650055
+  - Democrats’ push for Epstein files boomeranged with Clinton featured prominently throughout: [https:// justthenews.com/politics-polic y/clintons-doj-had-first-chance-prosecute-epste...
+- [12:38 UTC - Ex-War Department official warns terrorists may one day aerosolize fentanyl, praises Trump...](115785906687175720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785906687175720
+  - Ex-War Department official warns terrorists may one day aerosolize fentanyl, praises Trump move: [https:// justthenews.com/government/sec urity/friex-war-department-official-warns-...
+- [12:38 UTC - Laken's Legacy: More than 17,500 illegal aliens captured under law named for slain nursing...](115785904480766736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115785904480766736
+  - Laken's Legacy: More than 17,500 illegal aliens captured under law named for slain nursing student: [https:// justthenews.com/nation/crime/l akens-legacy-more-17500-illegal-aliens-...

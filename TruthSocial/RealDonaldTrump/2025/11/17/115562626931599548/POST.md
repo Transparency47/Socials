@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115562626931599548 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115562626931599548 -->
+<!-- date_published: 2025-11-17T02:15:47.857000+00:00 -->
+<!-- date_accessed: 2026-06-02T15:57:32.339478+00:00 -->
+
+# As I said on Friday night aboard Air Force One to the Fake News Media, House Republicans s...
+
+As I said on Friday night aboard Air Force One to the Fake News Media, House Republicans should vote to release the Epstein files, because we have nothing to hide, and it’s time to move on from this Democrat Hoax perpetrated by Radical Left Lunatics in order to deflect from the Great Success of the Republican Party, including our recent Victory on the Democrat “Shutdown.” The Department of Justice has already turned over tens of thousands of pages to the Public on “Epstein,” are looking at various Democrat operatives (Bill Clinton, Reid Hoffman, Larry Summers, etc.) and their relationship to Epstein, and the House Oversight Committee can have whatever they are legally entitled to, I DON’T CARE! All I do care about is that Republicans get BACK ON POINT, which is the Economy, “Affordability” (where we are winning BIG!), our Victory on reducing Inflation from the highest level in History to practically nothing, bringing down prices for the American People, delivering Historic Tax Cuts, gaining Trillions of Dollars of Investment into America (A RECORD!), the rebuilding of our Military, securing our Border, deporting Criminal Illegal Aliens, ending Men in Women’s Sports, stopping Transgender for Everyone, and so much more! Nobody cared about Jeffrey Epstein when he was alive and, if the Democrats had anything, they would have released it before our Landslide Election Victory. Some “members” of the Republican Party are being “used,” and we can’t let that happen. Let’s start talking about the Republican Party’s Record Setting Achievements, and not fall into the Epstein “TRAP,” which is actually a curse on the Democrats, not us. MAKE AMERICA GREAT AGAIN!

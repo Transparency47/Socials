@@ -1,0 +1,112 @@
+# TruthSocial / RealDonaldTrump / 2025-11-24
+
+- Posts: 36
+
+- [23:49 UTC - Truth Social post 115607349008367377](115607349008367377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115607349008367377
+  - _No text content captured._
+- [21:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115590266496554600 It was a Gre...](115606895115145727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115606895115145727
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115590266496554600 It was a Great Honor meeting Cristiano Ronaldo, A BIG STAR. My son Barron is such a great fan, and now...
+- [18:04 UTC - Whatever happened to “Senator” Rand Paul? He was never great, but he went really BAD! I go...](115605992780109632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115605992780109632
+  - Whatever happened to “Senator” Rand Paul? He was never great, but he went really BAD! I got him elected, TWICE (in the Great Commonwealth of Kentucky!), but he just never votes pos...
+- [17:39 UTC - I just had a very good telephone call with President Xi, of China. We discussed many topic...](115605897178712132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115605897178712132
+  - I just had a very good telephone call with President Xi, of China. We discussed many topics including Ukraine/Russia, Fentanyl, Soybeans and other Farm Products, etc. We have done...
+- [12:32 UTC - Republican (of course!) Congressman Tim Burchett was GREAT today on Fox & Friends - a Clas...](115604689359180322/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115604689359180322
+  - Republican (of course!) Congressman Tim Burchett was GREAT today on Fox & Friends - a Classic. His take on Marjorie “Traitor” Brown was 100% perfecto!!! Way to go, Tim!!! President...
+- [11:04 UTC - Shedeur Sanders was GREAT. Wins first game, career start, as a pro (for Cleveland). Great ...](115604342260009397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115604342260009397
+  - Shedeur Sanders was GREAT. Wins first game, career start, as a pro (for Cleveland). Great Genes. I TOLD YOU SO!
+- [10:38 UTC - Despite the massive amount of money being made by the United States of America, Hundreds o...](115604240580797202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115604240580797202
+  - Despite the massive amount of money being made by the United States of America, Hundreds of Billions of Dollars, as a direct result of Tariffs being charged to other countries, the...
+- [10:35 UTC - Is it really possible that big progress is being made in Peace Talks between Russia and Uk...](115604227117479754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115604227117479754
+  - Is it really possible that big progress is being made in Peace Talks between Russia and Ukraine??? Don’t believe it until you see it, but something good just may be happening. GOD...
+- [10:30 UTC - Why did the New York Football Giants (NFL) not kick that Field Goal??? Who would have done...](115604207333809204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115604207333809204
+  - Why did the New York Football Giants (NFL) not kick that Field Goal??? Who would have done such a thing? It was CRAZY! I got to watch the end of the game and thought, when they wen...
+- [02:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600865761558583](115602435550231993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115602435550231993
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600865761558583
+- [00:47 UTC - Truth Social post 115601916652383333](115601916652383333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601916652383333
+  - _No text content captured._
+- [00:47 UTC - Truth Social post 115601915921951821](115601915921951821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601915921951821
+  - _No text content captured._
+- [00:46 UTC - Truth Social post 115601911246226368](115601911246226368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601911246226368
+  - _No text content captured._
+- [00:45 UTC - Truth Social post 115601909768811785](115601909768811785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601909768811785
+  - _No text content captured._
+- [00:45 UTC - Truth Social post 115601908234385026](115601908234385026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601908234385026
+  - _No text content captured._
+- [00:42 UTC - Truth Social post 115601898049338376](115601898049338376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601898049338376
+  - _No text content captured._
+- [00:41 UTC - Truth Social post 115601893154417310](115601893154417310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601893154417310
+  - _No text content captured._
+- [00:41 UTC - Truth Social post 115601892410000128](115601892410000128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601892410000128
+  - _No text content captured._
+- [00:41 UTC - Truth Social post 115601891666762082](115601891666762082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601891666762082
+  - _No text content captured._
+- [00:39 UTC - [https:// x.com/soldier636/status/199243 5405850083380?s=46](https://x.com/soldier636/stat...](115601885544125267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601885544125267
+  - [https:// x.com/soldier636/status/199243 5405850083380?s=46](https://x.com/soldier636/status/1992435405850083380?s=46)
+- [00:39 UTC - [https:// x.com/rd_steel1974/status/1992 642739952026056?s=46](https://x.com/rd_steel1974/...](115601883571083274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601883571083274
+  - [https:// x.com/rd_steel1974/status/1992 642739952026056?s=46](https://x.com/rd_steel1974/status/1992642739952026056?s=46)
+- [00:38 UTC - Truth Social post 115601881346143952](115601881346143952/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601881346143952
+  - _No text content captured._
+- [00:38 UTC - Truth Social post 115601880468945014](115601880468945014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601880468945014
+  - _No text content captured._
+- [00:35 UTC - [https:// x.com/suzost/status/1992383766 908817861?s=46](https://x.com/suzost/status/19923...](115601867440120506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601867440120506
+  - [https:// x.com/suzost/status/1992383766 908817861?s=46](https://x.com/suzost/status/1992383766908817861?s=46)
+- [00:34 UTC - [https:// x.com/kevinratello/status/1992 368609151332728?s=46](https://x.com/kevinratello/...](115601863709910309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601863709910309
+  - [https:// x.com/kevinratello/status/1992 368609151332728?s=46](https://x.com/kevinratello/status/1992368609151332728?s=46)
+- [00:34 UTC - Secretary Scott Bessent: “If Senate Democrats close the government again [on January 30], ...](115601863065566414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601863065566414
+  - Secretary Scott Bessent: “If Senate Democrats close the government again [on January 30], then Senate Republicans should immediately abrogate the filibuster."
+- [00:33 UTC - [https:// x.com/soonernation_76/status/1 992376966511808790?s=46](https://x.com/soonernati...](115601862810818001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601862810818001
+  - [https:// x.com/soonernation_76/status/1 992376966511808790?s=46](https://x.com/soonernation_76/status/1992376966511808790?s=46)
+- [00:33 UTC - [https:// x.com/deepfakequote/status/199 2325010732790056?s=46](https://x.com/deepfakequot...](115601861771424365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601861771424365
+  - [https:// x.com/deepfakequote/status/199 2325010732790056?s=46](https://x.com/deepfakequote/status/1992325010732790056?s=46)
+- [00:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115601852663567540](115601853645076008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601853645076008
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115601852663567540
+- [00:31 UTC - Truth Social post 115601852663567540](115601852663567540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601852663567540
+  - _No text content captured._
+- [00:29 UTC - Truth Social post 115601843943746787](115601843943746787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601843943746787
+  - _No text content captured._
+- [00:28 UTC - Truth Social post 115601840019141351](115601840019141351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601840019141351
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 115601838921194219](115601838921194219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601838921194219
+  - _No text content captured._
+- [00:25 UTC - Truth Social post 115601827607519994](115601827607519994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601827607519994
+  - _No text content captured._
+- [00:24 UTC - Truth Social post 115601826785867457](115601826785867457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601826785867457
+  - _No text content captured._
+- [00:24 UTC - Truth Social post 115601826160941986](115601826160941986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601826160941986
+  - _No text content captured._

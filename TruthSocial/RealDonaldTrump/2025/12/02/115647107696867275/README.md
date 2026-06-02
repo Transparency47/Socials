@@ -1,0 +1,163 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115647107696867275
+- Post URL: https://truthsocial.com/@realDonaldTrump/115647107696867275
+- Title: I am asking all America First Patriots in Tennessee’s 7th Congressional District to please...
+- Date published: 2025-12-02T00:20:22.075000+00:00
+- Date accessed: 2026-06-02T15:45:59.546227+00:00
+- Content kind: post
+- Language: en
+
+## Metrics
+
+- favorites: 12969
+- reblogs: 4529
+- replies: 988
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744744,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": {
+      "author_name": "",
+      "author_url": "",
+      "blurhash": "UQC?fpR+9Ff6tSj]WVof0KWB.8WUNGbHofay",
+      "description": "",
+      "embed_url": "",
+      "group": null,
+      "height": 419,
+      "html": "",
+      "id": null,
+      "image": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/cache/preview_cards/images/063/543/730/original/57a20abeb09769c7.png",
+      "links": null,
+      "provider_name": "swampthevoteusa.com",
+      "provider_url": "",
+      "title": "Tennessee | Swamp the Vote USA",
+      "type": "link",
+      "url": "https://swampthevoteusa.com/tennessee/",
+      "width": 800
+    },
+    "content": "<p>I am asking all America First Patriots in Tennessee’s 7th Congressional District to please GET OUT AND VOTE TOMORROW for a phenomenal Candidate, Matt Van Epps, on Election Day, Tuesday, December 2nd! You can win this Election for MAGA Warrior Matt Van Epps, who has my Complete and Total Endorsement. HE WILL BE A GREAT CONGRESSMAN and, unlike his Opponent, he cherishes Christianity and Country Music — She has openly stated that she hates them both!<br/> <br/>TN-07: Polls open in all Counties no later than 9:00 A.M., but some open as early as 7:00 A.M. Polls close at 7:00 P.M. IF YOU ARE IN LINE BY 7 P.M., STAY IN LINE, AND THEY MUST LET YOU VOTE! Election Day is TOMORROW, December 2nd. GET OUT AND VOTE, VOTE, VOTE FOR MATT VAN EPPS — HE WILL NEVER LET YOU DOWN!<br/> <br/>Find your voting location and hours at:<br/><a href=\"https://swampthevoteusa.com/tennessee/\" rel=\"nofollow noopener noreferrer\" target=\"_blank\"><span class=\"invisible\">https://</span><span class=\"\">swampthevoteusa.com/tennessee/</span><span class=\"invisible\"></span></a></p>",
+    "created_at": "2025-12-02T00:20:22.075Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 12969,
+    "group": null,
+    "id": "115647107696867275",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": "en",
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": null,
+    "reblogged": false,
+    "reblogs_count": 4529,
+    "replies_count": 988,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 12969,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115647107696867275",
+    "url": "https://truthsocial.com/@realDonaldTrump/115647107696867275",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

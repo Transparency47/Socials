@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-11-23
+
+- Posts: 21
+
+- [22:55 UTC - The Republican Party has never been so UNITED AS IT iS RIGHT NOW! Other than Rand Paul, Ra...](115601476787319590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601476787319590
+  - The Republican Party has never been so UNITED AS IT iS RIGHT NOW! Other than Rand Paul, Rand Paul Jr.(Massie!), Marjorie “Traitor” Brown, and a couple of other “lowlifes,” and othe...
+- [21:58 UTC - If this would also allow the Radical Left Networks to “enlarge,” I would not be happy. ABC...](115601252711182007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115601252711182007
+  - If this would also allow the Radical Left Networks to “enlarge,” I would not be happy. ABC & NBC, in particular, are a disaster - A VIRTUAL ARM OF THE DEMOCRAT PARTY. They should b...
+- [20:31 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](115600909573129823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600909573129823
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [20:21 UTC - Truth Social post 115600871102876776](115600871102876776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600871102876776
+  - _No text content captured._
+- [20:21 UTC - Truth Social post 115600870191145883](115600870191145883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600870191145883
+  - _No text content captured._
+- [20:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600865761558583](115600866711887448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600866711887448
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600865761558583
+- [20:20 UTC - Truth Social post 115600865761558583](115600865761558583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600865761558583
+  - _No text content captured._
+- [20:16 UTC - Truth Social post 115600849874066478](115600849874066478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600849874066478
+  - _No text content captured._
+- [20:16 UTC - Truth Social post 115600848722682473](115600848722682473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600848722682473
+  - _No text content captured._
+- [20:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600825056495188](115600826280908004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600826280908004
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115600825056495188
+- [20:10 UTC - Truth Social post 115600825056495188](115600825056495188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600825056495188
+  - _No text content captured._
+- [20:08 UTC - Truth Social post 115600819326972434](115600819326972434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600819326972434
+  - _No text content captured._
+- [17:22 UTC - RT: https://truthsocial.com/users/laralogan/statuses/115589257346768147 We must focus all ...](115600167812342707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115600167812342707
+  - RT: https://truthsocial.com/users/laralogan/statuses/115589257346768147 We must focus all of our energy and might on ELECTION FRAUD!!
+- [14:21 UTC - FREE TINA PETERS, WHO SITS IN A COLORADO PRISON, DYING & OLD, FOR ATTEMPTING TO EXPOSE VOT...](115599455037289127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115599455037289127
+  - FREE TINA PETERS, WHO SITS IN A COLORADO PRISON, DYING & OLD, FOR ATTEMPTING TO EXPOSE VOTER FRAUD IN THE RIGGED 2O20 PRESIDENTIAL ELECTION!!!
+- [14:14 UTC - The War between Russia and Ukraine is a violent and terrible one that, with strong and pro...](115599428464496784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115599428464496784
+  - The War between Russia and Ukraine is a violent and terrible one that, with strong and proper U.S. and Ukrainian LEADERSHIP, would have NEVER HAPPENED. It began long before I took...
+- [04:27 UTC - MANY GREAT LEGAL SCHOLARS AGREE THAT THE DEMOCRAT TRAITORS THAT TOLD THE MILITARY TO DISOB...](115597116924552201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115597116924552201
+  - MANY GREAT LEGAL SCHOLARS AGREE THAT THE DEMOCRAT TRAITORS THAT TOLD THE MILITARY TO DISOBEY MY ORDERS, AS PRESIDENT, HAVE COMMITTED A CRIME OF SERIOUS PROPORTION!
+- [04:17 UTC - THE TRAITORS THAT TOLD THE MILITARY TO DISOBEY MY ORDERS SHOULD BE IN JAIL RIGHT NOW, NOT ...](115597077845312894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115597077845312894
+  - THE TRAITORS THAT TOLD THE MILITARY TO DISOBEY MY ORDERS SHOULD BE IN JAIL RIGHT NOW, NOT ROAMING THE FAKE NEWS NETWORKS TRYING TO EXPLAIN THAT WHAT THEY SAID WAS OK. IT WASN’T, AN...
+- [02:11 UTC - Truth Social post 115596582111950727](115596582111950727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115596582111950727
+  - _No text content captured._
+- [02:10 UTC - Truth Social post 115596579802568988](115596579802568988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115596579802568988
+  - _No text content captured._
+- [02:01 UTC - We are taking in TRILLIONS of Dollars in Tariffs and Investment Dollars from foreign lands...](115596544162295527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115596544162295527
+  - We are taking in TRILLIONS of Dollars in Tariffs and Investment Dollars from foreign lands because of Tariffs. I have stopped 5 of the eight WARS directly because of the threat of...
+- [01:28 UTC - BBC has questions to answer over edited Trump speech, MPs say: [https://www. bbc.com/news/...](115596415059652997/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115596415059652997
+  - BBC has questions to answer over edited Trump speech, MPs say: [https://www. bbc.com/news/articles/ckgzkyk7 knzo](https://www.bbc.com/news/articles/ckgzkyk7knzo)

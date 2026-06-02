@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-01-19
+
+- Posts: 18
+
+- [23:11 UTC - Truth Social post 115924288252880571](115924288252880571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924288252880571
+  - _No text content captured._
+- [23:09 UTC - Trump Off to Strong Start in 2026 on “Affordability” Issue: [https:// amac.us/newsline/eco...](115924282126782262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924282126782262
+  - Trump Off to Strong Start in 2026 on “Affordability” Issue: [https:// amac.us/newsline/economy/trump -off-to-strong-start-in-2026-on-affordability-issue/](https://amac.us/newsline/...
+- [23:08 UTC - Mortgage rates just fell below 6% for the first time in years: [https://www. nbcnews.com/b...](115924279332406120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924279332406120
+  - Mortgage rates just fell below 6% for the first time in years: [https://www. nbcnews.com/business/real-esta te/30-year-mortgage-rates-below-6-percent-rcna253218/](https://www.nbcne...
+- [23:08 UTC - Trump administration ends temporary protected status for thousands of Somalis in US: [http...](115924277763800167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924277763800167
+  - Trump administration ends temporary protected status for thousands of Somalis in US: [https://www. foxnews.com/politics/trump-adm inistration-ends-temporary-protected-status-thousa...
+- [22:09 UTC - AMERICA IS BACK!!!](115924046475418008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924046475418008
+  - AMERICA IS BACK!!!
+- [22:08 UTC - Great interview today of Rodney Scott, CBP Commissioner, by the wonderful Will Cain, on Th...](115924043199702065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924043199702065
+  - Great interview today of Rodney Scott, CBP Commissioner, by the wonderful Will Cain, on The Will Cain Show! Thank you both!!! President DJT
+- [22:04 UTC - In Minnesota, there is too much media attention on ICE, who have removed some of the worst...](115924025571521310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115924025571521310
+  - In Minnesota, there is too much media attention on ICE, who have removed some of the worst murderers and criminals in the World, people let into our Country by Crooked Joe Biden’s...
+- [21:36 UTC - Wow! They have a lot of explaining to do. Corruption at the highest level! President DJT M...](115923918404792612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115923918404792612
+  - Wow! They have a lot of explaining to do. Corruption at the highest level! President DJT Michael Cohen says NY prosecutors 'pressured and coerced' him into anti-Trump testimony: [h...
+- [20:47 UTC - Truth Social post 115923724507931706](115923724507931706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115923724507931706
+  - _No text content captured._
+- [20:47 UTC - Truth Social post 115923723486523883](115923723486523883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115923723486523883
+  - _No text content captured._
+- [13:51 UTC - Rigged Elections are common in the U.S., with the Presidential Election of 2020 being the ...](115922086257363944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115922086257363944
+  - Rigged Elections are common in the U.S., with the Presidential Election of 2020 being the Granddaddy of them all. WE DEMAND VOTER I.D. In Somali fraud scandal, Republicans probe ev...
+- [04:16 UTC - Building a “New York Stock Exchange” in Dallas is an UNBELIEVABLY BAD THING FOR NEW YORK. ...](115919827634401559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919827634401559
+  - Building a “New York Stock Exchange” in Dallas is an UNBELIEVABLY BAD THING FOR NEW YORK. I can’t believe they would let this happen. A big test for the new Mayor!
+- [04:10 UTC - NATO has been telling Denmark, for 20 years, that “you have to get the Russian threat away...](115919803174585205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919803174585205
+  - NATO has been telling Denmark, for 20 years, that “you have to get the Russian threat away from Greenland.” Unfortunately, Denmark has been unable to do anything about it. Now it i...
+- [03:43 UTC - There is 19 Billion Dollars in Minnesota Somalia Fraud. Fake “Congresswoman” Illhan Omar, ...](115919697262007872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919697262007872
+  - There is 19 Billion Dollars in Minnesota Somalia Fraud. Fake “Congresswoman” Illhan Omar, a constant complainer who hates the USA, knows everything there is to know. She should be...
+- [02:44 UTC - A GREAT NEW BOOK, by NumberOne Bestselling Author, Peter Schweizer, “The Invisible Coup: H...](115919466737908324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919466737908324
+  - A GREAT NEW BOOK, by NumberOne Bestselling Author, Peter Schweizer, “The Invisible Coup: How American Elites and Foreign Powers Use Immigration as a Weapon,” is out Tuesday. It is...
+- [02:01 UTC - Anti-ICE 'anarchists' starting to threaten 'ANYONE they think is associated with ICE,' war...](115919296178368951/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919296178368951
+  - Anti-ICE 'anarchists' starting to threaten 'ANYONE they think is associated with ICE,' warns Border Patrol head: [https://www. foxnews.com/video/638791636111 2](https://www.foxnews...
+- [02:00 UTC - Marc Thiessen: I predict Trump will visit a 'free Iran, a free Havana and a free Caracas' ...](115919294107001486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919294107001486
+  - Marc Thiessen: I predict Trump will visit a 'free Iran, a free Havana and a free Caracas' before he leaves office: [https://www. foxnews.com/video/638788525811 2](https://www.foxne...
+- [00:55 UTC - Thank you David Bossie! DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Fai...](115919038563850124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115919038563850124
+  - Thank you David Bossie! DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [https:// dailycaller.com/2026/01/18/opi nion-one-year-since-taking-off...

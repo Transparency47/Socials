@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-11-07
+
+- Posts: 15
+
+- [23:49 UTC - The Failing New York Times and its Third Rate Reporters, Lily Kuo and David Pierson, did e...](115511090849508843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115511090849508843
+  - The Failing New York Times and its Third Rate Reporters, Lily Kuo and David Pierson, did everything possible to make my very successful meeting with President Xi, of China, look as...
+- [22:30 UTC - It was so interesting yesterday when our Great Senator from Louisiana, John Kennedy, intro...](115510780457859130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510780457859130
+  - It was so interesting yesterday when our Great Senator from Louisiana, John Kennedy, introduced a Bill in an attempt to withhold Members of Congress from getting paid, and Rand Pau...
+- [22:01 UTC - It is a total disgrace that the G20 will be held in South Africa. Afrikaners (People who a...](115510666739916664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510666739916664
+  - It is a total disgrace that the G20 will be held in South Africa. Afrikaners (People who are descended from Dutch settlers, and also French and German immigrants) are being killed...
+- [21:15 UTC - The United States Senate should not leave town until they have a Deal to end the Democrat ...](115510485436664476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510485436664476
+  - The United States Senate should not leave town until they have a Deal to end the Democrat Shutdown. If they can’t reach a Deal, the Republicans should terminate the Filibuster, IMM...
+- [20:52 UTC - While Cattle Prices have dropped substantially, the price of Boxed Beef has gone up — Ther...](115510396474764395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510396474764395
+  - While Cattle Prices have dropped substantially, the price of Boxed Beef has gone up — Therefore, you know that something is “fishy.” We will get to the bottom of it very quickly. I...
+- [20:39 UTC - I have asked the DOJ to immediately begin an investigation into the Meat Packing Companies...](115510343852481018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510343852481018
+  - I have asked the DOJ to immediately begin an investigation into the Meat Packing Companies who are driving up the price of Beef through Illicit Collusion, Price Fixing, and Price M...
+- [19:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115510162457236769](115510163478695017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510163478695017
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115510162457236769
+- [19:53 UTC - Truth Social post 115510162457236769](115510162457236769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510162457236769
+  - _No text content captured._
+- [19:29 UTC - Truth Social post 115510067044216079](115510067044216079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115510067044216079
+  - _No text content captured._
+- [16:15 UTC - If Republicans kill the Filibuster, they sail to Victory for many years to come. If they d...](115509306635941834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115509306635941834
+  - If Republicans kill the Filibuster, they sail to Victory for many years to come. If they don’t, DISASTER waiting to happen!
+- [13:43 UTC - Just say NO (Nuclear Option!). TERMINATE THE FILIBUSTER!](115508709196254115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115508709196254115
+  - Just say NO (Nuclear Option!). TERMINATE THE FILIBUSTER!
+- [13:41 UTC - Republicans, Terminate the Filibuster and bring back the American Dream. If you don’t do i...](115508699750416036/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115508699750416036
+  - Republicans, Terminate the Filibuster and bring back the American Dream. If you don’t do it, the Dems will, and you’ll never see office again! President DJT
+- [13:36 UTC - Nancy Pelosi, the old and broken political hack who Impeached me twice and lost, is finall...](115508680705242553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115508680705242553
+  - Nancy Pelosi, the old and broken political hack who Impeached me twice and lost, is finally calling it “quits.” She illegally made a fortune in the Stock Market, ripped off the Ame...
+- [02:26 UTC - I am thrilled to announce an incredible Trade and Economic Deal between the United States ...](115506045885898474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115506045885898474
+  - I am thrilled to announce an incredible Trade and Economic Deal between the United States and Uzbekistan. Over the next three years, Uzbekistan will be purchasing and investing alm...
+- [00:02 UTC - I just held a great call between Prime Minister Benjamin Netanyahu, of Israel, and Preside...](115505478418176575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115505478418176575
+  - I just held a great call between Prime Minister Benjamin Netanyahu, of Israel, and President Kassym-Jomart Tokayev, of Kazakhstan. Kazakhstan is the first Country of my Second Term...

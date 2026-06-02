@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/115491634358714159 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 115491634358714159 -->
+<!-- date_published: 2025-11-04T13:21:27.165000+00:00 -->
+<!-- date_accessed: 2026-06-02T16:16:26.840897+00:00 -->
+
+# The Democrats are far more likely to win the Midterms, and the next Presidential Election,...
+
+The Democrats are far more likely to win the Midterms, and the next Presidential Election, if we don’t do the Termination of the Filibuster (The Nuclear Option!), because it will be impossible for Republicans to get Common Sense Policies done with these Crazed Democrat Lunatics being able to block everything by withholding their votes. FOR THREE YEARS, NOTHING WILL BE PASSED, AND REPUBLICANS WILL BE BLAMED. Elections, including the Midterms, will be rightfully brutal. If we do terminate the Filibuster, we will get EVERYTHING approved, like no Congress in History. We will have FAIR, FREE, and SAFE Elections, No Men in Women’s Sports or Transgender for Everybody, Strong Borders, Major Tax and Energy Cuts, and will secure our Second Amendment, which the Democrats will also terminate, IMMEDIATELY. If we don’t do it, they are far more likely to do well in the upcoming Elections, which would mean a PACKED Supreme Court, 2 more States and 4 more Democrat Senators (D.C. and Puerto Rico), and 8 more Electoral Votes. Remember, Republicans, they are going to end the Filibuster as soon as they get the chance We know this because they already tried, and the only two people who didn’t go along are now out of office. But they have much less chance of WINNING if we have Great Policy Wins after Wins after Wins. IN FACT, THEY WILL LOSE BIG, AND FOR A VERY LONG TIME. TERMINATE THE FILIBUSTER NOW, END THE RIDICULOUS SHUTDOWN IMMEDIATELY, AND THEN, MOST IMPORTANTLY, PASS EVERY WONDERFUL REPUBLICAN POLICY THAT WE HAVE DREAMT OF, FOR YEARS, BUT NEVER GOTTEN. WE WILL BE THE PARTY THAT CANNOT BE BEATEN - THE SMART PARTY!!!

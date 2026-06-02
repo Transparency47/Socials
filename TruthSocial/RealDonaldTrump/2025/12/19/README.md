@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-12-19
+
+- Posts: 14
+
+- [23:47 UTC - Nine Billion Dollars was STOLEN FROM THE STATE OF MINNESOTA by Illegal Somalian Criminals....](115748898604800291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748898604800291
+  - Nine Billion Dollars was STOLEN FROM THE STATE OF MINNESOTA by Illegal Somalian Criminals. They must pay a big price, NOW!!! President DJT
+- [23:39 UTC - Elizabeth MacDonald of FoxBusiness is FANTASTIC. She really understands what is going on i...](115748870260800797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748870260800797
+  - Elizabeth MacDonald of FoxBusiness is FANTASTIC. She really understands what is going on in the World of business, and far beyond!!! President DJT
+- [22:57 UTC - Because of ISIS’s vicious killing of brave American Patriots in Syria, whose beautiful sou...](115748701721247530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748701721247530
+  - Because of ISIS’s vicious killing of brave American Patriots in Syria, whose beautiful souls I welcomed home to American soil earlier this week in a very dignified ceremony, I am h...
+- [22:19 UTC - Elise Stefanik, a fantastic person and Congresswoman from New York State, has just announc...](115748555238487311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748555238487311
+  - Elise Stefanik, a fantastic person and Congresswoman from New York State, has just announced she won’t be running for Governor. Elise is a tremendous talent, regardless of what she...
+- [21:57 UTC - I have just informed Senator Roger Marshall that I have approved $5.7 Million Dollars for ...](115748466708380170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748466708380170
+  - I have just informed Senator Roger Marshall that I have approved $5.7 Million Dollars for the wonderful State of Kansas in order to recover from severe storms, tornados, and floodi...
+- [21:53 UTC - I just approved more money for the La Jolla Band of Luiseno Indians to help them recover f...](115748453260594922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115748453260594922
+  - I just approved more money for the La Jolla Band of Luiseno Indians to help them recover from the damage to their Community during Tropical Storm Hilary — They are GREAT people!
+- [16:43 UTC - The only reason our Unemployment ticked up to 4.5% is because we are reducing the Governme...](115747232618687626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115747232618687626
+  - The only reason our Unemployment ticked up to 4.5% is because we are reducing the Government Workforce by numbers that have never been seen before. 100% OF OUR NEW JOBS ARE IN THE...
+- [15:58 UTC - Truth Social post 115747054082175146](115747054082175146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115747054082175146
+  - _No text content captured._
+- [15:43 UTC - Truth Social post 115746995517654860](115746995517654860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115746995517654860
+  - _No text content captured._
+- [15:28 UTC - Insurance companies are ripping off America. Healthcare money must go directly to the PEOP...](115746937797990743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115746937797990743
+  - Insurance companies are ripping off America. Healthcare money must go directly to the PEOPLE. Dems must get on board!!! [https:// nypost.com/2025/12/10/opinion/ insurance-companies...
+- [15:25 UTC - “Safest DC has ever been. Thank you President Trump!!!” Douglas Murray: Trump cleaned up c...](115746927359326655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115746927359326655
+  - “Safest DC has ever been. Thank you President Trump!!!” Douglas Murray: Trump cleaned up crime in DC – and taught everyone a lesson in public safety: [https:// nypost.com/2025/12/1...
+- [05:34 UTC - Democrats Approval numbers in Congress are the Worst Ever - Negative 55 Points! Harry Ente...](115744604019079688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115744604019079688
+  - Democrats Approval numbers in Congress are the Worst Ever - Negative 55 Points! Harry Enten.
+- [04:30 UTC - It’s all happening!!! [https:// justthenews.com/government/whi te-house/trump-defies-odds-...](115744349172803672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115744349172803672
+  - It’s all happening!!! [https:// justthenews.com/government/whi te-house/trump-defies-odds-achieves-economic-hat-trick-rate-cuts-tariffs-and-cooling](https://justthenews.com/governm...
+- [00:37 UTC - I’ll be in North Carolina tomorrow at the wonderful Rocky Mount Events Center. So much to ...](115743433358756069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115743433358756069
+  - I’ll be in North Carolina tomorrow at the wonderful Rocky Mount Events Center. So much to discuss. See you there. Doors open at 6 P.M. MAKE AMERICA GREAT AGAIN! President DJT [http...

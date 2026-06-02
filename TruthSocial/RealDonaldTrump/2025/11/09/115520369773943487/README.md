@@ -1,0 +1,337 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 115520369773943487
+- Post URL: https://truthsocial.com/@realDonaldTrump/115520369773943487
+- Title: RT [@ repgregsteube](https://truthsocial.com/@repgregsteube) Yessir! I've been saying this...
+- Date published: 2025-11-09T15:09:14.805000+00:00
+- Date accessed: 2026-06-02T16:02:50.040117+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 1
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12744417,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34030,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744817,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@repgregsteube\" class=\"u-url mention\">@<span>repgregsteube</span></a></span>Yessir!  I've been saying this for weeks!  <a href=\"https://truthsocial.com/tags/KilltheFil\" class=\"mention hashtag\" rel=\"tag\">#<span>KilltheFil</span></a></p>",
+    "created_at": "2025-11-09T15:09:14.805Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 1,
+    "group": null,
+    "id": "115520369773943487",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": true,
+        "acct": "repgregsteube",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/845/217/467/776/084/original/dab6a2b75ffaa21a.jpg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/845/217/467/776/084/original/dab6a2b75ffaa21a.jpg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-23T03:37:04.757Z",
+        "discoverable": true,
+        "display_name": "Rep. Greg Steube",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 93049,
+        "following_count": 28,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/845/217/467/776/084/original/0d1f9b329468194c.png",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/845/217/467/776/084/original/0d1f9b329468194c.png",
+        "id": "107845217467776084",
+        "last_status_at": "2026-06-02",
+        "location": "Sarasota, FL",
+        "locked": false,
+        "note": "<p>Representing Florida’s Suncoast (FL-17) Husband, father, U.S. Army veteran, serving the American people.</p>",
+        "premium": false,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 2067,
+        "tv_account": false,
+        "tv_onboarded": true,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@repgregsteube",
+        "username": "repgregsteube",
+        "verified": true,
+        "website": "Steube.house.gov"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p><span class=\"quote-inline\"><br/>RT: https://truthsocial.com/users/realDonaldTrump/statuses/115514453574326959</span>Yessir!  I've been saying this for weeks!  <a href=\"https://truthsocial.com/tags/KilltheFil\" class=\"mention hashtag\" rel=\"tag\">#<span>KilltheFil</span></a></p>",
+      "created_at": "2025-11-08T15:03:57.174Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 11150,
+      "group": null,
+      "id": "115514686647205086",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [
+        {
+          "blurhash": "URIr4{M|-:t7IZMytRWC~qt8adj@tle.flWC",
+          "description": null,
+          "external_video_id": "v6z88hi",
+          "id": "115514680471960344",
+          "meta": {
+            "colors": {
+              "accent": "#4e1d2b",
+              "background": "#eaece8",
+              "foreground": "#232122"
+            },
+            "original": {
+              "bitrate": 19537931,
+              "duration": 72.672604,
+              "frame_rate": "30000/1001",
+              "height": 1080,
+              "width": 1920
+            },
+            "small": {
+              "aspect": 1.7783333333333333,
+              "height": 600,
+              "size": "1067x600",
+              "width": 1067
+            }
+          },
+          "preview_remote_url": null,
+          "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/thumbnails/115/514/680/471/960/344/original/04c87a77297d36a7.jpg",
+          "processing": "complete",
+          "remote_url": null,
+          "text_url": null,
+          "type": "video",
+          "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/514/680/471/960/344/original/1f5cf65c8ad9fe32.mp4"
+        }
+      ],
+      "mentions": [
+        {
+          "acct": "realDonaldTrump",
+          "id": "107780257626128497",
+          "url": "https://truthsocial.com/@realDonaldTrump",
+          "username": "realDonaldTrump"
+        }
+      ],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": {
+        "account": {
+          "accepting_messages": false,
+          "acct": "realDonaldTrump",
+          "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+          "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+          "bot": false,
+          "chats_onboarded": true,
+          "created_at": "2022-02-11T16:16:57.705Z",
+          "discoverable": false,
+          "display_name": "Donald J. Trump",
+          "emojis": [],
+          "feeds_onboarded": true,
+          "fields": [],
+          "followers_count": 12744817,
+          "following_count": 69,
+          "group": false,
+          "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+          "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+          "id": "107780257626128497",
+          "last_status_at": "2026-06-02",
+          "location": "",
+          "locked": false,
+          "note": "<p></p>",
+          "premium": true,
+          "show_nonmember_group_statuses": false,
+          "statuses_count": 34030,
+          "tv_account": false,
+          "tv_onboarded": false,
+          "unauth_visibility": true,
+          "url": "https://truthsocial.com/@realDonaldTrump",
+          "username": "realDonaldTrump",
+          "verified": true,
+          "website": "www.DonaldJTrump.com"
+        },
+        "bookmarked": false,
+        "card": null,
+        "content": "<p>I am recommending to Senate Republicans that the Hundreds of Billions of Dollars currently being sent to money sucking Insurance Companies in order to save the bad Healthcare provided by ObamaCare, BE SENT DIRECTLY TO THE PEOPLE SO THAT THEY CAN PURCHASE THEIR OWN, MUCH BETTER, HEALTHCARE, and have money left over. In other words, take from the BIG, BAD Insurance Companies, give it to the people, and terminate, per Dollar spent, the worst Healthcare anywhere in the World, ObamaCare. Unrelated, we must still terminate the Filibuster!</p>",
+        "created_at": "2025-11-08T14:04:40.807Z",
+        "downvotes_count": 0,
+        "editable": false,
+        "edited_at": null,
+        "emojis": [],
+        "favourited": false,
+        "favourites_count": 41262,
+        "group": null,
+        "id": "115514453574326959",
+        "in_reply_to": null,
+        "in_reply_to_account_id": null,
+        "in_reply_to_id": null,
+        "language": "en",
+        "media_attachments": [],
+        "mentions": [],
+        "muted": false,
+        "pinned": false,
+        "poll": null,
+        "quote": null,
+        "quote_id": null,
+        "reaction": null,
+        "reblog": null,
+        "reblogged": false,
+        "reblogs_count": 12135,
+        "replies_count": 4837,
+        "sensitive": false,
+        "spoiler_text": "",
+        "sponsored": false,
+        "tags": [],
+        "title": null,
+        "upvotes_count": 41262,
+        "uri": "https://truthsocial.com/@realDonaldTrump/115514453574326959",
+        "url": "https://truthsocial.com/@realDonaldTrump/115514453574326959",
+        "version": "1",
+        "visibility": "public",
+        "votable": false
+      },
+      "quote_id": "115514453574326959",
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 3059,
+      "replies_count": 360,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [
+        {
+          "name": "KilltheFil"
+        }
+      ],
+      "title": null,
+      "upvotes_count": 11150,
+      "uri": "https://truthsocial.com/@repgregsteube/115514686647205086",
+      "url": "https://truthsocial.com/@repgregsteube/115514686647205086",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 1,
+    "uri": "https://truthsocial.com/@realDonaldTrump/115520369773943487",
+    "url": "https://truthsocial.com/@realDonaldTrump/115520369773943487",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

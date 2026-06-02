@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-01-06
+
+- Posts: 16
+
+- [23:46 UTC - I am pleased to announce that the Interim Authorities in Venezuela will be turning over be...](115850817778602689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850817778602689
+  - I am pleased to announce that the Interim Authorities in Venezuela will be turning over between 30 and 50 MILLION Barrels of High Quality, Sanctioned Oil, to the United States of A...
+- [22:30 UTC - It is my Great Honor to nominate Anna St. John to serve as Judge on the United States Dist...](115850518579436668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850518579436668
+  - It is my Great Honor to nominate Anna St. John to serve as Judge on the United States District Court for the Eastern District of Louisiana. A proud graduate of Columbia Law School...
+- [22:29 UTC - I am pleased to announce the nomination of John Shepherd to serve as Judge to the United S...](115850515035074475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850515035074475
+  - I am pleased to announce the nomination of John Shepherd to serve as Judge to the United States District Court for the Western District of Arkansas! John is currently a Judge on th...
+- [22:28 UTC - I am proud to announce the nomination of Chris Wolfe to serve as Judge on the United State...](115850512257143274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850512257143274
+  - I am proud to announce the nomination of Chris Wolfe to serve as Judge on the United States District Court for the Western District of Texas. After graduating from Baylor Universit...
+- [22:28 UTC - I am pleased to announce the nomination of Andrew Davis to serve as Judge on the United St...](115850509804217257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850509804217257
+  - I am pleased to announce the nomination of Andrew Davis to serve as Judge on the United States District Court for the Western District of Texas. A proud graduate of Columbia Law Sc...
+- [22:12 UTC - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to repre...](115850448778042500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850448778042500
+  - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to represent the wonderful people of Florida’s 87th State House District. Jon is a very successful...
+- [22:10 UTC - Sara Baxter has done an incredible job as Palm Beach County Commissioner, delivering lasti...](115850441807763948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850441807763948
+  - Sara Baxter has done an incredible job as Palm Beach County Commissioner, delivering lasting results for Florida families. A true MAGA Warrior, who has been with us from the very b...
+- [22:03 UTC - Nobody knows Henry Cuellar better than Donald J. Trump. I studied his records, learned abo...](115850412075994316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850412075994316
+  - Nobody knows Henry Cuellar better than Donald J. Trump. I studied his records, learned about his financing, and listened to his two wonderful daughters beg me to help the mother an...
+- [22:02 UTC - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tan...](115850410088588555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850410088588555
+  - A Great and Highly Respected Hispanic Judge, very successful Businessman, and Rancher, Tano Tijerina has dedicated his life to serving his Community. In Congress, he will fight tir...
+- [21:31 UTC - It is my Great Honor to endorse America First Patriot, Amanda McKinney, who is running to ...](115850286700351188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850286700351188
+  - It is my Great Honor to endorse America First Patriot, Amanda McKinney, who is running to represent the wonderful people of Washington’s 4th Congressional District. A very successf...
+- [21:24 UTC - Two Highly Respected America First Patriots, Jay Feely and Gina Swoboda, are running for C...](115850261028223020/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115850261028223020
+  - Two Highly Respected America First Patriots, Jay Feely and Gina Swoboda, are running for Congress in the Great State of Arizona, a very special place to me in that we had a BIG Pre...
+- [19:20 UTC - Truth Social post 115849769882209062](115849769882209062/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115849769882209062
+  - _No text content captured._
+- [13:37 UTC - Soon leaving the White House to speak to House Republicans, who I truly love (almost all!)...](115848423492044761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115848423492044761
+  - Soon leaving the White House to speak to House Republicans, who I truly love (almost all!), at the TRUMP KENNEDY CENTER, where I have raised hundreds of millions of dollars to make...
+- [13:21 UTC - California, under Governor Gavin Newscum, is more corrupt than Minnesota, if that’s possib...](115848359372759872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115848359372759872
+  - California, under Governor Gavin Newscum, is more corrupt than Minnesota, if that’s possible??? The Fraud Investigation of California has begun. Thank you for your attention to thi...
+- [13:13 UTC - The USA markets just hit another ALL TIME HIGH - ALL OF THEM!!! THANK YOU YOU MISTER TARIF...](115848329193521599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115848329193521599
+  - The USA markets just hit another ALL TIME HIGH - ALL OF THEM!!! THANK YOU YOU MISTER TARIFF!!! PRAY THAT THE UNITED STATES SUPREME COURT ALLOWS OUR COUNTRY TO CONTINUE ITS UNPRECED...
+- [04:29 UTC - Truth Social post 115846266983198283](115846266983198283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115846266983198283
+  - _No text content captured._
