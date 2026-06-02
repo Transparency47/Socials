@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2026-04-04
+
+- Posts: 13
+
+- [20:37 UTC - Many of Iran’s Military Leaders, who have led them poorly and unwisely, are terminated, al...](116348358117196662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116348358117196662
+  - Many of Iran’s Military Leaders, who have led them poorly and unwisely, are terminated, along with much else, with this massive strike in Tehran! President DONALD J. TRUMP
+- [20:26 UTC - Truth Social post 116348314215789383](116348314215789383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116348314215789383
+  - _No text content captured._
+- [19:56 UTC - Truth Social post 116348197506760486](116348197506760486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116348197506760486
+  - _No text content captured._
+- [19:56 UTC - Truth Social post 116348196909217775](116348196909217775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116348196909217775
+  - _No text content captured._
+- [19:56 UTC - Truth Social post 116348196297044208](116348196297044208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116348196297044208
+  - _No text content captured._
+- [19:00 UTC - “If you import The Third World, you become The Third World!” — AND THAT’S NOT GOING TO HAP...](116347978035210577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116347978035210577
+  - “If you import The Third World, you become The Third World!” — AND THAT’S NOT GOING TO HAPPEN TO THE UNITED STATES OF AMERICA AS LONG AS I AM PRESIDENT. President DONALD J. TRUMP
+- [14:05 UTC - Remember when I gave Iran ten days to MAKE A DEAL or OPEN UP THE HORMUZ STRAIT. Time is ru...](116346816254869135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116346816254869135
+  - Remember when I gave Iran ten days to MAKE A DEAL or OPEN UP THE HORMUZ STRAIT. Time is running out - 48 hours before all Hell will reign down on them. Glory be to GOD! President D...
+- [13:32 UTC - Not only were the jobs numbers GREAT yesterday, 178,000 new jobs, but the TRADE DEFICIT wa...](116346686438015338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116346686438015338
+  - Not only were the jobs numbers GREAT yesterday, 178,000 new jobs, but the TRADE DEFICIT was down 55%, the biggest drop in history. THANK YOU MR. TARIFF! All of this and, simultaneo...
+- [13:24 UTC - The Failing New York Times, whose lack of credibility, and their constant Fake News attack...](116346654846871260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116346654846871260
+  - The Failing New York Times, whose lack of credibility, and their constant Fake News attacks on your favorite President, ME, has caused its circulation to absolutely PLUMMET, referr...
+- [13:12 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Believers and people of f...](116346607507796836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116346607507796836
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Believers and people of faith find safe harbor in Trump's White House this Easter: [https:// justthenews.com/govern...
+- [03:21 UTC - Believers and people of faith find safe harbor in Trump's White House this Easter: [https:...](116344282496536118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116344282496536118
+  - Believers and people of faith find safe harbor in Trump's White House this Easter: [https:// justthenews.com/government/whi te-house/he-risen-faith-finds-safe-harbor-trump-white-ho...
+- [03:03 UTC - 178,000 new jobs in March. Unemployment DOWN. Great numbers by all accounts, even the Fake...](116344212584161103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116344212584161103
+  - 178,000 new jobs in March. Unemployment DOWN. Great numbers by all accounts, even the Fake News. MAGA!
+- [02:58 UTC - Third rate news “anchor” Jonathan Karl of ABC Fake News, the worst and most corrupt Networ...](116344192713238962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116344192713238962
+  - Third rate news “anchor” Jonathan Karl of ABC Fake News, the worst and most corrupt Network in the business, wrote another made up book about me where his stories and “reporting” b...

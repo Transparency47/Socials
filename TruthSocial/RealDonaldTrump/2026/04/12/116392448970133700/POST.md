@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116392448970133700 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116392448970133700 -->
+<!-- date_published: 2026-04-12T15:30:27.303000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:35:13.586835+00:00 -->
+
+# So, there you have it, the meeting went well, most points were agreed to, but the only poi...
+
+So, there you have it, the meeting went well, most points were agreed to, but the only point that really mattered, NUCLEAR, was not. Effective immediately, the United States Navy, the Finest in the World, will begin the process of BLOCKADING any and all Ships trying to enter, or leave, the Strait of Hormuz. At some point, we will reach an “ALL BEING ALLOWED TO GO IN, ALL BEING ALLOWED TO GO OUT” basis, but Iran has not allowed that to happen by merely saying, “There may be a mine out there somewhere,” that nobody knows about but them. THIS IS WORLD EXTORTION, and Leaders of Countries, especially the United States of America, will never be extorted. I have also instructed our Navy to seek and interdict every vessel in International Waters that has paid a toll to Iran. No one who pays an illegal toll will have safe passage on the high seas. We will also begin destroying the mines the Iranians laid in the Straits. Any Iranian who fires at us, or at peaceful vessels, will be BLOWN TO HELL! Iran knows, better than anyone, how to END this situation which has already devastated their Country. Their Navy is gone, their Air Force is gone, their Anti Aircraft and Radar are useless, Khamenei, and most of their “Leaders,” are dead, all because of their Nuclear ambition. The Blockade will begin shortly. Other Countries will be involved with this Blockade. Iran will not be allowed to profit off this Illegal Act of EXTORTION. They want money and, more importantly, they want Nuclear. Additionally and, at an appropriate moment, we are fully “LOCKED AND LOADED,” and our Military will finish up the little that is left of Iran! President DONALD J. TRUMP

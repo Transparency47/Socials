@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-03-26
+
+- Posts: 18
+
+- [22:30 UTC - The Radical Left Democrats, and their “Leader,” Cryin’ Chuck Schumer, have made it very cl...](116297841162983424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116297841162983424
+  - The Radical Left Democrats, and their “Leader,” Cryin’ Chuck Schumer, have made it very clear where they stand, and that is, ON THE SIDE OF CRIMINAL ILLEGAL ALIENS, AND NOT THE AME...
+- [22:29 UTC - Congratulations to the International Olympic Committee on their decision to ban Men from W...](116297837562852093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116297837562852093
+  - Congratulations to the International Olympic Committee on their decision to ban Men from Women’s Sports. This is only happening because of my powerful Executive Order, standing up...
+- [20:11 UTC - As per Iranian Government request, please let this statement serve to represent that I am ...](116297295543838717/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116297295543838717
+  - As per Iranian Government request, please let this statement serve to represent that I am pausing the period of Energy Plant destruction by 10 Days to Monday, April 6, 2026, at 8 P...
+- [11:22 UTC - Chuck Schumer, a desperate, crippled politician, who has lost control of the Radical Left ...](116295216341236902/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295216341236902
+  - Chuck Schumer, a desperate, crippled politician, who has lost control of the Radical Left Democrats, will make a deal now because he thinks that if he doesn’t, Republicans will TER...
+- [10:59 UTC - TERMINATE THE FILIBUSTER!](116295123363005809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295123363005809
+  - TERMINATE THE FILIBUSTER!
+- [10:57 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I’ve Seen Enough: The Sen...](116295116846369941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295116846369941
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I’ve Seen Enough: The Senate Is Broken, And It’s Time To Change The Rules: [https://www. dailywire.com/news/ive-see...
+- [10:54 UTC - “You couldn’t ask for more militarily. It will be studied with envy for many years to come...](116295104061661845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295104061661845
+  - “You couldn’t ask for more militarily. It will be studied with envy for many years to come!” Steve Yates on Fox & Friends First
+- [10:51 UTC - When is “enough, enough” for our Republican Senators. There comes a time when you must do ...](116295094711655881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295094711655881
+  - When is “enough, enough” for our Republican Senators. There comes a time when you must do what should have been done a long time ago, and something which the Lunatic Democrats will...
+- [10:43 UTC - I’ve Seen Enough: The Senate Is Broken, And It’s Time To Change The Rules: [https://www. d...](116295061962439836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295061962439836
+  - I’ve Seen Enough: The Senate Is Broken, And It’s Time To Change The Rules: [https://www. dailywire.com/news/ive-seen-en ough-the-senate-is-broken-and-its-time-to-change-the-rules](...
+- [10:43 UTC - U.S. intercepted Ukraine government messages discussing plot to route money to Biden re-el...](116295060276845350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295060276845350
+  - U.S. intercepted Ukraine government messages discussing plot to route money to Biden re-election: [https:// justthenews.com/government/sec urity/nsa-intercepted-ukraine-government-...
+- [10:39 UTC - The Iranian negotiators are very different and “strange.” They are “begging” us to make a ...](116295045718240014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116295045718240014
+  - The Iranian negotiators are very different and “strange.” They are “begging” us to make a deal, which they should be doing since they have been militarily obliterated, with zero ch...
+- [10:16 UTC - NATO NATIONS HAVE DONE ABSOLUTELY NOTHING TO HELP WITH THE LUNATIC NATION, NOW MILITARILY ...](116294956989451533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294956989451533
+  - NATO NATIONS HAVE DONE ABSOLUTELY NOTHING TO HELP WITH THE LUNATIC NATION, NOW MILITARILY DECIMATED, OF IRAN. THE U.S.A. NEEDS NOTHING FROM NATO, BUT “NEVER FORGET” THIS VERY IMPOR...
+- [10:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Trump and Pirro deserve c...](116294910525238879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294910525238879
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Trump and Pirro deserve credit for big cuts to Washington, DC crime: [https://www. washingtonexaminer.com/opinion /...
+- [10:04 UTC - RT [@ seanhannity](https://truthsocial.com/@seanhannity) HANNITY MONOLOGUE: Modern-Day Dem...](116294909821414284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294909821414284
+  - RT [@ seanhannity](https://truthsocial.com/@seanhannity) HANNITY MONOLOGUE: Modern-Day Democratic Party Has Lost Its Heart and Soul [WATCH] [https:// hannity.com/media-room/hannity...
+- [10:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Blame the Democrats for t...](116294906575864350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294906575864350
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Blame the Democrats for the Airport’s mess. They want our Country to do badly. They want our Country to fail. They...
+- [10:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats don’t want ...](116294905762243060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294905762243060
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats don’t want to make any deal unless Amnesty and Citizenship is given to millions of Criminals who have...
+- [10:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left, Country...](116294904600996329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116294904600996329
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left, Country Hating Democrats are trying to create inner chaos to take away from the great military ac...
+- [02:42 UTC - NY AG Letitia James referred again for criminal prosecution for alleged homeowner insuranc...](116293169358563364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116293169358563364
+  - NY AG Letitia James referred again for criminal prosecution for alleged homeowner insurance fraud: [https:// justthenews.com/government/cou rts-law/545ny-ag-letitia-james-referred-...

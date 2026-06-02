@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-04-10
+
+- Posts: 18
+
+- [22:07 UTC - I am pleased to announce that TODAY my Administration officially filed the presentation an...](116382683954564544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382683954564544
+  - I am pleased to announce that TODAY my Administration officially filed the presentation and plans to the highly respected Commission of Fine Arts for what will be the GREATEST and...
+- [21:36 UTC - It is my Honor to nominate Matthew Schwartz to serve as Judge on the United States Court o...](116382563202541274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382563202541274
+  - It is my Honor to nominate Matthew Schwartz to serve as Judge on the United States Court of Appeals for the Second Circuit in New York. Matt graduated with Honors from Princeton Un...
+- [20:38 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) James Blair, my Deputy Ch...](116382335872193342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382335872193342
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) James Blair, my Deputy Chief of Staff, is one of the brightest political minds in the Country who has done tremendo...
+- [20:38 UTC - My Administration stands ready to use the full Economic Might of the United States to stre...](116382335330123013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382335330123013
+  - My Administration stands ready to use the full Economic Might of the United States to strengthen Hungary’s Economy, as we have done for our Great Allies in the past, if Prime Minis...
+- [20:37 UTC - I just met with Senators Lindsey Graham and John Barrasso to talk about funding for our Gr...](116382331013274742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382331013274742
+  - I just met with Senators Lindsey Graham and John Barrasso to talk about funding for our Great ICE Agents and Border Patrol. Reconciliation is ON TRACK, and we are moving FAST and F...
+- [20:17 UTC - James Blair, my Deputy Chief of Staff, is one of the brightest political minds in the Coun...](116382254441825770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382254441825770
+  - James Blair, my Deputy Chief of Staff, is one of the brightest political minds in the Country who has done tremendous work to prepare Republicans to DEFY LONGSTANDING HISTORY AND W...
+- [20:07 UTC - The Wonderful People of Alaska desperately want to restore Free, Fair, and Honest Election...](116382212683078684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382212683078684
+  - The Wonderful People of Alaska desperately want to restore Free, Fair, and Honest Elections in their Great State, and get rid of their disastrous, and very fraudulent, “Ranked-Choi...
+- [20:03 UTC - Paul Dans has just dropped out of the South Carolina Senatorial Race against the Great Lin...](116382196783520781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382196783520781
+  - Paul Dans has just dropped out of the South Carolina Senatorial Race against the Great Lindsey Graham. It all started to fall apart for Paul when a very Low IQ individual named Tuc...
+- [19:59 UTC - Senator Lindsey Graham is doing a fantastic job. He is running against a LUNATIC named Mar...](116382183704204825/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382183704204825
+  - Senator Lindsey Graham is doing a fantastic job. He is running against a LUNATIC named Mark Lynch, who supports perhaps the Worst Congressman in the History of our Country, Thomas...
+- [19:44 UTC - Mike Hilgers has been a fantastic Attorney General of Nebraska, a place I love and WON BIG...](116382124929663354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382124929663354
+  - Mike Hilgers has been a fantastic Attorney General of Nebraska, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! A Highly Respected Entrepreneur...
+- [19:39 UTC - Congressman Rudy Yakym is a Fantastic Advocate for Indiana’s 2nd Congressional District! A...](116382105271047123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116382105271047123
+  - Congressman Rudy Yakym is a Fantastic Advocate for Indiana’s 2nd Congressional District! As a Member of the POWERFUL House Ways & Means Committee, Rudy knows the America First Poli...
+- [16:28 UTC - The Iranians don’t seem to realize they have no cards, other than a short term extortion o...](116381352865496679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116381352865496679
+  - The Iranians don’t seem to realize they have no cards, other than a short term extortion of the World by using International Waterways. The only reason they are alive today is to n...
+- [16:27 UTC - The Iranians are better at handling the Fake News Media, and “Public Relations,” than they...](116381349587924418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116381349587924418
+  - The Iranians are better at handling the Fake News Media, and “Public Relations,” than they are at fighting! President DONALD J. TRUMP
+- [14:32 UTC - Palantir Technologies (PLTR) has proven to have great war fighting capabilities and equipm...](116380894672815869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116380894672815869
+  - Palantir Technologies (PLTR) has proven to have great war fighting capabilities and equipment. Just ask our enemies!!! President DJT
+- [13:31 UTC - WORLD’S MOST POWERFUL RESET!!! President DJT](116380657463593385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116380657463593385
+  - WORLD’S MOST POWERFUL RESET!!! President DJT
+- [05:15 UTC - Trump upends China’s lucrative sanctioned oil import scheme after Iran, Venezuela interven...](116378705268992787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116378705268992787
+  - Trump upends China’s lucrative sanctioned oil import scheme after Iran, Venezuela interventions: [https:// justthenews.com/government/dip lomacy/trump-upends-chinas-lucrative-sanct...
+- [05:14 UTC - Two more major pharmaceutical companies to launch products through TrumpRx: [https:// just...](116378701821538787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116378701821538787
+  - Two more major pharmaceutical companies to launch products through TrumpRx: [https:// justthenews.com/politics-polic y/health/two-more-major-pharmaceutical-companies-launch-product...
+- [05:13 UTC - With Trump at the joystick, moon mission launches patriotism ahead of America’s 250th: [ht...](116378699040694200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116378699040694200
+  - With Trump at the joystick, moon mission launches patriotism ahead of America’s 250th: [https:// justthenews.com/government/whi te-house/trump-hard-launched-summer-patriotism-artem...

@@ -1,0 +1,145 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 116415864463373443
+- Post URL: https://truthsocial.com/@realDonaldTrump/116415864463373443
+- Title: The White House doesn’t have a Ballroom (No Taxpayer Money!), which Presidents have desper...
+- Date published: 2026-04-16T18:45:19.374000+00:00
+- Date accessed: 2026-06-02T13:32:30.590624+00:00
+- Content kind: post
+- Language: en
+
+## Metrics
+
+- favorites: 21562
+- reblogs: 5443
+- replies: 1871
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12743985,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34029,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744111,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>The White House doesn’t have a Ballroom (No Taxpayer Money!), which Presidents have desperately wanted and desired for over 150 years, but a Trump Hating, Washington, D.C. District Court Judge, a man who has gone out of his way to undermine National Security, and to make sure that this Great Gift to America gets delayed, or doesn’t get built, is attempting to prevent future Presidents and World Leaders from having a safe and secure large scale Meeting Place, or Ballroom, one with Bomb Shelters, a State of the Art Hospital and Medical Facilities, Protective Partitioning, Top Secret Military Installations, Structures, and Equipment, Protective Missile Resistant Steel, Columns, Roofs, and Beams, Drone Proof Ceilings and Roofs, Military Grade Venting, and Bullet, Ballistic, and Blast Proof Glass —which all means that no future President, living in the White House without this Ballroom, can ever be Safe and Secure at Events, Future Inaugurations, or Global Summits. This Magnificent Space will allow them to carry out their vital duties as the Leader of our Nation. Furthermore, the Ballroom, which is being constructed on budget and ahead of schedule, is needed now. Almost all material necessary for its construction is being built and/or on its way to the site, ready for installation and erection. Much of it has already been paid for, costing Hundreds of Millions of Dollars. If somebody, especially one with no standing, had a complaint — Why wasn’t it filed many months earlier, long before Construction was started? The Public Record was open for all to see. Everybody knew that it was planned, and going to be built. This highly political Judge, and his illegal overreach, is out of control, and costing our Nation greatly. This is a mockery to our Court System! The Ballroom is deeply important to our National Security, and no Judge can be allowed to stop this Historic and Militarily Imperative Project. Thank you for your attention to this matter! President DONALD J. TRUMP</p>",
+    "created_at": "2026-04-16T18:45:19.374Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 21562,
+    "group": null,
+    "id": "116415864463373443",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": "en",
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": null,
+    "reblogged": false,
+    "reblogs_count": 5443,
+    "replies_count": 1871,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 21562,
+    "uri": "https://truthsocial.com/@realDonaldTrump/116415864463373443",
+    "url": "https://truthsocial.com/@realDonaldTrump/116415864463373443",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-04-12
+
+- Posts: 9
+
+- [23:09 UTC - Congratulations to Paulo Costa on a Great UFC Fight last night in Miami. He will absolutel...](116394253351977606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394253351977606
+  - Congratulations to Paulo Costa on a Great UFC Fight last night in Miami. He will absolutely be a future Champion. It was great talking to him outside the ring after his Big Victory...
+- [23:09 UTC - Congratulations to Rory McIlroy on another Great Championship, The Masters! He performed t...](116394252667019873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394252667019873
+  - Congratulations to Rory McIlroy on another Great Championship, The Masters! He performed tremendously under intense pressure, something which few people would be able to even think...
+- [16:23 UTC - Bruce Springsteen prior to plastic surgery???](116392655867913780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116392655867913780
+  - Bruce Springsteen prior to plastic surgery???
+- [15:30 UTC - Iran promised to open the Strait of Hormuz, and they knowingly failed to do so. This cause...](116392449978703637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116392449978703637
+  - Iran promised to open the Strait of Hormuz, and they knowingly failed to do so. This caused anxiety, dislocation, and pain to many people and Countries throughout the World. They s...
+- [15:30 UTC - So, there you have it, the meeting went well, most points were agreed to, but the only poi...](116392448970133700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116392448970133700
+  - So, there you have it, the meeting went well, most points were agreed to, but the only point that really mattered, NUCLEAR, was not. Effective immediately, the United States Navy,...
+- [04:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116389941415211064](116389942787694873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116389942787694873
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116389941415211064
+- [04:52 UTC - Truth Social post 116389941415211064](116389941415211064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116389941415211064
+  - _No text content captured._
+- [04:49 UTC - Truth Social post 116389926695146999](116389926695146999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116389926695146999
+  - _No text content captured._
+- [04:16 UTC - The Trump card the president holds if Iran won’t bend: a naval blockade: [https:// justthe...](116389798405349626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116389798405349626
+  - The Trump card the president holds if Iran won’t bend: a naval blockade: [https:// justthenews.com/government/sec urity/trump-card-president-holds-if-iran-wont-bend-naval-blockade]...

@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2026-03-30
+
+- Posts: 21
+
+- [23:59 UTC - [https://www. trumplibrary.org/](https://www.trumplibrary.org/)](116320838897987884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116320838897987884
+  - [https://www. trumplibrary.org/](https://www.trumplibrary.org/)
+- [18:06 UTC - Truth Social post 116319451196898238](116319451196898238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116319451196898238
+  - _No text content captured._
+- [13:20 UTC - Truth Social post 116318327451670661](116318327451670661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116318327451670661
+  - _No text content captured._
+- [12:27 UTC - The current war in Iran may prevent much greater bloodshed: [https:// thehill.com/opinion/...](116318120548204193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116318120548204193
+  - The current war in Iran may prevent much greater bloodshed: [https:// thehill.com/opinion/national-s ecurity/5804535-the-current-war-in-iran-may-prevent-much-greater-bloodshed/](ht...
+- [11:26 UTC - The United States of America is in serious discussions with A NEW, AND MORE REASONABLE, RE...](116317880658472708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116317880658472708
+  - The United States of America is in serious discussions with A NEW, AND MORE REASONABLE, REGIME to end our Military Operations in Iran. Great progress has been made but, if for any...
+- [10:47 UTC - Birthright Citizenship is not about rich people from China, and the rest of the World, who...](116317726153845042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116317726153845042
+  - Birthright Citizenship is not about rich people from China, and the rest of the World, who want their children, and hundreds of thousands more, FOR PAY, to ridiculously become citi...
+- [02:29 UTC - Big day in Iran. Many long sought after targets have been taken out and destroyed by our G...](116315768155415029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315768155415029
+  - Big day in Iran. Many long sought after targets have been taken out and destroyed by our GREAT MILITARY, the finest and most lethal in the World. God bless you all! President DJT
+- [02:23 UTC - Congratulations to a great guy, and golfer, Gary Woodland, on his big win today in the Tex...](116315744707013424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315744707013424
+  - Congratulations to a great guy, and golfer, Gary Woodland, on his big win today in the Texas Children’s Houston Open. He shot 21 under par! What a GREAT comeback from a serious hea...
+- [01:35 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Last week, my Envoy to Be...](116315554694698427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315554694698427
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Last week, my Envoy to Belarus, John Coale, after negotiating with Highly Respected President Alexander Lukashenko,...
+- [01:35 UTC - Top Trump Housing Official Seeks New Prosecution Of Letitia James: [https://www. binnews.c...](116315554378575899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315554378575899
+  - Top Trump Housing Official Seeks New Prosecution Of Letitia James: [https://www. binnews.com/content/2026-03-26 -top-trump-housing-official-seeks-new-prosecution-of-letitia-james/]...
+- [01:32 UTC - Truth Social post 116315542558262664](116315542558262664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315542558262664
+  - _No text content captured._
+- [01:31 UTC - Bill Pulte files new criminal referral against Trump foe Letitia James: [https://www. wash...](116315538702242081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315538702242081
+  - Bill Pulte files new criminal referral against Trump foe Letitia James: [https://www. washingtonexaminer.com/news/ju stice/4504109/bill-pulte-criminal-referral-letitia-james/](http...
+- [01:30 UTC - Trump housing chief requests new criminal investigation into Letitia James: [https://www. ...](116315536925726627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315536925726627
+  - Trump housing chief requests new criminal investigation into Letitia James: [https://www. theguardian.com/us-news/2026/m ar/25/trump-letitia-james-mortgage-fraud-investigation-refe...
+- [01:30 UTC - Top Trump housing official issues new criminal referral for New York AG Letitia James: [ht...](116315535910048103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315535910048103
+  - Top Trump housing official issues new criminal referral for New York AG Letitia James: [https://www. cnn.com/2026/03/25/politics/bi ll-pulte-criminal-referral-letitia-james](https:...
+- [01:29 UTC - JUST IN: Federal Housing Regulator Bill Pulte Criminally Refers Embattled New York Attorne...](116315533234465639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315533234465639
+  - JUST IN: Federal Housing Regulator Bill Pulte Criminally Refers Embattled New York Attorney General Letitia James for Homeowner Insurance Fraud: [https://www. thegatewaypundit.com/...
+- [01:28 UTC - Pulte Makes New Fraud Allegations Against New York AG James: [https://www. bloomberg.com/n...](116315527972027723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315527972027723
+  - Pulte Makes New Fraud Allegations Against New York AG James: [https://www. bloomberg.com/news/articles/20 26-03-26/pulte-makes-new-fraud-allegations-against-new-york-ag-james?embed...
+- [01:28 UTC - TRUMP HOUSING BOSS HURLS FRESH CRIMINAL REFERRALS AT LETITIA JAMES FROM MIAMI TO CHICAGO: ...](116315526664604618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315526664604618
+  - TRUMP HOUSING BOSS HURLS FRESH CRIMINAL REFERRALS AT LETITIA JAMES FROM MIAMI TO CHICAGO: [https:// hoodline.com/2026/03/trump-hou sing-boss-hurls-fresh-criminal-referrals-at-letit...
+- [01:27 UTC - Trump’s Housing Chief Seeks New DOJ Investigation Against Letitia James: [https://www. for...](116315525048495482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315525048495482
+  - Trump’s Housing Chief Seeks New DOJ Investigation Against Letitia James: [https://www. forbes.com/sites/siladityaray/ 2026/03/26/trump-housing-official-seeks-new-criminal-investiga...
+- [01:27 UTC - Trump admin makes new criminal referrals to DOJ targeting New York AG Letitia James: [http...](116315523560021437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315523560021437
+  - Trump admin makes new criminal referrals to DOJ targeting New York AG Letitia James: [https://www. foxnews.com/politics/trump-adm in-makes-new-criminal-referrals-doj-targeting-new-...
+- [01:26 UTC - NY AG Letitia James hit with two more criminal referrals alleging possible insurance fraud...](116315522329057259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315522329057259
+  - NY AG Letitia James hit with two more criminal referrals alleging possible insurance fraud: [https:// nypost.com/2026/03/25/us-news/ ny-ag-letitia-james-hit-with-two-more-criminal-...
+- [01:06 UTC - Last week, my Envoy to Belarus, John Coale, after negotiating with Highly Respected Presid...](116315443614484269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116315443614484269
+  - Last week, my Envoy to Belarus, John Coale, after negotiating with Highly Respected President Alexander Lukashenko, got 250 more Political Prisoners freed! This brings the total Pr...

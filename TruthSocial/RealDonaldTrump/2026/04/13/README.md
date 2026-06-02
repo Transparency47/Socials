@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2026-04-13
+
+- Posts: 22
+
+- [23:04 UTC - Truth Social post 116399897710782846](116399897710782846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116399897710782846
+  - _No text content captured._
+- [21:12 UTC - Scott Bedke has been a tremendous Lieutenant Governor of Idaho, a place I love and WON BIG...](116399455398170606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116399455398170606
+  - Scott Bedke has been a tremendous Lieutenant Governor of Idaho, a place I love and WON BIG in 2016, 2020, and 2024! A very successful Businessman, Cattle Rancher, and Highly Respec...
+- [21:11 UTC - Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A...](116399450887993236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116399450887993236
+  - Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A Highly Respected Police Officer, Civic Leader, and Las Vegas City Council Member, and now...
+- [20:54 UTC - For those people that still read The Failing New York Times and, despite the fact that Ira...](116399385880639539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116399385880639539
+  - For those people that still read The Failing New York Times and, despite the fact that Iran has been totally OBLITERATED, Militarily, and otherwise, you would think that Iran is ac...
+- [16:33 UTC - 34 Ships went through the Strait of Hormuz yesterday, which is by far the highest number s...](116398358272601798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116398358272601798
+  - 34 Ships went through the Strait of Hormuz yesterday, which is by far the highest number since this foolish closure began. President DONALD J. TRUMP
+- [16:32 UTC - Our powerful case against The Wall Street Journal, and other defendants, was asked to be r...](116398354806956903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116398354806956903
+  - Our powerful case against The Wall Street Journal, and other defendants, was asked to be re-filed by the Judge. It is not a termination, it is a suggested re-filing, and we will be...
+- [14:23 UTC - Iran’s Navy is laying at the bottom of the sea, completely obliterated - 158 ships. What w...](116397847496142849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116397847496142849
+  - Iran’s Navy is laying at the bottom of the sea, completely obliterated - 158 ships. What we have not hit are their small number of, what they call, “fast attack ships,” because we...
+- [08:10 UTC - Trump brilliantly calls Iran’s bluff — with his own Strait of Hormuz blockade: [https:// n...](116396382206568435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396382206568435
+  - Trump brilliantly calls Iran’s bluff — with his own Strait of Hormuz blockade: [https:// nypost.com/2026/04/12/opinion/ trump-brilliantly-calls-irans-bluff-with-his-own-strait-of-h...
+- [06:38 UTC - Appeals court rules Trump’s White House ballroom construction can move forward until April...](116396018564238264/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396018564238264
+  - Appeals court rules Trump’s White House ballroom construction can move forward until April 17: [https:// justthenews.com/government/cou rts-law/appeals-court-rules-trumps-white-hou...
+- [06:37 UTC - Impeachment Bombshell: Secret memos expose Ukraine accuser’s bias, hearsay, and false clai...](116396016565406676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396016565406676
+  - Impeachment Bombshell: Secret memos expose Ukraine accuser’s bias, hearsay, and false claim: [https:// justthenews.com/accountability /whistleblowers/ukraine-bombshell-long-secret-...
+- [06:37 UTC - Swalwell suspends his campaign for California governor amid furor over sex assault allegat...](116396014283361917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396014283361917
+  - Swalwell suspends his campaign for California governor amid furor over sex assault allegations: [https:// justthenews.com/politics-polic y/elections/swalwell-says-hes-suspending-hi...
+- [06:36 UTC - The Trump card the president holds if Iran won’t bend: a naval blockade: [https:// justthe...](116396012068955371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396012068955371
+  - The Trump card the president holds if Iran won’t bend: a naval blockade: [https:// justthenews.com/government/sec urity/trump-card-president-holds-if-iran-wont-bend-naval-blockade]...
+- [06:35 UTC - Impeachment Bombshell: Secret memos expose Ukraine accuser’s bias, hearsay, and false clai...](116396009153482976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116396009153482976
+  - Impeachment Bombshell: Secret memos expose Ukraine accuser’s bias, hearsay, and false claim: [https:// justthenews.com/accountability /whistleblowers/ukraine-bombshell-long-secret-...
+- [04:43 UTC - The United States to Blockade Ships Entering or Exiting Iranian Ports on April 13 at 10:00...](116395566253303665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116395566253303665
+  - The United States to Blockade Ships Entering or Exiting Iranian Ports on April 13 at 10:00 A.M. ET. Thank you for your attention to this matter! President DJT
+- [02:53 UTC - Truth Social post 116395134909243812](116395134909243812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116395134909243812
+  - _No text content captured._
+- [02:32 UTC - Truth Social post 116395052461858611](116395052461858611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116395052461858611
+  - _No text content captured._
+- [02:10 UTC - Truth Social post 116394964157828494](116394964157828494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394964157828494
+  - _No text content captured._
+- [01:50 UTC - Truth Social post 116394885575318850](116394885575318850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394885575318850
+  - _No text content captured._
+- [01:49 UTC - DHS investigating claim about Swalwell nanny filed by conspiracy theorist: [https://www. t...](116394883403228203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394883403228203
+  - DHS investigating claim about Swalwell nanny filed by conspiracy theorist: [https://www. theguardian.com/us-news/2026/a pr/12/dhs-investigates-eric-swalwell-brazilian-nanny](https:...
+- [01:48 UTC - Eric Swalwell paid illegal Brazilian live-in nanny under the table with campaign funds, co...](116394878579443980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394878579443980
+  - Eric Swalwell paid illegal Brazilian live-in nanny under the table with campaign funds, complaint alleges: [https:// nypost.com/2026/04/11/us-news/ eric-swalwell-paid-illegal-brazi...
+- [01:03 UTC - Pope Leo is WEAK on Crime, and terrible for Foreign Policy. He talks about “fear” of the T...](116394704213456431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394704213456431
+  - Pope Leo is WEAK on Crime, and terrible for Foreign Policy. He talks about “fear” of the Trump Administration, but doesn’t mention the FEAR that the Catholic Church, and all other...
+- [00:56 UTC - Rory, and his father Gerry, also a very good Golfer, at Trump International Golf Club, Pal...](116394673326324766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116394673326324766
+  - Rory, and his father Gerry, also a very good Golfer, at Trump International Golf Club, Palm Beach County, Florida!

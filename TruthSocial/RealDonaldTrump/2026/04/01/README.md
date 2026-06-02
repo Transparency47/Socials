@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-04-01
+
+- Posts: 11
+
+- [23:15 UTC - It is my Great Honor to nominate Jeffrey Kuntz to serve as Judge on the United States Dist...](116331993306678428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116331993306678428
+  - It is my Great Honor to nominate Jeffrey Kuntz to serve as Judge on the United States District Court for the Southern District of Florida. As the Highly Respected Chief Judge of Fl...
+- [23:14 UTC - It is my Honor to nominate Mike Hendershot to serve as Judge on the United States District...](116331990038819932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116331990038819932
+  - It is my Honor to nominate Mike Hendershot to serve as Judge on the United States District Court for the Northern District of Ohio! As Chief Deputy State Solicitor, Mike has strong...
+- [23:14 UTC - I am pleased to nominate Arthur “Rob” Jones to serve on the United States District Court f...](116331986972530622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116331986972530622
+  - I am pleased to nominate Arthur “Rob” Jones to serve on the United States District Court for the Southern District of Texas. Before becoming Executive Assistant U.S. Attorney for t...
+- [23:13 UTC - I am pleased to nominate John Marck to serve on the United States District Court for the S...](116331984748685770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116331984748685770
+  - I am pleased to nominate John Marck to serve on the United States District Court for the Southern District of Texas. As Acting U.S. Attorney for the Southern District of Texas, Joh...
+- [22:35 UTC - Truth Social post 116331834399674522](116331834399674522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116331834399674522
+  - _No text content captured._
+- [18:06 UTC - Tonight at 6:24 P.M. EST, for the first time in over 50 YEARS, America is going back to th...](116330778720988222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116330778720988222
+  - Tonight at 6:24 P.M. EST, for the first time in over 50 YEARS, America is going back to the Moon! Artemis II, among the most powerful rockets ever built, is launching our Brave Ast...
+- [16:52 UTC - Republicans fully support our Great Men and Women of Law Enforcement, maybe the word shoul...](116330487356155648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116330487356155648
+  - Republicans fully support our Great Men and Women of Law Enforcement, maybe the word should be, LOVE! America thanks each and every one of our wonderful Police, Border Patrol, ICE,...
+- [16:20 UTC - We are the only Country in the World STUPID enough to allow “Birthright” Citizenship! Pres...](116330362125395500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116330362125395500
+  - We are the only Country in the World STUPID enough to allow “Birthright” Citizenship! President DONALD J. TRUMP
+- [13:04 UTC - Wow! Congratulations to Nissan, and Christian Meunier, Americas Chairman, on the tremendou...](116329590740337581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116329590740337581
+  - Wow! Congratulations to Nissan, and Christian Meunier, Americas Chairman, on the tremendous success they are having in the U.S. They have moved most of their production to our grea...
+- [12:44 UTC - Iran’s New Regime President, much less Radicalized and far more intelligent than his prede...](116329512466946656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116329512466946656
+  - Iran’s New Regime President, much less Radicalized and far more intelligent than his predecessors, has just asked the United States of America for a CEASEFIRE! We will consider whe...
+- [02:49 UTC - Truth Social post 116327170669640321](116327170669640321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116327170669640321
+  - _No text content captured._

@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116325438537980532 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116325438537980532 -->
+<!-- date_published: 2026-03-31T19:28:49.254000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:41:45.809255+00:00 -->
+
+# The National Trust for Historic Preservation sues me for a Ballroom that is under budget, ...
+
+The National Trust for Historic Preservation sues me for a Ballroom that is under budget, ahead of schedule, being built at no cost to the Taxpayer, and will be the finest Building of its kind anywhere in the World. I then get sued by them over the renovation of the dilapidated and structurally unsound former Kennedy Center, now, The Trump Kennedy Center (A show of Bipartisan Unity, a Republican and Democrat President!), where all I am doing is fixing, cleaning, running, and “sprucing up” a terribly maintained, for many years, Building, but a Building of potentially great importance. Yet, The National Trust for Historic Preservation, a Radical Left Group of Lunatics whose funding was stopped by Congress in 2005, is not suing the Federal Reserve for a Building which has been decimated and destroyed, inside and out, by an incompetent and possibly corrupt Fed Chairman. The once magnificent Building is BILLIONS over budget, may never be completed, and may never open. All of the beautiful walls inside have been ripped down, never to be built again, but the National “Trust” for Historic Preservation never did anything about it! Or, have they sued on Governor Gavin Newscum’s “RAILROAD TO NOWHERE” in California that is BILLIONS over Budget and, probably, will never open or be used. So, the White House Ballroom, and The Trump Kennedy Center, which are under budget, ahead of schedule, and will be among the most magnificent Buildings of their kind anywhere in the World, gets sued by a group that was cut off by Government years ago, but all of the many DISASTERS in our Country are left alone to die. Doesn’t make much sense, does it? President DONALD J. TRUMP

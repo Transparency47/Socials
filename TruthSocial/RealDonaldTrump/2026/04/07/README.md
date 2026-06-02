@@ -1,0 +1,130 @@
+# TruthSocial / RealDonaldTrump / 2026-04-07
+
+- Posts: 42
+
+- [23:42 UTC - OFFICIAL STATEMENT OF IRAN:](116366072136989268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116366072136989268
+  - OFFICIAL STATEMENT OF IRAN:
+- [22:32 UTC - Based on conversations with Prime Minister Shehbaz Sharif and Field Marshal Asim Munir, of...](116365796713313030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365796713313030
+  - Based on conversations with Prime Minister Shehbaz Sharif and Field Marshal Asim Munir, of Pakistan, and wherein they requested that I hold off the destructive force being sent ton...
+- [20:27 UTC - It is my Great Honor to endorse Dr. Brian Schmutzler, a MAGA Warrior and REAL Republican r...](116365303932078350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365303932078350
+  - It is my Great Honor to endorse Dr. Brian Schmutzler, a MAGA Warrior and REAL Republican running for Indiana's 11th State Senate District, against RINO incumbent Linda Rogers! A Pr...
+- [20:23 UTC - State Senator Jim Tomes is an America First Patriot who is doing an incredible job represe...](116365290884513075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365290884513075
+  - State Senator Jim Tomes is an America First Patriot who is doing an incredible job representing Indiana’s 49th State Senate District! A Brave U.S. Army Vietnam Veteran, and Chairma...
+- [20:23 UTC - State Senator Daryl Schmidt is doing a tremendous job representing the Great People of Ind...](116365290259205790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365290259205790
+  - State Senator Daryl Schmidt is doing a tremendous job representing the Great People of Indiana’s 48th State Senate District! A Fifth Generation Family Farmer, Daryl is a strong and...
+- [20:23 UTC - State Senator Gary Byrne is doing a fantastic job representing the incredible people of In...](116365289686358949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365289686358949
+  - State Senator Gary Byrne is doing a fantastic job representing the incredible people of Indiana’s 47th Congressional District! A Highly Respected Businessman, North Harrison School...
+- [20:23 UTC - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great ...](116365288989008607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365288989008607
+  - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great People of Indiana’s 45th State Senate District! As the Majority Floor Leader of the Indian...
+- [20:23 UTC - State Senator Randy Maxwell is a Tremendous Champion for the incredible people of Indiana’...](116365288444023601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365288444023601
+  - State Senator Randy Maxwell is a Tremendous Champion for the incredible people of Indiana’s 43rd State Senate District! As a very successful Businessman, Randy knows the America Fi...
+- [20:23 UTC - State Senator Jeff Raatz is an America First Patriot doing a fantastic job representing In...](116365287802499897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365287802499897
+  - State Senator Jeff Raatz is an America First Patriot doing a fantastic job representing Indiana’s 27th State Senate District! A Brave U.S. Army Veteran, Jeff knows the Wisdom and C...
+- [20:22 UTC - State Senator Scott Alexander is doing a terrific job representing the wonderful people of...](116365287253994322/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365287253994322
+  - State Senator Scott Alexander is doing a terrific job representing the wonderful people of Indiana’s 26th State Senate District! A Successful Entrepreneur and Civic Leader, before...
+- [20:22 UTC - State Senator Mike Gaskill is a MAGA Warrior who is doing a tremendous job representing In...](116365286643586938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365286643586938
+  - State Senator Mike Gaskill is a MAGA Warrior who is doing a tremendous job representing Indiana’s 25th State Senate District! A Highly Successful Businessman, Mike knows the AMERIC...
+- [20:22 UTC - State Senator Ron Alting is a Strong Champion and Highly Effective Representative for the ...](116365286020333679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365286020333679
+  - State Senator Ron Alting is a Strong Champion and Highly Effective Representative for the Great People of  Indiana’s 22nd State Senate District! A respected Businessman, Lafayette...
+- [20:22 UTC - State Senator Liz Brown is a MAGA Warrior who is doing an incredible job representing Indi...](116365285441680816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365285441680816
+  - State Senator Liz Brown is a MAGA Warrior who is doing an incredible job representing Indiana’s 15th State Senate District! A successful Attorney, and Fort Wayne City Council Membe...
+- [20:22 UTC - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job repre...](116365284827791048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365284827791048
+  - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job representing Indiana’s 14th State Senate District! A Proven Leader, Tyler serves his Community...
+- [20:20 UTC - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican run...](116365279658494851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365279658494851
+  - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican running for Indiana's 41st State Senate District (which I won by 33 points!), against RINO in...
+- [20:20 UTC - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidat...](116365277089556863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365277089556863
+  - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidate for Indiana's 39th State Senate District (which I won by a whopping 55 points!). Jeff wi...
+- [20:19 UTC - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against...](116365275300009543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365275300009543
+  - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against “No Goode” Greg Goode (BAD FOR THE U.S.A.!) in the Republican Primary for Indiana’s 38th...
+- [20:19 UTC - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhav...](116365273811504261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365273811504261
+  - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhaver, a terrific Candidate for Indiana's 23rd State Senate District (which I won by 26 point...
+- [20:19 UTC - It is my Great Honor to endorse America First Patriot Tracey Powell, a fantastic Candidate...](116365272431087703/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365272431087703
+  - It is my Great Honor to endorse America First Patriot Tracey Powell, a fantastic Candidate for Indiana's 21st State Senate District (which I won by 24 points!). Tracey is running a...
+- [20:18 UTC - Bluffton City Councilman Blake Fiechter, a True America First Patriot, is running against ...](116365271173259328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365271173259328
+  - Bluffton City Councilman Blake Fiechter, a True America First Patriot, is running against “RINO” State Senator Travis Holdman, in Indiana’s 19th Senate District who, for whatever r...
+- [20:14 UTC - It is my Great Honor to endorse Trevor De Vries, an America First Patriot and REAL Republi...](116365255671979732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365255671979732
+  - It is my Great Honor to endorse Trevor De Vries, an America First Patriot and REAL Republican running for Indiana's 1st State Senate District, against RINO incumbent Dan Dernulc! A...
+- [20:14 UTC - State Representative Martin Carbaugh is a Tremendous Advocate for the Fantastic People of ...](116365255045080935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365255045080935
+  - State Representative Martin Carbaugh is a Tremendous Advocate for the Fantastic People of Indiana’s 81st State House District! A very successful Financial Advisor, Martin is a Prov...
+- [20:14 UTC - State Representative Ben Smaltz is a Highly Effective Champion for the Wonderful People of...](116365254318832383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365254318832383
+  - State Representative Ben Smaltz is a Highly Effective Champion for the Wonderful People of Indiana’s 52nd State House District! A Respected Businessman and DeKalb County Council Me...
+- [20:14 UTC - State Representative Tony Isa is an America First Patriot who is doing a fantastic job rep...](116365253757288920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365253757288920
+  - State Representative Tony Isa is an America First Patriot who is doing a fantastic job representing Indiana’s 51st State House District! A Successful Entrepreneur and Owner of “Sco...
+- [20:14 UTC - State Representative Bob Heaton is doing a terrific job representing the wonderful people ...](116365252855784200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365252855784200
+  - State Representative Bob Heaton is doing a terrific job representing the wonderful people of Indiana’s 46th State House District! A Successful Businessman and College Basketball Pl...
+- [20:13 UTC - State Representative Bruce Borders is a MAGA Warrior who is doing an incredible job repres...](116365252287627343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365252287627343
+  - State Representative Bruce Borders is a MAGA Warrior who is doing an incredible job representing Indiana’s 45th State House District! A successful Businessman, and former Mayor of...
+- [20:13 UTC - State Representative Beau Baird is a Strong Champion for the Great People of Indiana’s 44t...](116365251753401925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365251753401925
+  - State Representative Beau Baird is a Strong Champion for the Great People of Indiana’s 44th State House District! A Highly Respected Businessman and Rancher, prior to becoming a di...
+- [20:13 UTC - State Representative Heath VanNatter is doing a fantastic job representing the incredible ...](116365251073099981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365251073099981
+  - State Representative Heath VanNatter is doing a fantastic job representing the incredible people of Indiana’s 38th State House District! A Highly Respected Small Business Owner and...
+- [20:13 UTC - State Representative Jeff Thompson is doing a tremendous job representing the Great People...](116365250563239892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365250563239892
+  - State Representative Jeff Thompson is doing a tremendous job representing the Great People of Indiana’s 28th State House District! A former Educator and Farmer, Jeff is a strong an...
+- [20:13 UTC - State Representative Craig Snow is a MAGA Warrior who is doing a tremendous job representi...](116365249949047159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365249949047159
+  - State Representative Craig Snow is a MAGA Warrior who is doing a tremendous job representing Indiana’s 22nd State House District! A successful Businessman, Craig knows the AMERICA...
+- [20:13 UTC - State Representative Jim Pressel is a Tremendous Champion for the incredible people of Ind...](116365249022129961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365249022129961
+  - State Representative Jim Pressel is a Tremendous Champion for the incredible people of Indiana’s 20th State House District! A successful Businessman, Jim knows the America First Po...
+- [19:17 UTC - To the Great Patriots in Georgia’s 14th Congressional District: GET OUT AND VOTE TODAY for...](116365028482706995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116365028482706995
+  - To the Great Patriots in Georgia’s 14th Congressional District: GET OUT AND VOTE TODAY for a fantastic Candidate, Clay Fuller, who has my Complete and Total Endorsement! Polls are...
+- [13:12 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Two more major pharmaceut...](116363596733871275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116363596733871275
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Two more major pharmaceutical companies to launch products through TrumpRx: [https:// justthenews.com/politics-poli...
+- [12:06 UTC - A whole civilization will die tonight, never to be brought back again. I don’t want that t...](116363336033995961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116363336033995961
+  - A whole civilization will die tonight, never to be brought back again. I don’t want that to happen, but it probably will. However, now that we have Complete and Total Regime Change...
+- [11:58 UTC - Two more major pharmaceutical companies to launch products through TrumpRx: [https:// just...](116363305441095470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116363305441095470
+  - Two more major pharmaceutical companies to launch products through TrumpRx: [https:// justthenews.com/politics-polic y/health/two-more-major-pharmaceutical-companies-launch-product...
+- [03:45 UTC - Truth Social post 116361365520147651](116361365520147651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116361365520147651
+  - _No text content captured._
+- [03:42 UTC - Truth Social post 116361355179910169](116361355179910169/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116361355179910169
+  - _No text content captured._
+- [01:59 UTC - I will be speaking tonight, LIVE, with the great (and brave!) astronauts on Artemis II, LI...](116360947194550238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116360947194550238
+  - I will be speaking tonight, LIVE, with the great (and brave!) astronauts on Artemis II, LIVE, at 10:00 P.M. Enjoy!!! President DJT
+- [01:54 UTC - Tell Shannon Bream of FoxNews that it’s not the Save Act, it’s the Save America Act, a big...](116360927697862375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116360927697862375
+  - Tell Shannon Bream of FoxNews that it’s not the Save Act, it’s the Save America Act, a big difference! Also, when she insists on having lightweight Democrat Congressmen, such as Ja...
+- [01:13 UTC - There is a very important Special Election tomorrow, Tuesday, April 7th, in Georgia’s 14th...](116360767027115214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116360767027115214
+  - There is a very important Special Election tomorrow, Tuesday, April 7th, in Georgia’s 14th Congressional District! I am asking all Republicans, America First Patriots, and MAGA War...
+- [00:15 UTC - Truth Social post 116360539055600472](116360539055600472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116360539055600472
+  - _No text content captured._
+- [00:14 UTC - Truth Social post 116360536155907943](116360536155907943/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116360536155907943
+  - _No text content captured._

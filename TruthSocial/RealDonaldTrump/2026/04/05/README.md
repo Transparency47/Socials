@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-04-05
+
+- Posts: 10
+
+- [21:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116354301489896311](116354302288186401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354302288186401
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116354301489896311
+- [21:49 UTC - Truth Social post 116354301489896311](116354301489896311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354301489896311
+  - _No text content captured._
+- [21:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116354292359726499](116354293598453774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354293598453774
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116354292359726499
+- [21:46 UTC - Truth Social post 116354292359726499](116354292359726499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354292359726499
+  - _No text content captured._
+- [21:36 UTC - RT: https://truthsocial.com/users/DanScavino/statuses/116310480057282933 Such a shining li...](116354251748024980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354251748024980
+  - RT: https://truthsocial.com/users/DanScavino/statuses/116310480057282933 Such a shining light. Rest in peace, Sheridan, you will be greatly missed!!! President DONALD J. TRUMP
+- [21:11 UTC - Vanessa is AMAZING!](116354152932812276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116354152932812276
+  - Vanessa is AMAZING!
+- [16:38 UTC - Tuesday, 8:00 P.M. Eastern Time!](116353078945787501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116353078945787501
+  - Tuesday, 8:00 P.M. Eastern Time!
+- [12:03 UTC - Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There wil...](116351998782539414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116351998782539414
+  - Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living i...
+- [11:52 UTC - We have rescued the seriously wounded, and really brave, F-15 Crew Member/Officer, from de...](116351956955900185/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116351956955900185
+  - We have rescued the seriously wounded, and really brave, F-15 Crew Member/Officer, from deep inside the mountains of Iran. The Iranian Military was looking hard, in big numbers, an...
+- [04:08 UTC - FROM PRESIDENT DONALD J. TRUMP WE GOT HIM! My fellow Americans, over the past several hour...](116350133044957842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116350133044957842
+  - FROM PRESIDENT DONALD J. TRUMP WE GOT HIM! My fellow Americans, over the past several hours, the United States Military pulled off one of the most daring Search and Rescue Operatio...

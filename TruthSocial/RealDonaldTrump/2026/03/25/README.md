@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-03-25
+
+- Posts: 15
+
+- [18:17 UTC - My meeting with the Highly Respected President of China, President Xi Jinping, which was o...](116291185984825094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116291185984825094
+  - My meeting with the Highly Respected President of China, President Xi Jinping, which was originally postponed due to our Military operation in Iran, has been rescheduled, and will...
+- [16:53 UTC - We are asking for expedited Judicial Review because they are robbing our Country blind, “C...](116290852675177057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290852675177057
+  - We are asking for expedited Judicial Review because they are robbing our Country blind, “Centers” that don’t exist are being paid tremendous amounts of money, and yet we have Court...
+- [16:51 UTC - Speaker of the House Mike Johnson and Senate Majority Leader John Thune have been working ...](116290846597255331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290846597255331
+  - Speaker of the House Mike Johnson and Senate Majority Leader John Thune have been working to pass a clean extension of FISA Section 702, a Law that was passed many years ago by Con...
+- [16:39 UTC - I am so proud of our ICE Patriots! They were unfairly maligned by the Lunatic Democrats fo...](116290799193660420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290799193660420
+  - I am so proud of our ICE Patriots! They were unfairly maligned by the Lunatic Democrats for years, and now, at the Airports, in addition to what they are supposed to be doing, they...
+- [15:30 UTC - The Radical Left, Country Hating Democrats are trying to create inner chaos to take away f...](116290528260288417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290528260288417
+  - The Radical Left, Country Hating Democrats are trying to create inner chaos to take away from the great military achievement we are having in Iran. They hate seeing us WIN so compl...
+- [15:26 UTC - MAKE AMERICA GREAT AGAIN!!!](116290510170055349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290510170055349
+  - MAKE AMERICA GREAT AGAIN!!!
+- [15:24 UTC - The Democrats don’t want to make any deal unless Amnesty and Citizenship is given to milli...](116290505546059162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290505546059162
+  - The Democrats don’t want to make any deal unless Amnesty and Citizenship is given to millions of Criminals who have entered our Country illegally, many of whom have been convicted...
+- [15:14 UTC - Blame the Democrats for the Airport’s mess. They want our Country to do badly. They want o...](116290465114134220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290465114134220
+  - Blame the Democrats for the Airport’s mess. They want our Country to do badly. They want our Country to fail. They broke the already signed Bill because they want to take care of C...
+- [14:08 UTC - Trump and Pirro deserve credit for big cuts to Washington, DC crime: [https://www. washing...](116290206738569856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116290206738569856
+  - Trump and Pirro deserve credit for big cuts to Washington, DC crime: [https://www. washingtonexaminer.com/opinion /beltway-confidential/4498245/trump-and-pirro-deserve-credit-for-b...
+- [03:47 UTC - Terrible! [https:// x.com/jamesokeefeiii/status/20 36527947255788007?s=46](https://x.com/j...](116287761828408706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287761828408706
+  - Terrible! [https:// x.com/jamesokeefeiii/status/20 36527947255788007?s=46](https://x.com/jamesokeefeiii/status/2036527947255788007?s=46)
+- [03:45 UTC - Iran’s flex of long-range ballistic missiles vindicates Trump, may change European calculu...](116287754799935332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287754799935332
+  - Iran’s flex of long-range ballistic missiles vindicates Trump, may change European calculus: [https:// justthenews.com/government/sec urity/irans-flex-long-range-ballistic-missiles...
+- [03:44 UTC - Trump admin looks to streamline permitting, lower costs to help make home ownership more a...](116287752129128324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287752129128324
+  - Trump admin looks to streamline permitting, lower costs to help make home ownership more attainable: [https:// justthenews.com/politics-polic y/regulation/trump-administration-look...
+- [03:44 UTC - Fishing expedition: Docs expose expansive FBI surveillance of Trump allies, possible illeg...](116287749682881628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287749682881628
+  - Fishing expedition: Docs expose expansive FBI surveillance of Trump allies, possible illegality: [https:// justthenews.com/government/con gress/fishing-expedition-new-docs-lay-bare...
+- [03:27 UTC - Truth Social post 116287683741019472](116287683741019472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287683741019472
+  - _No text content captured._
+- [03:26 UTC - Truth Social post 116287679930753202](116287679930753202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116287679930753202
+  - _No text content captured._

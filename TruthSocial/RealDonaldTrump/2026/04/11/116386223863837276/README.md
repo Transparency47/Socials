@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 116386223863837276
+- Post URL: https://truthsocial.com/@realDonaldTrump/116386223863837276
+- Title: RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Fake News Media has l...
+- Date published: 2026-04-11T13:07:19.720000+00:00
+- Date accessed: 2026-06-02T13:35:33.041118+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 3
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12743985,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34029,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744119,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@realDonaldTrump\" class=\"u-url mention\">@<span>realDonaldTrump</span></a></span>The Fake News Media has lost total credibility, not that they had any to begin with. Because of their massive Trump Derangement Syndrome (Sometimes referred to as TDS!), they love saying that Iran is “winning” when, in fact, everyone knows that they are LOSING, and LOSING BIG! Their Navy is gone, their Air Force is gone, their Anti Aircraft apparatus is nonexistent, Radar is dead, their Missile and Drone Factories have been largely obliterated along with the Missiles and Drones themselves and, most importantly, their longtime “Leaders” are no longer with us, praise be to Allah! The only thing they have going is the threat that a ship may “bunk” into one of their sea mines which, by the way, all 28 of their mine dropper boats are also lying at the bottom of the sea. We’re now starting the process of clearing out the Strait of Hormuz as a favor to Countries all over the World, including China, Japan, South Korea, France, Germany, and many others. Incredibly, they don’t have the Courage or Will to do this work themselves. Very interestingly, however, empty Oil carrying ships from many Nations are all heading to the United States of America to LOAD UP with Oil. Thank you for your attention to this matter! President DONALD J. TRUMP</p>",
+    "created_at": "2026-04-11T13:07:19.720Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 3,
+    "group": null,
+    "id": "116386223863837276",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": false,
+        "acct": "realDonaldTrump",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-11T16:16:57.705Z",
+        "discoverable": false,
+        "display_name": "Donald J. Trump",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 12744119,
+        "following_count": 69,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "id": "107780257626128497",
+        "last_status_at": "2026-06-02",
+        "location": "",
+        "locked": false,
+        "note": "<p></p>",
+        "premium": true,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 34030,
+        "tv_account": false,
+        "tv_onboarded": false,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@realDonaldTrump",
+        "username": "realDonaldTrump",
+        "verified": true,
+        "website": "www.DonaldJTrump.com"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>The Fake News Media has lost total credibility, not that they had any to begin with. Because of their massive Trump Derangement Syndrome (Sometimes referred to as TDS!), they love saying that Iran is “winning” when, in fact, everyone knows that they are LOSING, and LOSING BIG! Their Navy is gone, their Air Force is gone, their Anti Aircraft apparatus is nonexistent, Radar is dead, their Missile and Drone Factories have been largely obliterated along with the Missiles and Drones themselves and, most importantly, their longtime “Leaders” are no longer with us, praise be to Allah! The only thing they have going is the threat that a ship may “bunk” into one of their sea mines which, by the way, all 28 of their mine dropper boats are also lying at the bottom of the sea. We’re now starting the process of clearing out the Strait of Hormuz as a favor to Countries all over the World, including China, Japan, South Korea, France, Germany, and many others. Incredibly, they don’t have the Courage or Will to do this work themselves. Very interestingly, however, empty Oil carrying ships from many Nations are all heading to the United States of America to LOAD UP with Oil. Thank you for your attention to this matter! President DONALD J. TRUMP</p>",
+      "created_at": "2026-04-11T12:58:48.715Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 35790,
+      "group": null,
+      "id": "116386190374675994",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 8459,
+      "replies_count": 3977,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 35790,
+      "uri": "https://truthsocial.com/@realDonaldTrump/116386190374675994",
+      "url": "https://truthsocial.com/@realDonaldTrump/116386190374675994",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 3,
+    "uri": "https://truthsocial.com/@realDonaldTrump/116386223863837276",
+    "url": "https://truthsocial.com/@realDonaldTrump/116386223863837276",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-04-08
+
+- Posts: 11
+
+- [23:31 UTC - NATO WASN’T THERE WHEN WE NEEDED THEM, AND THEY WON’T BE THERE IF WE NEED THEM AGAIN. REME...](116371693008302124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116371693008302124
+  - NATO WASN’T THERE WHEN WE NEEDED THEM, AND THEY WON’T BE THERE IF WE NEED THEM AGAIN. REMEMBER GREENLAND, THAT BIG, POORLY RUN, PIECE OF ICE!!! President DJT
+- [16:20 UTC - Marjorie “Traitor” Brown’s (GREEN TURNS TO BROWN UNDER STRESS!) seat in Congress has been ...](116369995519355709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116369995519355709
+  - Marjorie “Traitor” Brown’s (GREEN TURNS TO BROWN UNDER STRESS!) seat in Congress has been taken over by a wonderful and talented man, Clay Fuller, who won convincingly, and right f...
+- [16:04 UTC - Numerous Agreements, Lists, and Letters are being sent out by people that have absolutely ...](116369934305888462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116369934305888462
+  - Numerous Agreements, Lists, and Letters are being sent out by people that have absolutely nothing to do with the U.S.A. / Iran Negotiation, in many cases, they are total Fraudsters...
+- [14:51 UTC - Secretary Hegseth and Chairman Caine hold a press briefing on Operation Epic Fury: [https:...](116369645448805093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116369645448805093
+  - Secretary Hegseth and Chairman Caine hold a press briefing on Operation Epic Fury: [https:// m.youtube.com/live/tG7-hLW0okE ?si=42CeLOL2esIAvfQC](https://m.youtube.com/live/tG7-hLW...
+- [11:30 UTC - A Country supplying Military Weapons to Iran will be immediately tariffed, on any and all ...](116368854361048135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116368854361048135
+  - A Country supplying Military Weapons to Iran will be immediately tariffed, on any and all goods sold to the United States of America, 50%, effective immediately. There will be no e...
+- [11:22 UTC - The United States will work closely with Iran, which we have determined has gone through w...](116368825638596650/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116368825638596650
+  - The United States will work closely with Iran, which we have determined has gone through what will be a very productive Regime Change! There will be no enrichment of Uranium, and t...
+- [11:00 UTC - Truth Social post 116368738767645698](116368738767645698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116368738767645698
+  - _No text content captured._
+- [04:01 UTC - A big day for World Peace! Iran wants it to happen, they’ve had enough! Likewise, so has e...](116367088879643074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116367088879643074
+  - A big day for World Peace! Iran wants it to happen, they’ve had enough! Likewise, so has everyone else! The United States of America will be helping with the traffic buildup in the...
+- [03:41 UTC - [https:// truthsocial.com/@epaleezeldin/ 116293314492137728](https://truthsocial.com/@epal...](116367011501074973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116367011501074973
+  - [https:// truthsocial.com/@epaleezeldin/ 116293314492137728](https://truthsocial.com/@epaleezeldin/116293314492137728)
+- [03:39 UTC - No one can believe that Fake News CNN put out a knowingly false and dangerous statement pr...](116367005523554168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116367005523554168
+  - No one can believe that Fake News CNN put out a knowingly false and dangerous statement pretending it came from the upper levels of the Iranian Government. It didn’t! It was totall...
+- [00:01 UTC - The alleged Statement put out by CNN World News is a FRAUD, as CNN well knows. The false S...](116366146721038653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116366146721038653
+  - The alleged Statement put out by CNN World News is a FRAUD, as CNN well knows. The false Statement was linked to a Fake News site (from Nigeria) and, of course, immediately picked...

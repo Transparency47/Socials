@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2026-03-24
+
+- Posts: 12
+
+- [23:19 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116286710096907230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116286710096907230
+  - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful Leader, with a proven track record of delivering phenomenal results. He fights tirelessly f...
+- [19:57 UTC - It is my Great Honor to endorse T.W. Shannon, an America First Patriot who is running for ...](116285916990204668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285916990204668
+  - It is my Great Honor to endorse T.W. Shannon, an America First Patriot who is running for Lieutenant Governor of Oklahoma, a place I love and WON BIG, winning all 77 out of 77 Coun...
+- [19:55 UTC - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican run...](116285908636437489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285908636437489
+  - It is my Great Honor to endorse State Representative Michelle Davis, a REAL Republican running for Indiana's 41st State Senate District (which I won by 33 points!), against RINO in...
+- [19:55 UTC - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidat...](116285906390195915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285906390195915
+  - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidate for Indiana's 39th State Senate District (which I won by a whopping 55 points!). Jeff wi...
+- [19:54 UTC - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against...](116285903958791106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285903958791106
+  - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against “No Goode” Greg Goode (BAD FOR THE U.S.A.!) in the Republican Primary for Indiana’s 38th...
+- [19:53 UTC - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhav...](116285900153878228/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285900153878228
+  - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhaver, a terrific Candidate for Indiana's 23rd State Senate District (which I won by 26 point...
+- [19:51 UTC - It is my Great Honor to endorse America First Patriot Tracey Powell, a fantastic Candidate...](116285893161347117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285893161347117
+  - It is my Great Honor to endorse America First Patriot Tracey Powell, a fantastic Candidate for Indiana's 21st State Senate District (which I won by 24 points!). Tracey is running a...
+- [19:45 UTC - Bluffton City Councilman Blake Fiechter, a True America First Patriot, is running against ...](116285866660628943/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285866660628943
+  - Bluffton City Councilman Blake Fiechter, a True America First Patriot, is running against “RINO” State Senator Travis Holdman, in Indiana’s 19th Senate District who, for whatever r...
+- [19:42 UTC - State Senator Jim Tomes is an America First Patriot who is doing an incredible job represe...](116285855722508349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285855722508349
+  - State Senator Jim Tomes is an America First Patriot who is doing an incredible job representing Indiana’s 49th State Senate District! A Brave U.S. Army Vietnam Veteran, and Chairma...
+- [19:42 UTC - State Senator Daryl Schmidt is doing a tremendous job representing the Great People of Ind...](116285854736419949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285854736419949
+  - State Senator Daryl Schmidt is doing a tremendous job representing the Great People of Indiana’s 48th State Senate District! A Fifth Generation Family Farmer, Daryl is a strong and...
+- [19:40 UTC - State Senator Gary Byrne is doing a fantastic job representing the incredible people of In...](116285849550720642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285849550720642
+  - State Senator Gary Byrne is doing a fantastic job representing the incredible people of Indiana’s 47th Congressional District! A Highly Respected Businessman, North Harrison School...
+- [19:39 UTC - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great ...](116285846284609248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285846284609248
+  - State Senator Chris Garten is a true MAGA Warrior and America First Patriot for the Great People of Indiana’s 45th State Senate District! As the Majority Floor Leader of the Indian...

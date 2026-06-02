@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2026-04-15
+
+- Posts: 20
+
+- [19:54 UTC - Truth Social post 116410473540647394](116410473540647394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116410473540647394
+  - _No text content captured._
+- [16:39 UTC - Why is FoxNews showing SLEAZEBAG Tom Steyer, doing a big piece on him right now, and proba...](116409709209391344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116409709209391344
+  - Why is FoxNews showing SLEAZEBAG Tom Steyer, doing a big piece on him right now, and probably putting him “into play,” instead of talking about Republican Candidates, and really go...
+- [14:16 UTC - I am working very hard with our Great Speaker, Mike Johnson, along with Chairman Jim Jorda...](116409146419851362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116409146419851362
+  - I am working very hard with our Great Speaker, Mike Johnson, along with Chairman Jim Jordan and Chairman Rick Crawford, to get a clean extension of FISA 702 through the House of Re...
+- [12:34 UTC - Truth Social post 116408744846668712](116408744846668712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116408744846668712
+  - _No text content captured._
+- [12:34 UTC - The Radical Left Lunatics might not like this, but I think it is quite nice!!! President D...](116408742801619405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116408742801619405
+  - The Radical Left Lunatics might not like this, but I think it is quite nice!!! President DJT
+- [12:09 UTC - JEROME STARKEY: If hot air was a weapon Starmer would have rearmed Britain – but words don...](116408647042304061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116408647042304061
+  - JEROME STARKEY: If hot air was a weapon Starmer would have rearmed Britain – but words don’t win wars: [https://www. thesun.co.uk/news/38819687/sta rmer-words-dont-win-wars-iran-ru...
+- [12:08 UTC - Truth Social post 116408640587669422](116408640587669422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116408640587669422
+  - _No text content captured._
+- [11:46 UTC - China is very happy that I am permanently opening the Strait of Hormuz. I am doing it for ...](116408554531050811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116408554531050811
+  - China is very happy that I am permanently opening the Strait of Hormuz. I am doing it for them, also - And the World. This situation will never happen again. They have agreed not t...
+- [05:13 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Will be interviewed tomor...](116407008352376346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116407008352376346
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Will be interviewed tomorrow morning by Maria B. FoxBusiness. Enjoy!!! President DJT
+- [05:12 UTC - Truth Social post 116407007495166895](116407007495166895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116407007495166895
+  - _No text content captured._
+- [05:11 UTC - Truth Social post 116407002124993541](116407002124993541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116407002124993541
+  - _No text content captured._
+- [05:10 UTC - Not good!!!](116406998034563593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406998034563593
+  - Not good!!!
+- [04:08 UTC - Will be interviewed tomorrow morning by Maria B. FoxBusiness. Enjoy!!! President DJT](116406752873105015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406752873105015
+  - Will be interviewed tomorrow morning by Maria B. FoxBusiness. Enjoy!!! President DJT
+- [04:03 UTC - Chokehold: Iran could run out of oil storage with Trump blockade, wreaking havoc with its ...](116406733740752601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406733740752601
+  - Chokehold: Iran could run out of oil storage with Trump blockade, wreaking havoc with its economy: [https:// justthenews.com/politics-polic y/energy/strait-hormuz-blockaded-globe-h...
+- [04:02 UTC - The most corrupt group in Government! President DJT [https:// justthenews.com/government/c...](116406731985636134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406731985636134
+  - The most corrupt group in Government! President DJT [https:// justthenews.com/government/con gress/house-committees-probing-actblue-suggest-company-obstructed-misled-congress](http...
+- [04:02 UTC - 'Abuse of discretion': Appeals court slaps down Judge Boasberg over contempt probe: [https...](116406729293309103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406729293309103
+  - 'Abuse of discretion': Appeals court slaps down Judge Boasberg over contempt probe: [https:// justthenews.com/government/cou rts-law/appeals-court-shuts-down-boasberg-contempt-inve...
+- [04:01 UTC - Biden administration weaponized law to infringe rights of pro-life activists, DOJ says: [h...](116406727478332442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406727478332442
+  - Biden administration weaponized law to infringe rights of pro-life activists, DOJ says: [https:// justthenews.com/politics-polic y/abortion/biden-administration-weaponized-law-infr...
+- [04:01 UTC - Alan Dershowitz: Trump could move to expunge 2019 impeachment after release of bombshell e...](116406725461292907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406725461292907
+  - Alan Dershowitz: Trump could move to expunge 2019 impeachment after release of bombshell evidence: [https:// justthenews.com/politics-polic y/all-things-trump/alan-dershowitz-trump...
+- [03:39 UTC - NATO wasn’t there for us, and they won’t be there for us in the future! President DONALD J...](116406639178992552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406639178992552
+  - NATO wasn’t there for us, and they won’t be there for us in the future! President DONALD J. TRUMP
+- [03:34 UTC - Will someone please tell Pope Leo that Iran has killed at least 42,000 innocent, completel...](116406622416293152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116406622416293152
+  - Will someone please tell Pope Leo that Iran has killed at least 42,000 innocent, completely unarmed, protesters in the last two months, and that for Iran to have a Nuclear Bomb is...

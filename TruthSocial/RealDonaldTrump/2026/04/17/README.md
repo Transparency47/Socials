@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-04-17
 
-- Posts: 17
+- Posts: 26
 
 - [20:39 UTC - Later today, I will be speaking to a BIG CROWD for Turning Point USA in the Great State of...](116421975390940454/)
   - Source: https://truthsocial.com/@realDonaldTrump/116421975390940454
@@ -53,3 +53,30 @@
 - [14:20 UTC - Iran, with the help of the U.S.A., has removed, or is removing, all sea mines! Thank you! ...](116420484827577347/)
   - Source: https://truthsocial.com/@realDonaldTrump/116420484827577347
   - Iran, with the help of the U.S.A., has removed, or is removing, all sea mines! Thank you! President DJT
+- [14:16 UTC - Thank you to Saudi Arabia, UAE, and Qatar for your great bravery and help! President DONAL...](116420468063226470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420468063226470
+  - Thank you to Saudi Arabia, UAE, and Qatar for your great bravery and help! President DONALD J. TRUMP
+- [14:13 UTC - Now that the Hormuz Strait situation is over, I received a call from NATO asking if we wou...](116420456436213944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420456436213944
+  - Now that the Hormuz Strait situation is over, I received a call from NATO asking if we would need some help. I TOLD THEM TO STAY AWAY, UNLESS THEY JUST WANT TO LOAD UP THEIR SHIPS...
+- [13:57 UTC - The U.S.A. will get all Nuclear “Dust,” created by our great B2 Bombers - No money will ex...](116420395293904982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420395293904982
+  - The U.S.A. will get all Nuclear “Dust,” created by our great B2 Bombers - No money will exchange hands in any way, shape, or form. This deal is in no way subject to Lebanon, either...
+- [13:27 UTC - THE STRAIT OF HORMUZ IS COMPLETELY OPEN AND READY FOR BUSINESS AND FULL PASSAGE, BUT THE N...](116420275523158052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420275523158052
+  - THE STRAIT OF HORMUZ IS COMPLETELY OPEN AND READY FOR BUSINESS AND FULL PASSAGE, BUT THE NAVAL BLOCKADE WILL REMAIN IN FULL FORCE AND EFFECT AS IT PERTAINS TO IRAN, ONLY, UNTIL SUC...
+- [13:06 UTC - IRAN HAS JUST ANNOUNCED THAT THE STRAIT OF IRAN IS FULLY OPEN AND READY FOR FULL PASSAGE. ...](116420194853200133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420194853200133
+  - IRAN HAS JUST ANNOUNCED THAT THE STRAIT OF IRAN IS FULLY OPEN AND READY FOR FULL PASSAGE. THANK YOU!
+- [12:26 UTC - The U.S.A. is the “HOTTEST” Country in the World right now. Just a short time ago, under S...](116420038210190121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420038210190121
+  - The U.S.A. is the “HOTTEST” Country in the World right now. Just a short time ago, under Sleepy Joe Biden, IT WAS DEAD, LAUGHED AT ALL OVER THE WORLD!!! But not anymore - Nobody’s...
+- [12:12 UTC - It’s easy! Tucker is a Low IQ person - Always easy to beat, and highly overrated!!! So are...](116419983493630857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116419983493630857
+  - It’s easy! Tucker is a Low IQ person - Always easy to beat, and highly overrated!!! So are Megyn Kelly, “Candace”(Really Dumb and mentally ill!), and Bankrupt Alex Jones, who is co...
+- [02:48 UTC - May have been a historic day for Lebanon. Good things are happening!!! President DJT](116417764784525982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116417764784525982
+  - May have been a historic day for Lebanon. Good things are happening!!! President DJT
+- [02:45 UTC - Truth Social post 116417754017474357](116417754017474357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116417754017474357
+  - _No text content captured._

@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2026-04-09
+
+- Posts: 13
+
+- [23:49 UTC - An Illegal Alien Criminal from Haiti, who was released into our Country by the WORST Presi...](116377422440266990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116377422440266990
+  - An Illegal Alien Criminal from Haiti, who was released into our Country by the WORST President in History, Crooked Joe Biden, and the Radical Democrats in Congress, just beat an in...
+- [23:45 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116377410587246089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116377410587246089
+  - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful Leader, with a proven track record of delivering phenomenal results. He fights tirelessly f...
+- [23:34 UTC - My friend, Congresswoman Elise Stefanik, of New York, has written a new book, "POISONED IV...](116377366086619888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116377366086619888
+  - My friend, Congresswoman Elise Stefanik, of New York, has written a new book, "POISONED IVIES: The Inside Account of the Academic and Moral Rot at America’s Elite Universities." Th...
+- [23:32 UTC - I am pleased to nominate Benjamin Flowers to serve as Judge on the United States Court of ...](116377358457034052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116377358457034052
+  - I am pleased to nominate Benjamin Flowers to serve as Judge on the United States Court of Appeals for the Sixth Circuit in Ohio. Ben is a Highly Respected attorney who served as th...
+- [22:29 UTC - Iran is doing a very poor job, dishonorable some would say, of allowing Oil to go through ...](116377109535639790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116377109535639790
+  - Iran is doing a very poor job, dishonorable some would say, of allowing Oil to go through the Strait of Hormuz. That is not the agreement we have! President DONALD J. TRUMP
+- [21:43 UTC - President Donald J. Trump and Secretary of the Interior, Doug Burgum, are proud to be fixi...](116376930602843706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116376930602843706
+  - President Donald J. Trump and Secretary of the Interior, Doug Burgum, are proud to be fixing the once beautiful Reflecting Pool between The Washington Monument and The Lincoln Memo...
+- [21:28 UTC - The Wall Street Journal, one of the worst and most inaccurate “Editorial Boards” in the Wo...](116376868752554780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116376868752554780
+  - The Wall Street Journal, one of the worst and most inaccurate “Editorial Boards” in the World, stated that I “declared premature victory in Iran.” Actually, it is a Victory, and th...
+- [21:08 UTC - There are reports that Iran is charging fees to tankers going through the Hormuz Strait — ...](116376791555549648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116376791555549648
+  - There are reports that Iran is charging fees to tankers going through the Hormuz Strait — They better not be and, if they are, they better stop now! President DONALD J. TRUMP
+- [20:28 UTC - I know why Tucker Carlson, Megyn Kelly, Candace Owens, and Alex Jones have all been fighti...](116376634773749603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116376634773749603
+  - I know why Tucker Carlson, Megyn Kelly, Candace Owens, and Alex Jones have all been fighting me for years, especially by the fact that they think it is wonderful for Iran, the Numb...
+- [14:34 UTC - Truth Social post 116375240064230100](116375240064230100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116375240064230100
+  - _No text content captured._
+- [12:40 UTC - None of these people, including our own, very disappointing, NATO, understood anything unl...](116374792489555954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116374792489555954
+  - None of these people, including our own, very disappointing, NATO, understood anything unless they have pressure placed upon them!!!
+- [03:46 UTC - All U.S. Ships, Aircraft, and Military Personnel, with additional Ammunition, Weaponry, an...](116372694697146221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116372694697146221
+  - All U.S. Ships, Aircraft, and Military Personnel, with additional Ammunition, Weaponry, and anything else that is appropriate and necessary for the lethal prosecution and destructi...
+- [02:56 UTC - The Failing New York Times and Fake News CNN each reported a totally FAKE TEN POINT PLAN o...](116372497116210545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116372497116210545
+  - The Failing New York Times and Fake News CNN each reported a totally FAKE TEN POINT PLAN on the Iran negotiations which was meant to discredit the people involved in the peace proc...

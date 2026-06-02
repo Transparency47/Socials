@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-04-11
+
+- Posts: 14
+
+- [23:36 UTC - Truth Social post 116388699619594013](116388699619594013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116388699619594013
+  - _No text content captured._
+- [22:24 UTC - From Newt Gingrich: “Pro Trump and pro USA rally in Bern with large Iranian participation ...](116388414661607621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116388414661607621
+  - From Newt Gingrich: “Pro Trump and pro USA rally in Bern with large Iranian participation and pro Trump signs-photo by Callista Supporters of U.S. actions in Iran, including many I...
+- [21:01 UTC - From Newt Gingrich: “Seth Keshel, the best student of voter registration in the country ju...](116388088422208563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116388088422208563
+  - From Newt Gingrich: “Seth Keshel, the best student of voter registration in the country just reported that ‘First time in history GOP leads registration - now R +2k. 107k right of...
+- [18:30 UTC - Truth Social post 116387494976973956](116387494976973956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116387494976973956
+  - _No text content captured._
+- [15:17 UTC - The Fake News Media is CRAZY, or just plain CORRUPT! The United States has completely dest...](116386735130758581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386735130758581
+  - The Fake News Media is CRAZY, or just plain CORRUPT! The United States has completely destroyed Iran’s Military, including their entire Navy and Air Force, and everything else. The...
+- [13:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Fake News Media has l...](116386223863837276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386223863837276
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Fake News Media has lost total credibility, not that they had any to begin with. Because of their massive Trump...
+- [13:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Heading to Virginia for m...](116386223692842982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386223692842982
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Heading to Virginia for meetings at Trump National. I can’t believe what this new Governor, Spanberger, has done to...
+- [13:07 UTC - I am watching fertilizer prices CLOSELY during our FIGHT FOR FREEDOM in Iran. The United S...](116386222716690641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386222716690641
+  - I am watching fertilizer prices CLOSELY during our FIGHT FOR FREEDOM in Iran. The United States will not accept PRICE GOUGING from the fertilizer monopoly! American Farmers, we hav...
+- [12:58 UTC - The Fake News Media has lost total credibility, not that they had any to begin with. Becau...](116386190374675994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386190374675994
+  - The Fake News Media has lost total credibility, not that they had any to begin with. Because of their massive Trump Derangement Syndrome (Sometimes referred to as TDS!), they love...
+- [12:46 UTC - Heading to Virginia for meetings at Trump National. I can’t believe what this new Governor...](116386141086849907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386141086849907
+  - Heading to Virginia for meetings at Trump National. I can’t believe what this new Governor, Spanberger, has done to the Commonwealth — So sad! She is adding so many Taxes, a Food a...
+- [12:22 UTC - Truth Social post 116386046419532399](116386046419532399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116386046419532399
+  - _No text content captured._
+- [11:30 UTC - Massive numbers of completely empty oil tankers, some of the largest anywhere in the World...](116385843841281126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116385843841281126
+  - Massive numbers of completely empty oil tankers, some of the largest anywhere in the World, are heading, right now, to the United States to load up with the best and “sweetest” oil...
+- [04:01 UTC - GREAT!!!](116384077225474834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116384077225474834
+  - GREAT!!!
+- [01:00 UTC - Congratulations to the Great and Very Talented Crew of Artemis II. The entire trip was spe...](116383366460984028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116383366460984028
+  - Congratulations to the Great and Very Talented Crew of Artemis II. The entire trip was spectacular, the landing was perfect and, as President of the United States, I could not be m...

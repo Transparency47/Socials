@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-04-06
+
+- Posts: 14
+
+- [19:54 UTC - Done! [https:// nypost.com/2026/02/10/opinion/ trumps-about-to-cancel-obamas-most-outrageo...](116359512676837910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359512676837910
+  - Done! [https:// nypost.com/2026/02/10/opinion/ trumps-about-to-cancel-obamas-most-outrageous-power-grab/](https://nypost.com/2026/02/10/opinion/trumps-about-to-cancel-obamas-most-o...
+- [19:53 UTC - Fewer experts see climate change as global security threat, survey finds: [https://www. se...](116359510914035127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359510914035127
+  - Fewer experts see climate change as global security threat, survey finds: [https://www. semafor.com/article/02/12/2026 /fewer-experts-see-climate-change-as-global-security-threat-s...
+- [19:53 UTC - Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation: [https://www. nyt...](116359508809224648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359508809224648
+  - Trump Allies Near ‘Total Victory’ in Wiping Out U.S. Climate Regulation: [https://www. nytimes.com/2026/02/09/climate /endangerment-finding.html](https://www.nytimes.com/2026/02/09...
+- [19:52 UTC - GREGG JARRETT: Don Lemon left his press pass at the door when he joined church-storming mo...](116359506947013784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359506947013784
+  - GREGG JARRETT: Don Lemon left his press pass at the door when he joined church-storming mob: [https://www. foxnews.com/opinion/gregg-jarr ett-don-lemon-left-his-press-pass-door-whe...
+- [19:01 UTC - New York City, 1929!](116359306864156037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359306864156037
+  - New York City, 1929!
+- [19:01 UTC - Paris, 126 years ago!](116359306171720018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116359306171720018
+  - Paris, 126 years ago!
+- [11:08 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116357442556060490 Great going ...](116357443851465857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116357443851465857
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116357442556060490 Great going Freedom Caucus. Proud of you!!! President DJT
+- [11:07 UTC - Truth Social post 116357442556060490](116357442556060490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116357442556060490
+  - _No text content captured._
+- [05:21 UTC - I have known and respected Steve Hilton, who is running for Governor of California, for ma...](116356081038721731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116356081038721731
+  - I have known and respected Steve Hilton, who is running for Governor of California, for many years. He is a truly fine man, one who has watched as this once great State has gone to...
+- [04:57 UTC - It’s too bad that the Supreme Court can’t watch and study the Mark Levin Show tonight on t...](116355984273646320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116355984273646320
+  - It’s too bad that the Supreme Court can’t watch and study the Mark Levin Show tonight on the Birthright Citizenship Scam. If they saw it they would never allow that money making HO...
+- [04:29 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116355875761591220](116355876706114702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116355876706114702
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116355875761591220
+- [04:29 UTC - Truth Social post 116355875761591220](116355875761591220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116355875761591220
+  - _No text content captured._
+- [04:04 UTC - RT [@ grenell](https://truthsocial.com/@grenell) . [@ realdonaldtrump](https://truthsocial...](116355778112477364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116355778112477364
+  - RT [@ grenell](https://truthsocial.com/@grenell) . [@ realdonaldtrump](https://truthsocial.com/@realdonaldtrump) is fixing the problem of Iran - a problem other Presidents ignored...
+- [02:35 UTC - Truth Social post 116355428637557459](116355428637557459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116355428637557459
+  - _No text content captured._

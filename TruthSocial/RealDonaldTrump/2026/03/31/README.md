@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-03-31
+
+- Posts: 16
+
+- [22:27 UTC - In the Ballroom case, the Judge said we have to get Congressional approval. He is WRONG! C...](116326141687504578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116326141687504578
+  - In the Ballroom case, the Judge said we have to get Congressional approval. He is WRONG! Congressional approval has never been given on anything, in these circumstances, big or sma...
+- [20:57 UTC - Birthright Citizenship has to do with the babies of slaves, not Chinese Billionaires who h...](116325785902961629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116325785902961629
+  - Birthright Citizenship has to do with the babies of slaves, not Chinese Billionaires who have 56 kids, all of whom “become” American Citizens. One of the many Great Scams of our ti...
+- [20:29 UTC - I have just met with various Political Representatives of the tragedy that took place in C...](116325677707554016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116325677707554016
+  - I have just met with various Political Representatives of the tragedy that took place in California concerning the burning of thousands of once beautiful homes. It was brought to m...
+- [19:28 UTC - The National Trust for Historic Preservation sues me for a Ballroom that is under budget, ...](116325438537980532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116325438537980532
+  - The National Trust for Historic Preservation sues me for a Ballroom that is under budget, ahead of schedule, being built at no cost to the Taxpayer, and will be the finest Building...
+- [19:12 UTC - Secretary of the Interior Doug Burgum and I are working on fixing the absolutely filthy Re...](116325374279671384/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116325374279671384
+  - Secretary of the Interior Doug Burgum and I are working on fixing the absolutely filthy Reflecting Pool between the Lincoln Memorial and the Washington Monument. This work was supp...
+- [15:45 UTC - Truth Social post 116324560991145598](116324560991145598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324560991145598
+  - _No text content captured._
+- [15:45 UTC - Truth Social post 116324560241476454](116324560241476454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324560241476454
+  - _No text content captured._
+- [15:45 UTC - Truth Social post 116324559378125038](116324559378125038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324559378125038
+  - _No text content captured._
+- [14:53 UTC - Truth Social post 116324356101577918](116324356101577918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324356101577918
+  - _No text content captured._
+- [14:53 UTC - Truth Social post 116324355320743651](116324355320743651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324355320743651
+  - _No text content captured._
+- [14:53 UTC - Truth Social post 116324354520678722](116324354520678722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116324354520678722
+  - _No text content captured._
+- [13:21 UTC - Melania and I are pleased to announce that Their Majesties, the King and Queen of the Unit...](116323992527197622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116323992527197622
+  - Melania and I are pleased to announce that Their Majesties, the King and Queen of the United Kingdom, will visit the United States for a Historic State Visit from April 27-30th, wh...
+- [13:15 UTC - Netanyahu to Newsmax: Trump Has Shown 'Tremendous Leadership': [https://www. newsmax.com/n...](116323969849989366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116323969849989366
+  - Netanyahu to Newsmax: Trump Has Shown 'Tremendous Leadership': [https://www. newsmax.com/newsmax-tv/benjami n-netanyahu-israel-donald-trump/2026/03/30/id/1251249/](https://www.news...
+- [11:19 UTC - The Country of France wouldn’t let planes headed to Israel, loaded up with military suppli...](116323516183718262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116323516183718262
+  - The Country of France wouldn’t let planes headed to Israel, loaded up with military supplies, fly over French territory. France has been VERY UNHELPFUL with respect to the “Butcher...
+- [11:11 UTC - All of those countries that can’t get jet fuel because of the Strait of Hormuz, like the U...](116323481956698353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116323481956698353
+  - All of those countries that can’t get jet fuel because of the Strait of Hormuz, like the United Kingdom, which refused to get involved in the decapitation of Iran, I have a suggest...
+- [00:50 UTC - Truth Social post 116321041013301744](116321041013301744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116321041013301744
+  - _No text content captured._

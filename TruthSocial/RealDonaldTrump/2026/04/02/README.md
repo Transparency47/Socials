@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-04-02
+
+- Posts: 14
+
+- [22:32 UTC - I would like to thank the hardworking Commissioners and Staff of the National Capital Plan...](116337483523761845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116337483523761845
+  - I would like to thank the hardworking Commissioners and Staff of the National Capital Planning Commission, who just voted overwhelmingly, 8-1, to approve the magnificent White Hous...
+- [22:29 UTC - Truth Social post 116337474135003522](116337474135003522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116337474135003522
+  - _No text content captured._
+- [22:29 UTC - Truth Social post 116337473284766361](116337473284766361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116337473284766361
+  - _No text content captured._
+- [17:43 UTC - Davy Crockett, obviously a distant relative of Jasmine Crockett, and a very High IQ Fronti...](116336350249896927/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116336350249896927
+  - Davy Crockett, obviously a distant relative of Jasmine Crockett, and a very High IQ Frontiersman, would be proud of the legacy that he began long ago, and especially Jasmine’s Grea...
+- [17:17 UTC - Pam Bondi is a Great American Patriot and a loyal friend, who faithfully served as my Atto...](116336247856387679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116336247856387679
+  - Pam Bondi is a Great American Patriot and a loyal friend, who faithfully served as my Attorney General over the past year. Pam did a tremendous job overseeing a massive crackdown i...
+- [16:37 UTC - The biggest bridge in Iran comes tumbling down, never to be used again — Much more to foll...](116336091138489301/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116336091138489301
+  - The biggest bridge in Iran comes tumbling down, never to be used again — Much more to follow! IT IS TIME FOR IRAN TO MAKE A DEAL BEFORE IT IS TOO LATE, AND THERE IS NOTHING LEFT OF...
+- [16:15 UTC - Truth Social post 116336001721515418](116336001721515418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116336001721515418
+  - _No text content captured._
+- [14:33 UTC - Thank you to all of our Great Congressional Republicans, House Speaker Mike Johnson, and S...](116335602592937497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116335602592937497
+  - Thank you to all of our Great Congressional Republicans, House Speaker Mike Johnson, and Senate Leader John Thune, for their work this week. Republicans are UNIFIED, and moving for...
+- [11:58 UTC - Bad, and very boring singer, Bruce Springsteen, who looks like a dried up prune who has su...](116334990675013056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116334990675013056
+  - Bad, and very boring singer, Bruce Springsteen, who looks like a dried up prune who has suffered greatly from the work of a really bad plastic surgeon, has long had a horrible and...
+- [11:35 UTC - Victor Davis Hanson Reveals He Was Approached by Chinese Operative Fang Fang But Didn’t Fa...](116334902567890770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116334902567890770
+  - Victor Davis Hanson Reveals He Was Approached by Chinese Operative Fang Fang But Didn’t Fall for it Like ‘Idiot’ Eric Swalwell: [https://www. thegatewaypundit.com/2026/04/v ictor-d...
+- [11:15 UTC - Kangaroo Court!!!](116334821717037813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116334821717037813
+  - Kangaroo Court!!!
+- [03:43 UTC - Donald Trump - Clip from every year from 1980 to 2024: [https:// m.youtube.com/watch?v=-lu...](116333046471233968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116333046471233968
+  - Donald Trump - Clip from every year from 1980 to 2024: [https:// m.youtube.com/watch?v=-luF0nLl M3A&pp=0gcJCcQBo7VqN5tD](https://m.youtube.com/watch?v=-luF0nLlM3A&pp=0gcJCcQBo7VqN5...
+- [02:55 UTC - Douglas Murray: Deranged Tucker Carlson backstabs Trump: [https:// nypost.com/2026/03/19/o...](116332857814797772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116332857814797772
+  - Douglas Murray: Deranged Tucker Carlson backstabs Trump: [https:// nypost.com/2026/03/19/opinion/ deranged-tucker-carlson-backstabs-trump/](https://nypost.com/2026/03/19/opinion/de...
+- [02:55 UTC - Democratic pollster: Benefit of defanging Iran far outweighs cost of war: [https:// nypost...](116332855637584819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116332855637584819
+  - Democratic pollster: Benefit of defanging Iran far outweighs cost of war: [https:// nypost.com/2026/04/01/opinion/ democratic-pollster-benefit-of-defanging-iran-far-outweighs-cost-...

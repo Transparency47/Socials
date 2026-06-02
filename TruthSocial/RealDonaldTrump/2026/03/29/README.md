@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-03-29
+
+- Posts: 11
+
+- [22:53 UTC - Truth Social post 116314920205261704](116314920205261704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116314920205261704
+  - _No text content captured._
+- [13:41 UTC - Truth Social post 116312749951796210](116312749951796210/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116312749951796210
+  - _No text content captured._
+- [13:41 UTC - The Unaffordable Care Act, sometimes referred to as ObamaCare, must be replaced by payment...](116312749090280206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116312749090280206
+  - The Unaffordable Care Act, sometimes referred to as ObamaCare, must be replaced by payments being made directly to THE PEOPLE, so that they can buy their own Healthcare, rather tha...
+- [09:25 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311739381872611](116311740500942252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311740500942252
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311739381872611
+- [09:24 UTC - Truth Social post 116311739381872611](116311739381872611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311739381872611
+  - _No text content captured._
+- [09:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311737094738589](116311737918445144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311737918445144
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311737094738589
+- [09:24 UTC - Truth Social post 116311737094738589](116311737094738589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311737094738589
+  - _No text content captured._
+- [09:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311734865111326](116311735802042461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311735802042461
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116311734865111326
+- [09:23 UTC - Truth Social post 116311734865111326](116311734865111326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311734865111326
+  - _No text content captured._
+- [09:20 UTC - Truth Social post 116311721737212300](116311721737212300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116311721737212300
+  - _No text content captured._
+- [03:32 UTC - Truth Social post 116310351855462881](116310351855462881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116310351855462881
+  - _No text content captured._

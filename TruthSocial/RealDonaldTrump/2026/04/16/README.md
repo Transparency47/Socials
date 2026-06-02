@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2026-04-16
+
+- Posts: 30
+
+- [23:22 UTC - I hope Hezbollah acts nicely and well during this important period of time. It will be an ...](116416955297746034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416955297746034
+  - I hope Hezbollah acts nicely and well during this important period of time. It will be an GREAT moment for them if they do. No more killing. Must finally have PEACE! Thank you for...
+- [23:12 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) A Trump Hating Judge, for...](116416913508887403/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416913508887403
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) A Trump Hating Judge, for the first time in History, wants Congress to pay Hundreds of Millions of Dollars for a Gl...
+- [23:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The out of control Trump ...](116416912660014403/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416912660014403
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The out of control Trump Hating, Washington, D.C. District Court Judge, who doesn’t want to accept a $400 Million D...
+- [23:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The person who filed the ...](116416912306613720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416912306613720
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The person who filed the meritless and lawless suit on the desperately needed White House Ballroom, being built as...
+- [23:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The White House doesn’t h...](116416912057267664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416912057267664
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The White House doesn’t have a Ballroom (No Taxpayer Money!), which Presidents have desperately wanted and desired...
+- [22:41 UTC - A Trump Hating Judge, for the first time in History, wants Congress to pay Hundreds of Mil...](116416794492386540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416794492386540
+  - A Trump Hating Judge, for the first time in History, wants Congress to pay Hundreds of Millions of Dollars for a Glorious Ballroom, instead of accepting Donations from Great Americ...
+- [22:27 UTC - I’m on Air Force One heading to Las Vegas and Arizona for Greetings and Speeches on NO TAX...](116416736627974477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416736627974477
+  - I’m on Air Force One heading to Las Vegas and Arizona for Greetings and Speeches on NO TAX ON TIPS, a WINDFALL for our Great American Citizens. I am watching one of the Least Attra...
+- [22:20 UTC - MORNING GLORY: Trump has restored the GOP as the party of defense and deterrence: [https:/...](116416709748686625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416709748686625
+  - MORNING GLORY: Trump has restored the GOP as the party of defense and deterrence: [https://www. foxnews.com/opinion/morning-gl ory-trump-has-restored-gop-party-defense-deterrence](...
+- [22:19 UTC - SAVE America Act Will Make Absentee Ballots Great Again: [https://www. dailysignal.com/202...](116416706794158280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416706794158280
+  - SAVE America Act Will Make Absentee Ballots Great Again: [https://www. dailysignal.com/2026/03/20/sav e-america-act-will-make-absentee-ballots-great-again/](https://www.dailysignal...
+- [22:08 UTC - Who’s dumber, Tucker Carlson or Joe Kent? It’s very interesting! I met Joe Kent at Dover A...](116416663301119812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416663301119812
+  - Who’s dumber, Tucker Carlson or Joe Kent? It’s very interesting! I met Joe Kent at Dover Air Force Base, along with numerous others who had lost their loved ones in War. I said hel...
+- [21:38 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Sadly, Mayor Mamdani is D...](116416546243019353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416546243019353
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Sadly, Mayor Mamdani is DESTROYING New York! It has no chance! The United States of America should not contribute t...
+- [21:38 UTC - [https://www. cadillacchampionship.com/news/ 2026/03/18/cadillac-championship-and-boeing-j...](116416544142618799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416544142618799
+  - [https://www. cadillacchampionship.com/news/ 2026/03/18/cadillac-championship-and-boeing-join-forces-to-honor-military-and-veterans-at-2026-tournament](https://www.cadillacchampion...
+- [21:37 UTC - Truth Social post 116416543351755031](116416543351755031/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416543351755031
+  - _No text content captured._
+- [21:37 UTC - Trump Birthright Citizenship View Rests on Originalism, Not Vibes: [https:// news.bloomber...](116416541127655458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416541127655458
+  - Trump Birthright Citizenship View Rests on Originalism, Not Vibes: [https:// news.bloomberglaw.com/legal-ex change-insights-and-commentary/trump-birthright-citizenship-view-rests-o...
+- [21:36 UTC - Trump Is Right On Birthright Citizenship: [https://www. wsj.com/opinion/trump-is-right -on...](116416538843797671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416538843797671
+  - Trump Is Right On Birthright Citizenship: [https://www. wsj.com/opinion/trump-is-right -on-birthright-citizenship-954ae377](https://www.wsj.com/opinion/trump-is-right-on-birthright...
+- [21:23 UTC - Terrible! [https://www. foxnews.com/us/slain-college-f reshmans-mother-vows-fight-justice-...](116416485819231887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416485819231887
+  - Terrible! [https://www. foxnews.com/us/slain-college-f reshmans-mother-vows-fight-justice-illegal-immigrant-charged-chicago-killing](https://www.foxnews.com/us/slain-college-freshm...
+- [21:22 UTC - Sadly, Mayor Mamdani is DESTROYING New York! It has no chance! The United States of Americ...](116416480932586388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416480932586388
+  - Sadly, Mayor Mamdani is DESTROYING New York! It has no chance! The United States of America should not contribute to its failure. It will only get WORSE. The TAX, TAX, TAX Policies...
+- [21:21 UTC - Harmeet Dhillon, Trump’s Civil-Rights Enforcer in Action: [https://www. wsj.com/opinion/ha...](116416477611505249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416477611505249
+  - Harmeet Dhillon, Trump’s Civil-Rights Enforcer in Action: [https://www. wsj.com/opinion/harmeet-dhillo n-trumps-civil-rights-enforcer-in-action-9e93b66d](https://www.wsj.com/opinio...
+- [21:20 UTC - Trump: ‘The farm bill is going to happen!’ [https://www. agri-pulse.com/articles/24440- tr...](116416475839280604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416475839280604
+  - Trump: ‘The farm bill is going to happen!’ [https://www. agri-pulse.com/articles/24440- trump-the-farm-bill-is-going-to-happen](https://www.agri-pulse.com/articles/24440-trump-the-...
+- [21:19 UTC - Italy wasn’t there for us, we won’t be there for them! President DONALD J. TRUMP [https://...](116416471379285688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416471379285688
+  - Italy wasn’t there for us, we won’t be there for them! President DONALD J. TRUMP [https://www. theguardian.com/world/2026/mar /31/italy-denies-sicily-airbase-us-planes-carrying-wea...
+- [20:30 UTC - Truth Social post 116416279702594826](116416279702594826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416279702594826
+  - _No text content captured._
+- [20:19 UTC - Congratulations to Taranjit Sandhu on becoming the new Lt Governor of Delhi! As a seasoned...](116416234640313369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416234640313369
+  - Congratulations to Taranjit Sandhu on becoming the new Lt Governor of Delhi! As a seasoned Diplomat and former Ambassador to the United States, he has always shown deep commitment...
+- [20:05 UTC - The out of control Trump Hating, Washington, D.C. District Court Judge, who doesn’t want t...](116416177838768498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416177838768498
+  - The out of control Trump Hating, Washington, D.C. District Court Judge, who doesn’t want to accept a $400 Million Dollar GIFT of one of the most beautiful Ballrooms anywhere in the...
+- [19:37 UTC - The person who filed the meritless and lawless suit on the desperately needed White House ...](116416069269152200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416069269152200
+  - The person who filed the meritless and lawless suit on the desperately needed White House Ballroom, being built as a GIFT to America (without Tax Dollars!), a woman walking her dog...
+- [19:24 UTC - I am pleased to announce the new leadership of the Centers for Disease Control and Prevent...](116416019325047452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116416019325047452
+  - I am pleased to announce the new leadership of the Centers for Disease Control and Prevention (CDC). It is my Honor to nominate the incredibly talented Dr. Erica Schwartz, MD, JD,...
+- [18:45 UTC - The White House doesn’t have a Ballroom (No Taxpayer Money!), which Presidents have desper...](116415864463373443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116415864463373443
+  - The White House doesn’t have a Ballroom (No Taxpayer Money!), which Presidents have desperately wanted and desired for over 150 years, but a Trump Hating, Washington, D.C. District...
+- [15:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116415122630904602 In addition ...](116415190299043508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116415190299043508
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116415122630904602 In addition to the statement just issued, I will be inviting the Prime Minister of Israel, Bibi Netany...
+- [15:36 UTC - I just had excellent conversations with the Highly Respected President Joseph Aoun, of Leb...](116415122630904602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116415122630904602
+  - I just had excellent conversations with the Highly Respected President Joseph Aoun, of Lebanon, and Prime Minister Bibi Netanyahu, of Israel. These two Leaders have agreed that in...
+- [03:26 UTC - Trying to get a little breathing room between Israel and Lebanon. It has been a long time ...](116412252214963423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116412252214963423
+  - Trying to get a little breathing room between Israel and Lebanon. It has been a long time since the two leaders have spoken, like 34 years. It will happen tomorrow. Nice! President...
+- [03:14 UTC - Gabbard refers impeachment whistleblower to DOJ for criminal investigation: [https:// just...](116412203941124262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116412203941124262
+  - Gabbard refers impeachment whistleblower to DOJ for criminal investigation: [https:// justthenews.com/government/sec urity/gabbard-refers-impeachment-whistleblower-doj-criminal-inv...
