@@ -62,6 +62,11 @@ X_WEB_USER_AGENT = (
     "Mozilla/5.0 (Macintosh; Intel Mac OS X 10_15_7) "
     "AppleWebKit/537.36 (KHTML, like Gecko) Chrome/125 Safari/537.36"
 )
+TRUTH_SOCIAL_USER_AGENT = (
+    "Mozilla/5.0 (Macintosh; Intel Mac OS X 10_15_7) "
+    "AppleWebKit/605.1.15 (KHTML, like Gecko) Version/26.5 Safari/605.1.15"
+)
+TRUTH_SOCIAL_MAX_RETRIES = 3
 X_COOKIES_PATH = SCRAPER_DIR / ".x_cookies.json"
 X_COOKIE_ENV_NAMES = ("X_COOKIES", "TWITTER_COOKIES", "X_COOKIE", "TWITTER_COOKIE")
 X_COOKIE_DOMAINS = ("x.com", ".x.com")
@@ -875,10 +880,53 @@ def truth_social_media(items: list[dict[str, Any]]) -> list[MediaAttachment]:
     return media
 
 
+def truth_social_headers(username: str | None = None) -> dict[str, str]:
+    referer = f"https://truthsocial.com/@{username}" if username else "https://truthsocial.com/"
+    return {
+        "User-Agent": TRUTH_SOCIAL_USER_AGENT,
+        "Accept": "application/json, text/plain, */*",
+        "Accept-Language": "en-US,en;q=0.9",
+        "Origin": "https://truthsocial.com",
+        "Referer": referer,
+        "Sec-Fetch-Dest": "empty",
+        "Sec-Fetch-Mode": "cors",
+        "Sec-Fetch-Site": "same-origin",
+    }
+
+
+def truth_social_cloudflare_block(response: requests.Response) -> bool:
+    content_type = response.headers.get("content-type", "").lower()
+    if response.status_code != 429 or "text/html" not in content_type:
+        return False
+    body = response.text[:2000].lower()
+    return "cloudflare" in body or "access denied" in body
+
+
+def truth_social_get(
+    session: requests.Session,
+    url: str,
+    *,
+    username: str,
+    params: dict[str, Any] | None = None,
+) -> requests.Response:
+    response: requests.Response | None = None
+    for attempt in range(TRUTH_SOCIAL_MAX_RETRIES):
+        response = session.get(url, params=params, headers=truth_social_headers(username), timeout=REQUEST_TIMEOUT)
+        if not truth_social_cloudflare_block(response) or attempt == TRUTH_SOCIAL_MAX_RETRIES - 1:
+            return response
+        retry_after = response.headers.get("retry-after")
+        delay = int(retry_after) if retry_after and retry_after.isdigit() else 1
+        time.sleep(max(delay, 1))
+    assert response is not None
+    return response
+
+
 def scrape_truth_social(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
     username = strip_handle(account)
     lookup_url = "https://truthsocial.com/api/v1/accounts/lookup"
-    response = session.get(lookup_url, params={"acct": username}, timeout=REQUEST_TIMEOUT)
+    response = truth_social_get(session, lookup_url, username=username, params={"acct": username})
+    if truth_social_cloudflare_block(response):
+        raise ScrapeError("Truth Social Cloudflare access denied (HTTP 429), not an API rate limit.")
     if response.status_code == 429:
         raise RateLimitError(rate_limit_message(response, "Truth Social"))
     response.raise_for_status()
@@ -900,7 +948,9 @@ def scrape_truth_social(session: requests.Session, account: str, args: argparse.
         if max_id:
             params["max_id"] = max_id
         statuses_url = f"https://truthsocial.com/api/v1/accounts/{account_id}/statuses"
-        result = session.get(statuses_url, params=params, timeout=REQUEST_TIMEOUT)
+        result = truth_social_get(session, statuses_url, username=username, params=params)
+        if truth_social_cloudflare_block(result):
+            raise ScrapeError("Truth Social Cloudflare access denied (HTTP 429), not an API rate limit.")
         if result.status_code == 429:
             raise RateLimitError(rate_limit_message(result, "Truth Social"))
         result.raise_for_status()

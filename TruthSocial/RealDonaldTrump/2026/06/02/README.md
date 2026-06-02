@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2026-06-02
+
+- Posts: 20
+
+- [11:19 UTC - Today is Judge Jeanine Pirro’s Birthday. She is the U.S. Attorney for the District of Colu...](116680241453133224/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116680241453133224
+  - Today is Judge Jeanine Pirro’s Birthday. She is the U.S. Attorney for the District of Columbia, and has done a fantastic job — Respected by everyone, even the Radical Left Lunatics...
+- [04:08 UTC - When a Star Witness totally recants, and in every way reveals that he was pressured and co...](116678544710349966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678544710349966
+  - When a Star Witness totally recants, and in every way reveals that he was pressured and coerced to give testimony, and when the Prosecutor admits that this Witness was the single r...
+- [03:41 UTC - Cuban-American congresswoman calls for Democrats aiding Cuba to be investigated for treaso...](116678437693091447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678437693091447
+  - Cuban-American congresswoman calls for Democrats aiding Cuba to be investigated for treason: [https:// justthenews.com/government/sec urity/cuban-american-congresswoman-calls-democ...
+- [03:40 UTC - FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump ‘grand conspiracy...](116678436482500677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678436482500677
+  - FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump ‘grand conspiracy’ inquiry: [https:// justthenews.com/government/cou rts-law/fbi-and-doj-concerns-mar-lago-...
+- [03:40 UTC - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integr...](116678435123044195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678435123044195
+  - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integrity case: [https:// justthenews.com/government/cou rts-law/dhillon-moves-recuse-atlanta-ju...
+- [03:13 UTC - Cotton over chemicals: How Trump’s USDA is Making America’s Fabric Great Again: [https:// ...](116678327802401627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678327802401627
+  - Cotton over chemicals: How Trump’s USDA is Making America’s Fabric Great Again: [https:// justthenews.com/government/whi te-house/cotton-over-chemicals-how-trumps-usda-making-ameri...
+- [03:11 UTC - Trump scores 30 out of 30 on cognitive assessment, looks 14 years younger than he is: phys...](116678322907103561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678322907103561
+  - Trump scores 30 out of 30 on cognitive assessment, looks 14 years younger than he is: physical: [https:// justthenews.com/government/whi te-house/trump-scores-30-out-30-cognitive-a...
+- [03:11 UTC - Ex-intel official reported Hunter Biden laptop letter was ‘deception operation,’ DOJ asked...](116678321217174312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678321217174312
+  - Ex-intel official reported Hunter Biden laptop letter was ‘deception operation,’ DOJ asked to probe: [https:// justthenews.com/accountability /political-ethics/ex-obama-intel-offic...
+- [03:11 UTC - EPA boss made criminal referrals alleging Democrats ‘self-dealing’ in lucrative green ener...](116678319670541251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678319670541251
+  - EPA boss made criminal referrals alleging Democrats ‘self-dealing’ in lucrative green energy grants: [https:// justthenews.com/accountability /waste-fraud-and-abuse/epa-boss-made-c...
+- [02:46 UTC - Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I lov...](116678223440201502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116678223440201502
+  - Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024. I know Ashley well, and she is a WINN...
+- [01:47 UTC - Truth Social post 116677990580767481](116677990580767481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677990580767481
+  - _No text content captured._
+- [01:41 UTC - Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and W...](116677968706626771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677968706626771
+  - Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! An America First Patriot,...
+- [01:41 UTC - Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dak...](116677966071630284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677966071630284
+  - Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dakota, a State I love, and WON BIG, in 2016, 2020, and 2024! An America First Patriot, Mike...
+- [01:40 UTC - It is my Great Honor to endorse U.S. Marine Corps Veteran and former Albuquerque Police De...](116677964894339808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677964894339808
+  - It is my Great Honor to endorse U.S. Marine Corps Veteran and former Albuquerque Police Detective, Greg Cunningham, who is running to represent the wonderful people of New Mexico’s...
+- [01:40 UTC - Congressman Tom Kean is a Great Representative for the People of New Jersey’s 7th Congress...](116677963449948858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677963449948858
+  - Congressman Tom Kean is a Great Representative for the People of New Jersey’s 7th Congressional District! A Tremendous Advocate of our America First Agenda, Tom is working tireless...
+- [01:40 UTC - Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jers...](116677962166499298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677962166499298
+  - Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jersey’s 4th Congressional District! As a Senior Member of the House Committee on Foreign Affa...
+- [01:39 UTC - Congressman Jeff Van Drew is a “MAGA” Warrior for the incredible people of New Jersey’s 2n...](116677961253223719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677961253223719
+  - Congressman Jeff Van Drew is a “MAGA” Warrior for the incredible people of New Jersey’s 2nd Congressional District! As the Chairman of the House Judiciary Subcommittee on Oversight...
+- [01:39 UTC - Congressman Troy Downing is doing a truly fantastic job representing the incredible people...](116677959601315306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677959601315306
+  - Congressman Troy Downing is doing a truly fantastic job representing the incredible people of Montana’s 2nd Congressional District! Troy bravely served our Great Country in the U.S...
+- [01:39 UTC - It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous pe...](116677957643115689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677957643115689
+  - It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous people of Montana’s 1st Congressional District. Aaron is a MAGA Warrior, who is strongly sup...
+- [01:38 UTC - It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U....](116677955980694190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677955980694190
+  - It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U.S. Senator from the Great State of Montana, a place I love and WON BIG in 2016, 2020, and...

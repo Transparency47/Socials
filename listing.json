@@ -1,6 +1,458 @@
 {
-  "generatedAt": "2026-06-02T02:55:00.043898+00:00",
+  "generatedAt": "2026-06-02T12:18:01.843747+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:21f1dbef10863aab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183444+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678544710349966"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678544710349966/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678544710349966/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678544710349966",
+      "summary": "When a Star Witness totally recants, and in every way reveals that he was pressured and coerced to give testimony, and when the Prosecutor admits that this Witness was the single reason that the case was brought, there was no other, how can that Case not be immediately dismissed?",
+      "title": "When a Star Witness totally recants, and in every way reveals that he was pressured and co..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:2322f0e546939bb3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184573+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116677984498967852.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/cfe4f0e6abfdaf39.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/677/984/498/967/852/original/cfe4f0e6abfdaf39.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/cfe4f0e6abfdaf39.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116677984498967852.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/cfe4f0e6abfdaf39.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116677990580767481"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677990580767481/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677990580767481/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677990580767481",
+      "summary": null,
+      "title": "Truth Social post 116677990580767481"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:ea28cc3b6a9288ae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184080+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678322907103561"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678322907103561/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678322907103561/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678322907103561",
+      "summary": "Trump scores 30 out of 30 on cognitive assessment, looks 14 years younger than he is: physical: [https:// justthenews.com/government/whi te-house/trump-scores-30-out-30-cognitive-assessment-looks-14-years-younger-he](https://justthenews.com/government/white-house/trump-scores-30-",
+      "title": "Trump scores 30 out of 30 on cognitive assessment, looks 14 years younger than he is: phys..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:99e2659c6f5e27ca",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183280+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116680241453133224"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116680241453133224/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116680241453133224/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116680241453133224",
+      "summary": "Today is Judge Jeanine Pirro\u2019s Birthday. She is the U.S. Attorney for the District of Columbia, and has done a fantastic job \u2014 Respected by everyone, even the Radical Left Lunatics. Thank you Jeanine, and HAPPY BIRTHDAY! President DONALD J. TRUMP",
+      "title": "Today is Judge Jeanine Pirro\u2019s Birthday. She is the U.S. Attorney for the District of Colu..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:67b380483fa4bbda",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184934+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677966071630284"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677966071630284/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677966071630284/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677966071630284",
+      "summary": "Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dakota, a State I love, and WON BIG, in 2016, 2020, and 2024! An America First Patriot, Mike is fighting tirelessly to Advance the Great Values of the Mount Rushmore State, Champion our Farmers",
+      "title": "Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dak..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:fecc2eb667a0589b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184761+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677968706626771"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677968706626771/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677968706626771/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677968706626771",
+      "summary": "Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! An America First Patriot, and true friend of MAGA, Marty is now running for Congress, where I know he will continue to do a f",
+      "title": "Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and W..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:de3b91f415e1ebbb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185135+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677964894339808"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677964894339808/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677964894339808/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677964894339808",
+      "summary": "It is my Great Honor to endorse U.S. Marine Corps Veteran and former Albuquerque Police Detective, Greg Cunningham, who is running to represent the wonderful people of New Mexico\u2019s 2nd Congressional District. Greg is running against a Radical Left Democrat named Gabe Vasquez, who",
+      "title": "It is my Great Honor to endorse U.S. Marine Corps Veteran and former Albuquerque Police De..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:c78d9e2d81d6899e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.186101+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677955980694190"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677955980694190/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677955980694190/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677955980694190",
+      "summary": "It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U.S. Senator from the Great State of Montana, a place I love and WON BIG in 2016, 2020, and 2024! A Highly Respected Criminal Prosecutor in my Administration, and distinguished Harvard Law Sch",
+      "title": "It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U...."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:8bf4f7f592194970",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185937+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677957643115689"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677957643115689/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677957643115689/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677957643115689",
+      "summary": "It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous people of Montana\u2019s 1st Congressional District. Aaron is a MAGA Warrior, who is strongly supported by many of the Greatest America First Patriots in Montana, including Senator Tim Sheehy, Cong",
+      "title": "It is my Great Honor to endorse Aaron Flint, who is running to represent the tremendous pe..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:eb6e215749b783eb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183729+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678436482500677"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678436482500677/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678436482500677/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678436482500677",
+      "summary": "FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump \u2018grand conspiracy\u2019 inquiry: [https:// justthenews.com/government/cou rts-law/fbi-and-doj-concerns-mar-lago-raid-bolster-florida-based-anti-trump-grand](https://justthenews.com/government/courts-law/fbi-and-d",
+      "title": "FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump \u2018grand conspiracy..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:1c12948051e3a801",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184194+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678321217174312"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678321217174312/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678321217174312/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678321217174312",
+      "summary": "Ex-intel official reported Hunter Biden laptop letter was \u2018deception operation,\u2019 DOJ asked to probe: [https:// justthenews.com/accountability /political-ethics/ex-obama-intel-official-referred-hunter-biden-letter-over-concerns](https://justthenews.com/accountability/political-eth",
+      "title": "Ex-intel official reported Hunter Biden laptop letter was \u2018deception operation,\u2019 DOJ asked..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:37680c97a7b72c09",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184306+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678319670541251"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678319670541251/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678319670541251/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678319670541251",
+      "summary": "EPA boss made criminal referrals alleging Democrats \u2018self-dealing\u2019 in lucrative green energy grants: [https:// justthenews.com/accountability /waste-fraud-and-abuse/epa-boss-made-criminal-referrals-alleging-democrat-self](https://justthenews.com/accountability/waste-fraud-and-abu",
+      "title": "EPA boss made criminal referrals alleging Democrats \u2018self-dealing\u2019 in lucrative green ener..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:0b72534b4fd08aca",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183856+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678435123044195"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678435123044195/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678435123044195/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678435123044195",
+      "summary": "Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integrity case: [https:// justthenews.com/government/cou rts-law/dhillon-moves-recuse-atlanta-judge-over-alleged-attendance-democratic-event](https://justthenews.com/government/courts-law/dhillon-",
+      "title": "Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integr..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:b7c4b8b0608cabc3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183603+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678437693091447"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678437693091447/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678437693091447/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678437693091447",
+      "summary": "Cuban-American congresswoman calls for Democrats aiding Cuba to be investigated for treason: [https:// justthenews.com/government/sec urity/cuban-american-congresswoman-calls-democrats-aiding-cuba-be-investigated](https://justthenews.com/government/security/cuban-american-congres",
+      "title": "Cuban-American congresswoman calls for Democrats aiding Cuba to be investigated for treaso..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:1d857b4bac5527f0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.183973+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678327802401627"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678327802401627/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678327802401627/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678327802401627",
+      "summary": "Cotton over chemicals: How Trump\u2019s USDA is Making America\u2019s Fabric Great Again: [https:// justthenews.com/government/whi te-house/cotton-over-chemicals-how-trumps-usda-making-americas-fabric-great-again](https://justthenews.com/government/white-house/cotton-over-chemicals-how-tru",
+      "title": "Cotton over chemicals: How Trump\u2019s USDA is Making America\u2019s Fabric Great Again: [https:// ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:6fffa2db3fac4786",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.184520+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116678223440201502"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116678223440201502/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116678223440201502/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678223440201502",
+      "summary": "Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024. I know Ashley well, and she is a WINNER! A Loving Wife and Proud Mother of two sons, Ashley is a wonderful person, has ALWAYS delivered f",
+      "title": "Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I lov..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:1d6d00195d995d29",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185766+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677959601315306"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677959601315306/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677959601315306/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677959601315306",
+      "summary": "Congressman Troy Downing is doing a truly fantastic job representing the incredible people of Montana\u2019s 2nd Congressional District! Troy bravely served our Great Country in the U.S. Air Force as a Combat Veteran and, in Congress, he is fighting tirelessly to Support our Farmers a",
+      "title": "Congressman Troy Downing is doing a truly fantastic job representing the incredible people..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:e4a33fefd19fab77",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185293+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677963449948858"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677963449948858/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677963449948858/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677963449948858",
+      "summary": "Congressman Tom Kean is a Great Representative for the People of New Jersey\u2019s 7th Congressional District! A Tremendous Advocate of our America First Agenda, Tom is working tirelessly to Keep our Border SECURE, Stop Migrant Crime, Grow our Economy, Cut Taxes and Regulations, Champ",
+      "title": "Congressman Tom Kean is a Great Representative for the People of New Jersey\u2019s 7th Congress..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:0885332cfa9698e7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185599+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677961253223719"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677961253223719/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677961253223719/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677961253223719",
+      "summary": "Congressman Jeff Van Drew is a \u201cMAGA\u201d Warrior for the incredible people of New Jersey\u2019s 2nd Congressional District! As the Chairman of the House Judiciary Subcommittee on Oversight, Jeff is doing a tremendous job advancing our America First Agenda. He is working tirelessly to Gro",
+      "title": "Congressman Jeff Van Drew is a \u201cMAGA\u201d Warrior for the incredible people of New Jersey\u2019s 2n..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-02",
+      "id": "socials:025017beee55ce64",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T12:14:26.185442+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116677962166499298"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/02/116677962166499298/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/02/116677962166499298/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677962166499298",
+      "summary": "Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jersey\u2019s 4th Congressional District! As a Senior Member of the House Committee on Foreign Affairs, Chris is fighting tirelessly to advance our America First Agenda. He is working hard to Grow ou",
+      "title": "Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jers..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-01",
@@ -52,13 +504,22 @@
             "remotePath": "archive/tiktok/whitehouse/7646499579185171743.mp4",
             "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646499579185171743",
             "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_7646499579185171743_thumbnail.jpg",
+            "remotePath": "archive/tiktok/whitehouse/7646499579185171743-02.jpg",
+            "sourceUrl": null,
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743-02.jpg"
           }
         ],
         "mediaFiles": [
-          "media/01_video_7646499579185171743.mp4"
+          "media/01_video_7646499579185171743.mp4",
+          "media/02_image_7646499579185171743_thumbnail.jpg"
         ],
         "mediaUrls": [
-          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4"
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4",
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743-02.jpg"
         ],
         "platform": "TikTok",
         "postId": "7646499579185171743"

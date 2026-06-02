@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@WhiteHouse/video/7646116889701141773
 - Local file: media/01_video_7646116889701141773.mp4
-- Remote URL: https://cdn.comparify.app/archive/tiktok/whitehouse/7646116889701141773.mp4
-- Remote path: archive/tiktok/whitehouse/7646116889701141773.mp4
 - Content type: video/mp4
 - Duration ms: 8000
+- Remote URL: https://cdn.comparify.app/archive/tiktok/whitehouse/7646116889701141773.mp4
+- Remote path: archive/tiktok/whitehouse/7646116889701141773.mp4
 
 
 ## API Data

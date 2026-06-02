@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7609081967899888927
 - Local file: media/01_video_7609081967899888927.mp4
-- Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7609081967899888927.mp4
-- Remote path: archive/tiktok/realdonaldtrump/7609081967899888927.mp4
 - Content type: video/mp4
 - Duration ms: 28000
+- Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7609081967899888927.mp4
+- Remote path: archive/tiktok/realdonaldtrump/7609081967899888927.mp4
 
 
 ## API Data
