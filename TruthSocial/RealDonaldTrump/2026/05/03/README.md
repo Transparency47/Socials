@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-05-03
+
+- Posts: 14
+
+- [23:17 UTC - Our fabulous Rudy Giuliani, a True Warrior, and the Best Mayor in the History of New York ...](116513195579187634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513195579187634
+  - Our fabulous Rudy Giuliani, a True Warrior, and the Best Mayor in the History of New York City, BY FAR, has been hospitalized, and is in critical condition. What a tragedy that he...
+- [23:09 UTC - We cannot allow there to be an Election that is conducted unconstitutionally simply for th...](116513163772009550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513163772009550
+  - We cannot allow there to be an Election that is conducted unconstitutionally simply for the “convenience” of State Legislatures. If they have to vote twice, so be it. We should dem...
+- [23:09 UTC - Truth Social post 116513161545641614](116513161545641614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513161545641614
+  - _No text content captured._
+- [23:04 UTC - Truth Social post 116513141481569905](116513141481569905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513141481569905
+  - _No text content captured._
+- [23:03 UTC - Truth Social post 116513139072353838](116513139072353838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513139072353838
+  - _No text content captured._
+- [22:50 UTC - Hakeem Jeffries, a Low IQ individual, said our Supreme Court is “illegitimate.” After sayi...](116513086831283231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116513086831283231
+  - Hakeem Jeffries, a Low IQ individual, said our Supreme Court is “illegitimate.” After saying such a thing, isn’t he subject to Impeachment? I got impeached for A PERFECT PHONE CALL...
+- [22:26 UTC - Bill Maher got “eaten up” by Gavin Newscum when Newscum said how well California is doing,...](116512992340359826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116512992340359826
+  - Bill Maher got “eaten up” by Gavin Newscum when Newscum said how well California is doing, A COMPLETE LIE, and Bill Maher never challenged him, not even a little bit. Also, Bill Ma...
+- [22:25 UTC - Fannie Mae Headquarters in Reston, Virginia. MAGA!](116512989815567980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116512989815567980
+  - Fannie Mae Headquarters in Reston, Virginia. MAGA!
+- [22:20 UTC - Truth Social post 116512970609978827](116512970609978827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116512970609978827
+  - _No text content captured._
+- [22:20 UTC - Truth Social post 116512968790021543](116512968790021543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116512968790021543
+  - _No text content captured._
+- [20:35 UTC - Countries from all over the World, almost all of which are not involved in the Middle East...](116512555123589170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116512555123589170
+  - Countries from all over the World, almost all of which are not involved in the Middle Eastern dispute going on so visibly, and violently, for all to see, have asked the United Stat...
+- [15:14 UTC - Trump Tells German Chancellor Merz ‘Fix Your Broken Country,’ Mulls Pulling U.S. Troops fr...](116511293838078879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116511293838078879
+  - Trump Tells German Chancellor Merz ‘Fix Your Broken Country,’ Mulls Pulling U.S. Troops from Spain and Italy: [https://www. breitbart.com/europe/2026/05/0 1/trump-tells-german-chan...
+- [15:13 UTC - Trump Administration to Withdraw Thousands of Troops From NATO Ally Germany, Pentagon Says...](116511291851057573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116511291851057573
+  - Trump Administration to Withdraw Thousands of Troops From NATO Ally Germany, Pentagon Says: [https://www. breitbart.com/europe/2026/05/0 2/trump-admin-to-withdraw-thousands-of-troo...
+- [14:40 UTC - Exclusive — Deputy Italian Prime Minister Matteo Salvini: Trump’s ‘Courage’ for ‘Cultural ...](116511160749911403/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116511160749911403
+  - Exclusive — Deputy Italian Prime Minister Matteo Salvini: Trump’s ‘Courage’ for ‘Cultural Foundation’ Critical to Survival of the West: [https://www. breitbart.com/politics/2026/05...

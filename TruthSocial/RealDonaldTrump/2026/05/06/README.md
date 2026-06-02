@@ -1,0 +1,115 @@
+# TruthSocial / RealDonaldTrump / 2026-05-06
+
+- Posts: 37
+
+- [23:57 UTC - Truth Social post 116530338790021746](116530338790021746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530338790021746
+  - _No text content captured._
+- [18:24 UTC - State Representative “MAGA” Meg Weinberger is an America First Patriot who is doing an inc...](116529029015091841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116529029015091841
+  - State Representative “MAGA” Meg Weinberger is an America First Patriot who is doing an incredible job representing Florida’s 94th State House District! Meg is MAGA all the way, and...
+- [18:22 UTC - Truth Social post 116529020867244882](116529020867244882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116529020867244882
+  - _No text content captured._
+- [15:08 UTC - Lilly commits additional $4.5 billion across Indiana manufacturing sites, opens first dedi...](116528258570841677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116528258570841677
+  - Lilly commits additional $4.5 billion across Indiana manufacturing sites, opens first dedicated genetic medicine facility: [https:// investor.lilly.com/news-releas es/news-release-...
+- [14:55 UTC - Ted Turner, one of the Greats of All Time, just died. He founded CNN, sold it, and was per...](116528208383447126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116528208383447126
+  - Ted Turner, one of the Greats of All Time, just died. He founded CNN, sold it, and was personally devastated by the Deal because the new ownership took CNN, his “baby,” and destroy...
+- [12:29 UTC - Top DOJ official predicts Supreme Court will declare AR-15 rifles legal everywhere in Amer...](116527632284101725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116527632284101725
+  - Top DOJ official predicts Supreme Court will declare AR-15 rifles legal everywhere in America: [https:// justthenews.com/politics-polic y/gun-rights/wedtop-doj-official-predicts-su...
+- [12:29 UTC - Top DOJ official predicts Supreme Court will declare AR-15 rifles legal everywhere in Amer...](116527632274782112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116527632274782112
+  - Top DOJ official predicts Supreme Court will declare AR-15 rifles legal everywhere in America: [https:// justthenews.com/politics-polic y/gun-rights/wedtop-doj-official-predicts-su...
+- [12:28 UTC - Trump’s new culture of government reform delivers more life-saving benefits to veterans: [...](116527630774740942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116527630774740942
+  - Trump’s new culture of government reform delivers more life-saving benefits to veterans: [https:// justthenews.com/government/whi te-house/trumps-culture-government-reform-and-redu...
+- [11:41 UTC - Assuming Iran agrees to give what has been agreed to, which is, perhaps, a big assumption,...](116527444859592032/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116527444859592032
+  - Assuming Iran agrees to give what has been agreed to, which is, perhaps, a big assumption, the already legendary Epic Fury will be at an end, and the highly effective Blockade will...
+- [11:32 UTC - The White House Ballroom is going up rapidly on the East side of the White House. The only...](116527410501835336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116527410501835336
+  - The White House Ballroom is going up rapidly on the East side of the White House. The only reason the cost has changed is because, after deep rooted studies, it is approximately tw...
+- [03:10 UTC - Truth Social post 116525434554167072](116525434554167072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116525434554167072
+  - _No text content captured._
+- [02:03 UTC - Truth Social post 116525170146202700](116525170146202700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116525170146202700
+  - _No text content captured._
+- [00:58 UTC - Truth Social post 116524915800180461](116524915800180461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524915800180461
+  - _No text content captured._
+- [00:58 UTC - Truth Social post 116524915232896612](116524915232896612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524915232896612
+  - _No text content captured._
+- [00:58 UTC - Truth Social post 116524914737009519](116524914737009519/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524914737009519
+  - _No text content captured._
+- [00:58 UTC - Truth Social post 116524913943981630](116524913943981630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524913943981630
+  - _No text content captured._
+- [00:57 UTC - Truth Social post 116524913099879514](116524913099879514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524913099879514
+  - _No text content captured._
+- [00:57 UTC - Truth Social post 116524911625829032](116524911625829032/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524911625829032
+  - _No text content captured._
+- [00:57 UTC - Truth Social post 116524910595219653](116524910595219653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524910595219653
+  - _No text content captured._
+- [00:57 UTC - Truth Social post 116524910114450558](116524910114450558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524910114450558
+  - _No text content captured._
+- [00:51 UTC - Truth Social post 116524889004499642](116524889004499642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524889004499642
+  - _No text content captured._
+- [00:51 UTC - Truth Social post 116524888425037461](116524888425037461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524888425037461
+  - _No text content captured._
+- [00:51 UTC - Truth Social post 116524887250350444](116524887250350444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524887250350444
+  - _No text content captured._
+- [00:51 UTC - Truth Social post 116524886660261173](116524886660261173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524886660261173
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116524886113914979](116524886113914979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524886113914979
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116524885331495793](116524885331495793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524885331495793
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116524883916490221](116524883916490221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524883916490221
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116524883192456543](116524883192456543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524883192456543
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116524882627589061](116524882627589061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524882627589061
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116524881949818405](116524881949818405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524881949818405
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116524881249612369](116524881249612369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524881249612369
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116524880377709354](116524880377709354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524880377709354
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116524879609732809](116524879609732809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524879609732809
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116524878834289086](116524878834289086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524878834289086
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 116524877696351651](116524877696351651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524877696351651
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 116524876932435802](116524876932435802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524876932435802
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 116524876178869482](116524876178869482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524876178869482
+  - _No text content captured._

@@ -1,0 +1,145 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 116438239629407600
+- Post URL: https://truthsocial.com/@realDonaldTrump/116438239629407600
+- Title: The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred...
+- Date published: 2026-04-20T17:35:37.313000+00:00
+- Date accessed: 2026-06-02T13:26:42.339142+00:00
+- Content kind: post
+- Language: en
+
+## Metrics
+
+- favorites: 24128
+- reblogs: 6078
+- replies: 1810
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12743985,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34029,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12744081,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34030,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred to as “The Iran Nuclear Deal,” penned by Barack Hussein Obama and Sleepy Joe Biden, one of the Worst Deals ever made having to do with the Security of our Country. It was a guaranteed Road to a Nuclear Weapon, which will not, and cannot, happen with the Deal we’re working on. They actually gave $1.7 Billion Dollars in “GREEN” Cash, loaded into a Boeing 757, and flown to Iran for Iranian leadership to spend anyway they saw fit. He emptied out all of the Cash from Banks in D.C., Virginia, and Maryland. Those Bankers said they’ve never seen anything like it before. In addition, Hundreds of Billions of Dollars was paid to Iran. If I did not terminate that “Deal,” Nuclear Weapons would have been used on Israel, and all over the Middle East, including our cherished U.S. Military Bases. The Fake News, like Lightweight Washington Post “Journalist” David Ignatius, loves to talk about the JCPOA, knowing that it was DANGEROUS, and a Complete Embarrassment to our Country. If a Deal happens under “TRUMP,” it will guarantee Peace, Security, and Safety, not only for Israel and the Middle East, but for Europe, America, and everywhere else. It will be something that the entire World will be proud of, instead of the years of Embarrassment and Humiliation that we have been forced to suffer due to incompetent and cowardly leadership! President DONALD J. TRUMP</p>",
+    "created_at": "2026-04-20T17:35:37.313Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 24128,
+    "group": null,
+    "id": "116438239629407600",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": "en",
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": null,
+    "reblogged": false,
+    "reblogs_count": 6078,
+    "replies_count": 1810,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 24128,
+    "uri": "https://truthsocial.com/@realDonaldTrump/116438239629407600",
+    "url": "https://truthsocial.com/@realDonaldTrump/116438239629407600",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

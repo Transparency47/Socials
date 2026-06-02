@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116442276577696798 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116442276577696798 -->
+<!-- date_published: 2026-04-21T10:42:16.256000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:26:14.319738+00:00 -->
+
+# I have always been a big fan of Tim Cook, and likewise, Steve Jobs, but if Steve was not t...
+
+I have always been a big fan of Tim Cook, and likewise, Steve Jobs, but if Steve was not taken from the Planet Earth so young, and ran the company instead of Tim, the company would have done well, but nowhere near as well as it has under Tim. For me it began with a phone call from Tim at the beginning of my First Term. He had a fairly large problem that only I, as President, could fix. Most people would have paid millions of dollars to a consultant, who I probably would not have known, but who would say that he knew me well. The fees would be paid but the job would not have gotten done. When I got the call I said, wow, it’s Tim Apple (Cook!) calling, how big is that? I was very impressed with myself to have the head of Apple calling to “kiss my ass.” Anyway, he explained his problem, a tough one it was, I felt he was right and got it taken care of, quickly and effectively. That was the beginning of a long and very nice relationship. During my five years as President, Tim would call me, but never too much, and I would help him where I could. Years latter, after 3 or 4 BIG HELPS, I started to say to people, anyone who would listen, that this guy is an amazing manager and leader. He makes these calls to me, I help him out (but not always, because he will, on occasion, be too aggressive in his ask!), and he gets the job done, QUICKLY, without a dime being given to those very expensive (millions of dollars!) consultants around town who sometimes get it done, and sometimes don’t. Anyway, Tim Cook had an AMAZING career, almost incomparable, and will go on and continue to do great work for Apple, and whatever else he chooses to work on. Quite simply, Tim Cook is an incredible guy!!! President DONALD J. TRUMP

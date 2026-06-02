@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-05-01
+
+- Posts: 18
+
+- [23:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116501828501933903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501828501933903
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot, Ralph Alvarado, M.D., who is running to represent the incred...
+- [23:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Proven Political Winner A...](116501828255499541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501828255499541
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Proven Political Winner Andy Barr is running for the United States Senate in the Great Commonwealth of Kentucky, a...
+- [23:07 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I had a great meeting wit...](116501828083781749/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501828083781749
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I had a great meeting with Mr. Nate Morris, of Kentucky, yesterday. Nate is a terrific businessman and strong MAGA...
+- [23:04 UTC - To the amazing Patriots in Indiana’s 41st State Senate District: PLEASE GET OUT AND VOTE f...](116501816483688599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501816483688599
+  - To the amazing Patriots in Indiana’s 41st State Senate District: PLEASE GET OUT AND VOTE for a tremendous Candidate, Michelle Davis, a Highly Respected State Representative, and a...
+- [23:03 UTC - To the incredible Patriots in Indiana’s 39th State Senate District: PLEASE GET OUT AND VOT...](116501815507913279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501815507913279
+  - To the incredible Patriots in Indiana’s 39th State Senate District: PLEASE GET OUT AND VOTE for a fantastic Candidate, Jeff Ellington, the Highly Respected Greene County GOP Chairm...
+- [23:03 UTC - To the amazing Patriots in Indiana’s 38th State Senate District: PLEASE GET OUT AND VOTE f...](116501814630910015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501814630910015
+  - To the amazing Patriots in Indiana’s 38th State Senate District: PLEASE GET OUT AND VOTE for a tremendous Candidate, “BRENDA” Wilson, a Highly Respected Vigo County Council Member,...
+- [23:03 UTC - To the wonderful Patriots in Indiana’s 23rd State Senate District: PLEASE GET OUT AND VOTE...](116501813635219695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501813635219695
+  - To the wonderful Patriots in Indiana’s 23rd State Senate District: PLEASE GET OUT AND VOTE for an incredible Candidate, Paula Copenhaver, the Highly Respected Fountain County GOP C...
+- [23:03 UTC - To the fantastic Patriots in Indiana’s 21st State Senate District: PLEASE GET OUT AND VOTE...](116501812537382758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501812537382758
+  - To the fantastic Patriots in Indiana’s 21st State Senate District: PLEASE GET OUT AND VOTE for a GREAT Candidate, Tracey Powell, a Highly Respected Tipton County Commissioner, and...
+- [23:02 UTC - To the tremendous Patriots in Indiana’s 19th State Senate District: PLEASE GET OUT AND VOT...](116501811511192146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501811511192146
+  - To the tremendous Patriots in Indiana’s 19th State Senate District: PLEASE GET OUT AND VOTE for an amazing Candidate, Blake Fiechter, a Highly Respected Bluffton City Councilman, a...
+- [23:02 UTC - To the incredible Patriots in Indiana’s 11th State Senate District: PLEASE GET OUT AND VOT...](116501809611050315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501809611050315
+  - To the incredible Patriots in Indiana’s 11th State Senate District: PLEASE GET OUT AND VOTE for a wonderful Candidate, Dr. Brian Schmutzler, a Highly Respected Anesthesiologist, an...
+- [23:01 UTC - To the Great Patriots in Indiana’s 1st State Senate District: PLEASE GET OUT AND VOTE for ...](116501807970154632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501807970154632
+  - To the Great Patriots in Indiana’s 1st State Senate District: PLEASE GET OUT AND VOTE for a fantastic Candidate, Trevor De Vries, a successful Businessman, and REAL Republican, who...
+- [23:01 UTC - It is my Great Honor to endorse America First Patriot, Ralph Alvarado, M.D., who is runnin...](116501805768129307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501805768129307
+  - It is my Great Honor to endorse America First Patriot, Ralph Alvarado, M.D., who is running to represent the incredible people of Kentucky’s 6th Congressional District. A true frie...
+- [22:59 UTC - Proven Political Winner Andy Barr is running for the United States Senate in the Great Com...](116501798869145857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501798869145857
+  - Proven Political Winner Andy Barr is running for the United States Senate in the Great Commonwealth of Kentucky, a place I love and WON BIG, six times, including Primaries, in 2016...
+- [22:43 UTC - I had a great meeting with Mr. Nate Morris, of Kentucky, yesterday. Nate is a terrific bus...](116501735314599862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501735314599862
+  - I had a great meeting with Mr. Nate Morris, of Kentucky, yesterday. Nate is a terrific businessman and strong MAGA Warrior. I will be making an Endorsement for U.S. Senate in Kentu...
+- [20:56 UTC - Truth Social post 116501316416820739](116501316416820739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116501316416820739
+  - _No text content captured._
+- [15:54 UTC - WE JUST DELIVERED A HUGE WIN for our Great Fishermen and Anglers in FLORIDA, GEORGIA, SOUT...](116500127694152404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116500127694152404
+  - WE JUST DELIVERED A HUGE WIN for our Great Fishermen and Anglers in FLORIDA, GEORGIA, SOUTH CAROLINA, and NORTH CAROLINA! We have just officially approved ALL STATE PERMITS for the...
+- [15:50 UTC - I am pleased to announce that, based on the fact the European Union is not complying with ...](116500111621281950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116500111621281950
+  - I am pleased to announce that, based on the fact the European Union is not complying with our fully agreed to Trade Deal, next week I will be increasing Tariffs charged to the Euro...
+- [01:26 UTC - Great job by highly respected Navy Commander Kirk Lippold in interview with Jesse Watters ...](116496713231472397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116496713231472397
+  - Great job by highly respected Navy Commander Kirk Lippold in interview with Jesse Watters on FoxNews. Very smart and insightful concerning Iran, and more. Thank you, Commander! Pre...

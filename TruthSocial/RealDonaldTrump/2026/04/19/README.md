@@ -1,0 +1,133 @@
+# TruthSocial / RealDonaldTrump / 2026-04-19
+
+- Posts: 43
+
+- [23:30 UTC - [https:// x.com/americafirsst/status/204 5609944037077104?s=46](https://x.com/americafirss...](116433972349508843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116433972349508843
+  - [https:// x.com/americafirsst/status/204 5609944037077104?s=46](https://x.com/americafirsst/status/2045609944037077104?s=46)
+- [19:32 UTC - How the White House drew a new battle plan to take on the Washington press corps: [https:/...](116433035427727878/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116433035427727878
+  - How the White House drew a new battle plan to take on the Washington press corps: [https://www. washingtontimes.com/news/2025/ dec/26/white-house-drew-new-battle-plan-take-washingt...
+- [19:31 UTC - Tariffs Are a Discipline, Not a Press Release: [https://www. wsj.com/opinion/tariffs-are-a...](116433033991904343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116433033991904343
+  - Tariffs Are a Discipline, Not a Press Release: [https://www. wsj.com/opinion/tariffs-are-a- discipline-not-a-press-release-4022e09e](https://www.wsj.com/opinion/tariffs-are-a-disci...
+- [19:31 UTC - Vance’s Anti-Fraud Task Force Hits Ground Running with Collection of Wins: [https://www. b...](116433033114293290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116433033114293290
+  - Vance’s Anti-Fraud Task Force Hits Ground Running with Collection of Wins: [https://www. breitbart.com/politics/2026/04 /03/vances-anti-fraud-task-force-hits-ground-running-with-co...
+- [19:23 UTC - Today, an Iranian-flagged cargo ship named TOUSKA, nearly 900 feet long and weighing almos...](116433000897070863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116433000897070863
+  - Today, an Iranian-flagged cargo ship named TOUSKA, nearly 900 feet long and weighing almost as much as an aircraft carrier, tried to get past our Naval Blockade, and it did not go...
+- [18:47 UTC - Why The Supreme Court Must Strike Down Birthright Citizenship: [https:// paulingrassia.sub...](116432861817731743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116432861817731743
+  - Why The Supreme Court Must Strike Down Birthright Citizenship: [https:// paulingrassia.substack.com/p/w hy-the-supreme-court-must-strike](https://paulingrassia.substack.com/p/why-t...
+- [18:47 UTC - McLaughlin Poll: Voters Back Trump on Iran: [https://www. newsmax.com/mclaughlin/midterm -...](116432860421226752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116432860421226752
+  - McLaughlin Poll: Voters Back Trump on Iran: [https://www. newsmax.com/mclaughlin/midterm -republican-voters/2026/04/17/id/1253286/](https://www.newsmax.com/mclaughlin/midterm-repub...
+- [18:47 UTC - Trump, Iran and the Bottom Line for American Interests: [https://www. realclearpolitics.co...](116432859604499088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116432859604499088
+  - Trump, Iran and the Bottom Line for American Interests: [https://www. realclearpolitics.com/articles /2026/04/17/trump_iran_and_the_bottom_line_for_american_interests.html](https:/...
+- [18:47 UTC - Thank you to the Great Gregg Jarrett — A Giant Scam on the American Public. Hopefully, it ...](116432858497606616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116432858497606616
+  - Thank you to the Great Gregg Jarrett — A Giant Scam on the American Public. Hopefully, it will be rectified! [https://www. foxnews.com/opinion/gregg-jarr ett-long-hidden-documents-...
+- [16:30 UTC - Truth Social post 116432320888234010](116432320888234010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116432320888234010
+  - _No text content captured._
+- [13:39 UTC - Truth Social post 116431649506344777](116431649506344777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116431649506344777
+  - _No text content captured._
+- [12:10 UTC - Iran decided to fire bullets yesterday in the Strait of Hormuz — A Total Violation of our ...](116431297579272777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116431297579272777
+  - Iran decided to fire bullets yesterday in the Strait of Hormuz — A Total Violation of our Ceasefire Agreement! Many of them were aimed at a French Ship, and a Freighter from the Un...
+- [01:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428892032687901](116428897394715191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428897394715191
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428892032687901
+- [01:58 UTC - Truth Social post 116428892032687901](116428892032687901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428892032687901
+  - _No text content captured._
+- [01:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428873226666382](116428880438091450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428880438091450
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428873226666382
+- [01:53 UTC - Truth Social post 116428873226666382](116428873226666382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428873226666382
+  - _No text content captured._
+- [01:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428860408281064](116428861791276634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428861791276634
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428860408281064
+- [01:50 UTC - Truth Social post 116428860408281064](116428860408281064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428860408281064
+  - _No text content captured._
+- [01:50 UTC - Truth Social post 116428859104382462](116428859104382462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428859104382462
+  - _No text content captured._
+- [01:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428856333288529](116428857516654596/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428857516654596
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428856333288529
+- [01:49 UTC - Truth Social post 116428856333288529](116428856333288529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428856333288529
+  - _No text content captured._
+- [01:48 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428849678471426](116428852861595010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428852861595010
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428849678471426
+- [01:47 UTC - Truth Social post 116428849678471426](116428849678471426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428849678471426
+  - _No text content captured._
+- [01:43 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428830946804053](116428832890179882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428832890179882
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428830946804053
+- [01:42 UTC - Truth Social post 116428830946804053](116428830946804053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428830946804053
+  - _No text content captured._
+- [01:42 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428826144790728](116428829391689009/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428829391689009
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428826144790728
+- [01:41 UTC - Truth Social post 116428826144790728](116428826144790728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428826144790728
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 116428799005359701](116428799005359701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428799005359701
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 116428798366067572](116428798366067572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428798366067572
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 116428798207542172](116428798207542172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428798207542172
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 116428796514884732](116428796514884732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428796514884732
+  - _No text content captured._
+- [01:33 UTC - Truth Social post 116428793295421075](116428793295421075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428793295421075
+  - _No text content captured._
+- [01:32 UTC - Truth Social post 116428791956114205](116428791956114205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428791956114205
+  - _No text content captured._
+- [01:31 UTC - Truth Social post 116428788120538347](116428788120538347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428788120538347
+  - _No text content captured._
+- [01:31 UTC - Truth Social post 116428786219065175](116428786219065175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428786219065175
+  - _No text content captured._
+- [01:31 UTC - Truth Social post 116428785291027481](116428785291027481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428785291027481
+  - _No text content captured._
+- [01:31 UTC - Truth Social post 116428784275063522](116428784275063522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428784275063522
+  - _No text content captured._
+- [01:26 UTC - Truth Social post 116428765639502248](116428765639502248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428765639502248
+  - _No text content captured._
+- [01:26 UTC - Truth Social post 116428764693486865](116428764693486865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428764693486865
+  - _No text content captured._
+- [01:24 UTC - Truth Social post 116428756798700218](116428756798700218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428756798700218
+  - _No text content captured._
+- [01:23 UTC - Truth Social post 116428755316820311](116428755316820311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428755316820311
+  - _No text content captured._
+- [01:14 UTC - Great words and wisdom by Robert Greenway, Heritage Foundation Allison Center Director, on...](116428719135549075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428719135549075
+  - Great words and wisdom by Robert Greenway, Heritage Foundation Allison Center Director, on the Mark Levin Show tonight. Thank you, Robert!
+- [01:07 UTC - Whether people like Israel or not, they have proven to be a GREAT Ally of the United State...](116428690626427742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428690626427742
+  - Whether people like Israel or not, they have proven to be a GREAT Ally of the United States of America. They are Courageous, Bold, Loyal, and Smart and, unlike others that have sho...

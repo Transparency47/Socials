@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-05-10
+
+- Posts: 23
+
+- [22:34 UTC - I “Love” Justice Neil Gorsuch! He’s a really smart and good man, but he voted against me, ...](116552659719497289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552659719497289
+  - I “Love” Justice Neil Gorsuch! He’s a really smart and good man, but he voted against me, and our Country, on Tariffs, a devastating move. How do I reconcile this? So bad, and hurt...
+- [22:14 UTC - The Magnificent Ballroom, under construction, and ahead of schedule, at the White House! P...](116552583348896285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552583348896285
+  - The Magnificent Ballroom, under construction, and ahead of schedule, at the White House! President DONALD J. TRUMP
+- [22:13 UTC - You could listen to FoxNews all day long, absolutely devour it, but then, when you hear SL...](116552577177859102/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552577177859102
+  - You could listen to FoxNews all day long, absolutely devour it, but then, when you hear SLEAZEBAGS, like Congressman Ro Khanna, “a wolf in sheep’s clothing,” LIE, LIE, LIE, AND LIE...
+- [20:48 UTC - “Any money paid to the United States of America does not have to be paid back” — That sent...](116552244024465774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552244024465774
+  - “Any money paid to the United States of America does not have to be paid back” — That sentence, if added by the Supreme Court to its highly disputed Tariff decision, would have sav...
+- [20:42 UTC - The Radical Left Dumacrats must fail — Our Country is at stake! President DONALD J. TRUMP](116552219842825125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552219842825125
+  - The Radical Left Dumacrats must fail — Our Country is at stake! President DONALD J. TRUMP
+- [20:12 UTC - I have just read the response from Iran’s so-called “Representatives.” I don’t like it — T...](116552102914488206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552102914488206
+  - I have just read the response from Iran’s so-called “Representatives.” I don’t like it — TOTALLY UNACCEPTABLE! Thank you for your attention to this matter. President DONALD J. TRUM...
+- [20:09 UTC - Exclusive — Kurdish Leader: Trump Is ‘Master of the Deal,’ Can Land Major Deal to End Iran...](116552089783940030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552089783940030
+  - Exclusive — Kurdish Leader: Trump Is ‘Master of the Deal,’ Can Land Major Deal to End Iran War and Create Worldwide Economic Boom: [https://www. breitbart.com/politics/2026/05 /10/...
+- [20:07 UTC - The Sleazebag, Radical Left Congressman from the failed State of California, Ro Khanna, sh...](116552084797839159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552084797839159
+  - The Sleazebag, Radical Left Congressman from the failed State of California, Ro Khanna, should not be allowed on FoxNews unless you have an “anchor” who is capable of disputing his...
+- [20:00 UTC - We just secured the release of three Polish, and two Moldovan, prisoners from Belarusian a...](116552057312551979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116552057312551979
+  - We just secured the release of three Polish, and two Moldovan, prisoners from Belarusian and Russian detention. Thanks to my Special Presidential Envoy, John Coale, we were able to...
+- [18:46 UTC - Truth Social post 116551765695237023](116551765695237023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116551765695237023
+  - _No text content captured._
+- [18:46 UTC - Truth Social post 116551765202328115](116551765202328115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116551765202328115
+  - _No text content captured._
+- [18:43 UTC - ALL FEDERAL AGENCIES MUST BUY AMERICAN — NO EXCUSES! For decades, Washington politicians s...](116551754542554867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116551754542554867
+  - ALL FEDERAL AGENCIES MUST BUY AMERICAN — NO EXCUSES! For decades, Washington politicians sent your Taxpayer Dollars overseas, and let Foreign Countries rip us off while our Workers...
+- [18:42 UTC - Palestinian Chuck Schumer is hiring Eric Holder, famous for handing guns to Mexican cartel...](116551749766563494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116551749766563494
+  - Palestinian Chuck Schumer is hiring Eric Holder, famous for handing guns to Mexican cartels under the Barack Hussein Obama administration, as part of a Democrat-led "Election Integ...
+- [17:52 UTC - Iran has been playing games with the United States, and the rest of the World, for 47 year...](116551553302876569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116551553302876569
+  - Iran has been playing games with the United States, and the rest of the World, for 47 years (DELAY, DELAY, DELAY!), and then finally hit “pay dirt” when Barack Hussein Obama became...
+- [12:45 UTC - Exclusive: Israel's Foreign Minister Saar Praises Trump, Remarkable Leadership: [https://w...](116550345428812734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116550345428812734
+  - Exclusive: Israel's Foreign Minister Saar Praises Trump, Remarkable Leadership: [https://www. newsmax.com/newsmax-tv/israel- gideon-saar-donald-trump/2026/03/08/id/1248756/](https:...
+- [12:40 UTC - Truth Social post 116550325293808505](116550325293808505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116550325293808505
+  - _No text content captured._
+- [12:39 UTC - Truth Social post 116550322160378420](116550322160378420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116550322160378420
+  - _No text content captured._
+- [12:37 UTC - Truth Social post 116550314292959831](116550314292959831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116550314292959831
+  - _No text content captured._
+- [01:33 UTC - Truth Social post 116547703469348588](116547703469348588/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116547703469348588
+  - _No text content captured._
+- [01:32 UTC - Truth Social post 116547698425890724](116547698425890724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116547698425890724
+  - _No text content captured._
+- [00:26 UTC - Truth Social post 116547439049231733](116547439049231733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116547439049231733
+  - _No text content captured._
+- [00:25 UTC - Does anybody believe this guy??? A Dirty Cop!!!](116547434147907478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116547434147907478
+  - Does anybody believe this guy??? A Dirty Cop!!!
+- [00:22 UTC - Pathetic!!!](116547422429575656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116547422429575656
+  - Pathetic!!!

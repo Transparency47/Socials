@@ -1,0 +1,121 @@
+# TruthSocial / RealDonaldTrump / 2026-04-18
+
+- Posts: 39
+
+- [23:50 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428389676890619 [https:// x....](116428390999409071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428390999409071
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428389676890619 [https:// x.com/real_robn/status/2045552 110100758533?s=10](https://x.com/real_robn/status/20455521101...
+- [23:50 UTC - Truth Social post 116428389676890619](116428389676890619/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428389676890619
+  - _No text content captured._
+- [23:49 UTC - Truth Social post 116428386907912654](116428386907912654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428386907912654
+  - _No text content captured._
+- [23:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428368589554834 A RIGGED ELE...](116428370306928773/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428370306928773
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428368589554834 A RIGGED ELECTION!!!
+- [23:45 UTC - Truth Social post 116428369346021412](116428369346021412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428369346021412
+  - _No text content captured._
+- [23:45 UTC - Truth Social post 116428368589554834](116428368589554834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428368589554834
+  - _No text content captured._
+- [23:40 UTC - [https:// x.com/thescif/status/204503443 7813903700?s=10](https://x.com/thescif/status/204...](116428350579951040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428350579951040
+  - [https:// x.com/thescif/status/204503443 7813903700?s=10](https://x.com/thescif/status/2045034437813903700?s=10)
+- [23:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428347307445462](116428348509835258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428348509835258
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116428347307445462
+- [23:39 UTC - Truth Social post 116428347307445462](116428347307445462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116428347307445462
+  - _No text content captured._
+- [12:14 UTC - Has anybody looked at how badly the country of Spain is doing. Their financial numbers, de...](116425653087220924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116425653087220924
+  - Has anybody looked at how badly the country of Spain is doing. Their financial numbers, despite contributing almost nothing to NATO and their military defense, are absolutely horre...
+- [11:29 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116425396492356069](116425474897187697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116425474897187697
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116425396492356069
+- [11:09 UTC - Truth Social post 116425396492356069](116425396492356069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116425396492356069
+  - _No text content captured._
+- [05:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116424005080834976](116424006276973261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116424006276973261
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116424005080834976
+- [05:15 UTC - Truth Social post 116424005080834976](116424005080834976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116424005080834976
+  - _No text content captured._
+- [05:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423987219362297](116423988271914275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423988271914275
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423987219362297
+- [05:11 UTC - Truth Social post 116423987219362297](116423987219362297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423987219362297
+  - _No text content captured._
+- [05:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423985260460652](116423986073917126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423986073917126
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423985260460652
+- [05:10 UTC - Truth Social post 116423985260460652](116423985260460652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423985260460652
+  - _No text content captured._
+- [05:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423967114156778 THANK YOU!](116423970008317740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423970008317740
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423967114156778 THANK YOU!
+- [05:05 UTC - Truth Social post 116423967114156778](116423967114156778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423967114156778
+  - _No text content captured._
+- [04:25 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423805453465694](116423807916848984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423807916848984
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423805453465694
+- [04:24 UTC - Truth Social post 116423805453465694](116423805453465694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423805453465694
+  - _No text content captured._
+- [04:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423801851760712](116423804513065079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423804513065079
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116423801851760712
+- [04:23 UTC - Truth Social post 116423801851760712](116423801851760712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423801851760712
+  - _No text content captured._
+- [04:23 UTC - Truth Social post 116423800077115968](116423800077115968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423800077115968
+  - _No text content captured._
+- [04:12 UTC - Truth Social post 116423756564080425](116423756564080425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423756564080425
+  - _No text content captured._
+- [03:25 UTC - ANYONE SICK OF WINNING YET?](116423572074498917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423572074498917
+  - ANYONE SICK OF WINNING YET?
+- [02:55 UTC - Was Reed Hastings forced to leave the Netflix Board because he’s a SLEAZEBAG? What was his...](116423452270235983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423452270235983
+  - Was Reed Hastings forced to leave the Netflix Board because he’s a SLEAZEBAG? What was his Crime, and how many did he commit?
+- [02:27 UTC - Trump Tours Pharmaceutical Manufacturing Site in Cincinnati, Gives Update on Iran: 'Way Ah...](116423346036127010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423346036127010
+  - Trump Tours Pharmaceutical Manufacturing Site in Cincinnati, Gives Update on Iran: 'Way Ahead of Schedule’: [https://www. breitbart.com/middle-east/2026 /03/11/trump-tours-pharmace...
+- [02:25 UTC - President Xi is very happy that the Strait of Hormuz is open and/or rapidly opening. Our m...](116423336936103421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423336936103421
+  - President Xi is very happy that the Strait of Hormuz is open and/or rapidly opening. Our meeting in China will be a special one and, potentially, Historic. I look forward to being...
+- [02:17 UTC - Mueller probe cut corners, broke rules to ‘get Trump,’ whistleblower claims: [https:// nyp...](116423303405254078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423303405254078
+  - Mueller probe cut corners, broke rules to ‘get Trump,’ whistleblower claims: [https:// nypost.com/2026/03/16/us-news/ mueller-probe-cut-corners-broke-rules-to-get-trump-whistleblow...
+- [02:11 UTC - Trump touts ‘historic’ $300B Texas refinery as first new US plant in nearly 50 years: [htt...](116423281657895037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423281657895037
+  - Trump touts ‘historic’ $300B Texas refinery as first new US plant in nearly 50 years: [https://www. foxbusiness.com/energy/trump-t outs-historic-300b-texas-refinery-first-new-us-pl...
+- [01:37 UTC - Trump: Policies Like No Tax on Tips, Overtime Show GOP Is Party of Working Class: [https:/...](116423145937825528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423145937825528
+  - Trump: Policies Like No Tax on Tips, Overtime Show GOP Is Party of Working Class: [https://www. breitbart.com/politics/2026/04 /16/trump-policies-like-no-tax-on-tips-overtime-show-...
+- [01:36 UTC - Trump: Tax Deductions Deliver 'Biggest Refunds' for Tipped Workers: [https://www. newsmax....](116423143761972299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423143761972299
+  - Trump: Tax Deductions Deliver 'Biggest Refunds' for Tipped Workers: [https://www. newsmax.com/us/las-vegas-donal d-trump-tips/2026/04/17/id/1253271/](https://www.newsmax.com/us/las...
+- [01:35 UTC - Trump credits Las Vegas as the ‘birthplace’ of no tax on tips policy, touts up to ‘$8,000′...](116423140793678361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423140793678361
+  - Trump credits Las Vegas as the ‘birthplace’ of no tax on tips policy, touts up to ‘$8,000′ refunds for workers: [https:// nypost.com/2026/04/16/us-news/ trump-credits-las-vegas-as-...
+- [01:34 UTC - Trump reflects on Charlie Kirk at TPUSA rally: 'Charlie's voice is not silenced, it's roar...](116423134926254421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423134926254421
+  - Trump reflects on Charlie Kirk at TPUSA rally: 'Charlie's voice is not silenced, it's roaring': [https:// justthenews.com/politics-polic y/all-things-trump/trump-reflects-charlie-k...
+- [01:33 UTC - Trump reveals 'very interesting' findings in top secret government UFO files and says they...](116423133703021080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423133703021080
+  - Trump reveals 'very interesting' findings in top secret government UFO files and says they'll be released 'very soon': [https://www. dailymail.co.uk/news/article-1 5743779/donald-t...
+- [01:12 UTC - Truth Social post 116423050201559655](116423050201559655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116423050201559655
+  - _No text content captured._
+- [00:41 UTC - Truth Social post 116422927270730327](116422927270730327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116422927270730327
+  - _No text content captured._

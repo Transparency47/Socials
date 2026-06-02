@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2026-04-27
+
+- Posts: 12
+
+- [20:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478468387174911](116478469092308736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478469092308736
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478468387174911
+- [20:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478466541183406](116478468387174911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478468387174911
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478466541183406
+- [20:05 UTC - Truth Social post 116478466541183406](116478466541183406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478466541183406
+  - _No text content captured._
+- [20:04 UTC - Former Governor Roy Cooper made this Tragedy happen. Vote for Michael Whatley!](116478462755354807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478462755354807
+  - Former Governor Roy Cooper made this Tragedy happen. Vote for Michael Whatley!
+- [20:04 UTC - Truth Social post 116478461999751272](116478461999751272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478461999751272
+  - _No text content captured._
+- [20:04 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478459241932393 When this pr...](116478460968847845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478460968847845
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116478459241932393 When this project is finished, it will be fantastic!
+- [20:03 UTC - Truth Social post 116478459241932393](116478459241932393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478459241932393
+  - _No text content captured._
+- [18:56 UTC - The Radical Left Democrats have kept DHS shut down since February 14th. Our Great Speaker,...](116478194977749312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116478194977749312
+  - The Radical Left Democrats have kept DHS shut down since February 14th. Our Great Speaker, Mike Johnson, is working hard to end the Democrat Shut Down, and pass the first step of a...
+- [17:26 UTC - Wow, Jimmy Kimmel, who is in no way funny as attested to by his terrible Television Rating...](116477838570626860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116477838570626860
+  - Wow, Jimmy Kimmel, who is in no way funny as attested to by his terrible Television Ratings, made a statement on his Show that is really shocking. He showed a fake video of the Fir...
+- [03:00 UTC - GREAT IDEA!!! DO IT. President DJT](116474434041424846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116474434041424846
+  - GREAT IDEA!!! DO IT. President DJT
+- [02:52 UTC - Lee and Kim Greenwood, two of the most spectacular people, had their first grandchild on A...](116474402720502063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116474402720502063
+  - Lee and Kim Greenwood, two of the most spectacular people, had their first grandchild on April 17th. They were with me from the very beginning - Total loyalty, and Lee gave me the...
+- [00:30 UTC - Truth Social post 116473845703268740](116473845703268740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116473845703268740
+  - _No text content captured._

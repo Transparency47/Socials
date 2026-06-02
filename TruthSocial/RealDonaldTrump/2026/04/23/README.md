@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2026-04-23
+
+- Posts: 22
+
+- [22:51 UTC - It was my Great Honor to meet with the Mayor of Los Angeles, Karen Bass, Fifth District Su...](116456468852658900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116456468852658900
+  - It was my Great Honor to meet with the Mayor of Los Angeles, Karen Bass, Fifth District Supervisor Kathryn Barger (Los Angeles County Board of Supervisors), and the Supervisor’s Ch...
+- [22:23 UTC - I LOVE TRUTH SOCIAL! President DONALD J. TRUMP](116456358242090182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116456358242090182
+  - I LOVE TRUTH SOCIAL! President DONALD J. TRUMP
+- [22:22 UTC - In December, I signed a very important Executive Order calling for Research and Innovation...](116456354024090916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116456354024090916
+  - In December, I signed a very important Executive Order calling for Research and Innovation for Hemp-derived CBD — Something that has made a HUGE difference for so many people. In f...
+- [21:21 UTC - The President of the United States, DONALD J. TRUMP, Vice President of the United States, ...](116456113408853958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116456113408853958
+  - The President of the United States, DONALD J. TRUMP, Vice President of the United States, JD Vance, Secretary of State, Marco Rubio, Ambassador to Israel, Mike Huckabee, and Ambass...
+- [19:11 UTC - Truth Social post 116455604892115486](116455604892115486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116455604892115486
+  - _No text content captured._
+- [18:21 UTC - For those people, fewer in number now than ever before, that are reading The Failing New Y...](116455405423651208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116455405423651208
+  - For those people, fewer in number now than ever before, that are reading The Failing New York Times, or watching Fake News CNN, that think that I am “anxious” to end the War (if yo...
+- [17:25 UTC - John Phelan is a long time friend, and very successful businessman, who did an outstanding...](116455187676369886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116455187676369886
+  - John Phelan is a long time friend, and very successful businessman, who did an outstanding job serving as my Secretary Of The Navy for the last year. John helped my Administration...
+- [16:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116455073673687636](116455074765622801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116455074765622801
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116455073673687636
+- [16:56 UTC - Truth Social post 116455073673687636](116455073673687636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116455073673687636
+  - _No text content captured._
+- [14:25 UTC - Wow! Cryin’ Chuck Schumer just said, for the whole World to hear, that “NOBODY RESPECTS BO...](116454478250206122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454478250206122
+  - Wow! Cryin’ Chuck Schumer just said, for the whole World to hear, that “NOBODY RESPECTS BORDER PATROL OR ICE.” That is one of the most egregious, incorrect, unpatriotic, and danger...
+- [13:27 UTC - Very true!!! President DJT Marc Thiessen: Trump doesn’t need a deal to get what he wants f...](116454250724920799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454250724920799
+  - Very true!!! President DJT Marc Thiessen: Trump doesn’t need a deal to get what he wants from Iran: [https://www. washingtonpost.com/opinions/20 26/04/22/trump-best-move-iran-negot...
+- [13:14 UTC - Iran is having a very hard time figuring out who their leader is! They just don’t know! Th...](116454200707517482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454200707517482
+  - Iran is having a very hard time figuring out who their leader is! They just don’t know! The infighting is between the “Hardliners,” who have been losing BADLY on the battlefield, a...
+- [12:45 UTC - I have ordered the United States Navy to shoot and kill any boat, small boats though they ...](116454087460626531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454087460626531
+  - I have ordered the United States Navy to shoot and kill any boat, small boats though they may be (Their naval ships are ALL, 159 of them, at the bottom of the sea!), that is puttin...
+- [12:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116454084432361586](116454085728043553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454085728043553
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116454084432361586
+- [12:45 UTC - Truth Social post 116454084432361586](116454084432361586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116454084432361586
+  - _No text content captured._
+- [03:02 UTC - Trump says Iran won’t execute 8 women after he demanded their release: [https:// nypost.co...](116451794319444191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451794319444191
+  - Trump says Iran won’t execute 8 women after he demanded their release: [https:// nypost.com/2026/04/22/us-news/ trump-says-iran-wont-execute-8-women-after-he-pleaded-for-their-rele...
+- [03:02 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116451790242657015 Norm Eisen i...](116451791676032346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451791676032346
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116451790242657015 Norm Eisen is a major Sleazebag. You don’t get much lower than him!!!
+- [03:01 UTC - Truth Social post 116451790242657015](116451790242657015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451790242657015
+  - _No text content captured._
+- [02:59 UTC - DAVE BOSSIE: At Trump’s War Department, The Arsenal Of Freedom Roars Again: [https:// dail...](116451783206320481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451783206320481
+  - DAVE BOSSIE: At Trump’s War Department, The Arsenal Of Freedom Roars Again: [https:// dailycaller.com/2026/03/14/opi nion-at-trumps-war-department-the-arsenal-of-freedom-roars-agai...
+- [02:59 UTC - DAVE BOSSIE: Senate Republicans Must Stand Tall And Pass SAVE America Act: [https:// daily...](116451781911005042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451781911005042
+  - DAVE BOSSIE: Senate Republicans Must Stand Tall And Pass SAVE America Act: [https:// dailycaller.com/2026/02/14/opi nion-senate-republicans-must-stand-tall-and-pass-the-save-americ...
+- [02:58 UTC - Federal government must step up for election integrity: [https://www. washingtontimes.com/...](116451779493321892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451779493321892
+  - Federal government must step up for election integrity: [https://www. washingtontimes.com/news/2026/ jan/27/federal-government-must-step-election-integrity/](https://www.washington...
+- [02:58 UTC - DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [http...](116451778358145321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116451778358145321
+  - DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [https:// dailycaller.com/2026/01/18/opi nion-one-year-since-taking-office-trump-is-decimating-...

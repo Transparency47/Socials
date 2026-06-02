@@ -1,0 +1,91 @@
+# TruthSocial / RealDonaldTrump / 2026-04-24
+
+- Posts: 29
+
+- [22:17 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116461727359731405](116461998031415884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461998031415884
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116461727359731405
+- [21:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The first time Lafayette ...](116461907614781054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461907614781054
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The first time Lafayette Park Fountains, opposite the White House, have worked in decades. My Great Honor to have f...
+- [21:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) This is the Reflecting Po...](116461907413801229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461907413801229
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) This is the Reflecting Pool at The Lincoln Memorial. Two thousand five hundred feet, the length of the tallest Buil...
+- [21:49 UTC - Hakeem “High Tax” Jeffries is a Low IQ individual who is not smart enough to be “running” ...](116461888951176964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461888951176964
+  - Hakeem “High Tax” Jeffries is a Low IQ individual who is not smart enough to be “running” the Democrat Party, and certainly not smart enough to be involved in running the United St...
+- [21:42 UTC - Candace Owens’ stock, which was never very high, has fallen a long way. Her attack on the ...](116461858227528789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461858227528789
+  - Candace Owens’ stock, which was never very high, has fallen a long way. Her attack on the First Lady of France is despicable. I believe, in this case, without verification, she is...
+- [21:17 UTC - The first time Lafayette Park Fountains, opposite the White House, have worked in decades....](116461762059093125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461762059093125
+  - The first time Lafayette Park Fountains, opposite the White House, have worked in decades. My Great Honor to have funded this project (and many others!), and helped. President DONA...
+- [21:08 UTC - This is the Reflecting Pool at The Lincoln Memorial. Two thousand five hundred feet, the l...](116461727359731405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461727359731405
+  - This is the Reflecting Pool at The Lincoln Memorial. Two thousand five hundred feet, the length of the tallest Building in the World. Starting the final phase of Renovation that wa...
+- [19:07 UTC - People and Companies that have taken advantage of our Country for decades, because of the ...](116461251395384536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116461251395384536
+  - People and Companies that have taken advantage of our Country for decades, because of the horrible and ridiculous United States Supreme Court decision on Tariffs, are now supposed...
+- [16:53 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116460723071984462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116460723071984462
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [11:33 UTC - Trump push to restrain birthright citizenship gets ammo from unlikely source: liberal poll...](116459464443597925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116459464443597925
+  - Trump push to restrain birthright citizenship gets ammo from unlikely source: liberal polling group: [https:// justthenews.com/politics-polic y/all-things-trump/trump-push-restrain...
+- [11:33 UTC - Report: Leftist SPLC’s Former Head Margaret Huang Weaponized Group Against Conservatives: ...](116459463235747487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116459463235747487
+  - Report: Leftist SPLC’s Former Head Margaret Huang Weaponized Group Against Conservatives: [https://www. breitbart.com/politics/2026/04 /23/report-leftist-splcs-former-head-margaret...
+- [06:45 UTC - Schweizer Exclusive: Walls Are Closing In on Birth Tourism Industry, But We Must Act Now E...](116458331768962924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116458331768962924
+  - Schweizer Exclusive: Walls Are Closing In on Birth Tourism Industry, But We Must Act Now Episode 392 - 4/23/26: [https:// web.breitbart.com/videos/schwe izer-exclusive-walls-are-cl...
+- [06:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116458328588094795 [https:// x....](116458329742658852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116458329742658852
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116458328588094795 [https:// x.com/elonmusk/status/20472247 80374610091?s=10](https://x.com/elonmusk/status/2047224780374...
+- [06:44 UTC - Truth Social post 116458328588094795](116458328588094795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116458328588094795
+  - _No text content captured._
+- [06:44 UTC - Truth Social post 116458327255007454](116458327255007454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116458327255007454
+  - _No text content captured._
+- [06:43 UTC - Truth Social post 116458325640305213](116458325640305213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116458325640305213
+  - _No text content captured._
+- [05:13 UTC - The Southern Poverty Law Center, one of the greatest political scams in American History, ...](116457972455781406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457972455781406
+  - The Southern Poverty Law Center, one of the greatest political scams in American History, has been charged with FRAUD. This is another Democrat Hoax, along with Act Blue, and many...
+- [04:29 UTC - Truth Social post 116457796297442684](116457796297442684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457796297442684
+  - _No text content captured._
+- [04:28 UTC - Truth Social post 116457792791951924](116457792791951924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457792791951924
+  - _No text content captured._
+- [04:28 UTC - Truth Social post 116457791902483604](116457791902483604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457791902483604
+  - _No text content captured._
+- [04:27 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457788834581503](116457789709036829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457789709036829
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457788834581503
+- [04:27 UTC - Truth Social post 116457788834581503](116457788834581503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457788834581503
+  - _No text content captured._
+- [04:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457769351723599](116457770297154205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457770297154205
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457769351723599
+- [04:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457768187860591](116457769351723599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457769351723599
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116457768187860591
+- [04:21 UTC - Truth Social post 116457768187860591](116457768187860591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457768187860591
+  - _No text content captured._
+- [04:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446310089816543](116457759429935034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457759429935034
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446310089816543
+- [04:19 UTC - Great Patriots!!! President DJT](116457756634688413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457756634688413
+  - Great Patriots!!! President DJT
+- [04:18 UTC - Cryin’ Chuck Schumer should resign over this. He won’t be missed! President DJT](116457753768206600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457753768206600
+  - Cryin’ Chuck Schumer should resign over this. He won’t be missed! President DJT
+- [04:04 UTC - Trump admin live updates: Prez announces Israel-Lebanon cease-fire extended by 3 weeks: [h...](116457698503699594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116457698503699594
+  - Trump admin live updates: Prez announces Israel-Lebanon cease-fire extended by 3 weeks: [https:// nypost.com/2026/04/20/us-news/ trump-admin-live-updates-april-20-21-22-23-24/](htt...

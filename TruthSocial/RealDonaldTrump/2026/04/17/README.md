@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-04-17
+
+- Posts: 17
+
+- [20:39 UTC - Later today, I will be speaking to a BIG CROWD for Turning Point USA in the Great State of...](116421975390940454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421975390940454
+  - Later today, I will be speaking to a BIG CROWD for Turning Point USA in the Great State of Arizona, then flying back to the White House and, therefore, will not be at Mar-a-Lago to...
+- [19:24 UTC - Truth Social post 116421679527758966](116421679527758966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421679527758966
+  - _No text content captured._
+- [19:23 UTC - They were not there for us!](116421678154340515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421678154340515
+  - They were not there for us!
+- [19:23 UTC - Truth Social post 116421677114471130](116421677114471130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421677114471130
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116421676094382308](116421676094382308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421676094382308
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 116421675274870411](116421675274870411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421675274870411
+  - _No text content captured._
+- [19:22 UTC - Truth Social post 116421674102557870](116421674102557870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421674102557870
+  - _No text content captured._
+- [19:22 UTC - DeSantis signs bill to rename Palm Beach International Airport after Donald J. Trump: [htt...](116421673135051159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421673135051159
+  - DeSantis signs bill to rename Palm Beach International Airport after Donald J. Trump: [https://www. wptv.com/news/trump/desantis-s igns-bill-to-rename-palm-beach-international-airp...
+- [19:22 UTC - Senate confirms DOJ’s new ‘War on Fraud’ prosecutor Colin McDonald — with VP Vance’s backi...](116421671494376872/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421671494376872
+  - Senate confirms DOJ’s new ‘War on Fraud’ prosecutor Colin McDonald — with VP Vance’s backing: [https:// nypost.com/2026/03/24/us-news/ senate-confirms-dojs-new-top-fraud-prosecutor...
+- [19:21 UTC - Trump Effect: Apple Expands American Manufacturing Program with 4 Partners: [https://www. ...](116421668823698549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421668823698549
+  - Trump Effect: Apple Expands American Manufacturing Program with 4 Partners: [https://www. breitbart.com/tech/2026/03/26/ trump-effect-apple-expands-american-manufacturing-program-w...
+- [19:21 UTC - Truth Social post 116421667191616857](116421667191616857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116421667191616857
+  - _No text content captured._
+- [14:58 UTC - The Failing New York Times, FAKE NEWS CNN, and others, just don’t know what to do. They ar...](116420635683173112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420635683173112
+  - The Failing New York Times, FAKE NEWS CNN, and others, just don’t know what to do. They are desperately looking for a reason to criticize President Donald J. Trump on the Iran situ...
+- [14:40 UTC - Iran has agreed to never close the Strait of Hormuz again. It will no longer be used as a ...](116420562510387829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420562510387829
+  - Iran has agreed to never close the Strait of Hormuz again. It will no longer be used as a weapon against the World! President DONALD J. TRUMP
+- [14:33 UTC - A GREAT AND BRILLIANT DAY FOR THE WORLD! DJT](116420534754267698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420534754267698
+  - A GREAT AND BRILLIANT DAY FOR THE WORLD! DJT
+- [14:30 UTC - Thank you to Pakistan and its Great Prime Minister and Field Marshall, two fantastic peopl...](116420525257407908/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420525257407908
+  - Thank you to Pakistan and its Great Prime Minister and Field Marshall, two fantastic people!!! President DONALD J. TRUMP
+- [14:27 UTC - Again! This deal is not tied, in any way, to Lebanon, but we will, MAKE LEBANON GREAT AGAI...](116420512192383443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420512192383443
+  - Again! This deal is not tied, in any way, to Lebanon, but we will, MAKE LEBANON GREAT AGAIN!
+- [14:20 UTC - Iran, with the help of the U.S.A., has removed, or is removing, all sea mines! Thank you! ...](116420484827577347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116420484827577347
+  - Iran, with the help of the U.S.A., has removed, or is removing, all sea mines! Thank you! President DJT

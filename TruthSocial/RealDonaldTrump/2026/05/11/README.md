@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2026-05-11
+
+- Posts: 35
+
+- [23:28 UTC - As I said at my State of the Union Address on February 25th, the American Dream of Homeown...](116558534552033932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558534552033932
+  - As I said at my State of the Union Address on February 25th, the American Dream of Homeownership is under attack. For example, Rachel Wiggins, a mom of two, from Houston, placed bi...
+- [23:14 UTC - The South Carolina State Senate has a big vote tomorrow on Redistricting. I’m watching clo...](116558478762586433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558478762586433
+  - The South Carolina State Senate has a big vote tomorrow on Redistricting. I’m watching closely, along with all Republicans across the Country who are counting on their Elected Lead...
+- [22:02 UTC - It is my Great Honor to nominate Michael Martin to serve as Judge on the U.S. District Cou...](116558198309722328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558198309722328
+  - It is my Great Honor to nominate Michael Martin to serve as Judge on the U.S. District Court for the Eastern District of Michigan! Mike has served as a Federal Prosecutor for more...
+- [22:01 UTC - I am pleased to announce the nomination of Antonio Pozos to serve as Judge on the U.S. Dis...](116558195264551168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558195264551168
+  - I am pleased to announce the nomination of Antonio Pozos to serve as Judge on the U.S. District Court for the Eastern District of Pennsylvania. A partner at a major Law Firm in Phi...
+- [22:01 UTC - I am proud to announce the nomination of Angela Colmenero to serve as Judge on the United ...](116558192022164843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558192022164843
+  - I am proud to announce the nomination of Angela Colmenero to serve as Judge on the United States District Court for the Southern District of Texas. Angela has done an incredible jo...
+- [22:00 UTC - I am pleased to nominate Kasdin Mitchell to serve as Judge on the United States District C...](116558189008383685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558189008383685
+  - I am pleased to nominate Kasdin Mitchell to serve as Judge on the United States District Court for the Northern District of Texas. Kasdin received her Bachelor’s Degree from Yale U...
+- [21:59 UTC - I am pleased to announce the nomination of Daniel Domenico to serve as Judge on the United...](116558186330973609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558186330973609
+  - I am pleased to announce the nomination of Daniel Domenico to serve as Judge on the United States Court of Appeals for the Tenth Circuit in Colorado. As a Judge on the Federal Dist...
+- [21:58 UTC - I am pleased to announce the nomination of Daniel Traynor to serve as Judge on the United ...](116558181455512054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558181455512054
+  - I am pleased to announce the nomination of Daniel Traynor to serve as Judge on the United States Court of Appeals for the Eighth Circuit in North Dakota. During his time as a Feder...
+- [21:55 UTC - I am very much looking forward to my trip to China, an amazing Country, with a Leader, Pre...](116558170867310769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116558170867310769
+  - I am very much looking forward to my trip to China, an amazing Country, with a Leader, President Xi, respected by all. Great things will happen for both Countries! President DONALD...
+- [11:56 UTC - Red states follow Trump’s model, seek to rid Islamist influence in local lawmaking: [https...](116555813332345064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116555813332345064
+  - Red states follow Trump’s model, seek to rid Islamist influence in local lawmaking: [https:// justthenews.com/politics-polic y/red-states-follow-trumps-model-seek-de-islamify-homel...
+- [02:31 UTC - [https:// truthsocial.com/users/talkthes treet/statuses/116553400784613678](https://truths...](116553591692058270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553591692058270
+  - [https:// truthsocial.com/users/talkthes treet/statuses/116553400784613678](https://truthsocial.com/users/talkthestreet/statuses/116553400784613678)
+- [02:30 UTC - [https:// truthsocial.com/users/talkthes treet/statuses/116553428619269411](https://truths...](116553589516972580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553589516972580
+  - [https:// truthsocial.com/users/talkthes treet/statuses/116553428619269411](https://truthsocial.com/users/talkthestreet/statuses/116553428619269411)
+- [02:30 UTC - [https:// truthsocial.com/users/talkthes treet/statuses/116553406635749528](https://truths...](116553587484190089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553587484190089
+  - [https:// truthsocial.com/users/talkthes treet/statuses/116553406635749528](https://truthsocial.com/users/talkthestreet/statuses/116553406635749528)
+- [02:29 UTC - [https:// truthsocial.com/users/lauramar ks/statuses/116553381753696135](https://truthsoci...](116553586537498656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553586537498656
+  - [https:// truthsocial.com/users/lauramar ks/statuses/116553381753696135](https://truthsocial.com/users/lauramarks/statuses/116553381753696135)
+- [02:29 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553400714497109](https://tr...](116553585376826272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553585376826272
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553400714497109](https://truthsocial.com/users/IStandWithTrump47/statuses/116553400714497109)
+- [02:28 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553387764258772](https://tr...](116553583052530415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553583052530415
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553387764258772](https://truthsocial.com/users/IStandWithTrump47/statuses/116553387764258772)
+- [02:28 UTC - [https:// truthsocial.com/users/mazurikl /statuses/116553394243150785](https://truthsocial...](116553580222628953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553580222628953
+  - [https:// truthsocial.com/users/mazurikl /statuses/116553394243150785](https://truthsocial.com/users/mazurikl/statuses/116553394243150785)
+- [02:27 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553460562965902](https://tr...](116553576558537687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553576558537687
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553460562965902](https://truthsocial.com/users/IStandWithTrump47/statuses/116553460562965902)
+- [02:26 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553395824743215](https://tr...](116553573082083140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553573082083140
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553395824743215](https://truthsocial.com/users/IStandWithTrump47/statuses/116553395824743215)
+- [02:26 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553392249496256](https://tr...](116553571606271755/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553571606271755
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553392249496256](https://truthsocial.com/users/IStandWithTrump47/statuses/116553392249496256) It is going up fast!!!
+- [02:25 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553475587406429](https://tr...](116553568884302823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553568884302823
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553475587406429](https://truthsocial.com/users/IStandWithTrump47/statuses/116553475587406429)
+- [02:25 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553393188507695](https://tr...](116553567787329878/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553567787329878
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553393188507695](https://truthsocial.com/users/IStandWithTrump47/statuses/116553393188507695)
+- [02:24 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553484785010798](https://tr...](116553565539501959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553565539501959
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553484785010798](https://truthsocial.com/users/IStandWithTrump47/statuses/116553484785010798)
+- [02:24 UTC - [https:// truthsocial.com/users/hddubble u/statuses/116553385891501526](https://truthsocia...](116553563962076412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553563962076412
+  - [https:// truthsocial.com/users/hddubble u/statuses/116553385891501526](https://truthsocial.com/users/hddubbleu/statuses/116553385891501526)
+- [02:23 UTC - [https:// truthsocial.com/users/GNorberg /statuses/116553381326742011](https://truthsocial...](116553562619701021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553562619701021
+  - [https:// truthsocial.com/users/GNorberg /statuses/116553381326742011](https://truthsocial.com/users/GNorberg/statuses/116553381326742011)
+- [02:22 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553398235372202](https://tr...](116553558549486258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553558549486258
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553398235372202](https://truthsocial.com/users/IStandWithTrump47/statuses/116553398235372202)
+- [02:22 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553457917637472](https://tr...](116553557139673047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553557139673047
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116553457917637472](https://truthsocial.com/users/IStandWithTrump47/statuses/116553457917637472)
+- [01:36 UTC - Excellent Poll Numbers. Thank you!](116553376180343363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553376180343363
+  - Excellent Poll Numbers. Thank you!
+- [00:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I “Love” Justice Neil Gor...](116553169158972167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553169158972167
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I “Love” Justice Neil Gorsuch! He’s a really smart and good man, but he voted against me, and our Country, on Tarif...
+- [00:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Magnificent Ballroom,...](116553168974979276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553168974979276
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Magnificent Ballroom, under construction, and ahead of schedule, at the White House! President DONALD J. TRUMP
+- [00:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) You could listen to FoxNe...](116553168797336891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553168797336891
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) You could listen to FoxNews all day long, absolutely devour it, but then, when you hear SLEAZEBAGS, like Congressma...
+- [00:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) “Any money paid to the Un...](116553168606874710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553168606874710
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) “Any money paid to the United States of America does not have to be paid back” — That sentence, if added by the Sup...
+- [00:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left Dumacrat...](116553168397093593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553168397093593
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left Dumacrats must fail — Our Country is at stake! President DONALD J. TRUMP
+- [00:43 UTC - Truth Social post 116553167577514485](116553167577514485/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553167577514485
+  - _No text content captured._
+- [00:43 UTC - Truth Social post 116553166840569124](116553166840569124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116553166840569124
+  - _No text content captured._

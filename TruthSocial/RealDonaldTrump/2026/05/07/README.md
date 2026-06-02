@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-05-07
+
+- Posts: 17
+
+- [22:34 UTC - Three World Class American Destroyers just transited, very successfully, out of the Strait...](116535672760322109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116535672760322109
+  - Three World Class American Destroyers just transited, very successfully, out of the Strait of Hormuz, under fire. There was no damage done to the three Destroyers, but great damage...
+- [19:33 UTC - Congressman Mike Lawler is doing a terrific job for New York’s 17th Congressional District...](116534963165832789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116534963165832789
+  - Congressman Mike Lawler is doing a terrific job for New York’s 17th Congressional District! Mike will most likely be running against a Radical Left Democrat named Effie Phillips-St...
+- [19:31 UTC - It is my Great Honor to endorse MAGA Warrior, Jackson Lahmeyer, who is running to represen...](116534955446755104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116534955446755104
+  - It is my Great Honor to endorse MAGA Warrior, Jackson Lahmeyer, who is running to represent the fantastic people of Oklahoma’s 1st Congressional District, and has been with me from...
+- [19:07 UTC - I had a great call with The President of the European Commission, Ursula von der Leyen. We...](116534860307993853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116534860307993853
+  - I had a great call with The President of the European Commission, Ursula von der Leyen. We discussed many topics, including that we are completely united that Iran can never have a...
+- [18:22 UTC - Just concluded my meeting with Luiz Inácio Lula da Silva, the very dynamic President of Br...](116534681802624852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116534681802624852
+  - Just concluded my meeting with Luiz Inácio Lula da Silva, the very dynamic President of Brazil. We discussed many topics, including Trade and, specifically, Tariffs. The meeting we...
+- [14:14 UTC - Barry Moore, running for United States Senate in the GREAT State of Alabama, one of my all...](116533706998812043/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116533706998812043
+  - Barry Moore, running for United States Senate in the GREAT State of Alabama, one of my all time favorites, is a Fantastic guy and a totally reliable MAGA Warrior! He has my Complet...
+- [13:05 UTC - This lunatic, Hakeem “Low IQ” Jeffries, should be charged with INCITING VIOLENCE! The Radi...](116533436964740040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116533436964740040
+  - This lunatic, Hakeem “Low IQ” Jeffries, should be charged with INCITING VIOLENCE! The Radical Left Democrats actually want to Destroy our Country. President DJT
+- [12:14 UTC - The Real Deal - GOLD - At Doral in Miami. Put there by great American Patriots!!! Presiden...](116533234584336287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116533234584336287
+  - The Real Deal - GOLD - At Doral in Miami. Put there by great American Patriots!!! President DJT
+- [11:15 UTC - [https:// stocks.apple.com/symbol/%5EDJI](https://stocks.apple.com/symbol/%5EDJI)](116533004958135086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116533004958135086
+  - [https:// stocks.apple.com/symbol/%5EDJI](https://stocks.apple.com/symbol/%5EDJI)
+- [11:04 UTC - A highly accurate depiction of the Sleepy Joe Biden Administration. Tremendous damage done...](116532960075277957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116532960075277957
+  - A highly accurate depiction of the Sleepy Joe Biden Administration. Tremendous damage done but, WE’RE BACK!!! President DJT
+- [03:00 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Lilly commits additional ...](116531055926744727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116531055926744727
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Lilly commits additional $4.5 billion across Indiana manufacturing sites, opens first dedicated genetic medicine fa...
+- [02:59 UTC - Truth Social post 116531055588403909](116531055588403909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116531055588403909
+  - _No text content captured._
+- [02:35 UTC - Wow. Study this Chart! President DJT](116530958523656778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530958523656778
+  - Wow. Study this Chart! President DJT
+- [01:19 UTC - New Trump counterterrorism strategy elevates threats from leftist groups like Antifa: [htt...](116530659808023358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530659808023358
+  - New Trump counterterrorism strategy elevates threats from leftist groups like Antifa: [https:// justthenews.com/government/sec urity/new-trump-counterterrorism-strategy-elevates-th...
+- [01:16 UTC - Stock Market hit an ALL-TIME HIGH TODAY. Jobs & 401-K’s are BOOMING!!!](116530650590886544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530650590886544
+  - Stock Market hit an ALL-TIME HIGH TODAY. Jobs & 401-K’s are BOOMING!!!
+- [01:13 UTC - Washington D.C. CRIME is at its lowest point in 30 years, plus! President DJT](116530635363991354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530635363991354
+  - Washington D.C. CRIME is at its lowest point in 30 years, plus! President DJT
+- [01:08 UTC - Chuck Devore, Army Intelligence, was fantastic tonight on Jesse Watters. Thank you Chuck!!...](116530619109975255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116530619109975255
+  - Chuck Devore, Army Intelligence, was fantastic tonight on Jesse Watters. Thank you Chuck!!! President DJT

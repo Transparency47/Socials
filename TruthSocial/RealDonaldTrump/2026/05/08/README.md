@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-05-08
+
+- Posts: 17
+
+- [23:45 UTC - Truth Social post 116541616849190072](116541616849190072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116541616849190072
+  - _No text content captured._
+- [23:01 UTC - Happy Mother's Day weekend to all, especially to the 115 THOUSAND AMERICANS who found jobs...](116541441748752361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116541441748752361
+  - Happy Mother's Day weekend to all, especially to the 115 THOUSAND AMERICANS who found jobs in the month of April alone! As usual, over 90 percent of Bloomberg Economists (nearly al...
+- [22:46 UTC - [https://www. whitehouse.gov/presidential-ac tions/2026/05/military-spouse-day-2026/](http...](116541383773253436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116541383773253436
+  - [https://www. whitehouse.gov/presidential-ac tions/2026/05/military-spouse-day-2026/](https://www.whitehouse.gov/presidential-actions/2026/05/military-spouse-day-2026/)
+- [21:20 UTC - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is runni...](116541046431880952/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116541046431880952
+  - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is running to represent the incredible people of Wisconsin’s 7th Congressional District. Michael i...
+- [18:00 UTC - I am pleased to announce that there will be a THREE DAY CEASEFIRE (May 9th, 10th, and 11th...](116540259118606629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116540259118606629
+  - I am pleased to announce that there will be a THREE DAY CEASEFIRE (May 9th, 10th, and 11th) in the War between Russia and Ukraine. The Celebration in Russia is for Victory Day but,...
+- [15:11 UTC - As for my promise to you, the Department of War has released the first tranche of the UFO/...](116539593510480846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116539593510480846
+  - As for my promise to you, the Department of War has released the first tranche of the UFO/UAP files to the Public for their review and study. In an effort for Complete and Maximum...
+- [14:52 UTC - Huge win for the Republican Party, and America, in Virginia. The Virginia Supreme Court ha...](116539521227824996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116539521227824996
+  - Huge win for the Republican Party, and America, in Virginia. The Virginia Supreme Court has just struck down the Democrats’ horrible gerrymander. MAKE AMERICA GREAT AGAIN! Presiden...
+- [14:52 UTC - Amazing — Bryson doing 30 Pull Ups at the White House for the reinstatement of the Preside...](116539519628279146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116539519628279146
+  - Amazing — Bryson doing 30 Pull Ups at the White House for the reinstatement of the Presidential Fitness Test! President DJT
+- [14:51 UTC - Bryson DeChambeau and Gary Player doing 50 Push Ups at the White House for the reinstateme...](116539515540417858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116539515540417858
+  - Bryson DeChambeau and Gary Player doing 50 Push Ups at the White House for the reinstatement of the Presidential Fitness Test! President DJT
+- [11:35 UTC - Truth Social post 116538744632772768](116538744632772768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538744632772768
+  - _No text content captured._
+- [09:42 UTC - Truth Social post 116538300884526018](116538300884526018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538300884526018
+  - _No text content captured._
+- [09:41 UTC - Truth Social post 116538298706338172](116538298706338172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538298706338172
+  - _No text content captured._
+- [09:41 UTC - Truth Social post 116538297731564319](116538297731564319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538297731564319
+  - _No text content captured._
+- [09:41 UTC - Truth Social post 116538297026327097](116538297026327097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538297026327097
+  - _No text content captured._
+- [09:41 UTC - June 14th. Biggest ever!!! DJT](116538296068946492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116538296068946492
+  - June 14th. Biggest ever!!! DJT
+- [04:16 UTC - Hakeem Jeffries doubles down on 'maximum warfare' rhetoric, tells critics 'I don't give a ...](116537018709721851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116537018709721851
+  - Hakeem Jeffries doubles down on 'maximum warfare' rhetoric, tells critics 'I don't give a damn': [https://www. foxnews.com/politics/hakeem-je ffries-doubles-maximum-warfare-rhetori...
+- [04:13 UTC - Truth Social post 116537006626214418](116537006626214418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116537006626214418
+  - _No text content captured._

@@ -1,0 +1,106 @@
+# TruthSocial / RealDonaldTrump / 2026-05-04
+
+- Posts: 34
+
+- [23:31 UTC - Truth Social post 116518912454033951](116518912454033951/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116518912454033951
+  - _No text content captured._
+- [23:31 UTC - Truth Social post 116518910348493372](116518910348493372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116518910348493372
+  - _No text content captured._
+- [23:31 UTC - Truth Social post 116518909671948704](116518909671948704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116518909671948704
+  - _No text content captured._
+- [23:30 UTC - Truth Social post 116518909191849692](116518909191849692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116518909191849692
+  - _No text content captured._
+- [19:32 UTC - Truth Social post 116517971613241979](116517971613241979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517971613241979
+  - _No text content captured._
+- [19:31 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517965109663490](116517966688641210/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517966688641210
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517965109663490
+- [19:30 UTC - Truth Social post 116517965109663490](116517965109663490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517965109663490
+  - _No text content captured._
+- [19:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517961880896424](116517963839401341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517963839401341
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517961880896424
+- [19:30 UTC - Truth Social post 116517961880896424](116517961880896424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517961880896424
+  - _No text content captured._
+- [19:28 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517956925573430](116517957774114507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517957774114507
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116517956925573430
+- [19:28 UTC - Truth Social post 116517956925573430](116517956925573430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517956925573430
+  - _No text content captured._
+- [19:11 UTC - Truth Social post 116517890389904720](116517890389904720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517890389904720
+  - _No text content captured._
+- [18:54 UTC - I made the U.S.A. 45 Billion Dollars in 8 months!](116517823265377690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517823265377690
+  - I made the U.S.A. 45 Billion Dollars in 8 months!
+- [18:53 UTC - “Too Late” is a DISASTER for America! Interest Rates too high!](116517816855483204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517816855483204
+  - “Too Late” is a DISASTER for America! Interest Rates too high!
+- [18:46 UTC - Truth Social post 116517788900416365](116517788900416365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517788900416365
+  - _No text content captured._
+- [18:44 UTC - Truth Social post 116517784774496172](116517784774496172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517784774496172
+  - _No text content captured._
+- [18:44 UTC - Truth Social post 116517784194013112](116517784194013112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517784194013112
+  - _No text content captured._
+- [18:44 UTC - Truth Social post 116517783597498106](116517783597498106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517783597498106
+  - _No text content captured._
+- [18:44 UTC - Truth Social post 116517781539444116](116517781539444116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517781539444116
+  - _No text content captured._
+- [18:44 UTC - Truth Social post 116517780907488663](116517780907488663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517780907488663
+  - _No text content captured._
+- [18:43 UTC - Truth Social post 116517780283007335](116517780283007335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517780283007335
+  - _No text content captured._
+- [18:43 UTC - Truth Social post 116517779523646868](116517779523646868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517779523646868
+  - _No text content captured._
+- [18:43 UTC - Truth Social post 116517778806875915](116517778806875915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517778806875915
+  - _No text content captured._
+- [18:42 UTC - Kennedy Center Rep to Newsmax: Previous Management Ran Facility Into Ground: [https://www....](116517774797366596/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517774797366596
+  - Kennedy Center Rep to Newsmax: Previous Management Ran Facility Into Ground: [https://www. newsmax.com/newsmax-tv/roma-da ravi-newsmax-trump-kennedy-center/2026/02/16/id/1246314/](...
+- [18:42 UTC - Rent Check Test: How Trump's Policy Shift Is Easing Home Prices: [https://www. realclearma...](116517773335418303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517773335418303
+  - Rent Check Test: How Trump's Policy Shift Is Easing Home Prices: [https://www. realclearmarkets.com/articles/ 2026/02/19/rent_check_test_how_trumps_policy_shift_is_easing_home_pric...
+- [18:41 UTC - From Texas Lieutenant Governor Dan Patrick: “Mr. President, This is what I shared with you...](116517769886308639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517769886308639
+  - From Texas Lieutenant Governor Dan Patrick: “Mr. President, This is what I shared with you. 1. Your overall support with Republicans is 89% in Texas. With those who identify as con...
+- [18:39 UTC - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON B...](116517763130501652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517763130501652
+  - Greg Abbott is the strong and highly respected Governor of Texas, a State I love and WON BIG three times, including with 6.4 Million Votes in 2024 (The most Votes in History, BY FA...
+- [18:38 UTC - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. ...](116517760919998028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517760919998028
+  - I am proud to once again endorse Texas Lieutenant Governor, Dan Patrick, for Re-Election. As Texas Chair of our Presidential Campaigns in 2016, 2020, and 2024, Dan has been an incr...
+- [17:37 UTC - Jonathan Karl, of ABC Fake News, made a statement that I called him early in the morning, ...](116517518026675740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517518026675740
+  - Jonathan Karl, of ABC Fake News, made a statement that I called him early in the morning, the day after the assassination attempt, to ask whether or not HE was OK. No, this was a h...
+- [17:16 UTC - Iran has taken some shots at unrelated Nations with respect to the Ship Movement, PROJECT ...](116517438678419639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116517438678419639
+  - Iran has taken some shots at unrelated Nations with respect to the Ship Movement, PROJECT FREEDOM, including a South Korean Cargo Ship. Perhaps it’s time for South Korea to come an...
+- [13:46 UTC - Truth Social post 116516611823825740](116516611823825740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116516611823825740
+  - _No text content captured._
+- [13:35 UTC - Truth Social post 116516566831328525](116516566831328525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116516566831328525
+  - _No text content captured._
+- [12:20 UTC - When a devastated (he was crying like a baby!) Van Jones of CNN came to me with a group of...](116516271982832945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116516271982832945
+  - When a devastated (he was crying like a baby!) Van Jones of CNN came to me with a group of African American leaders, he had “DEAD” in getting Criminal Justice Reform approved in Co...
+- [02:51 UTC - TERMINATE THE FILIBUSTER, AND WIN!!! President DJT](116514034239300873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116514034239300873
+  - TERMINATE THE FILIBUSTER, AND WIN!!! President DJT

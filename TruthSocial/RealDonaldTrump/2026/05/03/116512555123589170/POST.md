@@ -1,0 +1,12 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116512555123589170 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116512555123589170 -->
+<!-- date_published: 2026-05-03T20:35:01.763000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:18:41.322123+00:00 -->
+
+# Countries from all over the World, almost all of which are not involved in the Middle East...
+
+Countries from all over the World, almost all of which are not involved in the Middle Eastern dispute going on so visibly, and violently, for all to see, have asked the United States if we could help free up their Ships, which are locked up in the Strait of Hormuz, on something which they have absolutely nothing to do with — They are merely neutral and innocent bystanders! For the good of Iran, the Middle East, and the United States, we have told these Countries that we will guide their Ships safely out of these restricted Waterways, so that they can freely and ably get on with their business. Again, these are Ships from areas of the World that are not in any way involved with that which is currently taking place in the Middle East. I have told my Representatives to inform them that we will use best efforts to get their Ships and Crews safely out of the Strait. In all cases, they said they will not be returning until the area becomes safe for navigation, and everything else. This process, Project Freedom, will begin Monday morning, Middle East time. I am fully aware that my Representatives are having very positive discussions with the Country of Iran, and that these discussions could lead to something very positive for all. The Ship movement is merely meant to free up people, companies, and Countries that have done absolutely nothing wrong — They are victims of circumstance. This is a Humanitarian gesture on behalf of the United States, Middle Eastern Countries but, in particular, the Country of Iran. Many of these Ships are running low on food, and everything else necessary for largescale crews to stay on board in a healthy and sanitary manner. I think it would go a long way in showing Goodwill on behalf of all of those who have been fighting so strenuously over the last number of months. If, in any way, this Humanitarian process is interfered with, that interference will, unfortunately, have to be dealt with forcefully. Thank you for your attention to this matter!
+DONALD J. TRUMP
+PRESIDENT OF THE UNITED STATES OF AMERICA

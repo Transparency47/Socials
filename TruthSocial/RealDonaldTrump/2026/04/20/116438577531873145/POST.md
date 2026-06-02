@@ -1,0 +1,12 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116438577531873145 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116438577531873145 -->
+<!-- date_published: 2026-04-20T19:01:33.294000+00:00 -->
+<!-- date_accessed: 2026-06-02T13:26:27.906278+00:00 -->
+
+# RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats are doing e...
+
+RT
+[@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+The Democrats are doing everything possible to hurt the very strong position we are in with respect to Iran. Despite World War I lasting 4 years, 3 months, and 14 days, World War II lasting 6 years and 1 day, the Korean War lasting 3 years, 1 month, and 2 days, the Vietnam War lasting 19 years, 5 months, and 29 days, and Iraq lasting 8 years, 8 months, and 28 days, they like to say that I promised 6 weeks to defeat Iran, and actually, from the Military standpoint, it was far faster than that, but I’m not going to let them rush the United States into making a Deal that is not as good as it could have been. I read the Fake News saying that I am under “pressure” to make a Deal. THIS IS NOT TRUE! I am under no pressure whatsoever, although, it will all happen, relatively quickly! Time is not my adversary, the only thing that matters is that we finally, after 47 years, straighten out the MESS that other Presidents let happen because they didn’t have the Courage or Foresight to do what had to be done with respect to Iran. We’re in it, and it will be done RIGHT, and we won’t let the Weak and Pathetic Democrats, TRAITORS ALL, who for years have been talking about the Dangers of Iran, and that something has to be done, but now, since I’m the one doing it, belittle the accomplishments of our Military and the Trump Administration. This is being perfectly executed, on the scale of Venezuela, just a bigger, more complex operation. The result will be the same. In my First Term, I built the Greatest Military our Country has ever seen, including adding Space Force. In my Second Term, I am properly and judiciously using our Military to solve problems left to us by others of far less understanding or competence. MAKE AMERICA GREAT AGAIN! President DONALD J. TRUMP

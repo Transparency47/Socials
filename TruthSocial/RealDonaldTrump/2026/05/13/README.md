@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-05-13
+
+- Posts: 15
+
+- [19:25 UTC - Truth Social post 116568905013516663](116568905013516663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116568905013516663
+  - _No text content captured._
+- [04:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) CNBC incorrectly reported...](116565480086717671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116565480086717671
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) CNBC incorrectly reported that the Great Jensen Huang, of Nvidia, was not invited to the incredible gathering of th...
+- [04:11 UTC - The guy that came up to Mitch McConnell today when McConnell thought the hearing was over,...](116565310767957780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116565310767957780
+  - The guy that came up to Mitch McConnell today when McConnell thought the hearing was over, and started speaking in his ear for Mitch to belatedly introduce some other people, all D...
+- [03:29 UTC - Truth Social post 116565146879672529](116565146879672529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116565146879672529
+  - _No text content captured._
+- [03:10 UTC - Truth Social post 116565072703201105](116565072703201105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116565072703201105
+  - _No text content captured._
+- [03:09 UTC - CNBC incorrectly reported that the Great Jensen Huang, of Nvidia, was not invited to the i...](116565066757116256/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116565066757116256
+  - CNBC incorrectly reported that the Great Jensen Huang, of Nvidia, was not invited to the incredible gathering of the World’s Greatest Businessmen/women proudly going to China. In a...
+- [02:46 UTC - Truth Social post 116564974667375136](116564974667375136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564974667375136
+  - _No text content captured._
+- [02:45 UTC - Truth Social post 116564973630507430](116564973630507430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564973630507430
+  - _No text content captured._
+- [02:45 UTC - Truth Social post 116564972831217674](116564972831217674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564972831217674
+  - _No text content captured._
+- [02:45 UTC - Truth Social post 116564972252388554](116564972252388554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564972252388554
+  - _No text content captured._
+- [02:45 UTC - Truth Social post 116564971312769624](116564971312769624/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564971312769624
+  - _No text content captured._
+- [02:44 UTC - Truth Social post 116564970320910986](116564970320910986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564970320910986
+  - _No text content captured._
+- [00:15 UTC - Truth Social post 116564384213412547](116564384213412547/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564384213412547
+  - _No text content captured._
+- [00:14 UTC - Truth Social post 116564380733370846](116564380733370846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564380733370846
+  - _No text content captured._
+- [00:14 UTC - Truth Social post 116564380103642090](116564380103642090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116564380103642090
+  - _No text content captured._

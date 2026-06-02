@@ -1,0 +1,109 @@
+# TruthSocial / RealDonaldTrump / 2026-04-22
+
+- Posts: 35
+
+- [22:00 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116450600815188099](116450605050795046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116450605050795046
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116450600815188099
+- [21:59 UTC - Truth Social post 116450600815188099](116450600815188099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116450600815188099
+  - _No text content captured._
+- [19:12 UTC - Mollie Hemingway, an extraordinarily talented writer, highly respected commentator, and a ...](116449943298064625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449943298064625
+  - Mollie Hemingway, an extraordinarily talented writer, highly respected commentator, and a truly good person, has written a powerful new book, “Alito: The Justice Who Reshaped the S...
+- [18:54 UTC - “YOU CAN’T COMPROMISE ON SANITY AND COMMON SENSE!”](116449875545717304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449875545717304
+  - “YOU CAN’T COMPROMISE ON SANITY AND COMMON SENSE!”
+- [18:51 UTC - Exclusive—‘Breaking the Law’: Exposé Reveals Biden White House Orchestrated Lawfare Agains...](116449863099320049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449863099320049
+  - Exclusive—‘Breaking the Law’: Exposé Reveals Biden White House Orchestrated Lawfare Against Trump to Rig 2024 Election: [https://www. breitbart.com/politics/2025/08 /04/exclusive-b...
+- [18:51 UTC - Truth Social post 116449861947664236](116449861947664236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449861947664236
+  - _No text content captured._
+- [18:48 UTC - Producer Behind BBC’s Donald Trump Film Was Kept In Dark About Editing Error: [https:// de...](116449851372799866/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449851372799866
+  - Producer Behind BBC’s Donald Trump Film Was Kept In Dark About Editing Error: [https:// deadline.com/2025/11/bbc-donal d-trump-saga-october-films-kept-in-dark-1236613974/](https://...
+- [17:41 UTC - Senate Majority Leader John Thune, and Senator Lindsey Graham, have taken a critical first...](116449588860876736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449588860876736
+  - Senate Majority Leader John Thune, and Senator Lindsey Graham, have taken a critical first step to passing another Reconciliation Bill to fund our Great Border Patrol and ICE Agent...
+- [17:34 UTC - A RIGGED ELECTION TOOK PLACE LAST NIGHT IN THE GREAT COMMONWEALTH OF VIRGINIA! All day lon...](116449559745815736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449559745815736
+  - A RIGGED ELECTION TOOK PLACE LAST NIGHT IN THE GREAT COMMONWEALTH OF VIRGINIA! All day long Republicans were winning, the Spirit was unbelievable, until the very end when, of cours...
+- [17:01 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116442908819175250 Very good ne...](116449429763121963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449429763121963
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116442908819175250 Very good news! I have just been informed that the eight women protestors who were going to be execute...
+- [15:39 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116449097739614343](116449106781093966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449106781093966
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116449097739614343
+- [15:36 UTC - Last Season of my Apprentice Juggernaut!](116449097739614343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449097739614343
+  - Last Season of my Apprentice Juggernaut!
+- [15:34 UTC - MORNING GLORY: Will President Trump go full Sherman in the war on Iran? [https://www. foxn...](116449089632063189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449089632063189
+  - MORNING GLORY: Will President Trump go full Sherman in the war on Iran? [https://www. foxnews.com/opinion/morning-gl ory-president-trump-go-full-sherman-war-iran](https://www.foxne...
+- [15:34 UTC - Time for the grown-ups to pull the plug on Mamdani’s fiscal fantasies: [https:// nypost.co...](116449087766053163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116449087766053163
+  - Time for the grown-ups to pull the plug on Mamdani’s fiscal fantasies: [https:// nypost.com/2026/03/19/opinion/ time-for-the-grown-ups-to-halt-mamdanis-fiscal-fantasies/](https://n...
+- [13:41 UTC - How can the Democrats not like how the U.S. Supreme Court votes. The Democrat Justices sti...](116448643198694972/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116448643198694972
+  - How can the Democrats not like how the U.S. Supreme Court votes. The Democrat Justices stick together like glue, NEVER failing to wander from the warped and perverse policies, idea...
+- [10:06 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116447790396994341](116447797219146012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116447797219146012
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116447790396994341
+- [10:04 UTC - Truth Social post 116447790396994341](116447790396994341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116447790396994341
+  - _No text content captured._
+- [10:02 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116447780917933451](116447782392372172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116447782392372172
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116447780917933451
+- [10:02 UTC - Truth Social post 116447780917933451](116447780917933451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116447780917933451
+  - _No text content captured._
+- [04:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran is collapsing financ...](116446362429862966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446362429862966
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran is collapsing financially! They want the Strait of Hormuz opened immediately- Starving for cash! Losing 500 Mi...
+- [04:01 UTC - Great job of explaining USA “winning” by Jim Hanson of “Middle East Forum” on Jesse Watter...](116446361617264811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446361617264811
+  - Great job of explaining USA “winning” by Jim Hanson of “Middle East Forum” on Jesse Watters Primetime!
+- [04:00 UTC - Truth Social post 116446360871879482](116446360871879482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446360871879482
+  - _No text content captured._
+- [03:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446334841894274](116446335551982968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446335551982968
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446334841894274
+- [03:54 UTC - Truth Social post 116446334841894274](116446334841894274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446334841894274
+  - _No text content captured._
+- [03:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446328769135923](116446330315917700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446330315917700
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446328769135923
+- [03:52 UTC - Truth Social post 116446328769135923](116446328769135923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446328769135923
+  - _No text content captured._
+- [03:49 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446316208872381](116446317258178323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446317258178323
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116446316208872381
+- [03:49 UTC - Truth Social post 116446316208872381](116446316208872381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446316208872381
+  - _No text content captured._
+- [03:48 UTC - Truth Social post 116446310089816543](116446310089816543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446310089816543
+  - _No text content captured._
+- [03:41 UTC - Iran is collapsing financially! They want the Strait of Hormuz opened immediately- Starvin...](116446283085364326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446283085364326
+  - Iran is collapsing financially! They want the Strait of Hormuz opened immediately- Starving for cash! Losing 500 Million Dollars a day. Military and Police complaining that they ar...
+- [03:18 UTC - Federal grand jury charges Southern Poverty Law Center with fraud over hate ratings: [http...](116446193585410965/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446193585410965
+  - Federal grand jury charges Southern Poverty Law Center with fraud over hate ratings: [https:// justthenews.com/nation/crime/j ustice-department-launches-criminal-investigation-agai...
+- [03:17 UTC - US intel secretly flagged major 2020 election vulnerabilities, including voter data, memo:...](116446191940811375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446191940811375
+  - US intel secretly flagged major 2020 election vulnerabilities, including voter data, memo: [https:// justthenews.com/politics-polic y/elections/us-intel-flagged-major-2020-election...
+- [03:17 UTC - Terrible! [https:// justthenews.com/accountability /whistleblowers/ided-witness-2-helped-u...](116446189168001047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116446189168001047
+  - Terrible! [https:// justthenews.com/accountability /whistleblowers/ided-witness-2-helped-ukraine-whistleblower-worked-strzok-wrote-2016](https://justthenews.com/accountability/whis...
+- [02:02 UTC - Salena Zito: Trump has a way with Pennsylvania. This interview shows why. [https://www. wa...](116445894900653474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116445894900653474
+  - Salena Zito: Trump has a way with Pennsylvania. This interview shows why. [https://www. washingtonpost.com/opinions/20 25/11/19/trump-interview-pennsylvania-steel-tariffs/](https:/...
+- [00:36 UTC - Iran doesn’t want the Strait of Hormuz closed, they want it open so they can make $500 Mil...](116445555373723862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116445555373723862
+  - Iran doesn’t want the Strait of Hormuz closed, they want it open so they can make $500 Million Dollars a day (which is, therefore, what they are losing if it is closed!). They only...

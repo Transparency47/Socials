@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-04-28
+
+- Posts: 11
+
+- [18:25 UTC - The Chancellor of Germany, Friedrich Merz, thinks it’s OK for Iran to have a Nuclear Weapo...](116483733181582907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116483733181582907
+  - The Chancellor of Germany, Friedrich Merz, thinks it’s OK for Iran to have a Nuclear Weapon. He doesn’t know what he’s talking about! If Iran had a Nuclear Weapon, the whole World...
+- [17:41 UTC - Truth Social post 116483559424106831](116483559424106831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116483559424106831
+  - _No text content captured._
+- [13:29 UTC - Iran has just informed us that they are in a “State of Collapse.” They want us to “Open th...](116482569681977454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116482569681977454
+  - Iran has just informed us that they are in a “State of Collapse.” They want us to “Open the Hormuz Strait,” as soon as possible, as they try to figure out their leadership situatio...
+- [13:13 UTC - Wow, that’s nice. I’ve always wanted to live in Buckingham Palace!!! I’ll talk to the King...](116482505797913052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116482505797913052
+  - Wow, that’s nice. I’ve always wanted to live in Buckingham Palace!!! I’ll talk to the King and Queen about this in a few minutes!!! President DJT
+- [11:57 UTC - Hate Incorporated: The left's intolerance machine threatens to change security forever: [h...](116482210260744436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116482210260744436
+  - Hate Incorporated: The left's intolerance machine threatens to change security forever: [https:// justthenews.com/government/sec urity/tuehate-incorporated-lefts-intolerance-machin...
+- [10:41 UTC - Truth Social post 116481910110003463](116481910110003463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116481910110003463
+  - _No text content captured._
+- [10:40 UTC - Truth Social post 116481905845926385](116481905845926385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116481905845926385
+  - _No text content captured._
+- [10:39 UTC - Truth Social post 116481901824435078](116481901824435078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116481901824435078
+  - _No text content captured._
+- [10:37 UTC - Truth Social post 116481894340265231](116481894340265231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116481894340265231
+  - _No text content captured._
+- [00:16 UTC - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are eit...](116479452865634973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116479452865634973
+  - America’s Elections are Rigged, Stolen, and a Laughingstock all over the World. We are either going to fix them, or we won’t have a Country any longer. I am asking all Republicans...
+- [00:16 UTC - [https://www. usatoday.com/story/graphics/20 24/11/15/how-did-america-vote-2024-election-a...](116479450564881147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116479450564881147
+  - [https://www. usatoday.com/story/graphics/20 24/11/15/how-did-america-vote-2024-election-analysis/76292995007/](https://www.usatoday.com/story/graphics/2024/11/15/how-did-america-v...

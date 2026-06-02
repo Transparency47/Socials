@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-04-20
+
+- Posts: 15
+
+- [19:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Iranian leadership ha...](116438578505730644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438578505730644
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Iranian leadership has forced hundreds of Ships toward the United States, mostly Texas, Louisiana, and Alaska,...
+- [19:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I’m winning a War, BY A L...](116438577686057718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438577686057718
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I’m winning a War, BY A LOT, things are going very well, our Military has been amazing and, if you read the Fake Ne...
+- [19:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats are doing e...](116438577531873145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438577531873145
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats are doing everything possible to hurt the very strong position we are in with respect to Iran. Despit...
+- [19:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The DEAL that we are maki...](116438577360067480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438577360067480
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred to as “The Iran Nuclear...
+- [19:01 UTC - Truth Social post 116438576363006337](116438576363006337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438576363006337
+  - _No text content captured._
+- [19:01 UTC - Truth Social post 116438575354486441](116438575354486441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438575354486441
+  - _No text content captured._
+- [19:00 UTC - Truth Social post 116438574503451483](116438574503451483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438574503451483
+  - _No text content captured._
+- [18:28 UTC - The Iranian leadership has forced hundreds of Ships toward the United States, mostly Texas...](116438448094769480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438448094769480
+  - The Iranian leadership has forced hundreds of Ships toward the United States, mostly Texas, Louisiana, and Alaska, to get their Oil — Thank you very much! President DONALD J. TRUMP
+- [18:11 UTC - I’m winning a War, BY A LOT, things are going very well, our Military has been amazing and...](116438381520104888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438381520104888
+  - I’m winning a War, BY A LOT, things are going very well, our Military has been amazing and, if you read the Fake News, like The Failing New York Times, the absolutely horrendous an...
+- [17:40 UTC - The Democrats are doing everything possible to hurt the very strong position we are in wit...](116438260195246849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438260195246849
+  - The Democrats are doing everything possible to hurt the very strong position we are in with respect to Iran. Despite World War I lasting 4 years, 3 months, and 14 days, World War I...
+- [17:35 UTC - The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred...](116438239629407600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116438239629407600
+  - The DEAL that we are making with Iran will be FAR BETTER than the JCPOA, commonly referred to as “The Iran Nuclear Deal,” penned by Barack Hussein Obama and Sleepy Joe Biden, one o...
+- [14:16 UTC - Israel never talked me into the war with Iran, the results of Oct. 7th, added to my lifelo...](116437457191403164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116437457191403164
+  - Israel never talked me into the war with Iran, the results of Oct. 7th, added to my lifelong opinion that IRAN CAN NEVER HAVE A NUCLEAR WEAPON, did. I watch and read the FAKE NEWS...
+- [11:46 UTC - Trump Economy: Retail sales and housing suggest a resilient consumer: [https:// justthenew...](116436865777263574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116436865777263574
+  - Trump Economy: Retail sales and housing suggest a resilient consumer: [https:// justthenews.com/nation/states/ center-square/everyday-economics-retail-sales-and-housing-suggest-res...
+- [02:54 UTC - Ruddy: Trump Already Won the War With 9 Victories: [https://www. newsmax.com/ruddy/ruddy-d...](116434776225677515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116434776225677515
+  - Ruddy: Trump Already Won the War With 9 Victories: [https://www. newsmax.com/ruddy/ruddy-donald -trump-iran/2026/04/16/id/1253115/](https://www.newsmax.com/ruddy/ruddy-donald-trump...
+- [02:54 UTC - McLaughlin Poll: Voters Back Trump on Iran: [https://www. newsmax.com/mclaughlin/midterm -...](116434773211303526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116434773211303526
+  - McLaughlin Poll: Voters Back Trump on Iran: [https://www. newsmax.com/mclaughlin/midterm -republican-voters/2026/04/17/id/1253286/](https://www.newsmax.com/mclaughlin/midterm-repub...

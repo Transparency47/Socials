@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-04-21
+
+- Posts: 18
+
+- [23:45 UTC - Wacko James Carville, a so-called Democrat “strategist,” wants the Democrats to make D.C. ...](116445354771430027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116445354771430027
+  - Wacko James Carville, a so-called Democrat “strategist,” wants the Democrats to make D.C. and Puerto Rico States and, most importantly, pack the Supreme Court, putting 13 Justices...
+- [23:35 UTC - THE WALL STREET JOURNAL HAS LOST ITS WAY! An IDIOT on The Wall Street Journal’s Editorial ...](116445317344745621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116445317344745621
+  - THE WALL STREET JOURNAL HAS LOST ITS WAY! An IDIOT on The Wall Street Journal’s Editorial Board, named Elliot Kaufman, just wrote an Op Ed entitled, “The Iranians Take Trump for a...
+- [22:56 UTC - My Administration just delivered a BIG WIN for the Great Commonwealth of Pennsylvania, whi...](116445165496999724/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116445165496999724
+  - My Administration just delivered a BIG WIN for the Great Commonwealth of Pennsylvania, which I love, and WON by the largest margin in History. Based on this, the Commerce Departmen...
+- [20:09 UTC - STATEMENT OF PRESIDENT DONALD J. TRUMP: Based on the fact that the Government of Iran is s...](116444507618729432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116444507618729432
+  - STATEMENT OF PRESIDENT DONALD J. TRUMP: Based on the fact that the Government of Iran is seriously fractured, not unexpectedly so and, upon the request of Field Marshal Asim Munir,...
+- [17:14 UTC - It is my Great Honor to endorse America First Patriot, Anthony Constantino, who is running...](116443819653096454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116443819653096454
+  - It is my Great Honor to endorse America First Patriot, Anthony Constantino, who is running to represent the fantastic people of New York’s 21st Congressional District. Anthony is s...
+- [16:21 UTC - My friend, Congresswoman Elise Stefanik, of New York, has written a new book, "POISONED IV...](116443610885264454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116443610885264454
+  - My friend, Congresswoman Elise Stefanik, of New York, has written a new book, "POISONED IVIES: The Inside Account of the Academic and Moral Rot at America’s Elite Universities." Th...
+- [16:21 UTC - Truth Social post 116443610204575272](116443610204575272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116443610204575272
+  - _No text content captured._
+- [13:37 UTC - Never allow the Traitor Democrats like Low IQ person Hakeem Jeffries, or Cryin’ Chuck Schu...](116442964943642737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116442964943642737
+  - Never allow the Traitor Democrats like Low IQ person Hakeem Jeffries, or Cryin’ Chuck Schumer, or the totally corrupt Fake News Media such as the phony and decaying Wall Street Jou...
+- [13:23 UTC - To the Iranian leaders, who will soon be in negotiations with my representatives: I would ...](116442908819175250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116442908819175250
+  - To the Iranian leaders, who will soon be in negotiations with my representatives: I would greatly appreciate the release of these women. I am sure that they will respect the fact t...
+- [11:09 UTC - Iran has Violated the Cease Fire numerous times!](116442383515973098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116442383515973098
+  - Iran has Violated the Cease Fire numerous times!
+- [10:50 UTC - VIRGINIA, VOTE “NO”TO SAVE YOUR COUNTRY!](116442307914306085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116442307914306085
+  - VIRGINIA, VOTE “NO”TO SAVE YOUR COUNTRY!
+- [10:42 UTC - I have always been a big fan of Tim Cook, and likewise, Steve Jobs, but if Steve was not t...](116442276577696798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116442276577696798
+  - I have always been a big fan of Tim Cook, and likewise, Steve Jobs, but if Steve was not taken from the Planet Earth so young, and ran the company instead of Tim, the company would...
+- [03:22 UTC - Operation Midnight Hammer was a complete and total obliteration of the Nuclear Dust sites ...](116440547673226976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440547673226976
+  - Operation Midnight Hammer was a complete and total obliteration of the Nuclear Dust sites in Iran. Therefore, digging it out will be a long and difficult process. Fake News CNN, an...
+- [03:04 UTC - Prime Minister Keir Starmer of the United Kingdom acknowledged that he “exercised wrong ju...](116440475208030352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440475208030352
+  - Prime Minister Keir Starmer of the United Kingdom acknowledged that he “exercised wrong judgement” when he chose his Ambassador to Washington. I agree, he was a really bad pick. Pl...
+- [01:35 UTC - Trump’s historic rating with seniors boosted by tax deductions: [https:// justthenews.com/...](116440126689763629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440126689763629
+  - Trump’s historic rating with seniors boosted by tax deductions: [https:// justthenews.com/government/whi te-house/trumps-historic-high-rating-seniors-sweetened-tax-deductions](http...
+- [01:35 UTC - Trump Economy: Retail sales and housing suggest a resilient consumer: [https:// justthenew...](116440125310523388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440125310523388
+  - Trump Economy: Retail sales and housing suggest a resilient consumer: [https:// justthenews.com/nation/states/ center-square/everyday-economics-retail-sales-and-housing-suggest-res...
+- [01:34 UTC - Treason!!! President DJT [https:// justthenews.com/accountability /political-ethics/democr...](116440123694064271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440123694064271
+  - Treason!!! President DJT [https:// justthenews.com/accountability /political-ethics/democrats-ukraine-narrative-has-gone-reverse-gop-seeks-expunge](https://justthenews.com/accounta...
+- [01:33 UTC - Thank you to Senator Rick Scott. Hopefully, Justice will finally prevail!!! President DJT ...](116440120057142433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116440120057142433
+  - Thank you to Senator Rick Scott. Hopefully, Justice will finally prevail!!! President DJT [https:// justthenews.com/accountability /political-ethics/sen-rick-scott-introduces-legis...

@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2026-05-09
+
+- Posts: 19
+
+- [21:36 UTC - Truth Social post 116546771912598059](116546771912598059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546771912598059
+  - _No text content captured._
+- [21:28 UTC - Truth Social post 116546737443853681](116546737443853681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546737443853681
+  - _No text content captured._
+- [21:27 UTC - Truth Social post 116546736187285246](116546736187285246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546736187285246
+  - _No text content captured._
+- [21:24 UTC - Truth Social post 116546723284747719](116546723284747719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546723284747719
+  - _No text content captured._
+- [21:20 UTC - Truth Social post 116546708342495207](116546708342495207/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546708342495207
+  - _No text content captured._
+- [21:20 UTC - Truth Social post 116546707772929004](116546707772929004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546707772929004
+  - _No text content captured._
+- [20:18 UTC - Truth Social post 116546464665644173](116546464665644173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546464665644173
+  - _No text content captured._
+- [20:08 UTC - Truth Social post 116546422711220349](116546422711220349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546422711220349
+  - _No text content captured._
+- [20:07 UTC - Truth Social post 116546421974705446](116546421974705446/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546421974705446
+  - _No text content captured._
+- [20:07 UTC - Truth Social post 116546421034843589](116546421034843589/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546421034843589
+  - _No text content captured._
+- [19:52 UTC - Truth Social post 116546360572603977](116546360572603977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546360572603977
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 116546359573570710](116546359573570710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546359573570710
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 116546358670327932](116546358670327932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546358670327932
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 116546357499234506](116546357499234506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546357499234506
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 116546356739259309](116546356739259309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546356739259309
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 116546356030409655](116546356030409655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116546356030409655
+  - _No text content captured._
+- [12:41 UTC - FBI searches Fulton County election hub in criminal probe of 2020 election: [https:// just...](116544667871983111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116544667871983111
+  - FBI searches Fulton County election hub in criminal probe of 2020 election: [https:// justthenews.com/politics-polic y/fbi-searches-fulton-county-election-hub](https://justthenews....
+- [12:41 UTC - Very important. This is where our Nation stands!!! President DJT [https:// justthenews.com...](116544665997769022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116544665997769022
+  - Very important. This is where our Nation stands!!! President DJT [https:// justthenews.com/government/sec urity/majority-say-preventing-iran-acquiring-nukes-more-important-ending-w...
+- [02:13 UTC - Congratulations to John Swinney on winning his Re-Election for First Minister of Scotland....](116542198092493172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116542198092493172
+  - Congratulations to John Swinney on winning his Re-Election for First Minister of Scotland. He is a good man, who worked very hard, along with the King and Queen of the United Kingd...

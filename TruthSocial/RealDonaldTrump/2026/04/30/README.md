@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-04-30
+
+- Posts: 17
+
+- [18:30 UTC - In Honor of the King and Queen of the United Kingdom, who have just left the White House, ...](116495078448348822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116495078448348822
+  - In Honor of the King and Queen of the United Kingdom, who have just left the White House, soon headed back to their wonderful Country, I will be removing the Tariffs and Restrictio...
+- [18:08 UTC - Congratulations to Ali al-Zaidi on his Nomination to be the next Prime Minister of Iraq! W...](116494993665115165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494993665115165
+  - Congratulations to Ali al-Zaidi on his Nomination to be the next Prime Minister of Iraq! We wish him success as he works to form a new Government free from terrorism that could del...
+- [17:50 UTC - Anybody running for President or Vice President should be forced to take a Cognitive Exami...](116494922708605309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494922708605309
+  - Anybody running for President or Vice President should be forced to take a Cognitive Examination prior to entering the Race! By doing so, we wouldn’t be surprised at people like Ba...
+- [17:44 UTC - Hakeem Jeffries just called the Supreme Court of the United States an illegitimate Court! ...](116494898897346360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494898897346360
+  - Hakeem Jeffries just called the Supreme Court of the United States an illegitimate Court! This is a Low IQ individual, who should not be allowed to talk that way about one of the G...
+- [17:43 UTC - Thank you to the Great Governor of Louisiana, Jeff Landry, for his leadership on the very ...](116494895594528861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494895594528861
+  - Thank you to the Great Governor of Louisiana, Jeff Landry, for his leadership on the very important Callais case, and for moving so quickly to fix the Unconstitutionality of Louisi...
+- [16:55 UTC - I had a very good conversation with Governor Bill Lee, of Tennessee, this morning, wherein...](116494706928688681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494706928688681
+  - I had a very good conversation with Governor Bill Lee, of Tennessee, this morning, wherein he stated that he would work hard to correct the unconstitutional flaw in the Congression...
+- [16:43 UTC - I am pleased to announce that I am nominating Dr. Nicole B. Saphier to be the next SURGEON...](116494658794846023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494658794846023
+  - I am pleased to announce that I am nominating Dr. Nicole B. Saphier to be the next SURGEON GENERAL OF THE UNITED STATES OF AMERICA. Nicole is a STAR physician who has spent her car...
+- [16:29 UTC - Hopefully all of the Great Republican People of Louisiana, which I won, BIG, three times, ...](116494601149993417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494601149993417
+  - Hopefully all of the Great Republican People of Louisiana, which I won, BIG, three times, will be voting Bill Cassidy OUT OF OFFICE in the upcoming Republican Primary! President DO...
+- [16:22 UTC - For months, Senator Bill Cassidy (of the GREAT State of Louisiana!), a very disloyal perso...](116494574440493725/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116494574440493725
+  - For months, Senator Bill Cassidy (of the GREAT State of Louisiana!), a very disloyal person whose “TRUMP” Endorsement got him elected, but later voted to impeach “President Trump”...
+- [13:51 UTC - How much abuse can the Republican Senate take from the Radical Left Lunatics in the form o...](116493981794549356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116493981794549356
+  - How much abuse can the Republican Senate take from the Radical Left Lunatics in the form of Democrat Senators, before they BLOW UP (TERMINATE!) THE FILIBUSTER, and approve things a...
+- [13:40 UTC - The Chancellor of Germany should spend more time on ending the war with Russia/Ukraine (Wh...](116493939901285486/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116493939901285486
+  - The Chancellor of Germany should spend more time on ending the war with Russia/Ukraine (Where he has been totally ineffective!), and fixing his broken Country, especially Immigrati...
+- [13:27 UTC - [https:// truthsocial.com/@realDonaldTru mp/116482569681977454](https://truthsocial.com/@r...](116493885293364425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116493885293364425
+  - [https:// truthsocial.com/@realDonaldTru mp/116482569681977454](https://truthsocial.com/@realDonaldTrump/116482569681977454)
+- [13:25 UTC - When is ABC Fake News Network firing seriously unfunny Jimmy Kimmel, who incompetently pre...](116493880308071365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116493880308071365
+  - When is ABC Fake News Network firing seriously unfunny Jimmy Kimmel, who incompetently presides over one of the Lowest Rated shows on Television? People are angry. It better be soo...
+- [03:35 UTC - “86” is a mob term for “kill him.” They say 86 him! 86 47 means “kill President Trump.”Jam...](116491559257751897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116491559257751897
+  - “86” is a mob term for “kill him.” They say 86 him! 86 47 means “kill President Trump.”James Comey, who is a Dirty Cop, one of the worst, knows this full well! EIGHT MILES OUT, SIX...
+- [03:12 UTC - Harvard Harris Poll: Strong Majority back President Trump on Iran Nuclear stoppage.](116491469825575424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116491469825575424
+  - Harvard Harris Poll: Strong Majority back President Trump on Iran Nuclear stoppage.
+- [03:09 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/116423375731645658](https...](116491457397348713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116491457397348713
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/116423375731645658](https://truthsocial.com/users/SpiritualStreetfighter/statuses/116423375731645658)
+- [01:22 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116423365916813680](https://tr...](116491035609991866/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116491035609991866
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116423365916813680](https://truthsocial.com/users/IStandWithTrump47/statuses/116423365916813680)

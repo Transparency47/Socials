@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-05-02
+
+- Posts: 15
+
+- [23:12 UTC - I hate seeing Fox, and other Conservative Outlets, constantly making Low Rated Bill Maher ...](116507513607934090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116507513607934090
+  - I hate seeing Fox, and other Conservative Outlets, constantly making Low Rated Bill Maher “relevant” as it pertains to the Republican Party, and beyond. Bill Maher is a weak and in...
+- [23:09 UTC - So ironic that Cryin’ Chuck Schumer and the Democrats are hiring SLEAZEBAGS like Barack Hu...](116507501775457290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116507501775457290
+  - So ironic that Cryin’ Chuck Schumer and the Democrats are hiring SLEAZEBAGS like Barack Hussein Obama’s Crooked former Attorney General, Eric Holder, and others of that ilk, to loo...
+- [22:47 UTC - I will soon be reviewing the plan that Iran has just sent to us, but can’t imagine that it...](116507414650995614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116507414650995614
+  - I will soon be reviewing the plan that Iran has just sent to us, but can’t imagine that it would be acceptable in that they have not yet paid a big enough price for what they have...
+- [03:45 UTC - Truth Social post 116502923327437911](116502923327437911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502923327437911
+  - _No text content captured._
+- [03:41 UTC - Truth Social post 116502906556000308](116502906556000308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502906556000308
+  - _No text content captured._
+- [03:40 UTC - This is what our Country was before, and after, “TRUMP!”](116502902374252861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502902374252861
+  - This is what our Country was before, and after, “TRUMP!”
+- [03:37 UTC - Truth Social post 116502893543384666](116502893543384666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502893543384666
+  - _No text content captured._
+- [03:32 UTC - Truth Social post 116502871108388206](116502871108388206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502871108388206
+  - _No text content captured._
+- [03:26 UTC - Truth Social post 116502848851907459](116502848851907459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502848851907459
+  - _No text content captured._
+- [03:22 UTC - Truth Social post 116502833969390552](116502833969390552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502833969390552
+  - _No text content captured._
+- [03:15 UTC - Truth Social post 116502804889768576](116502804889768576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502804889768576
+  - _No text content captured._
+- [03:13 UTC - Low IQ Democrat Minority Leader, Hakeem Jeffries, is nothing but a THUG, and he is a dange...](116502796687355089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502796687355089
+  - Low IQ Democrat Minority Leader, Hakeem Jeffries, is nothing but a THUG, and he is a danger to our Country! President DONALD J. TRUMP
+- [03:04 UTC - Truth Social post 116502761909535615](116502761909535615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502761909535615
+  - _No text content captured._
+- [03:03 UTC - Truth Social post 116502756484361615](116502756484361615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502756484361615
+  - _No text content captured._
+- [02:24 UTC - Truth Social post 116502605614258580](116502605614258580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116502605614258580
+  - _No text content captured._

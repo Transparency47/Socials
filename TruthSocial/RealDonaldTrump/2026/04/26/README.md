@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-04-26
+
+- Posts: 9
+
+- [22:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I will be interviewed on ...](116473382808707752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116473382808707752
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I will be interviewed on 60 Minutes tonight at 7 P.M. EST — CBS Television Network. Enjoy! President DONALD J. TRUM...
+- [22:32 UTC - Trump push to restrain birthright citizenship gets ammo from unlikely source: liberal poll...](116473381652573189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116473381652573189
+  - Trump push to restrain birthright citizenship gets ammo from unlikely source: liberal polling group: [https:// justthenews.com/politics-polic y/all-things-trump/trump-push-restrain...
+- [19:46 UTC - I will be interviewed on 60 Minutes tonight at 7 P.M. EST — CBS Television Network. Enjoy!...](116472726275191719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116472726275191719
+  - I will be interviewed on 60 Minutes tonight at 7 P.M. EST — CBS Television Network. Enjoy! President DONALD J. TRUMP
+- [12:46 UTC - What happened last night is exactly the reason that our great Military, Secret Service, La...](116471074928310119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116471074928310119
+  - What happened last night is exactly the reason that our great Military, Secret Service, Law Enforcement and, for different reasons, every President for the last 150 years, have bee...
+- [02:30 UTC - Truth Social post 116468652963767750](116468652963767750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116468652963767750
+  - _No text content captured._
+- [02:29 UTC - Truth Social post 116468652052256305](116468652052256305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116468652052256305
+  - _No text content captured._
+- [02:29 UTC - Truth Social post 116468650367386223](116468650367386223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116468650367386223
+  - _No text content captured._
+- [01:36 UTC - Law Enforcement has requested that we leave the premises, consistent with protocol, which ...](116468441221231506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116468441221231506
+  - Law Enforcement has requested that we leave the premises, consistent with protocol, which we will do, immediately. I will be giving a press conference in 30 minutes from the White...
+- [01:17 UTC - Quite an evening in D.C. Secret Service and Law Enforcement did a fantastic job. They acte...](116468367583052130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116468367583052130
+  - Quite an evening in D.C. Secret Service and Law Enforcement did a fantastic job. They acted quickly and bravely. The shooter has been apprehended, and I have recommended that we “L...

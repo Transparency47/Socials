@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-05-05
+
+- Posts: 17
+
+- [22:52 UTC - Based on the request of Pakistan and other Countries, the tremendous Military Success that...](116524418935002706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116524418935002706
+  - Based on the request of Pakistan and other Countries, the tremendous Military Success that we have had during the Campaign against the Country of Iran and, additionally, the fact t...
+- [19:52 UTC - Truth Social post 116523714021857229](116523714021857229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523714021857229
+  - _No text content captured._
+- [19:46 UTC - RT [@ EricTrump](https://truthsocial.com/@EricTrump) For the first time, I am extremely pr...](116523690821423832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523690821423832
+  - RT [@ EricTrump](https://truthsocial.com/@EricTrump) For the first time, I am extremely proud to share the OFFICIAL logo for the Donald J. Trump International Airport in Palm Beach...
+- [19:45 UTC - Congressman Max Miller is a fantastic Champion for the Great People of Ohio’s 7th Congress...](116523684674729350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523684674729350
+  - Congressman Max Miller is a fantastic Champion for the Great People of Ohio’s 7th Congressional District! Max bravely served our Country in the U.S. Marine Corps and, during my Fir...
+- [19:37 UTC - Congressman Mike Carey is a Fantastic Advocate for Ohio’s 15th Congressional District! As ...](116523653529950815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523653529950815
+  - Congressman Mike Carey is a Fantastic Advocate for Ohio’s 15th Congressional District! As a Member of the POWERFUL House Ways & Means Committee, Mike understands the America First...
+- [19:37 UTC - Congressman Dave Joyce is doing an incredible job representing the wonderful people of Ohi...](116523651666642820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523651666642820
+  - Congressman Dave Joyce is doing an incredible job representing the wonderful people of Ohio’s 14th Congressional District! A former Criminal Prosecutor, Dave strongly supports our...
+- [19:35 UTC - Congressman Troy Balderson is a terrific Representative for the incredible people of Ohio’...](116523646768165419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523646768165419
+  - Congressman Troy Balderson is a terrific Representative for the incredible people of Ohio’s 12th Congressional District! A Proven Leader, Troy served as a Highly Respected State Le...
+- [19:34 UTC - Congressman Mike Turner is doing a truly fantastic job representing the wonderful people o...](116523640234080613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523640234080613
+  - Congressman Mike Turner is doing a truly fantastic job representing the wonderful people of Ohio’s 10th Congressional District! As a Senior Member of the POWERFUL House Armed Servi...
+- [19:33 UTC - Warren Davidson is a fantastic Representative for the Great People of Ohio’s 8th Congressi...](116523638644471502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523638644471502
+  - Warren Davidson is a fantastic Representative for the Great People of Ohio’s 8th Congressional District! A West Point Graduate and U.S. Army Ranger, Warren knows the Wisdom and Cou...
+- [19:33 UTC - Congressman Mike Rulli is an America First Patriot who is doing a fantastic job representi...](116523636065860576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523636065860576
+  - Congressman Mike Rulli is an America First Patriot who is doing a fantastic job representing Ohio’s 6th Congressional District! A successful Businessman, Civic Leader, and State Se...
+- [19:32 UTC - Congressman Bob Latta is a Tremendous Champion for Ohio’s 5th Congressional District! A Pr...](116523634757376645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523634757376645
+  - Congressman Bob Latta is a Tremendous Champion for Ohio’s 5th Congressional District! A Proven Leader, Bob has served his Community well as a Highly Respected State Legislator, Woo...
+- [19:32 UTC - Congressman Jim Jordan is an America First Patriot who is doing an incredible job represen...](116523633469830954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523633469830954
+  - Congressman Jim Jordan is an America First Patriot who is doing an incredible job representing Ohio’s 4th Congressional District! As Chairman of the House Judiciary Committee, Jim...
+- [19:32 UTC - Congressman Dave Taylor is doing an incredible job representing the wonderful people of Oh...](116523632174562839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523632174562839
+  - Congressman Dave Taylor is doing an incredible job representing the wonderful people of Ohio’s 2nd Congressional District! A very successful Small Businessman, Dave knows the Ameri...
+- [19:31 UTC - It is my Great Honor to endorse America First Patriot, Eric Conroy, who is running to repr...](116523629527303097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523629527303097
+  - It is my Great Honor to endorse America First Patriot, Eric Conroy, who is running to represent the wonderful people of Ohio’s 1st Congressional District. He is running against Gre...
+- [19:30 UTC - Jon Husted is doing an incredible job as Senator for the Great State of Ohio! He served as...](116523627142757976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523627142757976
+  - Jon Husted is doing an incredible job as Senator for the Great State of Ohio! He served as your Lieutenant Governor for seven years prior to becoming a very distinguished and well...
+- [19:29 UTC - Vivek Ramaswamy is running for Governor of the Great State of Ohio, a place I love and WON...](116523623830435743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523623830435743
+  - Vivek Ramaswamy is running for Governor of the Great State of Ohio, a place I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024! I know Vivek well, competed against him, and h...
+- [18:59 UTC - Good luck to those Great Indiana Senate Candidates who are running against people who coul...](116523502202612088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116523502202612088
+  - Good luck to those Great Indiana Senate Candidates who are running against people who couldn’t care less about our Country, or about keeping the Majority in Congress. There are eig...
