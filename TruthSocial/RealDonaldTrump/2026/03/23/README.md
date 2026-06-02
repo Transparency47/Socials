@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2026-03-23
+
+- Posts: 22
+
+- [23:18 UTC - There is a very important Special Election tomorrow, Tuesday, March 24th, for Florida Stat...](116281041925886913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116281041925886913
+  - There is a very important Special Election tomorrow, Tuesday, March 24th, for Florida State House District 87 in beautiful Palm Beach County — JON MAPLES HAS MY COMPLETE AND TOTAL...
+- [14:29 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am a BIG proponent of I...](116278963682644203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278963682644203
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am a BIG proponent of ICE wearing masks as they search for, and are forced to deal with, hardened criminals, many...
+- [14:29 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I AM PLEASED TO REPORT TH...](116278963291413739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278963291413739
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I AM PLEASED TO REPORT THAT THE UNITED STATES OF AMERICA, AND THE COUNTRY OF IRAN, HAVE HAD, OVER THE LAST TWO DAYS...
+- [14:28 UTC - For years, Democrats ignored Violent and Vicious Crime of all shapes, sizes, colors, and t...](116278959605267870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278959605267870
+  - For years, Democrats ignored Violent and Vicious Crime of all shapes, sizes, colors, and types. Violent Criminals who should have been locked up were allowed to attack again. Democ...
+- [14:13 UTC - Truth Social post 116278900381351124](116278900381351124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278900381351124
+  - _No text content captured._
+- [14:13 UTC - Truth Social post 116278899551484414](116278899551484414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278899551484414
+  - _No text content captured._
+- [14:13 UTC - Truth Social post 116278898617605808](116278898617605808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278898617605808
+  - _No text content captured._
+- [14:12 UTC - Truth Social post 116278897972103626](116278897972103626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278897972103626
+  - _No text content captured._
+- [14:12 UTC - Truth Social post 116278895739918982](116278895739918982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278895739918982
+  - _No text content captured._
+- [14:12 UTC - Truth Social post 116278894937641301](116278894937641301/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278894937641301
+  - _No text content captured._
+- [14:11 UTC - Truth Social post 116278893457439623](116278893457439623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278893457439623
+  - _No text content captured._
+- [14:11 UTC - Truth Social post 116278892438747425](116278892438747425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278892438747425
+  - _No text content captured._
+- [14:11 UTC - Truth Social post 116278891641245204](116278891641245204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278891641245204
+  - _No text content captured._
+- [14:11 UTC - Truth Social post 116278890493192146](116278890493192146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278890493192146
+  - _No text content captured._
+- [14:10 UTC - Trump administration cancels $109M in environmentally focused transportation grants for Co...](116278886833581746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278886833581746
+  - Trump administration cancels $109M in environmentally focused transportation grants for Colorado: [https:// coloradosun.com/2025/12/16/tru mp-administration-cuts-transportation-gra...
+- [14:09 UTC - Questions Grow as Lt. Michael Byrd, Who Shot Ashli Babbitt on Jan. 6, Operates a Taxpayer-...](116278885275457312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278885275457312
+  - Questions Grow as Lt. Michael Byrd, Who Shot Ashli Babbitt on Jan. 6, Operates a Taxpayer-Funded Home Daycare as $190 Million in Federal Child Care Funds Flow to Maryland: [https:/...
+- [14:09 UTC - [https://www. theepochtimes.com/us/oklahoma- black-lives-matter-leader-indicted-over-alleg...](116278883659138389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278883659138389
+  - [https://www. theepochtimes.com/us/oklahoma- black-lives-matter-leader-indicted-over-alleged-3-15-million-embezzlement-5957229](https://www.theepochtimes.com/us/oklahoma-black-live...
+- [14:08 UTC - Kelsey Grammer calls Trump ‘one of the greatest presidents we’ve ever had’ at Kennedy Cent...](116278882455205480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278882455205480
+  - Kelsey Grammer calls Trump ‘one of the greatest presidents we’ve ever had’ at Kennedy Center Honors: [https:// nypost.com/2025/12/08/entertai nment/kelsey-grammer-calls-trump-one-o...
+- [12:57 UTC - I am a BIG proponent of ICE wearing masks as they search for, and are forced to deal with,...](116278600245530358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278600245530358
+  - I am a BIG proponent of ICE wearing masks as they search for, and are forced to deal with, hardened criminals, many of whom were let into our Country by Sleepy Joe Biden and his wo...
+- [11:23 UTC - I AM PLEASED TO REPORT THAT THE UNITED STATES OF AMERICA, AND THE COUNTRY OF IRAN, HAVE HA...](116278232362967212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116278232362967212
+  - I AM PLEASED TO REPORT THAT THE UNITED STATES OF AMERICA, AND THE COUNTRY OF IRAN, HAVE HAD, OVER THE LAST TWO DAYS, VERY GOOD AND PRODUCTIVE CONVERSATIONS REGARDING A COMPLETE AND...
+- [03:48 UTC - PEACE THROUGH STRENGTH, TO PUT IT MILDLY!!!](116276442445755599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116276442445755599
+  - PEACE THROUGH STRENGTH, TO PUT IT MILDLY!!!
+- [00:31 UTC - I don’t think we should make any deal with the Crazy, Country Destroying, Radical Left Dem...](116275668825285445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116275668825285445
+  - I don’t think we should make any deal with the Crazy, Country Destroying, Radical Left Democrats unless, and until, they Vote with Republicans to pass “THE SAVE AMERICA ACT.” It is...

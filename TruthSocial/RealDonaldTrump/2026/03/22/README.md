@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-03-22
+
+- Posts: 17
+
+- [14:55 UTC - Truth Social post 116273404107454540](116273404107454540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273404107454540
+  - _No text content captured._
+- [14:40 UTC - Schumer got “discombobulated” in the Senate yesterday, and said, “WE MUST FUND ICE,” prior...](116273344803042793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273344803042793
+  - Schumer got “discombobulated” in the Senate yesterday, and said, “WE MUST FUND ICE,” prior to correcting himself. Thank you Chuck, I agree! President DJT
+- [14:40 UTC - The Democrat running in Texas, James Talarico, turns out to be a FRAUD! It showed after th...](116273343074887409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273343074887409
+  - The Democrat running in Texas, James Talarico, turns out to be a FRAUD! It showed after the Election when he beat Low IQ Candidate Jasmine Crockett (No relation to Davy Crockett!)....
+- [13:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116273127672345044](116273130324592463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273130324592463
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116273127672345044
+- [13:45 UTC - Truth Social post 116273127672345044](116273127672345044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273127672345044
+  - _No text content captured._
+- [13:34 UTC - THE LIES OF ROBERT MUELLER AND HIS CRIMINAL GANG: [https:// stonezone.com/russian-collusio...](116273083861419785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273083861419785
+  - THE LIES OF ROBERT MUELLER AND HIS CRIMINAL GANG: [https:// stonezone.com/russian-collusio n-lies-recycled-yet-again/](https://stonezone.com/russian-collusion-lies-recycled-yet-aga...
+- [13:33 UTC - SAVE America Act Hits the Achilles Heel of Democrats’ Fraud Scheme: [https://www. stonecol...](116273082320286134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116273082320286134
+  - SAVE America Act Hits the Achilles Heel of Democrats’ Fraud Scheme: [https://www. stonecoldtruth.com/p/save-amer ica-act-hits-the-achilles](https://www.stonecoldtruth.com/p/save-am...
+- [12:24 UTC - Now with the death of Iran, the greatest enemy America has is the Radical Left, Highly Inc...](116272810363139207/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272810363139207
+  - Now with the death of Iran, the greatest enemy America has is the Radical Left, Highly Incompetent, Democrat Party! Thank you for your attention to this matter. President DJT
+- [12:17 UTC - [https:// truthsocial.com/users/CrazyCat Rescuer/statuses/116268355575900202](https://trut...](116272781567092047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272781567092047
+  - [https:// truthsocial.com/users/CrazyCat Rescuer/statuses/116268355575900202](https://truthsocial.com/users/CrazyCatRescuer/statuses/116268355575900202)
+- [12:14 UTC - [https:// truthsocial.com/@IStandWithTru mp47/116269851029760378](https://truthsocial.com/...](116272771861671364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272771861671364
+  - [https:// truthsocial.com/@IStandWithTru mp47/116269851029760378](https://truthsocial.com/@IStandWithTrump47/116269851029760378)
+- [12:14 UTC - [https:// truthsocial.com/@IStandWithTru mp47/116272413318941729](https://truthsocial.com/...](116272769184615047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272769184615047
+  - [https:// truthsocial.com/@IStandWithTru mp47/116272413318941729](https://truthsocial.com/@IStandWithTrump47/116272413318941729)
+- [12:13 UTC - [https:// truthsocial.com/@IStandWithTru mp47/116164006155671847](https://truthsocial.com/...](116272764873568314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272764873568314
+  - [https:// truthsocial.com/@IStandWithTru mp47/116164006155671847](https://truthsocial.com/@IStandWithTrump47/116164006155671847)
+- [12:11 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)](116272758840855213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272758840855213
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)
+- [12:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left Democrat...](116272718379902051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272718379902051
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Radical Left Democrats have hurt so many people with their vicious and uncaring ways. What they have done to th...
+- [12:01 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats want to giv...](116272717021267123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272717021267123
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Democrats want to give our Country away to the illegals who they allowed to pour through our now very strong Bo...
+- [12:00 UTC - On Monday, ICE will be going to airports to help our wonderful TSA Agents who have stayed ...](116272713025328785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116272713025328785
+  - On Monday, ICE will be going to airports to help our wonderful TSA Agents who have stayed on the job despite the fact that the Radical Left Democrats, who are only focused on prote...
+- [02:04 UTC - Tina Peters, a 73-year-old woman with cancer, was given a nine year jail sentence in Color...](116270371600659894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116270371600659894
+  - Tina Peters, a 73-year-old woman with cancer, was given a nine year jail sentence in Colorado because she caught the Democrats CHEATING on the Presidential Election of 2020. FREE T...

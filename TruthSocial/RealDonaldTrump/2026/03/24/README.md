@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-03-24
 
-- Posts: 19
+- Posts: 24
 
 - [23:19 UTC - Highly Respected Prime Minister of Hungary, Viktor Orbán, is a truly strong and powerful L...](116286710096907230/)
   - Source: https://truthsocial.com/@realDonaldTrump/116286710096907230
@@ -59,3 +59,18 @@
 - [19:36 UTC - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job repre...](116285831257066510/)
   - Source: https://truthsocial.com/@realDonaldTrump/116285831257066510
   - State Senator Tyler Johnson is an America First Patriot who is doing a fantastic job representing Indiana’s 14th State Senate District! A Proven Leader, Tyler serves his Community...
+- [19:33 UTC - Word is that Sydney Gruters, the wife of our GREAT Chairman of the Republican National Com...](116285820638971415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116285820638971415
+  - Word is that Sydney Gruters, the wife of our GREAT Chairman of the Republican National Committee, Joe Gruters, is considering launching her Campaign for Congress in Florida's 16th...
+- [14:46 UTC - Truth Social post 116284693281091216](116284693281091216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116284693281091216
+  - _No text content captured._
+- [05:48 UTC - Democrats are desperate to keep illegals, no matter how bad or dangerous they me be, in th...](116282577310101116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116282577310101116
+  - Democrats are desperate to keep illegals, no matter how bad or dangerous they me be, in the Country. They want them to VOTE! That’s why they are fighting so hard to neutralize ICE....
+- [04:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116282191339559931](116282197447416114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116282197447416114
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116282191339559931
+- [04:10 UTC - Truth Social post 116282191339559931](116282191339559931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116282191339559931
+  - _No text content captured._
