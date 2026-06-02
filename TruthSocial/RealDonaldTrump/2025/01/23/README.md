@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-01-23
+
+- Posts: 12
+
+- [21:03 UTC - Truth Social post 113879694150150022](113879694150150022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113879694150150022
+  - _No text content captured._
+- [20:06 UTC - [https://www. youtube.com/live/A-DSB13ZWtg?s i=zzBQF5MhOtdA9dQZ](https://www.youtube.com/l...](113879467079075107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113879467079075107
+  - [https://www. youtube.com/live/A-DSB13ZWtg?s i=zzBQF5MhOtdA9dQZ](https://www.youtube.com/live/A-DSB13ZWtg?si=zzBQF5MhOtdA9dQZ)
+- [17:00 UTC - Truth Social post 113878735259604426](113878735259604426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113878735259604426
+  - _No text content captured._
+- [16:59 UTC - [https:// youtu.be/mQUmy6gkwWg](https://youtu.be/mQUmy6gkwWg)](113878733372141257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113878733372141257
+  - [https:// youtu.be/mQUmy6gkwWg](https://youtu.be/mQUmy6gkwWg)
+- [16:59 UTC - [https:// youtu.be/I6ns70m_6r4](https://youtu.be/I6ns70m_6r4)](113878731844631883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113878731844631883
+  - [https:// youtu.be/I6ns70m_6r4](https://youtu.be/I6ns70m_6r4)
+- [14:23 UTC - A special thank you to great New Jersey Congressman Jeff Van Drew for his fight against a ...](113878119879850620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113878119879850620
+  - A special thank you to great New Jersey Congressman Jeff Van Drew for his fight against a large scale Windmill DISASTER off the coast of Southern New Jersey. It needed MASSIVE GOVE...
+- [02:32 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Will be on Fox News with ...](113875324638453211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113875324638453211
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Will be on Fox News with Sean Hannity tonight at 9:00PM EST. Enjoy!
+- [00:30 UTC - Will be on Fox News with Sean Hannity tonight at 9:00PM EST. Enjoy!](113874843045385307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113874843045385307
+  - Will be on Fox News with Sean Hannity tonight at 9:00PM EST. Enjoy!
+- [00:22 UTC - It is my great honor to appoint Sean Curran as the next Director of the United States Secr...](113874811205486989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113874811205486989
+  - It is my great honor to appoint Sean Curran as the next Director of the United States Secret Service. Sean is a Great Patriot, who has protected my family over the past few years,...
+- [00:03 UTC - I am pleased to announce that Andrew F. Puzder will serve as the next United States Ambass...](113874738288379518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113874738288379518
+  - I am pleased to announce that Andrew F. Puzder will serve as the next United States Ambassador to the European Union. Andy is a successful attorney, businessman, economic commentat...
+- [00:03 UTC - I am pleased to announce that L. Brent Bozell III will serve as the next CEO of the United...](113874737440816090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113874737440816090
+  - I am pleased to announce that L. Brent Bozell III will serve as the next CEO of the United States Agency for Global Media. As Founder and President of the Media Research Center for...
+- [00:02 UTC - MSDNC is even worse than CNN. They shouldn’t even have a right to broadcast — Only in Amer...](113874735766176608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113874735766176608
+  - MSDNC is even worse than CNN. They shouldn’t even have a right to broadcast — Only in America! [https://www. mediaite.com/media/cnn-reporte dly-set-to-lay-off-hundreds-of-employees...

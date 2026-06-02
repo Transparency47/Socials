@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-03-01
+
+- Posts: 21
+
+- [18:22 UTC - The month of February, my first full month in Office, had the LOWEST number of Illegal Imm...](114088564162922800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114088564162922800
+  - The month of February, my first full month in Office, had the LOWEST number of Illegal Immigrants trying to enter our Country in History – BY FAR! There were only 8,326 apprehensio...
+- [17:01 UTC - “The Rise of Young Republicans on America's College Campuses”](114088245950849883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114088245950849883
+  - “The Rise of Young Republicans on America's College Campuses”
+- [16:58 UTC - Truth Social post 114088236474416994](114088236474416994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114088236474416994
+  - _No text content captured._
+- [15:53 UTC - [https://www. foxnews.com/opinion/trumps-sec ond-inaugural-address-triumph-him-his-support...](114087980207080643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087980207080643
+  - [https://www. foxnews.com/opinion/trumps-sec ond-inaugural-address-triumph-him-his-supporters](https://www.foxnews.com/opinion/trumps-second-inaugural-address-triumph-him-his-suppo...
+- [15:53 UTC - “Donald Trump Finally Gets His Honeymoon” [https://www. washingtonpost.com/opinions/20 25/...](114087978846952770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087978846952770
+  - “Donald Trump Finally Gets His Honeymoon” [https://www. washingtonpost.com/opinions/20 25/01/20/marc-thiessen-donald-trump-inauguration-honeymoon/](https://www.washingtonpost.com/o...
+- [15:52 UTC - [https://www. foxnews.com/opinion/california -needs-trumps-golden-touch-here-3-things-gov-...](114087976278809357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087976278809357
+  - [https://www. foxnews.com/opinion/california -needs-trumps-golden-touch-here-3-things-gov-newsom-should-request](https://www.foxnews.com/opinion/california-needs-trumps-golden-touc...
+- [15:48 UTC - [https://www. foxnews.com/politics/marco-rub io-chinese-foreign-minister-trump-american-pe...](114087959098972317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087959098972317
+  - [https://www. foxnews.com/politics/marco-rub io-chinese-foreign-minister-trump-american-people-first-us-china-relations](https://www.foxnews.com/politics/marco-rubio-chinese-foreig...
+- [15:47 UTC - “In his first three days, Trump disrupted America. Then he turned to the world” [https://w...](114087957034260563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087957034260563
+  - “In his first three days, Trump disrupted America. Then he turned to the world” [https://www. cnn.com/2025/01/24/politics/tr ump-davos-us-global-order-analysis/index.html](https://...
+- [15:46 UTC - [https://www. foxbusiness.com/politics/googl e-maps-gulf-america-mount-mckinley-after-trum...](114087952770685432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087952770685432
+  - [https://www. foxbusiness.com/politics/googl e-maps-gulf-america-mount-mckinley-after-trump-orders-name-changes](https://www.foxbusiness.com/politics/google-maps-gulf-america-mount...
+- [15:45 UTC - [https://www. foxnews.com/opinion/morning-gl ory-president-trump-issued-enormously-consequ...](114087949072220051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087949072220051
+  - [https://www. foxnews.com/opinion/morning-gl ory-president-trump-issued-enormously-consequential-executive-order](https://www.foxnews.com/opinion/morning-glory-president-trump-issu...
+- [15:44 UTC - [https://www. realclearpolitics.com/articles /2025/01/24/the_cold_civil_war_is_over_we_won...](114087945629068568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087945629068568
+  - [https://www. realclearpolitics.com/articles /2025/01/24/the_cold_civil_war_is_over_we_won_152244.html](https://www.realclearpolitics.com/articles/2025/01/24/the_cold_civil_war_is_...
+- [15:44 UTC - [https://www. foxnews.com/politics/back-our- roots-female-gop-lawmakers-work-win-back-femi...](114087943567882071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087943567882071
+  - [https://www. foxnews.com/politics/back-our- roots-female-gop-lawmakers-work-win-back-feminism-from-left](https://www.foxnews.com/politics/back-our-roots-female-gop-lawmakers-work-...
+- [15:42 UTC - The New York Times: "During the Biden administration, Mr. Doocy said, he spent a lot of ti...](114087937627204152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087937627204152
+  - The New York Times: "During the Biden administration, Mr. Doocy said, he spent a lot of time 'figuring out how to boil a question down into something that’s eight seconds long at t...
+- [15:42 UTC - RT [@ RepMTG](https://truthsocial.com/@RepMTG) This is what homeschooling looks like in GA...](114087935398246143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087935398246143
+  - RT [@ RepMTG](https://truthsocial.com/@RepMTG) This is what homeschooling looks like in GA-14!! ❤️ Gulf of AMERICA!! 🇺🇸🇺🇸🇺🇸
+- [15:42 UTC - RT [@ RepMTG](https://truthsocial.com/@RepMTG) I traveled all across the country with Pres...](114087934487924364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087934487924364
+  - RT [@ RepMTG](https://truthsocial.com/@RepMTG) I traveled all across the country with President Trump, and no matter which state or city we visited, the American people greeted him...
+- [15:41 UTC - [https:// thenationalpulse.com/2025/01/2 7/britain-backs-trump-stunning-data-shows-mass-uk...](114087933520368044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087933520368044
+  - [https:// thenationalpulse.com/2025/01/2 7/britain-backs-trump-stunning-data-shows-mass-uk-support-for-trump-2-0-policies-deportations-free-speech/](https://thenationalpulse.com/20...
+- [15:41 UTC - [https://www. thetimes.com/uk/politics/artic le/trump-uk-north-sea-oil-windfall-tax-dr5qnv...](114087932471439595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087932471439595
+  - [https://www. thetimes.com/uk/politics/artic le/trump-uk-north-sea-oil-windfall-tax-dr5qnvxdg](https://www.thetimes.com/uk/politics/article/trump-uk-north-sea-oil-windfall-tax-dr5q...
+- [15:41 UTC - [https://www. telegraph.co.uk/business/2025/ 01/03/trump-attacks-labours-decision-to-aband...](114087932008274658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114087932008274658
+  - [https://www. telegraph.co.uk/business/2025/ 01/03/trump-attacks-labours-decision-to-abandon-north-sea-oil/](https://www.telegraph.co.uk/business/2025/01/03/trump-attacks-labours-d...
+- [04:38 UTC - Major League Baseball didn’t have the courage or decency to put the late, great, Pete Rose...](114085325641437111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114085325641437111
+  - Major League Baseball didn’t have the courage or decency to put the late, great, Pete Rose, also known as “Charlie Hustle,” into the Baseball Hall of fame. Now he is dead, will nev...
+- [00:53 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-aims-restore-constitutional-order-c...](114084438416476947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114084438416476947
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-trump-aims-restore-constitutional-order-common-sense](https://www.foxnews.com/opinion/gregg-jarrett-trump-aims-restore-constitution...
+- [00:02 UTC - The Department of Justice has just returned the boxes that Deranged Jack Smith made such a...](114084241095787137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114084241095787137
+  - The Department of Justice has just returned the boxes that Deranged Jack Smith made such a big deal about. They are being brought down to Florida and will someday be part of the Tr...

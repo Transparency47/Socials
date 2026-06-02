@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/113991956474899296 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 113991956474899296 -->
+<!-- date_published: 2025-02-12T16:53:38.679000+00:00 -->
+<!-- date_accessed: 2026-06-02T20:08:24.003581+00:00 -->
+
+# I just had a lengthy and highly productive phone call with President Vladimir Putin of Rus...
+
+I just had a lengthy and highly productive phone call with President Vladimir Putin of Russia. We discussed Ukraine, the Middle East, Energy, Artificial Intelligence, the power of the Dollar, and various other subjects. We both reflected on the Great History of our Nations, and the fact that we fought so successfully together in World War II, remembering, that Russia lost tens of millions of people, and we, likewise, lost so many! We each talked about the strengths of our respective Nations, and the great benefit that we will someday have in working together. But first, as we both agreed, we want to stop the millions of deaths taking place in the War with Russia/Ukraine. President Putin even used my very strong Campaign motto of, “COMMON SENSE.” We both believe very strongly in it. We agreed to work together, very closely, including visiting each other’s Nations. We have also agreed to have our respective teams start negotiations immediately, and we will begin by calling President Zelenskyy, of Ukraine, to inform him of the conversation, something which I will be doing right now. I have asked Secretary of State Marco Rubio, Director of the CIA John Ratcliffe, National Security Advisor Michael Waltz, and Ambassador and Special Envoy Steve Witkoff, to lead the negotiations which, I feel strongly, will be successful. Millions of people have died in a War that would not have happened if I were President, but it did happen, so it must end. No more lives should be lost! I want to thank President Putin for his time and effort with respect to this call, and for the release, yesterday, of Marc Fogel, a wonderful man that I personally greeted last night at the White House. I believe this effort will lead to a successful conclusion, hopefully soon!

@@ -1,0 +1,88 @@
+# TruthSocial / RealDonaldTrump / 2025-02-17
+
+- Posts: 28
+
+- [16:13 UTC - [https:// justthenews.com/politics-polic y/17-days-term-trump-has-delivered-80-his-agenda]...](114020111395883254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020111395883254
+  - [https:// justthenews.com/politics-polic y/17-days-term-trump-has-delivered-80-his-agenda](https://justthenews.com/politics-policy/17-days-term-trump-has-delivered-80-his-agenda)
+- [16:13 UTC - [https:// dailycaller.com/2025/02/06/cha rlie-kirk-trump-restoring-presidency-founders-vis...](114020110633882594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020110633882594
+  - [https:// dailycaller.com/2025/02/06/cha rlie-kirk-trump-restoring-presidency-founders-vision-article-ii-federalist/](https://dailycaller.com/2025/02/06/charlie-kirk-trump-restorin...
+- [16:13 UTC - [https://www. dailysignal.com/2025/02/05/tru mp-has-become-21st-century-george-patton/](ht...](114020110413213681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020110413213681
+  - [https://www. dailysignal.com/2025/02/05/tru mp-has-become-21st-century-george-patton/](https://www.dailysignal.com/2025/02/05/trump-has-become-21st-century-george-patton/)
+- [16:13 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3312757/obama-coalition-flip...](114020109262554081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020109262554081
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3312757/obama-coalition-flips-to-trump-as-youths-and-parents-back-47/](https://www.washingtonexaminer.com/news/washing...
+- [16:13 UTC - [https:// dailycaller.com/2025/02/06/opi nion-trump-musk-are-sticking-it-to-administrative...](114020108638190847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020108638190847
+  - [https:// dailycaller.com/2025/02/06/opi nion-trump-musk-are-sticking-it-to-administrative-state-right-out-of-the-gate-david-bossie/](https://dailycaller.com/2025/02/06/opinion-tru...
+- [16:12 UTC - [https:// nypost.com/2025/02/06/us-news/ trump-says-ag-bondi-will-target-anti-christian-bi...](114020107762908441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020107762908441
+  - [https:// nypost.com/2025/02/06/us-news/ trump-says-ag-bondi-will-target-anti-christian-bias-in-federal-government](https://nypost.com/2025/02/06/us-news/trump-says-ag-bondi-will-t...
+- [16:12 UTC - [https://www. nationalreview.com/2025/02/tru mp-repairs-the-u-s-israel-relationship/](http...](114020106639068007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020106639068007
+  - [https://www. nationalreview.com/2025/02/tru mp-repairs-the-u-s-israel-relationship/](https://www.nationalreview.com/2025/02/trump-repairs-the-u-s-israel-relationship/)
+- [16:12 UTC - [https://www. nationalreview.com/2025/02/tru mps-executive-order-on-transgender-soldiers-i...](114020105690025839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020105690025839
+  - [https://www. nationalreview.com/2025/02/tru mps-executive-order-on-transgender-soldiers-is-right/](https://www.nationalreview.com/2025/02/trumps-executive-order-on-transgender-sol...
+- [16:12 UTC - [https://www. foxnews.com/opinion/president- trump-offers-palestinians-chance-peace-prospe...](114020105082383832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020105082383832
+  - [https://www. foxnews.com/opinion/president- trump-offers-palestinians-chance-peace-prosperity](https://www.foxnews.com/opinion/president-trump-offers-palestinians-chance-peace-pro...
+- [16:11 UTC - [https://www. newsmax.com/newsfront/michael- shellenberger-usaid-fund/2025/02/06/id/119805...](114020104107423213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020104107423213
+  - [https://www. newsmax.com/newsfront/michael- shellenberger-usaid-fund/2025/02/06/id/1198050/](https://www.newsmax.com/newsfront/michael-shellenberger-usaid-fund/2025/02/06/id/11980...
+- [16:11 UTC - [https://www. foxnews.com/world/trump-no-one -else-can-end-ukraine-russia-war-us-ally-says...](114020103280221743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020103280221743
+  - [https://www. foxnews.com/world/trump-no-one -else-can-end-ukraine-russia-war-us-ally-says](https://www.foxnews.com/world/trump-no-one-else-can-end-ukraine-russia-war-us-ally-says)
+- [16:11 UTC - [https://www. foxbusiness.com/politics/trump s-hurricane-helene-relief-top-fundraiser-gofu...](114020102129874815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020102129874815
+  - [https://www. foxbusiness.com/politics/trump s-hurricane-helene-relief-top-fundraiser-gofundme-2024](https://www.foxbusiness.com/politics/trumps-hurricane-helene-relief-top-fundrai...
+- [16:11 UTC - [https://www. foxnews.com/media/trump-scores -unequivocal-victory-against-pulitzer-prize-b...](114020101329206136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020101329206136
+  - [https://www. foxnews.com/media/trump-scores -unequivocal-victory-against-pulitzer-prize-board-members-court-denies-request-dismiss-suit](https://www.foxnews.com/media/trump-scores...
+- [16:10 UTC - [https:// justthenews.com/accountability /political-ethics/biden-wh-national-archives-coll...](114020100035047388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020100035047388
+  - [https:// justthenews.com/accountability /political-ethics/biden-wh-national-archives-collaborated-start-trump-documents-probe](https://justthenews.com/accountability/political-eth...
+- [16:10 UTC - [https:// nypost.com/2025/02/12/opinion/ dems-exhaust-last-of-credibility-with-false-trump...](114020099261272790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020099261272790
+  - [https:// nypost.com/2025/02/12/opinion/ dems-exhaust-last-of-credibility-with-false-trump-constitutional-crisis](https://nypost.com/2025/02/12/opinion/dems-exhaust-last-of-credibi...
+- [16:10 UTC - [https:// nypost.com/2024/12/10/opinion/ team-effort-americans-doge-cost-cut-ideas-for-mus...](114020098106703448/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020098106703448
+  - [https:// nypost.com/2024/12/10/opinion/ team-effort-americans-doge-cost-cut-ideas-for-musk-vivek/](https://nypost.com/2024/12/10/opinion/team-effort-americans-doge-cost-cut-ideas-...
+- [16:10 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3318449/democrats-lose-touch...](114020097084520851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020097084520851
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3318449/democrats-lose-touch-with-voters-over-musk-trump-doge/](https://www.washingtonexaminer.com/news/washington-sec...
+- [16:10 UTC - [https://www. breitbart.com/politics/2025/02 /06/trump-attends-bipartisan-national-prayer-...](114020096868476690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020096868476690
+  - [https://www. breitbart.com/politics/2025/02 /06/trump-attends-bipartisan-national-prayer-breakfast-in-d-c/](https://www.breitbart.com/politics/2025/02/06/trump-attends-bipartisan-...
+- [16:09 UTC - Truth Social post 114020095402452664](114020095402452664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020095402452664
+  - _No text content captured._
+- [16:09 UTC - Truth Social post 114020094918136163](114020094918136163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020094918136163
+  - _No text content captured._
+- [16:09 UTC - Truth Social post 114020094267723066](114020094267723066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020094267723066
+  - _No text content captured._
+- [15:47 UTC - Who is running the Country right now? In his new book, “American Leviathan: The Birth of t...](114020008419550279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114020008419550279
+  - Who is running the Country right now? In his new book, “American Leviathan: The Birth of the Administrative State and Progressive Authoritarianism,” Ned Ryun reveals the History of...
+- [15:39 UTC - Truth Social post 114019976449236566](114019976449236566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114019976449236566
+  - _No text content captured._
+- [13:38 UTC - It is my honor to nominate highly respected Edward R. Martin, Jr., for the full and perman...](114019501223546266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114019501223546266
+  - It is my honor to nominate highly respected Edward R. Martin, Jr., for the full and permanent term of United States Attorney for the District of Columbia. Ed has led a distinguishe...
+- [03:59 UTC - [https://www. foxbusiness.com/politics/top-a utomaker-could-move-some-production-out-mexic...](114017223431326844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114017223431326844
+  - [https://www. foxbusiness.com/politics/top-a utomaker-could-move-some-production-out-mexico-amid-trump-tariff-talks-ceo-says](https://www.foxbusiness.com/politics/top-automaker-cou...
+- [01:54 UTC - Truth Social post 114016732722310642](114016732722310642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114016732722310642
+  - _No text content captured._
+- [01:53 UTC - Truth Social post 114016728372276492](114016728372276492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114016728372276492
+  - _No text content captured._
+- [01:52 UTC - Truth Social post 114016726081361069](114016726081361069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114016726081361069
+  - _No text content captured._

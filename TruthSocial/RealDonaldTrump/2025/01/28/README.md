@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-01-28
+
+- Posts: 13
+
+- [23:53 UTC - Panama is, with great speed, attempting to take down the 64% of signs which are written in...](113908670949354923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113908670949354923
+  - Panama is, with great speed, attempting to take down the 64% of signs which are written in Chinese. They are all over the Zone, because China controls the Panama Canal. PANAMA IS N...
+- [23:51 UTC - Today, it was my great honor to sign an Executive Order banning the chemical castration an...](113908666572035035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113908666572035035
+  - Today, it was my great honor to sign an Executive Order banning the chemical castration and medical mutilation of innocent children in the United States of America. Our Nation will...
+- [23:51 UTC - Truth Social post 113908665626005420](113908665626005420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113908665626005420
+  - _No text content captured._
+- [19:30 UTC - Congratulations to Tennessee Legislators who are working hard to pass School Choice this w...](113907637484810162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113907637484810162
+  - Congratulations to Tennessee Legislators who are working hard to pass School Choice this week, which I totally support. We will very soon be sending Education BACK TO THE STATES, w...
+- [18:58 UTC - Truth Social post 113907512143146844](113907512143146844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113907512143146844
+  - _No text content captured._
+- [16:09 UTC - The era of American decline is OVER—and the Golden Age of America is officially underway!](113906848441608708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113906848441608708
+  - The era of American decline is OVER—and the Golden Age of America is officially underway!
+- [15:33 UTC - Wow, really good news! Jim Acosta, one of the worst and most dishonest reporters in journa...](113906705175756002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113906705175756002
+  - Wow, really good news! Jim Acosta, one of the worst and most dishonest reporters in journalistic history, a major sleazebag, has been relegated by CNN Fake News to the Midnight hou...
+- [04:32 UTC - [https:// truthsocial.com/@realDonaldTru mp/113904028349476462](https://truthsocial.com/@r...](113904108878613958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113904108878613958
+  - [https:// truthsocial.com/@realDonaldTru mp/113904028349476462](https://truthsocial.com/@realDonaldTrump/113904028349476462)
+- [04:12 UTC - The United States Military just entered the Great State of California and, under Emergency...](113904028349476462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113904028349476462
+  - The United States Military just entered the Great State of California and, under Emergency Powers, TURNED ON THE WATER flowing abundantly from the Pacific Northwest, and beyond. Th...
+- [03:56 UTC - Truth Social post 113903966858718078](113903966858718078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113903966858718078
+  - _No text content captured._
+- [02:46 UTC - [https:// thefederalist.com/2025/01/27/p rosecute-the-architects-of-trump-lawfare-for-elec...](113903692672828515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113903692672828515
+  - [https:// thefederalist.com/2025/01/27/p rosecute-the-architects-of-trump-lawfare-for-election-interference/](https://thefederalist.com/2025/01/27/prosecute-the-architects-of-trump...
+- [02:38 UTC - Truth Social post 113903658104750704](113903658104750704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113903658104750704
+  - _No text content captured._
+- [02:31 UTC - Wow! In Nevada, a State I love and WON BIG in 2024, Republicans now lead Democrats in Vote...](113903630433895227/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113903630433895227
+  - Wow! In Nevada, a State I love and WON BIG in 2024, Republicans now lead Democrats in Voter Registration for the first time since 2007. Thank you to Chairman Michael McDonald, Gove...

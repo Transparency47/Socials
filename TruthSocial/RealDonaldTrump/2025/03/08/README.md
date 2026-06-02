@@ -1,0 +1,136 @@
+# TruthSocial / RealDonaldTrump / 2025-03-08
+
+- Posts: 44
+
+- [22:40 UTC - ELON AND MARCO HAVE A GREAT RELATIONSHIP. ANY STATEMENT OTHER THAN THAT IS FAKE NEWS!!! DJ...](114129217070412961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114129217070412961
+  - ELON AND MARCO HAVE A GREAT RELATIONSHIP. ANY STATEMENT OTHER THAN THAT IS FAKE NEWS!!! DJT
+- [18:25 UTC - The House and Senate have put together, under the circumstances, a very good funding Bill ...](114128213945115106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114128213945115106
+  - The House and Senate have put together, under the circumstances, a very good funding Bill (“CR”)! All Republicans should vote (Please!) YES next week. Great things are coming for A...
+- [15:40 UTC - Truth Social post 114127562520761890](114127562520761890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127562520761890
+  - _No text content captured._
+- [15:32 UTC - [https:// dailycaller.com/2025/02/17/cha rlie-kirk-egg-prices-donald-trump-inflation/](htt...](114127531136521705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127531136521705
+  - [https:// dailycaller.com/2025/02/17/cha rlie-kirk-egg-prices-donald-trump-inflation/](https://dailycaller.com/2025/02/17/charlie-kirk-egg-prices-donald-trump-inflation/)
+- [15:31 UTC - [https:// thefederalist.com/2025/02/17/t he-trump-administration-just-canceled-cancel-cult...](114127530612022340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127530612022340
+  - [https:// thefederalist.com/2025/02/17/t he-trump-administration-just-canceled-cancel-culture/](https://thefederalist.com/2025/02/17/the-trump-administration-just-canceled-cancel-c...
+- [15:31 UTC - [https://www. dailywire.com/news/catholic-ad vocacy-group-praises-trump-for-crackdown-on-a...](114127529895869034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127529895869034
+  - [https://www. dailywire.com/news/catholic-ad vocacy-group-praises-trump-for-crackdown-on-anti-christian-attacks](https://www.dailywire.com/news/catholic-advocacy-group-praises-trum...
+- [15:31 UTC - [https://www. dailysignal.com/2025/02/16/pre sident-trump-saved-my-life-pardoned-pro-lifer...](114127529083773264/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127529083773264
+  - [https://www. dailysignal.com/2025/02/16/pre sident-trump-saved-my-life-pardoned-pro-lifers-reflect-incarceration-newfound-freedom/](https://www.dailysignal.com/2025/02/16/presiden...
+- [15:31 UTC - [https://www. israelnationalnews.com/news/40 4111](https://www.israelnationalnews.com/news...](114127528224972269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127528224972269
+  - [https://www. israelnationalnews.com/news/40 4111](https://www.israelnationalnews.com/news/404111)
+- [15:30 UTC - [https:// amgreatness.com/2025/02/17/why -trumps-steel-tariffs-must-be-permanent/](https:/...](114127525534456705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127525534456705
+  - [https:// amgreatness.com/2025/02/17/why -trumps-steel-tariffs-must-be-permanent/](https://amgreatness.com/2025/02/17/why-trumps-steel-tariffs-must-be-permanent/)
+- [15:30 UTC - [https:// yellowhammernews.com/sen-tuber ville-op-ed-president-trumps-tariffs-are-making-a...](114127524757533399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127524757533399
+  - [https:// yellowhammernews.com/sen-tuber ville-op-ed-president-trumps-tariffs-are-making-america-great-again/](https://yellowhammernews.com/sen-tuberville-op-ed-president-trumps-ta...
+- [15:30 UTC - [https:// dailycaller.com/2025/02/17/opi nion-trump-is-already-cleaning-up-americas-back-y...](114127523723148944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127523723148944
+  - [https:// dailycaller.com/2025/02/17/opi nion-trump-is-already-cleaning-up-americas-back-yard-gavin-wax-and-eduardo-rivero/](https://dailycaller.com/2025/02/17/opinion-trump-is-alr...
+- [15:30 UTC - [https:// dailycaller.com/2025/02/17/she lters-close-as-migrant-crossings-drop/](https://d...](114127523078556411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127523078556411
+  - [https:// dailycaller.com/2025/02/17/she lters-close-as-migrant-crossings-drop/](https://dailycaller.com/2025/02/17/shelters-close-as-migrant-crossings-drop/)
+- [15:29 UTC - [https://www. breitbart.com/politics/2025/02 /16/trumps-deputies-shrink-federal-labor-sex-...](114127522387700820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127522387700820
+  - [https://www. breitbart.com/politics/2025/02 /16/trumps-deputies-shrink-federal-labor-sex-trafficking-uac-program/](https://www.breitbart.com/politics/2025/02/16/trumps-deputies-sh...
+- [15:29 UTC - [https://www. newsmax.com/us/border-czar-hom an/2025/02/17/id/1199368/](https://www.newsma...](114127521683840386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127521683840386
+  - [https://www. newsmax.com/us/border-czar-hom an/2025/02/17/id/1199368/](https://www.newsmax.com/us/border-czar-homan/2025/02/17/id/1199368/)
+- [15:29 UTC - [https://www. dailywire.com/news/trumps-bord er-czar-marks-presidents-day-with-statistic-t...](114127520631511309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127520631511309
+  - [https://www. dailywire.com/news/trumps-bord er-czar-marks-presidents-day-with-statistic-that-puts-biden-admin-to-shame](https://www.dailywire.com/news/trumps-border-czar-marks-pre...
+- [15:29 UTC - [https://www. washingtontimes.com/news/2025/ feb/16/time-never-trumpers-admit-wrong-donald...](114127519835243205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127519835243205
+  - [https://www. washingtontimes.com/news/2025/ feb/16/time-never-trumpers-admit-wrong-donald-trump/](https://www.washingtontimes.com/news/2025/feb/16/time-never-trumpers-admit-wrong-...
+- [15:29 UTC - [https:// amgreatness.com/2025/02/17/tru mp-speed/](https://amgreatness.com/2025/02/17/tru...](114127519208255932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127519208255932
+  - [https:// amgreatness.com/2025/02/17/tru mp-speed/](https://amgreatness.com/2025/02/17/trump-speed/)
+- [15:28 UTC - [https:// amac.us/newsline/society/found ers-applauding-trump/](https://amac.us/newsline/s...](114127518506072362/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127518506072362
+  - [https:// amac.us/newsline/society/found ers-applauding-trump/](https://amac.us/newsline/society/founders-applauding-trump/)
+- [15:28 UTC - [https:// thenationalpulse.com/analysis- post/editorial-this-presidents-day-trump-is-takin...](114127517710496270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127517710496270
+  - [https:// thenationalpulse.com/analysis- post/editorial-this-presidents-day-trump-is-taking-us-back-to-the-future/](https://thenationalpulse.com/analysis-post/editorial-this-presid...
+- [15:28 UTC - [https:// dailycaller.com/2025/02/17/don ald-trump-white-house-establishment-confirmations...](114127517060930257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127517060930257
+  - [https:// dailycaller.com/2025/02/17/don ald-trump-white-house-establishment-confirmations-rfk-tulsi-gabbard-jd-vance/](https://dailycaller.com/2025/02/17/donald-trump-white-house-...
+- [15:28 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3321849/nation-happiest-ever...](114127516461219986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114127516461219986
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3321849/nation-happiest-ever-trump-best-president-rasmussen/](https://www.washingtonexaminer.com/news/washington-secre...
+- [02:47 UTC - [https://www. foxnews.com/media/msnbcs-nicol le-wallace-has-seen-ratings-plunge-since-trum...](114124525883696741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124525883696741
+  - [https://www. foxnews.com/media/msnbcs-nicol le-wallace-has-seen-ratings-plunge-since-trump-prevailed-election-day](https://www.foxnews.com/media/msnbcs-nicolle-wallace-has-seen-ra...
+- [02:47 UTC - [https://www. foxnews.com/media/marine-injur ed-abbey-gate-bombing-says-trump-fulfilled-pe...](114124524533034734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124524533034734
+  - [https://www. foxnews.com/media/marine-injur ed-abbey-gate-bombing-says-trump-fulfilled-personal-promise-nabbing-terrorist](https://www.foxnews.com/media/marine-injured-abbey-gate-...
+- [02:46 UTC - [https://www. breitbart.com/politics/2025/03 /07/trump-effect-e-u-leaders-agree-to-massive...](114124522008474632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124522008474632
+  - [https://www. breitbart.com/politics/2025/03 /07/trump-effect-e-u-leaders-agree-to-massive-defence-spending-boost/](https://www.breitbart.com/politics/2025/03/07/trump-effect-e-u-l...
+- [02:46 UTC - [https:// dailycaller.com/2025/03/07/lar ry-provost-trump-fulfills-another-campaign-promis...](114124519209207474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124519209207474
+  - [https:// dailycaller.com/2025/03/07/lar ry-provost-trump-fulfills-another-campaign-promise/](https://dailycaller.com/2025/03/07/larry-provost-trump-fulfills-another-campaign-promi...
+- [02:45 UTC - [https://www. foxnews.com/politics/trump-cut s-400-million-grants-columbia-antisemitism-co...](114124518259048483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124518259048483
+  - [https://www. foxnews.com/politics/trump-cut s-400-million-grants-columbia-antisemitism-concerns](https://www.foxnews.com/politics/trump-cuts-400-million-grants-columbia-antisemiti...
+- [02:45 UTC - [https://www. dailysignal.com/2025/03/06/tru mp-right-time-make-shipbuilding-great-again/]...](114124517143124525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124517143124525
+  - [https://www. dailysignal.com/2025/03/06/tru mp-right-time-make-shipbuilding-great-again/](https://www.dailysignal.com/2025/03/06/trump-right-time-make-shipbuilding-great-again/)
+- [02:45 UTC - [https://www. rsbnetwork.com/news/trump-cele brates-manufacturing-optimism-and-touts-thous...](114124516420642856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124516420642856
+  - [https://www. rsbnetwork.com/news/trump-cele brates-manufacturing-optimism-and-touts-thousands-of-new-jobs-created-during-first-month-in-office/](https://www.rsbnetwork.com/news/tr...
+- [02:45 UTC - [https://www. theblaze.com/columns/opinion/a mericas-orator-in-chief](https://www.theblaze...](114124515629282722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124515629282722
+  - [https://www. theblaze.com/columns/opinion/a mericas-orator-in-chief](https://www.theblaze.com/columns/opinion/americas-orator-in-chief)
+- [02:45 UTC - [https:// nypost.com/2025/03/06/opinion/ why-americans-are-cheering-trumps-passionate-patr...](114124515004575913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124515004575913
+  - [https:// nypost.com/2025/03/06/opinion/ why-americans-are-cheering-trumps-passionate-patriotism/](https://nypost.com/2025/03/06/opinion/why-americans-are-cheering-trumps-passionat...
+- [02:44 UTC - Senator Eric Schmitt: “The shift that you're seeing in the foreign policy of the United St...](114124513631913892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124513631913892
+  - Senator Eric Schmitt: “The shift that you're seeing in the foreign policy of the United States is a shift to REALISM — the American taxpayers are tapped out of this war in Ukraine....
+- [02:42 UTC - Truth Social post 114124506174775033](114124506174775033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124506174775033
+  - _No text content captured._
+- [02:42 UTC - Truth Social post 114124505142701687](114124505142701687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124505142701687
+  - _No text content captured._
+- [02:42 UTC - Truth Social post 114124504231151148](114124504231151148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124504231151148
+  - _No text content captured._
+- [02:42 UTC - Truth Social post 114124503294858568](114124503294858568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124503294858568
+  - _No text content captured._
+- [02:41 UTC - Truth Social post 114124502388869035](114124502388869035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124502388869035
+  - _No text content captured._
+- [02:41 UTC - Truth Social post 114124501687147253](114124501687147253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124501687147253
+  - _No text content captured._
+- [02:41 UTC - Our GREAT United States Naval Academy needs a new Board of Visitors. I am pleased to annou...](114124499360504090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124499360504090
+  - Our GREAT United States Naval Academy needs a new Board of Visitors. I am pleased to announce that an incredible group of Patriots will serve on the Board— Walt Nauta, Sean Spicer,...
+- [00:52 UTC - Canada is cheating the United States Farmers on USMCA. In 2024, Canada retained Tariffs on...](114124071552960368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124071552960368
+  - Canada is cheating the United States Farmers on USMCA. In 2024, Canada retained Tariffs on various U.S. Goods, particularly in protected sectors like Dairy that are operated under...
+- [00:51 UTC - I am thrilled to announce that Laura Ingraham and Maria Bartiromo will be joining our Kenn...](114124070435213204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124070435213204
+  - I am thrilled to announce that Laura Ingraham and Maria Bartiromo will be joining our Kennedy Center Board - This completes our selection. We look forward to restoring the Center t...
+- [00:51 UTC - I am proud to appoint Michel Issa as our United States Ambassador to Lebanon. Michel is an...](114124069701923303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124069701923303
+  - I am proud to appoint Michel Issa as our United States Ambassador to Lebanon. Michel is an outstanding businessman, a financial expert, and a leader with a remarkable career in Ban...
+- [00:51 UTC - I am pleased to announce Lynda Blanchard will be the next United States Ambassador for the...](114124068976645988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124068976645988
+  - I am pleased to announce Lynda Blanchard will be the next United States Ambassador for the Food and Agriculture Organization of the United Nations in Rome, Italy. During my First T...
+- [00:50 UTC - I am pleased to announce that Duke Buchan III will serve as the United States Ambassador t...](114124064191342023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124064191342023
+  - I am pleased to announce that Duke Buchan III will serve as the United States Ambassador to the Kingdom of Morocco. Duke will play a pivotal role as we strengthen Peace, Freedom, a...
+- [00:50 UTC - I am pleased to announce that Amer Ghalib will be the next United States Ambassador to Kuw...](114124063031303446/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114124063031303446
+  - I am pleased to announce that Amer Ghalib will be the next United States Ambassador to Kuwait. As the Mayor of the City of Hamtramck, Michigan, Amer worked hard to help us secure a...

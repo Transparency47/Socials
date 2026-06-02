@@ -1,0 +1,218 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 114057310442670745
+- Post URL: https://truthsocial.com/@realDonaldTrump/114057310442670745
+- Title: RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) So-called “Author” Michae...
+- Date published: 2025-02-24T05:54:01.081000+00:00
+- Date accessed: 2026-06-02T19:55:43.104817+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12745825,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34035,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12746233,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34035,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@realDonaldTrump\" class=\"u-url mention\">@<span>realDonaldTrump</span></a></span>So-called “Author” Michael Wolff’s new book is a total FAKE JOB, just like the other JUNK he wrote. He called me many times trying to set up a meeting, but I never called him back because I didn’t want to give him the credibility of an interview. Others in the Administration were also called, they reported his calls, and likewise, did not talk to him. I assume, however, he was able to speak to a small number of people, but not meaningfully. His other books about me have been discredited, as this one will be also. I am one who believes in commenting about FAKE NEWS, or made up stories, even if you have to “punch low,” and shouldn’t be wasting the time required to do so. We had one of the Greatest Elections in History, and perhaps the Greatest First Month EVER, according to almost everybody, but Wolff doesn’t want to talk about that. He mentions the people that surrounded me during the Election, and in many cases now, in derogatory terms, but they couldn’t have been that bad because here I am in the White House, refusing to take his calls. Wolff says he has sources, but he doesn’t have them, it’s a LIE, as is the case with many so-called “journalists.” If he has sources, let them be revealed. Watch, it will never happen. He is FAKE NEWS, a total LOSER, and no one should waste their time or money in buying this boring and obviously fictitious book!</p>",
+    "created_at": "2025-02-24T05:54:01.081Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "114057310442670745",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": false,
+        "acct": "realDonaldTrump",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-11T16:16:57.705Z",
+        "discoverable": false,
+        "display_name": "Donald J. Trump",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 12746233,
+        "following_count": 69,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+        "id": "107780257626128497",
+        "last_status_at": "2026-06-02",
+        "location": "",
+        "locked": false,
+        "note": "<p></p>",
+        "premium": true,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 34035,
+        "tv_account": false,
+        "tv_onboarded": false,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@realDonaldTrump",
+        "username": "realDonaldTrump",
+        "verified": true,
+        "website": "www.DonaldJTrump.com"
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>So-called “Author” Michael Wolff’s new book is a total FAKE JOB, just like the other JUNK he wrote. He called me many times trying to set up a meeting, but I never called him back because I didn’t want to give him the credibility of an interview. Others in the Administration were also called, they reported his calls, and likewise, did not talk to him. I assume, however, he was able to speak to a small number of people, but not meaningfully. His other books about me have been discredited, as this one will be also. I am one who believes in commenting about FAKE NEWS, or made up stories, even if you have to “punch low,” and shouldn’t be wasting the time required to do so. We had one of the Greatest Elections in History, and perhaps the Greatest First Month EVER, according to almost everybody, but Wolff doesn’t want to talk about that. He mentions the people that surrounded me during the Election, and in many cases now, in derogatory terms, but they couldn’t have been that bad because here I am in the White House, refusing to take his calls. Wolff says he has sources, but he doesn’t have them, it’s a LIE, as is the case with many so-called “journalists.” If he has sources, let them be revealed. Watch, it will never happen. He is FAKE NEWS, a total LOSER, and no one should waste their time or money in buying this boring and obviously fictitious book!</p>",
+      "created_at": "2025-02-23T21:04:01.434Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 26037,
+      "group": null,
+      "id": "114055226421032415",
+      "in_reply_to": null,
+      "in_reply_to_account_id": null,
+      "in_reply_to_id": null,
+      "language": "en",
+      "media_attachments": [],
+      "mentions": [],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 5750,
+      "replies_count": 1373,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 26037,
+      "uri": "https://truthsocial.com/@realDonaldTrump/114055226421032415",
+      "url": "https://truthsocial.com/@realDonaldTrump/114055226421032415",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/114057310442670745",
+    "url": "https://truthsocial.com/@realDonaldTrump/114057310442670745",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-03-13
+
+- Posts: 10
+
+- [19:29 UTC - [https://www. youtube.com/live/BxmNYQiUzxE?s i=TIZVKdDOv4y0oCrF](https://www.youtube.com/l...](114156776073605428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114156776073605428
+  - [https://www. youtube.com/live/BxmNYQiUzxE?s i=TIZVKdDOv4y0oCrF](https://www.youtube.com/live/BxmNYQiUzxE?si=TIZVKdDOv4y0oCrF)
+- [16:21 UTC - If New York, Connecticut, and New England had their Pipelines, savings from Heating alone ...](114156036814880330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114156036814880330
+  - If New York, Connecticut, and New England had their Pipelines, savings from Heating alone would go down $2,300 per family — When you add Air Conditioning, and other things, you wou...
+- [15:36 UTC - Truth Social post 114155861098131339](114155861098131339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155861098131339
+  - _No text content captured._
+- [13:50 UTC - “Canada needs America, America does not need Canada.” Grant Cardone of Cardone Capital, on...](114155442275720067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155442275720067
+  - “Canada needs America, America does not need Canada.” Grant Cardone of Cardone Capital, on Stuart Varney & Co.
+- [13:09 UTC - The U.S. doesn’t have Free Trade. We have “Stupid Trade.” The Entire World is RIPPING US O...](114155282989654298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155282989654298
+  - The U.S. doesn’t have Free Trade. We have “Stupid Trade.” The Entire World is RIPPING US OFF!!!
+- [12:58 UTC - Truth Social post 114155240006804607](114155240006804607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155240006804607
+  - _No text content captured._
+- [12:56 UTC - The Globalist Wall Street Journal has no idea what they are doing or saying. They are owne...](114155230513269064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155230513269064
+  - The Globalist Wall Street Journal has no idea what they are doing or saying. They are owned by the polluted thinking of the European Union, which was formed for the primary purpose...
+- [11:58 UTC - The European Union, one of the most hostile and abusive taxing and tariffing authorities i...](114155003492555395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114155003492555395
+  - The European Union, one of the most hostile and abusive taxing and tariffing authorities in the World, which was formed for the sole purpose of taking advantage of the United State...
+- [11:38 UTC - Senator Mark Wayne Mullin was great on Fake News CNN. Made Caitlin Collins look like the t...](114154923764886136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114154923764886136
+  - Senator Mark Wayne Mullin was great on Fake News CNN. Made Caitlin Collins look like the third rate, low ratings reporter, she is!
+- [01:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114150974010417514](114152572770294243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114152572770294243
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114150974010417514

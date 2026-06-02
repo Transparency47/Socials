@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-03-03
+
+- Posts: 11
+
+- [19:25 UTC - Watching our First Lady now, great job! [https://www. foxnews.com/politics/melania-t rump-...](114100137738780445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114100137738780445
+  - Watching our First Lady now, great job! [https://www. foxnews.com/politics/melania-t rump-speak-first-time-capitol-hill-roundtable-focused-punishing-revenge-porn](https://www.foxne...
+- [18:32 UTC - To the Great Farmers of the United States: Get ready to start making a lot of agricultural...](114099930171583950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114099930171583950
+  - To the Great Farmers of the United States: Get ready to start making a lot of agricultural product to be sold INSIDE of the United States. Tariffs will go on external product on Ap...
+- [18:31 UTC - Europe has spent more money buying Russian Oil and Gas than they have spent on defending U...](114099924838350231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114099924838350231
+  - Europe has spent more money buying Russian Oil and Gas than they have spent on defending Ukraine —BY FAR!
+- [16:38 UTC - This is the worst statement that could have been made by Zelenskyy, and America will not p...](114099480566604857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114099480566604857
+  - This is the worst statement that could have been made by Zelenskyy, and America will not put up with it for much longer! It is what I was saying, this guy doesn’t want there to be...
+- [14:38 UTC - Paid “troublemakers” are attending Republican Town Hall Meetings. It is all part of the ga...](114099009721475492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114099009721475492
+  - Paid “troublemakers” are attending Republican Town Hall Meetings. It is all part of the game for the Democrats, but just like our big LANDSLIDE ELECTION, it’s not going to work for...
+- [12:39 UTC - TOMORROW NIGHT WILL BE BIG. I WILL TELL IT LIKE IT IS!](114098542644386176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114098542644386176
+  - TOMORROW NIGHT WILL BE BIG. I WILL TELL IT LIKE IT IS!
+- [12:36 UTC - The only President who gave none of Ukraine’s land to Putin’s Russia is President Donald J...](114098529870362771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114098529870362771
+  - The only President who gave none of Ukraine’s land to Putin’s Russia is President Donald J. Trump. Remember that when the weak and ineffective Democrat’s criticize, and the Fake Ne...
+- [02:21 UTC - Truth Social post 114096111803441768](114096111803441768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114096111803441768
+  - _No text content captured._
+- [02:20 UTC - Exciting news! The Treasury Department has announced that they are suspending all enforcem...](114096106742782827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114096106742782827
+  - Exciting news! The Treasury Department has announced that they are suspending all enforcement of the outrageous and invasive Beneficial Ownership Information (BOI) reporting requir...
+- [02:19 UTC - We should spend less time worrying about Putin, and more time worrying about migrant rape ...](114096104536926329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114096104536926329
+  - We should spend less time worrying about Putin, and more time worrying about migrant rape gangs, drug lords, murderers, and people from mental institutions entering our Country - S...
+- [02:19 UTC - H.R. MCMASTER IS A WEAK AND TOTALLY INEFFECTIVE LOSER!](114096103832487629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114096103832487629
+  - H.R. MCMASTER IS A WEAK AND TOTALLY INEFFECTIVE LOSER!

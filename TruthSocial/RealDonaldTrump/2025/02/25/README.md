@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-02-25
+
+- Posts: 15
+
+- [23:05 UTC - Like our Steel and Aluminum Industries, our Great American Copper Industry has been decima...](114067029529937308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114067029529937308
+  - Like our Steel and Aluminum Industries, our Great American Copper Industry has been decimated by global actors attacking our domestic production. To build back our Copper Industry,...
+- [23:05 UTC - Our incredible United States Economy and undeniable American Spirit have enabled the creat...](114067028336826956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114067028336826956
+  - Our incredible United States Economy and undeniable American Spirit have enabled the creation of the Greatest Technology Companies on Earth. Our Digital Economy is bigger than most...
+- [21:49 UTC - “TRUMP WAS RIGHT ABOUT EVERYTHING”](114066731592358108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114066731592358108
+  - “TRUMP WAS RIGHT ABOUT EVERYTHING”
+- [19:17 UTC - Truth Social post 114066130738971458](114066130738971458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114066130738971458
+  - _No text content captured._
+- [19:15 UTC - Truth Social post 114066124269502945](114066124269502945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114066124269502945
+  - _No text content captured._
+- [18:44 UTC - “Lara Trump's brand new Fox News show shatters records after bombshell debut alongside top...](114066002055877279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114066002055877279
+  - “Lara Trump's brand new Fox News show shatters records after bombshell debut alongside top MAGA ladies” [https://www. dailymail.co.uk/news/article-1 4435041/lara-trump-fox-news-sha...
+- [18:28 UTC - Truth Social post 114065941000303522](114065941000303522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114065941000303522
+  - _No text content captured._
+- [15:23 UTC - [https://www. whitehouse.gov/articles/2025/0 2/icymi-departments-tout-results-after-presid...](114065212497787647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114065212497787647
+  - [https://www. whitehouse.gov/articles/2025/0 2/icymi-departments-tout-results-after-president-trumps-historic-first-month/](https://www.whitehouse.gov/articles/2025/02/icymi-depart...
+- [15:22 UTC - [https://www. whitehouse.gov/articles/2025/0 2/new-poll-shows-massive-support-for-presiden...](114065207419169880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114065207419169880
+  - [https://www. whitehouse.gov/articles/2025/0 2/new-poll-shows-massive-support-for-president-trump-and-his-agenda/](https://www.whitehouse.gov/articles/2025/02/new-poll-shows-massiv...
+- [15:12 UTC - A must watch with Mark Levin and Victor Davis Hanson…](114065168236809535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114065168236809535
+  - A must watch with Mark Levin and Victor Davis Hanson…
+- [03:42 UTC - [https:// dailycaller.com/2025/02/15/opi nion-trumps-first-month-delivered-results-david-b...](114062456734871983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114062456734871983
+  - [https:// dailycaller.com/2025/02/15/opi nion-trumps-first-month-delivered-results-david-bossie/](https://dailycaller.com/2025/02/15/opinion-trumps-first-month-delivered-results-da...
+- [02:51 UTC - VIVEK RAMASWAMY is running for Governor of the Great State of Ohio. I know him well, compe...](114062254652077484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114062254652077484
+  - VIVEK RAMASWAMY is running for Governor of the Great State of Ohio. I know him well, competed against him, and he is something SPECIAL. He’s Young, Strong, and Smart! Vivek is also...
+- [01:00 UTC - Our Country’s doing really well, and today, I was just thinking, that the company building...](114061816777959152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114061816777959152
+  - Our Country’s doing really well, and today, I was just thinking, that the company building the Keystone XL Pipeline that was viciously jettisoned by the incompetent Biden Administr...
+- [00:59 UTC - Truth Social post 114061816457674599](114061816457674599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114061816457674599
+  - _No text content captured._
+- [00:34 UTC - 🇺🇸🇫🇷](114061717963482741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114061717963482741
+  - 🇺🇸🇫🇷

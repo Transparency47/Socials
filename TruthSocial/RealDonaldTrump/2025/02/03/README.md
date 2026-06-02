@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-02-03
+
+- Posts: 21
+
+- [23:40 UTC - It is my pleasure to nominate Joe Kent as the Director of the National Counter Terrorism C...](113942595408214881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942595408214881
+  - It is my pleasure to nominate Joe Kent as the Director of the National Counter Terrorism Center. As a Soldier, Green Beret, and CIA Officer, Joe has hunted down terrorists and crim...
+- [23:40 UTC - I am pleased to announce that Sean Parnell will be the Assistant to the Secretary of Defen...](113942594933209212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942594933209212
+  - I am pleased to announce that Sean Parnell will be the Assistant to the Secretary of Defense for Public Affairs, and Chief Pentagon Spokesman. A Great American Patriot, Sean is a f...
+- [23:00 UTC - The water is flowing in California. These once empty “halfpipes” are now brimming with bea...](113942439882594659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942439882594659
+  - The water is flowing in California. These once empty “halfpipes” are now brimming with beautiful, clean water, and heading to farmers throughout the State, and to Los Angeles. Too...
+- [22:31 UTC - I am pleased to announce the appointment of Michael Ellis to serve as Deputy Director of t...](113942323439724379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942323439724379
+  - I am pleased to announce the appointment of Michael Ellis to serve as Deputy Director of the Central Intelligence Agency. During my First Term, Michael served at the White House Na...
+- [21:58 UTC - [https://www. youtube.com/live/VPBYcaOzuyg?s i=xZNPSk-FN_uro-yn](https://www.youtube.com/l...](113942195406604786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942195406604786
+  - [https://www. youtube.com/live/VPBYcaOzuyg?s i=xZNPSk-FN_uro-yn](https://www.youtube.com/live/VPBYcaOzuyg?si=xZNPSk-FN_uro-yn)
+- [21:57 UTC - Canada has agreed to ensure we have a secure Northern Border, and to finally end the deadl...](113942189236610107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942189236610107
+  - Canada has agreed to ensure we have a secure Northern Border, and to finally end the deadly scourge of drugs like Fentanyl that have been pouring into our Country, killing hundreds...
+- [19:01 UTC - Truth Social post 113941498077749909](113941498077749909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113941498077749909
+  - _No text content captured._
+- [15:41 UTC - I just spoke with President Claudia Sheinbaum of Mexico. It was a very friendly conversati...](113940711907400754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113940711907400754
+  - I just spoke with President Claudia Sheinbaum of Mexico. It was a very friendly conversation wherein she agreed to immediately supply 10,000 Mexican Soldiers on the Border separati...
+- [14:09 UTC - Canada doesn’t even allow U.S. Banks to open or do business there. What’s that all about? ...](113940352024494275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113940352024494275
+  - Canada doesn’t even allow U.S. Banks to open or do business there. What’s that all about? Many such things, but it’s also a DRUG WAR, and hundreds of thousands of people have died...
+- [02:35 UTC - Truth Social post 113937620582145346](113937620582145346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937620582145346
+  - _No text content captured._
+- [02:35 UTC - Truth Social post 113937619615235366](113937619615235366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937619615235366
+  - _No text content captured._
+- [02:34 UTC - Truth Social post 113937618692937950](113937618692937950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937618692937950
+  - _No text content captured._
+- [02:34 UTC - RT [@ RepMTG](https://truthsocial.com/@RepMTG) Tomorrow, as promised, President [@ realDon...](113937616730169619/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937616730169619
+  - RT [@ RepMTG](https://truthsocial.com/@RepMTG) Tomorrow, as promised, President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) will sign a significant number of J6 p...
+- [02:34 UTC - RT [@ PaulIngrassia](https://truthsocial.com/@PaulIngrassia) BREAKING: First January 6th p...](113937615933694509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937615933694509
+  - RT [@ PaulIngrassia](https://truthsocial.com/@PaulIngrassia) BREAKING: First January 6th political prisoners to be released after President Trump’s pardon: brothers Matthew and And...
+- [00:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Anybody that’s against Ta...](113937029963457397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937029963457397
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Anybody that’s against Tariffs, including the Fake News Wall Street Journal, and Hedge Funds, is only against them...
+- [00:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The water is flowing in C...](113937029704789634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937029704789634
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The water is flowing in California. These once empty “halfpipes” are now brimming with beautiful, clean water, and...
+- [00:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) South Africa is confiscat...](113937029413977945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937029413977945
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) South Africa is confiscating land, and treating certain classes of people VERY BADLY. It is a bad situation that th...
+- [00:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. foxnews.com...](113937028962518704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937028962518704
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. foxnews.com/video/636814496111 2](https://www.foxnews.com/video/6368144961112)
+- [00:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Democrats are purposefull...](113937028664575945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937028664575945
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Democrats are purposefully delaying virtually all of my Nominees. No matter how good and well qualified someone is,...
+- [00:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) WATCH MARK LEVIN TONIGHT,...](113937028456845152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937028456845152
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) WATCH MARK LEVIN TONIGHT, on FoxNews, 8 P.M. Eastern. Great Show!
+- [00:03 UTC - Truth Social post 113937025462359267](113937025462359267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113937025462359267
+  - _No text content captured._

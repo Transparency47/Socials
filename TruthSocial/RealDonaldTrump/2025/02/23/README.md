@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-02-23
+
+- Posts: 10
+
+- [22:09 UTC - Truth Social post 114055482632468260](114055482632468260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114055482632468260
+  - _No text content captured._
+- [22:08 UTC - From Elon…](114055478149078818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114055478149078818
+  - From Elon…
+- [21:04 UTC - So-called “Author” Michael Wolff’s new book is a total FAKE JOB, just like the other JUNK ...](114055226421032415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114055226421032415
+  - So-called “Author” Michael Wolff’s new book is a total FAKE JOB, just like the other JUNK he wrote. He called me many times trying to set up a meeting, but I never called him back...
+- [20:40 UTC - Great job by Congressman Roger Williams, of Texas, on FoxNews. Our economy will ROAR!!!](114055134407375955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114055134407375955
+  - Great job by Congressman Roger Williams, of Texas, on FoxNews. Our economy will ROAR!!!
+- [18:51 UTC - LOOKS LIKE THE CONSERVATIVE PARTY IN GERMANY HAS WON THE VERY BIG AND HIGHLY ANTICIPATED E...](114054706390970120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114054706390970120
+  - LOOKS LIKE THE CONSERVATIVE PARTY IN GERMANY HAS WON THE VERY BIG AND HIGHLY ANTICIPATED ELECTION. MUCH LIKE THE USA, THE PEOPLE OF GERMANY GOT TIRED OF THE NO COMMON SENSE AGENDA,...
+- [17:23 UTC - Truth Social post 114054360748596336](114054360748596336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114054360748596336
+  - _No text content captured._
+- [17:20 UTC - Truth Social post 114054348004560805](114054348004560805/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114054348004560805
+  - _No text content captured._
+- [03:41 UTC - Truth Social post 114051125577118510](114051125577118510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114051125577118510
+  - _No text content captured._
+- [03:39 UTC - Truth Social post 114051118872513394](114051118872513394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114051118872513394
+  - _No text content captured._
+- [03:39 UTC - Truth Social post 114051118201955540](114051118201955540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114051118201955540
+  - _No text content captured._

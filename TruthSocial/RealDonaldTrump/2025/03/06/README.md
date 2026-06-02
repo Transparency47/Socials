@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-03-06
+
+- Posts: 9
+
+- [20:43 UTC - Truth Social post 114117432399777798](114117432399777798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114117432399777798
+  - _No text content captured._
+- [18:55 UTC - The Golden Age of America has just begun! Over the past six weeks, our Administration has ...](114117008305421663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114117008305421663
+  - The Golden Age of America has just begun! Over the past six weeks, our Administration has delivered on promises like no Administration before it, always putting America First! DOGE...
+- [18:54 UTC - Truth Social post 114117001267896019](114117001267896019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114117001267896019
+  - _No text content captured._
+- [16:29 UTC - After speaking with President Claudia Sheinbaum of Mexico, I have agreed that Mexico will ...](114116432894994278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114116432894994278
+  - After speaking with President Claudia Sheinbaum of Mexico, I have agreed that Mexico will not be required to pay Tariffs on anything that falls under the USMCA Agreement. This Agre...
+- [15:48 UTC - Believe it or not, despite the terrible job he’s done for Canada, I think that Justin Trud...](114116271026986660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114116271026986660
+  - Believe it or not, despite the terrible job he’s done for Canada, I think that Justin Trudeau is using the Tariff problem, which he has largely caused, in order to run again for Pr...
+- [15:09 UTC - Massive Trade Deficit with the World, just announced, compliments of Sleepy Joe Biden! I w...](114116116851075814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114116116851075814
+  - Massive Trade Deficit with the World, just announced, compliments of Sleepy Joe Biden! I will change that!!!
+- [14:27 UTC - Truth Social post 114115950832861490](114115950832861490/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114115950832861490
+  - _No text content captured._
+- [04:06 UTC - The Fake “Play the Ref” News, in order to create a divide between me and our great U.S. Su...](114113510529624746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114113510529624746
+  - The Fake “Play the Ref” News, in order to create a divide between me and our great U.S. Supreme Court, heard me say last night, loudly and openly as I was walking past the Justices...
+- [00:20 UTC - Government funding runs out next week, and Democrats are threatening to shut down the Gove...](114112621570651215/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114112621570651215
+  - Government funding runs out next week, and Democrats are threatening to shut down the Government - But I am working with the GREAT House Republicans on a Continuing Resolution to f...

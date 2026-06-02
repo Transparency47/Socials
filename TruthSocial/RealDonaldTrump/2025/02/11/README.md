@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-02-11
+
+- Posts: 21
+
+- [22:46 UTC - [https://www. youtube.com/live/cAgVYfvAYRc?s i=fp_L1vzuUvB2iXF_](https://www.youtube.com/l...](113987681068102342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113987681068102342
+  - [https://www. youtube.com/live/cAgVYfvAYRc?s i=fp_L1vzuUvB2iXF_](https://www.youtube.com/live/cAgVYfvAYRc?si=fp_L1vzuUvB2iXF_)
+- [22:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113986642361079256](113987663655554593/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113987663655554593
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113986642361079256
+- [21:31 UTC - Truth Social post 113987385627426874](113987385627426874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113987385627426874
+  - _No text content captured._
+- [18:32 UTC - A BULLY IS THE WEAKEST PERSON…](113986682230247774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113986682230247774
+  - A BULLY IS THE WEAKEST PERSON…
+- [18:30 UTC - King of Jordan Abdullah II: "I truly believe, with all the challenges that we have in the ...](113986673152923628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113986673152923628
+  - King of Jordan Abdullah II: "I truly believe, with all the challenges that we have in the Middle East, that I finally see somebody that can take us across the finish line to bring...
+- [18:22 UTC - Truth Social post 113986642361079256](113986642361079256/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113986642361079256
+  - _No text content captured._
+- [16:51 UTC - I am pleased to announce that Terry Cole will be the next Drug Enforcement Administration ...](113986285138546896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113986285138546896
+  - I am pleased to announce that Terry Cole will be the next Drug Enforcement Administration (DEA) Administrator. Terry is a DEA Veteran of 21 years, with tours in Colombia, Afghanist...
+- [16:49 UTC - I am sending Secretary of the Treasury Scott Bessent to Ukraine to meet President Zelensky...](113986279826269375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113986279826269375
+  - I am sending Secretary of the Treasury Scott Bessent to Ukraine to meet President Zelensky. This War MUST and WILL END SOON — Too much Death and Destruction. The U.S. has spent BIL...
+- [15:29 UTC - FEMA spent tens of millions of dollars in Democrat areas, disobeying orders, but left the ...](113985962341531654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113985962341531654
+  - FEMA spent tens of millions of dollars in Democrat areas, disobeying orders, but left the people of North Carolina high and dry. It is now under review and investigation. THE BIDEN...
+- [15:12 UTC - DOGE: BILLIONS OF DOLLARS OF WASTE, FRAUD, AND ABUSE BEING FOUND. CAMPAIGN PROMISE. IMPORT...](113985896471994837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113985896471994837
+  - DOGE: BILLIONS OF DOLLARS OF WASTE, FRAUD, AND ABUSE BEING FOUND. CAMPAIGN PROMISE. IMPORTANT FOR AMERICA!!!
+- [15:04 UTC - “DOGE DISRUPTS DC WITH MASSIVE SPENDING CUTS”](113985863713180341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113985863713180341
+  - “DOGE DISRUPTS DC WITH MASSIVE SPENDING CUTS”
+- [12:47 UTC - Billions of Dollars of FRAUD, WASTE, AND ABUSE, has already been found in the investigatio...](113985325416343873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113985325416343873
+  - Billions of Dollars of FRAUD, WASTE, AND ABUSE, has already been found in the investigation of our incompetently run Government. Now certain activists and highly political judges w...
+- [11:57 UTC - I am hereby instructing Secretary Lee Zeldin to immediately go back to my Environmental Or...](113985130949178184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113985130949178184
+  - I am hereby instructing Secretary Lee Zeldin to immediately go back to my Environmental Orders, which were terminated by Crooked Joe Biden, on Water Standards and Flow pertaining t...
+- [11:07 UTC - California just stopped counting their votes on the 2024 Presidential Election. VOTER I.D....](113984933641128955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984933641128955
+  - California just stopped counting their votes on the 2024 Presidential Election. VOTER I.D. IS TOTALLY BARRED! IN FACT, IT IS ILLEGAL FOR VOTING OFFICIALS TO EVEN ASK TO SEE A PERSO...
+- [10:58 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) New York is the most corr...](113984899512098104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984899512098104
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) New York is the most corrupt State in the Union. That is why so many businesses and people are fleeing. We need gre...
+- [10:56 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)](113984888355813150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984888355813150
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47)
+- [10:56 UTC - RT [@ SilverKnight57](https://truthsocial.com/@SilverKnight57)](113984888085213152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984888085213152
+  - RT [@ SilverKnight57](https://truthsocial.com/@SilverKnight57)
+- [10:50 UTC - RT [@ joemccuiston](https://truthsocial.com/@joemccuiston)](113984865882064042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984865882064042
+  - RT [@ joemccuiston](https://truthsocial.com/@joemccuiston)
+- [10:49 UTC - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) With voting for Presi...](113984864129540464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984864129540464
+  - RT [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) With voting for President Trump, I voted for all of them! Team America! 🇺🇸 [# Truth](https://truthsocial.com/ta...
+- [10:46 UTC - [https:// truthsocial.com/users/joemccui ston/statuses/113978435762084014](https://truthso...](113984852242263217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984852242263217
+  - [https:// truthsocial.com/users/joemccui ston/statuses/113978435762084014](https://truthsocial.com/users/joemccuiston/statuses/113978435762084014)
+- [10:43 UTC - New York is the most corrupt State in the Union. That is why so many businesses and people...](113984838325525572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113984838325525572
+  - New York is the most corrupt State in the Union. That is why so many businesses and people are fleeing. We need great Judges and Politicians to help fix New York, and to stop the k...

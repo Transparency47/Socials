@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-02-04
+
+- Posts: 13
+
+- [23:46 UTC - [https://www. youtube.com/live/MvheR2KJYyY?s i=zghFB6H8zh6pe-0o](https://www.youtube.com/l...](113948279944363218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113948279944363218
+  - [https://www. youtube.com/live/MvheR2KJYyY?s i=zghFB6H8zh6pe-0o](https://www.youtube.com/live/MvheR2KJYyY?si=zghFB6H8zh6pe-0o)
+- [22:18 UTC - Truth Social post 113947933609173828](113947933609173828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113947933609173828
+  - _No text content captured._
+- [20:45 UTC - Truth Social post 113947570438388377](113947570438388377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113947570438388377
+  - _No text content captured._
+- [16:49 UTC - I was just informed that Tiger Woods’ wonderful Mother, Kultida, passed away — She has gon...](113946642879077926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113946642879077926
+  - I was just informed that Tiger Woods’ wonderful Mother, Kultida, passed away — She has gone onto greener fairways! Kultida Woods was an amazing influence on Tiger, and gave him muc...
+- [14:48 UTC - [https://www. foxnews.com/media/trump-scores -big-legal-win-against-pulitzer-prize-board-l...](113946164675724689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113946164675724689
+  - [https://www. foxnews.com/media/trump-scores -big-legal-win-against-pulitzer-prize-board-lawsuit-moves-discovery](https://www.foxnews.com/media/trump-scores-big-legal-win-against-p...
+- [14:39 UTC - 20 years ago, Autism in children was 1 in 10,000. NOW IT’S 1 in 34. WOW! Something’s reall...](113946130240319294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113946130240319294
+  - 20 years ago, Autism in children was 1 in 10,000. NOW IT’S 1 in 34. WOW! Something’s really wrong. We need BOBBY!!! Thank You! DJT
+- [05:28 UTC - Truth Social post 113943964605831451](113943964605831451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943964605831451
+  - _No text content captured._
+- [02:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113943147684253813](113943189680207332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943189680207332
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113943147684253813
+- [02:00 UTC - It was my great honor to host the 2024 Stanley Cup Champion Florida Panthers at the White ...](113943147684253813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943147684253813
+  - It was my great honor to host the 2024 Stanley Cup Champion Florida Panthers at the White House today. Congratulations!
+- [01:49 UTC - Truth Social post 113943103440219603](113943103440219603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943103440219603
+  - _No text content captured._
+- [01:47 UTC - Truth Social post 113943095155195789](113943095155195789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943095155195789
+  - _No text content captured._
+- [01:45 UTC - GREAT INTEREST IN TIKTOK! Would be wonderful for China, and all concerned.](113943087759847311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113943087759847311
+  - GREAT INTEREST IN TIKTOK! Would be wonderful for China, and all concerned.
+- [01:02 UTC - Another very big and successful week of WINS for Republicans in the Great State of Florida...](113942916893223583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113942916893223583
+  - Another very big and successful week of WINS for Republicans in the Great State of Florida! Florida’s third largest County, Hillsborough, has FLIPPED RED to a Republican Majority i...

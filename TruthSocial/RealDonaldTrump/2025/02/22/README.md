@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-02-22
+
+- Posts: 10
+
+- [23:22 UTC - Melania and I are looking forward to dinner tonight, at the White House, with our Nation’s...](114050109943745892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114050109943745892
+  - Melania and I are looking forward to dinner tonight, at the White House, with our Nation’s Governors, both Republican and Democrat. Maybe this will be the start of UNITY for our Na...
+- [23:12 UTC - Remember, LARA TRUMP opens her big new show tonight at 9:00 P.M., on FoxNews. I may be sli...](114050070794885064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114050070794885064
+  - Remember, LARA TRUMP opens her big new show tonight at 9:00 P.M., on FoxNews. I may be slightly prejudiced, because Lara is my wonderful daughter-in-law, the wife of my equally won...
+- [19:03 UTC - [https:// rumble.com/v6lwpvv-live-cpac-2 025-day-three-22225.html](https://rumble.com/v6lw...](114049091411583764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114049091411583764
+  - [https:// rumble.com/v6lwpvv-live-cpac-2 025-day-three-22225.html](https://rumble.com/v6lwpvv-live-cpac-2025-day-three-22225.html)
+- [13:19 UTC - SIXTH HOSTAGE HAS JUST BEEN RELEASED BY HAMAS!](114047738854261552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047738854261552
+  - SIXTH HOSTAGE HAS JUST BEEN RELEASED BY HAMAS!
+- [13:14 UTC - OUR SOUTHERN BORDER IS CLOSED!!!](114047718263615731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047718263615731
+  - OUR SOUTHERN BORDER IS CLOSED!!!
+- [13:12 UTC - MSNBC, COMMONLY KNOWN AS MSDNC, IS A THREAT TO OUR DEMOCRACY. SUCH LYING AND MISREPRESENTA...](114047709471578461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047709471578461
+  - MSNBC, COMMONLY KNOWN AS MSDNC, IS A THREAT TO OUR DEMOCRACY. SUCH LYING AND MISREPRESENTATION. BAD PEOPLE AT THE TOP!
+- [13:04 UTC - ELON IS DOING A GREAT JOB, BUT I WOULD LIKE TO SEE HIM GET MORE AGGRESSIVE. REMEMBER, WE H...](114047677181856301/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047677181856301
+  - ELON IS DOING A GREAT JOB, BUT I WOULD LIKE TO SEE HIM GET MORE AGGRESSIVE. REMEMBER, WE HAVE A COUNTRY TO SAVE, BUT ULTIMATELY, TO MAKE GREATER THAN EVER BEFORE. MAGA!
+- [12:53 UTC - SEE YOU AT CPAC TODAY. BIG CROWD!!!](114047636346854246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047636346854246
+  - SEE YOU AT CPAC TODAY. BIG CROWD!!!
+- [12:52 UTC - HIGHEST POLL NUMBERS EVER. I GUESS WE ARE ON THE RIGHT TRACK!!! THANK YOU.](114047631828196314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114047631828196314
+  - HIGHEST POLL NUMBERS EVER. I GUESS WE ARE ON THE RIGHT TRACK!!! THANK YOU.
+- [00:30 UTC - I want to thank General Charles “CQ” Brown for his over 40 years of service to our country...](114044712489265353/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114044712489265353
+  - I want to thank General Charles “CQ” Brown for his over 40 years of service to our country, including as our current Chairman of the Joint Chiefs of Staff. He is a fine gentleman a...

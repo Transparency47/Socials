@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-03-20
+
+- Posts: 16
+
+- [23:04 UTC - Great Article by the wonderful Miranda Devine of The New York Post – A MUST READ on one, o...](114197257776642416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114197257776642416
+  - Great Article by the wonderful Miranda Devine of The New York Post – A MUST READ on one, of many, out of control, Radical Left Judges! [https:// nypost.com/2025/03/19/opinion/ trum...
+- [22:29 UTC - Judge James Boasberg is doing everything in his power to usurp the Power of the Presidency...](114197120302143482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114197120302143482
+  - Judge James Boasberg is doing everything in his power to usurp the Power of the Presidency. He is a local, unknown Judge, a Grandstander, looking for publicity, and it cannot be fo...
+- [22:22 UTC - Unlawful Nationwide Injunctions by Radical Left Judges could very well lead to the destruc...](114197092205719557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114197092205719557
+  - Unlawful Nationwide Injunctions by Radical Left Judges could very well lead to the destruction of our Country! These people are Lunatics, who do not care, even a little bit, about...
+- [22:10 UTC - Today, President Donald J. Trump agreed to withdraw his March 14, 2025 Executive Order reg...](114197044617921519/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114197044617921519
+  - Today, President Donald J. Trump agreed to withdraw his March 14, 2025 Executive Order regarding the Paul, Weiss, Rifkind, Wharton & Garrison LLP law firm (“Paul, Weiss”), which ha...
+- [21:22 UTC - “Improving Education Outcomes by Empowering Parents, States, and Communities” [https://www...](114196857285570492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114196857285570492
+  - “Improving Education Outcomes by Empowering Parents, States, and Communities” [https://www. whitehouse.gov/presidential-ac tions/2025/03/improving-education-outcomes-by-empowering-...
+- [21:10 UTC - Truth Social post 114196809553032233](114196809553032233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114196809553032233
+  - _No text content captured._
+- [20:25 UTC - [https://www. youtube.com/live/ZjnoGgEJvLs?s i=GpM4YfEAixklmjck](https://www.youtube.com/l...](114196632592140620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114196632592140620
+  - [https://www. youtube.com/live/ZjnoGgEJvLs?s i=GpM4YfEAixklmjck](https://www.youtube.com/live/ZjnoGgEJvLs?si=GpM4YfEAixklmjck)
+- [18:47 UTC - Senator Jim Risch is doing a tremendous job representing the incredible people of Idaho, a...](114196247731494277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114196247731494277
+  - Senator Jim Risch is doing a tremendous job representing the incredible people of Idaho, a State I love, and WON BIG, in 2016, 2020, and 2024! As the Chair of the Senate Foreign Re...
+- [15:23 UTC - Truth Social post 114195443445454191](114195443445454191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114195443445454191
+  - _No text content captured._
+- [15:22 UTC - Financial Times: “The huge spending projection from the world’s most valuable semiconducto...](114195442142009895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114195442142009895
+  - Financial Times: “The huge spending projection from the world’s most valuable semiconductor group (Nvidia) follows multibillion-dollar US investment plans announced by other techno...
+- [15:14 UTC - Tom Homan: “In four weeks, we arrested more criminal aliens in the interior of the United ...](114195410721793973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114195410721793973
+  - Tom Homan: “In four weeks, we arrested more criminal aliens in the interior of the United States than Joe Biden did in a year...Border numbers right now are down 96%...We did in si...
+- [14:27 UTC - [https://www. whitehouse.gov/fact-sheets/202 5/03/fact-sheet-president-donald-j-trump-achi...](114195225345589954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114195225345589954
+  - [https://www. whitehouse.gov/fact-sheets/202 5/03/fact-sheet-president-donald-j-trump-achieves-efficiency-through-state-and-local-preparedness/](https://www.whitehouse.gov/fact-she...
+- [14:26 UTC - [https://www. whitehouse.gov/articles/2025/0 3/president-trump-positions-u-s-as-global-sup...](114195221740515145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114195221740515145
+  - [https://www. whitehouse.gov/articles/2025/0 3/president-trump-positions-u-s-as-global-superpower-in-manufacturing/](https://www.whitehouse.gov/articles/2025/03/president-trump-pos...
+- [12:59 UTC - “Nvidia to spend hundreds of billions in U.S. during Trump's term” [https://www. axios.com...](114194879718374915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114194879718374915
+  - “Nvidia to spend hundreds of billions in U.S. during Trump's term” [https://www. axios.com/2025/03/20/nvidia-sp end-hundreds-billions-us-during-trump-term](https://www.axios.com/20...
+- [02:10 UTC - The Fed would be MUCH better off CUTTING RATES as U.S.Tariffs start to transition (ease!) ...](114192326899482441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114192326899482441
+  - The Fed would be MUCH better off CUTTING RATES as U.S.Tariffs start to transition (ease!) their way into the economy. Do the right thing. April 2nd is Liberation Day in America!!!
+- [00:46 UTC - WELCOME TO THE OVAL OFFICE🇺🇸](114191995411774907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114191995411774907
+  - WELCOME TO THE OVAL OFFICE🇺🇸

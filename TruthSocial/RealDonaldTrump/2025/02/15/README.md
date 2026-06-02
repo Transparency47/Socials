@@ -1,0 +1,106 @@
+# TruthSocial / RealDonaldTrump / 2025-02-15
+
+- Posts: 34
+
+- [20:33 UTC - Truth Social post 114009808297776857](114009808297776857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009808297776857
+  - _No text content captured._
+- [17:53 UTC - He who saves his Country does not violate any Law.](114009179225169296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009179225169296
+  - He who saves his Country does not violate any Law.
+- [17:53 UTC - Truth Social post 114009178744342989](114009178744342989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009178744342989
+  - _No text content captured._
+- [17:52 UTC - On Trade, I have decided, for purposes of Fairness, that I will charge a RECIPROCAL Tariff...](114009175266247925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009175266247925
+  - On Trade, I have decided, for purposes of Fairness, that I will charge a RECIPROCAL Tariff meaning, whatever Countries charge the United States of America, we will charge them - No...
+- [17:51 UTC - [https:// nypost.com/2025/02/11/us-news/ fema-employees-set-to-be-fired-over-egregious-pay...](114009172738864199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009172738864199
+  - [https:// nypost.com/2025/02/11/us-news/ fema-employees-set-to-be-fired-over-egregious-payment-for-nyc-migrants/](https://nypost.com/2025/02/11/us-news/fema-employees-set-to-be-fir...
+- [17:51 UTC - [https:// nypost.com/2025/02/11/us-news/ musk-defends-mass-doge-firings-says-the-us-should...](114009171492649276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009171492649276
+  - [https:// nypost.com/2025/02/11/us-news/ musk-defends-mass-doge-firings-says-the-us-should-not-live-in-a-bureaucracy](https://nypost.com/2025/02/11/us-news/musk-defends-mass-doge-f...
+- [17:50 UTC - [https:// nypost.com/2025/02/10/opinion/ trumps-war-on-woke-is-tearing-down-the-lefts-cult...](114009168071218155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009168071218155
+  - [https:// nypost.com/2025/02/10/opinion/ trumps-war-on-woke-is-tearing-down-the-lefts-cultural-sway/](https://nypost.com/2025/02/10/opinion/trumps-war-on-woke-is-tearing-down-the-l...
+- [17:50 UTC - [https:// nypost.com/2025/02/10/opinion/ incompetent-vs-crooked-dcs-rotten-system-revealed...](114009166854052500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009166854052500
+  - [https:// nypost.com/2025/02/10/opinion/ incompetent-vs-crooked-dcs-rotten-system-revealed-by-musk/](https://nypost.com/2025/02/10/opinion/incompetent-vs-crooked-dcs-rotten-system-...
+- [17:50 UTC - [https://www. nysun.com/article/trump-moving -toward-peace-in-ukraine-is-the-most-statesma...](114009165566411542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009165566411542
+  - [https://www. nysun.com/article/trump-moving -toward-peace-in-ukraine-is-the-most-statesmanlike-president-in-generations](https://www.nysun.com/article/trump-moving-toward-peace-in...
+- [17:49 UTC - [https://www. realclearpolitics.com/articles /2025/02/12/why_trump_20_looks_unstoppable__1...](114009164890550216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009164890550216
+  - [https://www. realclearpolitics.com/articles /2025/02/12/why_trump_20_looks_unstoppable__152343.html](https://www.realclearpolitics.com/articles/2025/02/12/why_trump_20_looks_unsto...
+- [17:49 UTC - [https:// dailycaller.com/2025/02/11/new t-gingrich-donald-trump-lincoln-american-establis...](114009164279190016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009164279190016
+  - [https:// dailycaller.com/2025/02/11/new t-gingrich-donald-trump-lincoln-american-establishment/](https://dailycaller.com/2025/02/11/newt-gingrich-donald-trump-lincoln-american-est...
+- [17:49 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3317233/black-men-love-trump...](114009163651662917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009163651662917
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3317233/black-men-love-trump-dooms-democrats-42-percent-support-poll/](https://www.washingtonexaminer.com/news/washing...
+- [17:49 UTC - [https://www. breitbart.com/immigration/2025 /02/12/nolte-public-sides-trump-limiting-birt...](114009162930049742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009162930049742
+  - [https://www. breitbart.com/immigration/2025 /02/12/nolte-public-sides-trump-limiting-birthright-citizenship/](https://www.breitbart.com/immigration/2025/02/12/nolte-public-sides-t...
+- [17:49 UTC - [https://www. breitbart.com/politics/2025/02 /11/exclusive-sen-jim-banks-trump-brought-bac...](114009162242803101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009162242803101
+  - [https://www. breitbart.com/politics/2025/02 /11/exclusive-sen-jim-banks-trump-brought-back-manufacturing-to-indiana-saved-the-american-dream/](https://www.breitbart.com/politics/2...
+- [17:49 UTC - [https:// justthenews.com/government/dip lomacy/americas-metal-industry-needs-hero-man-ste...](114009161558558285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009161558558285
+  - [https:// justthenews.com/government/dip lomacy/americas-metal-industry-needs-hero-man-steel-has-plan](https://justthenews.com/government/diplomacy/americas-metal-industry-needs-he...
+- [17:48 UTC - US will be 'flooded with jobs' as foreign nations avoid tariffs, Trump says [https://www. ...](114009160733381255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009160733381255
+  - US will be 'flooded with jobs' as foreign nations avoid tariffs, Trump says [https://www. foxnews.com/politics/us-floode d-jobs-foreign-nations-avoid-tariffs-trump-says](https://ww...
+- [17:48 UTC - [https:// dailycaller.com/2025/02/13/tru mp-epa-moves-to-claw-back-bidens-20-billion-green...](114009159894089307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009159894089307
+  - [https:// dailycaller.com/2025/02/13/tru mp-epa-moves-to-claw-back-bidens-20-billion-green-slush-fund/](https://dailycaller.com/2025/02/13/trump-epa-moves-to-claw-back-bidens-20-bi...
+- [17:48 UTC - [https://www. washingtonexaminer.com/news/wo rld/3319093/hamas-recommits-hostage-swap-time...](114009158627259992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009158627259992
+  - [https://www. washingtonexaminer.com/news/wo rld/3319093/hamas-recommits-hostage-swap-timeline/](https://www.washingtonexaminer.com/news/world/3319093/hamas-recommits-hostage-swap-...
+- [17:48 UTC - [https://www. washingtonexaminer.com/news/wo rld/3319093/hamas-recommits-hostage-swap-time...](114009157625274442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009157625274442
+  - [https://www. washingtonexaminer.com/news/wo rld/3319093/hamas-recommits-hostage-swap-timeline/](https://www.washingtonexaminer.com/news/world/3319093/hamas-recommits-hostage-swap-...
+- [17:47 UTC - [https:// freebeacon.com/latest-news/top -arab-diplomat-sees-no-alternative-to-trumps-gaza...](114009156928470183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009156928470183
+  - [https:// freebeacon.com/latest-news/top -arab-diplomat-sees-no-alternative-to-trumps-gaza-plan/](https://freebeacon.com/latest-news/top-arab-diplomat-sees-no-alternative-to-trumps...
+- [17:47 UTC - [https://www. dailywire.com/news/radical-isl ams-long-game-of-propaganda-in-the-west-is-ov...](114009156038278368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009156038278368
+  - [https://www. dailywire.com/news/radical-isl ams-long-game-of-propaganda-in-the-west-is-over-because-of-trump](https://www.dailywire.com/news/radical-islams-long-game-of-propaganda...
+- [17:47 UTC - [https:// freebeacon.com/latest-news/tru mp-announces-reciprocal-tariffs-on-allies-competi...](114009155065149039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009155065149039
+  - [https:// freebeacon.com/latest-news/tru mp-announces-reciprocal-tariffs-on-allies-competitors-to-address-unfair-trade-practices/](https://freebeacon.com/latest-news/trump-announce...
+- [17:47 UTC - [https://www. washingtonexaminer.com/news/se nate/3319320/brooke-rollins-confirmed-trump-a...](114009154362525168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009154362525168
+  - [https://www. washingtonexaminer.com/news/se nate/3319320/brooke-rollins-confirmed-trump-agriculture-secretary-bipartisan-support/](https://www.washingtonexaminer.com/news/senate/3...
+- [17:47 UTC - [https:// nypost.com/2025/02/12/opinion/ miranda-devine-the-trump-administration-truly-car...](114009153468048775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009153468048775
+  - [https:// nypost.com/2025/02/12/opinion/ miranda-devine-the-trump-administration-truly-cares-about-inspiring-the-next-generation/](https://nypost.com/2025/02/12/opinion/miranda-dev...
+- [17:46 UTC - [https:// nypost.com/2025/02/12/opinion/ trump-hasnt-created-a-constitutional-crisis-hes-t...](114009152199572104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009152199572104
+  - [https:// nypost.com/2025/02/12/opinion/ trump-hasnt-created-a-constitutional-crisis-hes-teaching-dems-a-lesson/](https://nypost.com/2025/02/12/opinion/trump-hasnt-created-a-consti...
+- [17:46 UTC - Massive AI Stargate Project under Trump admin reveals next steps [https://www. foxnews.com...](114009150374933861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009150374933861
+  - Massive AI Stargate Project under Trump admin reveals next steps [https://www. foxnews.com/media/massive-ai-s targate-project-trump-admin-reveals-next-steps](https://www.foxnews.co...
+- [17:45 UTC - [https://www. washingtontimes.com/news/2025/ feb/12/trump-secures-release-three-prisoners-...](114009149204951851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009149204951851
+  - [https://www. washingtontimes.com/news/2025/ feb/12/trump-secures-release-three-prisoners-belarus/](https://www.washingtontimes.com/news/2025/feb/12/trump-secures-release-three-pri...
+- [17:45 UTC - 'Truly providential': Trump made promise to Marc Fogel's mother moments before Butler assa...](114009148192546807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009148192546807
+  - 'Truly providential': Trump made promise to Marc Fogel's mother moments before Butler assassination attempt [https://www. foxnews.com/politics/trump-mad e-promise-marc-fogels-mothe...
+- [17:45 UTC - [https:// freebeacon.com/latest-news/tru mp-secures-marc-fogels-release-from-russian-priso...](114009147197274196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009147197274196
+  - [https:// freebeacon.com/latest-news/tru mp-secures-marc-fogels-release-from-russian-prison-after-bidens-failed-attempts/](https://freebeacon.com/latest-news/trump-secures-marc-fog...
+- [17:45 UTC - [https:// nypost.com/2025/02/11/us-news/ trump-meets-marc-fogel-at-white-house-after-ameri...](114009146049120076/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009146049120076
+  - [https:// nypost.com/2025/02/11/us-news/ trump-meets-marc-fogel-at-white-house-after-american-freed/](https://nypost.com/2025/02/11/us-news/trump-meets-marc-fogel-at-white-house-af...
+- [17:44 UTC - [https://www. nytimes.com/2025/02/11/us/poli tics/marc-fogel-teacher-released-russia.html?...](114009144252627612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009144252627612
+  - [https://www. nytimes.com/2025/02/11/us/poli tics/marc-fogel-teacher-released-russia.html?smid=nytcore-ios-share&referringSource=articleShare](https://www.nytimes.com/2025/02/11/us...
+- [17:44 UTC - Just before Election!](114009143193104317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114009143193104317
+  - Just before Election!
+- [12:21 UTC - “American Hostage thanks President Trump.” Fox News](114007874648160437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114007874648160437
+  - “American Hostage thanks President Trump.” Fox News
+- [12:17 UTC - Hamas has just released three Hostages from GAZA, including an American Citizen. They seem...](114007859463769499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114007859463769499
+  - Hamas has just released three Hostages from GAZA, including an American Citizen. They seem to be in good shape! This differs from their statement last week that they would not rele...

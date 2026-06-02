@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-02-20
+
+- Posts: 17
+
+- [23:21 UTC - America First Patriot Meshawn Maddock is running to serve as Chair of the Michigan Republi...](114038780132459435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114038780132459435
+  - America First Patriot Meshawn Maddock is running to serve as Chair of the Michigan Republican Party! Meshawn is running to replace my friend, the GREAT Pete Hoekstra, who will serv...
+- [23:12 UTC - I am hearing that Highly Respected Congressman Byron Donalds is considering running for Go...](114038745707654586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114038745707654586
+  - I am hearing that Highly Respected Congressman Byron Donalds is considering running for Governor of Florida, a State that I love, and WON BIG in 2016, 2020, and 2024. I know Byron...
+- [23:09 UTC - Thank you to Majority Leader John Thune, and the Republican Senate, for working so hard on...](114038732409625780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114038732409625780
+  - Thank you to Majority Leader John Thune, and the Republican Senate, for working so hard on funding the Trump Border Agenda. We are setting records, the likes of which have never be...
+- [21:04 UTC - [https://www. youtube.com/live/Vw2AZK5gEok?s i=thJj_pAt_UrBTNI7](https://www.youtube.com/l...](114038241427920430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114038241427920430
+  - [https://www. youtube.com/live/Vw2AZK5gEok?s i=thJj_pAt_UrBTNI7](https://www.youtube.com/live/Vw2AZK5gEok?si=thJj_pAt_UrBTNI7)
+- [16:05 UTC - “COMMENCING THE REDUCTION OF THE FEDERAL BUREAUCRACY” [https://www. whitehouse.gov/preside...](114037064920225344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114037064920225344
+  - “COMMENCING THE REDUCTION OF THE FEDERAL BUREAUCRACY” [https://www. whitehouse.gov/presidential-ac tions/2025/02/commencing-the-reduction-of-the-federal-bureaucracy/](https://www.w...
+- [16:03 UTC - “PRESIDENT DONALD J. TRUMP ENDS TAXPAYER SUBSIDIZATION OF OPEN BORDERS” [https://www. whit...](114037059111172681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114037059111172681
+  - “PRESIDENT DONALD J. TRUMP ENDS TAXPAYER SUBSIDIZATION OF OPEN BORDERS” [https://www. whitehouse.gov/fact-sheets/202 5/02/fact-sheet-president-donald-j-trump-ends-taxpayer-subsidiz...
+- [16:03 UTC - “PRESIDENT DONALD J. TRUMP REDUCES THE FEDERAL BUREAUCRACY” [https://www. whitehouse.gov/f...](114037057115534717/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114037057115534717
+  - “PRESIDENT DONALD J. TRUMP REDUCES THE FEDERAL BUREAUCRACY” [https://www. whitehouse.gov/fact-sheets/202 5/02/fact-sheet-president-donald-j-trump-reduces-the-federal-bureaucracy/](...
+- [14:16 UTC - BALANCE BUDGET NOW??? LETS GIVE IT A SHOT. LOTS OF MONEY COMING IN FROM TARIFFS. DO IT! DJ...](114036638899167319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114036638899167319
+  - BALANCE BUDGET NOW??? LETS GIVE IT A SHOT. LOTS OF MONEY COMING IN FROM TARIFFS. DO IT! DJT
+- [13:21 UTC - I’ll be calling our GREAT American Hockey Team this morning to spur them on towards victor...](114036421460956478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114036421460956478
+  - I’ll be calling our GREAT American Hockey Team this morning to spur them on towards victory tonight against Canada, which with FAR LOWER TAXES AND MUCH STRONGER SECURITY, will some...
+- [13:01 UTC - Great Job on Fox yesterday by Senate Majority Leader John Thune in explaining how far Repu...](114036341536036183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114036341536036183
+  - Great Job on Fox yesterday by Senate Majority Leader John Thune in explaining how far Republican Senators have come, in working with Speaker Johnson and the Republican House, on TA...
+- [02:36 UTC - A President, after election, gets a choice of 1 in 7 desks. This desk, the “C&O,” which is...](114033884590103594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033884590103594
+  - A President, after election, gets a choice of 1 in 7 desks. This desk, the “C&O,” which is also very well-known and was used by President George H.W. Bush and others, has been temp...
+- [02:13 UTC - “How America voted, which counties shifted toward Trump and a look at voter turnout” [http...](114033795602933835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033795602933835
+  - “How America voted, which counties shifted toward Trump and a look at voter turnout” [https://www. usatoday.com/story/graphics/20 24/11/15/how-did-america-vote-2024-election-analys...
+- [02:13 UTC - “Full List of Counties Donald Trump Flipped From Kamala Harris” [https://www. newsweek.com...](114033793193279235/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033793193279235
+  - “Full List of Counties Donald Trump Flipped From Kamala Harris” [https://www. newsweek.com/full-list-countie s-donald-trump-flipped-kamala-harris-1981336](https://www.newsweek.com/...
+- [02:12 UTC - “Trump says he'll work with Republicans in Congress to 'dramatically' cut taxes” [https://...](114033791415966702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033791415966702
+  - “Trump says he'll work with Republicans in Congress to 'dramatically' cut taxes” [https://www. reuters.com/world/us/trump-say s-hell-work-with-republicans-congress-dramatically-cut...
+- [02:12 UTC - [https:// nypost.com/2025/02/19/us-news/ trump-weighs-doge-dividend-to-send-americans-chec...](114033789369518329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033789369518329
+  - [https:// nypost.com/2025/02/19/us-news/ trump-weighs-doge-dividend-to-send-americans-checks-with-saved-funds](https://nypost.com/2025/02/19/us-news/trump-weighs-doge-dividend-to-s...
+- [02:11 UTC - “Donald Trump brings weight of the presidency to Saudis’ Miami business conference” [https...](114033787788514942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033787788514942
+  - “Donald Trump brings weight of the presidency to Saudis’ Miami business conference” [https://www. miamiherald.com/news/business/ article300520989.html](https://www.miamiherald.com/...
+- [00:40 UTC - Elon Musk: “The President’s instincts on Ukraine are absolutely right. It is really sad th...](114033427089061668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033427089061668
+  - Elon Musk: “The President’s instincts on Ukraine are absolutely right. It is really sad that so many parents have lost their sons, and so many sons their fathers in this pointless...

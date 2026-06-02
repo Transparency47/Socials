@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-02-21
+
+- Posts: 10
+
+- [22:54 UTC - Truth Social post 114044335806431380](114044335806431380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114044335806431380
+  - _No text content captured._
+- [22:53 UTC - [https:// youtu.be/4iyqZsE9bkA](https://youtu.be/4iyqZsE9bkA)](114044331980029246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114044331980029246
+  - [https:// youtu.be/4iyqZsE9bkA](https://youtu.be/4iyqZsE9bkA)
+- [22:52 UTC - Truth Social post 114044328667930045](114044328667930045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114044328667930045
+  - _No text content captured._
+- [17:27 UTC - “The number of border crossings have dropped so much under Trump, that federal agents now ...](114043050123491219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114043050123491219
+  - “The number of border crossings have dropped so much under Trump, that federal agents now outnumber illegal crossers…”
+- [16:21 UTC - [@ RepMattGaetz](https://truthsocial.com/@RepMattGaetz) : “From cutting bloated budgets to...](114042789770444354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114042789770444354
+  - [@ RepMattGaetz](https://truthsocial.com/@RepMattGaetz) : “From cutting bloated budgets to renaming the Gulf of America…”
+- [14:32 UTC - I won the Presidential Election in a landslide, won ALL SEVEN SWING STATES, THE POPULAR VO...](114042361686358877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114042361686358877
+  - I won the Presidential Election in a landslide, won ALL SEVEN SWING STATES, THE POPULAR VOTE, AND ALL FIFTY STATES SHIFTED REPUBLICAN, a record, and now I have the best polling num...
+- [03:54 UTC - Jesse Watters: “The America we knew under Joe Biden has vanished.”](114039851969084184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114039851969084184
+  - Jesse Watters: “The America we knew under Joe Biden has vanished.”
+- [02:52 UTC - AMERICA'S DECLINE IS OVER🇺🇸🦅](114039609968152672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114039609968152672
+  - AMERICA'S DECLINE IS OVER🇺🇸🦅
+- [01:37 UTC - Truth Social post 114039316227699702](114039316227699702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114039316227699702
+  - _No text content captured._
+- [00:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114036421460956478](114039059808461903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114039059808461903
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114036421460956478

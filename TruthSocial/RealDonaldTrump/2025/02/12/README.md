@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-02-12
+
+- Posts: 9
+
+- [19:41 UTC - President Donald J. Trump was just unanimously elected Chairman of the Board of the presti...](113992617804848860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113992617804848860
+  - President Donald J. Trump was just unanimously elected Chairman of the Board of the prestigious Kennedy Center in Washington, D.C. The President stated, “It is a Great Honor to be...
+- [18:11 UTC - I just spoke to President Volodymyr Zelenskyy of Ukraine. The conversation went very well....](113992264519415084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113992264519415084
+  - I just spoke to President Volodymyr Zelenskyy of Ukraine. The conversation went very well. He, like President Putin, wants to make PEACE. We discussed a variety of topics having to...
+- [16:53 UTC - I just had a lengthy and highly productive phone call with President Vladimir Putin of Rus...](113991956474899296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113991956474899296
+  - I just had a lengthy and highly productive phone call with President Vladimir Putin of Russia. We discussed Ukraine, the Middle East, Energy, Artificial Intelligence, the power of...
+- [14:04 UTC - BIDEN INFLATION UP!](113991292104953657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113991292104953657
+  - BIDEN INFLATION UP!
+- [13:12 UTC - MAKE AMERICA GREAT AGAIN!!!](113991088208672350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113991088208672350
+  - MAKE AMERICA GREAT AGAIN!!!
+- [13:12 UTC - DOGE has found massive amounts of FRAUD, WASTE, INCOMPETENCE, AND ABUSE, but even knowing ...](113991086021543780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113991086021543780
+  - DOGE has found massive amounts of FRAUD, WASTE, INCOMPETENCE, AND ABUSE, but even knowing this, a highly political, activist Judge wants us to immediately make payment, anyway. In...
+- [12:58 UTC - Interest Rates should be lowered, something which would go hand in hand with upcoming Tari...](113991030846598649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113991030846598649
+  - Interest Rates should be lowered, something which would go hand in hand with upcoming Tariffs!!! Lets Rock and Roll, America!!!
+- [04:17 UTC - WELCOME HOME, MARC FOGEL🇺🇸](113988982619953735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113988982619953735
+  - WELCOME HOME, MARC FOGEL🇺🇸
+- [04:14 UTC - Truth Social post 113988971184653915](113988971184653915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113988971184653915
+  - _No text content captured._

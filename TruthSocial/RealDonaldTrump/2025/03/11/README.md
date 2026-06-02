@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-03-11
+
+- Posts: 20
+
+- [23:48 UTC - Truth Social post 114146470008466449](114146470008466449/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114146470008466449
+  - _No text content captured._
+- [23:25 UTC - Big WIN for Republicans, and America, tonight. Congratulations to ALL!!! DJT](114146381629892800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114146381629892800
+  - Big WIN for Republicans, and America, tonight. Congratulations to ALL!!! DJT
+- [21:42 UTC - I am pleased to announce that I am appointing Paolo Zampolli as Special Envoy for Global P...](114145975409380484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145975409380484
+  - I am pleased to announce that I am appointing Paolo Zampolli as Special Envoy for Global Partnerships. With his extensive experience working with the United Nations, the Kennedy Ce...
+- [21:42 UTC - I am happy to announce that Dr. Anji Sinha will be the next United States Ambassador to Si...](114145974744723188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145974744723188
+  - I am happy to announce that Dr. Anji Sinha will be the next United States Ambassador to Singapore. Anji is a highly respected entrepreneur, with an incredible family! The United St...
+- [21:42 UTC - I am pleased to announce that Dearborn Heights Mayor Bill Bazzi will be the next United St...](114145974393951612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145974393951612
+  - I am pleased to announce that Dearborn Heights Mayor Bill Bazzi will be the next United States Ambassador to the Republic of Tunisia. Bazzi is a decorated U.S. Marine, who honorabl...
+- [20:55 UTC - [https://www. washingtontimes.com/news/2025/ mar/6/trump-versus-bidens-speeches-congress/]...](114145790477635033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145790477635033
+  - [https://www. washingtontimes.com/news/2025/ mar/6/trump-versus-bidens-speeches-congress/](https://www.washingtontimes.com/news/2025/mar/6/trump-versus-bidens-speeches-congress/)
+- [20:55 UTC - [https://www. washingtontimes.com/news/2025/ mar/11/trumps-tariffs-strengthening-us-jobs-n...](114145789343616234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145789343616234
+  - [https://www. washingtontimes.com/news/2025/ mar/11/trumps-tariffs-strengthening-us-jobs-national-security/](https://www.washingtontimes.com/news/2025/mar/11/trumps-tariffs-strengt...
+- [20:20 UTC - I am pleased to announce that Ambassador Michael George DeSombre will be nominated as the ...](114145653738723042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145653738723042
+  - I am pleased to announce that Ambassador Michael George DeSombre will be nominated as the next United States Assistant Secretary of State for East Asia and the Pacific. During my F...
+- [20:12 UTC - The Tesla Model S — BEAUTIFUL!](114145621000876629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145621000876629
+  - The Tesla Model S — BEAUTIFUL!
+- [20:10 UTC - Elon Musk: “As a function of the great policies of President Trump and his administration,...](114145611018414576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145611018414576
+  - Elon Musk: “As a function of the great policies of President Trump and his administration, and as an act of faith in America, Tesla is going to DOUBLE vehicle output in the United...
+- [20:08 UTC - The price of eggs have come down, interest rates have come down, gasoline prices have come...](114145604547078768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145604547078768
+  - The price of eggs have come down, interest rates have come down, gasoline prices have come down—It's all coming down! We're doing it the right way, and I have tremendous confidence...
+- [20:06 UTC - Number one, it's a great product—as good as it gets—and number two, because Elon has devot...](114145595237667373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114145595237667373
+  - Number one, it's a great product—as good as it gets—and number two, because Elon has devoted his energy and his life to doing this and I think he has been treated very unfairly…
+- [17:08 UTC - “Congressman” Thomas Massie voted to delay the Debt Ceiling Bill from the Biden Administra...](114144896693695214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114144896693695214
+  - “Congressman” Thomas Massie voted to delay the Debt Ceiling Bill from the Biden Administration to the Trump Administration (from September before the Election, to June after the El...
+- [15:27 UTC - Why would our Country allow another Country to supply us with electricity, even for a smal...](114144501101999196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114144501101999196
+  - Why would our Country allow another Country to supply us with electricity, even for a small area? Who made these decisions, and why? And can you imagine Canada stooping so low as t...
+- [14:15 UTC - Based on Ontario, Canada, placing a 25% Tariff on “Electricity” coming into the United Sta...](114144217763824399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114144217763824399
+  - Based on Ontario, Canada, placing a 25% Tariff on “Electricity” coming into the United States, I have instructed my Secretary of Commerce to add an ADDITIONAL 25% Tariff, to 50%, o...
+- [04:14 UTC - To Republicans, Conservatives, and all great Americans, Elon Musk is “putting it on the li...](114141854575248527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114141854575248527
+  - To Republicans, Conservatives, and all great Americans, Elon Musk is “putting it on the line” in order to help our Nation, and he is doing a FANTASTIC JOB! But the Radical Left Lun...
+- [03:18 UTC - Despite the fact that Canada is charging the USA from 250% to 390% Tariffs on many of our ...](114141631976318293/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114141631976318293
+  - Despite the fact that Canada is charging the USA from 250% to 390% Tariffs on many of our farm products, Ontario just announced a 25% surcharge on “electricity,” of all things, and...
+- [02:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114115950832861490 Wow!!!](114141541711427635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114141541711427635
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114115950832861490 Wow!!!
+- [02:53 UTC - Thank you to the House Freedom Caucus for just delivering a big blow to the Radical Left D...](114141533823019998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114141533823019998
+  - Thank you to the House Freedom Caucus for just delivering a big blow to the Radical Left Democrats and their desire to raise Taxes and SHUT OUR COUNTRY DOWN! They hate America and...
+- [00:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114140437287253298](114141069918890225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114141069918890225
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114140437287253298

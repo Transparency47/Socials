@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-03-23
+
+- Posts: 14
+
+- [18:03 UTC - Truth Social post 114213062044568504](114213062044568504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114213062044568504
+  - _No text content captured._
+- [17:34 UTC - But he doesn’t mind if criminals come into our Country. He is a Constitutional disaster! D...](114212946787400937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212946787400937
+  - But he doesn’t mind if criminals come into our Country. He is a Constitutional disaster! DJT
+- [15:56 UTC - [https:// truthsocial.com/@mrddmia/11420 2472547749311](https://truthsocial.com/@mrddmia/1...](114212562052009704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212562052009704
+  - [https:// truthsocial.com/@mrddmia/11420 2472547749311](https://truthsocial.com/@mrddmia/114202472547749311)
+- [15:56 UTC - I just watched our GREAT Republican Congressman from North Carolina, CHUCK EDWARDS, hold a...](114212560131813236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212560131813236
+  - I just watched our GREAT Republican Congressman from North Carolina, CHUCK EDWARDS, hold a Town Hall in Asheville. He was a total gentleman, but the room was “littered” with Radica...
+- [15:33 UTC - I LOVE $TRUMP — SO COOL!!! The Greatest of them all!!!!!!!!!!!!!!!!](114212473050636851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212473050636851
+  - I LOVE $TRUMP — SO COOL!!! The Greatest of them all!!!!!!!!!!!!!!!!
+- [15:31 UTC - TRUTH (Social) is on “FIRE” (in a positive way, of course!). It is my Voice, and the Real ...](114212465033291057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212465033291057
+  - TRUTH (Social) is on “FIRE” (in a positive way, of course!). It is my Voice, and the Real Voice of America. Sign up TODAY, I have never let you down!
+- [15:26 UTC - April 2nd, “LIBERATION DAY IN AMERICA!”](114212444347354110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212444347354110
+  - April 2nd, “LIBERATION DAY IN AMERICA!”
+- [15:24 UTC - MAKE AMERICA GREAT AGAIN!!!](114212436865389622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212436865389622
+  - MAKE AMERICA GREAT AGAIN!!!
+- [15:24 UTC - In the Great State of Wisconsin, a Radical Left Democrat, one who is insistent on bringing...](114212434987437462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114212434987437462
+  - In the Great State of Wisconsin, a Radical Left Democrat, one who is insistent on bringing hardened CRIMINALS, that we removed to far away places, back into our Country, allowing m...
+- [12:42 UTC - [https://www. foxnews.com/sports/trump-ncaa- wrestling-championships-what-know](https://ww...](114211797749765546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114211797749765546
+  - [https://www. foxnews.com/sports/trump-ncaa- wrestling-championships-what-know](https://www.foxnews.com/sports/trump-ncaa-wrestling-championships-what-know)
+- [12:40 UTC - [https://www. thegatewaypundit.com/2025/03/u sa-usa-president-trump-gets-rockstar-welcome-...](114211789403512926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114211789403512926
+  - [https://www. thegatewaypundit.com/2025/03/u sa-usa-president-trump-gets-rockstar-welcome-as/](https://www.thegatewaypundit.com/2025/03/usa-usa-president-trump-gets-rockstar-welcom...
+- [12:37 UTC - Truth Social post 114211780102909789](114211780102909789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114211780102909789
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 114208989927957628](114208989927957628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114208989927957628
+  - _No text content captured._
+- [00:34 UTC - Truth Social post 114208936820013436](114208936820013436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114208936820013436
+  - _No text content captured._

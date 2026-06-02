@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-01-22
+
+- Posts: 11
+
+- [18:45 UTC - Happy 20th Anniversary to Melania!](113873487944418855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113873487944418855
+  - Happy 20th Anniversary to Melania!
+- [15:46 UTC - I’m not looking to hurt Russia. I love the Russian people, and always had a very good rela...](113872782548137314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872782548137314
+  - I’m not looking to hurt Russia. I love the Russian people, and always had a very good relationship with President Putin - and this despite the Radical Left’s Russia, Russia, Russia...
+- [15:03 UTC - RT: https://truthsocial.com/users/joemccuiston/statuses/113857355234397029 Happy Anniversa...](113872615551477730/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872615551477730
+  - RT: https://truthsocial.com/users/joemccuiston/statuses/113857355234397029 Happy Anniversary!
+- [15:03 UTC - RT [@ MagaGlam](https://truthsocial.com/@MagaGlam) ♥️🙏🏻](113872613516469430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872613516469430
+  - RT [@ MagaGlam](https://truthsocial.com/@MagaGlam) ♥️🙏🏻
+- [15:01 UTC - RT [@ SilverKnight57](https://truthsocial.com/@SilverKnight57) Best FLOTUS Ever!!!](113872608731279858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872608731279858
+  - RT [@ SilverKnight57](https://truthsocial.com/@SilverKnight57) Best FLOTUS Ever!!!
+- [15:01 UTC - RT [@ MagaGlam](https://truthsocial.com/@MagaGlam) We ♥️ You [@ MelaniaTrump](https://trut...](113872608052490737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872608052490737
+  - RT [@ MagaGlam](https://truthsocial.com/@MagaGlam) We ♥️ You [@ MelaniaTrump](https://truthsocial.com/@MelaniaTrump)
+- [15:01 UTC - RT [@ markweltzin](https://truthsocial.com/@markweltzin)](113872606515385741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872606515385741
+  - RT [@ markweltzin](https://truthsocial.com/@markweltzin)
+- [14:32 UTC - Truth Social post 113872493479587305](113872493479587305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113872493479587305
+  - _No text content captured._
+- [05:39 UTC - The so-called Bishop who spoke at the National Prayer Service on Tuesday morning was a Rad...](113870397327465225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113870397327465225
+  - The so-called Bishop who spoke at the National Prayer Service on Tuesday morning was a Radical Left hard line Trump hater. She brought her church into the World of politics in a ve...
+- [00:54 UTC - Truth Social post 113869275417895927](113869275417895927/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113869275417895927
+  - _No text content captured._
+- [00:12 UTC - I just called the mother of Ross William Ulbricht to let her know that in honor of her and...](113869112741612092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113869112741612092
+  - I just called the mother of Ross William Ulbricht to let her know that in honor of her and the Libertarian Movement, which supported me so strongly, it was my pleasure to have just...

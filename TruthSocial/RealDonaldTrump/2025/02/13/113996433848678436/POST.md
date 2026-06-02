@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/113996433848678436 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 113996433848678436 -->
+<!-- date_published: 2025-02-13T11:52:17.978000+00:00 -->
+<!-- date_accessed: 2026-06-02T20:08:00.154782+00:00 -->
+
+# GREAT TALKS WITH RUSSIA AND UKRAINE YESTERDAY. GOOD POSSIBILITY OF ENDING THAT HORRIBLE, V...
+
+GREAT TALKS WITH RUSSIA AND UKRAINE YESTERDAY. GOOD POSSIBILITY OF ENDING THAT HORRIBLE, VERY BLOODY WAR!!!

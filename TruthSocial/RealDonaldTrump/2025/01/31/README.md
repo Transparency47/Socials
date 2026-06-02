@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-01-31
+
+- Posts: 12
+
+- [23:52 UTC - I am pleased to nominate Benjamin Black to serve as the Chief Executive Officer of the Uni...](113925656710541132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113925656710541132
+  - I am pleased to nominate Benjamin Black to serve as the Chief Executive Officer of the United States International Development Finance Corporation (DFC). Ben will use his financial...
+- [23:36 UTC - Photo of beautiful water flow that I just opened in California. Today, 1.6 billion gallons...](113925591427889253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113925591427889253
+  - Photo of beautiful water flow that I just opened in California. Today, 1.6 billion gallons and, in 3 days, it will be 5.2 billion gallons. Everybody should be happy about this long...
+- [16:31 UTC - [https:// nypost.com/2025/01/16/business /new-trump-ends-crypto-communitys-government-hara...](113923921350776887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923921350776887
+  - [https:// nypost.com/2025/01/16/business /new-trump-ends-crypto-communitys-government-harassment/](https://nypost.com/2025/01/16/business/new-trump-ends-crypto-communitys-governmen...
+- [13:14 UTC - The Blackhawk helicopter was flying too high, by a lot. It was far above the 200 foot limi...](113923147334338299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923147334338299
+  - The Blackhawk helicopter was flying too high, by a lot. It was far above the 200 foot limit. That’s not really too complicated to understand, is it???
+- [13:09 UTC - AMERICA FIRST DRUG PRICES!!!](113923125872343340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923125872343340
+  - AMERICA FIRST DRUG PRICES!!!
+- [13:01 UTC - Truth Social post 113923095988486359](113923095988486359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923095988486359
+  - _No text content captured._
+- [13:00 UTC - Biden’s choice to lead FAA…](113923092165404082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923092165404082
+  - Biden’s choice to lead FAA…
+- [12:59 UTC - [https:// justthenews.com/politics-polic y/fritrumps-outsider-nominees-ran-senate-gauntlet...](113923087197559317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923087197559317
+  - [https:// justthenews.com/politics-polic y/fritrumps-outsider-nominees-ran-senate-gauntlet-and-emerged-unscathed](https://justthenews.com/politics-policy/fritrumps-outsider-nominee...
+- [12:40 UTC - Truth Social post 113923013537204087](113923013537204087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923013537204087
+  - _No text content captured._
+- [12:39 UTC - Truth Social post 113923009232963267](113923009232963267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923009232963267
+  - _No text content captured._
+- [12:38 UTC - This is just one reason why our Country WAS going to hell!!!](113923004856753416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113923004856753416
+  - This is just one reason why our Country WAS going to hell!!!
+- [01:27 UTC - The idea that the BRICS Countries are trying to move away from the Dollar, while we stand ...](113920366067218393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113920366067218393
+  - The idea that the BRICS Countries are trying to move away from the Dollar, while we stand by and watch, is OVER. We are going to require a commitment from these seemingly hostile C...

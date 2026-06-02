@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2025-03-12
+
+- Posts: 23
+
+- [20:51 UTC - Secretary of Energy Chris Wright: “President Trump is a businessman. Thank God he became e...](114151434816736382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151434816736382
+  - Secretary of Energy Chris Wright: “President Trump is a businessman. Thank God he became elected president, and what we're seeing now is a master negotiator practicing his craft."
+- [20:23 UTC - “GE Aerospace announced on Tuesday a nearly $1 billion investment in U.S. manufacturing, t...](114151328220491045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151328220491045
+  - “GE Aerospace announced on Tuesday a nearly $1 billion investment in U.S. manufacturing, the latest company to do so under the Trump administration…It marks the latest company to p...
+- [20:19 UTC - [https://www. whitehouse.gov/articles/2025/0 3/manufacturing-is-roaring-back-under-preside...](114151309995113296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151309995113296
+  - [https://www. whitehouse.gov/articles/2025/0 3/manufacturing-is-roaring-back-under-president-donald-j-trump/](https://www.whitehouse.gov/articles/2025/03/manufacturing-is-roaring-b...
+- [20:18 UTC - [https://www. whitehouse.gov/articles/2025/0 3/fact-check-president-trump-will-always-prot...](114151306227968789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151306227968789
+  - [https://www. whitehouse.gov/articles/2025/0 3/fact-check-president-trump-will-always-protect-social-security-medicare/](https://www.whitehouse.gov/articles/2025/03/fact-check-pres...
+- [20:17 UTC - Howard Lutnick: “What does the President want? He wants to worry about major things for na...](114151300866147161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151300866147161
+  - Howard Lutnick: “What does the President want? He wants to worry about major things for national security...these are the kind of tariffs that are going to make sure these things C...
+- [20:13 UTC - [https://www. whitehouse.gov/briefings-state ments/2025/03/winning-inflation-eases-as-job-...](114151285409941460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151285409941460
+  - [https://www. whitehouse.gov/briefings-state ments/2025/03/winning-inflation-eases-as-job-creation-soars-and-border-security-pays-off/](https://www.whitehouse.gov/briefings-stateme...
+- [20:11 UTC - “President Trump is delivering on his promise to put America first and his actions today p...](114151280603984689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151280603984689
+  - “President Trump is delivering on his promise to put America first and his actions today put the domestic steel industry in a position to again be the envy of the world. We look fo...
+- [20:08 UTC - Cleveland-Cliffs CEO Lourenco Goncalves: “This is the right moment, the right time—manufac...](114151269304041473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151269304041473
+  - Cleveland-Cliffs CEO Lourenco Goncalves: “This is the right moment, the right time—manufacturing is BACK…We're going to build in America. We're going to produce things here, employ...
+- [20:05 UTC - Goldman Sachs CEO David Solomon: "One of the things that I do like is that the President i...](114151257383811463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151257383811463
+  - Goldman Sachs CEO David Solomon: "One of the things that I do like is that the President is engaged with the business community. The administration is engaged with the business com...
+- [20:02 UTC - Kevin Hassett: "The economic news we've been seeing is really wonderful. It's way above ex...](114151244153727055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151244153727055
+  - Kevin Hassett: "The economic news we've been seeing is really wonderful. It's way above expectations of economists...10,000 manufacturing jobs, 9,000 auto jobs...The lowest core in...
+- [19:11 UTC - Truth Social post 114151043563990697](114151043563990697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151043563990697
+  - _No text content captured._
+- [19:09 UTC - A great afternoon at The Capitol attending the Friends of Ireland Luncheon, thank you! 🇺🇸🇮...](114151034882857858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151034882857858
+  - A great afternoon at The Capitol attending the Friends of Ireland Luncheon, thank you! 🇺🇸🇮🇪
+- [19:08 UTC - 🇺🇸🇮🇪](114151032918411177/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151032918411177
+  - 🇺🇸🇮🇪
+- [19:04 UTC - The United States of America is going to take back a lot of what was stolen from it by oth...](114151015090831669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114151015090831669
+  - The United States of America is going to take back a lot of what was stolen from it by other countries and, frankly, by incompetent U.S. leadership. We're going to take back our we...
+- [18:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114150971128693981](114150978475308549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150978475308549
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114150971128693981
+- [18:53 UTC - Truth Social post 114150974010417514](114150974010417514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150974010417514
+  - _No text content captured._
+- [18:53 UTC - It was my Great Honor to welcome Taoiseach Micheál Martin to the White House today🇺🇸🇮🇪](114150971128693981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150971128693981
+  - It was my Great Honor to welcome Taoiseach Micheál Martin to the White House today🇺🇸🇮🇪
+- [18:04 UTC - BILL O’REILLY: “TRUMP HAS BEEN VERY CLEAR ABOUT WHERE HE STANDS…”](114150779950233754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150779950233754
+  - BILL O’REILLY: “TRUMP HAS BEEN VERY CLEAR ABOUT WHERE HE STANDS…”
+- [17:39 UTC - JUDGE JEANINE: “THIS IS GOING TO BENEFIT THE AMERICAN WORKER, AMERICAN MANUFACTURING, AND ...](114150679862041475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150679862041475
+  - JUDGE JEANINE: “THIS IS GOING TO BENEFIT THE AMERICAN WORKER, AMERICAN MANUFACTURING, AND DOMESTIC PRODUCTION—AND IT IS GOING TO PRESERVE JOBS!”
+- [15:31 UTC - “TRUMP SHAKING UP BROKEN ECONOMIC SYSTEM”](114150178416032160/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114150178416032160
+  - “TRUMP SHAKING UP BROKEN ECONOMIC SYSTEM”
+- [14:34 UTC - Truth Social post 114149955345017451](114149955345017451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114149955345017451
+  - _No text content captured._
+- [14:06 UTC - Wow!!! People are loving Elon, a GREAT PATRIOT. Nice to see!!! DJT](114149845661093099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114149845661093099
+  - Wow!!! People are loving Elon, a GREAT PATRIOT. Nice to see!!! DJT
+- [05:23 UTC - So Massie can vote for Debt Ceiling AND Budget to be put into the Trump Administration, ma...](114147788974149994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114147788974149994
+  - So Massie can vote for Debt Ceiling AND Budget to be put into the Trump Administration, making them both the Republicans problem and responsibility, but can’t give us a simple Cont...

@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-03-21
+
+- Posts: 15
+
+- [22:34 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Newly Filed Motion To Disqualify Radica...](114202801855044361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114202801855044361
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Newly Filed Motion To Disqualify Radical Obama Judge Beryl Howell From Trump Case Read More: [https:// cdn.prod.website-files.com...
+- [22:33 UTC - The 14th Amendment Right of American Citizenship never had anything to do with modern day ...](114202797666318443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114202797666318443
+  - The 14th Amendment Right of American Citizenship never had anything to do with modern day "gate crashers," illegal immigrants who break the Law by being in our Country, it had ever...
+- [15:57 UTC - Truth Social post 114201240645206997](114201240645206997/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114201240645206997
+  - _No text content captured._
+- [14:36 UTC - “AG Letitia James’ Building Permits Raise Serious Questions” [https:// whitecollarfraud.co...](114200922863784784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200922863784784
+  - “AG Letitia James’ Building Permits Raise Serious Questions” [https:// whitecollarfraud.com/2025/03/2 1/ag-letitia-james-building-permits-raise-serious-questions/](https://whitecol...
+- [14:06 UTC - WE WANT VIOLENT CRIMINALS OUT OF OUR COUNTRY!](114200803076709113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200803076709113
+  - WE WANT VIOLENT CRIMINALS OUT OF OUR COUNTRY!
+- [14:01 UTC - I Love King Charles. Sounds good to me! [https://www. the-sun.com/royals/13833861/ch arles...](114200783339413306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200783339413306
+  - I Love King Charles. Sounds good to me! [https://www. the-sun.com/royals/13833861/ch arles-trump-secret-offer-kier/](https://www.the-sun.com/royals/13833861/charles-trump-secret-of...
+- [13:02 UTC - [https://www. axios.com/2025/03/21/johnson-j ohnson-55-billion-us-investment](https://www....](114200554069215571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200554069215571
+  - [https://www. axios.com/2025/03/21/johnson-j ohnson-55-billion-us-investment](https://www.axios.com/2025/03/21/johnson-johnson-55-billion-us-investment)
+- [13:02 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) “Nvidia to spend hundreds...](114200553396504895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200553396504895
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) “Nvidia to spend hundreds of billions in U.S. during Trump's term” [https://www. axios.com/2025/03/20/nvidia-sp end...
+- [12:01 UTC - April 2nd is Liberation Day in America!!! For DECADES we have been ripped off and abused b...](114200313009802638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200313009802638
+  - April 2nd is Liberation Day in America!!! For DECADES we have been ripped off and abused by every nation in the World, both friend and foe. Now it is finally time for the Good Ol’...
+- [11:50 UTC - No District Court Judge, or any Judge, can assume the duties of the President of the Unite...](114200269495299138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200269495299138
+  - No District Court Judge, or any Judge, can assume the duties of the President of the United States. Only Crime and Chaos would result. MAKE AMERICA GREAT AGAIN!
+- [11:43 UTC - I look forward to watching the sick terrorist thugs get 20 year jail sentences for what th...](114200244380161257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200244380161257
+  - I look forward to watching the sick terrorist thugs get 20 year jail sentences for what they are doing to Elon Musk and Tesla. Perhaps they could serve them in the prisons of El Sa...
+- [11:26 UTC - “Elon Musk will be briefed by the Pentagon about the USA’s top secret plans against China ...](114200175082806882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114200175082806882
+  - “Elon Musk will be briefed by the Pentagon about the USA’s top secret plans against China should there be a War,”according to the Failing New York Times, one of the worst and most...
+- [03:47 UTC - Egg prices are WAY DOWN from the Biden inspired prices if just a few weeks ago. “Groceries...](114198370343993836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114198370343993836
+  - Egg prices are WAY DOWN from the Biden inspired prices if just a few weeks ago. “Groceries” and Gasoline are down, also. Now, if the Fed would do the right thing and lower interest...
+- [03:08 UTC - People that get caught sabotaging Teslas will stand a very good chance of going to jail fo...](114198218638202475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114198218638202475
+  - People that get caught sabotaging Teslas will stand a very good chance of going to jail for up to twenty years, and that includes the funders. WE ARE LOOKING FOR YOU!!!
+- [03:00 UTC - The Fake News is at it again, this time the Failing New York Times. They said, incorrectly...](114198186465713235/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114198186465713235
+  - The Fake News is at it again, this time the Failing New York Times. They said, incorrectly, that Elon Musk is going to the Pentagon tomorrow to be briefed on any potential “war wit...

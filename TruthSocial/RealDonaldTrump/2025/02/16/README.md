@@ -1,0 +1,127 @@
+# TruthSocial / RealDonaldTrump / 2025-02-16
+
+- Posts: 41
+
+- [21:22 UTC - [https:// dailycaller.com/2025/02/10/don ald-trump-democrats-loss-mark-levin-second-term/]...](114015662935838869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015662935838869
+  - [https:// dailycaller.com/2025/02/10/don ald-trump-democrats-loss-mark-levin-second-term/](https://dailycaller.com/2025/02/10/donald-trump-democrats-loss-mark-levin-second-term/)
+- [21:02 UTC - More copies of my newest book, SAVE AMERICA, just arrived! This is a wonderful Best Seller...](114015585700941084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015585700941084
+  - More copies of my newest book, SAVE AMERICA, just arrived! This is a wonderful Best Seller, and I hope you’ll get your copy today. Signed Editions are also available. Get yours tod...
+- [21:01 UTC - Congratulations to Patriot Senator Bo Biteman, of the Great State of Wyoming, for working ...](114015582241142234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015582241142234
+  - Congratulations to Patriot Senator Bo Biteman, of the Great State of Wyoming, for working to pass SCHOOL CHOICE, a top priority of my Administration, putting power where it belongs...
+- [21:01 UTC - Congratulations to Governor Brad Little, and Idaho Legislators, who are fighting to bring ...](114015581630558522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015581630558522
+  - Congratulations to Governor Brad Little, and Idaho Legislators, who are fighting to bring School Choice to their beautiful State. $50 Million Dollars to empower parents to provide...
+- [21:01 UTC - Truth Social post 114015579440253320](114015579440253320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015579440253320
+  - _No text content captured._
+- [20:59 UTC - Truth Social post 114015574367456109](114015574367456109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015574367456109
+  - _No text content captured._
+- [20:59 UTC - Truth Social post 114015573620667237](114015573620667237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015573620667237
+  - _No text content captured._
+- [20:41 UTC - Truth Social post 114015502445392566](114015502445392566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015502445392566
+  - _No text content captured._
+- [20:39 UTC - Truth Social post 114015493586315350](114015493586315350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015493586315350
+  - _No text content captured._
+- [19:38 UTC - Truth Social post 114015252337765279](114015252337765279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015252337765279
+  - _No text content captured._
+- [19:30 UTC - Truth Social post 114015224232107918](114015224232107918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015224232107918
+  - _No text content captured._
+- [19:26 UTC - Truth Social post 114015205427599269](114015205427599269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015205427599269
+  - _No text content captured._
+- [19:25 UTC - Truth Social post 114015202976820739](114015202976820739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015202976820739
+  - _No text content captured._
+- [19:24 UTC - Truth Social post 114015199891491287](114015199891491287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015199891491287
+  - _No text content captured._
+- [19:23 UTC - Truth Social post 114015196133759395](114015196133759395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015196133759395
+  - _No text content captured._
+- [19:22 UTC - Truth Social post 114015191260732349](114015191260732349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015191260732349
+  - _No text content captured._
+- [19:22 UTC - Truth Social post 114015190435771677](114015190435771677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015190435771677
+  - _No text content captured._
+- [19:22 UTC - [https://www. foxnews.com/world/american-mar c-fogel-released-from-russian-custody](https:...](114015189658845419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015189658845419
+  - [https://www. foxnews.com/world/american-mar c-fogel-released-from-russian-custody](https://www.foxnews.com/world/american-marc-fogel-released-from-russian-custody)
+- [19:21 UTC - [https:// amgreatness.com/2025/02/11/pre sident-trumps-gaza-plan-might-just-work/](https:/...](114015188061081071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015188061081071
+  - [https:// amgreatness.com/2025/02/11/pre sident-trumps-gaza-plan-might-just-work/](https://amgreatness.com/2025/02/11/president-trumps-gaza-plan-might-just-work/)
+- [19:21 UTC - [https:// thefederalist.com/2025/02/11/d onald-trump-is-not-a-threat-to-democracy-those-sh...](114015187332622819/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015187332622819
+  - [https:// thefederalist.com/2025/02/11/d onald-trump-is-not-a-threat-to-democracy-those-shredding-article-ii-are/](https://thefederalist.com/2025/02/11/donald-trump-is-not-a-threat...
+- [19:21 UTC - [https://www. washingtonexaminer.com/news/wh ite-house/3316364/trump-says-democrats-losing...](114015186970606411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015186970606411
+  - [https://www. washingtonexaminer.com/news/wh ite-house/3316364/trump-says-democrats-losing-their-strut-allowed-enact-agenda/](https://www.washingtonexaminer.com/news/white-house/33...
+- [19:20 UTC - [https://www. breitbart.com/entertainment/20 25/02/11/judge-denies-cbs-motion-to-dismiss-t...](114015184011423223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015184011423223
+  - [https://www. breitbart.com/entertainment/20 25/02/11/judge-denies-cbs-motion-to-dismiss-trump-60-minutes-lawsuit-as-he-demands-10-billion-more/](https://www.breitbart.com/entertai...
+- [19:20 UTC - [https:// freebeacon.com/culture/trump-w ins-again-electric-focused-car-ads-absent-from-su...](114015183243600192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015183243600192
+  - [https:// freebeacon.com/culture/trump-w ins-again-electric-focused-car-ads-absent-from-super-bowl-after-exploding-on-bidens-watch/](https://freebeacon.com/culture/trump-wins-again...
+- [19:20 UTC - [https://www. washingtontimes.com/news/2025/ feb/10/donald-trump-pardons-rod-blagojevich-c...](114015182203158750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015182203158750
+  - [https://www. washingtontimes.com/news/2025/ feb/10/donald-trump-pardons-rod-blagojevich-calling-honor/](https://www.washingtontimes.com/news/2025/feb/10/donald-trump-pardons-rod-b...
+- [19:20 UTC - [https://www. dailywire.com/news/trump-dead- serious-about-border-u-s-military-using-high-...](114015181531389360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015181531389360
+  - [https://www. dailywire.com/news/trump-dead- serious-about-border-u-s-military-using-high-tech-spy-planes-to-watch-cartels](https://www.dailywire.com/news/trump-dead-serious-about-...
+- [19:19 UTC - [https://www. breitbart.com/border/2025/02/1 1/migrant-encounters-on-southwest-border-drop...](114015180809845337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015180809845337
+  - [https://www. breitbart.com/border/2025/02/1 1/migrant-encounters-on-southwest-border-drop-96-percent-from-last-year/](https://www.breitbart.com/border/2025/02/11/migrant-encounter...
+- [19:19 UTC - [https://www. wsj.com/opinion/trump-outsmart s-china-on-green-energy-net-zero-agenda-econo...](114015180062294608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015180062294608
+  - [https://www. wsj.com/opinion/trump-outsmart s-china-on-green-energy-net-zero-agenda-economic-pressure-policy-e8c10602](https://www.wsj.com/opinion/trump-outsmarts-china-on-green-e...
+- [19:19 UTC - [https://www. foxnews.com/opinion/liz-peek-t rumps-vibe-shift-rolling-across-america-look-...](114015178576370474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015178576370474
+  - [https://www. foxnews.com/opinion/liz-peek-t rumps-vibe-shift-rolling-across-america-look-latest-evidence](https://www.foxnews.com/opinion/liz-peek-trumps-vibe-shift-rolling-across...
+- [19:18 UTC - [https:// nypost.com/2025/02/10/opinion/ trumps-war-on-woke-is-tearing-down-the-lefts-cult...](114015177256696973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015177256696973
+  - [https:// nypost.com/2025/02/10/opinion/ trumps-war-on-woke-is-tearing-down-the-lefts-cultural-sway/](https://nypost.com/2025/02/10/opinion/trumps-war-on-woke-is-tearing-down-the-l...
+- [19:18 UTC - [https:// thenationalpulse.com/2025/02/1 1/science-confirms-trump-makes-dems-feel-defeated...](114015176716234122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015176716234122
+  - [https:// thenationalpulse.com/2025/02/1 1/science-confirms-trump-makes-dems-feel-defeated-and-is-driving-them-nuts/](https://thenationalpulse.com/2025/02/11/science-confirms-trump...
+- [19:18 UTC - [https://www. washingtonexaminer.com/opinion /3316081/left-descends-madness-opposing-trump...](114015175358261080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015175358261080
+  - [https://www. washingtonexaminer.com/opinion /3316081/left-descends-madness-opposing-trump-2-0/](https://www.washingtonexaminer.com/opinion/3316081/left-descends-madness-opposing-t...
+- [19:18 UTC - [https:// insideradvantage.com/trafalgar -insideradvantage-super-poll-trump-approval-at-54...](114015173954064679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015173954064679
+  - [https:// insideradvantage.com/trafalgar -insideradvantage-super-poll-trump-approval-at-54-musk-and-doge-strong-support-particularly-among-republicans/](https://insideradvantage.co...
+- [19:17 UTC - [https:// gingrich360.com/2025/02/11/the -historic-trump-netanyahu-news-conference/](https...](114015172936232194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015172936232194
+  - [https:// gingrich360.com/2025/02/11/the -historic-trump-netanyahu-news-conference/](https://gingrich360.com/2025/02/11/the-historic-trump-netanyahu-news-conference/)
+- [19:17 UTC - [https:// dailycaller.com/2025/02/15/opi nion-trumps-first-month-delivered-results-david-b...](114015172331467921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015172331467921
+  - [https:// dailycaller.com/2025/02/15/opi nion-trumps-first-month-delivered-results-david-bossie/](https://dailycaller.com/2025/02/15/opinion-trumps-first-month-delivered-results-da...
+- [19:17 UTC - Thank you!](114015170610585841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015170610585841
+  - Thank you!
+- [19:16 UTC - [https://www. newsmax.com/ruddy/donald-trump -russia-vladimir-putin/2025/02/15/id/1199231/...](114015169377830073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015169377830073
+  - [https://www. newsmax.com/ruddy/donald-trump -russia-vladimir-putin/2025/02/15/id/1199231/](https://www.newsmax.com/ruddy/donald-trump-russia-vladimir-putin/2025/02/15/id/1199231/)
+- [19:16 UTC - [https://www. usatoday.com/story/opinion/202 5/02/14/trump-musk-buyout-federal-employees-c...](114015169103479358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015169103479358
+  - [https://www. usatoday.com/story/opinion/202 5/02/14/trump-musk-buyout-federal-employees-constitution/78464511007/](https://www.usatoday.com/story/opinion/2025/02/14/trump-musk-buy...
+- [19:13 UTC - I am proud to nominate John Jovanovic to serve as the Chairman and Chief Executive Officer...](114015154260594234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015154260594234
+  - I am proud to nominate John Jovanovic to serve as the Chairman and Chief Executive Officer of the Export-Import Bank of the United States (EXIM). John will utilize his extensive ex...
+- [19:12 UTC - It is my honor to nominate Judge Jason Reding Quiñones as the next United States Attorney ...](114015151894861058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015151894861058
+  - It is my honor to nominate Judge Jason Reding Quiñones as the next United States Attorney for the Southern District of Florida. A former Federal prosecutor and Justice Department N...
+- [19:12 UTC - I am pleased to announce that Jim Byron will be serving as Senior Advisor to our Acting Ar...](114015151574566832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114015151574566832
+  - I am pleased to announce that Jim Byron will be serving as Senior Advisor to our Acting Archivist, United States Secretary of State Marco Rubio, at the National Archives and Record...
+- [16:44 UTC - The 14th Amendment Right of American Citizenship never had anything to do with modern day ...](114014567906020636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114014567906020636
+  - The 14th Amendment Right of American Citizenship never had anything to do with modern day "gate crashers," illegal immigrants who break the Law by being in our Country, it had ever...

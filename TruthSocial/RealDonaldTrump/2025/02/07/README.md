@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-02-07
+
+- Posts: 15
+
+- [23:21 UTC - There is no need for Joe Biden to continue receiving access to classified information. The...](113965169045323865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113965169045323865
+  - There is no need for Joe Biden to continue receiving access to classified information. Therefore, we are immediately revoking Joe Biden’s Security Clearances, and stopping his dail...
+- [22:29 UTC - Jeff Kaufmann is doing an incredible job as Chairman of the Republican Party of Iowa. Jeff...](113964964253376658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113964964253376658
+  - Jeff Kaufmann is doing an incredible job as Chairman of the Republican Party of Iowa. Jeff has overseen tremendous Republican gains in the Hawkeye State, including my HISTORIC WINS...
+- [22:27 UTC - At my direction, we are going to make the Kennedy Center in Washington D.C., GREAT AGAIN. ...](113964959500715895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113964959500715895
+  - At my direction, we are going to make the Kennedy Center in Washington D.C., GREAT AGAIN. I have decided to immediately terminate multiple individuals from the Board of Trustees, i...
+- [20:06 UTC - For nearly 80 years the American and Japanese people have enjoyed a friendship like few ot...](113964402116790805/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113964402116790805
+  - For nearly 80 years the American and Japanese people have enjoyed a friendship like few others. After our meeting today, I'm confident that the cherished alliances between our two...
+- [20:01 UTC - [https://www. youtube.com/live/jMiAE9X-Wig?s i=jaxdrjCgoU4YVhIf](https://www.youtube.com/l...](113964382058981790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113964382058981790
+  - [https://www. youtube.com/live/jMiAE9X-Wig?s i=jaxdrjCgoU4YVhIf](https://www.youtube.com/live/jMiAE9X-Wig?si=jaxdrjCgoU4YVhIf)
+- [18:43 UTC - Truth Social post 113964076924747249](113964076924747249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113964076924747249
+  - _No text content captured._
+- [17:48 UTC - Truth Social post 113963862093598572](113963862093598572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963862093598572
+  - _No text content captured._
+- [17:03 UTC - Truth Social post 113963682464715152](113963682464715152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963682464715152
+  - _No text content captured._
+- [15:12 UTC - I will be signing an Executive Order next week ending the ridiculous Biden push for Paper ...](113963246096886557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963246096886557
+  - I will be signing an Executive Order next week ending the ridiculous Biden push for Paper Straws, which don’t work. BACK TO PLASTIC!
+- [14:40 UTC - Eugene Robinson of the Washington Post is INCOMPETENT! So sad to see him trying to justify...](113963121926787410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963121926787410
+  - Eugene Robinson of the Washington Post is INCOMPETENT! So sad to see him trying to justify the waste, fraud, and corruption at USAID with his pathetic Radical Left SPIN. He should...
+- [14:31 UTC - USAID IS DRIVING THE RADICAL LEFT CRAZY, AND THERE IS NOTHING THEY CAN DO ABOUT IT BECAUSE...](113963085497636545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963085497636545
+  - USAID IS DRIVING THE RADICAL LEFT CRAZY, AND THERE IS NOTHING THEY CAN DO ABOUT IT BECAUSE THE WAY IN WHICH THE MONEY HAS BEEN SPENT, SO MUCH OF IT FRAUDULENTLY, IS TOTALLY UNEXPLA...
+- [14:28 UTC - “THIS IS THE REASON THE TRUMP REVOLUTION WAS SO REVOLUTIONARY”](113963076107713671/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963076107713671
+  - “THIS IS THE REASON THE TRUMP REVOLUTION WAS SO REVOLUTIONARY”
+- [14:25 UTC - Truth Social post 113963061095488001](113963061095488001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113963061095488001
+  - _No text content captured._
+- [13:09 UTC - Two great Quarterbacks in this game. Also, an unbelievable running back, and the absolute ...](113962763765213252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113962763765213252
+  - Two great Quarterbacks in this game. Also, an unbelievable running back, and the absolute best tight end in football (Ever!). Incredible coaching! If they would only get rid of tha...
+- [12:52 UTC - BALANCED BUDGET!!! DJT](113962698098343227/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113962698098343227
+  - BALANCED BUDGET!!! DJT

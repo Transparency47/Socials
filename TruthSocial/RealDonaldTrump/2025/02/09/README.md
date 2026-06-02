@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-02-09
+
+- Posts: 24
+
+- [23:03 UTC - Truth Social post 113976422250642482](113976422250642482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113976422250642482
+  - _No text content captured._
+- [22:40 UTC - Truth Social post 113976331874211084](113976331874211084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113976331874211084
+  - _No text content captured._
+- [20:23 UTC - Truth Social post 113975796662564420](113975796662564420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975796662564420
+  - _No text content captured._
+- [20:14 UTC - Truth Social post 113975759481271351](113975759481271351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975759481271351
+  - _No text content captured._
+- [20:10 UTC - [https://www. newsmax.com/mclaughlin/jeffrie s-schumer-voters/2025/01/30/id/1197154/](http...](113975743922491646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975743922491646
+  - [https://www. newsmax.com/mclaughlin/jeffrie s-schumer-voters/2025/01/30/id/1197154/](https://www.newsmax.com/mclaughlin/jeffries-schumer-voters/2025/01/30/id/1197154/)
+- [20:10 UTC - [https://www. cnbc.com/2025/02/03/putin-says -europe-will-stand-at-feet-of-master-as-trump...](113975743103667550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975743103667550
+  - [https://www. cnbc.com/2025/02/03/putin-says -europe-will-stand-at-feet-of-master-as-trump-imposes-tariffs.html](https://www.cnbc.com/2025/02/03/putin-says-europe-will-stand-at-fee...
+- [20:10 UTC - [https://www. wsj.com/opinion/trump-is-right -on-h-1b-visas-immigration-work-jobs-e3e9ec71...](113975742204214541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975742204214541
+  - [https://www. wsj.com/opinion/trump-is-right -on-h-1b-visas-immigration-work-jobs-e3e9ec71](https://www.wsj.com/opinion/trump-is-right-on-h-1b-visas-immigration-work-jobs-e3e9ec71)
+- [20:09 UTC - [https://www. wsj.com/world/china/u-s-compan ies-vouched-for-china-during-trumps-first-ter...](113975740147060062/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975740147060062
+  - [https://www. wsj.com/world/china/u-s-compan ies-vouched-for-china-during-trumps-first-term-not-anymore-fada8f7b](https://www.wsj.com/world/china/u-s-companies-vouched-for-china-du...
+- [20:09 UTC - [https:// nypost.com/2025/02/07/opinion/ trump-is-the-reason-my-daughter-romi-is-no-longer...](113975737980482460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975737980482460
+  - [https:// nypost.com/2025/02/07/opinion/ trump-is-the-reason-my-daughter-romi-is-no-longer-a-hamas-hostage/](https://nypost.com/2025/02/07/opinion/trump-is-the-reason-my-daughter-r...
+- [20:08 UTC - [https://www. israelnationalnews.com/news/40 3297](https://www.israelnationalnews.com/news...](113975737093464778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975737093464778
+  - [https://www. israelnationalnews.com/news/40 3297](https://www.israelnationalnews.com/news/403297)
+- [20:08 UTC - [https:// nypost.com/2025/01/31/opinion/ douglas-murray-gaza-must-reject-terror-of-hamas-f...](113975733853466431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975733853466431
+  - [https:// nypost.com/2025/01/31/opinion/ douglas-murray-gaza-must-reject-terror-of-hamas-for-war-to-end/](https://nypost.com/2025/01/31/opinion/douglas-murray-gaza-must-reject-terr...
+- [20:07 UTC - [https:// nypost.com/2025/02/01/opinion/ trump-is-killing-terrorists-again-and-cleaning-up...](113975733159787944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975733159787944
+  - [https:// nypost.com/2025/02/01/opinion/ trump-is-killing-terrorists-again-and-cleaning-up-bidens-disastrous-mistakes-its-glorious/](https://nypost.com/2025/02/01/opinion/trump-is-...
+- [20:07 UTC - [https://www. washingtonexaminer.com/opinion /3178774/exclusive-elon-musk-says-destiny-of-...](113975732355635487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975732355635487
+  - [https://www. washingtonexaminer.com/opinion /3178774/exclusive-elon-musk-says-destiny-of-america-is-on-the-line/](https://www.washingtonexaminer.com/opinion/3178774/exclusive-elon...
+- [19:58 UTC - Bob Unanue: "I love the President for his Courage, Leadership, Love of Country, Love of us...](113975698199969182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975698199969182
+  - Bob Unanue: "I love the President for his Courage, Leadership, Love of Country, Love of us, Love of the most vulnerable, Love of God and for leading America and the World closer to...
+- [19:58 UTC - Truth Social post 113975697109287334](113975697109287334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975697109287334
+  - _No text content captured._
+- [19:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113975693540429299 Look what I ...](113975695512840158/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975695512840158
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113975693540429299 Look what I got done for California - Reduce Water Bill NOW!
+- [19:57 UTC - Truth Social post 113975693540429299](113975693540429299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975693540429299
+  - _No text content captured._
+- [19:56 UTC - Truth Social post 113975689415693035](113975689415693035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975689415693035
+  - _No text content captured._
+- [19:54 UTC - Truth Social post 113975680768242955](113975680768242955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975680768242955
+  - _No text content captured._
+- [19:53 UTC - Truth Social post 113975677559689478](113975677559689478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113975677559689478
+  - _No text content captured._
+- [13:51 UTC - South Africa is confiscating land, and treating certain classes of people VERY BADLY. It i...](113974252831717932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113974252831717932
+  - South Africa is confiscating land, and treating certain classes of people VERY BADLY. It is a bad situation that the Radical Left Media doesn’t want to so much as mention. A massiv...
+- [13:50 UTC - I will be interviewed by Bret Baier, of Fox, prior to the Super Bowl at 3 P.M. EST. Enjoy!](113974251046470821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113974251046470821
+  - I will be interviewed by Bret Baier, of Fox, prior to the Super Bowl at 3 P.M. EST. Enjoy!
+- [10:55 UTC - [https://www. mediaite.com/tv/justin-trudeau -says-on-hot-mic-that-trump-is-serious-about-...](113973561334776943/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113973561334776943
+  - [https://www. mediaite.com/tv/justin-trudeau -says-on-hot-mic-that-trump-is-serious-about-us-absorbing-canada-it-is-a-real-thing/](https://www.mediaite.com/tv/justin-trudeau-says-o...
+- [00:38 UTC - Truth Social post 113971133316471956](113971133316471956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113971133316471956
+  - _No text content captured._

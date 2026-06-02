@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-03-07
+
+- Posts: 10
+
+- [23:21 UTC - Truth Social post 114123716284282694](114123716284282694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114123716284282694
+  - _No text content captured._
+- [23:16 UTC - Truth Social post 114123695498803165](114123695498803165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114123695498803165
+  - _No text content captured._
+- [20:57 UTC - [https://www. youtube.com/live/omP3GPxaVog?s i=wBJUOzL0l9Rg2TnS](https://www.youtube.com/l...](114123147155873767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114123147155873767
+  - [https://www. youtube.com/live/omP3GPxaVog?s i=wBJUOzL0l9Rg2TnS](https://www.youtube.com/live/omP3GPxaVog?si=wBJUOzL0l9Rg2TnS)
+- [20:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114112430549537723 AFTER…](114123139960689685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114123139960689685
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114112430549537723 AFTER…
+- [20:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114112430549537723](114123130548654528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114123130548654528
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114112430549537723
+- [20:13 UTC - “Trump Administration Cancels $400 Million in Grants to Columbia” [https://www. thefp.com/...](114122976607379542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114122976607379542
+  - “Trump Administration Cancels $400 Million in Grants to Columbia” [https://www. thefp.com/p/exclusive-trump-ad ministration-cancels](https://www.thefp.com/p/exclusive-trump-adminis...
+- [14:58 UTC - The head of the United Autoworkers of America just stated that TARIFFS ARE NECESSARY to co...](114121736384220932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114121736384220932
+  - The head of the United Autoworkers of America just stated that TARIFFS ARE NECESSARY to correct years of abuse of the USA by other countries and companies. We have lost 90,000 fact...
+- [14:17 UTC - Based on the fact that Russia is absolutely “pounding” Ukraine on the battlefield right no...](114121576367163341/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114121576367163341
+  - Based on the fact that Russia is absolutely “pounding” Ukraine on the battlefield right now, I am strongly considering large scale Banking Sanctions, Sanctions, and Tariffs on Russ...
+- [14:05 UTC - South Africa is being terrible, plus, to long time Farmers in the country. They are confis...](114121529754059509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114121529754059509
+  - South Africa is being terrible, plus, to long time Farmers in the country. They are confiscating their LAND and FARMS, and MUCH WORSE THAN THAT. A bad place to be right now, and we...
+- [03:24 UTC - Truth Social post 114119006987453936](114119006987453936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114119006987453936
+  - _No text content captured._

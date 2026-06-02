@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-02-19
+
+- Posts: 16
+
+- [23:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114031332924234939](114033256232127105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033256232127105
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114031332924234939
+- [23:12 UTC - PROMISES MADE, PROMISES KEPT! Examples of the massive fraud, waste and abuse that my admin...](114033082612679343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033082612679343
+  - PROMISES MADE, PROMISES KEPT! Examples of the massive fraud, waste and abuse that my administration is CUTTING from the FEDERAL GOVERNMENT…
+- [22:56 UTC - The best and most successful business leaders on Earth are now racing to invest in the Uni...](114033020482640722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114033020482640722
+  - The best and most successful business leaders on Earth are now racing to invest in the United States. Since November, DAMAC has announced plans to invest $40B in the U.S., creating...
+- [22:49 UTC - If you want to build the future, there's no better place on Earth than the United States o...](114032992368318528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114032992368318528
+  - If you want to build the future, there's no better place on Earth than the United States of America—under a certain President named Donald J. Trump.
+- [22:28 UTC - Join me LIVE in Miami, Florida! [https://www. youtube.com/live/11CnoIJidr8?s i=a9yS2FB45fa...](114032908590425164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114032908590425164
+  - Join me LIVE in Miami, Florida! [https://www. youtube.com/live/11CnoIJidr8?s i=a9yS2FB45faOMIqn](https://www.youtube.com/live/11CnoIJidr8?si=a9yS2FB45faOMIqn)
+- [18:58 UTC - CONGESTION PRICING IS DEAD. Manhattan, and all of New York, is SAVED. LONG LIVE THE KING!](114032082899254855/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114032082899254855
+  - CONGESTION PRICING IS DEAD. Manhattan, and all of New York, is SAVED. LONG LIVE THE KING!
+- [15:47 UTC - Think of it, a modestly successful comedian, Volodymyr Zelenskyy, talked the United States...](114031332924234939/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114031332924234939
+  - Think of it, a modestly successful comedian, Volodymyr Zelenskyy, talked the United States of America into spending $350 Billion Dollars, to go into a War that couldn’t be won, tha...
+- [14:26 UTC - The House and Senate are doing a SPECTACULAR job of working together as one unified, and u...](114031015354735395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114031015354735395
+  - The House and Senate are doing a SPECTACULAR job of working together as one unified, and unbeatable, TEAM, however, unlike the Lindsey Graham version of the very important Legislat...
+- [14:26 UTC - [https://www. foxbusiness.com/politics/trump s-hurricane-helene-relief-top-fundraiser-gofu...](114031012160339637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114031012160339637
+  - [https://www. foxbusiness.com/politics/trump s-hurricane-helene-relief-top-fundraiser-gofundme-2024](https://www.foxbusiness.com/politics/trumps-hurricane-helene-relief-top-fundrai...
+- [14:25 UTC - Truth Social post 114031011152723464](114031011152723464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114031011152723464
+  - _No text content captured._
+- [14:04 UTC - “FACT SHEET: PRESIDENT DONALD J. TRUMP REINS IN INDEPENDENT AGENCIES TO RESTORE A GOVERNME...](114030926604297056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114030926604297056
+  - “FACT SHEET: PRESIDENT DONALD J. TRUMP REINS IN INDEPENDENT AGENCIES TO RESTORE A GOVERNMENT THAT ANSWERS TO THE AMERICAN PEOPLE” [https://www. whitehouse.gov/fact-sheets/202 5/02/...
+- [14:02 UTC - “FACT SHEET: PRESIDENT DONALD J. TRUMP EXPANDS ACCESS TO IN VITRO FERTILIZATION (IVF)” [ht...](114030920799468684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114030920799468684
+  - “FACT SHEET: PRESIDENT DONALD J. TRUMP EXPANDS ACCESS TO IN VITRO FERTILIZATION (IVF)” [https://www. whitehouse.gov/fact-sheets/202 5/02/fact-sheet-president-donald-j-trump-expands...
+- [04:03 UTC - [https:// youtu.be/8SpcLT8-Eds](https://youtu.be/8SpcLT8-Eds)](114028563478930775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114028563478930775
+  - [https:// youtu.be/8SpcLT8-Eds](https://youtu.be/8SpcLT8-Eds)
+- [04:02 UTC - [https:// youtu.be/hMbcMO5JgEo](https://youtu.be/hMbcMO5JgEo)](114028562274725485/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114028562274725485
+  - [https:// youtu.be/hMbcMO5JgEo](https://youtu.be/hMbcMO5JgEo)
+- [00:41 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](114027771932478720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027771932478720
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [00:41 UTC - “TUNE IN: Exclusive Hannity Interview with President Trump and Elon Musk Tonight at 9PM ET...](114027770237892482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027770237892482
+  - “TUNE IN: Exclusive Hannity Interview with President Trump and Elon Musk Tonight at 9PM ET” [https:// hannity.com/media-room/tune-in -exclusive-hannity-interview-with-president-tru...

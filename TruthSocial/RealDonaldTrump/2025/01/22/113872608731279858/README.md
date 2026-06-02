@@ -1,0 +1,355 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 113872608731279858
+- Post URL: https://truthsocial.com/@realDonaldTrump/113872608731279858
+- Title: RT [@ SilverKnight57](https://truthsocial.com/@SilverKnight57) Best FLOTUS Ever!!!
+- Date published: 2025-01-22T15:01:56.628000+00:00
+- Date accessed: 2026-06-02T20:25:04.180770+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12745825,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34035,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12746421,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34035,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@SilverKnight57\" class=\"u-url mention\">@<span>SilverKnight57</span></a></span>Best FLOTUS Ever!!!</p>",
+    "created_at": "2025-01-22T15:01:56.628Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "113872608731279858",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": true,
+        "acct": "SilverKnight57",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/839/335/103/500/501/original/f5024ba046052bc9.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/839/335/103/500/501/original/f5024ba046052bc9.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-22T02:41:07.055Z",
+        "discoverable": true,
+        "display_name": "Robertus Trump",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 54091,
+        "following_count": 32752,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/839/335/103/500/501/original/eb323648bb318504.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/839/335/103/500/501/original/eb323648bb318504.jpeg",
+        "id": "107839335103500501",
+        "last_status_at": "2026-05-31",
+        "location": "Florida",
+        "locked": false,
+        "note": "<p>🇺🇸Freedom Loving Trump Supporter🇺🇸<br/>❤️ America First ❤️ Patriot<br/>Trump Won! MAGA<br/>🇺🇸RT by POTUS DJT❤️🇺🇸❤️</p>",
+        "premium": false,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 79025,
+        "tv_account": false,
+        "tv_onboarded": true,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@SilverKnight57",
+        "username": "SilverKnight57",
+        "verified": false,
+        "website": ""
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p>Best FLOTUS Ever!!!</p>",
+      "created_at": "2025-01-19T21:26:48.162Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 25974,
+      "group": null,
+      "id": "113857135126864622",
+      "in_reply_to": {
+        "account": {
+          "accepting_messages": true,
+          "acct": "MelaniaTrump",
+          "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/810/374/513/977/973/original/291700b2c8daafcb.jpeg",
+          "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/810/374/513/977/973/original/291700b2c8daafcb.jpeg",
+          "bot": false,
+          "chats_onboarded": true,
+          "created_at": "2022-02-16T23:56:04.194Z",
+          "discoverable": false,
+          "display_name": "Melania Trump",
+          "emojis": [],
+          "feeds_onboarded": true,
+          "fields": [],
+          "followers_count": 2230479,
+          "following_count": 8,
+          "group": false,
+          "header": "",
+          "header_static": "",
+          "id": "107810374513977973",
+          "last_status_at": "2026-05-28",
+          "location": "",
+          "locked": false,
+          "note": "<p>Official account of Melania Trump</p>",
+          "premium": false,
+          "show_nonmember_group_statuses": false,
+          "statuses_count": 385,
+          "tv_account": false,
+          "tv_onboarded": false,
+          "unauth_visibility": true,
+          "url": "https://truthsocial.com/@MelaniaTrump",
+          "username": "MelaniaTrump",
+          "verified": true,
+          "website": ""
+        },
+        "bookmarked": false,
+        "card": null,
+        "content": "<p>The Official Melania Meme is live!</p><p>You can buy $MELANIA now.  </p><p>Melaniameme.com</p><p>FUAfBo2jgks6gB4Z4LfZkqSZgzNucisEHqnNebaRxM1P</p>",
+        "created_at": "2025-01-19T21:10:50.536Z",
+        "downvotes_count": 0,
+        "editable": false,
+        "edited_at": null,
+        "emojis": [],
+        "favourited": false,
+        "favourites_count": 33482,
+        "group": null,
+        "id": "113857072367720537",
+        "in_reply_to": null,
+        "in_reply_to_account_id": null,
+        "in_reply_to_id": null,
+        "language": "en",
+        "media_attachments": [
+          {
+            "blurhash": "UJHx$$IU00IUD%-;D%xu~qRj~qj[?bRjj[xu",
+            "description": null,
+            "external_video_id": null,
+            "id": "113857072308750261",
+            "meta": {
+              "original": {
+                "aspect": 1,
+                "height": 1013,
+                "size": "1013x1013",
+                "width": 1013
+              },
+              "small": {
+                "aspect": 1,
+                "height": 800,
+                "size": "800x800",
+                "width": 800
+              }
+            },
+            "preview_remote_url": null,
+            "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/072/308/750/261/small/9438e1d5d61324cf.jpg",
+            "processing": "complete",
+            "remote_url": null,
+            "text_url": null,
+            "type": "image",
+            "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/072/308/750/261/original/9438e1d5d61324cf.jpg"
+          }
+        ],
+        "mentions": [],
+        "muted": false,
+        "pinned": false,
+        "poll": null,
+        "quote": null,
+        "quote_id": null,
+        "reaction": null,
+        "reblog": null,
+        "reblogged": false,
+        "reblogs_count": 5723,
+        "replies_count": 2063,
+        "sensitive": false,
+        "spoiler_text": "",
+        "sponsored": false,
+        "tags": [],
+        "title": null,
+        "upvotes_count": 33482,
+        "uri": "https://truthsocial.com/@MelaniaTrump/113857072367720537",
+        "url": "https://truthsocial.com/@MelaniaTrump/113857072367720537",
+        "version": "1",
+        "visibility": "public",
+        "votable": false
+      },
+      "in_reply_to_account_id": "107810374513977973",
+      "in_reply_to_id": "113857072367720537",
+      "language": "en",
+      "media_attachments": [
+        {
+          "blurhash": "UjIf*sNH5RNH0|xtRkxZ$+o2%1NHELW;xaoK",
+          "description": null,
+          "external_video_id": null,
+          "id": "113857135050637652",
+          "meta": {
+            "original": {
+              "aspect": 0.6953125,
+              "height": 1024,
+              "size": "712x1024",
+              "width": 712
+            },
+            "small": {
+              "aspect": 0.6955161626694474,
+              "height": 959,
+              "size": "667x959",
+              "width": 667
+            }
+          },
+          "preview_remote_url": null,
+          "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/135/050/637/652/small/46569170171d151d.jpg",
+          "processing": "complete",
+          "remote_url": null,
+          "text_url": null,
+          "type": "image",
+          "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/135/050/637/652/original/46569170171d151d.jpg"
+        }
+      ],
+      "mentions": [
+        {
+          "acct": "MelaniaTrump",
+          "id": "107810374513977973",
+          "url": "https://truthsocial.com/@MelaniaTrump",
+          "username": "MelaniaTrump"
+        }
+      ],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 3391,
+      "replies_count": 675,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 25974,
+      "uri": "https://truthsocial.com/@SilverKnight57/113857135126864622",
+      "url": "https://truthsocial.com/@SilverKnight57/113857135126864622",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/113872608731279858",
+    "url": "https://truthsocial.com/@realDonaldTrump/113872608731279858",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

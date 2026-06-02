@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-02-01
+
+- Posts: 10
+
+- [23:21 UTC - TARIFFS!](113931196721633756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113931196721633756
+  - TARIFFS!
+- [22:42 UTC - Today, I have implemented a 25% Tariff on Imports from Mexico and Canada (10% on Canadian ...](113931044424714413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113931044424714413
+  - Today, I have implemented a 25% Tariff on Imports from Mexico and Canada (10% on Canadian Energy), and a 10% additional Tariff on China. This was done through the International Eme...
+- [17:18 UTC - This morning I ordered precision Military air strikes on the Senior ISIS Attack Planner an...](113929767736564719/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113929767736564719
+  - This morning I ordered precision Military air strikes on the Senior ISIS Attack Planner and other terrorists he recruited and led in Somalia. These killers, who we found hiding in...
+- [15:43 UTC - It is so good to have the Venezuela Hostages back home and, very important to note, that V...](113929394841474581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113929394841474581
+  - It is so good to have the Venezuela Hostages back home and, very important to note, that Venezuela has agreed to receive, back into their Country, all Venezuela illegal aliens who...
+- [13:01 UTC - Ellie Cohanim on Israel, and Phill Flynn on Tariffs, were GREAT on Fox & Friends this morn...](113928759847321475/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113928759847321475
+  - Ellie Cohanim on Israel, and Phill Flynn on Tariffs, were GREAT on Fox & Friends this morning. Real “Pros!” DJT
+- [12:57 UTC - Hostages from Venezuela arrived home last night, in great condition!](113928743830963167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113928743830963167
+  - Hostages from Venezuela arrived home last night, in great condition!
+- [02:01 UTC - So sad to see the plane go down in Philadelphia, Pennsylvania. More innocent souls lost. O...](113926164813266216/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113926164813266216
+  - So sad to see the plane go down in Philadelphia, Pennsylvania. More innocent souls lost. Our people are totally engaged. First Responders are already being given credit for doing a...
+- [00:35 UTC - I LOVE $TRUMP!! Go to [https:// GetTrumpMemes.com](https://GetTrumpMemes.com)](113925824938962217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113925824938962217
+  - I LOVE $TRUMP!! Go to [https:// GetTrumpMemes.com](https://GetTrumpMemes.com)
+- [00:29 UTC - Just been informed that we are bringing six hostages home from Venezuela. Thank you to Ric...](113925800748181952/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113925800748181952
+  - Just been informed that we are bringing six hostages home from Venezuela. Thank you to Ric Grenell and my entire staff. Great job!
+- [00:17 UTC - Truth Social post 113925755415569325](113925755415569325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113925755415569325
+  - _No text content captured._

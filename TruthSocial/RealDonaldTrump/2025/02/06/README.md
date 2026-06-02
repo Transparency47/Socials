@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-02-06
+
+- Posts: 22
+
+- [23:01 UTC - I am pleased to announce that Nicholas Merrick will serve as the next United States Ambass...](113959430611091391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959430611091391
+  - I am pleased to announce that Nicholas Merrick will serve as the next United States Ambassador to the Czech Republic. Nicholas is a highly respected businessman and teacher, who le...
+- [23:01 UTC - I am pleased to announce that Melinda Hildebrand will serve as the next United States Amba...](113959429103008524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959429103008524
+  - I am pleased to announce that Melinda Hildebrand will serve as the next United States Ambassador to Costa Rica. Melinda is an incredibly successful businesswoman and philanthropist...
+- [22:59 UTC - I am pleased to announce that Michael E. Kavoukjian will serve as the next United States A...](113959420733046049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959420733046049
+  - I am pleased to announce that Michael E. Kavoukjian will serve as the next United States Ambassador to the Kingdom of Norway. Michael is a brilliant attorney, who currently serves...
+- [22:48 UTC - I am pleased to announce that Thomas Rose will serve as the next United States Ambassador ...](113959378194447457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959378194447457
+  - I am pleased to announce that Thomas Rose will serve as the next United States Ambassador to Poland. Thomas is a highly respected businessman and commentator, who had a successful...
+- [22:48 UTC - I am pleased to announce that Gadyaces “Gady” Serralta will serve as the next Director of ...](113959376894602189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959376894602189
+  - I am pleased to announce that Gadyaces “Gady” Serralta will serve as the next Director of the United States Marshals Service. Gady is a lifelong public servant, with 34 years of La...
+- [22:31 UTC - Exciting news! Due to my Executive Order, which I proudly signed yesterday, the NCAA has o...](113959311791400230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959311791400230
+  - Exciting news! Due to my Executive Order, which I proudly signed yesterday, the NCAA has officially changed their policy of allowing men in Women’s Sports – IT IS NOW BANNED! This...
+- [22:31 UTC - These events remind us of how blessed we are to live in a nation that has thrived for two ...](113959311319434685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959311319434685
+  - These events remind us of how blessed we are to live in a nation that has thrived for two and a half centuries as a haven of Religious Freedom—My administration is absolutely commi...
+- [21:37 UTC - Truth Social post 113959100570368596](113959100570368596/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113959100570368596
+  - _No text content captured._
+- [17:10 UTC - From the very beginning of our republic, America has always been a nation founded by peopl...](113958047997367769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113958047997367769
+  - From the very beginning of our republic, America has always been a nation founded by people of faith, strengthened by the power of prayer, and united by four simple but very beauti...
+- [17:09 UTC - After years of decline, Americans are re-asserting our true identity as a people ordained ...](113958043346651690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113958043346651690
+  - After years of decline, Americans are re-asserting our true identity as a people ordained by God to be the freest and most exceptional nation ever to exist on the face of the Earth...
+- [16:55 UTC - [https://www. youtube.com/live/4AsnLBNSyBY?s i=lWLIatP_b3va3fVu](https://www.youtube.com/l...](113957988313237116/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113957988313237116
+  - [https://www. youtube.com/live/4AsnLBNSyBY?s i=lWLIatP_b3va3fVu](https://www.youtube.com/live/4AsnLBNSyBY?si=lWLIatP_b3va3fVu)
+- [16:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113957815659314093](113957816539069659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113957816539069659
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113957815659314093
+- [16:11 UTC - Truth Social post 113957815659314093](113957815659314093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113957815659314093
+  - _No text content captured._
+- [11:47 UTC - LOOKS LIKE BILLIONS OF DOLLARS HAVE BEEN STOLLEN AT USAID, AND OTHER AGENCIES, MUCH OF IT ...](113956778707659340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113956778707659340
+  - LOOKS LIKE BILLIONS OF DOLLARS HAVE BEEN STOLLEN AT USAID, AND OTHER AGENCIES, MUCH OF IT GOING TO THE FAKE NEWS MEDIA AS A “PAYOFF” FOR CREATING GOOD STORIES ABOUT THE DEMOCRATS....
+- [11:32 UTC - The Gaza Strip would be turned over to the United States by Israel at the conclusion of fi...](113956721204228037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113956721204228037
+  - The Gaza Strip would be turned over to the United States by Israel at the conclusion of fighting. The Palestinians, people like Chuck Schumer, would have already been resettled in...
+- [11:09 UTC - CBS and 60 Minutes defrauded the public by doing something which has never, to this extent...](113956631326391344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113956631326391344
+  - CBS and 60 Minutes defrauded the public by doing something which has never, to this extent, been seen before. They 100% removed Kamala’s horrible election changing answers to quest...
+- [05:40 UTC - Congratulations to the Chiefs GREAT Quarterback, Patrick Mahomes, and his very beautiful a...](113955337256027963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113955337256027963
+  - Congratulations to the Chiefs GREAT Quarterback, Patrick Mahomes, and his very beautiful and BRILLIANT wife, Brittany, on the birth of their new baby daughter, Golden Raye. This is...
+- [04:54 UTC - Truth Social post 113955153606762974](113955153606762974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113955153606762974
+  - _No text content captured._
+- [04:54 UTC - Truth Social post 113955152878542415](113955152878542415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113955152878542415
+  - _No text content captured._
+- [04:50 UTC - Jesse Watters: “Wow…we finally got our hands on the raw CBS News interview with Kamala Har...](113955137991232105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113955137991232105
+  - Jesse Watters: “Wow…we finally got our hands on the raw CBS News interview with Kamala Harris that was deceptively edited. And it did not disappoint…”
+- [04:15 UTC - [https:// justthenews.com/politics-polic y/17-days-term-trump-has-delivered-80-his-agenda]...](113955003172132262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113955003172132262
+  - [https:// justthenews.com/politics-polic y/17-days-term-trump-has-delivered-80-his-agenda](https://justthenews.com/politics-policy/17-days-term-trump-has-delivered-80-his-agenda)
+- [02:35 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113953424718890288 FROM NOW ON,...](113954610000174807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113954610000174807
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113953424718890288 FROM NOW ON, WOMEN’S SPORTS WILL BE ONLY FOR WOMEN! By the authority vested in me as President by the...

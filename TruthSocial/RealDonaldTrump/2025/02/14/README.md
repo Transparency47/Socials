@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2025-02-14
+
+- Posts: 14
+
+- [20:37 UTC - “US will be 'flooded with jobs' as foreign nations avoid tariffs, Trump says” [https://www...](114004160299941382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114004160299941382
+  - “US will be 'flooded with jobs' as foreign nations avoid tariffs, Trump says” [https://www. foxnews.com/politics/us-floode d-jobs-foreign-nations-avoid-tariffs-trump-says](https://...
+- [20:36 UTC - “Trump orders reciprocal tariffs on countries treating US imports unfairly — with EU, Indi...](114004158227642314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114004158227642314
+  - “Trump orders reciprocal tariffs on countries treating US imports unfairly — with EU, India, Japan in crosshairs” [https:// nypost.com/2025/02/13/us-news/ trump-orders-reciprocal-t...
+- [20:35 UTC - “Trump announces boldest tariff plan in more than a century: 'This is the big one'” [https...](114004152174148558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114004152174148558
+  - “Trump announces boldest tariff plan in more than a century: 'This is the big one'” [https://www. dailymail.co.uk/news/article-1 4394937/Trump-reciprocal-tariffs-trade-unfair.html]...
+- [20:33 UTC - “Trump signs sweeping reciprocal tariff plan, says more coming” [https://www. cnbc.com/202...](114004145997692054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114004145997692054
+  - “Trump signs sweeping reciprocal tariff plan, says more coming” [https://www. cnbc.com/2025/02/13/trump-reci procal-tariffs-news-conference.html](https://www.cnbc.com/2025/02/13/tr...
+- [18:05 UTC - [https://www. rsbnetwork.com/news/border-cro ssings-drop-90-percent-under-trump-policies/]...](114003564859420753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114003564859420753
+  - [https://www. rsbnetwork.com/news/border-cro ssings-drop-90-percent-under-trump-policies/](https://www.rsbnetwork.com/news/border-crossings-drop-90-percent-under-trump-policies/)
+- [17:56 UTC - TOM HOMAN: “I WORKED FOR SIX PRESIDENTS—I THINK PRESIDENT TRUMP IS THE GREATEST PRESIDENT ...](114003528364588018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114003528364588018
+  - TOM HOMAN: “I WORKED FOR SIX PRESIDENTS—I THINK PRESIDENT TRUMP IS THE GREATEST PRESIDENT OF MY LIFETIME, HE PROVES IT EVERY DAY…BORDER NUMBERS ARE DOWN OVER 90% IN THREE WEEKS…”
+- [03:20 UTC - “RECIPROCAL TRADE AND TARIFFS” [https://www. whitehouse.gov/articles/2025/0 2/reciprocal-t...](114000082796162721/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000082796162721
+  - “RECIPROCAL TRADE AND TARIFFS” [https://www. whitehouse.gov/articles/2025/0 2/reciprocal-trade-and-tariffs/](https://www.whitehouse.gov/articles/2025/02/reciprocal-trade-and-tariff...
+- [03:19 UTC - “FACT SHEET: PRESIDENT DONALD J. TRUMP ANNOUNCES ‘FAIR AND RECIPROCAL PLAN’ ON TRADE” [htt...](114000079822145063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000079822145063
+  - “FACT SHEET: PRESIDENT DONALD J. TRUMP ANNOUNCES ‘FAIR AND RECIPROCAL PLAN’ ON TRADE” [https://www. whitehouse.gov/fact-sheets/202 5/02/fact-sheet-president-donald-j-trump-announce...
+- [03:17 UTC - Truth Social post 114000071688590864](114000071688590864/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000071688590864
+  - _No text content captured._
+- [03:15 UTC - Truth Social post 114000064991999629](114000064991999629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000064991999629
+  - _No text content captured._
+- [03:14 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/02/establishing-the-presidents-mak...](114000060492434133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000060492434133
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/02/establishing-the-presidents-make-america-healthy-again-commission/](https://www.whitehouse.gov/presidential-actions/2025/...
+- [03:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113999449263244869](114000056512388431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000056512388431
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113999449263244869
+- [03:12 UTC - Truth Social post 114000050664043242](114000050664043242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114000050664043242
+  - _No text content captured._
+- [00:39 UTC - [https://www. youtube.com/live/B1TBAbMnevs?s i=x79i-Cd9kIQVMwfU](https://www.youtube.com/l...](113999449263244869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113999449263244869
+  - [https://www. youtube.com/live/B1TBAbMnevs?s i=x79i-Cd9kIQVMwfU](https://www.youtube.com/live/B1TBAbMnevs?si=x79i-Cd9kIQVMwfU)

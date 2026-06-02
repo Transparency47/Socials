@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-02-13
+
+- Posts: 11
+
+- [22:33 UTC - We want a level playing field for all American workers — I have instructed my Secretary of...](113998953188726976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113998953188726976
+  - We want a level playing field for all American workers — I have instructed my Secretary of State, my Secretary of Commerce, Secretary of Treasury, and U.S. Trade Representative to...
+- [22:29 UTC - [https:// rumble.com/v6khbam-watch-presi dent-trump-signs-executive-orders-and-holds-a-pre...](113998939983290195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113998939983290195
+  - [https:// rumble.com/v6khbam-watch-presi dent-trump-signs-executive-orders-and-holds-a-press-conference-i.html](https://rumble.com/v6khbam-watch-president-trump-signs-executive-ord...
+- [22:28 UTC - [https:// rumble.com/v6khde1-watch-presi dent-trump-swears-in-robert-f.-kennedy-jr.-as-the...](113998935841690514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113998935841690514
+  - [https:// rumble.com/v6khde1-watch-presi dent-trump-swears-in-robert-f.-kennedy-jr.-as-the-secretary-of-h.html](https://rumble.com/v6khde1-watch-president-trump-swears-in-robert-f....
+- [20:38 UTC - So sad how people have been tormented by this horrible group!](113998503090044390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113998503090044390
+  - So sad how people have been tormented by this horrible group!
+- [19:34 UTC - On Trade, I have decided, for purposes of Fairness, that I will charge a RECIPROCAL Tariff...](113998250121701192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113998250121701192
+  - On Trade, I have decided, for purposes of Fairness, that I will charge a RECIPROCAL Tariff meaning, whatever Countries charge the United States of America, we will charge them - No...
+- [13:49 UTC - NEWS CONFERENCE ON RECIPROCAL TARIFFS TODAY, 1:00 P.M., THE OVAL OFFICE. MAKE AMERICA GREA...](113996895642654410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113996895642654410
+  - NEWS CONFERENCE ON RECIPROCAL TARIFFS TODAY, 1:00 P.M., THE OVAL OFFICE. MAKE AMERICA GREAT AGAIN!!!
+- [11:52 UTC - GREAT TALKS WITH RUSSIA AND UKRAINE YESTERDAY. GOOD POSSIBILITY OF ENDING THAT HORRIBLE, V...](113996433848678436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113996433848678436
+  - GREAT TALKS WITH RUSSIA AND UKRAINE YESTERDAY. GOOD POSSIBILITY OF ENDING THAT HORRIBLE, VERY BLOODY WAR!!!
+- [11:46 UTC - THREE GREAT WEEKS, PERHAPS THE BEST EVER, BUT TODAY IS THE BIG ONE: RECIPROCAL TARIFFS!!! ...](113996410955252842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113996410955252842
+  - THREE GREAT WEEKS, PERHAPS THE BEST EVER, BUT TODAY IS THE BIG ONE: RECIPROCAL TARIFFS!!! MAKE AMERICA GREAT AGAIN!!!
+- [11:40 UTC - DOGE: Why was Politico paid Millions of Dollars for NOTHING. Buying the press??? PAY BACK ...](113996386971796071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113996386971796071
+  - DOGE: Why was Politico paid Millions of Dollars for NOTHING. Buying the press??? PAY BACK THE MONEY TO THE TAXPAYERS! How much has the Failing New York Times paid? Is this the mone...
+- [10:58 UTC - DOGE: Looks like Radical Left Reuters was paid $9,000,000 by the Department of Defense to ...](113996222032466903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113996222032466903
+  - DOGE: Looks like Radical Left Reuters was paid $9,000,000 by the Department of Defense to study “large scale social deception.” GIVE BACK THE MONEY, NOW!
+- [02:30 UTC - [https:// youtu.be/IFFQaFJzUuY](https://youtu.be/IFFQaFJzUuY)](113994225588283797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113994225588283797
+  - [https:// youtu.be/IFFQaFJzUuY](https://youtu.be/IFFQaFJzUuY)

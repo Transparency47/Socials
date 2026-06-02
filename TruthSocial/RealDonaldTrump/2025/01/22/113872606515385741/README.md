@@ -1,0 +1,355 @@
+# Metadata
+- Platform: TruthSocial
+- Account: RealDonaldTrump
+- Account display name: Donald J. Trump
+- Account ID: 107780257626128497
+- Account URL: https://truthsocial.com/@realDonaldTrump
+- Post ID: 113872606515385741
+- Post URL: https://truthsocial.com/@realDonaldTrump/113872606515385741
+- Title: RT [@ markweltzin](https://truthsocial.com/@markweltzin)
+- Date published: 2025-01-22T15:01:22.815000+00:00
+- Date accessed: 2026-06-02T20:25:15.961488+00:00
+- Content kind: post
+
+## Metrics
+
+- favorites: 0
+- reblogs: 0
+- replies: 0
+
+## Media Attachments
+
+- No media attachments captured.
+
+## API Data
+
+```json
+{
+  "profile": {
+    "accepted_status_edit_prompt": false,
+    "accepting_messages": false,
+    "acct": "realDonaldTrump",
+    "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+    "bookmarks_onboarded": true,
+    "bot": false,
+    "chats_onboarded": true,
+    "created_at": "2022-02-11T16:16:57.705Z",
+    "discoverable": null,
+    "display_name": "Donald J. Trump",
+    "emojis": [],
+    "feeds_onboarded": true,
+    "fields": [],
+    "followers_count": 12745825,
+    "following_count": 69,
+    "group": false,
+    "group_reactions_onboarded": true,
+    "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+    "id": "107780257626128497",
+    "last_status_at": "2026-06-02",
+    "location": "",
+    "locked": false,
+    "note": "<p></p>",
+    "pleroma": {
+      "accepts_chat_messages": false
+    },
+    "premium": true,
+    "receive_only_follow_mentions": false,
+    "show_nonmember_group_statuses": false,
+    "statuses_count": 34035,
+    "tv_account": false,
+    "tv_onboarded": false,
+    "url": "https://truthsocial.com/@realDonaldTrump",
+    "username": "realDonaldTrump",
+    "verified": true,
+    "website": "www.DonaldJTrump.com"
+  },
+  "status": {
+    "account": {
+      "accepting_messages": false,
+      "acct": "realDonaldTrump",
+      "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/780/257/626/128/497/original/454286ac07a6f6e6.jpeg",
+      "bot": false,
+      "chats_onboarded": true,
+      "created_at": "2022-02-11T16:16:57.705Z",
+      "discoverable": false,
+      "display_name": "Donald J. Trump",
+      "emojis": [],
+      "feeds_onboarded": true,
+      "fields": [],
+      "followers_count": 12746421,
+      "following_count": 69,
+      "group": false,
+      "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
+      "id": "107780257626128497",
+      "last_status_at": "2026-06-02",
+      "location": "",
+      "locked": false,
+      "note": "<p></p>",
+      "premium": true,
+      "show_nonmember_group_statuses": false,
+      "statuses_count": 34035,
+      "tv_account": false,
+      "tv_onboarded": false,
+      "unauth_visibility": true,
+      "url": "https://truthsocial.com/@realDonaldTrump",
+      "username": "realDonaldTrump",
+      "verified": true,
+      "website": "www.DonaldJTrump.com"
+    },
+    "bookmarked": false,
+    "card": null,
+    "content": "<p>RT <span class=\"h-card\"><a href=\"https://truthsocial.com/@markweltzin\" class=\"u-url mention\">@<span>markweltzin</span></a></span></p>",
+    "created_at": "2025-01-22T15:01:22.815Z",
+    "downvotes_count": 0,
+    "editable": false,
+    "edited_at": null,
+    "emojis": [],
+    "favourited": false,
+    "favourites_count": 0,
+    "group": null,
+    "id": "113872606515385741",
+    "in_reply_to": null,
+    "in_reply_to_account_id": null,
+    "in_reply_to_id": null,
+    "language": null,
+    "media_attachments": [],
+    "mentions": [],
+    "muted": false,
+    "pinned": false,
+    "poll": null,
+    "quote": null,
+    "quote_id": null,
+    "reaction": null,
+    "reblog": {
+      "account": {
+        "accepting_messages": true,
+        "acct": "markweltzin",
+        "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/834/164/396/700/483/original/e80834eec3954273.jpeg",
+        "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/834/164/396/700/483/original/e80834eec3954273.jpeg",
+        "bot": false,
+        "chats_onboarded": true,
+        "created_at": "2022-02-21T04:46:08.293Z",
+        "discoverable": true,
+        "display_name": "King Frog 🐸",
+        "emojis": [],
+        "feeds_onboarded": true,
+        "fields": [],
+        "followers_count": 55690,
+        "following_count": 1091,
+        "group": false,
+        "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/834/164/396/700/483/original/3fadf8ce7c47468a.jpeg",
+        "header_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/834/164/396/700/483/original/3fadf8ce7c47468a.jpeg",
+        "id": "107834164396700483",
+        "last_status_at": "2026-06-01",
+        "location": "🐸",
+        "locked": false,
+        "note": "<p>🐸 I Host The <a href=\"https://truthsocial.com/tags/LilyPadLounge\" class=\"mention hashtag\" rel=\"tag\">#<span>LilyPadLounge</span></a> A daily live chat post at 8pm EST<br/>My Beautiful Queen 👑 <span class=\"h-card\"><a href=\"https://truthsocial.com/@lilgr8patriot\" class=\"u-url mention\">@<span>lilgr8patriot</span></a></span></p>",
+        "premium": false,
+        "show_nonmember_group_statuses": false,
+        "statuses_count": 91011,
+        "tv_account": false,
+        "tv_onboarded": true,
+        "unauth_visibility": true,
+        "url": "https://truthsocial.com/@markweltzin",
+        "username": "markweltzin",
+        "verified": false,
+        "website": ""
+      },
+      "bookmarked": false,
+      "card": null,
+      "content": "<p></p>",
+      "created_at": "2025-01-19T22:50:09.719Z",
+      "downvotes_count": 0,
+      "editable": false,
+      "edited_at": null,
+      "emojis": [],
+      "favourited": false,
+      "favourites_count": 21110,
+      "group": null,
+      "id": "113857462908718395",
+      "in_reply_to": {
+        "account": {
+          "accepting_messages": true,
+          "acct": "MelaniaTrump",
+          "avatar": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/810/374/513/977/973/original/291700b2c8daafcb.jpeg",
+          "avatar_static": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/avatars/107/810/374/513/977/973/original/291700b2c8daafcb.jpeg",
+          "bot": false,
+          "chats_onboarded": true,
+          "created_at": "2022-02-16T23:56:04.194Z",
+          "discoverable": false,
+          "display_name": "Melania Trump",
+          "emojis": [],
+          "feeds_onboarded": true,
+          "fields": [],
+          "followers_count": 2230479,
+          "following_count": 8,
+          "group": false,
+          "header": "",
+          "header_static": "",
+          "id": "107810374513977973",
+          "last_status_at": "2026-05-28",
+          "location": "",
+          "locked": false,
+          "note": "<p>Official account of Melania Trump</p>",
+          "premium": false,
+          "show_nonmember_group_statuses": false,
+          "statuses_count": 385,
+          "tv_account": false,
+          "tv_onboarded": false,
+          "unauth_visibility": true,
+          "url": "https://truthsocial.com/@MelaniaTrump",
+          "username": "MelaniaTrump",
+          "verified": true,
+          "website": ""
+        },
+        "bookmarked": false,
+        "card": null,
+        "content": "<p>The Official Melania Meme is live!</p><p>You can buy $MELANIA now.  </p><p>Melaniameme.com</p><p>FUAfBo2jgks6gB4Z4LfZkqSZgzNucisEHqnNebaRxM1P</p>",
+        "created_at": "2025-01-19T21:10:50.536Z",
+        "downvotes_count": 0,
+        "editable": false,
+        "edited_at": null,
+        "emojis": [],
+        "favourited": false,
+        "favourites_count": 33482,
+        "group": null,
+        "id": "113857072367720537",
+        "in_reply_to": null,
+        "in_reply_to_account_id": null,
+        "in_reply_to_id": null,
+        "language": "en",
+        "media_attachments": [
+          {
+            "blurhash": "UJHx$$IU00IUD%-;D%xu~qRj~qj[?bRjj[xu",
+            "description": null,
+            "external_video_id": null,
+            "id": "113857072308750261",
+            "meta": {
+              "original": {
+                "aspect": 1,
+                "height": 1013,
+                "size": "1013x1013",
+                "width": 1013
+              },
+              "small": {
+                "aspect": 1,
+                "height": 800,
+                "size": "800x800",
+                "width": 800
+              }
+            },
+            "preview_remote_url": null,
+            "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/072/308/750/261/small/9438e1d5d61324cf.jpg",
+            "processing": "complete",
+            "remote_url": null,
+            "text_url": null,
+            "type": "image",
+            "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/072/308/750/261/original/9438e1d5d61324cf.jpg"
+          }
+        ],
+        "mentions": [],
+        "muted": false,
+        "pinned": false,
+        "poll": null,
+        "quote": null,
+        "quote_id": null,
+        "reaction": null,
+        "reblog": null,
+        "reblogged": false,
+        "reblogs_count": 5723,
+        "replies_count": 2063,
+        "sensitive": false,
+        "spoiler_text": "",
+        "sponsored": false,
+        "tags": [],
+        "title": null,
+        "upvotes_count": 33482,
+        "uri": "https://truthsocial.com/@MelaniaTrump/113857072367720537",
+        "url": "https://truthsocial.com/@MelaniaTrump/113857072367720537",
+        "version": "1",
+        "visibility": "public",
+        "votable": false
+      },
+      "in_reply_to_account_id": "107810374513977973",
+      "in_reply_to_id": "113857072367720537",
+      "language": null,
+      "media_attachments": [
+        {
+          "blurhash": "UDC~#WxD0LxG9Z%g-;Iotn9Fwbxu?HtRIoaK",
+          "description": null,
+          "external_video_id": null,
+          "id": "113857462852982696",
+          "meta": {
+            "original": {
+              "aspect": 0.801945181255526,
+              "height": 1131,
+              "size": "907x1131",
+              "width": 907
+            },
+            "small": {
+              "aspect": 0.8017917133258678,
+              "height": 893,
+              "size": "716x893",
+              "width": 716
+            }
+          },
+          "preview_remote_url": null,
+          "preview_url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/462/852/982/696/small/bb88af5d31fffd03.jpg",
+          "processing": "complete",
+          "remote_url": null,
+          "text_url": null,
+          "type": "image",
+          "url": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/113/857/462/852/982/696/original/bb88af5d31fffd03.jpg"
+        }
+      ],
+      "mentions": [
+        {
+          "acct": "MelaniaTrump",
+          "id": "107810374513977973",
+          "url": "https://truthsocial.com/@MelaniaTrump",
+          "username": "MelaniaTrump"
+        }
+      ],
+      "muted": false,
+      "pinned": false,
+      "poll": null,
+      "quote": null,
+      "quote_id": null,
+      "reaction": null,
+      "reblog": null,
+      "reblogged": false,
+      "reblogs_count": 3068,
+      "replies_count": 342,
+      "sensitive": false,
+      "spoiler_text": "",
+      "sponsored": false,
+      "tags": [],
+      "title": null,
+      "upvotes_count": 21110,
+      "uri": "https://truthsocial.com/@markweltzin/113857462908718395",
+      "url": "https://truthsocial.com/@markweltzin/113857462908718395",
+      "version": "1",
+      "visibility": "public",
+      "votable": false
+    },
+    "reblogged": false,
+    "reblogs_count": 0,
+    "replies_count": 0,
+    "sensitive": false,
+    "spoiler_text": "",
+    "sponsored": false,
+    "tags": [],
+    "title": null,
+    "upvotes_count": 0,
+    "uri": "https://truthsocial.com/@realDonaldTrump/113872606515385741",
+    "url": "https://truthsocial.com/@realDonaldTrump/113872606515385741",
+    "version": "1",
+    "visibility": "public",
+    "votable": false
+  }
+}
+```

@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-03-27
 
-- Posts: 11
+- Posts: 19
 
 - [18:12 UTC - As we advance our America First Agenda, it is essential that we maintain EVERY Republican ...](114235745233828789/)
   - Source: https://truthsocial.com/@realDonaldTrump/114235745233828789
@@ -35,3 +35,27 @@
 - [13:51 UTC - “Gregg Jarrett slams judge for blocking deportations: 'He has no authority for that'” [htt...](114234717792857736/)
   - Source: https://truthsocial.com/@realDonaldTrump/114234717792857736
   - “Gregg Jarrett slams judge for blocking deportations: 'He has no authority for that'” [https://www. foxnews.com/video/637013905011 2](https://www.foxnews.com/video/6370139050112)
+- [12:28 UTC - Great job by Pam Bondi, [@ FBIDirectorKash](https://truthsocial.com/@FBIDirectorKash) , To...](114234393336690404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114234393336690404
+  - Great job by Pam Bondi, [@ FBIDirectorKash](https://truthsocial.com/@FBIDirectorKash) , Tom HOMAN, and Kristi N, on the capture of MS13 leader - A big deal!
+- [11:43 UTC - Just captured a major leader of MS13. Tom HOMAN is a superstar!](114234217151169492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114234217151169492
+  - Just captured a major leader of MS13. Tom HOMAN is a superstar!
+- [05:50 UTC - If the European Union works with Canada in order to do economic harm to the USA, large sca...](114232829948632918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114232829948632918
+  - If the European Union works with Canada in order to do economic harm to the USA, large scale Tariffs, far larger than currently planned, will be placed on them both in order to pro...
+- [05:39 UTC - LIBERATION DAY IN AMERICA IS COMING, SOON. FOR YEARS WE HAVE BEEN RIPPED OFF BY VIRTUALLY ...](114232783362562355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114232783362562355
+  - LIBERATION DAY IN AMERICA IS COMING, SOON. FOR YEARS WE HAVE BEEN RIPPED OFF BY VIRTUALLY EVERY COUNTRY IN THE WORLD, BOTH FRIEND AND FOE. BUT THOSE DAYS ARE OVER — AMERICA FIRST!!...
+- [05:31 UTC - NPR and PBS, two horrible and completely biased platforms (Networks!), should be DEFUNDED ...](114232752130631453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114232752130631453
+  - NPR and PBS, two horrible and completely biased platforms (Networks!), should be DEFUNDED by Congress, IMMEDIATELY. Republicans, don’t miss this opportunity to rid our Country of t...
+- [05:13 UTC - How disgraceful is it that “Judge” James Boasberg has just been given a fourth “Trump Case...](114232682702493359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114232682702493359
+  - How disgraceful is it that “Judge” James Boasberg has just been given a fourth “Trump Case,” something which is, statistically, IMPOSSIBLE. There is no way for a Republican, especi...
+- [00:39 UTC - Throughout history—strong, tough, visionary women defended our flags, strengthened our com...](114231606967578813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231606967578813
+  - Throughout history—strong, tough, visionary women defended our flags, strengthened our communities, explored new frontiers, & expanded the American dream...Patriotic American women...
+- [00:22 UTC - I am pleased to announce that Brent Bozell will be our next United States Ambassador to So...](114231537224620218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231537224620218
+  - I am pleased to announce that Brent Bozell will be our next United States Ambassador to South Africa. Brent is the Founder of the Media Research Center, which has exposed Fake News...

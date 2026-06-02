@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2025-03-25
+
+- Posts: 26
+
+- [21:26 UTC - Truth Social post 114225184677373756](114225184677373756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114225184677373756
+  - _No text content captured._
+- [21:26 UTC - Truth Social post 114225183590628966](114225183590628966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114225183590628966
+  - _No text content captured._
+- [20:24 UTC - Truth Social post 114224940141764055](114224940141764055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224940141764055
+  - _No text content captured._
+- [20:11 UTC - “NASA spokeswoman Bethany Stevens credited President Donald Trump for securing the return ...](114224889588578190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224889588578190
+  - “NASA spokeswoman Bethany Stevens credited President Donald Trump for securing the return of two astronauts stranded for more than nine months on the International Space Station…’T...
+- [20:03 UTC - On National Medal of Honor Day, it was my Great Honor to recognize our Nation’s BRAVEST HE...](114224857723072168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224857723072168
+  - On National Medal of Honor Day, it was my Great Honor to recognize our Nation’s BRAVEST HEROES and incredible PATRIOTS who have been awarded the military's highest honor. Thank you...
+- [19:59 UTC - I just signed an Executive Order enabling the U.S. Treasury to modernize its payments syst...](114224841459970407/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224841459970407
+  - I just signed an Executive Order enabling the U.S. Treasury to modernize its payments system, in order to reduce waste, fraud and abuse…
+- [19:56 UTC - We believe that this Executive Order is the farthest-reaching executive action taken in th...](114224828669645176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224828669645176
+  - We believe that this Executive Order is the farthest-reaching executive action taken in the history of the republic to Secure our Elections...
+- [19:51 UTC - Today, I declassified all FBI files related to the Corrupt Crossfire Hurricane Investigati...](114224810565767895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224810565767895
+  - Today, I declassified all FBI files related to the Corrupt Crossfire Hurricane Investigation…
+- [19:40 UTC - [https://www. youtube.com/live/Bm339t52XP4?s i=jOq7WqXsxIafijuZ](https://www.youtube.com/l...](114224765735760451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224765735760451
+  - [https://www. youtube.com/live/Bm339t52XP4?s i=jOq7WqXsxIafijuZ](https://www.youtube.com/live/Bm339t52XP4?si=jOq7WqXsxIafijuZ)
+- [17:50 UTC - Truth Social post 114224335846858519](114224335846858519/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114224335846858519
+  - _No text content captured._
+- [15:28 UTC - It was my Great Honor to welcome Medal of Honor recipients this morning at the White House...](114223777905731606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223777905731606
+  - It was my Great Honor to welcome Medal of Honor recipients this morning at the White House—HEROES!
+- [14:31 UTC - Truth Social post 114223552541514637](114223552541514637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223552541514637
+  - _No text content captured._
+- [14:29 UTC - U.S. DEPARTMENT OF VETERANS AFFAIRS: “Today we celebrate National Medal of Honor Day to re...](114223545860504889/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223545860504889
+  - U.S. DEPARTMENT OF VETERANS AFFAIRS: “Today we celebrate National Medal of Honor Day to recognize the bravery and sacrifice of Medal of Honor recipients. There have been 3,528 reci...
+- [14:27 UTC - U.S. CENTRAL COMMAND: “This Medal of Honor Day, we salute those military service members w...](114223538174281137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223538174281137
+  - U.S. CENTRAL COMMAND: “This Medal of Honor Day, we salute those military service members who distinguished themselves conspicuously by gallantry and intrepidity at the risk of thei...
+- [14:25 UTC - [https://www. defense.gov/Spotlights/Medal-o f-Honor/](https://www.defense.gov/Spotlights/...](114223527585600068/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223527585600068
+  - [https://www. defense.gov/Spotlights/Medal-o f-Honor/](https://www.defense.gov/Spotlights/Medal-of-Honor/)
+- [14:00 UTC - Truth Social post 114223429078781298](114223429078781298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223429078781298
+  - _No text content captured._
+- [13:55 UTC - Truth Social post 114223409141924781](114223409141924781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114223409141924781
+  - _No text content captured._
+- [01:48 UTC - FIGHT, FIGHT, FIGHT!!!](114220551919023201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220551919023201
+  - FIGHT, FIGHT, FIGHT!!!
+- [01:19 UTC - Truth Social post 114220438605893407](114220438605893407/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220438605893407
+  - _No text content captured._
+- [00:44 UTC - Truth Social post 114220300258861591](114220300258861591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220300258861591
+  - _No text content captured._
+- [00:42 UTC - Truth Social post 114220293842425737](114220293842425737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220293842425737
+  - _No text content captured._
+- [00:40 UTC - Truth Social post 114220286590500118](114220286590500118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220286590500118
+  - _No text content captured._
+- [00:38 UTC - Truth Social post 114220278294370537](114220278294370537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220278294370537
+  - _No text content captured._
+- [00:38 UTC - “UAE commits to $1.4 trillion US investment, White House says” [https:// finance.yahoo.com...](114220275060496331/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220275060496331
+  - “UAE commits to $1.4 trillion US investment, White House says” [https:// finance.yahoo.com/news/trump-m eeting-uae-commits-10-134941173.html](https://finance.yahoo.com/news/trump-m...
+- [00:37 UTC - “On this day in 1945, 16,000 Allied airborne troops land near Wesel Germany. Operation Var...](114220273052874483/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220273052874483
+  - “On this day in 1945, 16,000 Allied airborne troops land near Wesel Germany. Operation Varsity, the largest single-day parachute and glider assault in history, succeeds in securing...
+- [00:36 UTC - Truth Social post 114220267358614811](114220267358614811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114220267358614811
+  - _No text content captured._

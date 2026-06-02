@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2025-03-24
+
+- Posts: 30
+
+- [23:26 UTC - BREAKING—LEE ZELDIN: “EPA is initiating 31 historic actions to Power the Great American Co...](114219993599274000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219993599274000
+  - BREAKING—LEE ZELDIN: “EPA is initiating 31 historic actions to Power the Great American Comeback in the greatest day of deregulation in American history! Our actions will unleash e...
+- [21:45 UTC - [https:// babylonbee.com/news/4d-chess-g enius-trump-leaks-war-plans-to-the-atlantic-where...](114219595493461211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219595493461211
+  - [https:// babylonbee.com/news/4d-chess-g enius-trump-leaks-war-plans-to-the-atlantic-where-no-one-will-ever-see-them](https://babylonbee.com/news/4d-chess-genius-trump-leaks-war-pl...
+- [20:45 UTC - [https://www. youtube.com/live/bXtkpIAYhvU?s i=Fpkuy-4HupDxzr7P](https://www.youtube.com/l...](114219361197796073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219361197796073
+  - [https://www. youtube.com/live/bXtkpIAYhvU?s i=Fpkuy-4HupDxzr7P](https://www.youtube.com/live/bXtkpIAYhvU?si=Fpkuy-4HupDxzr7P)
+- [20:45 UTC - [https://www. youtube.com/live/qqgmQUbuGrg?s i=NfK7lIUK3K5t1hr9](https://www.youtube.com/l...](114219360913153618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219360913153618
+  - [https://www. youtube.com/live/qqgmQUbuGrg?s i=NfK7lIUK3K5t1hr9](https://www.youtube.com/live/qqgmQUbuGrg?si=NfK7lIUK3K5t1hr9)
+- [20:44 UTC - [https:// justthenews.com/government/whi te-house/trump-announces-hyundai-invest-20-billio...](114219355586552611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219355586552611
+  - [https:// justthenews.com/government/whi te-house/trump-announces-hyundai-invest-20-billion-us-includes-money-louisiana-steel](https://justthenews.com/government/white-house/trump-...
+- [20:12 UTC - I am proud to announce that Dr. Susan Monarez is my Nominee to serve as the next Director ...](114219231809224627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114219231809224627
+  - I am proud to announce that Dr. Susan Monarez is my Nominee to serve as the next Director of the Centers for Disease Control and Prevention (CDC). Dr. Monarez brings decades of exp...
+- [14:50 UTC - Truth Social post 114217965448563088](114217965448563088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217965448563088
+  - _No text content captured._
+- [14:49 UTC - CONGRATULATIONS🇺🇸](114217959835325082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217959835325082
+  - CONGRATULATIONS🇺🇸
+- [14:47 UTC - Truth Social post 114217953436242134](114217953436242134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217953436242134
+  - _No text content captured._
+- [14:37 UTC - President Donald J. Trump announced today that the United States of America will be puttin...](114217914259825110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217914259825110
+  - President Donald J. Trump announced today that the United States of America will be putting what is known as a Secondary Tariff on the Country of Venezuela, for numerous reasons, i...
+- [14:37 UTC - It is with great pleasure that I am announcing Alina Habba, Esq., who is currently serving...](114217913229258108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217913229258108
+  - It is with great pleasure that I am announcing Alina Habba, Esq., who is currently serving as Counselor to the President, and has represented me for a long time, will be our interi...
+- [11:32 UTC - America First Patriot Randy Fine is running to represent the Great People of Florida’s 6th...](114217184366735434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217184366735434
+  - America First Patriot Randy Fine is running to represent the Great People of Florida’s 6th Congressional District! A highly successful, Harvard educated businessman, and greatly re...
+- [11:31 UTC - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, ...](114217181247493951/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114217181247493951
+  - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, is running an incredible Campaign for Congress in Florida’s 1st Congressional District! A...
+- [10:30 UTC - [https://www. whitehouse.gov/articles/2025/0 3/week-nine-wins-president-trump-puts-america...](114216942466062894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216942466062894
+  - [https://www. whitehouse.gov/articles/2025/0 3/week-nine-wins-president-trump-puts-america-first/](https://www.whitehouse.gov/articles/2025/03/week-nine-wins-president-trump-puts-a...
+- [10:25 UTC - [https://www. foxnews.com/video/637040927011 2](https://www.foxnews.com/video/637040927011...](114216921853544284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216921853544284
+  - [https://www. foxnews.com/video/637040927011 2](https://www.foxnews.com/video/6370409270112)
+- [10:24 UTC - [https://www. foxnews.com/video/637044848411 2](https://www.foxnews.com/video/637044848411...](114216918828557128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216918828557128
+  - [https://www. foxnews.com/video/637044848411 2](https://www.foxnews.com/video/6370448484112)
+- [10:21 UTC - Tom Homan, Border Czar: “We're actually using the laws on the books to enforce immigration...](114216908831612177/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216908831612177
+  - Tom Homan, Border Czar: “We're actually using the laws on the books to enforce immigration law and secure the border (DOWN 96% UNDER TRUMP!)….We're not making this up. Everything w...
+- [10:16 UTC - Truth Social post 114216887634676953](114216887634676953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216887634676953
+  - _No text content captured._
+- [09:58 UTC - “He is still six weeks away from the traditional 100-day mark when the achievements of a n...](114216818341119193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114216818341119193
+  - “He is still six weeks away from the traditional 100-day mark when the achievements of a new administration are graded, but President Donald Trump has already done more than most W...
+- [05:22 UTC - “A HISTORIC MOMENT FOR THE BOOKS”](114215732492267429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114215732492267429
+  - “A HISTORIC MOMENT FOR THE BOOKS”
+- [04:06 UTC - This Judge is almost as conflicted (actually, not even close!) as the Judge whose daughter...](114215433044457113/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114215433044457113
+  - This Judge is almost as conflicted (actually, not even close!) as the Judge whose daughter made Millions of Dollars representing Biden/Harris against me, while her father presided...
+- [01:26 UTC - The Failing New York Times insists on using Liddle’ Peter Baker, a really bad writer and O...](114214801561710989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214801561710989
+  - The Failing New York Times insists on using Liddle’ Peter Baker, a really bad writer and Obama biographer and sycophant, to write many of the long and boring Fake News hit pieces a...
+- [00:51 UTC - [https:// truthsocial.com/@gatewaypundit /114172321103110931](https://truthsocial.com/@gat...](114214664818267546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214664818267546
+  - [https:// truthsocial.com/@gatewaypundit /114172321103110931](https://truthsocial.com/@gatewaypundit/114172321103110931)
+- [00:50 UTC - [https:// truthsocial.com/@realDonaldTru mp/114202797666318443](https://truthsocial.com/@r...](114214663540992697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214663540992697
+  - [https:// truthsocial.com/@realDonaldTru mp/114202797666318443](https://truthsocial.com/@realDonaldTrump/114202797666318443)
+- [00:50 UTC - [https:// truthsocial.com/@mrddmia/11420 2472547749311](https://truthsocial.com/@mrddmia/1...](114214662196895832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214662196895832
+  - [https:// truthsocial.com/@mrddmia/11420 2472547749311](https://truthsocial.com/@mrddmia/114202472547749311)
+- [00:50 UTC - [https:// truthsocial.com/@realDonaldTru mp/114203564650249629](https://truthsocial.com/@r...](114214661077983629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214661077983629
+  - [https:// truthsocial.com/@realDonaldTru mp/114203564650249629](https://truthsocial.com/@realDonaldTrump/114203564650249629)
+- [00:49 UTC - Why would the now highly discredited 60 Minutes be doing a total “puff piece” on George Cl...](114214658359777536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214658359777536
+  - Why would the now highly discredited 60 Minutes be doing a total “puff piece” on George Clooney, a second rate movie “star,” and failed political pundit. He fought hard for Sleepy...
+- [00:28 UTC - Truth Social post 114214573520124699](114214573520124699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214573520124699
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 114214572932243244](114214572932243244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214572932243244
+  - _No text content captured._
+- [00:26 UTC - Nobody likes a bad picture or painting of themselves, but the one in Colorado, in the Stat...](114214565824374410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114214565824374410
+  - Nobody likes a bad picture or painting of themselves, but the one in Colorado, in the State Capitol, put up by the Governor, along with all other Presidents, was purposefully disto...

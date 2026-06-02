@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114070315739588346 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114070315739588346 -->
+<!-- date_published: 2025-02-26T13:01:26.166000+00:00 -->
+<!-- date_accessed: 2026-06-02T19:53:18.415601+00:00 -->
+
+# APPLE SHOULD GET RID OF DEI RULES, NOT JUST MAKE ADJUSTMENTS TO THEM. DEI WAS A HOAX THAT ...
+
+APPLE SHOULD GET RID OF DEI RULES, NOT JUST MAKE ADJUSTMENTS TO THEM. DEI WAS A HOAX THAT HAS BEEN VERY BAD FOR OUR COUNTRY. DEI IS GONE!!!

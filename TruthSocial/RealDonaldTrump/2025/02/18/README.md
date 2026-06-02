@@ -1,0 +1,100 @@
+# TruthSocial / RealDonaldTrump / 2025-02-18
+
+- Posts: 32
+
+- [23:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](114027417967409678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027417967409678
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [23:11 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. youtube.com...](114027417859464961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027417859464961
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https://www. youtube.com/live/s4_oK1KBw7Q?s i=vdZ-DW-ilTo_FxwE](https://www.youtube.com/live/s4_oK1KBw7Q?si=vdZ-DW...
+- [23:11 UTC - Over the past four years, the Department of Justice has been politicized like never before...](114027416979768016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027416979768016
+  - Over the past four years, the Department of Justice has been politicized like never before. Therefore, I have instructed the termination of ALL remaining “Biden Era” U.S. Attorneys...
+- [23:11 UTC - Biden gave Bennie Thompson and Liz Cheney a Medal for the job they did on the Unselect Com...](114027416242272061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027416242272061
+  - Biden gave Bennie Thompson and Liz Cheney a Medal for the job they did on the Unselect Committee, but the only thing that I see they did is get information, and then destroy and de...
+- [23:10 UTC - [https://www. realclearpolitics.com/articles /2025/02/14/trumps_tariffs_have_exposed_trude...](114027413104887073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027413104887073
+  - [https://www. realclearpolitics.com/articles /2025/02/14/trumps_tariffs_have_exposed_trudeaus_canada_failing_state_152359.html](https://www.realclearpolitics.com/articles/2025/02/1...
+- [23:10 UTC - [https:// thegreggjarrett.com/with-trump s-victory-the-lefts-crooked-law-fare-game-is-over...](114027412384096421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027412384096421
+  - [https:// thegreggjarrett.com/with-trump s-victory-the-lefts-crooked-law-fare-game-is-over/](https://thegreggjarrett.com/with-trumps-victory-the-lefts-crooked-law-fare-game-is-over...
+- [23:10 UTC - [https://www. foxnews.com/politics/trump-pic ks-virginia-official-terry-cole-lead-dea-vows...](114027411736122350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027411736122350
+  - [https://www. foxnews.com/politics/trump-pic ks-virginia-official-terry-cole-lead-dea-vows-save-lives-new-administration](https://www.foxnews.com/politics/trump-picks-virginia-offi...
+- [23:10 UTC - [https://www. nationalreview.com/2025/02/tru mps-war-on-paper-straws-is-about-much-more-th...](114027410687916741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027410687916741
+  - [https://www. nationalreview.com/2025/02/tru mps-war-on-paper-straws-is-about-much-more-than-straws/](https://www.nationalreview.com/2025/02/trumps-war-on-paper-straws-is-about-muc...
+- [23:09 UTC - [https://www. foxnews.com/politics/democrat- senator-backs-trumps-common-sense-move-fire-p...](114027409805249381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027409805249381
+  - [https://www. foxnews.com/politics/democrat- senator-backs-trumps-common-sense-move-fire-penny](https://www.foxnews.com/politics/democrat-senator-backs-trumps-common-sense-move-fir...
+- [23:09 UTC - [https://www. breitbart.com/border/2025/02/1 2/trump-effect-migrants-abandoning-attempts-t...](114027409331665852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027409331665852
+  - [https://www. breitbart.com/border/2025/02/1 2/trump-effect-migrants-abandoning-attempts-to-reach-stay-in-united-states/](https://www.breitbart.com/border/2025/02/12/trump-effect-m...
+- [23:09 UTC - [https://www. washingtontimes.com/news/2025/ feb/12/reverse-flow-illegal-immigrants-stream...](114027407533065390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027407533065390
+  - [https://www. washingtontimes.com/news/2025/ feb/12/reverse-flow-illegal-immigrants-streaming-back-hom/](https://www.washingtontimes.com/news/2025/feb/12/reverse-flow-illegal-immig...
+- [23:09 UTC - [https://www. washingtontimes.com/news/2025/ feb/11/trump-protecting-second-amendment/](ht...](114027406861499564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027406861499564
+  - [https://www. washingtontimes.com/news/2025/ feb/11/trump-protecting-second-amendment/](https://www.washingtontimes.com/news/2025/feb/11/trump-protecting-second-amendment/)
+- [23:08 UTC - [https:// nypost.com/2025/02/11/opinion/ michael-goodwin-hochul-is-outmatched-against-trum...](114027406155747306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027406155747306
+  - [https:// nypost.com/2025/02/11/opinion/ michael-goodwin-hochul-is-outmatched-against-trump-and-her-policies-keep-dwindling-her-re-election-chances](https://nypost.com/2025/02/11/o...
+- [23:08 UTC - [https://www. coindesk.com/markets/2025/01/0 6/ripples-garlinghouse-touts-trump-effect-ami...](114027404929806504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027404929806504
+  - [https://www. coindesk.com/markets/2025/01/0 6/ripples-garlinghouse-touts-trump-effect-amid-bump-in-u-s-deals](https://www.coindesk.com/markets/2025/01/06/ripples-garlinghouse-tout...
+- [23:08 UTC - [https://www. theblock.co/post/333137/ripple -ceo-says-75-of-open-roles-are-now-us-based-d...](114027404181028174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027404181028174
+  - [https://www. theblock.co/post/333137/ripple -ceo-says-75-of-open-roles-are-now-us-based-due-to-trump-effect](https://www.theblock.co/post/333137/ripple-ceo-says-75-of-open-roles-a...
+- [23:08 UTC - [https://www. foxnews.com/opinion/prosecute- sanctuary-officials-who-defy-trumps-deportati...](114027402473865583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027402473865583
+  - [https://www. foxnews.com/opinion/prosecute- sanctuary-officials-who-defy-trumps-deportation-orders](https://www.foxnews.com/opinion/prosecute-sanctuary-officials-who-defy-trumps-d...
+- [23:07 UTC - [https://www. thegatewaypundit.com/2024/09/t rump-appearance-gutfled-breaks-ratings-record...](114027401079727789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027401079727789
+  - [https://www. thegatewaypundit.com/2024/09/t rump-appearance-gutfled-breaks-ratings-record-show-tops/](https://www.thegatewaypundit.com/2024/09/trump-appearance-gutfled-breaks-rati...
+- [23:06 UTC - [https://www. nytimes.com/2024/12/21/world/m iddleeast/iran-economy-energy-crisis.html](ht...](114027397486342141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027397486342141
+  - [https://www. nytimes.com/2024/12/21/world/m iddleeast/iran-economy-energy-crisis.html](https://www.nytimes.com/2024/12/21/world/middleeast/iran-economy-energy-crisis.html)
+- [23:06 UTC - [https:// humanevents.com/2025/01/02/ken ny-cody-2025-needs-to-be-the-year-of-the-maga-tak...](114027394500180591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027394500180591
+  - [https:// humanevents.com/2025/01/02/ken ny-cody-2025-needs-to-be-the-year-of-the-maga-takeover](https://humanevents.com/2025/01/02/kenny-cody-2025-needs-to-be-the-year-of-the-maga...
+- [23:05 UTC - [https:// nypost.com/2025/02/16/opinion/ myth-buster-wrecking-lefty-delusions-is-trumps-su...](114027393529899101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027393529899101
+  - [https:// nypost.com/2025/02/16/opinion/ myth-buster-wrecking-lefty-delusions-is-trumps-superpower](https://nypost.com/2025/02/16/opinion/myth-buster-wrecking-lefty-delusions-is-tr...
+- [23:05 UTC - [https:// townhall.com/columnists/townha llcomstaff/2024/11/19/we-were-first-to-call-the-e...](114027392911288699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027392911288699
+  - [https:// townhall.com/columnists/townha llcomstaff/2024/11/19/we-were-first-to-call-the-election-n2647942](https://townhall.com/columnists/townhallcomstaff/2024/11/19/we-were-firs...
+- [23:05 UTC - Truth Social post 114027391076419915](114027391076419915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027391076419915
+  - _No text content captured._
+- [23:04 UTC - Truth Social post 114027389298439293](114027389298439293/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027389298439293
+  - _No text content captured._
+- [23:04 UTC - Truth Social post 114027388368842540](114027388368842540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027388368842540
+  - _No text content captured._
+- [23:02 UTC - Truth Social post 114027381138765460](114027381138765460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027381138765460
+  - _No text content captured._
+- [22:19 UTC - Truth Social post 114027212907203530](114027212907203530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027212907203530
+  - _No text content captured._
+- [21:52 UTC - [https://www. youtube.com/live/s4_oK1KBw7Q?s i=vdZ-DW-ilTo_FxwE](https://www.youtube.com/l...](114027106999886746/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114027106999886746
+  - [https://www. youtube.com/live/s4_oK1KBw7Q?s i=vdZ-DW-ilTo_FxwE](https://www.youtube.com/live/s4_oK1KBw7Q?si=vdZ-DW-ilTo_FxwE)
+- [16:20 UTC - Truth Social post 114025801498003477](114025801498003477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114025801498003477
+  - _No text content captured._
+- [13:04 UTC - Great interview with Congressman Kevin Hern of Oklahoma, this morning on Fox. Way to go, K...](114025028025455053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114025028025455053
+  - Great interview with Congressman Kevin Hern of Oklahoma, this morning on Fox. Way to go, Kevin!!!
+- [03:34 UTC - Truth Social post 114022788249911743](114022788249911743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114022788249911743
+  - _No text content captured._
+- [03:27 UTC - US forces conducted a precision airstrike against a member of al-Qaeda in Syria this weeke...](114022760519424165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114022760519424165
+  - US forces conducted a precision airstrike against a member of al-Qaeda in Syria this weekend. The terrorist leader was working with al-Qaeda across the region. Congratulations to C...
+- [00:45 UTC - Truth Social post 114022124334303092](114022124334303092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114022124334303092
+  - _No text content captured._

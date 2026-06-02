@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-01-30
+
+- Posts: 10
+
+- [21:45 UTC - Truth Social post 113919493392503946](113919493392503946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113919493392503946
+  - _No text content captured._
+- [17:11 UTC - Flying is very safe—We have the safest flying anywhere in the world, and we'll keep it tha...](113918417817363879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113918417817363879
+  - Flying is very safe—We have the safest flying anywhere in the world, and we'll keep it that way…
+- [17:07 UTC - My administration will set the highest possible bar for aviation safety…](113918402678637852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113918402678637852
+  - My administration will set the highest possible bar for aviation safety…
+- [17:06 UTC - Truth Social post 113918395903982905](113918395903982905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113918395903982905
+  - _No text content captured._
+- [17:04 UTC - I speak to you this morning in an hour of anguish for our nation...](113918387910784054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113918387910784054
+  - I speak to you this morning in an hour of anguish for our nation...
+- [16:23 UTC - [https://www. youtube.com/live/ShRYdYTtIx8?s i=O2InsgcZhDIfmrSx](https://www.youtube.com/l...](113918227580044622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113918227580044622
+  - [https://www. youtube.com/live/ShRYdYTtIx8?s i=O2InsgcZhDIfmrSx](https://www.youtube.com/live/ShRYdYTtIx8?si=O2InsgcZhDIfmrSx)
+- [14:14 UTC - I have been fully briefed on the terrible accident which just took place at Reagan Nationa...](113917721798012197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113917721798012197
+  - I have been fully briefed on the terrible accident which just took place at Reagan National Airport. May God Bless their souls. Thank you for the incredible work being done by our...
+- [05:21 UTC - What a terrible night this has been. God bless you all!](113915624224794529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113915624224794529
+  - What a terrible night this has been. God bless you all!
+- [05:19 UTC - The airplane was on a perfect and routine line of approach to the airport. The helicopter ...](113915617049801010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113915617049801010
+  - The airplane was on a perfect and routine line of approach to the airport. The helicopter was going straight at the airplane for an extended period of time. It is a CLEAR NIGHT, th...
+- [00:27 UTC - The Golden Age has arrived. We are well on the way to Making America Great Again! My newes...](113914469333231777/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113914469333231777
+  - The Golden Age has arrived. We are well on the way to Making America Great Again! My newest book is HOT, and I hope you’ll find time to read it. Have you gotten your copy of SAVE A...

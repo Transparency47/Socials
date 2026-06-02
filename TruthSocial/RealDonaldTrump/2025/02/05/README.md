@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-02-05
+
+- Posts: 11
+
+- [21:34 UTC - WITH THIS EXECUTIVE ORDER, THE WAR ON WOMENS SPORTS IS OVER! PROMISES MADE, PROMISES KEPT!...](113953424718890288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113953424718890288
+  - WITH THIS EXECUTIVE ORDER, THE WAR ON WOMENS SPORTS IS OVER! PROMISES MADE, PROMISES KEPT!!!
+- [21:23 UTC - We are putting every school receiving taxpayer dollars on notice: If you let men take over...](113953380137889976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113953380137889976
+  - We are putting every school receiving taxpayer dollars on notice: If you let men take over women's sports teams or invade your locker rooms, you will be investigated for violations...
+- [21:22 UTC - Under the Trump Administration, we will defend the proud tradition of female athletes. Fro...](113953378000128712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113953378000128712
+  - Under the Trump Administration, we will defend the proud tradition of female athletes. From now on, women's sports will be ONLY FOR WOMEN!
+- [20:42 UTC - [https://www. youtube.com/live/_f3Nhvz_o5A?s i=DwOuRRVxy9mLfSys](https://www.youtube.com/l...](113953221321037789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113953221321037789
+  - [https://www. youtube.com/live/_f3Nhvz_o5A?s i=DwOuRRVxy9mLfSys](https://www.youtube.com/live/_f3Nhvz_o5A?si=DwOuRRVxy9mLfSys)
+- [16:54 UTC - Pam was a career prosecutor for nearly 20 years and was one of the toughest, smartest, bes...](113952325584416831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113952325584416831
+  - Pam was a career prosecutor for nearly 20 years and was one of the toughest, smartest, best, and most successful Attorney Generals in the history of Florida—and I think she's going...
+- [16:53 UTC - A Great Honor—I’m thrilled to be here today with our nation’s next incredible Attorney Gen...](113952321517471694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113952321517471694
+  - A Great Honor—I’m thrilled to be here today with our nation’s next incredible Attorney General of the United States, Pam Bondi…
+- [14:22 UTC - Truth Social post 113951724247945191](113951724247945191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113951724247945191
+  - _No text content captured._
+- [11:17 UTC - I want Iran to be a great and successful Country, but one that cannot have a Nuclear Weapo...](113950996936674770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113950996936674770
+  - I want Iran to be a great and successful Country, but one that cannot have a Nuclear Weapon. Reports that the United States, working in conjunction with Israel, is going to blow Ir...
+- [10:55 UTC - Congratulations to our wonderful and very talented United States Attorney General, Pam Bon...](113950912959049223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113950912959049223
+  - Congratulations to our wonderful and very talented United States Attorney General, Pam Bondi, who gets sworn in today amid tremendous support, and the respect of ALL! I know Pam we...
+- [10:39 UTC - Hard working Congressman Derrick Van Orden was great on Fox today. Keep pushing Derrick!!!](113950850150588744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113950850150588744
+  - Hard working Congressman Derrick Van Orden was great on Fox today. Keep pushing Derrick!!!
+- [04:06 UTC - [https://www. foxnews.com/media/trump-scores -big-legal-win-against-pulitzer-prize-board-l...](113949303424194302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113949303424194302
+  - [https://www. foxnews.com/media/trump-scores -big-legal-win-against-pulitzer-prize-board-lawsuit-moves-discovery](https://www.foxnews.com/media/trump-scores-big-legal-win-against-p...

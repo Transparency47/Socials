@@ -1,0 +1,103 @@
+# TruthSocial / RealDonaldTrump / 2025-02-24
+
+- Posts: 33
+
+- [23:28 UTC - February 22, 2025 | The National Governors Association Dinner and Reception…](114061455929909984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114061455929909984
+  - February 22, 2025 | The National Governors Association Dinner and Reception…
+- [23:27 UTC - Truth Social post 114061451392344372](114061451392344372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114061451392344372
+  - _No text content captured._
+- [21:11 UTC - Truth Social post 114060916366245835](114060916366245835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060916366245835
+  - _No text content captured._
+- [21:09 UTC - France is America's oldest ally. Our cherished partnership has been a force for FREEDOM, P...](114060909744642044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060909744642044
+  - France is America's oldest ally. Our cherished partnership has been a force for FREEDOM, PROSPERITY, and PEACE from the very beginning…
+- [21:07 UTC - I've been elected by the American people to restore common sense to Washington and, indeed...](114060903128542394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060903128542394
+  - I've been elected by the American people to restore common sense to Washington and, indeed, to the world — Under our administration, we're forging a new path that promotes PEACE…
+- [21:05 UTC - 🇺🇸🇫🇷](114060894274400497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060894274400497
+  - 🇺🇸🇫🇷
+- [19:54 UTC - [https://www. youtube.com/live/F_icClkj0Eo?s i=aWYyuFhaUKTKX6Al](https://www.youtube.com/l...](114060615007755213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060615007755213
+  - [https://www. youtube.com/live/F_icClkj0Eo?s i=aWYyuFhaUKTKX6Al](https://www.youtube.com/live/F_icClkj0Eo?si=aWYyuFhaUKTKX6Al)
+- [19:51 UTC - We're helping Ukraine like nobody has ever helped Ukraine before…](114060603767862225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060603767862225
+  - We're helping Ukraine like nobody has ever helped Ukraine before…
+- [19:49 UTC - Truth Social post 114060596510204228](114060596510204228/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060596510204228
+  - _No text content captured._
+- [19:49 UTC - Truth Social post 114060593887365778](114060593887365778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114060593887365778
+  - _No text content captured._
+- [17:00 UTC - Today, President Emmanuel Macron of France joined me in the Oval Office to speak to the G7...](114059930426328863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114059930426328863
+  - Today, President Emmanuel Macron of France joined me in the Oval Office to speak to the G7 Summit. The meeting was convened by Governor Justin Trudeau of Canada, the current chair...
+- [16:49 UTC - Elon Musk: "7 out of 10 voters want $1T removed from federal spending."](114059888811732826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114059888811732826
+  - Elon Musk: "7 out of 10 voters want $1T removed from federal spending."
+- [14:56 UTC - Truth Social post 114059445532115869](114059445532115869/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114059445532115869
+  - _No text content captured._
+- [13:04 UTC - APPLE HAS JUST ANNOUNCED A RECORD 500 BILLION DOLLAR INVESTMENT IN THE UNITED STATES OF AM...](114059004456970017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114059004456970017
+  - APPLE HAS JUST ANNOUNCED A RECORD 500 BILLION DOLLAR INVESTMENT IN THE UNITED STATES OF AMERICA. THE REASON, FAITH IN WHAT WE ARE DOING, WITHOUT WHICH, THEY WOULD’NT BE INVESTING T...
+- [07:58 UTC - “Donald Trump has done more in his first month than any other President in history. Who do...](114057798709965917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057798709965917
+  - “Donald Trump has done more in his first month than any other President in history. Who do you think was second? George Washington! It is quite amazing what Donald Trump has done.”...
+- [05:55 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) ELON IS DOING A GREAT JOB...](114057315086386053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057315086386053
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) ELON IS DOING A GREAT JOB, BUT I WOULD LIKE TO SEE HIM GET MORE AGGRESSIVE. REMEMBER, WE HAVE A COUNTRY TO SAVE, BU...
+- [05:55 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) MSNBC, COMMONLY KNOWN AS ...](114057314558875529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057314558875529
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) MSNBC, COMMONLY KNOWN AS MSDNC, IS A THREAT TO OUR DEMOCRACY. SUCH LYING AND MISREPRESENTATION. BAD PEOPLE AT THE T...
+- [05:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) LOOKS LIKE THE CONSERVATI...](114057311251587522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057311251587522
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) LOOKS LIKE THE CONSERVATIVE PARTY IN GERMANY HAS WON THE VERY BIG AND HIGHLY ANTICIPATED ELECTION. MUCH LIKE THE US...
+- [05:54 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) So-called “Author” Michae...](114057310442670745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057310442670745
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) So-called “Author” Michael Wolff’s new book is a total FAKE JOB, just like the other JUNK he wrote. He called me ma...
+- [05:53 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Another aspect of the lif...](114057308462220731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057308462220731
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Another aspect of the life of Dan Bongino that I think is very important. He has a great wife, Paula, and two wonde...
+- [05:53 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great news for Law Enforc...](114057307426754600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057307426754600
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Great news for Law Enforcement and American Justice! Dan Bongino, a man of incredible love and passion for our Coun...
+- [05:53 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Lowlife Chairman of “Conc...](114057306653891649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057306653891649
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Lowlife Chairman of “Concast,” Brian Roberts, the owner of Ratings Challenged NBC and MSDNC, has finally gotten the...
+- [05:44 UTC - [https:// truthsocial.com/users/Speedy13 /statuses/114056441529437656](https://truthsocial...](114057273883847117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057273883847117
+  - [https:// truthsocial.com/users/Speedy13 /statuses/114056441529437656](https://truthsocial.com/users/Speedy13/statuses/114056441529437656)
+- [05:44 UTC - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114056447571423250](https://...](114057272518158662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057272518158662
+  - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114056447571423250](https://truthsocial.com/users/1776WeThePeople1776/statuses/114056447571423250)
+- [05:43 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114056440009800259](https://tr...](114057270109304528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057270109304528
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114056440009800259](https://truthsocial.com/users/IStandWithTrump47/statuses/114056440009800259)
+- [05:43 UTC - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114056423652488887](https://...](114057268434818096/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114057268434818096
+  - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114056423652488887](https://truthsocial.com/users/1776WeThePeople1776/statuses/114056423652488887)
+- [04:23 UTC - [https:// hannity.com/media-room/winning -team-trump-posts-non-comprehensive-list-of-wins-...](114056952833807299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056952833807299
+  - [https:// hannity.com/media-room/winning -team-trump-posts-non-comprehensive-list-of-wins-in-president-trumps-second-term-see-it/](https://hannity.com/media-room/winning-team-trump...
+- [04:20 UTC - [https://www. foxnews.com/video/636924161411 2](https://www.foxnews.com/video/636924161411...](114056943540639827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056943540639827
+  - [https://www. foxnews.com/video/636924161411 2](https://www.foxnews.com/video/6369241614112)
+- [04:18 UTC - Lowlife Chairman of “Concast,” Brian Roberts, the owner of Ratings Challenged NBC and MSDN...](114056934528746786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056934528746786
+  - Lowlife Chairman of “Concast,” Brian Roberts, the owner of Ratings Challenged NBC and MSDNC, has finally gotten the nerve up to fire one of the least talented people in television,...
+- [01:50 UTC - Another aspect of the life of Dan Bongino that I think is very important. He has a great w...](114056351439814038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056351439814038
+  - Another aspect of the life of Dan Bongino that I think is very important. He has a great wife, Paula, and two wonderful daughters who truly love their dad. What an incredible job D...
+- [01:41 UTC - Great news for Law Enforcement and American Justice! Dan Bongino, a man of incredible love...](114056317037035302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056317037035302
+  - Great news for Law Enforcement and American Justice! Dan Bongino, a man of incredible love and passion for our Country, has just been named the next DEPUTY DIRECTOR OF THE FBI, by...
+- [01:02 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Tonight on Life, Liberty & Le...](114056164472628290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056164472628290
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Tonight on Life, Liberty & Levin. 8 PM eastern on Fox! You can DVR the show if you can't watch it live! Don’t miss it!
+- [00:51 UTC - Sharyl Attkisson is a terrific journalist. No games, she tells it like it is. Her show thi...](114056119584695591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114056119584695591
+  - Sharyl Attkisson is a terrific journalist. No games, she tells it like it is. Her show this week, on the Gulf of America, and Bitcoin, is fantastic. Keep pushing Sharyl!

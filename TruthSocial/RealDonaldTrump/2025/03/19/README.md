@@ -1,0 +1,118 @@
+# TruthSocial / RealDonaldTrump / 2025-03-19
+
+- Posts: 38
+
+- [21:46 UTC - America First Patriot Randy Fine is running to represent the Great People of Florida’s 6th...](114191290196334140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114191290196334140
+  - America First Patriot Randy Fine is running to represent the Great People of Florida’s 6th Congressional District! A highly successful, Harvard educated businessman, and greatly re...
+- [21:45 UTC - Truth Social post 114191284929315955](114191284929315955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114191284929315955
+  - _No text content captured._
+- [20:56 UTC - Truth Social post 114191092323231414](114191092323231414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114191092323231414
+  - _No text content captured._
+- [20:26 UTC - General Keith Kellogg: “President Trump is absolutely right, this war wouldn’t have starte...](114190974188613740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190974188613740
+  - General Keith Kellogg: “President Trump is absolutely right, this war wouldn’t have started if he were President…”
+- [20:08 UTC - YOU HAVE A SITUATION (RUSSIA-UKRAINE) WHERE YOU HAVE A LOT OF GUNS POINTING AT EACH OTHER,...](114190903570658626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190903570658626
+  - YOU HAVE A SITUATION (RUSSIA-UKRAINE) WHERE YOU HAVE A LOT OF GUNS POINTING AT EACH OTHER, FOOLISHLY—BECAUSE IT WOULD HAVE NEVER HAPPENED IF I WAS PRESIDENT…
+- [19:53 UTC - “TRUMP ON TESLA TERRORISM”](114190845050387383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190845050387383
+  - “TRUMP ON TESLA TERRORISM”
+- [19:42 UTC - Truth Social post 114190800761735676](114190800761735676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190800761735676
+  - _No text content captured._
+- [19:13 UTC - I watched Jacqui Heinrich from Fox over the weekend and I thought she was absolutely terri...](114190686109079519/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190686109079519
+  - I watched Jacqui Heinrich from Fox over the weekend and I thought she was absolutely terrible. She should be working for CNN, not Fox. Not surprisingly, I later found out that she’...
+- [19:10 UTC - THANK YOU, ELON—MAGA!](114190677393220882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190677393220882
+  - THANK YOU, ELON—MAGA!
+- [18:15 UTC - “TRUMP IS FIGHTING TO PROTECT AMERICA”](114190461039179793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190461039179793
+  - “TRUMP IS FIGHTING TO PROTECT AMERICA”
+- [18:05 UTC - Jesse Watters: “When he was first elected, President Trump promised to save the forgotten ...](114190418201271249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190418201271249
+  - Jesse Watters: “When he was first elected, President Trump promised to save the forgotten men and women of America—no matter where they are, in the Rust Belt or outer space…”
+- [18:01 UTC - “ILLEGAL BORDER CROSSINGS PLUMMET UNDER TRUMP”](114190404566893251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190404566893251
+  - “ILLEGAL BORDER CROSSINGS PLUMMET UNDER TRUMP”
+- [17:55 UTC - The CBP Home App is now available across all mobile App Stores!](114190382041616797/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190382041616797
+  - The CBP Home App is now available across all mobile App Stores!
+- [17:45 UTC - “All energy that's affordable, reliable, and secure is a part of the Trump administration ...](114190340053945046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190340053945046
+  - “All energy that's affordable, reliable, and secure is a part of the Trump administration and nuclear absolutely falls in that category."
+- [17:06 UTC - Truth Social post 114190189472369507](114190189472369507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190189472369507
+  - _No text content captured._
+- [17:06 UTC - Truth Social post 114190188404114231](114190188404114231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190188404114231
+  - _No text content captured._
+- [16:27 UTC - Reports are coming in that while Iran has lessened its intensity on Military Equipment and...](114190034933659125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114190034933659125
+  - Reports are coming in that while Iran has lessened its intensity on Military Equipment and General Support to the Houthis, they are still sending large levels of Supplies. Iran mus...
+- [15:38 UTC - Just completed a very good telephone call with President Zelenskyy of Ukraine. It lasted a...](114189841352600682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114189841352600682
+  - Just completed a very good telephone call with President Zelenskyy of Ukraine. It lasted approximately one hour. Much of the discussion was based on the call made yesterday with Pr...
+- [14:04 UTC - [https:// rumble.com/v6qvk8c-elon-musk-c elebrates-moment-of-optimism-after-nasa-astronaut...](114189473094352387/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114189473094352387
+  - [https:// rumble.com/v6qvk8c-elon-musk-c elebrates-moment-of-optimism-after-nasa-astronauts-return-to-ear.html](https://rumble.com/v6qvk8c-elon-musk-celebrates-moment-of-optimism-a...
+- [14:04 UTC - [https:// rumble.com/v6qvq56-crew-9-back -on-earth-hannity-urges-nation-to-take-in-this-mo...](114189471530277542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114189471530277542
+  - [https:// rumble.com/v6qvq56-crew-9-back -on-earth-hannity-urges-nation-to-take-in-this-moment-watch.html](https://rumble.com/v6qvq56-crew-9-back-on-earth-hannity-urges-nation-to-t...
+- [04:09 UTC - MAKE AMERICA GREAT AGAIN!!!](114187132592852427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114187132592852427
+  - MAKE AMERICA GREAT AGAIN!!!
+- [04:08 UTC - If a President doesn’t have the right to throw murderers, and other criminals, out of our ...](114187128423651010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114187128423651010
+  - If a President doesn’t have the right to throw murderers, and other criminals, out of our Country because a Radical Left Lunatic Judge wants to assume the role of President, then o...
+- [03:52 UTC - [https:// truthsocial.com/@realLizUSA/11 4155445040860782](https://truthsocial.com/@realLi...](114187064971784311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114187064971784311
+  - [https:// truthsocial.com/@realLizUSA/11 4155445040860782](https://truthsocial.com/@realLizUSA/114155445040860782)
+- [02:32 UTC - “Secretary Rollins Highlights President Trump’s Proclamation on National Agriculture” [htt...](114186752614351182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186752614351182
+  - “Secretary Rollins Highlights President Trump’s Proclamation on National Agriculture” [https://www. usda.gov/about-usda/news/press -releases/2025/03/18/secretary-rollins-highlights...
+- [02:22 UTC - Tonight, in the White House, I warmly welcomed UAE National Security Advisor H.H. Sheikh T...](114186711043337111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186711043337111
+  - Tonight, in the White House, I warmly welcomed UAE National Security Advisor H.H. Sheikh Tahnoon bin Zayed Al Nahyan to meetings and a dinner with many notable, senior U.S. officia...
+- [01:44 UTC - [https:// truthsocial.com/@realLizUSA/11 4183370209177624](https://truthsocial.com/@realLi...](114186562215314261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186562215314261
+  - [https:// truthsocial.com/@realLizUSA/11 4183370209177624](https://truthsocial.com/@realLizUSA/114183370209177624)
+- [01:43 UTC - Wow. What a great interview of Elon Musk by Sean Hannity. A must watch. TWO GREAT AMERICAN...](114186559522815802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186559522815802
+  - Wow. What a great interview of Elon Musk by Sean Hannity. A must watch. TWO GREAT AMERICANS!!! DJT
+- [01:36 UTC - Truth Social post 114186531075827184](114186531075827184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186531075827184
+  - _No text content captured._
+- [01:34 UTC - “Let Trump Be Trump on the Economy” [https:// amac.us/newsline/economy/let-t rump-be-trump...](114186524474998333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186524474998333
+  - “Let Trump Be Trump on the Economy” [https:// amac.us/newsline/economy/let-t rump-be-trump-on-the-economy/](https://amac.us/newsline/economy/let-trump-be-trump-on-the-economy/)
+- [01:31 UTC - “Americans are continuing to see the benefits as the economic agenda of President Donald J...](114186510410903319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186510410903319
+  - “Americans are continuing to see the benefits as the economic agenda of President Donald J. Trump and his administration comes into focus. After years of soaring prices and economi...
+- [01:30 UTC - [https://www. whitehouse.gov/articles/2025/0 3/icymi-trumps-tariffs-are-saving-the-america...](114186506719638528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186506719638528
+  - [https://www. whitehouse.gov/articles/2025/0 3/icymi-trumps-tariffs-are-saving-the-american-steel-industry/](https://www.whitehouse.gov/articles/2025/03/icymi-trumps-tariffs-are-sa...
+- [01:28 UTC - [https://www. archives.gov/research/jfk](https://www.archives.gov/research/jfk)](114186501441497785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186501441497785
+  - [https://www. archives.gov/research/jfk](https://www.archives.gov/research/jfk)
+- [01:27 UTC - Philip K. Bell: “Trump's tariffs are saving the American steel industry” [https://www. pos...](114186496532193203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186496532193203
+  - Philip K. Bell: “Trump's tariffs are saving the American steel industry” [https://www. post-gazette.com/opinion/guest -columns/2025/03/18/trump-steel-tariff/stories/202503170010](h...
+- [01:26 UTC - “U.S. Industrial Production Surges in February to Record Level, Led by Manufacturing and A...](114186492445515371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186492445515371
+  - “U.S. Industrial Production Surges in February to Record Level, Led by Manufacturing and Autos” [https://www. breitbart.com/economy/2025/03/ 18/u-s-industrial-production-surges-in-...
+- [01:25 UTC - Truth Social post 114186488750250887](114186488750250887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186488750250887
+  - _No text content captured._
+- [01:22 UTC - Truth Social post 114186475831026750](114186475831026750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186475831026750
+  - _No text content captured._
+- [01:21 UTC - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) Do federal judges have the ...](114186470782358090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186470782358090
+  - RT [@ RealRogerStone](https://truthsocial.com/@RealRogerStone) Do federal judges have the authority to overrule the American people and President [@ realDonaldTrump](https://truths...
+- [01:20 UTC - Truth Social post 114186468143402858](114186468143402858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114186468143402858
+  - _No text content captured._

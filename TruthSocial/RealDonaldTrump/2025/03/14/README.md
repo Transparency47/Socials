@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-03-14
+
+- Posts: 16
+
+- [20:52 UTC - TO THE HEROIC MEN AND WOMEN OF LAW ENFORCEMENT…](114162763549195233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162763549195233
+  - TO THE HEROIC MEN AND WOMEN OF LAW ENFORCEMENT…
+- [20:48 UTC - We're joined today by dozens of police officers, Sheriffs, and Sheriff's Deputies from all...](114162747519761407/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162747519761407
+  - We're joined today by dozens of police officers, Sheriffs, and Sheriff's Deputies from all across the Country. My message to these law enforcement heroes is simple: With me in the...
+- [20:46 UTC - In everything we do, we're restoring law, restoring order and restoring public safety in A...](114162742656201560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162742656201560
+  - In everything we do, we're restoring law, restoring order and restoring public safety in America...and we're bringing honor and integrity and accountability back to the highest lev...
+- [20:45 UTC - Crooked Joe Biden got us into a real mess with Russia and everything else he did…](114162735584978065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162735584978065
+  - Crooked Joe Biden got us into a real mess with Russia and everything else he did…
+- [20:43 UTC - On day one, I signed an executive order banning all government censorship. My administrati...](114162728799436840/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162728799436840
+  - On day one, I signed an executive order banning all government censorship. My administration stripped the security clearances of the disgraced intelligence agents who lied about Hu...
+- [20:42 UTC - We must be honest about the lies and abuses that have occurred within these walls. Unfortu...](114162725547256622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162725547256622
+  - We must be honest about the lies and abuses that have occurred within these walls. Unfortunately, in recent years, a corrupt group of hacks and radicals within the ranks of the Ame...
+- [20:41 UTC - Our predecessors turned the Department of Justice into the Department of INJUSTICE—But I s...](114162722006073409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162722006073409
+  - Our predecessors turned the Department of Justice into the Department of INJUSTICE—But I stand before you today to declare that those days are over!
+- [20:38 UTC - For generations, the Federal Department of Justice was one of America's most revered insti...](114162711308747922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162711308747922
+  - For generations, the Federal Department of Justice was one of America's most revered institutions...This department commanded the respect and admiration of the entire world...
+- [20:37 UTC - As we begin a proud new chapter in the chronicles of American Justice, we're turning the p...](114162707211212885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162707211212885
+  - As we begin a proud new chapter in the chronicles of American Justice, we're turning the page on four long years of corruption, weaponization, and surrender to violent criminals...
+- [19:35 UTC - [https:// rumble.com/v6qmyvi-president-t rump-delivers-remarks-at-the-department-of-justic...](114162460948358030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162460948358030
+  - [https:// rumble.com/v6qmyvi-president-t rump-delivers-remarks-at-the-department-of-justice.html](https://rumble.com/v6qmyvi-president-trump-delivers-remarks-at-the-department-of-j...
+- [18:48 UTC - Truth Social post 114162278834804545](114162278834804545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114162278834804545
+  - _No text content captured._
+- [13:33 UTC - We had very good and productive discussions with President Vladimir Putin of Russia yester...](114161039436456514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114161039436456514
+  - We had very good and productive discussions with President Vladimir Putin of Russia yesterday, and there is a very good chance that this horrible, bloody war can finally come to an...
+- [13:29 UTC - Congratulations to Chuck Schumer for doing the right thing — Took “guts” and courage! The ...](114161025000723427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114161025000723427
+  - Congratulations to Chuck Schumer for doing the right thing — Took “guts” and courage! The big Tax Cuts, L.A. fire fix, Debt Ceiling Bill, and so much more, is coming. We should all...
+- [12:23 UTC - Our Economy will BOOM, like never before!](114160764726726796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114160764726726796
+  - Our Economy will BOOM, like never before!
+- [11:29 UTC - Crooked Joe Biden got us into a real “mess” with Russia (and EVERYTHING ELSE!), but I’m go...](114160550238908846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114160550238908846
+  - Crooked Joe Biden got us into a real “mess” with Russia (and EVERYTHING ELSE!), but I’m going to get us out. Millions of people are needlessly dead, never to be seen again…and ther...
+- [04:21 UTC - Truth Social post 114158866389177003](114158866389177003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114158866389177003
+  - _No text content captured._

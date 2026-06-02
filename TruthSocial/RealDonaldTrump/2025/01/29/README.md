@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-01-29
+
+- Posts: 19
+
+- [21:28 UTC - Truth Social post 113913764723103485](113913764723103485/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113913764723103485
+  - _No text content captured._
+- [21:18 UTC - [https://www. youtube.com/live/GbnTNGLkJOY?s i=4e2e6aL5vE900rUj](https://www.youtube.com/l...](113913726712665189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113913726712665189
+  - [https://www. youtube.com/live/GbnTNGLkJOY?s i=4e2e6aL5vE900rUj](https://www.youtube.com/live/GbnTNGLkJOY?si=4e2e6aL5vE900rUj)
+- [21:17 UTC - Because Jay Powell and the Fed failed to stop the problem they created with Inflation, I w...](113913720574106648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113913720574106648
+  - Because Jay Powell and the Fed failed to stop the problem they created with Inflation, I will do it by unleashing American Energy production, slashing Regulation, rebalancing Inter...
+- [18:22 UTC - It is great to see that the Department of Justice has dropped the Witch Hunt against forme...](113913032836526850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113913032836526850
+  - It is great to see that the Department of Justice has dropped the Witch Hunt against former Congressman Jeff Fortenberry, a longtime proud and highly respected American public serv...
+- [12:32 UTC - [https:// truthsocial.com/@realDonaldTru mp/113906848441608708](https://truthsocial.com/@r...](113911658428022616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113911658428022616
+  - [https:// truthsocial.com/@realDonaldTru mp/113906848441608708](https://truthsocial.com/@realDonaldTrump/113906848441608708)
+- [05:43 UTC - [https:// truthsocial.com/users/pastorbr istol2/statuses/113909338636015921](https://truth...](113910048654231520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910048654231520
+  - [https:// truthsocial.com/users/pastorbr istol2/statuses/113909338636015921](https://truthsocial.com/users/pastorbristol2/statuses/113909338636015921)
+- [05:38 UTC - [https:// truthsocial.com/users/Miller__ Time/statuses/113909400722684906](https://truthso...](113910027735897937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910027735897937
+  - [https:// truthsocial.com/users/Miller__ Time/statuses/113909400722684906](https://truthsocial.com/users/Miller__Time/statuses/113909400722684906)
+- [05:37 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/113909369160677189](https...](113910026162719748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910026162719748
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/113909369160677189](https://truthsocial.com/users/SpiritualStreetfighter/statuses/113909369160677189)
+- [05:36 UTC - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/113909562890619304](https://...](113910023215450050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910023215450050
+  - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/113909562890619304](https://truthsocial.com/users/1776WeThePeople1776/statuses/113909562890619304)
+- [05:34 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909402908560257](https://tr...](113910013904605227/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910013904605227
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909402908560257](https://truthsocial.com/users/IStandWithTrump47/statuses/113909402908560257)
+- [05:33 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909399149090204](https://tr...](113910009860107637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113910009860107637
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909399149090204](https://truthsocial.com/users/IStandWithTrump47/statuses/113909399149090204)
+- [04:39 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909396660199639](https://tr...](113909797159771731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909797159771731
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/113909396660199639](https://truthsocial.com/users/IStandWithTrump47/statuses/113909396660199639)
+- [04:38 UTC - [https:// truthsocial.com/users/joemccui ston/statuses/113909491161070169](https://truthso...](113909794347555765/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909794347555765
+  - [https:// truthsocial.com/users/joemccui ston/statuses/113909491161070169](https://truthsocial.com/users/joemccuiston/statuses/113909491161070169)
+- [02:40 UTC - The water is flowing, big time, in Northern California. The long empty reservoirs will soo...](113909331257027026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909331257027026
+  - The water is flowing, big time, in Northern California. The long empty reservoirs will soon be full. Thank you President Trump!!!
+- [02:08 UTC - [https:// truthsocial.com/@MTG/113902451 747326612](https://truthsocial.com/@MTG/113902451...](113909202760142666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909202760142666
+  - [https:// truthsocial.com/@MTG/113902451 747326612](https://truthsocial.com/@MTG/113902451747326612)
+- [02:06 UTC - [https:// truthsocial.com/@catturd2/1139 07502782417492](https://truthsocial.com/@catturd2...](113909197266645844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909197266645844
+  - [https:// truthsocial.com/@catturd2/1139 07502782417492](https://truthsocial.com/@catturd2/113907502782417492)
+- [02:04 UTC - I have just asked Elon Musk and [@ SpaceX](https://truthsocial.com/@SpaceX) to “go get” th...](113909188940119917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909188940119917
+  - I have just asked Elon Musk and [@ SpaceX](https://truthsocial.com/@SpaceX) to “go get” the 2 brave astronauts who have been virtually abandoned in space by the Biden Administratio...
+- [01:25 UTC - Truth Social post 113909036323718272](113909036323718272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113909036323718272
+  - _No text content captured._
+- [00:35 UTC - Truth Social post 113908836237494248](113908836237494248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113908836237494248
+  - _No text content captured._

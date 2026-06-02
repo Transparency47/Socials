@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-01-27
+
+- Posts: 9
+
+- [22:27 UTC - [https://www. youtube.com/live/x6yJB5MVIEE?s i=YLggq8-0JNx12E5h](https://www.youtube.com/l...](113902672754336055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113902672754336055
+  - [https://www. youtube.com/live/x6yJB5MVIEE?s i=YLggq8-0JNx12E5h](https://www.youtube.com/live/x6yJB5MVIEE?si=YLggq8-0JNx12E5h)
+- [03:50 UTC - There is a bright light over the USA and, indeed, the entire World, ever since the Preside...](113898278629423148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113898278629423148
+  - There is a bright light over the USA and, indeed, the entire World, ever since the Presidential Election of 2024.
+- [03:46 UTC - THE USA HAS A LOT OF WINNING TO DO! DJT](113898263726281638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113898263726281638
+  - THE USA HAS A LOT OF WINNING TO DO! DJT
+- [03:42 UTC - Congratulations to the Kansas City Chiefs. What a GREAT Team, Coach, Quarterback, and virt...](113898250054290578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113898250054290578
+  - Congratulations to the Kansas City Chiefs. What a GREAT Team, Coach, Quarterback, and virtually everything else, including those fantastic FANS, that voted for me (MAGA!) in record...
+- [03:24 UTC - [https://www. foxnews.com/video/636781015211 2](https://www.foxnews.com/video/636781015211...](113898177149120634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113898177149120634
+  - [https://www. foxnews.com/video/636781015211 2](https://www.foxnews.com/video/6367810152112)
+- [03:23 UTC - A MUST WATCH, THANK YOU MARK!](113898174546866337/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113898174546866337
+  - A MUST WATCH, THANK YOU MARK!
+- [01:56 UTC - Katie Pavlich, of wonderful Town Hall, was fantastic on the Mark Levin show tonight. Likew...](113897833433874090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113897833433874090
+  - Katie Pavlich, of wonderful Town Hall, was fantastic on the Mark Levin show tonight. Likewise Congressman Jim Jordan. What a show!!! I never even got a chance to see much of the fo...
+- [01:50 UTC - Truth Social post 113897806659188035](113897806659188035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113897806659188035
+  - _No text content captured._
+- [01:02 UTC - Watch Mark Levin, on now!!!](113897618055963806/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113897618055963806
+  - Watch Mark Levin, on now!!!

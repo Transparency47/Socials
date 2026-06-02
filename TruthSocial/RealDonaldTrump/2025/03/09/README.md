@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-03-09
+
+- Posts: 10
+
+- [23:28 UTC - As I made clear during my Joint Address to Congress, the United States strongly supports t...](114135068157531979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135068157531979
+  - As I made clear during my Joint Address to Congress, the United States strongly supports the people of Greenland’s right to determine their own future. We will continue to KEEP YOU...
+- [13:50 UTC - [https:// nypost.com/2025/02/19/opinion/ europe-finally-gets-it-pony-up-and-help-defend-yo...](114132792292597213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132792292597213
+  - [https:// nypost.com/2025/02/19/opinion/ europe-finally-gets-it-pony-up-and-help-defend-yourselves/](https://nypost.com/2025/02/19/opinion/europe-finally-gets-it-pony-up-and-help-d...
+- [13:49 UTC - [https:// dailycaller.com/2025/02/16/opi nion-you-may-have-missed-this-but-california-dodg...](114132791005854364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132791005854364
+  - [https:// dailycaller.com/2025/02/16/opi nion-you-may-have-missed-this-but-california-dodged-a-serious-bullet-with-trump-tom-pyle/](https://dailycaller.com/2025/02/16/opinion-you-m...
+- [13:49 UTC - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/332448...](114132790042659430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132790042659430
+  - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/3324484/trump-trade-policy-will-save-farmers/](https://www.washingtonexaminer.com/restoring-amer...
+- [13:49 UTC - [https://www. foxnews.com/politics/key-repub lican-governor-applauds-trump-frenetic-pace-s...](114132789291648609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132789291648609
+  - [https://www. foxnews.com/politics/key-repub lican-governor-applauds-trump-frenetic-pace-says-doge-needed-right-size-washington](https://www.foxnews.com/politics/key-republican-gov...
+- [13:48 UTC - [https://www. washingtontimes.com/news/2025/ feb/19/army-recruitment-ads-look-quite-differ...](114132787592380677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132787592380677
+  - [https://www. washingtontimes.com/news/2025/ feb/19/army-recruitment-ads-look-quite-different-trump/](https://www.washingtontimes.com/news/2025/feb/19/army-recruitment-ads-look-qui...
+- [10:41 UTC - Will be interviewed by Maria Bartiromo on Sunday Morning Futures at 10:00amET, enjoy! [@ F...](114132050804394743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114132050804394743
+  - Will be interviewed by Maria Bartiromo on Sunday Morning Futures at 10:00amET, enjoy! [@ FoxNews](https://truthsocial.com/@FoxNews)
+- [05:09 UTC - Truth Social post 114130744626893259](114130744626893259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114130744626893259
+  - _No text content captured._
+- [05:08 UTC - [https://www. newsweek.com/barack-obama-pres idential-center-library-chicago-lawsuit-discr...](114130743432622209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114130743432622209
+  - [https://www. newsweek.com/barack-obama-pres idential-center-library-chicago-lawsuit-discrimination-2024316](https://www.newsweek.com/barack-obama-presidential-center-library-chica...
+- [05:07 UTC - Truth Social post 114130738381900776](114130738381900776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114130738381900776
+  - _No text content captured._

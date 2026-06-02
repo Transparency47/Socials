@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2025-02-10
+
+- Posts: 16
+
+- [23:35 UTC - We're going to be BIGGER, BETTER, and STRONGER than ever before!](113982212590048164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113982212590048164
+  - We're going to be BIGGER, BETTER, and STRONGER than ever before!
+- [23:34 UTC - GULF OF AMERICA! [https://www. whitehouse.gov/presidential-ac tions/2025/02/gulf-of-americ...](113982206998719178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113982206998719178
+  - GULF OF AMERICA! [https://www. whitehouse.gov/presidential-ac tions/2025/02/gulf-of-america-day-2025/](https://www.whitehouse.gov/presidential-actions/2025/02/gulf-of-america-day-2...
+- [23:33 UTC - We’re going back to plastic straws!](113982202515178648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113982202515178648
+  - We’re going back to plastic straws!
+- [22:09 UTC - I am pleased to announce that Ric Grenell will serve as the Interim Executive Director of ...](113981872435350592/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113981872435350592
+  - I am pleased to announce that Ric Grenell will serve as the Interim Executive Director of The Kennedy Center. Ric shares my Vision for a GOLDEN AGE of American Arts and Culture, an...
+- [20:05 UTC - On Tuesday, February 11th, there is an important Special Election for Westchester County E...](113981387327065544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113981387327065544
+  - On Tuesday, February 11th, there is an important Special Election for Westchester County Executive in New York! Democrats have made Westchester County a “Sanctuary County” protecti...
+- [19:59 UTC - Truth Social post 113981362944018816](113981362944018816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113981362944018816
+  - _No text content captured._
+- [18:37 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) EXCLUSIVE: I'LL BE INTERVIEWI...](113981041868805968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113981041868805968
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) EXCLUSIVE: I'LL BE INTERVIEWING PRESIDENT TRUMP THIS EVENING IN HIS FIRST RADIO INTERVIEW SINCE HIS RE-ELECTION! DON'T...
+- [15:35 UTC - “What a Difference Eight Years Make: How Trump’s Second Inaugural Will Surpass His First” ...](113980323612614595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113980323612614595
+  - “What a Difference Eight Years Make: How Trump’s Second Inaugural Will Surpass His First” [https://www. nysun.com/article/what-a-diffe rence-eight-years-make-how-trumps-second-inau...
+- [14:16 UTC - I am pleased to announce that Howard Brodie will be the next United States Ambassador to F...](113980014678337654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113980014678337654
+  - I am pleased to announce that Howard Brodie will be the next United States Ambassador to Finland. Howard is a distinguished attorney, investor, and businessman, who currently serve...
+- [14:16 UTC - Our Service Academies have been infiltrated by Woke Leftist Ideologues over the last four ...](113980013020158273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113980013020158273
+  - Our Service Academies have been infiltrated by Woke Leftist Ideologues over the last four years. I have ordered the immediate dismissal of the Board of Visitors for the Army, Air F...
+- [04:15 UTC - The worst part of the Super Bowl, by far, was watching the Kickoff where, as the ball is s...](113977651409141894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977651409141894
+  - The worst part of the Super Bowl, by far, was watching the Kickoff where, as the ball is sailing through the air, the entire field is frozen, stiff. College Football does not do it...
+- [04:14 UTC - The only one that had a tougher night than the Kansas City Chiefs was Taylor Swift. She go...](113977646169606601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977646169606601
+  - The only one that had a tougher night than the Kansas City Chiefs was Taylor Swift. She got BOOED out of the Stadium. MAGA is very unforgiving!
+- [02:27 UTC - For far too long the United States has minted pennies which literally cost us more than 2 ...](113977224933701762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977224933701762
+  - For far too long the United States has minted pennies which literally cost us more than 2 cents. This is so wasteful! I have instructed my Secretary of the US Treasury to stop prod...
+- [02:05 UTC - [https:// justthenews.com/government/whi te-house/cbs-news-poll-70-voters-say-trump-doing-...](113977137619685314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977137619685314
+  - [https:// justthenews.com/government/whi te-house/cbs-news-poll-70-voters-say-trump-doing-what-he-promised-53-approval-rating](https://justthenews.com/government/white-house/cbs-ne...
+- [02:02 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113977124799338323](113977126629643868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977126629643868
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113977124799338323
+- [02:01 UTC - Truth Social post 113977124799338323](113977124799338323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113977124799338323
+  - _No text content captured._

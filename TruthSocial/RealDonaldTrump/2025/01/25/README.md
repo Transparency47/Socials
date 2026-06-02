@@ -1,0 +1,85 @@
+# TruthSocial / RealDonaldTrump / 2025-01-25
+
+- Posts: 27
+
+- [23:34 UTC - America First Patriot Randy Fine is running to represent the Great People of Florida's 6th...](113891610231810742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891610231810742
+  - America First Patriot Randy Fine is running to represent the Great People of Florida's 6th Congressional District! A highly successful, Harvard educated businessman, and greatly re...
+- [23:34 UTC - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, ...](113891609516360925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891609516360925
+  - Jimmy Patronis, Chief Financial Officer and Fire Marshall for the Great State of Florida, is running an incredible Campaign for Congress in Florida's 1st Congressional District! A...
+- [23:00 UTC - PROMISES MADE, PROMISES KEPT!](113891479358660000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891479358660000
+  - PROMISES MADE, PROMISES KEPT!
+- [22:46 UTC - A lot of things that were ordered and paid for by Israel, but have not been sent by Biden,...](113891423260527462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891423260527462
+  - A lot of things that were ordered and paid for by Israel, but have not been sent by Biden, are now on their way!
+- [20:32 UTC - Join me LIVE in Las Vegas, Nevada! [https://www. youtube.com/live/OXo-XBvMAUQ?s i=OZGa-fTC...](113890894680713957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113890894680713957
+  - Join me LIVE in Las Vegas, Nevada! [https://www. youtube.com/live/OXo-XBvMAUQ?s i=OZGa-fTCc5aq6gU7](https://www.youtube.com/live/OXo-XBvMAUQ?si=OZGa-fTCc5aq6gU7)
+- [20:08 UTC - [https:// hannity.com/media-room/watch-p resident-trump-delivers-march-for-life-message-ev...](113890801063306312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113890801063306312
+  - [https:// hannity.com/media-room/watch-p resident-trump-delivers-march-for-life-message-every-child-a-beautiful-gift-from-our-creator/](https://hannity.com/media-room/watch-preside...
+- [19:21 UTC - Truth Social post 113890617128529931](113890617128529931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113890617128529931
+  - _No text content captured._
+- [19:04 UTC - “THE FIRST 100 HOURS: HISTORIC ACTION TO KICK OFF AMERICA’S GOLDEN AGE” [https://www. whit...](113890550355345408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113890550355345408
+  - “THE FIRST 100 HOURS: HISTORIC ACTION TO KICK OFF AMERICA’S GOLDEN AGE” [https://www. whitehouse.gov/presidential-ac tions/2025/01/the-first-100-hours-historic-action-to-kick-off-a...
+- [19:03 UTC - Truth Social post 113890546260690669](113890546260690669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113890546260690669
+  - _No text content captured._
+- [15:49 UTC - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889591251984111](https:...](113889780986682607/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889780986682607
+  - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889591251984111](https://truthsocial.com/group/make-america-great-again/posts/113889591251984111)
+- [15:45 UTC - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889592064713630](https:...](113889766573256936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889766573256936
+  - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889592064713630](https://truthsocial.com/group/make-america-great-again/posts/113889592064713630)
+- [15:44 UTC - [https:// truthsocial.com/@Voices4Coops/ 113861218961259860](https://truthsocial.com/@Voic...](113889762100384123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889762100384123
+  - [https:// truthsocial.com/@Voices4Coops/ 113861218961259860](https://truthsocial.com/@Voices4Coops/113861218961259860)
+- [15:42 UTC - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889601549537201](https:...](113889756693662343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889756693662343
+  - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889601549537201](https://truthsocial.com/group/make-america-great-again/posts/113889601549537201)
+- [15:42 UTC - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889601780417783](https:...](113889754795691716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889754795691716
+  - [https:// truthsocial.com/group/make-ame rica-great-again/posts/113889601780417783](https://truthsocial.com/group/make-america-great-again/posts/113889601780417783)
+- [14:59 UTC - [https:// truthsocial.com/group/official -trump/posts/113874659897287304](https://truthsoc...](113889584349120175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889584349120175
+  - [https:// truthsocial.com/group/official -trump/posts/113874659897287304](https://truthsocial.com/group/official-trump/posts/113874659897287304)
+- [14:58 UTC - [https:// truthsocial.com/group/official -trump/posts/113875943066248211](https://truthsoc...](113889580325186843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889580325186843
+  - [https:// truthsocial.com/group/official -trump/posts/113875943066248211](https://truthsocial.com/group/official-trump/posts/113875943066248211)
+- [14:57 UTC - [https:// truthsocial.com/group/official -trump/posts/113878992159097205](https://truthsoc...](113889576330478365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889576330478365
+  - [https:// truthsocial.com/group/official -trump/posts/113878992159097205](https://truthsocial.com/group/official-trump/posts/113878992159097205)
+- [14:56 UTC - [https:// truthsocial.com/group/official -trump/posts/113880076478949347](https://truthsoc...](113889575151116616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889575151116616
+  - [https:// truthsocial.com/group/official -trump/posts/113880076478949347](https://truthsocial.com/group/official-trump/posts/113880076478949347)
+- [14:56 UTC - [https:// truthsocial.com/group/official -trump/posts/113880231343154196](https://truthsoc...](113889573801512627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889573801512627
+  - [https:// truthsocial.com/group/official -trump/posts/113880231343154196](https://truthsocial.com/group/official-trump/posts/113880231343154196)
+- [14:54 UTC - [https:// truthsocial.com/group/official -trump/posts/113885850704825486](https://truthsoc...](113889567503186912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889567503186912
+  - [https:// truthsocial.com/group/official -trump/posts/113885850704825486](https://truthsocial.com/group/official-trump/posts/113885850704825486)
+- [14:54 UTC - [https:// truthsocial.com/group/official -trump/posts/113886559530705407](https://truthsoc...](113889565631060794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889565631060794
+  - [https:// truthsocial.com/group/official -trump/posts/113886559530705407](https://truthsocial.com/group/official-trump/posts/113886559530705407)
+- [14:54 UTC - [https:// truthsocial.com/group/official -trump/posts/113887678419061421](https://truthsoc...](113889564768794104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889564768794104
+  - [https:// truthsocial.com/group/official -trump/posts/113887678419061421](https://truthsocial.com/group/official-trump/posts/113887678419061421)
+- [14:52 UTC - [https:// truthsocial.com/group/official -trump/posts/113889119956820361](https://truthsoc...](113889559489610644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889559489610644
+  - [https:// truthsocial.com/group/official -trump/posts/113889119956820361](https://truthsocial.com/group/official-trump/posts/113889119956820361)
+- [14:51 UTC - RT: https://truthsocial.com/users/EdHunter97/statuses/113883310559125722 What a beautiful ...](113889553768426019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113889553768426019
+  - RT: https://truthsocial.com/users/EdHunter97/statuses/113883310559125722 What a beautiful car. Congratulations to GM!
+- [06:05 UTC - Wow! Rachel Maddow has horrible ratings. She’ll be off the air very soon. MSNBC IS CLOSE T...](113887487731381945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113887487731381945
+  - Wow! Rachel Maddow has horrible ratings. She’ll be off the air very soon. MSNBC IS CLOSE TO DEATH. CNN HAS REACHED THE BOTTOM. This is a good thing. They are the Enemy of the peopl...
+- [02:59 UTC - Congratulations to Pete Hegseth. He will make a great Secretary of Defense!](113886755513227722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113886755513227722
+  - Congratulations to Pete Hegseth. He will make a great Secretary of Defense!
+- [02:08 UTC - [https://www. youtube.com/live/Fxyu6l_XzH0?s i=y3ek1w9nZOVotYJg](https://www.youtube.com/l...](113886555689885161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113886555689885161
+  - [https://www. youtube.com/live/Fxyu6l_XzH0?s i=y3ek1w9nZOVotYJg](https://www.youtube.com/live/Fxyu6l_XzH0?si=y3ek1w9nZOVotYJg)

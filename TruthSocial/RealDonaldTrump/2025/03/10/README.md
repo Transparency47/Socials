@@ -1,0 +1,430 @@
+# TruthSocial / RealDonaldTrump / 2025-03-10
+
+- Posts: 142
+
+- [23:34 UTC - Truth Social post 114140753379974438](114140753379974438/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140753379974438
+  - _No text content captured._
+- [22:14 UTC - Back by popular demand, for the first time in 20 years, the Emmy nominated ORIGINAL APPREN...](114140437287253298/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140437287253298
+  - Back by popular demand, for the first time in 20 years, the Emmy nominated ORIGINAL APPRENTICE STARRING PRESIDENT DONALD TRUMP is back!! Watch Season 1 of The Apprentice, now strea...
+- [22:11 UTC - “A Trump Win on the Panama Canal” [https://www. nationalreview.com/corner/a-tr ump-win-on-...](114140426339072409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140426339072409
+  - “A Trump Win on the Panama Canal” [https://www. nationalreview.com/corner/a-tr ump-win-on-the-panama-canal/](https://www.nationalreview.com/corner/a-trump-win-on-the-panama-canal/)
+- [22:08 UTC - [https:// thepostmillennial.com/uaw-back s-trumps-tariffs-to-protect-us-auto-industry-call...](114140414861699638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140414861699638
+  - [https:// thepostmillennial.com/uaw-back s-trumps-tariffs-to-protect-us-auto-industry-calls-them-a-step-to-end-free-trade-disaster](https://thepostmillennial.com/uaw-backs-trumps-t...
+- [22:06 UTC - [https:// nypost.com/2025/02/06/us-news/ illegal-border-crossings-down-90-under-trump-bord...](114140407907810693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140407907810693
+  - [https:// nypost.com/2025/02/06/us-news/ illegal-border-crossings-down-90-under-trump-border-patrol/](https://nypost.com/2025/02/06/us-news/illegal-border-crossings-down-90-under-t...
+- [22:06 UTC - [https:// dailycaller.com/2025/02/06/cha rlie-kirk-trump-restoring-presidency-founders-vis...](114140407050616528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140407050616528
+  - [https:// dailycaller.com/2025/02/06/cha rlie-kirk-trump-restoring-presidency-founders-vision-article-ii-federalist/](https://dailycaller.com/2025/02/06/charlie-kirk-trump-restorin...
+- [22:06 UTC - [https:// townhall.com/columnists/mikeda vis/2025/02/06/president-trumps-bold-and-justifie...](114140404955146244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140404955146244
+  - [https:// townhall.com/columnists/mikeda vis/2025/02/06/president-trumps-bold-and-justified-move-to-pardon-the-face-act-weaponization-victims-n2651725](https://townhall.com/columni...
+- [22:05 UTC - [https://www. breitbart.com/economy/2025/03/ 04/trump-economic-golden-age/](https://www.br...](114140404714311164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140404714311164
+  - [https://www. breitbart.com/economy/2025/03/ 04/trump-economic-golden-age/](https://www.breitbart.com/economy/2025/03/04/trump-economic-golden-age/)
+- [22:05 UTC - “President Trump came through for Los Angeles” [https://www. latimes.com/opinion/story/202...](114140402532391912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140402532391912
+  - “President Trump came through for Los Angeles” [https://www. latimes.com/opinion/story/2025 -03-04/eaton-palisades-fire-environmental-protection-agency-cleanup](https://www.latimes...
+- [22:04 UTC - [https://www. breitbart.com/clips/2025/02/20 /bass-trump-admin-way-ahead-of-schedule-with-...](114140400108750943/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140400108750943
+  - [https://www. breitbart.com/clips/2025/02/20 /bass-trump-admin-way-ahead-of-schedule-with-removing-toxic-waste/](https://www.breitbart.com/clips/2025/02/20/bass-trump-admin-way-ahe...
+- [22:04 UTC - [https://www. foxnews.com/sports/trump-annou nces-kobe-bryant-muhammad-ali-jackie-robinson...](114140399192075513/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140399192075513
+  - [https://www. foxnews.com/sports/trump-annou nces-kobe-bryant-muhammad-ali-jackie-robinson-statues-national-garden-american-heroes](https://www.foxnews.com/sports/trump-announces-k...
+- [22:04 UTC - [https://www. dailysignal.com/2025/02/21/wer e-winning-pam-bondi-responds-lefts-lawfare-ag...](114140397893926305/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140397893926305
+  - [https://www. dailysignal.com/2025/02/21/wer e-winning-pam-bondi-responds-lefts-lawfare-against-trump/](https://www.dailysignal.com/2025/02/21/were-winning-pam-bondi-responds-lefts...
+- [22:03 UTC - [https://www. breitbart.com/politics/2025/02 /20/hyundai-kia-plan-to-boost-american-auto-p...](114140396629848436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140396629848436
+  - [https://www. breitbart.com/politics/2025/02 /20/hyundai-kia-plan-to-boost-american-auto-production-to-avoid-trump-tariffs/](https://www.breitbart.com/politics/2025/02/20/hyundai-k...
+- [22:03 UTC - [https://www. washingtontimes.com/news/2025/ feb/25/trumps-bold-move-strengthen-second-ame...](114140396367019310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140396367019310
+  - [https://www. washingtontimes.com/news/2025/ feb/25/trumps-bold-move-strengthen-second-amendment/](https://www.washingtontimes.com/news/2025/feb/25/trumps-bold-move-strengthen-seco...
+- [22:03 UTC - [https://www. foxnews.com/media/president-tr ump-reportedly-took-1009-questions-his-first-...](114140395721065733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140395721065733
+  - [https://www. foxnews.com/media/president-tr ump-reportedly-took-1009-questions-his-first-month-7-times-more-than-biden](https://www.foxnews.com/media/president-trump-reportedly-to...
+- [22:03 UTC - [https:// chroniclesmagazine.org/web/tru mp-ending-benefits-to-illegals-is-a-game-changer/...](114140394730992727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140394730992727
+  - [https:// chroniclesmagazine.org/web/tru mp-ending-benefits-to-illegals-is-a-game-changer/](https://chroniclesmagazine.org/web/trump-ending-benefits-to-illegals-is-a-game-changer/)
+- [22:03 UTC - [https:// pjmedia.com/catherinesalgado/2 025/02/26/trump-took-his-misfortunes-as-a-badge-o...](114140393861305851/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140393861305851
+  - [https:// pjmedia.com/catherinesalgado/2 025/02/26/trump-took-his-misfortunes-as-a-badge-of-honor-and-won-n4937337](https://pjmedia.com/catherinesalgado/2025/02/26/trump-took-his-m...
+- [22:02 UTC - [https://www. breitbart.com/economy/2025/02/ 26/bank-of-americas-drops-dei-goals-following...](114140392644303268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140392644303268
+  - [https://www. breitbart.com/economy/2025/02/ 26/bank-of-americas-drops-dei-goals-following-trumps-order/](https://www.breitbart.com/economy/2025/02/26/bank-of-americas-drops-dei-go...
+- [22:02 UTC - [https:// spectator.org/mr-president-hea ds-spinning-from-so-much-winning/](https://specta...](114140392372643948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140392372643948
+  - [https:// spectator.org/mr-president-hea ds-spinning-from-so-much-winning/](https://spectator.org/mr-president-heads-spinning-from-so-much-winning/)
+- [22:02 UTC - [https://www. foxbusiness.com/politics/top-a utomaker-could-move-some-production-out-mexic...](114140391776092862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140391776092862
+  - [https://www. foxbusiness.com/politics/top-a utomaker-could-move-some-production-out-mexico-amid-trump-tariff-talks-ceo-says](https://www.foxbusiness.com/politics/top-automaker-cou...
+- [22:02 UTC - [https:// amac.us/newsline/society/presi dent-trump-saves-electricity-grid-from-projected-...](114140389867664838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140389867664838
+  - [https:// amac.us/newsline/society/presi dent-trump-saves-electricity-grid-from-projected-disaster/](https://amac.us/newsline/society/president-trump-saves-electricity-grid-from-pr...
+- [22:01 UTC - [https:// nypost.com/2025/02/03/opinion/ ny-schools-trap-kids-in-failure-how-trump-offers-...](114140388991275650/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140388991275650
+  - [https:// nypost.com/2025/02/03/opinion/ ny-schools-trap-kids-in-failure-how-trump-offers-an-escape/](https://nypost.com/2025/02/03/opinion/ny-schools-trap-kids-in-failure-how-trum...
+- [22:01 UTC - [https:// freebeacon.com/trump-administr ation/trump-admin-reopens-millions-of-acres-for-o...](114140388614038916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140388614038916
+  - [https:// freebeacon.com/trump-administr ation/trump-admin-reopens-millions-of-acres-for-oil-drilling-rolls-back-biden-climate-agenda/](https://freebeacon.com/trump-administration/...
+- [22:01 UTC - [https://www. newsmax.com/newsmax-tv/nicole- malliotakis-donald-trump-tariffs/2025/02/03/i...](114140387895836687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140387895836687
+  - [https://www. newsmax.com/newsmax-tv/nicole- malliotakis-donald-trump-tariffs/2025/02/03/id/1197683/](https://www.newsmax.com/newsmax-tv/nicole-malliotakis-donald-trump-tariffs/202...
+- [22:01 UTC - [https://www. foxnews.com/media/media-cant-k eep-up-good-news-flowing-from-trump-white-hou...](114140386649625961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140386649625961
+  - [https://www. foxnews.com/media/media-cant-k eep-up-good-news-flowing-from-trump-white-house-karoline-leavitt-says](https://www.foxnews.com/media/media-cant-keep-up-good-news-flowi...
+- [22:01 UTC - [https://www. breitbart.com/politics/2025/02 /04/exclusive-jd-vance-donald-trump-having-th...](114140386163110087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140386163110087
+  - [https://www. breitbart.com/politics/2025/02 /04/exclusive-jd-vance-donald-trump-having-the-time-of-his-life-as-president-breakneck-pace-of-action-going-to-be-the-same-for-four-yea...
+- [22:00 UTC - [https://www. foxnews.com/politics/gop-rep-r eveals-after-f-16-ride-why-trumps-leadership-...](114140384894023538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140384894023538
+  - [https://www. foxnews.com/politics/gop-rep-r eveals-after-f-16-ride-why-trumps-leadership-already-paying-off-military](https://www.foxnews.com/politics/gop-rep-reveals-after-f-16-r...
+- [22:00 UTC - [https://www. foxnews.com/media/parents-murd ered-american-israeli-hostage-praise-trump-pl...](114140383776367500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140383776367500
+  - [https://www. foxnews.com/media/parents-murd ered-american-israeli-hostage-praise-trump-plead-urgency-bringing-hostages-home](https://www.foxnews.com/media/parents-murdered-america...
+- [22:00 UTC - [https:// dailycaller.com/2025/02/10/opi nion-trump-supply-side-reagan-james-p-pinkerton/]...](114140383279513846/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140383279513846
+  - [https:// dailycaller.com/2025/02/10/opi nion-trump-supply-side-reagan-james-p-pinkerton/](https://dailycaller.com/2025/02/10/opinion-trump-supply-side-reagan-james-p-pinkerton/)
+- [21:59 UTC - [https://www. washingtonexaminer.com/opinion /editorials/3313373/trump-military-recruitmen...](114140378820281151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140378820281151
+  - [https://www. washingtonexaminer.com/opinion /editorials/3313373/trump-military-recruitment-surge/](https://www.washingtonexaminer.com/opinion/editorials/3313373/trump-military-rec...
+- [21:59 UTC - [https://www. americanthinker.com/articles/2 025/02/trump_has_the_taxpayers_back.html](htt...](114140378014854771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140378014854771
+  - [https://www. americanthinker.com/articles/2 025/02/trump_has_the_taxpayers_back.html](https://www.americanthinker.com/articles/2025/02/trump_has_the_taxpayers_back.html)
+- [21:58 UTC - [https://www. outkick.com/sports/daytona-500 -reaction-donald-trump-confirmed-what-we-alre...](114140377107445668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140377107445668
+  - [https://www. outkick.com/sports/daytona-500 -reaction-donald-trump-confirmed-what-we-already-knew-what-libs-dont-want-admit](https://www.outkick.com/sports/daytona-500-reaction-do...
+- [21:57 UTC - [https:// nypost.com/2025/02/16/sports/t rump-attends-daytona-500-drives-lap-around-track-...](114140370710816001/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140370710816001
+  - [https:// nypost.com/2025/02/16/sports/t rump-attends-daytona-500-drives-lap-around-track-in-motorcade/](https://nypost.com/2025/02/16/sports/trump-attends-daytona-500-drives-lap-a...
+- [21:57 UTC - [https://www. washingtontimes.com/news/2025/ feb/16/trump-treated-like-nascar-royalty-dayt...](114140370294952735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140370294952735
+  - [https://www. washingtontimes.com/news/2025/ feb/16/trump-treated-like-nascar-royalty-daytona-500/](https://www.washingtontimes.com/news/2025/feb/16/trump-treated-like-nascar-royal...
+- [21:56 UTC - [https://www. breitbart.com/sports/2025/02/1 6/watch-fans-cheer-as-trumps-beast-limo-leads...](114140369356703622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140369356703622
+  - [https://www. breitbart.com/sports/2025/02/1 6/watch-fans-cheer-as-trumps-beast-limo-leads-driverrs-around-track-daytona-500/](https://www.breitbart.com/sports/2025/02/16/watch-fan...
+- [21:56 UTC - “Donald Trump attends Daytona 500 with loud cheers, says NASCAR will 'fuel America's golde...](114140367932686103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140367932686103
+  - “Donald Trump attends Daytona 500 with loud cheers, says NASCAR will 'fuel America's golden age'” [https:// timesofindia.indiatimes.com/wo rld/us/watch-donald-trump-attends-daytona...
+- [21:55 UTC - [https://www. thegatewaypundit.com/2025/02/t his-is-your-favorite-president-president-trum...](114140364900477568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140364900477568
+  - [https://www. thegatewaypundit.com/2025/02/t his-is-your-favorite-president-president-trump-addresses/](https://www.thegatewaypundit.com/2025/02/this-is-your-favorite-president-pre...
+- [21:55 UTC - [https:// dailycaller.com/2025/02/17/opi nion-trump-is-already-cleaning-up-americas-back-y...](114140364677909849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140364677909849
+  - [https:// dailycaller.com/2025/02/17/opi nion-trump-is-already-cleaning-up-americas-back-yard-gavin-wax-and-eduardo-rivero/](https://dailycaller.com/2025/02/17/opinion-trump-is-alr...
+- [21:55 UTC - [https:// thespectator.com/topic/trump-t iger-woods-of-presidents/](https://thespectator.c...](114140363747129600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140363747129600
+  - [https:// thespectator.com/topic/trump-t iger-woods-of-presidents/](https://thespectator.com/topic/trump-tiger-woods-of-presidents/)
+- [21:55 UTC - [https:// nypost.com/2025/01/15/opinion/ reality-bites-leftist-media-shake-ups-layoffs-ami...](114140363162855100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140363162855100
+  - [https:// nypost.com/2025/01/15/opinion/ reality-bites-leftist-media-shake-ups-layoffs-amid-decline/](https://nypost.com/2025/01/15/opinion/reality-bites-leftist-media-shake-ups-la...
+- [21:55 UTC - [https://www. nysun.com/article/the-gulf-of- america-trumps-new-monroe-doctrine](https://w...](114140362009679276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140362009679276
+  - [https://www. nysun.com/article/the-gulf-of- america-trumps-new-monroe-doctrine](https://www.nysun.com/article/the-gulf-of-america-trumps-new-monroe-doctrine)
+- [21:54 UTC - [https://www. theblaze.com/columns/opinion/a mericas-orator-in-chief](https://www.theblaze...](114140361326788716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140361326788716
+  - [https://www. theblaze.com/columns/opinion/a mericas-orator-in-chief](https://www.theblaze.com/columns/opinion/americas-orator-in-chief)
+- [21:54 UTC - [https:// amac.us/newsline/society/the-g enius-of-president-trumps-signature-weave-speakin...](114140361117006539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140361117006539
+  - [https:// amac.us/newsline/society/the-g enius-of-president-trumps-signature-weave-speaking-style/](https://amac.us/newsline/society/the-genius-of-president-trumps-signature-weave-...
+- [21:54 UTC - [https://www. dailysignal.com/2025/03/05/tru mp-shows-why-hes-the-next-great-american-comm...](114140359683353958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140359683353958
+  - [https://www. dailysignal.com/2025/03/05/tru mp-shows-why-hes-the-next-great-american-communicator/](https://www.dailysignal.com/2025/03/05/trump-shows-why-hes-the-next-great-ameri...
+- [21:54 UTC - [https://www. foxnews.com/media/trump-weavin g-skills-full-display-made-for-tv-address-con...](114140359459666445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140359459666445
+  - [https://www. foxnews.com/media/trump-weavin g-skills-full-display-made-for-tv-address-congress](https://www.foxnews.com/media/trump-weaving-skills-full-display-made-for-tv-address...
+- [21:54 UTC - [https:// washingtonreporter.news/p/the- golden-speech-for-the-golden](https://washingtonr...](114140358281148233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140358281148233
+  - [https:// washingtonreporter.news/p/the- golden-speech-for-the-golden](https://washingtonreporter.news/p/the-golden-speech-for-the-golden)
+- [21:53 UTC - [https://www. dailywire.com/news/art-of-the- weave-why-trump-is-the-most-effective-preside...](114140357579736561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140357579736561
+  - [https://www. dailywire.com/news/art-of-the- weave-why-trump-is-the-most-effective-presidential-communicator-in-a-generation](https://www.dailywire.com/news/art-of-the-weave-why-tr...
+- [21:53 UTC - [https://www. washingtontimes.com/news/2025/ feb/17/trump-immigration-crackdown-protects-h...](114140356769512957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140356769512957
+  - [https://www. washingtontimes.com/news/2025/ feb/17/trump-immigration-crackdown-protects-hispanic-comm/](https://www.washingtontimes.com/news/2025/feb/17/trump-immigration-crackdow...
+- [21:52 UTC - [https://www. nationalreview.com/2025/02/tru mp-is-right-the-states-should-handle-disaster...](114140353539918373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140353539918373
+  - [https://www. nationalreview.com/2025/02/tru mp-is-right-the-states-should-handle-disaster-relief/](https://www.nationalreview.com/2025/02/trump-is-right-the-states-should-handle-d...
+- [21:52 UTC - [https://www. dailywire.com/news/trump-admin -celebrates-steep-drop-in-illegal-border-cros...](114140351130099614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140351130099614
+  - [https://www. dailywire.com/news/trump-admin -celebrates-steep-drop-in-illegal-border-crossings](https://www.dailywire.com/news/trump-admin-celebrates-steep-drop-in-illegal-border-...
+- [21:51 UTC - [https:// dailycaller.com/2025/02/18/tru mp-education-department-cuts-600-million-social-j...](114140349109974410/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140349109974410
+  - [https:// dailycaller.com/2025/02/18/tru mp-education-department-cuts-600-million-social-justice-dei-grants/](https://dailycaller.com/2025/02/18/trump-education-department-cuts-600...
+- [21:51 UTC - [https:// pjmedia.com/matt-margolis/2025 /02/18/sorry-libs-voters-love-how-fast-trump-is-m...](114140348356223178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140348356223178
+  - [https:// pjmedia.com/matt-margolis/2025 /02/18/sorry-libs-voters-love-how-fast-trump-is-moving-n4937081](https://pjmedia.com/matt-margolis/2025/02/18/sorry-libs-voters-love-how-fa...
+- [21:51 UTC - [https://www. breitbart.com/politics/2025/02 /17/mediterranean-leaders-outline-chances-for...](114140348151282827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140348151282827
+  - [https://www. breitbart.com/politics/2025/02 /17/mediterranean-leaders-outline-chances-for-peace-trade-with-trumps-return/](https://www.breitbart.com/politics/2025/02/17/mediterran...
+- [21:51 UTC - [https://www. dailysignal.com/2025/02/24/ala ska-governor-trump-has-rescued-states-energy-...](114140346165609097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140346165609097
+  - [https://www. dailysignal.com/2025/02/24/ala ska-governor-trump-has-rescued-states-energy-industry/](https://www.dailysignal.com/2025/02/24/alaska-governor-trump-has-rescued-states...
+- [21:50 UTC - [https://www. foxnews.com/politics/gop-gover nor-top-energy-state-outlines-how-production-...](114140344911998713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140344911998713
+  - [https://www. foxnews.com/politics/gop-gover nor-top-energy-state-outlines-how-production-held-back-by-biden-open-under-trump](https://www.foxnews.com/politics/gop-governor-top-ene...
+- [21:50 UTC - [https:// dailycaller.com/2025/02/24/opi nion-theres-one-word-that-sums-up-trumps-first-30...](114140344383801271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140344383801271
+  - [https:// dailycaller.com/2025/02/24/opi nion-theres-one-word-that-sums-up-trumps-first-30-days-chad-wolf/](https://dailycaller.com/2025/02/24/opinion-theres-one-word-that-sums-up-...
+- [21:48 UTC - [https://www. breitbart.com/tech/2025/02/24/ trump-tariff-win-apple-to-invest-500-billion-...](114140337210541557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140337210541557
+  - [https://www. breitbart.com/tech/2025/02/24/ trump-tariff-win-apple-to-invest-500-billion-in-u-s-pledges-to-create-20000-jobs/](https://www.breitbart.com/tech/2025/02/24/trump-tari...
+- [21:48 UTC - [https:// nypost.com/2025/02/25/opinion/ in-general-a-major-shakeup-at-the-pentagon-is-adm...](114140335657290277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140335657290277
+  - [https:// nypost.com/2025/02/25/opinion/ in-general-a-major-shakeup-at-the-pentagon-is-admiral/](https://nypost.com/2025/02/25/opinion/in-general-a-major-shakeup-at-the-pentagon-is...
+- [21:09 UTC - Truth Social post 114140182989141352](114140182989141352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140182989141352
+  - _No text content captured._
+- [21:09 UTC - Truth Social post 114140181001084818](114140181001084818/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140181001084818
+  - _No text content captured._
+- [21:08 UTC - Truth Social post 114140180268910823](114140180268910823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140180268910823
+  - _No text content captured._
+- [21:08 UTC - Truth Social post 114140179619893321](114140179619893321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140179619893321
+  - _No text content captured._
+- [21:08 UTC - Truth Social post 114140178996686839](114140178996686839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140178996686839
+  - _No text content captured._
+- [21:08 UTC - Truth Social post 114140177931565038](114140177931565038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140177931565038
+  - _No text content captured._
+- [21:07 UTC - Truth Social post 114140174142278325](114140174142278325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140174142278325
+  - _No text content captured._
+- [21:07 UTC - Truth Social post 114140172940964103](114140172940964103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140172940964103
+  - _No text content captured._
+- [21:01 UTC - [https://www. breitbart.com/politics/2025/02 /28/exclusive-lee-zeldin-a-record-breaking-re...](114140151296667465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140151296667465
+  - [https://www. breitbart.com/politics/2025/02 /28/exclusive-lee-zeldin-a-record-breaking-response-how-epa-tackled-californias-wildfire-crisis/](https://www.breitbart.com/politics/20...
+- [21:01 UTC - [https://www. washingtontimes.com/news/2025/ jan/22/trump-saves-whales-green-energy-showdo...](114140150074413709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140150074413709
+  - [https://www. washingtontimes.com/news/2025/ jan/22/trump-saves-whales-green-energy-showdown/](https://www.washingtontimes.com/news/2025/jan/22/trump-saves-whales-green-energy-show...
+- [21:01 UTC - [https://www. foxnews.com/us/alaska-leaders- cheer-trump-oil-gas-drilling-executive-order]...](114140149356873702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140149356873702
+  - [https://www. foxnews.com/us/alaska-leaders- cheer-trump-oil-gas-drilling-executive-order](https://www.foxnews.com/us/alaska-leaders-cheer-trump-oil-gas-drilling-executive-order)
+- [21:00 UTC - [https:// thefederalist.com/2025/01/22/t rump-announces-500b-ai-infrastructure-plan-that-c...](114140148916187246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140148916187246
+  - [https:// thefederalist.com/2025/01/22/t rump-announces-500b-ai-infrastructure-plan-that-could-help-cure-cancer/](https://thefederalist.com/2025/01/22/trump-announces-500b-ai-infra...
+- [21:00 UTC - [https://www. dailywire.com/news/trump-makes -good-on-promise-to-libertarians-pardons-ross...](114140148131615446/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140148131615446
+  - [https://www. dailywire.com/news/trump-makes -good-on-promise-to-libertarians-pardons-ross-ulbricht](https://www.dailywire.com/news/trump-makes-good-on-promise-to-libertarians-pard...
+- [21:00 UTC - [https://www. foxnews.com/opinion/president- trump-has-valid-argument-birthright-citizensh...](114140146480090839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140146480090839
+  - [https://www. foxnews.com/opinion/president- trump-has-valid-argument-birthright-citizenship](https://www.foxnews.com/opinion/president-trump-has-valid-argument-birthright-citizens...
+- [20:59 UTC - [https://www. foxnews.com/politics/trump-dhs -expands-expedited-deportation-powers-operati...](114140144996988524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140144996988524
+  - [https://www. foxnews.com/politics/trump-dhs -expands-expedited-deportation-powers-operations-ramp-up](https://www.foxnews.com/politics/trump-dhs-expands-expedited-deportation-powe...
+- [20:59 UTC - [https://www. foxnews.com/politics/rep-darre ll-issa-nominates-trump-nobel-peace-prize](ht...](114140143917831727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140143917831727
+  - [https://www. foxnews.com/politics/rep-darre ll-issa-nominates-trump-nobel-peace-prize](https://www.foxnews.com/politics/rep-darrell-issa-nominates-trump-nobel-peace-prize)
+- [20:59 UTC - [https:// dailycaller.com/2025/02/28/tru mp-takes-gloves-off-americas-counterterrorism-eff...](114140143398759985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140143398759985
+  - [https:// dailycaller.com/2025/02/28/tru mp-takes-gloves-off-americas-counterterrorism-effort/](https://dailycaller.com/2025/02/28/trump-takes-gloves-off-americas-counterterrorism-...
+- [20:59 UTC - [https://www. rsbnetwork.com/featured/trumps -decisive-action-prioritizing-veterans-throug...](114140141530174350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140141530174350
+  - [https://www. rsbnetwork.com/featured/trumps -decisive-action-prioritizing-veterans-through-va-overhaul](https://www.rsbnetwork.com/featured/trumps-decisive-action-prioritizing-vet...
+- [20:58 UTC - [https://www. foxnews.com/opinion/trump-stop ped-bidens-plan-force-dei-local-communities](...](114140141173770290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140141173770290
+  - [https://www. foxnews.com/opinion/trump-stop ped-bidens-plan-force-dei-local-communities](https://www.foxnews.com/opinion/trump-stopped-bidens-plan-force-dei-local-communities)
+- [20:58 UTC - [https://www. thegatewaypundit.com/2025/02/p resident-trumps-first-cabinet-meeting-like-gr...](114140140128064232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140140128064232
+  - [https://www. thegatewaypundit.com/2025/02/p resident-trumps-first-cabinet-meeting-like-grand-painting/](https://www.thegatewaypundit.com/2025/02/president-trumps-first-cabinet-mee...
+- [20:58 UTC - [https://www. breitbart.com/border/2025/02/2 7/mexico-extradites-29-fugitives-including-dr...](114140139299439438/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140139299439438
+  - [https://www. breitbart.com/border/2025/02/2 7/mexico-extradites-29-fugitives-including-drug-boss-behind-kiki-camarena-murder-and-los-zetas-bosses/](https://www.breitbart.com/borde...
+- [20:58 UTC - [https:// amgreatness.com/2025/03/03/tru mps-tariffs-will-create-millions-of-jobs/](https:...](114140138456645081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140138456645081
+  - [https:// amgreatness.com/2025/03/03/tru mps-tariffs-will-create-millions-of-jobs/](https://amgreatness.com/2025/03/03/trumps-tariffs-will-create-millions-of-jobs/)
+- [20:58 UTC - [https://www. usatoday.com/story/opinion/202 5/02/28/trump-tariffs-aluminum-steel-canada-m...](114140137696773138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140137696773138
+  - [https://www. usatoday.com/story/opinion/202 5/02/28/trump-tariffs-aluminum-steel-canada-mexico-economy/80694166007/](https://www.usatoday.com/story/opinion/2025/02/28/trump-tariff...
+- [20:57 UTC - [https:// nypost.com/2025/03/03/business /honda-moves-civic-production-plans-to-indiana-fr...](114140136536134546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140136536134546
+  - [https:// nypost.com/2025/03/03/business /honda-moves-civic-production-plans-to-indiana-from-mexico-to-avoid-tariffs-report/](https://nypost.com/2025/03/03/business/honda-moves-civ...
+- [20:57 UTC - [https://www. breitbart.com/politics/2025/03 /03/exclusive-sen-jim-banks-trumps-leadership...](114140135482731807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140135482731807
+  - [https://www. breitbart.com/politics/2025/03 /03/exclusive-sen-jim-banks-trumps-leadership-america-first-agenda-brought-honda-production-indiana/](https://www.breitbart.com/politic...
+- [20:57 UTC - [https://www. newsweek.com/donald-trump-scor es-panama-canal-win-2039502](https://www.news...](114140135235516506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140135235516506
+  - [https://www. newsweek.com/donald-trump-scor es-panama-canal-win-2039502](https://www.newsweek.com/donald-trump-scores-panama-canal-win-2039502)
+- [20:57 UTC - [https://www. breitbart.com/politics/2025/03 /03/trump-estimates-tsmc-100-billion-investme...](114140134567259870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140134567259870
+  - [https://www. breitbart.com/politics/2025/03 /03/trump-estimates-tsmc-100-billion-investment-create-20000-jobs/](https://www.breitbart.com/politics/2025/03/03/trump-estimates-tsmc-...
+- [20:56 UTC - [https://www. rsbnetwork.com/news/stunning-a ccomplishments-mark-the-first-few-weeks-of-tr...](114140131747246207/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140131747246207
+  - [https://www. rsbnetwork.com/news/stunning-a ccomplishments-mark-the-first-few-weeks-of-trump-administration-2-0/](https://www.rsbnetwork.com/news/stunning-accomplishments-mark-the...
+- [20:56 UTC - [https:// amac.us/newsline/society/the-g enius-of-president-trumps-signature-weave-speakin...](114140131381229280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140131381229280
+  - [https:// amac.us/newsline/society/the-g enius-of-president-trumps-signature-weave-speaking-style/](https://amac.us/newsline/society/the-genius-of-president-trumps-signature-weave-...
+- [20:56 UTC - [https:// nypost.com/2025/03/05/opinion/ trumps-speech-has-americans-dreaming-leaving-dems...](114140129993356982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140129993356982
+  - [https:// nypost.com/2025/03/05/opinion/ trumps-speech-has-americans-dreaming-leaving-dems-reeling/](https://nypost.com/2025/03/05/opinion/trumps-speech-has-americans-dreaming-leav...
+- [20:55 UTC - [https:// townhall.com/columnists/congre ssmanandybiggs/2025/03/05/under-president-trump-a...](114140128925386560/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140128925386560
+  - [https:// townhall.com/columnists/congre ssmanandybiggs/2025/03/05/under-president-trump-americas-borders-are-secure-again-n2653226](https://townhall.com/columnists/congressmanandy...
+- [20:55 UTC - [https:// thefederalist.com/2025/03/05/t rump-is-right-there-is-nothing-you-can-do-to-make...](114140128458091830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140128458091830
+  - [https:// thefederalist.com/2025/03/05/t rump-is-right-there-is-nothing-you-can-do-to-make-democrats-happy/](https://thefederalist.com/2025/03/05/trump-is-right-there-is-nothing-yo...
+- [20:55 UTC - [https:// nypost.com/2025/03/05/opinion/ michael-goodwin-trumps-rousing-address-puts-dems-...](114140127067114164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140127067114164
+  - [https:// nypost.com/2025/03/05/opinion/ michael-goodwin-trumps-rousing-address-puts-dems-bunch-of-clowns-to-shame/](https://nypost.com/2025/03/05/opinion/michael-goodwin-trumps-ro...
+- [20:55 UTC - [https://www. foxnews.com/politics/conservat ives-erupt-with-praise-on-social-media-after-...](114140126055532824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140126055532824
+  - [https://www. foxnews.com/politics/conservat ives-erupt-with-praise-on-social-media-after-trumps-speech-to-congress-run-through-a-wall](https://www.foxnews.com/politics/conservativ...
+- [20:54 UTC - [https:// dailycaller.com/2025/03/05/opi nion-trump-gives-america-much-needed-shot-of-opti...](114140124753640213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140124753640213
+  - [https:// dailycaller.com/2025/03/05/opi nion-trump-gives-america-much-needed-shot-of-optimism-rep-ralph-norman/](https://dailycaller.com/2025/03/05/opinion-trump-gives-america-muc...
+- [20:54 UTC - [https://www. washingtonexaminer.com/restori ng-america/fairness-justice/3337939/trump-rev...](114140124006704905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140124006704905
+  - [https://www. washingtonexaminer.com/restori ng-america/fairness-justice/3337939/trump-reviving-american-dream-common-sense/](https://www.washingtonexaminer.com/restoring-america/f...
+- [20:54 UTC - [https://www. foxnews.com/politics/independe nts-republicans-went-wild-trumps-declaration-...](114140122962613472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140122962613472
+  - [https://www. foxnews.com/politics/independe nts-republicans-went-wild-trumps-declaration-america-back](https://www.foxnews.com/politics/independents-republicans-went-wild-trumps-d...
+- [20:54 UTC - [https://www. washingtontimes.com/news/2025/ mar/5/poll-overwhelming-majority-viewers-like...](114140122345149881/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140122345149881
+  - [https://www. washingtontimes.com/news/2025/ mar/5/poll-overwhelming-majority-viewers-liked-heard-donald-trumps-address/](https://www.washingtontimes.com/news/2025/mar/5/poll-overw...
+- [20:53 UTC - [https://www. breitbart.com/border/2025/03/0 6/trump-begins-construction-of-texas-border-w...](114140121440989229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140121440989229
+  - [https://www. breitbart.com/border/2025/03/0 6/trump-begins-construction-of-texas-border-wall-canceled-by-biden/](https://www.breitbart.com/border/2025/03/06/trump-begins-construct...
+- [20:53 UTC - [https://www. washingtontimes.com/news/2025/ mar/6/trump-shipbuilding-initiative-welcomed/...](114140119658054365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140119658054365
+  - [https://www. washingtontimes.com/news/2025/ mar/6/trump-shipbuilding-initiative-welcomed/](https://www.washingtontimes.com/news/2025/mar/6/trump-shipbuilding-initiative-welcomed/)
+- [20:53 UTC - [https:// amgreatness.com/2025/03/06/pre sident-donald-j-trump-saving-u-s-steel/](https://...](114140119242965457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140119242965457
+  - [https:// amgreatness.com/2025/03/06/pre sident-donald-j-trump-saving-u-s-steel/](https://amgreatness.com/2025/03/06/president-donald-j-trump-saving-u-s-steel/)
+- [20:53 UTC - [https:// dailycaller.com/2025/03/06/bil l-oreilly-chris-cuomo-why-he-thinks-trump-has-dem...](114140118507928014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140118507928014
+  - [https:// dailycaller.com/2025/03/06/bil l-oreilly-chris-cuomo-why-he-thinks-trump-has-dems-on-verge-of-collapse/](https://dailycaller.com/2025/03/06/bill-oreilly-chris-cuomo-why-h...
+- [20:52 UTC - [https://www. dailysignal.com/2025/03/06/tru mp-democrats-speech-congress/](https://www.da...](114140116375350571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140116375350571
+  - [https://www. dailysignal.com/2025/03/06/tru mp-democrats-speech-congress/](https://www.dailysignal.com/2025/03/06/trump-democrats-speech-congress/)
+- [20:52 UTC - [https://www. breitbart.com/entertainment/20 25/02/23/kathie-lee-gifford-praises-trump-for...](114140116124214319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140116124214319
+  - [https://www. breitbart.com/entertainment/20 25/02/23/kathie-lee-gifford-praises-trump-for-protecting-her-family-from-psychopathic-murderer/](https://www.breitbart.com/entertainmen...
+- [20:52 UTC - [https://www. dailysignal.com/2025/02/23/dar ien-gap-migration-slows-from-torrent-trickle-...](114140114829416553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140114829416553
+  - [https://www. dailysignal.com/2025/02/23/dar ien-gap-migration-slows-from-torrent-trickle-under-trump/](https://www.dailysignal.com/2025/02/23/darien-gap-migration-slows-from-torre...
+- [20:52 UTC - [https:// dailycaller.com/2025/02/23/opi nion-trump-is-right-about-tariffs-larry-elder/](h...](114140114550876423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140114550876423
+  - [https:// dailycaller.com/2025/02/23/opi nion-trump-is-right-about-tariffs-larry-elder/](https://dailycaller.com/2025/02/23/opinion-trump-is-right-about-tariffs-larry-elder/)
+- [20:51 UTC - [https://www. foxbusiness.com/fox-news-world /expert-says-president-trump-is-absolutely-ri...](114140113642818771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140113642818771
+  - [https://www. foxbusiness.com/fox-news-world /expert-says-president-trump-is-absolutely-right-world-needs-more-energy-resources](https://www.foxbusiness.com/fox-news-world/expert-s...
+- [20:51 UTC - [https:// dailycaller.com/2025/02/23/opi nion-trump-gives-washington-long-overdue-reality-...](114140112835618625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140112835618625
+  - [https:// dailycaller.com/2025/02/23/opi nion-trump-gives-washington-long-overdue-reality-check-morgan-murphy/](https://dailycaller.com/2025/02/23/opinion-trump-gives-washington-lo...
+- [20:51 UTC - [https://www. foxnews.com/opinion/david-marc us-radical-transparency-secret-trumps-early-s...](114140111769927378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140111769927378
+  - [https://www. foxnews.com/opinion/david-marc us-radical-transparency-secret-trumps-early-success](https://www.foxnews.com/opinion/david-marcus-radical-transparency-secret-trumps-ea...
+- [20:51 UTC - [https://www. foxnews.com/politics/following -key-wins-trump-poised-cabinet-completion-rec...](114140111306057519/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114140111306057519
+  - [https://www. foxnews.com/politics/following -key-wins-trump-poised-cabinet-completion-record-time](https://www.foxnews.com/politics/following-key-wins-trump-poised-cabinet-complet...
+- [17:05 UTC - Following my previously signed Executive Orders, ICE proudly apprehended and detained Mahm...](114139222625284782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114139222625284782
+  - Following my previously signed Executive Orders, ICE proudly apprehended and detained Mahmoud Khalil, a Radical Foreign Pro-Hamas Student on the campus of Columbia University. This...
+- [15:50 UTC - Truth Social post 114138929065596489](114138929065596489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138929065596489
+  - _No text content captured._
+- [15:50 UTC - Truth Social post 114138928445676150](114138928445676150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138928445676150
+  - _No text content captured._
+- [15:50 UTC - [https:// nypost.com/2025/02/26/media/fo x-news-fox-amp-friends-outpaces-struggling-mornin...](114138926905836511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138926905836511
+  - [https:// nypost.com/2025/02/26/media/fo x-news-fox-amp-friends-outpaces-struggling-morning-joe-of-msnbc/](https://nypost.com/2025/02/26/media/fox-news-fox-amp-friends-outpaces-str...
+- [15:49 UTC - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/332448...](114138925839866845/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138925839866845
+  - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/3324484/trump-trade-policy-will-save-farmers/](https://www.washingtonexaminer.com/restoring-amer...
+- [15:49 UTC - [https://www. theguardian.com/world/2025/feb /24/eu-spends-more-russian-oil-gas-than-finan...](114138924260124808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138924260124808
+  - [https://www. theguardian.com/world/2025/feb /24/eu-spends-more-russian-oil-gas-than-financial-aid-ukraine-report](https://www.theguardian.com/world/2025/feb/24/eu-spends-more-russ...
+- [15:49 UTC - [https://www. breitbart.com/europe/2025/03/0 8/poland-to-increase-defence-spending-to-five...](114138923556158520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138923556158520
+  - [https://www. breitbart.com/europe/2025/03/0 8/poland-to-increase-defence-spending-to-five-per-cent-of-gdp-build-a-half-million-man-army-says-pm-tusk/](https://www.breitbart.com/eu...
+- [15:49 UTC - [https://www. newsmax.com/newsmax-tv/blaine- holt-donald-trump-hamas/2025/03/09/id/1202080...](114138922977774233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138922977774233
+  - [https://www. newsmax.com/newsmax-tv/blaine- holt-donald-trump-hamas/2025/03/09/id/1202080/](https://www.newsmax.com/newsmax-tv/blaine-holt-donald-trump-hamas/2025/03/09/id/1202080...
+- [15:48 UTC - [https://www. breitbart.com/politics/2025/03 /08/exclusive-papa-johns-founder-john-schnatt...](114138922216948551/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138922216948551
+  - [https://www. breitbart.com/politics/2025/03 /08/exclusive-papa-johns-founder-john-schnatter-trump-is-the-perfect-guy-to-drain-the-swamp/](https://www.breitbart.com/politics/2025/0...
+- [15:48 UTC - [https:// justthenews.com/government/whi te-house/trump-businesses-build-us-and-there-will...](114138921250313300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138921250313300
+  - [https:// justthenews.com/government/whi te-house/trump-businesses-build-us-and-there-will-be-no-tariffs](https://justthenews.com/government/white-house/trump-businesses-build-us-a...
+- [15:48 UTC - [https:// amgreatness.com/2025/03/09/bui ld-build-build-trumps-strategy-to-make-america-a-...](114138920568396101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138920568396101
+  - [https:// amgreatness.com/2025/03/09/bui ld-build-build-trumps-strategy-to-make-america-a-maritime-nation-once-again/](https://amgreatness.com/2025/03/09/build-build-build-trumps-s...
+- [15:48 UTC - [https:// dailycaller.com/2025/03/09/opi nion-trump-dems-issue-americans-larry-elder/](htt...](114138919928658936/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138919928658936
+  - [https:// dailycaller.com/2025/03/09/opi nion-trump-dems-issue-americans-larry-elder/](https://dailycaller.com/2025/03/09/opinion-trump-dems-issue-americans-larry-elder/)
+- [15:48 UTC - [https:// nypost.com/2025/03/08/opinion/ michael-goodwin-trump-continues-to-crackdown-anti...](114138918978380062/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138918978380062
+  - [https:// nypost.com/2025/03/08/opinion/ michael-goodwin-trump-continues-to-crackdown-antisemitism-on-college-campuses/](https://nypost.com/2025/03/08/opinion/michael-goodwin-trump...
+- [15:47 UTC - [https://www. foxnews.com/opinion/columbia-a lum-i-support-president-trumps-move-pull-fede...](114138917525086201/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138917525086201
+  - [https://www. foxnews.com/opinion/columbia-a lum-i-support-president-trumps-move-pull-federal-funds](https://www.foxnews.com/opinion/columbia-alum-i-support-president-trumps-move-p...
+- [15:47 UTC - [https:// freebeacon.com/campus/columbia -encampment-negotiator-in-ice-custody-after-trump...](114138916530005970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138916530005970
+  - [https:// freebeacon.com/campus/columbia -encampment-negotiator-in-ice-custody-after-trump-admin-revokes-his-student-visa-state-department-official-confirms/](https://freebeacon.co...
+- [15:47 UTC - [https://www. breitbart.com/radio/2025/03/08 /exclusive-tom-homan-on-sanctuary-cities-im-g...](114138915724223622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138915724223622
+  - [https://www. breitbart.com/radio/2025/03/08 /exclusive-tom-homan-on-sanctuary-cities-im-going-and-bringing-hell-with-me/](https://www.breitbart.com/radio/2025/03/08/exclusive-tom-...
+- [15:47 UTC - [https://www. foxnews.com/opinion/i-blame-bi dens-border-crisis-my-teens-fentanyl-death-th...](114138914713685254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138914713685254
+  - [https://www. foxnews.com/opinion/i-blame-bi dens-border-crisis-my-teens-fentanyl-death-thank-trump-trying-end-scourge](https://www.foxnews.com/opinion/i-blame-bidens-border-crisis...
+- [15:46 UTC - [https:// amac.us/newsline/newsline/pres ident-trump-thank-you-on-behalf-of-maine/](https:...](114138913637258432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138913637258432
+  - [https:// amac.us/newsline/newsline/pres ident-trump-thank-you-on-behalf-of-maine/](https://amac.us/newsline/newsline/president-trump-thank-you-on-behalf-of-maine/)
+- [15:46 UTC - [https://www. foxnews.com/opinion/trump-gave -us-gift-time-unprecedented-shake-up](https:/...](114138912615102119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138912615102119
+  - [https://www. foxnews.com/opinion/trump-gave -us-gift-time-unprecedented-shake-up](https://www.foxnews.com/opinion/trump-gave-us-gift-time-unprecedented-shake-up)
+- [15:46 UTC - [https:// dailycaller.com/2025/02/24/emm anuel-macron-defense-spending-donald-trump-nato/]...](114138911634655993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138911634655993
+  - [https:// dailycaller.com/2025/02/24/emm anuel-macron-defense-spending-donald-trump-nato/](https://dailycaller.com/2025/02/24/emmanuel-macron-defense-spending-donald-trump-nato/)
+- [15:46 UTC - [https://www. washingtonpost.com/opinions/20 25/02/25/border-crossings-trump/](https://www...](114138910851807079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138910851807079
+  - [https://www. washingtonpost.com/opinions/20 25/02/25/border-crossings-trump/](https://www.washingtonpost.com/opinions/2025/02/25/border-crossings-trump/)
+- [15:45 UTC - [https://www. foxnews.com/politics/trump-cal ls-company-building-keystone-xl-pipeline-retu...](114138910074315976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138910074315976
+  - [https://www. foxnews.com/politics/trump-cal ls-company-building-keystone-xl-pipeline-return-america-get-built](https://www.foxnews.com/politics/trump-calls-company-building-keysto...
+- [15:45 UTC - [https:// amgreatness.com/2025/02/25/no- trumps-tariffs-will-not-cause-inflation/](https:/...](114138908675656528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138908675656528
+  - [https:// amgreatness.com/2025/02/25/no- trumps-tariffs-will-not-cause-inflation/](https://amgreatness.com/2025/02/25/no-trumps-tariffs-will-not-cause-inflation/)
+- [15:45 UTC - [https://www. breitbart.com/border/2025/02/2 4/trump-effect-single-day-migrant-apprehensio...](114138908034607035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138908034607035
+  - [https://www. breitbart.com/border/2025/02/2 4/trump-effect-single-day-migrant-apprehension-numbers-on-southwest-border-fall-below-200/](https://www.breitbart.com/border/2025/02/24...
+- [15:45 UTC - [https://www. washingtontimes.com/news/2025/ feb/25/trump-rebuilding-domestic-manufacturin...](114138907391770700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138907391770700
+  - [https://www. washingtontimes.com/news/2025/ feb/25/trump-rebuilding-domestic-manufacturing-fighting-american-aluminum/](https://www.washingtontimes.com/news/2025/feb/25/trump-rebu...
+- [15:44 UTC - [https://www. foxnews.com/world/trump-effect -display-uks-starmer-boosts-defense-spending-...](114138906539296863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114138906539296863
+  - [https://www. foxnews.com/world/trump-effect -display-uks-starmer-boosts-defense-spending-eve-us-visit](https://www.foxnews.com/world/trump-effect-display-uks-starmer-boosts-defens...
+- [02:57 UTC - Malcolm Turnbull, the former Prime Minister of Australia who was always leading that wonde...](114135887529701366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135887529701366
+  - Malcolm Turnbull, the former Prime Minister of Australia who was always leading that wonderful country from “behind,” never understood what was going on in China, nor did he have t...
+- [02:02 UTC - Great job by Congressman Brian Mast on FoxNews. He’s got it together!!! DJT](114135672415463032/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135672415463032
+  - Great job by Congressman Brian Mast on FoxNews. He’s got it together!!! DJT
+- [00:54 UTC - We're going to become so rich, you're not gonna know where to spend all that money. I'm te...](114135406628804244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135406628804244
+  - We're going to become so rich, you're not gonna know where to spend all that money. I'm telling you—just watch!
+- [00:53 UTC - Democrats are out of control—They've lost their minds…](114135400416790297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135400416790297
+  - Democrats are out of control—They've lost their minds…
+- [00:51 UTC - I want a dynamic Country where private enterprise carries the day—NOT the government!](114135394676135924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135394676135924
+  - I want a dynamic Country where private enterprise carries the day—NOT the government!
+- [00:50 UTC - Nobody has been tougher on Russia than Donald Trump—NOBODY…](114135388919019484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135388919019484
+  - Nobody has been tougher on Russia than Donald Trump—NOBODY…
+- [00:49 UTC - The Carter Administration gave the Panama Canal to Panama for no reason...It's the most ex...](114135383571986279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135383571986279
+  - The Carter Administration gave the Panama Canal to Panama for no reason...It's the most expensive thing we've ever built in the history of our Country.…
+- [00:47 UTC - I’m not going to touch Social Security—We’re going to get fraud out of there, everybody wa...](114135377964485025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114135377964485025
+  - I’m not going to touch Social Security—We’re going to get fraud out of there, everybody wants us to get the fraud out!

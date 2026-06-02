@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114047709471578461 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114047709471578461 -->
+<!-- date_published: 2025-02-22T13:12:21.891000+00:00 -->
+<!-- date_accessed: 2026-06-02T19:57:19.136507+00:00 -->
+
+# MSNBC, COMMONLY KNOWN AS MSDNC, IS A THREAT TO OUR DEMOCRACY. SUCH LYING AND MISREPRESENTA...
+
+MSNBC, COMMONLY KNOWN AS MSDNC, IS A THREAT TO OUR DEMOCRACY. SUCH LYING AND MISREPRESENTATION. BAD PEOPLE AT THE TOP!

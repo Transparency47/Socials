@@ -1,0 +1,118 @@
+# TruthSocial / RealDonaldTrump / 2025-03-17
+
+- Posts: 38
+
+- [23:38 UTC - [https:// amac.us/newsline/economy/let-t rump-be-trump-on-the-economy/](https://amac.us/ne...](114180402835570981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180402835570981
+  - [https:// amac.us/newsline/economy/let-t rump-be-trump-on-the-economy/](https://amac.us/newsline/economy/let-trump-be-trump-on-the-economy/)
+- [23:35 UTC - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/334968...](114180392545290249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180392545290249
+  - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/3349683/trump-is-right-the-department-of-education-must-go/](https://www.washingtonexaminer.com/...
+- [23:35 UTC - [https:// dailycaller.com/2025/03/16/opi nion-trump-europe-reset-american-leadership-tom-b...](114180391236856348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180391236856348
+  - [https:// dailycaller.com/2025/03/16/opi nion-trump-europe-reset-american-leadership-tom-basile/](https://dailycaller.com/2025/03/16/opinion-trump-europe-reset-american-leadership-...
+- [23:34 UTC - [https://www. foxnews.com/politics/trump-pol icy-border-jumpers-empowers-use-maximum-conse...](114180389860970609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180389860970609
+  - [https://www. foxnews.com/politics/trump-pol icy-border-jumpers-empowers-use-maximum-consequences-border-agent-tells-fox](https://www.foxnews.com/politics/trump-policy-border-jumpe...
+- [23:34 UTC - [https://www. washingtontimes.com/news/2025/ mar/16/trumps-historic-start-hispanic-communi...](114180388897362339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180388897362339
+  - [https://www. washingtontimes.com/news/2025/ mar/16/trumps-historic-start-hispanic-community/](https://www.washingtontimes.com/news/2025/mar/16/trumps-historic-start-hispanic-commu...
+- [23:34 UTC - [https://www. foxbusiness.com/markets/trump- wins-first-round-against-inflation](https://w...](114180388039983934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180388039983934
+  - [https://www. foxbusiness.com/markets/trump- wins-first-round-against-inflation](https://www.foxbusiness.com/markets/trump-wins-first-round-against-inflation)
+- [23:33 UTC - [https://www. washingtontimes.com/news/2025/ mar/16/trump-targets-lefts-lawfare/](https://...](114180386651303002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180386651303002
+  - [https://www. washingtontimes.com/news/2025/ mar/16/trump-targets-lefts-lawfare/](https://www.washingtontimes.com/news/2025/mar/16/trump-targets-lefts-lawfare/)
+- [23:33 UTC - [https://www. breitbart.com/politics/2025/03 /17/trump-declares-bidens-pardons-of-january-...](114180386422116860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180386422116860
+  - [https://www. breitbart.com/politics/2025/03 /17/trump-declares-bidens-pardons-of-january-6-committee-void-vacant-due-to-autopen/](https://www.breitbart.com/politics/2025/03/17/tru...
+- [22:46 UTC - After years of being held captive by Environmental Extremists, Lunatics, Radicals, and Thu...](114180199351008084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180199351008084
+  - After years of being held captive by Environmental Extremists, Lunatics, Radicals, and Thugs, allowing other Countries, in particular China, to gain tremendous Economic advantage o...
+- [22:28 UTC - Tomorrow morning I will be speaking to President Putin concerning the War in Ukraine. Many...](114180129350673750/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180129350673750
+  - Tomorrow morning I will be speaking to President Putin concerning the War in Ukraine. Many elements of a Final Agreement have been agreed to, but much remains. Thousands of young s...
+- [22:11 UTC - Third Rate Magazine, “The Atlantic,” that made up the “Suckers and Losers” Hoax about me a...](114180060627046678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180060627046678
+  - Third Rate Magazine, “The Atlantic,” that made up the “Suckers and Losers” Hoax about me and the Military, and refused to even acknowledge the vast horde of people who emphatically...
+- [22:09 UTC - Hunter Biden has had Secret Service protection for an extended period of time, all paid fo...](114180054723679623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114180054723679623
+  - Hunter Biden has had Secret Service protection for an extended period of time, all paid for by the United States Taxpayer. There are as many as 18 people on this Detail, which is r...
+- [21:29 UTC - I am pleased to announce a new Board of Visitors for our Nation’s oldest Military Academy,...](114179895802766275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179895802766275
+  - I am pleased to announce a new Board of Visitors for our Nation’s oldest Military Academy, West Point. Major General David Bellavia, Lieutenant General Dan Walrath, General Michael...
+- [21:22 UTC - Completing my list of appointments to the United States Naval Academy, I am happy to annou...](114179869587194428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179869587194428
+  - Completing my list of appointments to the United States Naval Academy, I am happy to announce that the full Board will consist of Sean Spicer, Walt Nauta, Congressman “Doc Ronnie”...
+- [21:20 UTC - Our Great United States Air Force Academy will soon have an incredible Board of Visitors, ...](114179860762359782/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179860762359782
+  - Our Great United States Air Force Academy will soon have an incredible Board of Visitors, composed of Doug Nikolai, Dan Clark, Senator Tommy Tuberville, Charlie Kirk, and Dina Powe...
+- [21:19 UTC - I am pleased to announce the nomination of Bryan Bedford to serve as Administrator of the ...](114179858983072823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179858983072823
+  - I am pleased to announce the nomination of Bryan Bedford to serve as Administrator of the Federal Aviation Administration (FAA). As the former President and CEO of Republic Airways...
+- [21:19 UTC - April 2nd is Liberation Day for America, because we will start taking back some of the vas...](114179857581963138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179857581963138
+  - April 2nd is Liberation Day for America, because we will start taking back some of the vast wealth that has been taken from us due to the many weak, incompetent, and perhaps even d...
+- [20:59 UTC - Truth Social post 114179780121480603](114179780121480603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179780121480603
+  - _No text content captured._
+- [20:49 UTC - I am pleased to announce that Michelle “Miki” Bowman will be the Federal Reserve’s new Vic...](114179738803054417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179738803054417
+  - I am pleased to announce that Michelle “Miki” Bowman will be the Federal Reserve’s new Vice Chair of Supervision. Miki has been serving honorably on the Fed’s Board of Governors si...
+- [18:41 UTC - Truth Social post 114179238093629800](114179238093629800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179238093629800
+  - _No text content captured._
+- [18:01 UTC - I just spoke with the Acting Administrator of NASA, Janet Petro. She is coordinating our T...](114179081339591399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114179081339591399
+  - I just spoke with the Acting Administrator of NASA, Janet Petro. She is coordinating our Team of highly respected Scientists, Space Engineers, and various other “geniuses,” who has...
+- [15:29 UTC - Let nobody be fooled! The hundreds of attacks being made by Houthi, the sinister mobsters ...](114178483249053992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178483249053992
+  - Let nobody be fooled! The hundreds of attacks being made by Houthi, the sinister mobsters and thugs based in Yemen, who are hated by the Yemeni people, all emanate from, and are cr...
+- [14:41 UTC - Truth Social post 114178292343733824](114178292343733824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178292343733824
+  - _No text content captured._
+- [14:35 UTC - Truth Social post 114178268185129000](114178268185129000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178268185129000
+  - _No text content captured._
+- [14:31 UTC - Truth Social post 114178253694953140](114178253694953140/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178253694953140
+  - _No text content captured._
+- [14:28 UTC - Truth Social post 114178241640504245](114178241640504245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178241640504245
+  - _No text content captured._
+- [14:23 UTC - Truth Social post 114178224247033727](114178224247033727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178224247033727
+  - _No text content captured._
+- [14:19 UTC - EPA Administrator, Lee Zeldin: “The Obama and Biden era environmental regulations that str...](114178204850237517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178204850237517
+  - EPA Administrator, Lee Zeldin: “The Obama and Biden era environmental regulations that strangulated the U.S. economy are not Commandments, etched in stone. Quite the opposite actua...
+- [14:16 UTC - It looks like we had an autopen for a president...](114178193987078011/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178193987078011
+  - It looks like we had an autopen for a president...
+- [14:13 UTC - Border Patrol Council President Paul Perez: "It's amazing what the policies of President T...](114178181337460841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178181337460841
+  - Border Patrol Council President Paul Perez: "It's amazing what the policies of President Trump have done. Remain-in-Mexico, ending catch-and-release — it's something President Bide...
+- [14:02 UTC - Truth Social post 114178140742729940](114178140742729940/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178140742729940
+  - _No text content captured._
+- [14:00 UTC - Truth Social post 114178132439225624](114178132439225624/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114178132439225624
+  - _No text content captured._
+- [05:50 UTC - [https:// youtu.be/ZPUtA3W-7_I](https://youtu.be/ZPUtA3W-7_I)](114176205207352132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114176205207352132
+  - [https:// youtu.be/ZPUtA3W-7_I](https://youtu.be/ZPUtA3W-7_I)
+- [05:49 UTC - “Stranded NASA astronauts thank Musk and Trump”](114176199348948643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114176199348948643
+  - “Stranded NASA astronauts thank Musk and Trump”
+- [05:48 UTC - Truth Social post 114176197349277126](114176197349277126/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114176197349277126
+  - _No text content captured._
+- [04:35 UTC - The “Pardons” that Sleepy Joe Biden gave to the Unselect Committee of Political Thugs, and...](114175908922736427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114175908922736427
+  - The “Pardons” that Sleepy Joe Biden gave to the Unselect Committee of Political Thugs, and many others, are hereby declared VOID, VACANT, AND OF NO FURTHER FORCE OR EFFECT, because...
+- [04:34 UTC - Great playing with Scott Lombart, a terrific Golfer!](114175905527380199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114175905527380199
+  - Great playing with Scott Lombart, a terrific Golfer!
+- [04:21 UTC - Thank you to my very talented friend, Paul Anka, for doing a new version of “My Way.” What...](114175855340997773/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114175855340997773
+  - Thank you to my very talented friend, Paul Anka, for doing a new version of “My Way.” What a wonderful guy Paul is!

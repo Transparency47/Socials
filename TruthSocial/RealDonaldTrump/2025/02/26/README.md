@@ -1,0 +1,91 @@
+# TruthSocial / RealDonaldTrump / 2025-02-26
+
+- Posts: 29
+
+- [23:08 UTC - Wayne Gretzky is a fantastic guy! They call him, “The Great One,” and he is. He could run ...](114072703621092444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114072703621092444
+  - Wayne Gretzky is a fantastic guy! They call him, “The Great One,” and he is. He could run for any political office in Canada, and win. Wayne is my friend, and he wants to make me h...
+- [21:27 UTC - “Trump Nominates Dan 'Razin' Caine to be Joint Chiefs Chairman” [https://www. defense.gov/...](114072306556819108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114072306556819108
+  - “Trump Nominates Dan 'Razin' Caine to be Joint Chiefs Chairman” [https://www. defense.gov/News/News-Stories/ Article/Article/4077712/trump-nominates-dan-razin-caine-to-be-joint-chi...
+- [19:43 UTC - Secretary of Defense, Pete Hegseth: “We're doing a complete review of every single aspect ...](114071896747776859/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071896747776859
+  - Secretary of Defense, Pete Hegseth: “We're doing a complete review of every single aspect of what happened with the botched withdrawal of Afghanistan and plan to have full accounta...
+- [19:42 UTC - I'm very disappointed...four bodies came in today...We got a lot of hostages back, but it'...](114071893306050761/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071893306050761
+  - I'm very disappointed...four bodies came in today...We got a lot of hostages back, but it's very sad what happened to those people...This is a vicious group of people, and Israel's...
+- [19:38 UTC - Since the election, the CONFIDENCE in our nation...the CONFIDENCE in business, the CONFIDE...](114071877790872450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071877790872450
+  - Since the election, the CONFIDENCE in our nation...the CONFIDENCE in business, the CONFIDENCE in the Country has reached an ALL-TIME HIGH. We have never reached levels like we are...
+- [19:34 UTC - We're cutting down the size of government—we have to…](114071862189521640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071862189521640
+  - We're cutting down the size of government—we have to…
+- [19:32 UTC - Elon Musk: “President Trump has put together the best Cabinet ever...And I do not give fal...](114071853044146528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071853044146528
+  - Elon Musk: “President Trump has put together the best Cabinet ever...And I do not give false praise. This is an incredible group of people. I don't think such a talented team has e...
+- [19:28 UTC - In just over one month, illegal border crossings have plummeted by numbers nobody has ever...](114071839130050988/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071839130050988
+  - In just over one month, illegal border crossings have plummeted by numbers nobody has ever actually seen before—We've unleashed American energy...We're fighting every day to get th...
+- [19:25 UTC - Truth Social post 114071824438920886](114071824438920886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071824438920886
+  - _No text content captured._
+- [19:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114071747680479503](114071815106718462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071815106718462
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114071747680479503
+- [19:12 UTC - We are hereby reversing the concessions that Crooked Joe Biden gave to Nicolás Maduro, of ...](114071774104516883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071774104516883
+  - We are hereby reversing the concessions that Crooked Joe Biden gave to Nicolás Maduro, of Venezuela, on the oil transaction agreement, dated November 26, 2022, and also having to d...
+- [19:05 UTC - [https://www. youtube.com/live/OMpL4Hze__4?s i=xxsPrlywny8KhVHO](https://www.youtube.com/l...](114071747680479503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114071747680479503
+  - [https://www. youtube.com/live/OMpL4Hze__4?s i=xxsPrlywny8KhVHO](https://www.youtube.com/live/OMpL4Hze__4?si=xxsPrlywny8KhVHO)
+- [15:25 UTC - I hope the House and Senate are able to agree on making the Tax Cuts PERMANENT!](114070882108433827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070882108433827
+  - I hope the House and Senate are able to agree on making the Tax Cuts PERMANENT!
+- [14:17 UTC - GREAT JOB BY THE SOUTHWEST PILOTS IN CHICAGO. A NEARLY TRAGIC CLOSE CALL. PERHAPS SUSPEND ...](114070612892953565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070612892953565
+  - GREAT JOB BY THE SOUTHWEST PILOTS IN CHICAGO. A NEARLY TRAGIC CLOSE CALL. PERHAPS SUSPEND THE PILOTS LICENSE OF THE OTHER PLANE, WHO MUST HAVE BEEN “SLEEPING!”
+- [14:06 UTC - Big First Step Win for Speaker Mike Johnson, and AMERICA. Now let’s start to BALANCE THE B...](114070572392915582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070572392915582
+  - Big First Step Win for Speaker Mike Johnson, and AMERICA. Now let’s start to BALANCE THE BUDGET. IT CAN BE DONE!!! DJT
+- [14:03 UTC - ALL CABINET MEMBERS ARE EXTREMELY HAPPY WITH ELON. The Media will see that at the Cabinet ...](114070560562637397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070560562637397
+  - ALL CABINET MEMBERS ARE EXTREMELY HAPPY WITH ELON. The Media will see that at the Cabinet Meeting this morning!!!
+- [13:20 UTC - “President Trump made a promise to the American people that he's going to make their commu...](114070390620884698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070390620884698
+  - “President Trump made a promise to the American people that he's going to make their communities safer—For those sanctuary cities that want to push back and impede us, we'll double...
+- [13:01 UTC - APPLE SHOULD GET RID OF DEI RULES, NOT JUST MAKE ADJUSTMENTS TO THEM. DEI WAS A HOAX THAT ...](114070315739588346/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070315739588346
+  - APPLE SHOULD GET RID OF DEI RULES, NOT JUST MAKE ADJUSTMENTS TO THEM. DEI WAS A HOAX THAT HAS BEEN VERY BAD FOR OUR COUNTRY. DEI IS GONE!!!
+- [12:31 UTC - AMERICA LOVES TOM HOMAN!!!](114070198401820729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070198401820729
+  - AMERICA LOVES TOM HOMAN!!!
+- [12:29 UTC - Congratulations to the U.S. Dockworkers on your great new deal. Also, thank you for your o...](114070190082477156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070190082477156
+  - Congratulations to the U.S. Dockworkers on your great new deal. Also, thank you for your overwhelming support in the Presidential Election. Slowing down automation, just a little b...
+- [12:23 UTC - Mark Levin’s last two shows, Saturday and Sunday, were incredible, a MUST SEE. I think we’...](114070166370664178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070166370664178
+  - Mark Levin’s last two shows, Saturday and Sunday, were incredible, a MUST SEE. I think we’re going to have to open a beautiful MUSEUM to honor the words and wisdom of “The Great On...
+- [12:10 UTC - As a President who is being given credit for having the Best Opening Month of any Presiden...](114070115148185478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070115148185478
+  - As a President who is being given credit for having the Best Opening Month of any President in history, quite naturally, here come the Fake books and stories with the so-called “an...
+- [11:50 UTC - I don’t understand The Wall Street Journal Editorial Board, never have. They come to my ai...](114070038526458197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114070038526458197
+  - I don’t understand The Wall Street Journal Editorial Board, never have. They come to my aid when I least expect it, sometimes strongly, and I greatly appreciate that — Very meaning...
+- [11:16 UTC - [https:// truthsocial.com/@realDonaldTru mp/114057798709965917](https://truthsocial.com/@r...](114069904344598839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114069904344598839
+  - [https:// truthsocial.com/@realDonaldTru mp/114057798709965917](https://truthsocial.com/@realDonaldTrump/114057798709965917) I thought it would be appropriate to take out my thank...
+- [04:51 UTC - Truth Social post 114068387897265338](114068387897265338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114068387897265338
+  - _No text content captured._
+- [03:33 UTC - Congratulations to Coach Tommy Tuberville and family on the birth of a very special and be...](114068081809400335/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114068081809400335
+  - Congratulations to Coach Tommy Tuberville and family on the birth of a very special and beautiful granddaughter, Rosie Grace Tuberville. Tommy was a Great Coach, is a spectacular S...
+- [03:32 UTC - Our Great Senator from North Dakota, Senator Kevin Cramer, just recently slipped on ice, a...](114068079034540790/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114068079034540790
+  - Our Great Senator from North Dakota, Senator Kevin Cramer, just recently slipped on ice, and hit his head, causing quite an injury. He is now resting comfortably, but went through...
+- [01:41 UTC - “The Deranged Jack Smith Signing”](114067643034401716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114067643034401716
+  - “The Deranged Jack Smith Signing”
+- [01:36 UTC - [https://www. whitehouse.gov/presidential-ac tions/2025/02/making-america-healthy-again-by...](114067622095701283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114067622095701283
+  - [https://www. whitehouse.gov/presidential-ac tions/2025/02/making-america-healthy-again-by-empowering-patients-with-clear-accurate-and-actionable-healthcare-pricing-information/](h...

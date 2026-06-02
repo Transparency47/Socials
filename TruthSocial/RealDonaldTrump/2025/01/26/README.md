@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-01-26
+
+- Posts: 17
+
+- [23:49 UTC - Truth Social post 113897331984204623](113897331984204623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113897331984204623
+  - _No text content captured._
+- [21:19 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Tonight on Life, Liberty & Le...](113896742112376025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896742112376025
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Tonight on Life, Liberty & Levin, 8PM Eastern on Fox. Set your DVR now if you can’t watch live. [https:// rumble.com/v6...
+- [20:59 UTC - Truth Social post 113896663957212755](113896663957212755/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896663957212755
+  - _No text content captured._
+- [20:58 UTC - The great Sean Hannity in the Oval Office prior to our recent record setting interview!!!](113896658711691006/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896658711691006
+  - The great Sean Hannity in the Oval Office prior to our recent record setting interview!!!
+- [20:56 UTC - Truth Social post 113896651145529874](113896651145529874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896651145529874
+  - _No text content captured._
+- [19:51 UTC - Truth Social post 113896394915126793](113896394915126793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896394915126793
+  - _No text content captured._
+- [18:28 UTC - I was just informed that two repatriation flights from the United States, with a large num...](113896070273857964/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113896070273857964
+  - I was just informed that two repatriation flights from the United States, with a large number of Illegal Criminals, were not allowed to land in Colombia. This order was given by Co...
+- [01:58 UTC - [https://www. foxnews.com/opinion/president- trump-has-valid-argument-birthright-citizensh...](113892175509620425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113892175509620425
+  - [https://www. foxnews.com/opinion/president- trump-has-valid-argument-birthright-citizenship](https://www.foxnews.com/opinion/president-trump-has-valid-argument-birthright-citizens...
+- [01:57 UTC - [https://www. foxnews.com/politics/meta-ends -fact-checking-program-zuckerberg-vows-restor...](113892174746860266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113892174746860266
+  - [https://www. foxnews.com/politics/meta-ends -fact-checking-program-zuckerberg-vows-restore-free-expression-facebook-instagram](https://www.foxnews.com/politics/meta-ends-fact-chec...
+- [01:57 UTC - Truth Social post 113892174429716432](113892174429716432/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113892174429716432
+  - _No text content captured._
+- [01:20 UTC - Be sure to watch Mark Levin's Show on Fox tonight, and, in particular, Sunday night. He is...](113892028555891611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113892028555891611
+  - Be sure to watch Mark Levin's Show on Fox tonight, and, in particular, Sunday night. He is doing a fantastic job for America!
+- [01:07 UTC - “New viewership records on Twitch and YouTube thanks to Donald Trump's Inauguration” [http...](113891977496753674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891977496753674
+  - “New viewership records on Twitch and YouTube thanks to Donald Trump's Inauguration” [https:// streamscharts.com/news/donald- trumps-inauguration-viewership](https://streamscharts....
+- [01:05 UTC - [https://www. foxnews.com/media/over-10-mill ion-viewers-watched-fox-news-inauguration-cov...](113891970095355456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891970095355456
+  - [https://www. foxnews.com/media/over-10-mill ion-viewers-watched-fox-news-inauguration-coverage-crushing-all-other-networks](https://www.foxnews.com/media/over-10-million-viewers-w...
+- [01:05 UTC - [https://www. dmgmedia.co.uk/news/360-millio n-views-for-trumps-inauguration/](https://www...](113891969193609437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891969193609437
+  - [https://www. dmgmedia.co.uk/news/360-millio n-views-for-trumps-inauguration/](https://www.dmgmedia.co.uk/news/360-million-views-for-trumps-inauguration/)
+- [01:04 UTC - President Donald J. Trump’s Historic Inauguration Sets Viewership Record Data from Streams...](113891965069994650/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891965069994650
+  - President Donald J. Trump’s Historic Inauguration Sets Viewership Record Data from Streams Charts shows that due to coverage of President Trump’s Inauguration, the News section of...
+- [00:43 UTC - RT [@ bkilmeade](https://truthsocial.com/@bkilmeade) [@ realDonaldTrump](https://truthsoci...](113891882790475884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891882790475884
+  - RT [@ bkilmeade](https://truthsocial.com/@bkilmeade) [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) listen up..big show on FOX!!…9pm eastern!!
+- [00:41 UTC - Congratulations to Chairwoman Gina Swoboda, who I strongly endorsed, for being Re-Elected ...](113891875170815980/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113891875170815980
+  - Congratulations to Chairwoman Gina Swoboda, who I strongly endorsed, for being Re-Elected to another term leading the GREAT Arizona GOP! She was a key part of our HISTORIC VICTORY...

@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-03-26
+
+- Posts: 15
+
+- [23:56 UTC - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ...](114231437487201538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231437487201538
+  - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, a State I love and WON BIG in 2016, 2020, and 2024! Lindsey has been a wonderful friend to...
+- [23:49 UTC - Senator Cynthia Lummis is an America First Warrior for the Wonderful People of Wyoming! As...](114231406967175939/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231406967175939
+  - Senator Cynthia Lummis is an America First Warrior for the Wonderful People of Wyoming! As the Chair of the Senate Banking Subcommittee on Digital Assets, Cynthia is working closel...
+- [23:48 UTC - Senator Cindy Hyde-Smith is 100% MAGA, and doing a fantastic job representing the Incredib...](114231406031813856/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231406031813856
+  - Senator Cindy Hyde-Smith is 100% MAGA, and doing a fantastic job representing the Incredible People of Mississippi! An Original Member of my Mississippi Leadership Team, Cindy has...
+- [23:47 UTC - Congressman John McGuire is an America First Warrior for Virginia’s 5th Congressional Dist...](114231401205332854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231401205332854
+  - Congressman John McGuire is an America First Warrior for Virginia’s 5th Congressional District. John bravely served our Great Country as a U.S. Navy SEAL, and is doing an incredibl...
+- [23:40 UTC - I am pleased to announce the appointment of Brandon Beach as the next Treasurer of the Uni...](114231372872784481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231372872784481
+  - I am pleased to announce the appointment of Brandon Beach as the next Treasurer of the United States. Brandon helped us secure a Massive and Historic Victory for our Movement in th...
+- [23:33 UTC - Senator Bill Hagerty is doing a fantastic job representing the Great People of Tennessee! ...](114231344319625636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114231344319625636
+  - Senator Bill Hagerty is doing a fantastic job representing the Great People of Tennessee! I have known Bill for a long time, as both a Highly Successful Businessman, and outstandin...
+- [22:02 UTC - [https://www. youtube.com/live/lVsg2zFozVw?s i=E8KWNT9-_aZTfl1C](https://www.youtube.com/l...](114230986569053615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114230986569053615
+  - [https://www. youtube.com/live/lVsg2zFozVw?s i=E8KWNT9-_aZTfl1C](https://www.youtube.com/live/lVsg2zFozVw?si=E8KWNT9-_aZTfl1C)
+- [16:21 UTC - Truth Social post 114229647629683552](114229647629683552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229647629683552
+  - _No text content captured._
+- [15:50 UTC - “The bottom line is, the percentage of Americans who say we're on the right track is throu...](114229523619700148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229523619700148
+  - “The bottom line is, the percentage of Americans who say we're on the right track is through the roof."
+- [15:46 UTC - Truth Social post 114229509171664042](114229509171664042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229509171664042
+  - _No text content captured._
+- [15:45 UTC - “TRUMP VOWS TO PROTECT SOCIAL SECURITY & MEDICARE BENEFITS”](114229504694054019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229504694054019
+  - “TRUMP VOWS TO PROTECT SOCIAL SECURITY & MEDICARE BENEFITS”
+- [15:43 UTC - Had I not turned away at that very, very, very instant—I wouldn't be sitting here with you...](114229498690890665/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229498690890665
+  - Had I not turned away at that very, very, very instant—I wouldn't be sitting here with you...I do feel the support, I really do. Somebody said that God saved me in order to save th...
+- [15:39 UTC - “U.S. natural gas production is at an all-time high today...I was down a few weeks ago at ...](114229482069423709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229482069423709
+  - “U.S. natural gas production is at an all-time high today...I was down a few weeks ago at a brand-new LNG export terminal in Louisiana coming online—We've approved four more within...
+- [15:37 UTC - “Egg prices have definitely turned a corner...with large egg prices, on average, down 59% ...](114229474924378451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114229474924378451
+  - “Egg prices have definitely turned a corner...with large egg prices, on average, down 59% since February 28th."
+- [00:45 UTC - Truth Social post 114225968557045262](114225968557045262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114225968557045262
+  - _No text content captured._

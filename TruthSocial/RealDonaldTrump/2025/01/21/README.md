@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-01-21
+
+- Posts: 22
+
+- [23:18 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My NEW Official Trump Mem...](113868898660221095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113868898660221095
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My NEW Official Trump Meme is HERE! It’s time to celebrate everything we stand for: WINNING! Join my very special T...
+- [22:37 UTC - [https:// thefederalist.com/2025/01/17/t rump-should-pardon-d-c-s-good-cops-victimized-by-...](113868737839409109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113868737839409109
+  - [https:// thefederalist.com/2025/01/17/t rump-should-pardon-d-c-s-good-cops-victimized-by-bidens-soft-on-crime-doj/](https://thefederalist.com/2025/01/17/trump-should-pardon-d-c-s-...
+- [19:31 UTC - Truth Social post 113868008052629066](113868008052629066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113868008052629066
+  - _No text content captured._
+- [19:15 UTC - [https://www. foxnews.com/politics/trump-sig ns-dozens-executive-orders-fulfilling-many-ca...](113867941930808418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867941930808418
+  - [https://www. foxnews.com/politics/trump-sig ns-dozens-executive-orders-fulfilling-many-campaign-promises](https://www.foxnews.com/politics/trump-signs-dozens-executive-orders-fulf...
+- [19:14 UTC - Truth Social post 113867937606196888](113867937606196888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867937606196888
+  - _No text content captured._
+- [18:52 UTC - Truth Social post 113867853345709635](113867853345709635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867853345709635
+  - _No text content captured._
+- [18:51 UTC - Truth Social post 113867849005330104](113867849005330104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867849005330104
+  - _No text content captured._
+- [18:51 UTC - Truth Social post 113867848134953623](113867848134953623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867848134953623
+  - _No text content captured._
+- [18:51 UTC - Truth Social post 113867847306138080](113867847306138080/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867847306138080
+  - _No text content captured._
+- [18:50 UTC - Truth Social post 113867846468188193](113867846468188193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113867846468188193
+  - _No text content captured._
+- [07:54 UTC - Truth Social post 113865267313503356](113865267313503356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865267313503356
+  - _No text content captured._
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs a proclamatio...](113865266401523087/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865266401523087
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs a proclamation declaring a NATIONAL EMERGENCY at the southern border
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive ...](113865265792591897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865265792591897
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive Order to secure the southern border
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an order crea...](113865265386909854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865265386909854
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an order creating the Department of Government Efficiency, also known as DOGE
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive ...](113865264973657369/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865264973657369
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive Order to keep TikTok alive so that a deal can be reached
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive ...](113865264606389065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865264606389065
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive Order to bring reforms to the federal workforce
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs a declaration...](113865264398646117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865264398646117
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs a declaration of a National Energy Emergency
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive ...](113865264053462863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865264053462863
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an Executive Order to hold former government officials accountable for unlawful disclosure of sensitive...
+- [07:54 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an order to e...](113865263826581861/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865263826581861
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump signs an order to ease the permitting process and other regulations in order to unleash American energy
+- [07:53 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump withdraws the Unite...](113865263505732740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865263505732740
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) 🚨 President Trump withdraws the United States from the World Health Organization
+- [07:53 UTC - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) Thanks to President Trump, American w...](113865263237260004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113865263237260004
+  - RT [@ TeamTrump](https://truthsocial.com/@TeamTrump) Thanks to President Trump, American women are hereby protected from radical gender ideology 🔥
+- [05:28 UTC - Our first day in the White House is not over yet! My Presidential Personnel Office is acti...](113864692804149616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113864692804149616
+  - Our first day in the White House is not over yet! My Presidential Personnel Office is actively in the process of identifying and removing over a thousand Presidential Appointees fr...

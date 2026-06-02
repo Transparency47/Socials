@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-02-02
+
+- Posts: 22
+
+- [23:57 UTC - Truth Social post 113936998504202073](113936998504202073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936998504202073
+  - _No text content captured._
+- [23:55 UTC - Truth Social post 113936991336785959](113936991336785959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936991336785959
+  - _No text content captured._
+- [23:52 UTC - RT [@ Charliekirk](https://truthsocial.com/@Charliekirk) This photo needs to be in the Smi...](113936979258836700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936979258836700
+  - RT [@ Charliekirk](https://truthsocial.com/@Charliekirk) This photo needs to be in the Smithsonian.
+- [23:52 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Family and I are in Washingto...](113936979019026991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936979019026991
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow) Family and I are in Washington today. The people who came here are smiling, excited, and polite. It’s a fantastic atmos...
+- [23:51 UTC - Truth Social post 113936977961815552](113936977961815552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936977961815552
+  - _No text content captured._
+- [23:48 UTC - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After reading inaugural address...](113936963755001025/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936963755001025
+  - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After reading inaugural addresses by Jefferson, Jackson, and FDR it is clear that the inaugural addresses [@ callygingric...
+- [23:47 UTC - RT [@ PaulIngrassia](https://truthsocial.com/@PaulIngrassia) Honored and Blessed to serve ...](113936961344188533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936961344188533
+  - RT [@ PaulIngrassia](https://truthsocial.com/@PaulIngrassia) Honored and Blessed to serve as the White House Liaison in President Trump's newly overhauled Justice Department. Thril...
+- [23:46 UTC - Truth Social post 113936957547020306](113936957547020306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936957547020306
+  - _No text content captured._
+- [23:46 UTC - Truth Social post 113936956562017828](113936956562017828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936956562017828
+  - _No text content captured._
+- [23:46 UTC - Truth Social post 113936955647252257](113936955647252257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936955647252257
+  - _No text content captured._
+- [23:46 UTC - Truth Social post 113936955057631860](113936955057631860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936955057631860
+  - _No text content captured._
+- [23:45 UTC - Truth Social post 113936954292710810](113936954292710810/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936954292710810
+  - _No text content captured._
+- [23:44 UTC - Truth Social post 113936948433468781](113936948433468781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936948433468781
+  - _No text content captured._
+- [23:37 UTC - Anybody that’s against Tariffs, including the Fake News Wall Street Journal, and Hedge Fun...](113936920653240968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936920653240968
+  - Anybody that’s against Tariffs, including the Fake News Wall Street Journal, and Hedge Funds, is only against them because these people or entities are controlled by China, or othe...
+- [23:31 UTC - The water is flowing in California. These once empty “halfpipes” are now brimming with bea...](113936897719370915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936897719370915
+  - The water is flowing in California. These once empty “halfpipes” are now brimming with beautiful, clean water, and heading to farmers throughout the State, and to Los Angeles. Too...
+- [23:19 UTC - South Africa is confiscating land, and treating certain classes of people VERY BADLY. It i...](113936851614563699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936851614563699
+  - South Africa is confiscating land, and treating certain classes of people VERY BADLY. It is a bad situation that the Radical Left Media doesn’t want to so much as mention. A massiv...
+- [22:59 UTC - [https://www. foxnews.com/video/636814496111 2](https://www.foxnews.com/video/636814496111...](113936773045833033/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936773045833033
+  - [https://www. foxnews.com/video/636814496111 2](https://www.foxnews.com/video/6368144961112)
+- [22:56 UTC - Democrats are purposefully delaying virtually all of my Nominees. No matter how good and w...](113936759417845784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936759417845784
+  - Democrats are purposefully delaying virtually all of my Nominees. No matter how good and well qualified someone is, they are taking maximum time for approval — and laughing about i...
+- [22:34 UTC - WATCH MARK LEVIN TONIGHT, on FoxNews, 8 P.M. Eastern. Great Show!](113936675328110177/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113936675328110177
+  - WATCH MARK LEVIN TONIGHT, on FoxNews, 8 P.M. Eastern. Great Show!
+- [13:26 UTC - We pay hundreds of Billions of Dollars to SUBSIDIZE Canada. Why? There is no reason. We do...](113934520197790682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113934520197790682
+  - We pay hundreds of Billions of Dollars to SUBSIDIZE Canada. Why? There is no reason. We don’t need anything they have. We have unlimited Energy, should make our own Cars, and have...
+- [13:09 UTC - The “Tariff Lobby,” headed by the Globalist, and always wrong, Wall Street Journal, is wor...](113934450227067577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113934450227067577
+  - The “Tariff Lobby,” headed by the Globalist, and always wrong, Wall Street Journal, is working hard to justify Countries like Canada, Mexico, China, and too many others to name, co...
+- [01:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113929767736564719](113931812065727107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/113931812065727107
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/113929767736564719
