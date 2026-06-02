@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2026-01-28
+
+- Posts: 20
+
+- [23:43 UTC - I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney Gene...](115975377035585210/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115975377035585210
+  - I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney General for National FRAUD Enforcement, a new Division at the Department of Justice, which I c...
+- [18:37 UTC - Truth Social post 115974172648700339](115974172648700339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115974172648700339
+  - _No text content captured._
+- [17:25 UTC - Trump says it's 'too late' to halt ballroom project, calls group behind lawsuit 'obstructi...](115973889645728402/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115973889645728402
+  - Trump says it's 'too late' to halt ballroom project, calls group behind lawsuit 'obstructionists': [https:// justthenews.com/government/whi te-house/trump-says-its-too-late-halt-ba...
+- [17:20 UTC - DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [http...](115973871778215181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115973871778215181
+  - DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [https:// dailycaller.com/2026/01/18/opi nion-one-year-since-taking-office-trump-is-decimating-...
+- [17:20 UTC - Federal government must step up for election integrity: Republicans must stop saying, 'The...](115973869614333500/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115973869614333500
+  - Federal government must step up for election integrity: Republicans must stop saying, 'The Democrats won't let us do it': [https://www. washingtontimes.com/news/2026/ jan/27/federa...
+- [14:37 UTC - The S&P 500 just hit 7000 for the FIRST TIME EVER. AMERICA IS BACK!!!](115973230205233959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115973230205233959
+  - The S&P 500 just hit 7000 for the FIRST TIME EVER. AMERICA IS BACK!!!
+- [13:23 UTC - Surprisingly, Mayor Jacob Frey just stated that, “Minneapolis does not, and will not, enfo...](115972940749866695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115972940749866695
+  - Surprisingly, Mayor Jacob Frey just stated that, “Minneapolis does not, and will not, enforce Federal Immigration Laws.” This is after having had a very good conversation with him....
+- [12:26 UTC - It is the same mindset that gave pro football the new and unwatchable “Sissy” Kickoff Rule...](115972714460477814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115972714460477814
+  - It is the same mindset that gave pro football the new and unwatchable “Sissy” Kickoff Rule, that made it possible for Bill Belichick to not be elected into the Pro Football Hall of...
+- [12:12 UTC - A massive Armada is heading to Iran. It is moving quickly, with great power, enthusiasm, a...](115972658725010644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115972658725010644
+  - A massive Armada is heading to Iran. It is moving quickly, with great power, enthusiasm, and purpose. It is a larger fleet, headed by the great Aircraft Carrier Abraham Lincoln, th...
+- [03:46 UTC - Truth Social post 115970668236723986](115970668236723986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970668236723986
+  - _No text content captured._
+- [03:29 UTC - My polling is highest ever. Thank you! [https://www. newsmax.com/newsmax-tv/patrick -alloc...](115970604481516528/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970604481516528
+  - My polling is highest ever. Thank you! [https://www. newsmax.com/newsmax-tv/patrick -allocco-donald-trump-support/2026/01/26/id/1243662/](https://www.newsmax.com/newsmax-tv/patrick...
+- [01:58 UTC - Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the nex...](115970244299178641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970244299178641
+  - Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the next Governor of the GREAT Commonwealth of Pennsylvania, a very special place to me in that w...
+- [01:14 UTC - Trump: U.S. ‘Not Joke Anymore’ as Midterm Push Begins in Iowa: [https://www. newsmax.com/u...](115970072352668179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970072352668179
+  - Trump: U.S. ‘Not Joke Anymore’ as Midterm Push Begins in Iowa: [https://www. newsmax.com/us/donald-trump-io wa-rally-midterms/2026/01/27/id/1243811/](https://www.newsmax.com/us/don...
+- [01:04 UTC - Highly Respected America First Congressman, Tom Tiffany, is running to be the next Governo...](115970033433071326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970033433071326
+  - Highly Respected America First Congressman, Tom Tiffany, is running to be the next Governor of the GREAT State of Wisconsin, a very special place to me in that we had a BIG Preside...
+- [01:00 UTC - [https://www. thegatewaypundit.com/2026/01/l ol-trump-nukes-abc-reporter-she-hasnt-asked/]...](115970017665991958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970017665991958
+  - [https://www. thegatewaypundit.com/2026/01/l ol-trump-nukes-abc-reporter-she-hasnt-asked/](https://www.thegatewaypundit.com/2026/01/lol-trump-nukes-abc-reporter-she-hasnt-asked/)
+- [00:58 UTC - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is runni...](115970009433933657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115970009433933657
+  - It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young “STAR” who is running to represent the incredible people of Wisconsin’s 7th Congressional District. Michael i...
+- [00:53 UTC - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidat...](115969989606605553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115969989606605553
+  - It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidate for Indiana's 39th State Senate District (which I won by a whopping 55 points!). Jeff wi...
+- [00:48 UTC - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against...](115969971098103360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115969971098103360
+  - Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against “No Goode” Greg Goode (BAD FOR THE U.S.A.!) in the Republican Primary for Indiana’s 38th...
+- [00:46 UTC - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhav...](115969963682592720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115969963682592720
+  - It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhaver, a terrific Candidate for Indiana's 23rd State Senate District (which I won by 26 point...
+- [00:41 UTC - It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent th...](115969943597305015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115969943597305015
+  - It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent the fantastic people of Iowa’s 2nd Congressional District. As a former Appointee in my Admin...

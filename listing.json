@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-02T14:37:48.993097+00:00",
+  "generatedAt": "2026-06-02T14:39:22.003875+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -94438,6 +94438,346 @@
     {
       "category": "TruthSocial",
       "date": "2026-01-29",
+      "id": "socials:0f50f9a30f07d808",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:37:49.410808+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115976047061148117.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/1252692a191c3cc4.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/047/061/148/117/original/1252692a191c3cc4.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1252692a191c3cc4.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115976047061148117.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1252692a191c3cc4.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976047714526049"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976047714526049/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976047714526049/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976047714526049",
+      "summary": null,
+      "title": "Truth Social post 115976047714526049"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:2e6c9594d73655ff",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:37:57.519459+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115976045172709875.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/784f0504126c1e84.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/045/172/709/875/original/784f0504126c1e84.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/784f0504126c1e84.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115976045172709875.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/784f0504126c1e84.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976045485606687"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976045485606687/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976045485606687/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976045485606687",
+      "summary": null,
+      "title": "Truth Social post 115976045485606687"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:31916041ee1da23e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:03.846231+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115976043301817351.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/bde795a74383f9e8.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/043/301/817/351/original/bde795a74383f9e8.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/bde795a74383f9e8.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115976043301817351.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/bde795a74383f9e8.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976043575563522"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976043575563522/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976043575563522/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976043575563522",
+      "summary": null,
+      "title": "Truth Social post 115976043575563522"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:27756b48a6b7ca63",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:09.022107+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115976030150494400.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/0028ee15bad81f16.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/030/150/494/400/original/0028ee15bad81f16.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/0028ee15bad81f16.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115976030150494400.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/0028ee15bad81f16.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976032770379274"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976032770379274/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976032770379274/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976032770379274",
+      "summary": null,
+      "title": "Truth Social post 115976032770379274"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:a56ee6a72d7b15d2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:21.200767+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976027410564703.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/8b586e02238cd285.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/027/410/564/703/original/8b586e02238cd285.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8b586e02238cd285.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976027410564703.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8b586e02238cd285.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976027726655526"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976027726655526/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976027726655526/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976027726655526",
+      "summary": null,
+      "title": "Truth Social post 115976027726655526"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:7e13c95673a4750a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:23.707222+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976026370922755.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/723d5fd5f2d81485.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/026/370/922/755/original/723d5fd5f2d81485.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/723d5fd5f2d81485.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976026370922755.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/723d5fd5f2d81485.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976026734414117"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976026734414117/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976026734414117/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976026734414117",
+      "summary": null,
+      "title": "Truth Social post 115976026734414117"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:6a5235832c1722e2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:26.225215+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976025419098386.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/51b7fcf58b9677db.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/025/419/098/386/original/51b7fcf58b9677db.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/51b7fcf58b9677db.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976025419098386.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/51b7fcf58b9677db.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976025713697412"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976025713697412/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976025713697412/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976025713697412",
+      "summary": null,
+      "title": "Truth Social post 115976025713697412"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:c1a060bb90cf45b8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:28.602271+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976024416148773.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/d2de6fca17212912.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/024/416/148/773/original/d2de6fca17212912.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d2de6fca17212912.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976024416148773.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d2de6fca17212912.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976024639514043"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976024639514043/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976024639514043/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976024639514043",
+      "summary": null,
+      "title": "Truth Social post 115976024639514043"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:d9ea2da33d7b4953",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:30.977587+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976023557083648.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/5e6c4fc5b177d930.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/023/557/083/648/original/5e6c4fc5b177d930.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5e6c4fc5b177d930.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976023557083648.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5e6c4fc5b177d930.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976023784905122"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976023784905122/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976023784905122/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976023784905122",
+      "summary": null,
+      "title": "Truth Social post 115976023784905122"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:f34925c2d5670597",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:33.920033+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976021529565984.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/18ca1a2c85487bd4.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/021/529/565/984/original/18ca1a2c85487bd4.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/18ca1a2c85487bd4.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976021529565984.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/18ca1a2c85487bd4.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976022136360776"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976022136360776/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976022136360776/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976022136360776",
+      "summary": null,
+      "title": "Truth Social post 115976022136360776"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
       "id": "socials:5a107f3a494a169c",
       "kind": "social_post",
       "metadata": {
@@ -95614,6 +95954,152 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976047714526049"
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:4ce5472bff75ef03",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:37:55.207166+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976046267151275.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a9388b3e1cfc4c19.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/046/267/151/275/original/a9388b3e1cfc4c19.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a9388b3e1cfc4c19.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976046267151275.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a9388b3e1cfc4c19.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976046399428716"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976046399428716/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976046399428716/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976046399428716",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976045485606687",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976045485606687"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:bfe8b1899947e088",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:01.518350+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976044379715131.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/dd808342aa6f5b09.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/044/379/715/131/original/dd808342aa6f5b09.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dd808342aa6f5b09.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976044379715131.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dd808342aa6f5b09.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976044566734223"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976044566734223/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976044566734223/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976044566734223",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976043575563522",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976043575563522"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:8cb0822cd2eb0e8c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:06.687799+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115976033320573110.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/576b729e8d0d568a.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/976/033/320/573/110/original/576b729e8d0d568a.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/576b729e8d0d568a.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115976033320573110.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/576b729e8d0d568a.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115976033475332960"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976033475332960/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976033475332960/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976033475332960",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976032770379274",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976032770379274"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:fbb7649091180e7a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:19.325969+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115976028716143583"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976028716143583/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976028716143583/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976028716143583",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney General for National FRAUD Enforcement, a new Division at the Department of Justice, which I created to catch and stop FRAUDSTERS",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to nominate ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:651e8b77ee8acdba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:17.486235+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115976028934729367"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976028934729367/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976028934729367/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976028934729367",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. cnbc.com/2026/01/28/fed-powell -criminal-subpoenas-pirro.html](https://www.cnbc.com/2026/01/28/fed-powell-criminal-subpoenas-p",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fed has not yet complied ..."
+    },
+    {
       "category": "YouTube",
       "date": "2026-01-29",
       "id": "socials:412da0400d8a8c51",
@@ -95780,6 +96266,28 @@
       "title": "I had a very productive telephone conversation with President Claudia Sheinbaum, of Mexico..."
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-29",
+      "id": "socials:eb0f410912a2c7d9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:36.227872+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115976007252691682"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/29/115976007252691682/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/29/115976007252691682/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115976007252691682",
+      "summary": "Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. cnbc.com/2026/01/28/fed-powell -criminal-subpoenas-pirro.html](https://www.cnbc.com/2026/01/28/fed-powell-criminal-subpoenas-pirro.html)",
+      "title": "Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. c..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-01-29",
       "id": "socials:794af7913f6485c7",
@@ -95902,6 +96410,174 @@
       "title": "\"I want to impact American lives. I'm working every day, and that is my mission.\" - FLOTUS \ud83c\uddfa\ud83c\uddf8"
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:e61dcafb1d55be03",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:07.311346+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970017665991958"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970017665991958/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970017665991958/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970017665991958",
+      "summary": "[https://www. thegatewaypundit.com/2026/01/l ol-trump-nukes-abc-reporter-she-hasnt-asked/](https://www.thegatewaypundit.com/2026/01/lol-trump-nukes-abc-reporter-she-hasnt-asked/)",
+      "title": "[https://www. thegatewaypundit.com/2026/01/l ol-trump-nukes-abc-reporter-she-hasnt-asked/]..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:66937888f24a7c3d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:13.418323+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115969967532833151.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/97a6c248f520c489.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/969/967/532/833/151/original/97a6c248f520c489.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/97a6c248f520c489.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115969967532833151.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/97a6c248f520c489.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115969971098103360"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115969971098103360/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115969971098103360/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115969971098103360",
+      "summary": "Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against \u201cNo Goode\u201d Greg Goode (BAD FOR THE U.S.A.!) in the Republican Primary for Indiana\u2019s 38th Senate District, which I won by 28 points! \u201cNo Goode\u201d is an incompetent and ineffective RINO incumbe",
+      "title": "Vigo County Commissioner Brenda Wilson, a Proven America First Patriot, is running against..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:f8c4e184a220f06d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:40.187217+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115974171395081288.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c1a5892b459ef538.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/974/171/395/081/288/original/c1a5892b459ef538.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c1a5892b459ef538.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115974171395081288.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c1a5892b459ef538.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115974172648700339"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115974172648700339/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115974172648700339/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115974172648700339",
+      "summary": null,
+      "title": "Truth Social post 115974172648700339"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:871c4171264f3276",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:56.625435+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_115970667926202344.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/cd6d3749154fbaee.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/970/667/926/202/344/original/cd6d3749154fbaee.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/cd6d3749154fbaee.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_115970667926202344.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/cd6d3749154fbaee.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115970668236723986"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970668236723986/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970668236723986/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970668236723986",
+      "summary": null,
+      "title": "Truth Social post 115970668236723986"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:504022a5e9f2d31a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:03.609578+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970072352668179"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970072352668179/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970072352668179/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970072352668179",
+      "summary": "Trump: U.S. \u2018Not Joke Anymore\u2019 as Midterm Push Begins in Iowa: [https://www. newsmax.com/us/donald-trump-io wa-rally-midterms/2026/01/27/id/1243811/](https://www.newsmax.com/us/donald-trump-iowa-rally-midterms/2026/01/27/id/1243811/)",
+      "title": "Trump: U.S. \u2018Not Joke Anymore\u2019 as Midterm Push Begins in Iowa: [https://www. newsmax.com/u..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:7d4df347bf540241",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:43.647834+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115973889645728402"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115973889645728402/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115973889645728402/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115973889645728402",
+      "summary": "Trump says it's 'too late' to halt ballroom project, calls group behind lawsuit 'obstructionists': [https:// justthenews.com/government/whi te-house/trump-says-its-too-late-halt-ballroom-project-calls-group-behind-lawsuit/](https://justthenews.com/government/white-house/trump-say",
+      "title": "Trump says it's 'too late' to halt ballroom project, calls group behind lawsuit 'obstructi..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-01-28",
       "id": "socials:657258329f41e7ed",
@@ -95936,6 +96612,28 @@
       "title": "Together, we will MAKE AMERICA GREAT AGAIN \ud83e\udd85 LET\u2019S GOOO"
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:4e4af9b58c2b1f37",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:49.258781+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115973230205233959"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115973230205233959/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115973230205233959/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115973230205233959",
+      "summary": "The S&P 500 just hit 7000 for the FIRST TIME EVER. AMERICA IS BACK!!!",
+      "title": "The S&P 500 just hit 7000 for the FIRST TIME EVER. AMERICA IS BACK!!!"
+    },
+    {
       "category": "YouTube",
       "date": "2026-01-28",
       "id": "socials:0b121d51fa39bc44",
@@ -95956,6 +96654,28 @@
       "sourceUrl": "https://www.youtube.com/watch?v=lgg_coTm1oY",
       "summary": "- [00:00.480] For the first time ever, we're going to - [00:02.240] give every newborn American child a - [00:04.480] financial stake in the future. Head - [00:06.879] started life and a fair shot at the - [00:10.320] American dream. Something people don't - [00:12.080] talk abou",
       "title": "TRUMP ACCOUNTS \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:74f535ecb58ce524",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:51.107595+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115972940749866695"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115972940749866695/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115972940749866695/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115972940749866695",
+      "summary": "Surprisingly, Mayor Jacob Frey just stated that, \u201cMinneapolis does not, and will not, enforce Federal Immigration Laws.\u201d This is after having had a very good conversation with him. Could somebody in his inner sanctum please explain that this statement is a very serious violation ",
+      "title": "Surprisingly, Mayor Jacob Frey just stated that, \u201cMinneapolis does not, and will not, enfo..."
     },
     {
       "category": "YouTube",
@@ -96036,6 +96756,28 @@
       "title": "Our WHY. Lizbeth Medina Anya Varfolomeev Nikolay Osokin Dacara Thompson Nate Baker Laken R..."
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:481a62649c19a025",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:59.932816+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970604481516528"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970604481516528/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970604481516528/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970604481516528",
+      "summary": "My polling is highest ever. Thank you! [https://www. newsmax.com/newsmax-tv/patrick -allocco-donald-trump-support/2026/01/26/id/1243662/](https://www.newsmax.com/newsmax-tv/patrick-allocco-donald-trump-support/2026/01/26/id/1243662/)",
+      "title": "My polling is highest ever. Thank you! [https://www. newsmax.com/newsmax-tv/patrick -alloc..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-01-28",
       "id": "socials:fbc8f68290ae13d3",
@@ -96070,6 +96812,250 @@
       "title": "MAGA \ud83e\udd1d Barbz \ud83c\uddfa\ud83c\uddf8"
     },
     {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:b7903fdd835b00b9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:52.944367+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115972714460477814"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115972714460477814/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115972714460477814/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115972714460477814",
+      "summary": "It is the same mindset that gave pro football the new and unwatchable \u201cSissy\u201d Kickoff Rule, that made it possible for Bill Belichick to not be elected into the Pro Football Hall of Fame. Both are ridiculous and should be overturned!",
+      "title": "It is the same mindset that gave pro football the new and unwatchable \u201cSissy\u201d Kickoff Rule..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:9c6592fd7cde7a94",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:09.151581+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970009433933657"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970009433933657/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970009433933657/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970009433933657",
+      "summary": "It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young \u201cSTAR\u201d who is running to represent the incredible people of Wisconsin\u2019s 7th Congressional District. Michael is the son-in-law of our GREAT Secretary of Transportation, Sean Duffy, and the wonderful Rachel Camp",
+      "title": "It is my Great Honor to endorse MAGA Warrior, Michael Alfonso, a young \u201cSTAR\u201d who is runni..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:28240341e5c5196c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:16.370212+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115969958489869093.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/60397106ee45a071.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/969/958/489/869/093/original/60397106ee45a071.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/60397106ee45a071.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115969958489869093.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/60397106ee45a071.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115969963682592720"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115969963682592720/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115969963682592720/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115969963682592720",
+      "summary": "It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhaver, a terrific Candidate for Indiana's 23rd State Senate District (which I won by 26 points!). Paula is running against an incompetent and ineffective RINO incumbent named Spencer Deery who,",
+      "title": "It is my Great Honor to endorse MAGA Warrior and Fountain County GOP Chair, Paula Copenhav..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:ff69012a843f14b6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:18.740835+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115969943597305015"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115969943597305015/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115969943597305015/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115969943597305015",
+      "summary": "It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent the fantastic people of Iowa\u2019s 2nd Congressional District. As a former Appointee in my Administration at the U.S. Department of Housing and Urban Development and, as the youngest State Legisla",
+      "title": "It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent th..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:f0fa0441076f276d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:10.984635+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_115969978299565773.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/7f701a83cea2d794.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/115/969/978/299/565/773/original/7f701a83cea2d794.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7f701a83cea2d794.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_115969978299565773.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7f701a83cea2d794.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "115969989606605553"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115969989606605553/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115969989606605553/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115969989606605553",
+      "summary": "It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidate for Indiana's 39th State Senate District (which I won by a whopping 55 points!). Jeff will be a fantastic replacement for RINO Eric Bassler, who may not even run again because Republicans ",
+      "title": "It is my Great Honor to endorse America First Patriot, Jeff Ellington, a terrific Candidat..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:26a0702ba819dcf8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:38.161800+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115975377035585210"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115975377035585210/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115975377035585210/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115975377035585210",
+      "summary": "I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney General for National FRAUD Enforcement, a new Division at the Department of Justice, which I created to catch and stop FRAUDSTERS that have been STEALING from the American People. My Administrat",
+      "title": "I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney Gene..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:ca0deb8304d39c58",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:01.772996+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970244299178641"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970244299178641/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970244299178641/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970244299178641",
+      "summary": "Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the next Governor of the GREAT Commonwealth of Pennsylvania, a very special place to me in that we had a LANDSLIDE Presidential Election Win, just over one year ago, on November 5, 2024! A successf",
+      "title": "Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the nex..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:3ed22c0dfd985e72",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:05.457284+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115970033433071326"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115970033433071326/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115970033433071326/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115970033433071326",
+      "summary": "Highly Respected America First Congressman, Tom Tiffany, is running to be the next Governor of the GREAT State of Wisconsin, a very special place to me in that we had a BIG Presidential Election Win just over one year ago, on November 5, 2024! I endorsed Tom for Congress early an",
+      "title": "Highly Respected America First Congressman, Tom Tiffany, is running to be the next Governo..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:470ab5f100508701",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:47.399594+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115973869614333500"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115973869614333500/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115973869614333500/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115973869614333500",
+      "summary": "Federal government must step up for election integrity: Republicans must stop saying, 'The Democrats won't let us do it': [https://www. washingtontimes.com/news/2026/ jan/27/federal-government-must-step-election-integrity/](https://www.washingtontimes.com/news/2026/jan/27/federal",
+      "title": "Federal government must step up for election integrity: Republicans must stop saying, 'The..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:a6c51bcb20a876f4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:45.561960+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115973871778215181"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115973871778215181/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115973871778215181/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115973871778215181",
+      "summary": "DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [https:// dailycaller.com/2026/01/18/opi nion-one-year-since-taking-office-trump-is-decimating-failed-dc-status-quo-dave-bossie/](https://dailycaller.com/2026/01/18/opinion-one-year-since-taking-",
+      "title": "DAVE BOSSIE: One Year Since Taking Office, Trump Is Decimating Failed DC Status Quo: [http..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-01-28",
       "id": "socials:ddd28feebca22e64",
@@ -96102,6 +97088,28 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7600455423791041806",
       "summary": "A true patriot \ud83d\udc85",
       "title": "A true patriot \ud83d\udc85"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-28",
+      "id": "socials:f69a8270691aa7b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:38:54.784812+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115972658725010644"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/28/115972658725010644/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/28/115972658725010644/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115972658725010644",
+      "summary": "A massive Armada is heading to Iran. It is moving quickly, with great power, enthusiasm, and purpose. It is a larger fleet, headed by the great Aircraft Carrier Abraham Lincoln, than that sent to Venezuela. Like with Venezuela, it is, ready, willing, and able to rapidly fulfill i",
+      "title": "A massive Armada is heading to Iran. It is moving quickly, with great power, enthusiasm, a..."
     },
     {
       "category": "YouTube",
@@ -96268,6 +97276,28 @@
       "sourceUrl": "https://www.youtube.com/watch?v=nvW9R3FmlCI",
       "summary": "- [00:00.160] No tax on tips waitresses here. No tax. - [00:04.000] No more. - [00:05.920] No more. - [00:08.160] No more taxes. Isn't that great? - [00:10.880] >> You know who gave me that idea? - [00:12.240] Waitress. - [00:13.280] >> The waitress said, \"Sir, we shouldn't - [00",
       "title": "President Donald J. Trump meets with locals at the Machine Shed in Iowa. \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-01-27",
+      "id": "socials:8f601be7d4f8257d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-02T14:39:20.581773+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "115968824541011312"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/01/27/115968824541011312/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/01/27/115968824541011312/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/115968824541011312",
+      "summary": "I\u2019m hearing that the Great Country of Iraq might make a very bad choice by reinstalling Nouri al-Maliki as Prime Minister. Last time Maliki was in power, the Country descended into poverty and total chaos. That should not be allowed to happen again. Because of his insane policies",
+      "title": "I\u2019m hearing that the Great Country of Iraq might make a very bad choice by reinstalling No..."
     },
     {
       "category": "TikTok",

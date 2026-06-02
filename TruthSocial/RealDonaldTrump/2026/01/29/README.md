@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-01-29
 
-- Posts: 74
+- Posts: 90
 
 - [23:29 UTC - Based on the fact that Canada has wrongfully, illegally, and steadfastly refused to certif...](115980983698005555/)
   - Source: https://truthsocial.com/@realDonaldTrump/115980983698005555
@@ -224,3 +224,51 @@
 - [02:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976047714526049](115976048596233531/)
   - Source: https://truthsocial.com/@realDonaldTrump/115976048596233531
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976047714526049
+- [02:34 UTC - Truth Social post 115976047714526049](115976047714526049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976047714526049
+  - _No text content captured._
+- [02:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976045485606687](115976046399428716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976046399428716
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976045485606687
+- [02:33 UTC - Truth Social post 115976045485606687](115976045485606687/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976045485606687
+  - _No text content captured._
+- [02:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976043575563522](115976044566734223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976044566734223
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976043575563522
+- [02:33 UTC - Truth Social post 115976043575563522](115976043575563522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976043575563522
+  - _No text content captured._
+- [02:30 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976032770379274](115976033475332960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976033475332960
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976032770379274
+- [02:30 UTC - Truth Social post 115976032770379274](115976032770379274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976032770379274
+  - _No text content captured._
+- [02:29 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fed has not yet complied ...](115976028934729367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976028934729367
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. cnbc.com/2026/01/28/fed-po...
+- [02:29 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to nominate ...](115976028716143583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976028716143583
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to nominate Colin McDonald to serve as the first ever Assistant Attorney General for National FRAUD En...
+- [02:29 UTC - Truth Social post 115976027726655526](115976027726655526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976027726655526
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 115976026734414117](115976026734414117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976026734414117
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 115976025713697412](115976025713697412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976025713697412
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 115976024639514043](115976024639514043/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976024639514043
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 115976023784905122](115976023784905122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976023784905122
+  - _No text content captured._
+- [02:27 UTC - Truth Social post 115976022136360776](115976022136360776/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976022136360776
+  - _No text content captured._
+- [02:23 UTC - Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. c...](115976007252691682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976007252691682
+  - Fed has not yet complied with subpoenas as Powell probe continues: Source: [https://www. cnbc.com/2026/01/28/fed-powell -criminal-subpoenas-pirro.html](https://www.cnbc.com/2026/01...
