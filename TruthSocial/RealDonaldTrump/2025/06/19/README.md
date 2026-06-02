@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2025-06-19
+
+- Posts: 26
+
+- [23:58 UTC - “Lowest Inflation In 4 Years.” Kevin Hassett](114712741765922456/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712741765922456
+  - “Lowest Inflation In 4 Years.” Kevin Hassett
+- [23:44 UTC - [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) Depart of Treasury just ...](114712684243270785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712684243270785
+  - [@ IStandWithTrump47](https://truthsocial.com/@IStandWithTrump47) Depart of Treasury just announced the largest BLUE COLLAR WAGE GROWTH IN OVER 60 YEARS. WOW!
+- [23:42 UTC - [https:// truthsocial.com/@IStandWithTru mp47/114712545280392185](https://truthsocial.com/...](114712677345450404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712677345450404
+  - [https:// truthsocial.com/@IStandWithTru mp47/114712545280392185](https://truthsocial.com/@IStandWithTrump47/114712545280392185)
+- [23:12 UTC - [https:// truthsocial.com/@IStandWithTru mp47/114712550508860920](https://truthsocial.com/...](114712560416441760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712560416441760
+  - [https:// truthsocial.com/@IStandWithTru mp47/114712550508860920](https://truthsocial.com/@IStandWithTrump47/114712550508860920) Thank you!!! DJT
+- [23:07 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114702951355454133](https://tr...](114712540442241175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712540442241175
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114702951355454133](https://truthsocial.com/users/IStandWithTrump47/statuses/114702951355454133) Thanks you so much, but...
+- [23:04 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114704185977774129](https://tr...](114712528194867476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712528194867476
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/114704185977774129](https://truthsocial.com/users/IStandWithTrump47/statuses/114704185977774129)
+- [23:04 UTC - [https:// truthsocial.com/users/ChrisMar tineauAuthor/statuses/114704308722829409](https:/...](114712526244120651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712526244120651
+  - [https:// truthsocial.com/users/ChrisMar tineauAuthor/statuses/114704308722829409](https://truthsocial.com/users/ChrisMartineauAuthor/statuses/114704308722829409)
+- [23:03 UTC - Too many non-working holidays in America. It is costing our Country $BILLIONS OF DOLLARS t...](114712523496772999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712523496772999
+  - Too many non-working holidays in America. It is costing our Country $BILLIONS OF DOLLARS to keep all of these businesses closed. The workers don’t want it either! Soon we’ll end up...
+- [22:38 UTC - Just approved storm damage money for the Great State of Tennessee. Alabama, Arkansas, and ...](114712424314242751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712424314242751
+  - Just approved storm damage money for the Great State of Tennessee. Alabama, Arkansas, and North Carolina among the other states that were previously approved. My honor to do so! DJ...
+- [21:56 UTC - Congratulations to Mya Lesnar on the WIN — Great Genetics!](114712258815748546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712258815748546
+  - Congratulations to Mya Lesnar on the WIN — Great Genetics!
+- [20:37 UTC - “Trump Admin Moves To Bulldoze Biden-Era Mining Rule” [https:// dailycaller.com/2025/06/13...](114711949674671760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711949674671760
+  - “Trump Admin Moves To Bulldoze Biden-Era Mining Rule” [https:// dailycaller.com/2025/06/13/tru mp-admin-moves-to-bulldoze-biden-era-mining-rule/](https://dailycaller.com/2025/06/13...
+- [20:24 UTC - “NAVY RECRUITMENT ‘SKYROCKETS’ UNDER TRUMP’S LEADERSHIP” “The U.S. Navy has achieved its f...](114711899645287088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711899645287088
+  - “NAVY RECRUITMENT ‘SKYROCKETS’ UNDER TRUMP’S LEADERSHIP” “The U.S. Navy has achieved its fiscal year 2025 recruiting goal three months ahead of schedule, positioning the maritime s...
+- [20:14 UTC - Vice President JD Vance: “I'm proud to announce with HHS Secretary Robert F. Kennedy Jr. a...](114711860495264455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711860495264455
+  - Vice President JD Vance: “I'm proud to announce with HHS Secretary Robert F. Kennedy Jr. and NIH Director Jay Bhattacharya that the Trump Administration is launching a program to s...
+- [20:09 UTC - “A union representing nearly 20,000 Border Patrol agents declared its support for Presiden...](114711841928660368/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711841928660368
+  - “A union representing nearly 20,000 Border Patrol agents declared its support for President Donald Trump’s ‘big, beautiful bill,’ hailing the legislation as an ‘investment’ in Amer...
+- [18:19 UTC - Truth Social post 114711408841746658](114711408841746658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711408841746658
+  - _No text content captured._
+- [17:27 UTC - YOU EARNED IT, YOU KEEP IT—NO TAX ON TIPS! [https://www. whitehouse.gov/past-events/pre si...](114711204952191010/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711204952191010
+  - YOU EARNED IT, YOU KEEP IT—NO TAX ON TIPS! [https://www. whitehouse.gov/past-events/pre sident-trump-gives-speech-on-no-tax-on-tips-policy-in-las-vegas/](https://www.whitehouse.gov...
+- [17:24 UTC - Truth Social post 114711191075769627](114711191075769627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711191075769627
+  - _No text content captured._
+- [17:22 UTC - Truth Social post 114711182786951532](114711182786951532/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114711182786951532
+  - _No text content captured._
+- [15:23 UTC - I’ve just signed the Executive Order extending the Deadline for the TikTok closing for 90 ...](114710716146853661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114710716146853661
+  - I’ve just signed the Executive Order extending the Deadline for the TikTok closing for 90 days (September 17, 2025). Thank you for your attention to this matter!
+- [14:04 UTC - “Too Late” Jerome Powell is costing our Country Hundreds of Billions of Dollars. He is tru...](114710405985383754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114710405985383754
+  - “Too Late” Jerome Powell is costing our Country Hundreds of Billions of Dollars. He is truly one of the dumbest, and most destructive, people in Government, and the Fed Board is co...
+- [13:05 UTC - The Wall Street Journal has No Idea what my thoughts are concerning Iran!](114710171329291791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114710171329291791
+  - The Wall Street Journal has No Idea what my thoughts are concerning Iran!
+- [13:02 UTC - The Crooked FoxNews Polls got the Election WRONG, I won by much more than they said I woul...](114710162640808420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114710162640808420
+  - The Crooked FoxNews Polls got the Election WRONG, I won by much more than they said I would, and have been biased against me for years. They are always wrong and negative. It’s why...
+- [03:56 UTC - Too Late—Powell is the WORST. A real dummy, who’s costing America $Billions! “Fannie, Fred...](114708015987777473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114708015987777473
+  - Too Late—Powell is the WORST. A real dummy, who’s costing America $Billions! “Fannie, Freddie regulator: Powell should cut rates or quit” [https://www. nationalmortgagenews.com/new...
+- [01:38 UTC - It is my Great Honor to nominate Chad Meredith to serve as a Judge on the United States Di...](114707471801579663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114707471801579663
+  - It is my Great Honor to nominate Chad Meredith to serve as a Judge on the United States District Court for the Eastern District of Kentucky! Chad is highly experienced and well qua...
+- [01:32 UTC - Truth Social post 114707449386115804](114707449386115804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114707449386115804
+  - _No text content captured._
+- [00:01 UTC - The Senate just passed an incredible Bill that is going to make America the UNDISPUTED Lea...](114707090627277644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114707090627277644
+  - The Senate just passed an incredible Bill that is going to make America the UNDISPUTED Leader in Digital Assets — Nobody will do it better, it is pure GENIUS! Digital Assets are th...

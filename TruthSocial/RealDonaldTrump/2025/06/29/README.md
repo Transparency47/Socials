@@ -1,0 +1,94 @@
+# TruthSocial / RealDonaldTrump / 2025-06-29
+
+- Posts: 30
+
+- [21:27 UTC - For all cost cutting Republicans, of which I am one, REMEMBER, you still have to get reele...](114768769011733248/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768769011733248
+  - For all cost cutting Republicans, of which I am one, REMEMBER, you still have to get reelected. Don’t go too crazy! We will make it all up, times 10, with GROWTH, more than ever be...
+- [21:19 UTC - Great News! “Senator” Thom Tillis will not be seeking reelection.](114768737638722781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768737638722781
+  - Great News! “Senator” Thom Tillis will not be seeking reelection.
+- [20:48 UTC - Great Congressman Greg Steube is 100% correct. An unelected Senate Staffer (Parliamentaria...](114768617892207090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768617892207090
+  - Great Congressman Greg Steube is 100% correct. An unelected Senate Staffer (Parliamentarian), should not be allowed to hurt the Republicans Bill. Wants many fantastic things out. N...
+- [20:28 UTC - [https://www. breitbart.com/clips/2025/06/29 /katie-britt-senate-will-likely-vote-on-the-b...](114768536618072744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768536618072744
+  - [https://www. breitbart.com/clips/2025/06/29 /katie-britt-senate-will-likely-vote-on-the-big-beautiful-bill-on-monday/](https://www.breitbart.com/clips/2025/06/29/katie-britt-senat...
+- [20:27 UTC - [https://www. breitbart.com/politics/2025/06 /29/senate-advancing-bbb-caps-off-remarkable-...](114768534898834945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768534898834945
+  - [https://www. breitbart.com/politics/2025/06 /29/senate-advancing-bbb-caps-off-remarkable-week-of-wins-for-trump/](https://www.breitbart.com/politics/2025/06/29/senate-advancing-bb...
+- [18:18 UTC - [https:// nypost.com/2025/06/29/world-ne ws/israeli-court-postpones-netanyahus-corruption-...](114768026639284921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114768026639284921
+  - [https:// nypost.com/2025/06/29/world-ne ws/israeli-court-postpones-netanyahus-corruption-trial-as-trump-calls-for-case-to-be-dropped/](https://nypost.com/2025/06/29/world-news/isr...
+- [17:39 UTC - Secretary Chris Wright: “The One Big Beautiful Bill gets rid of over a half of trillion do...](114767872591873497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767872591873497
+  - Secretary Chris Wright: “The One Big Beautiful Bill gets rid of over a half of trillion dollars in subsidies that are paid for by American taxpayers, while at the same time reducin...
+- [17:36 UTC - It was my Great Honor to pardon Michael Flynn, a FEARLESS Patriot and Decorated General, w...](114767860718911509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767860718911509
+  - It was my Great Honor to pardon Michael Flynn, a FEARLESS Patriot and Decorated General, who was savagely attacked by the Biden/Obama Deep State, which has now been completely expo...
+- [17:33 UTC - Sen. John Barrasso on the Big Beautiful Bill: “Lower prices, lower taxes, more jobs, bette...](114767851616311700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767851616311700
+  - Sen. John Barrasso on the Big Beautiful Bill: “Lower prices, lower taxes, more jobs, better paying jobs, more money in people’s pockets…safety and prosperity…that’s what this is al...
+- [17:29 UTC - If you look at what Biden did to the border, it was SO BAD—Last month, we had NO PEOPLE CO...](114767834317484874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767834317484874
+  - If you look at what Biden did to the border, it was SO BAD—Last month, we had NO PEOPLE COMING IN, but the bad part is—BIDEN LET IN 21 million people and we have to check those peo...
+- [17:22 UTC - The incredible B-2 pilots will be coming to the White House…They hit a target the size of ...](114767804738090239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767804738090239
+  - The incredible B-2 pilots will be coming to the White House…They hit a target the size of a circle—a little target, they say half the size of a refrigerator door, from 50,000 feet...
+- [17:19 UTC - Regarding Iran's Fordow nuclear facility—They didn't move anything...they didn't think it ...](114767794156725396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767794156725396
+  - Regarding Iran's Fordow nuclear facility—They didn't move anything...they didn't think it was going to be actually doable, what we did…
+- [17:15 UTC - I really think in 6 months, we've taken the Country and turned it around...the numbers are...](114767780661985069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767780661985069
+  - I really think in 6 months, we've taken the Country and turned it around...the numbers are great...it's been an amazing period of time…
+- [17:14 UTC - Sen. Jim Banks on the One Big Beautiful Bill: "Democrats are focused on screwing the worki...](114767776118163077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767776118163077
+  - Sen. Jim Banks on the One Big Beautiful Bill: "Democrats are focused on screwing the working class with higher taxes…President Trump and Republicans are serious about cutting taxes...
+- [17:12 UTC - Sen. Markwayne Mullin on the One Big Beautiful Bill: "What we're doing is cutting the wast...](114767768162238035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767768162238035
+  - Sen. Markwayne Mullin on the One Big Beautiful Bill: "What we're doing is cutting the waste, fraud, and abuse out of the Medicaid system—and make sure it's for the people that it w...
+- [17:11 UTC - Sen. Katie Britt: “At the end of the day, we know we have to deliver results. The presiden...](114767761295983837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767761295983837
+  - Sen. Katie Britt: “At the end of the day, we know we have to deliver results. The president ran on this—He said we’re going to change America for the better!”
+- [17:09 UTC - Truth Social post 114767754126723405](114767754126723405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767754126723405
+  - _No text content captured._
+- [17:08 UTC - “RECORD WEEK OF WINS!”](114767752223466772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767752223466772
+  - “RECORD WEEK OF WINS!”
+- [14:27 UTC - Truth Social post 114767117236713813](114767117236713813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767117236713813
+  - _No text content captured._
+- [14:20 UTC - Thom Tillis has hurt the great people of North Carolina. Even on the catastrophic flooding...](114767092507731112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114767092507731112
+  - Thom Tillis has hurt the great people of North Carolina. Even on the catastrophic flooding, nothing was done to help until I took office. Then a MIRACLE took place! Tillis is a tal...
+- [11:59 UTC - I will be interviewed this morning by Maria Bartiromo on FoxNews at 10:00 A.M. Enjoy!!!](114766537622818019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114766537622818019
+  - I will be interviewed this morning by Maria Bartiromo on FoxNews at 10:00 A.M. Enjoy!!!
+- [05:19 UTC - MAKE THE DEAL IN GAZA. GET THE HOSTAGES BACK!!! DJT](114764965108272159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764965108272159
+  - MAKE THE DEAL IN GAZA. GET THE HOSTAGES BACK!!! DJT
+- [04:28 UTC - MAKE AMERICA GREAT AGAIN!!!](114764764391545815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764764391545815
+  - MAKE AMERICA GREAT AGAIN!!!
+- [04:27 UTC - VERY PROUD OF THE REPUBLICAN PARTY TONIGHT. GOD BLESS YOU ALL!](114764759831258587/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764759831258587
+  - VERY PROUD OF THE REPUBLICAN PARTY TONIGHT. GOD BLESS YOU ALL!
+- [04:25 UTC - Tonight we saw a GREAT VICTORY in the Senate with the “GREAT, BIG, BEAUTIFUL BILL,” but, i...](114764751535867998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764751535867998
+  - Tonight we saw a GREAT VICTORY in the Senate with the “GREAT, BIG, BEAUTIFUL BILL,” but, it wouldn’t have happened without the Fantastic Work of Senator Rick Scott, Senator Mike Le...
+- [03:54 UTC - Did Rand Paul Vote “NO” again tonight? What’s wrong with this guy??? DJT](114764629478113280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764629478113280
+  - Did Rand Paul Vote “NO” again tonight? What’s wrong with this guy??? DJT
+- [02:10 UTC - Republicans must remember that they are fighting against a very evil, corrupt and, in many...](114764221948518343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764221948518343
+  - Republicans must remember that they are fighting against a very evil, corrupt and, in many ways, incompetent (Policywise!) group of people, who would rather see our Country “go dow...
+- [02:01 UTC - Numerous people have come forward wanting to run in the Primary against “Senator Thom” Til...](114764184133829613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764184133829613
+  - Numerous people have come forward wanting to run in the Primary against “Senator Thom” Tillis. I will be meeting with them over the coming weeks, looking for someone who will prope...
+- [01:48 UTC - Looks like Senator Thom Tillis, as usual, wants to tell the Nation that he’s giving them a...](114764131885531801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114764131885531801
+  - Looks like Senator Thom Tillis, as usual, wants to tell the Nation that he’s giving them a 68% Tax Increase, as opposed to the Biggest Tax Cut in American History! At the same time...
+- [00:42 UTC - Jamie: You do such a GREAT job! So tough, so insightful, and so incredible! I watch you al...](114763873373477102/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114763873373477102
+  - Jamie: You do such a GREAT job! So tough, so insightful, and so incredible! I watch you all the time, and you just never miss. Jamie, as President, I just wanted to tell you this,...

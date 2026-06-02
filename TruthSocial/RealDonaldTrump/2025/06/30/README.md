@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2025-06-30
+
+- Posts: 17
+
+- [23:27 UTC - Trump Fragrances are here. They’re called “Victory 45-47” because they’re all about Winnin...](114774905224497775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774905224497775
+  - Trump Fragrances are here. They’re called “Victory 45-47” because they’re all about Winning, Strength, and Success — For men and women. Get yourself a bottle, and don’t forget to g...
+- [22:08 UTC - “U.S. TARIFF REVENUE”](114774593071456633/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774593071456633
+  - “U.S. TARIFF REVENUE”
+- [20:54 UTC - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/345846...](114774302520411681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774302520411681
+  - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/3458466/one-big-beautiful-bill-act-win-for-america-small-businesses/](https://www.washingtonexam...
+- [20:54 UTC - [https://www. breitbart.com/politics/2025/06 /30/eight-ways-the-house-republican-tax-bill-...](114774301361304656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774301361304656
+  - [https://www. breitbart.com/politics/2025/06 /30/eight-ways-the-house-republican-tax-bill-helps-small-businesses/](https://www.breitbart.com/politics/2025/06/30/eight-ways-the-hous...
+- [20:53 UTC - [https:// redstate.com/redstate-guest-ed itorial/2025/06/28/its-time-to-pass-big-beautiful...](114774296970512644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774296970512644
+  - [https:// redstate.com/redstate-guest-ed itorial/2025/06/28/its-time-to-pass-big-beautiful-bill-to-unlock-golden-era-of-american-housing-n2191001](https://redstate.com/redstate-gue...
+- [20:52 UTC - [https://www. foxnews.com/opinion/loeffler-t rumps-one-big-beautiful-bill-could-cement-eco...](114774294097942862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774294097942862
+  - [https://www. foxnews.com/opinion/loeffler-t rumps-one-big-beautiful-bill-could-cement-economic-legacy-decades](https://www.foxnews.com/opinion/loeffler-trumps-one-big-beautiful-bi...
+- [20:52 UTC - [https:// nypost.com/2025/06/28/us-news/ top-us-firefighters-union-rave-in-video-about-tru...](114774293837971162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114774293837971162
+  - [https:// nypost.com/2025/06/28/us-news/ top-us-firefighters-union-rave-in-video-about-trumps-big-beautiful-bill/](https://nypost.com/2025/06/28/us-news/top-us-firefighters-union-r...
+- [18:20 UTC - I apologize for the long wait on the Faith Leaders Conference Call. AT&T ought to get its ...](114773696636727417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114773696636727417
+  - I apologize for the long wait on the Faith Leaders Conference Call. AT&T ought to get its act together. Please pass along the word to the tens of thousands of people who are there....
+- [18:13 UTC - I’m doing a major Conference Call with Faith Leaders from all over the Country, and AT&T i...](114773668772907430/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114773668772907430
+  - I’m doing a major Conference Call with Faith Leaders from all over the Country, and AT&T is totally unable to make their equipment work properly. This is the second time it’s happe...
+- [17:56 UTC - To show people how spoiled Countries have become with respect to the United States of Amer...](114773601644828833/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114773601644828833
+  - To show people how spoiled Countries have become with respect to the United States of America, and I have great respect for Japan, they won’t take our RICE, and yet they have a mas...
+- [17:40 UTC - [https://www. whitehouse.gov/articles/2025/0 6/myth-vs-fact-the-one-big-beautiful-bill/](h...](114773540070062903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114773540070062903
+  - [https://www. whitehouse.gov/articles/2025/0 6/myth-vs-fact-the-one-big-beautiful-bill/](https://www.whitehouse.gov/articles/2025/06/myth-vs-fact-the-one-big-beautiful-bill/)
+- [17:09 UTC - Jerome “Too Late” Powell, and his entire Board, should be ashamed of themselves for allowi...](114773418889111055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114773418889111055
+  - Jerome “Too Late” Powell, and his entire Board, should be ashamed of themselves for allowing this to happen to the United States. They have one of the easiest, yet most prestigious...
+- [13:51 UTC - Not that it really matters, but a terribly untalented writer for badly failing Forbes Maga...](114772638692282162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114772638692282162
+  - Not that it really matters, but a terribly untalented writer for badly failing Forbes Magazine, Dan Alexander, who probably can’t get a meaningful job in the business, has written...
+- [06:43 UTC - Tell phony Democrat Senator Chris Coons that I am not offering Iran ANYTHING, unlike Obama...](114770956840780267/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114770956840780267
+  - Tell phony Democrat Senator Chris Coons that I am not offering Iran ANYTHING, unlike Obama, who paid them $Billions under the stupid “road to a Nuclear Weapon JCPOA (which would no...
+- [06:23 UTC - The Trump Administration has gotten costs down, very substantially, for the American Consu...](114770877118105998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114770877118105998
+  - The Trump Administration has gotten costs down, very substantially, for the American Consumer. There has never been anything like this!
+- [06:19 UTC - ONE GREAT BIG BEAUTIFUL BILL, is moving along nicely! MAKE AMERICA GREAT AGAIN!](114770861740243689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114770861740243689
+  - ONE GREAT BIG BEAUTIFUL BILL, is moving along nicely! MAKE AMERICA GREAT AGAIN!
+- [03:54 UTC - [https:// rumble.com/v6vf0gv-real-americ a-dan-ball-w-david-schoen-62725.html](https://rum...](114770293353577017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114770293353577017
+  - [https:// rumble.com/v6vf0gv-real-americ a-dan-ball-w-david-schoen-62725.html](https://rumble.com/v6vf0gv-real-america-dan-ball-w-david-schoen-62725.html)

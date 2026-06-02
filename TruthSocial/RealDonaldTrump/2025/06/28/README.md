@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-06-28
+
+- Posts: 19
+
+- [23:06 UTC - [https:// nypost.com/2025/06/27/business /top-economist-says-trump-may-have-outsmarted-all...](114763496131667376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114763496131667376
+  - [https:// nypost.com/2025/06/27/business /top-economist-says-trump-may-have-outsmarted-all-of-us-on-tariffs/](https://nypost.com/2025/06/27/business/top-economist-says-trump-may-ha...
+- [22:57 UTC - It is terrible what they are doing in Israel to Bibi Netanyahu. He is a War Hero, and a Pr...](114763460580044614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114763460580044614
+  - It is terrible what they are doing in Israel to Bibi Netanyahu. He is a War Hero, and a Prime Minister who did a fabulous job working with the United States to bring Great Success...
+- [21:14 UTC - Truth Social post 114763055778887361](114763055778887361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114763055778887361
+  - _No text content captured._
+- [18:48 UTC - Truth Social post 114762481024482831](114762481024482831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762481024482831
+  - _No text content captured._
+- [18:47 UTC - Truth Social post 114762477021421963](114762477021421963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762477021421963
+  - _No text content captured._
+- [18:46 UTC - [https:// nypost.com/2025/06/27/opinion/ how-the-big-beautiful-bill-will-lower-energy-cost...](114762473871924598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762473871924598
+  - [https:// nypost.com/2025/06/27/opinion/ how-the-big-beautiful-bill-will-lower-energy-costs-bolster-the-electric-grid-and-unleash-us-prosperity/](https://nypost.com/2025/06/27/opin...
+- [18:45 UTC - “In the past 12 days, some of the most consequential decisions in American history, those ...](114762472242144135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762472242144135
+  - “In the past 12 days, some of the most consequential decisions in American history, those that will affect generations and leave a substantial impact on our culture, economy, and p...
+- [18:44 UTC - [https:// redstate.com/redstate-guest-ed itorial/2025/06/28/its-time-to-pass-big-beautiful...](114762465983310508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762465983310508
+  - [https:// redstate.com/redstate-guest-ed itorial/2025/06/28/its-time-to-pass-big-beautiful-bill-to-unlock-golden-era-of-american-housing-n2191001](https://redstate.com/redstate-gue...
+- [18:43 UTC - [https://www. nola.com/opinions/guest_column s/politics-bill-congress-budget-senate/articl...](114762461905008396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114762461905008396
+  - [https://www. nola.com/opinions/guest_column s/politics-bill-congress-budget-senate/article_c49b5314-c5e5-40f3-a89e-3c188c523b76.html](https://www.nola.com/opinions/guest_columns/p...
+- [13:08 UTC - WHAT GREAT PEOPLE I MET AT NATO, INCLUDING SOME OF THE WORLD’S MOST INCREDIBLE LEADERS!](114761144946167016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114761144946167016
+  - WHAT GREAT PEOPLE I MET AT NATO, INCLUDING SOME OF THE WORLD’S MOST INCREDIBLE LEADERS!
+- [13:05 UTC - WHY ARE THE DEMOCRATS ALWAYS ROOTING AGAINST AMERICA???](114761132349818150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114761132349818150
+  - WHY ARE THE DEMOCRATS ALWAYS ROOTING AGAINST AMERICA???
+- [11:53 UTC - CONGRESSMAN KEVIN KILEY’S, “NO TAX DOLLARS FOR RIOTS” legislation, should be passed immedi...](114760849989232091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114760849989232091
+  - CONGRESSMAN KEVIN KILEY’S, “NO TAX DOLLARS FOR RIOTS” legislation, should be passed immediately. I am hereby instructing my Administration not to pay ANY money to these radicalized...
+- [11:28 UTC - Fox & Friends Weekend is FANTASTIC! Absolutely killing the Fake News Network’s Morning Sho...](114760752117553870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114760752117553870
+  - Fox & Friends Weekend is FANTASTIC! Absolutely killing the Fake News Network’s Morning Shows!
+- [11:08 UTC - [https:// truthsocial.com/@Charliekirk/1 14756615136333719](https://truthsocial.com/@Charl...](114760673221371284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114760673221371284
+  - [https:// truthsocial.com/@Charliekirk/1 14756615136333719](https://truthsocial.com/@Charliekirk/114756615136333719)
+- [11:02 UTC - Gianni Caldwell, a great guy who very successfully works at FoxNews, wrote a fantastic new...](114760648289760105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114760648289760105
+  - Gianni Caldwell, a great guy who very successfully works at FoxNews, wrote a fantastic new book, “THE DAY MY BROTHER WAS MURDERED, My Journey Through America’s Violent Crime Crisis...
+- [03:23 UTC - Truth Social post 114758844902467434](114758844902467434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114758844902467434
+  - _No text content captured._
+- [03:22 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Why would the so-called “...](114758842654141786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114758842654141786
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Why would the so-called “Supreme Leader,” Ayatollah Ali Khamenei, of the war torn Country of Iran, say so blatantly...
+- [02:56 UTC - Where does CNN get its “talent?” Just watched someone named Abby Phillip lecture her audie...](114758739525947038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114758739525947038
+  - Where does CNN get its “talent?” Just watched someone named Abby Phillip lecture her audience on Tariffs and the economy (which is doing record business!). She has absolutely no id...
+- [02:42 UTC - Who in the Fake News Media is the SleazeBag saying that “President Trump wants to give Ira...](114758683463390427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114758683463390427
+  - Who in the Fake News Media is the SleazeBag saying that “President Trump wants to give Iran $30 Billion to build non-military Nuclear facilities.” Never heard of this ridiculous id...

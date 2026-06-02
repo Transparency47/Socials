@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114764131885531801 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114764131885531801 -->
+<!-- date_published: 2025-06-29T01:48:00.426000+00:00 -->
+<!-- date_accessed: 2026-06-02T18:08:04.028266+00:00 -->
+
+# Looks like Senator Thom Tillis, as usual, wants to tell the Nation that he’s giving them a...
+
+Looks like Senator Thom Tillis, as usual, wants to tell the Nation that he’s giving them a 68% Tax Increase, as opposed to the Biggest Tax Cut in American History! At the same time, he is unable to understand the importance of a Debt Extension, which Republicans gave to the Democrats just prior to the November 5th Election, because of its significance, and how important it was for the future of the U.S.A. Sadly, the Democrat Politicians probably won’t reciprocate on a Debt Extension because they’re nasty people who actually hate our Country. Tillis is also willing to throw the very important Tobacco Industry in North Carolina, “out the window,” for reasons nobody seems to understand. He loves China made windmills that will cost a fortune, ruin the landscape, and produce the most expensive Energy on Earth. I can’t believe that the Great People of North Carolina, a State that I love and won all three times, and a State that I just brought back with money, blood, sweat, and tears, from the recent tragic floods, when Sleepy Joe Biden let them DROWN, right up until the end of that Administration, without doing anything — I was given an A+ Rating for the job we did in bringing it back, and Tillis, despite being a Republican, was MISSING IN ACTION — North Carolina will not allow one of their Senators to GRANDSTAND in order to get some publicity for himself, for a possible, but very difficult Re-Election. America wants Reduced Taxes, including NO TAX ON TIPS, NO TAX ON OVERTIME, AND NO TAX ON SOCIAL SECURITY, Interest Deductions on Cars, Border Security, a Strong Military, and a Bill which is GREAT for our Farmers, Manufacturers and, Employment, in general. Thom Tillis is making a BIG MISTAKE for America, and the Wonderful People of North Carolina!

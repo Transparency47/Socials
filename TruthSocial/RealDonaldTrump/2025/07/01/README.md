@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-07-01
+
+- Posts: 24
+
+- [22:25 UTC - My Representatives had a long and productive meeting with the Israelis today on Gaza. Isra...](114780321031653396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780321031653396
+  - My Representatives had a long and productive meeting with the Israelis today on Gaza. Israel has agreed to the necessary conditions to finalize the 60 Day CEASEFIRE, during which t...
+- [21:09 UTC - Truth Social post 114780025072579960](114780025072579960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780025072579960
+  - _No text content captured._
+- [19:07 UTC - [https://www. foxnews.com/video/637510259811 2](https://www.foxnews.com/video/637510259811...](114779542929010696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779542929010696
+  - [https://www. foxnews.com/video/637510259811 2](https://www.foxnews.com/video/6375102598112)
+- [19:06 UTC - Thank you to the Highly Talented Artist, Vanessa Horabuena, and the incredible people of C...](114779538689137058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779538689137058
+  - Thank you to the Highly Talented Artist, Vanessa Horabuena, and the incredible people of Colorado — Now on display in the Colorado State Capitol!
+- [18:30 UTC - Because of the Violence and Criminality I have seen due to the Open Border Policy of Sleep...](114779398795489578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779398795489578
+  - Because of the Violence and Criminality I have seen due to the Open Border Policy of Sleepy Joe Biden, in particular allowing millions of people into our Country who shouldn’t be h...
+- [18:30 UTC - I am thrilled to announce that I will be traveling to one of my favorite places in the Wor...](114779396905472324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779396905472324
+  - I am thrilled to announce that I will be traveling to one of my favorite places in the World, beautiful Iowa, on Thursday, July 3rd, to kick off the very beginning of our exciting...
+- [18:29 UTC - Almost all of our Great Republicans in the United States Senate have passed our “ONE, BIG,...](114779394158777330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779394158777330
+  - Almost all of our Great Republicans in the United States Senate have passed our “ONE, BIG, BEAUTIFUL BILL.” It is no longer a “House Bill” or a “Senate Bill”. It is everyone’s Bill...
+- [18:02 UTC - Truth Social post 114779289473359081](114779289473359081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779289473359081
+  - _No text content captured._
+- [17:30 UTC - RT [@ realamericasvoice](https://truthsocial.com/@realamericasvoice) 👏 ROOM ERUPTS WITH AP...](114779164197396117/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779164197396117
+  - RT [@ realamericasvoice](https://truthsocial.com/@realamericasvoice) 👏 ROOM ERUPTS WITH APPLAUSE THE MOMENT POTUS LEARNS THE OBB HAS PASSED THE SENATE FROM RAV'S [@ BRIAN](https://...
+- [17:24 UTC - [https://www. rsbnetwork.com/video/live-pres ident-trump-visits-alligator-alcatraz-in-ocho...](114779137097096261/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779137097096261
+  - [https://www. rsbnetwork.com/video/live-pres ident-trump-visits-alligator-alcatraz-in-ochopee-fl-7-1-25/](https://www.rsbnetwork.com/video/live-president-trump-visits-alligator-alc...
+- [17:19 UTC - [https://www. youtube.com/live/CW8mA6Q9SyU?s i=PgRlNYrtNOAQbqYd](https://www.youtube.com/l...](114779119066509132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114779119066509132
+  - [https://www. youtube.com/live/CW8mA6Q9SyU?s i=PgRlNYrtNOAQbqYd](https://www.youtube.com/live/CW8mA6Q9SyU?si=PgRlNYrtNOAQbqYd)
+- [13:21 UTC - New poll: Anybody I Endorse beats Thomas Massie of Kentucky by 25 points. Get ready. Massi...](114778184322697237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114778184322697237
+  - New poll: Anybody I Endorse beats Thomas Massie of Kentucky by 25 points. Get ready. Massie is a very bad guy!
+- [13:20 UTC - Truth Social post 114778179254626579](114778179254626579/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114778179254626579
+  - _No text content captured._
+- [11:44 UTC - [https://www. rsbnetwork.com/news/america-is -booming-ge-appliances-to-move-490m-in-produc...](114777801063293439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777801063293439
+  - [https://www. rsbnetwork.com/news/america-is -booming-ge-appliances-to-move-490m-in-production-to-u-s-from-china-add-800-jobs/](https://www.rsbnetwork.com/news/america-is-booming-g...
+- [11:40 UTC - “The One Big Beautiful Bill Slashes Deficits, National Debt While Unleashing Economic Grow...](114777786069997459/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777786069997459
+  - “The One Big Beautiful Bill Slashes Deficits, National Debt While Unleashing Economic Growth” [https://www. whitehouse.gov/fact-sheets/202 5/06/fact-sheet-president-trump-is-delive...
+- [11:37 UTC - [https://www. whitehouse.gov/fact-sheets/202 5/06/fact-sheet-president-trump-is-delivering...](114777774796509499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777774796509499
+  - [https://www. whitehouse.gov/fact-sheets/202 5/06/fact-sheet-president-trump-is-delivering-historic-permitting-wins-across-the-federal-government/](https://www.whitehouse.gov/fact-...
+- [11:35 UTC - “TRUMP’S AGENDA IS IN THE BIG BEAUTIFUL BILL”](114777766182702392/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777766182702392
+  - “TRUMP’S AGENDA IS IN THE BIG BEAUTIFUL BILL”
+- [11:33 UTC - Sen. Eric Schmitt: “We got this Big Beautiful Bill we want to get on his Big Beautiful Des...](114777756807071568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777756807071568
+  - Sen. Eric Schmitt: “We got this Big Beautiful Bill we want to get on his Big Beautiful Desk.”
+- [10:59 UTC - Truth Social post 114777626656240304](114777626656240304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777626656240304
+  - _No text content captured._
+- [10:59 UTC - Truth Social post 114777624950181477](114777624950181477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777624950181477
+  - _No text content captured._
+- [10:59 UTC - Truth Social post 114777624073287476](114777624073287476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777624073287476
+  - _No text content captured._
+- [10:58 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3457999/trump-butler-shootin...](114777621620259152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114777621620259152
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3457999/trump-butler-shooting-book-salena-zito/](https://www.washingtonexaminer.com/news/washington-secrets/3457999/tr...
+- [04:44 UTC - Elon Musk knew, long before he so strongly Endorsed me for President, that I was strongly ...](114776149269773065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114776149269773065
+  - Elon Musk knew, long before he so strongly Endorsed me for President, that I was strongly against the EV Mandate. It is ridiculous, and was always a major part of my campaign. Elec...
+- [04:01 UTC - Republicans, the One Big Beautiful Bill, perhaps the greatest and most important of its ki...](114775981239886599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114775981239886599
+  - Republicans, the One Big Beautiful Bill, perhaps the greatest and most important of its kind in history, gives the largest Tax Cuts and Border Security ever, Jobs by the Millions,...

@@ -1,0 +1,85 @@
+# TruthSocial / RealDonaldTrump / 2025-06-25
+
+- Posts: 27
+
+- [23:51 UTC - Truth Social post 114746687764542304](114746687764542304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114746687764542304
+  - _No text content captured._
+- [22:27 UTC - BREAKING NEWS…I was shocked to hear that the State of Israel, which has just had one of it...](114746355912265245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114746355912265245
+  - BREAKING NEWS…I was shocked to hear that the State of Israel, which has just had one of its Greatest Moments in History, and is strongly led by Bibi Netanyahu, is continuing its ri...
+- [21:13 UTC - Secretary of Defense (War!) Pete Hegseth, together with Military Representatives, will be ...](114746066225069169/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114746066225069169
+  - Secretary of Defense (War!) Pete Hegseth, together with Military Representatives, will be holding a Major News Conference tomorrow morning at 8 A.M. EST at The Pentagon, in order t...
+- [19:13 UTC - I have an idea for the Democrats to bring them back into “play.” After years of being left...](114745592965123786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745592965123786
+  - I have an idea for the Democrats to bring them back into “play.” After years of being left out in the cold, including suffering one of the Greatest Losses in History, the 2024 Pres...
+- [19:10 UTC - It’s finally happened, the Democrats have crossed the line. Zohran Mamdani, a 100% Communi...](114745583467776157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745583467776157
+  - It’s finally happened, the Democrats have crossed the line. Zohran Mamdani, a 100% Communist Lunatic, has just won the Dem Primary, and is on his way to becoming Mayor. We’ve had R...
+- [19:06 UTC - Truth Social post 114745567102049319](114745567102049319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745567102049319
+  - _No text content captured._
+- [18:40 UTC - Why would a Republican want Democrat “mouthpiece,” Voice of America (VOA), to continue? It...](114745462399538854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745462399538854
+  - Why would a Republican want Democrat “mouthpiece,” Voice of America (VOA), to continue? It’s a TOTAL, LEFTWING DISASTER — No Republican should vote for its survival. KILL IT!
+- [18:25 UTC - Natasha Bertrand should be FIRED from CNN! I watched her for three days doing Fake News. S...](114745403809459125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745403809459125
+  - Natasha Bertrand should be FIRED from CNN! I watched her for three days doing Fake News. She should be IMMEDIATELY reprimanded, and then thrown out “like a dog.” She lied on the La...
+- [17:17 UTC - Israel just stated that the Nuclear Sites were OBLITERATED! Thank you to our great B-2 pil...](114745136248099636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745136248099636
+  - Israel just stated that the Nuclear Sites were OBLITERATED! Thank you to our great B-2 pilots, and all others involved!
+- [16:54 UTC - Secretary Marco Rubio: “I know of no president, probably in our modern history—that has so...](114745046560931403/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114745046560931403
+  - Secretary Marco Rubio: “I know of no president, probably in our modern history—that has sought peace more than President Trump has."
+- [16:29 UTC - We just caught the Failing New York Times, working with Fake News CNN, cheating again! The...](114744949125614209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744949125614209
+  - We just caught the Failing New York Times, working with Fake News CNN, cheating again! They tried to demean the great work our B-2 pilots did, and they were wrong in doing so. Thes...
+- [15:44 UTC - Last weekend, the United States successfully carried out a massive precision strike on Ira...](114744772916804667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744772916804667
+  - Last weekend, the United States successfully carried out a massive precision strike on Iran's nuclear enrichment facilities, and it was very, very successful—It was called OBLITERA...
+- [15:38 UTC - We've collected additional intelligence, and we've also spoken to people who have seen the...](114744747346646288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744747346646288
+  - We've collected additional intelligence, and we've also spoken to people who have seen the site—and the site is obliterated!
+- [15:29 UTC - A letter from the Atomic Energy Commission of Israel states that "the devastating U.S. str...](114744712068575344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744712068575344
+  - A letter from the Atomic Energy Commission of Israel states that "the devastating U.S. strike on Fordow destroyed the site's critical infrastructure and rendered the enrichment fac...
+- [14:52 UTC - [https://www. youtube.com/live/VSWSiFwK1o8?s i=XQXdVDj2nVxp_vk4](https://www.youtube.com/l...](114744569319333457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744569319333457
+  - [https://www. youtube.com/live/VSWSiFwK1o8?s i=XQXdVDj2nVxp_vk4](https://www.youtube.com/live/VSWSiFwK1o8?si=XQXdVDj2nVxp_vk4)
+- [13:19 UTC - Truth Social post 114744200351138112](114744200351138112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744200351138112
+  - _No text content captured._
+- [12:35 UTC - Secretary Marco Rubio: “There’s no way Iran comes to the table if somehow nothing had happ...](114744029649091554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744029649091554
+  - Secretary Marco Rubio: “There’s no way Iran comes to the table if somehow nothing had happened—this was COMPLETE & TOTAL OBLITERATION, they’re in bad shape…”
+- [12:30 UTC - This was an unbelievable hit in Iran by genius pilots and genius people in the military…](114744008368646986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114744008368646986
+  - This was an unbelievable hit in Iran by genius pilots and genius people in the military…
+- [12:26 UTC - “TRUMP’S GETTING RESULTS”](114743994574895472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114743994574895472
+  - “TRUMP’S GETTING RESULTS”
+- [09:51 UTC - [https:// youtu.be/qTrXkm_qhu0](https://youtu.be/qTrXkm_qhu0)](114743384482085601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114743384482085601
+  - [https:// youtu.be/qTrXkm_qhu0](https://youtu.be/qTrXkm_qhu0)
+- [09:50 UTC - [https:// youtu.be/0YQuA0GOGq8](https://youtu.be/0YQuA0GOGq8)](114743378204913054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114743378204913054
+  - [https:// youtu.be/0YQuA0GOGq8](https://youtu.be/0YQuA0GOGq8)
+- [09:45 UTC - Truth Social post 114743360807013478](114743360807013478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114743360807013478
+  - _No text content captured._
+- [07:38 UTC - The day begins in the beautiful Netherlands. The King and Queen are beautiful and spectacu...](114742858969719244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114742858969719244
+  - The day begins in the beautiful Netherlands. The King and Queen are beautiful and spectacular people. Our breakfast meeting was great! Now it’s off to the very important NATO Meeti...
+- [01:46 UTC - FAKE NEWS CNN, TOGETHER WITH THE FAILING NEW YORK TIMES, HAVE TEAMED UP IN AN ATTEMPT TO D...](114741478150368433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114741478150368433
+  - FAKE NEWS CNN, TOGETHER WITH THE FAILING NEW YORK TIMES, HAVE TEAMED UP IN AN ATTEMPT TO DEMEAN ONE OF THE MOST SUCCESSFUL MILITARY STRIKES IN HISTORY. THE NUCLEAR SITES IN IRAN AR...
+- [00:31 UTC - Truth Social post 114741181366958597](114741181366958597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114741181366958597
+  - _No text content captured._
+- [00:30 UTC - Steve Witkoff: “We put 12 bunker buster bombs on Fordow. There's no doubt that it breached...](114741178126658442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114741178126658442
+  - Steve Witkoff: “We put 12 bunker buster bombs on Fordow. There's no doubt that it breached the canopy...and there's no doubt that it was OBLITERATED. So, the reporting out there th...
+- [00:28 UTC - Steve Witkoff on the 12 Day War ceasefire: "The proof is in the pudding, no one's shooting...](114741169404332184/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114741169404332184
+  - Steve Witkoff on the 12 Day War ceasefire: "The proof is in the pudding, no one's shooting at each other. It's over.”

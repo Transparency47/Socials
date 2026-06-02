@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-06-26
+
+- Posts: 18
+
+- [23:46 UTC - The One Big Beautiful Bill will Secure our Borders, turbocharge our economy, and bring bac...](114752331258575317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114752331258575317
+  - The One Big Beautiful Bill will Secure our Borders, turbocharge our economy, and bring back the American Dream. This is the ultimate codification of our agenda to very simply Make...
+- [21:52 UTC - Tom Homan: “The Big Beautiful Bill should be nonpartisan...if we get this bill passed, we ...](114751880827969695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751880827969695
+  - Tom Homan: “The Big Beautiful Bill should be nonpartisan...if we get this bill passed, we got more agents on the road, we buy more beds, we get more transportation flights—More age...
+- [21:50 UTC - The One Big Beautiful Bill is also an incredible victory for America's Great Farmers…](114751873580495326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751873580495326
+  - The One Big Beautiful Bill is also an incredible victory for America's Great Farmers…
+- [21:49 UTC - The One Big Beautiful Bill will be the single most important piece of Border Legislation e...](114751867931146571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751867931146571
+  - The One Big Beautiful Bill will be the single most important piece of Border Legislation ever to cross the floor of Congress…
+- [20:25 UTC - [https://www. youtube.com/live/xa20sWp9bWA?s i=mIl7hiqUGJysh-WX](https://www.youtube.com/l...](114751539751229870/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751539751229870
+  - [https://www. youtube.com/live/xa20sWp9bWA?s i=mIl7hiqUGJysh-WX](https://www.youtube.com/live/xa20sWp9bWA?si=mIl7hiqUGJysh-WX)
+- [18:52 UTC - The Democrats are the ones who leaked the information on the PERFECT FLIGHT to the Nuclear...](114751173173020083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751173173020083
+  - The Democrats are the ones who leaked the information on the PERFECT FLIGHT to the Nuclear Sites in Iran. They should be prosecuted!
+- [18:16 UTC - [https://www. thestreet.com/economy/fannie-m ae-chief-pulte-sends-savage-one-word-message-...](114751031072163591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751031072163591
+  - [https://www. thestreet.com/economy/fannie-m ae-chief-pulte-sends-savage-one-word-message-to-feds-powell](https://www.thestreet.com/economy/fannie-mae-chief-pulte-sends-savage-one-...
+- [18:15 UTC - Truth Social post 114751029857834549](114751029857834549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751029857834549
+  - _No text content captured._
+- [18:15 UTC - Truth Social post 114751027095246310](114751027095246310/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751027095246310
+  - _No text content captured._
+- [18:14 UTC - “Rand Paul broke with his own party on border security funding. Then his party broke with ...](114751024493648544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114751024493648544
+  - “Rand Paul broke with his own party on border security funding. Then his party broke with him.” [https://www. politico.com/news/2025/06/20/r and-paul-trump-republican-border-004141...
+- [14:08 UTC - FAKE NEWS REPORTERS FROM CNN & THE NEW YORK TIMES SHOULD BE FIRED, IMMEDIATELY!!! BAD PEOP...](114750055630968441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114750055630968441
+  - FAKE NEWS REPORTERS FROM CNN & THE NEW YORK TIMES SHOULD BE FIRED, IMMEDIATELY!!! BAD PEOPLE WITH EVIL INTENTIONS!!!
+- [13:42 UTC - [https://www. youtube.com/live/1_A-VBixOQk?s i=RATiVptFJfMF-OHg](https://www.youtube.com/l...](114749953886790178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749953886790178
+  - [https://www. youtube.com/live/1_A-VBixOQk?s i=RATiVptFJfMF-OHg](https://www.youtube.com/live/1_A-VBixOQk?si=RATiVptFJfMF-OHg)
+- [13:21 UTC - The NATO Summit yesterday was GREAT, the most unified and productive in history. A wonderf...](114749872416313793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749872416313793
+  - The NATO Summit yesterday was GREAT, the most unified and productive in history. A wonderful day with incredible and caring Leaders. The Agreed to 5% gives NATO real power!
+- [13:13 UTC - The cars and small trucks at the site were those of concrete workers trying to cover up th...](114749839848044904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749839848044904
+  - The cars and small trucks at the site were those of concrete workers trying to cover up the top of the shafts. Nothing was taken out of facility. Would take too long, too dangerous...
+- [13:07 UTC - One of the greatest, most professional, and most “confirming” News Conferences I have ever...](114749815668266552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749815668266552
+  - One of the greatest, most professional, and most “confirming” News Conferences I have ever seen! The Fake News should fire everyone involved in this Witch Hunt, and apologize to ou...
+- [12:09 UTC - News Conference on Now: Watch it!](114749586892496748/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749586892496748
+  - News Conference on Now: Watch it!
+- [12:07 UTC - Rumor is that the Failing New York Times and Fake News CNN will be firing the reporters wh...](114749580476669594/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114749580476669594
+  - Rumor is that the Failing New York Times and Fake News CNN will be firing the reporters who made up the FAKE stories on the Iran Nuclear sites because they got it so wrong. Lets se...
+- [02:10 UTC - FAKE NEWS CNN IS SO DISGUSTING AND INCOMPETENT. SOME OF THE DUMBEST ANCHORS IN THE BUSINES...](114747234182168375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114747234182168375
+  - FAKE NEWS CNN IS SO DISGUSTING AND INCOMPETENT. SOME OF THE DUMBEST ANCHORS IN THE BUSINESS!

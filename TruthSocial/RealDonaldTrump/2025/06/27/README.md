@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2025-06-27
+
+- Posts: 10
+
+- [19:17 UTC - This is such a BIG DAY—A very MONUMENTAL decision!](114756933255040997/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756933255040997
+  - This is such a BIG DAY—A very MONUMENTAL decision!
+- [19:12 UTC - John Yoo: "This is a REALLY BIG WIN for the presidency…because what the court has also res...](114756915403448417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756915403448417
+  - John Yoo: "This is a REALLY BIG WIN for the presidency…because what the court has also respected here is that the President is elected by the American people to carry out an agenda...
+- [18:09 UTC - After many years of decline in our air traffic control system, the One Big Beautiful Bill ...](114756665667022418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756665667022418
+  - After many years of decline in our air traffic control system, the One Big Beautiful Bill will modernize this decrepit relic and give America the best, most advanced air traffic co...
+- [18:01 UTC - The Great Republicans in the U.S. Senate are working all weekend to finish our “ONE, BIG, ...](114756635237936002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756635237936002
+  - The Great Republicans in the U.S. Senate are working all weekend to finish our “ONE, BIG, BEAUTIFUL BILL.” We are on the precipice of delivering Massive General Tax Cuts, NO TAX ON...
+- [17:44 UTC - We have just been informed that Canada, a very difficult Country to TRADE with, including ...](114756567645919781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756567645919781
+  - We have just been informed that Canada, a very difficult Country to TRADE with, including the fact that they have charged our Farmers as much as 400% Tariffs, for years, on Dairy P...
+- [17:09 UTC - Why would the so-called “Supreme Leader,” Ayatollah Ali Khamenei, of the war torn Country ...](114756430889057942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756430889057942
+  - Why would the so-called “Supreme Leader,” Ayatollah Ali Khamenei, of the war torn Country of Iran, say so blatantly and foolishly that he won the War with Israel, when he knows his...
+- [16:00 UTC - Jonathan Turley: "Here the Supreme Court is agreeing with the Trump Administration that th...](114756160140843373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756160140843373
+  - Jonathan Turley: "Here the Supreme Court is agreeing with the Trump Administration that these judges are well past their authority."
+- [15:57 UTC - This morning, the Supreme Court has delivered a monumental victory for the Constitution…](114756147615303122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114756147615303122
+  - This morning, the Supreme Court has delivered a monumental victory for the Constitution…
+- [14:52 UTC - GIANT WIN in the United States Supreme Court! Even the Birthright Citizenship Hoax has bee...](114755893176827573/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114755893176827573
+  - GIANT WIN in the United States Supreme Court! Even the Birthright Citizenship Hoax has been, indirectly, hit hard. It had to do with the babies of slaves (same year!), not the SCAM...
+- [01:50 UTC - [https://www. rsbnetwork.com/news/gop-congre ssman-nominates-president-trump-for-nobel-pea...](114752818834510781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114752818834510781
+  - [https://www. rsbnetwork.com/news/gop-congre ssman-nominates-president-trump-for-nobel-peace-prize-following-iran-israel-ceasefire-deal/](https://www.rsbnetwork.com/news/gop-congre...

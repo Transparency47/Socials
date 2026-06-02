@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-06-22
+
+- Posts: 12
+
+- [21:17 UTC - THANK YOU!](114729094923481176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114729094923481176
+  - THANK YOU!
+- [21:15 UTC - The GREAT B-2 pilots have just landed, safely, in Missouri. Thank you for a job well done!...](114729086320228278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114729086320228278
+  - The GREAT B-2 pilots have just landed, safely, in Missouri. Thank you for a job well done!!! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES!
+- [20:55 UTC - It’s not politically correct to use the term, “Regime Change,” but if the current Iranian ...](114729009239087163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114729009239087163
+  - It’s not politically correct to use the term, “Regime Change,” but if the current Iranian Regime is unable to MAKE IRAN GREAT AGAIN, why wouldn’t there be a Regime change??? MIGA!!...
+- [20:45 UTC - The damage to the Nuclear sites in Iran is said to be “monumental.” The hits were hard and...](114728970221252806/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114728970221252806
+  - The damage to the Nuclear sites in Iran is said to be “monumental.” The hits were hard and accurate. Great skill was shown by our military. Thank you!
+- [17:58 UTC - Congressman Thomas Massie of Kentucky is not MAGA, even though he likes to say he is. Actu...](114728311939211877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114728311939211877
+  - Congressman Thomas Massie of Kentucky is not MAGA, even though he likes to say he is. Actually, MAGA doesn’t want him, doesn’t know him, and doesn’t respect him. He is a negative f...
+- [15:28 UTC - Great unity in the Republican Party, perhaps unity like we have never seen before. Now let...](114727722676535055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114727722676535055
+  - Great unity in the Republican Party, perhaps unity like we have never seen before. Now let’s get the Great, Big, Beautiful Bill done. Our Country is doing GREAT. MAGA!
+- [04:24 UTC - Truth Social post 114725109164151071](114725109164151071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114725109164151071
+  - _No text content captured._
+- [02:35 UTC - ANY RETALIATION BY IRAN AGAINST THE UNITED STATES OF AMERICA WILL BE MET WITH FORCE FAR GR...](114724683855260695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114724683855260695
+  - ANY RETALIATION BY IRAN AGAINST THE UNITED STATES OF AMERICA WILL BE MET WITH FORCE FAR GREATER THAN WHAT WAS WITNESSED TONIGHT. THANK YOU! DONALD J. TRUMP, PRESIDENT OF THE UNITED...
+- [01:55 UTC - [https://www. youtube.com/live/C7eSJ011Muc?s i=i9eRXNQ2sSM_MFUO](https://www.youtube.com/l...](114724524537366662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114724524537366662
+  - [https://www. youtube.com/live/C7eSJ011Muc?s i=i9eRXNQ2sSM_MFUO](https://www.youtube.com/live/C7eSJ011Muc?si=i9eRXNQ2sSM_MFUO)
+- [00:44 UTC - Truth Social post 114724244149807628](114724244149807628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114724244149807628
+  - _No text content captured._
+- [00:13 UTC - I will be giving an Address to the Nation at 10:00 P.M., at the White House, regarding our...](114724124909451419/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114724124909451419
+  - I will be giving an Address to the Nation at 10:00 P.M., at the White House, regarding our very successful military operation in Iran. This is an HISTORIC MOMENT FOR THE UNITED STA...
+- [00:04 UTC - Truth Social post 114724090246507225](114724090246507225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114724090246507225
+  - _No text content captured._

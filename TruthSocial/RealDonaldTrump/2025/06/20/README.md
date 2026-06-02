@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-06-20
+
+- Posts: 22
+
+- [22:38 UTC - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassi...](114718089639649418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114718089639649418
+  - Salena Zito has written a powerful new Book, “BUTLER: The Untold Story of the Near Assassination of Donald Trump and the Fight for America’s Heartland.” Salena was an eyewitness to...
+- [22:38 UTC - Truth Social post 114718088715596050](114718088715596050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114718088715596050
+  - _No text content captured._
+- [22:38 UTC - Truth Social post 114718087565367553](114718087565367553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114718087565367553
+  - _No text content captured._
+- [22:38 UTC - Truth Social post 114718086840288995](114718086840288995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114718086840288995
+  - _No text content captured._
+- [22:34 UTC - Why does Fox News allow failed TV personality Jessica Tarlov to “soil” The Five? Her voice...](114718072561660622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114718072561660622
+  - Why does Fox News allow failed TV personality Jessica Tarlov to “soil” The Five? Her voice, her manner, and above all else, what she says, are a disgrace to television broadcasting...
+- [21:58 UTC - I am very happy to report that I have arranged, along with Secretary of State Marco Rubio,...](114717932061341718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114717932061341718
+  - I am very happy to report that I have arranged, along with Secretary of State Marco Rubio, a wonderful Treaty between the Democratic Republic of the Congo, and the Republic of Rwan...
+- [21:58 UTC - “Too Late” Powell complains about costs, much of which were produced by the Biden Fake “Go...](114717929371967424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114717929371967424
+  - “Too Late” Powell complains about costs, much of which were produced by the Biden Fake “Government,” but he could do the biggest and best job for our Country by helping to lower In...
+- [20:38 UTC - We had a big victory last night against Gavin Newscum in the Court of Appeals, with respec...](114717616770198206/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114717616770198206
+  - We had a big victory last night against Gavin Newscum in the Court of Appeals, with respect to Los Angeles—We saved Los Angeles by having the military go in…
+- [20:30 UTC - Truth Social post 114717583302336697](114717583302336697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114717583302336697
+  - _No text content captured._
+- [19:40 UTC - Many people have been asking what is going on with Harvard University and their largescale...](114717387393069944/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114717387393069944
+  - Many people have been asking what is going on with Harvard University and their largescale improprieties that we have been addressing, looking for a solution. We have been working...
+- [17:12 UTC - “Hourly workers in the service, hospitality, and retail industries overwhelmingly back Pre...](114716806959439316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114716806959439316
+  - “Hourly workers in the service, hospitality, and retail industries overwhelmingly back President Donald J. Trump’s bold NO TAX ON TIPS plan in the One Big Beautiful Bill, according...
+- [17:11 UTC - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/344859...](114716802714504998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114716802714504998
+  - [https://www. washingtonexaminer.com/restori ng-america/faith-freedom-self-reliance/3448590/one-big-beautiful-bill-is-no-brainer-tax-reform/](https://www.washingtonexaminer.com/res...
+- [13:34 UTC - Zero Border crossings for the month for TRUMP, verses 60,000 for Sleepy, Crooked Joe Biden...](114715950565535905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114715950565535905
+  - Zero Border crossings for the month for TRUMP, verses 60,000 for Sleepy, Crooked Joe Biden, a man who lost the 2020 Presidential Election by a “LANDSLIDE!” Biden was grossly incomp...
+- [12:38 UTC - “FBI emails revealed to The Post expose Biden DOJ’s obsession with piling on Trump charges...](114715729826234266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114715729826234266
+  - “FBI emails revealed to The Post expose Biden DOJ’s obsession with piling on Trump charges” [https:// nypost.com/2025/06/18/opinion/ fbi-emails-revealed-to-the-post-expose-biden-do...
+- [12:35 UTC - “INTERNAL FBI EMAILS REVEAL BIDEN DOJ’S OBSESSION WITH TARGETING TRUMP”](114715718665126727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114715718665126727
+  - “INTERNAL FBI EMAILS REVEAL BIDEN DOJ’S OBSESSION WITH TARGETING TRUMP”
+- [03:49 UTC - BIG WIN in the Ninth Circuit Court of Appeals on the President’s core power to call in the...](114713649415085279/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114713649415085279
+  - BIG WIN in the Ninth Circuit Court of Appeals on the President’s core power to call in the National Guard! The Judges obviously realized that Gavin Newscum is incompetent and ill p...
+- [03:19 UTC - Make America Great Again!](114713532776899739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114713532776899739
+  - Make America Great Again!
+- [00:58 UTC - Truth Social post 114712977673357518](114712977673357518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712977673357518
+  - _No text content captured._
+- [00:56 UTC - Marc Thiessen: “Donald Trump is not an isolationist, but I think some of the Republican is...](114712969949709404/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712969949709404
+  - Marc Thiessen: “Donald Trump is not an isolationist, but I think some of the Republican isolationists are suddenly discovering that they're out of touch with the MAGA movement and...
+- [00:55 UTC - Truth Social post 114712966472738148](114712966472738148/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712966472738148
+  - _No text content captured._
+- [00:53 UTC - Truth Social post 114712957163880045](114712957163880045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712957163880045
+  - _No text content captured._
+- [00:53 UTC - Truth Social post 114712955851152888](114712955851152888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114712955851152888
+  - _No text content captured._

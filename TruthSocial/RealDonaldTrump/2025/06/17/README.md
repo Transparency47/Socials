@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-06-17
+
+- Posts: 22
+
+- [23:57 UTC - [https://www. washingtonexaminer.com/opinion /editorials/3443069/one-big-beautiful-bill-be...](114701411241430817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701411241430817
+  - [https://www. washingtonexaminer.com/opinion /editorials/3443069/one-big-beautiful-bill-benefit-for-everyone/](https://www.washingtonexaminer.com/opinion/editorials/3443069/one-big...
+- [23:56 UTC - Truth Social post 114701409149757820](114701409149757820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701409149757820
+  - _No text content captured._
+- [23:54 UTC - [https:// nypost.com/2025/06/17/us-news/ border-agents-didnt-release-a-single-illegal-migr...](114701400971987176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701400971987176
+  - [https:// nypost.com/2025/06/17/us-news/ border-agents-didnt-release-a-single-illegal-migrant-into-the-us-last-month-border-patrol/](https://nypost.com/2025/06/17/us-news/border-ag...
+- [23:54 UTC - [https:// nypost.com/2025/06/17/us-news/ blue-collar-wage-growth-under-trump-sees-largest-...](114701398864689983/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701398864689983
+  - [https:// nypost.com/2025/06/17/us-news/ blue-collar-wage-growth-under-trump-sees-largest-increase-in-nearly-60-years-bessent/](https://nypost.com/2025/06/17/us-news/blue-collar-wa...
+- [23:53 UTC - [https://www. realclearenergy.org/articles/2 025/06/17/a_beautiful_bill_for_a_brighter_fut...](114701397692284275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701397692284275
+  - [https://www. realclearenergy.org/articles/2 025/06/17/a_beautiful_bill_for_a_brighter_future_powering_america_with_american_energy_1116975.html](https://www.realclearenergy.org/ar...
+- [20:50 UTC - “FBI asked spy agencies to destroy intel on alleged China plot to aid Joe Biden in 2020 el...](114700676310138971/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114700676310138971
+  - “FBI asked spy agencies to destroy intel on alleged China plot to aid Joe Biden in 2020 election” [https:// justthenews.com/government/sec urity/fbi-asked-spy-agencies-destroy-inte...
+- [16:22 UTC - UNCONDITIONAL SURRENDER!](114699621000737127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699621000737127
+  - UNCONDITIONAL SURRENDER!
+- [16:19 UTC - We know exactly where the so-called “Supreme Leader” is hiding. He is an easy target, but ...](114699610769479275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699610769479275
+  - We know exactly where the so-called “Supreme Leader” is hiding. He is an easy target, but is safe there - We are not going to take him out (kill!), at least not for now. But we don...
+- [15:55 UTC - We now have complete and total control of the skies over Iran. Iran had good sky trackers ...](114699514822488706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699514822488706
+  - We now have complete and total control of the skies over Iran. Iran had good sky trackers and other defensive equipment, and plenty of it, but it doesn’t compare to American made,...
+- [14:31 UTC - [https:// justthenews.com/accountability /political-ethics/fbi-gives-congress-intel-allege...](114699184830101569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699184830101569
+  - [https:// justthenews.com/accountability /political-ethics/fbi-gives-congress-intel-alleged-chinese-plot-create-fake-mail](https://justthenews.com/accountability/political-ethics/f...
+- [14:07 UTC - Tom Homan: “I really, truly believe President Trump is doing the right thing for the Ameri...](114699093232790756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699093232790756
+  - Tom Homan: “I really, truly believe President Trump is doing the right thing for the American People…THE BIG BEAUTIFUL BILL, we need the Senate to get off their butts, and pass thi...
+- [14:07 UTC - Tom Homan: “When they double down, we triple down! So, the Men and Women of ICE are going ...](114699091687288311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114699091687288311
+  - Tom Homan: “When they double down, we triple down! So, the Men and Women of ICE are going to keep standing up, they’re going to keep doing the job. They’re working for the Greatest...
+- [12:49 UTC - From Mike Huckabee, a Pastor, Politician, Ambassador, and Great Person!](114698784693311065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114698784693311065
+  - From Mike Huckabee, a Pastor, Politician, Ambassador, and Great Person!
+- [09:32 UTC - [https:// truthsocial.com/users/rcale177 6/statuses/114695426090122713](https://truthsocia...](114698009192914684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114698009192914684
+  - [https:// truthsocial.com/users/rcale177 6/statuses/114695426090122713](https://truthsocial.com/users/rcale1776/statuses/114695426090122713)
+- [09:31 UTC - [https:// truthsocial.com/users/DonaldTr umpNW/statuses/114695436093823644](https://truths...](114698006718330841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114698006718330841
+  - [https:// truthsocial.com/users/DonaldTr umpNW/statuses/114695436093823644](https://truthsocial.com/users/DonaldTrumpNW/statuses/114695436093823644)
+- [09:30 UTC - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114695490058559825](https://...](114698002636771178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114698002636771178
+  - [https:// truthsocial.com/users/1776WeTh ePeople1776/statuses/114695490058559825](https://truthsocial.com/users/1776WeThePeople1776/statuses/114695490058559825)
+- [09:28 UTC - [https:// truthsocial.com/users/PatriotU SAMT/statuses/114695438846403953](https://truthso...](114697995690602989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114697995690602989
+  - [https:// truthsocial.com/users/PatriotU SAMT/statuses/114695438846403953](https://truthsocial.com/users/PatriotUSAMT/statuses/114695438846403953)
+- [09:23 UTC - [https:// truthsocial.com/@realDonaldTru mp/114695621681197460](https://truthsocial.com/@r...](114697974907576119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114697974907576119
+  - [https:// truthsocial.com/@realDonaldTru mp/114695621681197460](https://truthsocial.com/@realDonaldTrump/114695621681197460)
+- [09:20 UTC - I have not reached out to Iran for “Peace Talks” in any way, shape, or form. This is just ...](114697964891587065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114697964891587065
+  - I have not reached out to Iran for “Peace Talks” in any way, shape, or form. This is just more HIGHLY FABRICATED, FAKE NEWS! If they want to talk, they know how to reach me. They s...
+- [05:24 UTC - [https:// x.com/deedar416/status/1934812 202663321606?s=12](https://x.com/deedar416/status...](114697034400754530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114697034400754530
+  - [https:// x.com/deedar416/status/1934812 202663321606?s=12](https://x.com/deedar416/status/1934812202663321606?s=12)
+- [05:15 UTC - Publicity seeking President Emmanuel Macron, of France, mistakenly said that I left the G7...](114696999897040583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114696999897040583
+  - Publicity seeking President Emmanuel Macron, of France, mistakenly said that I left the G7 Summit, in Canada, to go back to D.C. to work on a “cease fire” between Israel and Iran....
+- [03:50 UTC - If I didn’t put the National Guard into Los Angeles, the place would be burned down to the...](114696663907260212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114696663907260212
+  - If I didn’t put the National Guard into Los Angeles, the place would be burned down to the ground right now. I did incompetent Governor Gavin Newscum, who doesn’t have a clue, the...

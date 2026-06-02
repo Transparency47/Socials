@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2025-07-03
 
-- Posts: 4
+- Posts: 25
 
 - [23:38 UTC - [https://www. youtube.com/live/GiqKV4O9uEI?s i=AObD976t14m5aE-q](https://www.youtube.com/l...](114791935700403214/)
   - Source: https://truthsocial.com/@realDonaldTrump/114791935700403214
@@ -14,3 +14,66 @@
 - [23:13 UTC - Great job by the Speaker of the House, Mike Johnson, who spearheaded the drive in Congress...](114791836935107927/)
   - Source: https://truthsocial.com/@realDonaldTrump/114791836935107927
   - Great job by the Speaker of the House, Mike Johnson, who spearheaded the drive in Congress for the approval of the “ONE BIG BEAUTIFUL BILL ACT.” He has Great Strength and Wisdom, a...
+- [22:51 UTC - Louisiana: You have an incredible Congressman in Steve Scalise! As House Majority Leader, ...](114791750195814667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791750195814667
+  - Louisiana: You have an incredible Congressman in Steve Scalise! As House Majority Leader, he fought hard to help us secure the Votes for the “ONE BIG BEAUTIFUL BILL ACT” — A HISTOR...
+- [22:29 UTC - Minnesota: You have a GREAT Congressman in Tom Emmer. As Majority Whip, he was instrumenta...](114791663683765056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791663683765056
+  - Minnesota: You have a GREAT Congressman in Tom Emmer. As Majority Whip, he was instrumental in helping us get the “ONE BIG BEAUTIFUL BILL ACT,” the BIGGEST OF ITS KIND ever approve...
+- [22:15 UTC - The Republicans in the House of Representatives have just passed the “ONE BIG BEAUTIFUL BI...](114791607974974301/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791607974974301
+  - The Republicans in the House of Representatives have just passed the “ONE BIG BEAUTIFUL BILL ACT.” Our Party is UNITED like never before and, our Country is “HOT.” We are going to...
+- [21:47 UTC - Truth Social post 114791496747823723](114791496747823723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791496747823723
+  - _No text content captured._
+- [21:43 UTC - RT [@ RSBN](https://truthsocial.com/@RSBN) WATCH: President Trump's First Comments After S...](114791483346166280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791483346166280
+  - RT [@ RSBN](https://truthsocial.com/@RSBN) WATCH: President Trump's First Comments After Speaker Mike Johnson Signs the Biggest Bill Ever. "It's the biggest bill ever signed of thi...
+- [20:19 UTC - Truth Social post 114791151541637373](114791151541637373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114791151541637373
+  - _No text content captured._
+- [17:10 UTC - Truth Social post 114790407771856794](114790407771856794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114790407771856794
+  - _No text content captured._
+- [15:18 UTC - We brought the price of Eggs back to what they were supposed to be. When I took over on Ja...](114789968096151564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789968096151564
+  - We brought the price of Eggs back to what they were supposed to be. When I took over on January 20th, the Fake News was screaming that, “Egg prices have gone through the roof, quad...
+- [14:07 UTC - Truth Social post 114789687287503422](114789687287503422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789687287503422
+  - _No text content captured._
+- [13:45 UTC - “This jobs market is like the Energizer Bunny. Every single time we expect it to run out o...](114789602482197220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789602482197220
+  - “This jobs market is like the Energizer Bunny. Every single time we expect it to run out of steam, it just keeps going and going…”
+- [13:41 UTC - What a great night it was. One of the most consequential Bills ever. The USA is the “HOTTE...](114789587389423371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789587389423371
+  - What a great night it was. One of the most consequential Bills ever. The USA is the “HOTTEST” Country in the World, by far!!!
+- [13:39 UTC - Will be speaking to President Putin of Russia at 10:00 A.M. Thank you!](114789577865630441/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789577865630441
+  - Will be speaking to President Putin of Russia at 10:00 A.M. Thank you!
+- [13:36 UTC - “This is good news; much better than expected." "In our survey, economists were looking fo...](114789565281988967/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789565281988967
+  - “This is good news; much better than expected." "In our survey, economists were looking for [the unemployment rate] to climb up to 4.3 — It comes in at 4.1." "Jobless claims — Much...
+- [13:34 UTC - Job Creators Network CEO Alfredo Ortiz: "Hats off to President Trump because this three-le...](114789557961047863/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789557961047863
+  - Job Creators Network CEO Alfredo Ortiz: "Hats off to President Trump because this three-legged stool of his has really been powerful: The trade, taxes, and regulations together. It...
+- [13:17 UTC - [https:// nypost.com/2025/06/27/us-news/ washington-post-journalist-busted-by-jeanine-pirr...](114789493315915621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114789493315915621
+  - [https:// nypost.com/2025/06/27/us-news/ washington-post-journalist-busted-by-jeanine-pirro-for-allegedly-possessing-child-porn/](https://nypost.com/2025/06/27/us-news/washington-p...
+- [04:45 UTC - FOR REPUBLICANS, THIS SHOULD BE AN EASY YES VOTE. RIDICULOUS!!!](114787479659702125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114787479659702125
+  - FOR REPUBLICANS, THIS SHOULD BE AN EASY YES VOTE. RIDICULOUS!!!
+- [04:12 UTC - Largest Tax Cuts in History and a Booming Economy vs. Biggest Tax Increase in History, and...](114787348610777027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114787348610777027
+  - Largest Tax Cuts in History and a Booming Economy vs. Biggest Tax Increase in History, and a Failed Economy. What are the Republicans waiting for??? What are you trying to prove???...
+- [01:34 UTC - The USA is on track to break every record on GROWTH. Go Republicans, beat the Crooked Demo...](114786727426991370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114786727426991370
+  - The USA is on track to break every record on GROWTH. Go Republicans, beat the Crooked Democrats tonight! PRO-GROWTH Tax Cuts never fail. MAKE AMERICA GREAT AGAIN!
+- [01:22 UTC - Rep. Jamie Raskin, a third rate Democrat politician, has no idea what is in our fantastic ...](114786681954008167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114786681954008167
+  - Rep. Jamie Raskin, a third rate Democrat politician, has no idea what is in our fantastic Tax Cut Bill, nor would he understand it if he did. This DOPE has been consistently losing...
+- [01:12 UTC - It looks like the House is ready to vote tonight. We had GREAT conversations all day, and ...](114786643420185373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114786643420185373
+  - It looks like the House is ready to vote tonight. We had GREAT conversations all day, and the Republican House Majority is UNITED, for the Good of our Country, delivering the Bigge...
+- [00:52 UTC - Truth Social post 114786563254451662](114786563254451662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114786563254451662
+  - _No text content captured._

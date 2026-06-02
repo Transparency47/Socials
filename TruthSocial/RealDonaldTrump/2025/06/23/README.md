@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-06-23
+
+- Posts: 11
+
+- [22:02 UTC - CONGRATULATIONS TO EVERYONE! It has been fully agreed by and between Israel and Iran that ...](114734934153569653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114734934153569653
+  - CONGRATULATIONS TO EVERYONE! It has been fully agreed by and between Israel and Iran that there will be a Complete and Total CEASEFIRE (in approximately 6 hours from now, when Isra...
+- [20:02 UTC - CONGRATULATIONS WORLD, IT’S TIME FOR PEACE!](114734462054466468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114734462054466468
+  - CONGRATULATIONS WORLD, IT’S TIME FOR PEACE!
+- [19:54 UTC - I’d like to thank the Highly Respected Emir of Qatar for all that he has done in seeking P...](114734431573760700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114734431573760700
+  - I’d like to thank the Highly Respected Emir of Qatar for all that he has done in seeking Peace for the Region. Regarding the attack today at the American Base in Qatar, I am please...
+- [19:52 UTC - Iran has officially responded to our Obliteration of their Nuclear Facilities with a very ...](114734424268466099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114734424268466099
+  - Iran has officially responded to our Obliteration of their Nuclear Facilities with a very weak response, which we expected, and have very effectively countered. There have been 14...
+- [18:10 UTC - The sites that we hit in Iran were totally destroyed, and everyone knows it. Only the Fake...](114734021412822365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114734021412822365
+  - The sites that we hit in Iran were totally destroyed, and everyone knows it. Only the Fake News would say anything different in order to try and demean, as much as possible — And e...
+- [15:27 UTC - Did I hear Former President Medvedev, from Russia, casually throwing around the “N word” (...](114733380709403439/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114733380709403439
+  - Did I hear Former President Medvedev, from Russia, casually throwing around the “N word” (Nuclear!), and saying that he and other Countries would supply Nuclear Warheads to Iran? D...
+- [13:41 UTC - GET THIS “BUM” OUT OF OFFICE, ASAP!!!](114732962923492888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114732962923492888
+  - GET THIS “BUM” OUT OF OFFICE, ASAP!!!
+- [13:37 UTC - To The Department of Energy: DRILL, BABY, DRILL!!! And I mean NOW!!!](114732948019406900/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114732948019406900
+  - To The Department of Energy: DRILL, BABY, DRILL!!! And I mean NOW!!!
+- [13:35 UTC - EVERYONE, KEEP OIL PRICES DOWN. I’M WATCHING! YOU’RE PLAYING RIGHT INTO THE HANDS OF THE E...](114732938285152785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114732938285152785
+  - EVERYONE, KEEP OIL PRICES DOWN. I’M WATCHING! YOU’RE PLAYING RIGHT INTO THE HANDS OF THE ENEMY. DON’T DO IT!
+- [13:32 UTC - Great interview, last night, of Congressman August Pfluger - by Trey Gowdy. Very interesti...](114732926352136813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114732926352136813
+  - Great interview, last night, of Congressman August Pfluger - by Trey Gowdy. Very interesting and insightful!
+- [01:55 UTC - Monumental Damage was done to all Nuclear sites in Iran, as shown by satellite images. Obl...](114730186433008075/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114730186433008075
+  - Monumental Damage was done to all Nuclear sites in Iran, as shown by satellite images. Obliteration is an accurate term! The white structure shown is deeply imbedded into the rock,...

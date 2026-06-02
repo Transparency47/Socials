@@ -1,0 +1,115 @@
+# TruthSocial / RealDonaldTrump / 2025-07-02
+
+- Posts: 37
+
+- [22:44 UTC - CONGRATULATIONS AMERICA! The June Border Statistics are in and, once again, they are the L...](114786058561428668/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114786058561428668
+  - CONGRATULATIONS AMERICA! The June Border Statistics are in and, once again, they are the LOWEST RECORDED NUMBERS IN UNITED STATES HISTORY. The U.S. Border Patrol reported ZERO rele...
+- [22:10 UTC - “Too Late” should resign immediately!!! “Fed Chair Should Be Investigated by Congress, FHF...](114785927683921380/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114785927683921380
+  - “Too Late” should resign immediately!!! “Fed Chair Should Be Investigated by Congress, FHFA Head Says” [https://www. bloomberg.com/news/articles/20 25-07-02/fed-s-powell-should-be-...
+- [21:51 UTC - I am very pleased to announce the nomination of Eric Tung to serve as Judge on the United ...](114785849333345518/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114785849333345518
+  - I am very pleased to announce the nomination of Eric Tung to serve as Judge on the United States Court of Appeals for the Ninth Circuit. Eric worked for two of our Country’s Greate...
+- [21:50 UTC - It is my Great Honor to nominate Joshua D. Dunlap, of the Great State of Maine, to serve a...](114785848171178962/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114785848171178962
+  - It is my Great Honor to nominate Joshua D. Dunlap, of the Great State of Maine, to serve as a Judge on the United States Court of Appeals for the First Circuit. Joshua is a seasone...
+- [17:40 UTC - Truth Social post 114784862292392723](114784862292392723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784862292392723
+  - _No text content captured._
+- [17:39 UTC - Truth Social post 114784861453152569](114784861453152569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784861453152569
+  - _No text content captured._
+- [15:21 UTC - Congressman Jason Smith: “We are gonna get the One, Big, Beautiful Bill passed and to your...](114784315952739682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784315952739682
+  - Congressman Jason Smith: “We are gonna get the One, Big, Beautiful Bill passed and to your desk! This will be for the people who don't have lobbyists in this town. The farmers, the...
+- [14:52 UTC - THE ONE BIG BEAUTIFUL DEAL IS ALL ABOUT GROWTH. IF PASSED, AMERICA WILL HAVE AN ECONOMIC R...](114784201810637218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784201810637218
+  - THE ONE BIG BEAUTIFUL DEAL IS ALL ABOUT GROWTH. IF PASSED, AMERICA WILL HAVE AN ECONOMIC RENAISSANCE LIKE NEVER BEFORE. IT IS ALREADY HAPPENING, JUST IN ANTICIPATION OF THE BEAUTIF...
+- [14:44 UTC - It is my Great Honor to announce that I have just made a Trade Deal with the Socialist Rep...](114784170652465525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784170652465525
+  - It is my Great Honor to announce that I have just made a Trade Deal with the Socialist Republic of Vietnam after speaking with To Lam, the Highly Respected General Secretary of the...
+- [14:25 UTC - I just made a Trade Deal with Vietnam. Details to follow!](114784098546698642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114784098546698642
+  - I just made a Trade Deal with Vietnam. Details to follow!
+- [12:58 UTC - EPA Administrator, Lee Zeldin: “Don't you love the fact we have this President who wants t...](114783756690101088/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783756690101088
+  - EPA Administrator, Lee Zeldin: “Don't you love the fact we have this President who wants to unleash American energy dominance? He wants America to be the AI capital of the world, h...
+- [12:57 UTC - [https://www. whitehouse.gov/fact-sheets/202 5/06/fact-sheet-president-trump-is-delivering...](114783749823278284/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783749823278284
+  - [https://www. whitehouse.gov/fact-sheets/202 5/06/fact-sheet-president-trump-is-delivering-historic-permitting-wins-across-the-federal-government/](https://www.whitehouse.gov/fact-...
+- [12:55 UTC - “GAS PRICES FALL” “GAS PRICES FALL BELOW $2.70 ON FIRST COAST” “HOLIDAY GAS PRICES LOWEST ...](114783742318054096/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783742318054096
+  - “GAS PRICES FALL” “GAS PRICES FALL BELOW $2.70 ON FIRST COAST” “HOLIDAY GAS PRICES LOWEST SINCE 2021” “GAS PRICES HIT 4-YEAR-LOW AHEAD OF JULY 4 HOLIDAY WEEKEND”
+- [12:43 UTC - Truth Social post 114783698199784124](114783698199784124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783698199784124
+  - _No text content captured._
+- [12:41 UTC - [https:// truthsocial.com/@realDonaldTru mp/114777801063293439](https://truthsocial.com/@r...](114783689889981827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783689889981827
+  - [https:// truthsocial.com/@realDonaldTru mp/114777801063293439](https://truthsocial.com/@realDonaldTrump/114777801063293439)
+- [12:40 UTC - “FBI blocked probe into alleged 2020 election plot by China because it would ‘contradict D...](114783684148640192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783684148640192
+  - “FBI blocked probe into alleged 2020 election plot by China because it would ‘contradict Director Wray’s testimony’ to Congress, docs show” [https:// nypost.com/2025/07/01/us-news/...
+- [12:38 UTC - As President of the United States, I’m not going to let this Communist Lunatic destroy New...](114783678604446726/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783678604446726
+  - As President of the United States, I’m not going to let this Communist Lunatic destroy New York. Rest assured, I hold all the levers, and have all the cards. I’ll save New York Cit...
+- [12:37 UTC - “Air Force and Space Force Hit 2025 Recruiting Goals 3 Months Early”](114783671713858592/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783671713858592
+  - “Air Force and Space Force Hit 2025 Recruiting Goals 3 Months Early”
+- [12:30 UTC - [https://www. breitbart.com/politics/2025/06 /27/exclusive-37-house-republicans-star-in-vi...](114783645859054796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783645859054796
+  - [https://www. breitbart.com/politics/2025/06 /27/exclusive-37-house-republicans-star-in-video-pushing-trumps-one-big-beautiful-bill/](https://www.breitbart.com/politics/2025/06/27/...
+- [12:28 UTC - [https://www. breitbart.com/politics/2025/07 /01/alligator-alcatraz-boasts-400-security-pe...](114783638945496173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783638945496173
+  - [https://www. breitbart.com/politics/2025/07 /01/alligator-alcatraz-boasts-400-security-personnel-1000-staffers-24-7-ac/](https://www.breitbart.com/politics/2025/07/01/alligator-al...
+- [12:27 UTC - [https://www. breitbart.com/politics/2025/07 /01/watch-look-alligator-alcatraz-illegal-ali...](114783633997783390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783633997783390
+  - [https://www. breitbart.com/politics/2025/07 /01/watch-look-alligator-alcatraz-illegal-alien-detention-facility/](https://www.breitbart.com/politics/2025/07/01/watch-look-alligator...
+- [12:17 UTC - [https:// hannity.com/media-room/hannity -monologue-trumps-big-beautiful-bill-is-packed-wi...](114783595382386647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783595382386647
+  - [https:// hannity.com/media-room/hannity -monologue-trumps-big-beautiful-bill-is-packed-with-massive-wins-for-you-watch/](https://hannity.com/media-room/hannity-monologue-trumps-bi...
+- [12:17 UTC - [https:// hannity.com/media-room/heroes- welcome-pilots-who-bombed-iran-nuclear-facilities...](114783593985272527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783593985272527
+  - [https:// hannity.com/media-room/heroes- welcome-pilots-who-bombed-iran-nuclear-facilities-invited-to-white-house-on-fourth-of-july/](https://hannity.com/media-room/heroes-welcome-...
+- [12:17 UTC - [https:// hannity.com/media-room/open-wi de-for-business-trump-visits-alligator-alcatraz-w...](114783592533922156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783592533922156
+  - [https:// hannity.com/media-room/open-wi de-for-business-trump-visits-alligator-alcatraz-with-ron-desantis-and-kristi-noem-watch/](https://hannity.com/media-room/open-wide-for-busi...
+- [12:13 UTC - Speaker Johnson: “We are at the 1-yard line. We are going to run it right up the middle an...](114783576451483862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783576451483862
+  - Speaker Johnson: “We are at the 1-yard line. We are going to run it right up the middle and score for the American people. Everyone is going to benefit from this bill. It’s the mos...
+- [11:38 UTC - Nobody wants to talk about GROWTH, which will be the primary reason that the Big, Beautifu...](114783440783668830/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114783440783668830
+  - Nobody wants to talk about GROWTH, which will be the primary reason that the Big, Beautiful Bill will be one of the most successful pieces of legislation ever passed. THIS GROWTH h...
+- [01:54 UTC - [https://www. rsbnetwork.com/featured/trump- participates-in-a-roundtable-at-alligator-alc...](114781144562125508/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114781144562125508
+  - [https://www. rsbnetwork.com/featured/trump- participates-in-a-roundtable-at-alligator-alcatraz-which-may-receive-migrants-as-soon-as-wednesday/](https://www.rsbnetwork.com/feature...
+- [01:54 UTC - [https://www. rsbnetwork.com/news/one-big-be autiful-win-trumps-championed-bill-passes-sen...](114781143520909464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114781143520909464
+  - [https://www. rsbnetwork.com/news/one-big-be autiful-win-trumps-championed-bill-passes-senate/](https://www.rsbnetwork.com/news/one-big-beautiful-win-trumps-championed-bill-passes-...
+- [01:24 UTC - Congresswoman Anna Paulina Luna was FANTASTIC tonight on “Jesse Watters Primetime,” as int...](114781024549214188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114781024549214188
+  - Congresswoman Anna Paulina Luna was FANTASTIC tonight on “Jesse Watters Primetime,” as interviewed by fabulous Charlie Hurt. Thank you Anna! Also, thank you to Congressman Byron Do...
+- [00:50 UTC - Truth Social post 114780892058080614](114780892058080614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780892058080614
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 114780890364957542](114780890364957542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780890364957542
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 114780888540597505](114780888540597505/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780888540597505
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 114780887374921465](114780887374921465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780887374921465
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 114780886502258388](114780886502258388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780886502258388
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 114780885674403179](114780885674403179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780885674403179
+  - _No text content captured._
+- [00:48 UTC - Truth Social post 114780884435612639](114780884435612639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780884435612639
+  - _No text content captured._
+- [00:40 UTC - Very sad, Jimmy Swaggart passed away today! He was an incredible Man of Faith and, as our ...](114780855061509303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114780855061509303
+  - Very sad, Jimmy Swaggart passed away today! He was an incredible Man of Faith and, as our Nation’s longest serving Televangelist, inspired millions with his Great Love of God and C...

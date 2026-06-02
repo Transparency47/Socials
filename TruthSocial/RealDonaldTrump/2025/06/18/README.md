@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-06-18
+
+- Posts: 13
+
+- [21:38 UTC - From The National Border Patrol Council: “In May of 2024, the Biden Administration release...](114706526713002613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114706526713002613
+  - From The National Border Patrol Council: “In May of 2024, the Biden Administration released 62,000 illegal aliens into the United States. One year later, and only five months under...
+- [21:31 UTC - Republican Study Committee: “The One Big Beautiful Bill is One Big Beautiful Win for Ameri...](114706499373310642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114706499373310642
+  - Republican Study Committee: “The One Big Beautiful Bill is One Big Beautiful Win for America!”
+- [21:29 UTC - HUD Secretary, Scott Turner: “The One Big Beautiful Bill will give millions of Americans f...](114706490879434850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114706490879434850
+  - HUD Secretary, Scott Turner: “The One Big Beautiful Bill will give millions of Americans financial freedom and unleash America’s Golden Age!”
+- [21:25 UTC - EPA Administrator, Lee Zeldin: “Ramping up domestic energy production is better for our ec...](114706478430915163/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114706478430915163
+  - EPA Administrator, Lee Zeldin: “Ramping up domestic energy production is better for our economy, our environment, and our national security. President Trump’s One, Big, Beautiful B...
+- [21:13 UTC - Chief of U.S. Border Patrol, Michael Banks: “We are breaking record numbers in the right d...](114706428825072905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114706428825072905
+  - Chief of U.S. Border Patrol, Michael Banks: “We are breaking record numbers in the right direction now….” “CBP’S 0 RELEASES IN MAY DOWN FROM 62,000 UNDER BIDEN”
+- [17:55 UTC - Truth Social post 114705649740231464](114705649740231464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114705649740231464
+  - _No text content captured._
+- [17:34 UTC - Truth Social post 114705566690763233](114705566690763233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114705566690763233
+  - _No text content captured._
+- [05:35 UTC - “Great Poll Numbers For Trump!”](114702742182835045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114702742182835045
+  - “Great Poll Numbers For Trump!”
+- [05:35 UTC - [https:// insideradvantage.com/insiderad vantage-national-survey-of-trump-job-performance-...](114702739829821691/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114702739829821691
+  - [https:// insideradvantage.com/insiderad vantage-national-survey-of-trump-job-performance-approve-54-disapprove-44-undecided-2/](https://insideradvantage.com/insideradvantage-natio...
+- [03:09 UTC - [https:// truthsocial.com/@WhiteHouse/11 4700049463664915](https://truthsocial.com/@WhiteH...](114702168289928778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114702168289928778
+  - [https:// truthsocial.com/@WhiteHouse/11 4700049463664915](https://truthsocial.com/@WhiteHouse/114700049463664915)
+- [03:09 UTC - Wow!!! U.S. Wage Growth BEST IN 60 YEARS!](114702166209750030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114702166209750030
+  - Wow!!! U.S. Wage Growth BEST IN 60 YEARS!
+- [00:20 UTC - It is my Great Honor to announce that I will be putting up two beautiful Flag Poles on bot...](114701503810958743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701503810958743
+  - It is my Great Honor to announce that I will be putting up two beautiful Flag Poles on both sides of the White House, North and South Lawns. It is a GIFT from me of something which...
+- [00:00 UTC - Truth Social post 114701422214044562](114701422214044562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114701422214044562
+  - _No text content captured._

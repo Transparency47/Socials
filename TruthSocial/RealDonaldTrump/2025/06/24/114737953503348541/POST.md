@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/114737953503348541 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 114737953503348541 -->
+<!-- date_published: 2025-06-24T10:50:29.970000+00:00 -->
+<!-- date_accessed: 2026-06-02T18:13:20.766590+00:00 -->
+
+# ISRAEL. DO NOT DROP THOSE BOMBS. IF YOU DO IT IS A MAJOR VIOLATION. BRING YOUR PILOTS HOME...
+
+ISRAEL. DO NOT DROP THOSE BOMBS. IF YOU DO IT IS A MAJOR VIOLATION. BRING YOUR PILOTS HOME, NOW! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES

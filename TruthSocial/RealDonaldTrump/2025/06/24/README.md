@@ -1,0 +1,202 @@
+# TruthSocial / RealDonaldTrump / 2025-06-24
+
+- Posts: 66
+
+- [23:40 UTC - Truth Social post 114740983180952850](114740983180952850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114740983180952850
+  - _No text content captured._
+- [23:15 UTC - Truth Social post 114740882500667664](114740882500667664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114740882500667664
+  - _No text content captured._
+- [23:13 UTC - Truth Social post 114740875981392530](114740875981392530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114740875981392530
+  - _No text content captured._
+- [23:01 UTC - Truth Social post 114740828705340285](114740828705340285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114740828705340285
+  - _No text content captured._
+- [22:58 UTC - Truth Social post 114740816878333153](114740816878333153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114740816878333153
+  - _No text content captured._
+- [19:20 UTC - Truth Social post 114739957408281071](114739957408281071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739957408281071
+  - _No text content captured._
+- [19:09 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](114739915726169182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739915726169182
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) greets King Willem-Alexander and Queen Máxi...
+- [18:38 UTC - Truth Social post 114739792982637045](114739792982637045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739792982637045
+  - _No text content captured._
+- [17:16 UTC - Truth Social post 114739471361793215](114739471361793215/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739471361793215
+  - _No text content captured._
+- [16:51 UTC - Truth Social post 114739372442595606](114739372442595606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739372442595606
+  - _No text content captured._
+- [16:38 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-trumps-deployment-national-guard-justifie...](114739323495995026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739323495995026
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-trumps-deployment-national-guard-justified-despite-knee-jerk-judicial-roadblock](https://www.foxnews.com/opinion/gregg-jarrett-trum...
+- [16:36 UTC - [https://www. foxnews.com/opinion/morning-gl ory-trumps-signature-quote-iran-cements-decis...](114739312121087007/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739312121087007
+  - [https://www. foxnews.com/opinion/morning-gl ory-trumps-signature-quote-iran-cements-decisive-success](https://www.foxnews.com/opinion/morning-glory-trumps-signature-quote-iran-cem...
+- [16:01 UTC - Truth Social post 114739178305219367](114739178305219367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739178305219367
+  - _No text content captured._
+- [16:01 UTC - Truth Social post 114739175711345535](114739175711345535/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739175711345535
+  - _No text content captured._
+- [15:55 UTC - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow)](114739151677846524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739151677846524
+  - RT [@ marklevinshow](https://truthsocial.com/@marklevinshow)
+- [15:54 UTC - Truth Social post 114739149404258358](114739149404258358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739149404258358
+  - _No text content captured._
+- [15:53 UTC - Truth Social post 114739145714247895](114739145714247895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739145714247895
+  - _No text content captured._
+- [15:52 UTC - Thank you to Jeb Bush — Very much appreciated!](114739141404923452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739141404923452
+  - Thank you to Jeb Bush — Very much appreciated!
+- [15:50 UTC - Truth Social post 114739131337118197](114739131337118197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739131337118197
+  - _No text content captured._
+- [15:49 UTC - WHAT BIDEN DID TO THIS COUNTRY SHOULD NEVER BE FORGOTTEN!](114739128116733021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739128116733021
+  - WHAT BIDEN DID TO THIS COUNTRY SHOULD NEVER BE FORGOTTEN!
+- [15:38 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-why-trumps-preemptive-strike-irans-nuclea...](114739087470593694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739087470593694
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-why-trumps-preemptive-strike-irans-nuclear-facilities-legal-likely-saved-lives](https://www.foxnews.com/opinion/gregg-jarrett-why-t...
+- [15:23 UTC - The United States is at almost $1 Trillion Dollars — This is incredible! Will be discussin...](114739026668148625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739026668148625
+  - The United States is at almost $1 Trillion Dollars — This is incredible! Will be discussing it soon with the Members of NATO.
+- [15:17 UTC - Both Israel and Iran wanted to stop the War, equally! It was my great honor to Destroy All...](114739003459183372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114739003459183372
+  - Both Israel and Iran wanted to stop the War, equally! It was my great honor to Destroy All Nuclear facilities & capability, and then, STOP THE WAR!
+- [15:10 UTC - Truth Social post 114738976567176291](114738976567176291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738976567176291
+  - _No text content captured._
+- [15:10 UTC - Truth Social post 114738975092316119](114738975092316119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738975092316119
+  - _No text content captured._
+- [15:09 UTC - [https:// nypost.com/2025/06/15/opinion/ nearly-1-million-illegal-immigrants-have-self-dep...](114738973073119786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738973073119786
+  - [https:// nypost.com/2025/06/15/opinion/ nearly-1-million-illegal-immigrants-have-self-deported-under-trump-which-has-led-to-higher-wages/](https://nypost.com/2025/06/15/opinion/ne...
+- [14:50 UTC - [https://www. foxnews.com/politics/trump-nom inated-nobel-peace-prize-over-iran-israel-cea...](114738897443252470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738897443252470
+  - [https://www. foxnews.com/politics/trump-nom inated-nobel-peace-prize-over-iran-israel-ceasefire-deal](https://www.foxnews.com/politics/trump-nominated-nobel-peace-prize-over-iran-...
+- [14:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114738881243326996](114738885130053215/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738885130053215
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114738881243326996
+- [14:46 UTC - Truth Social post 114738881243326996](114738881243326996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738881243326996
+  - _No text content captured._
+- [14:38 UTC - Mike Huckabee has been a GREAT Ambassador to Israel. Thank you Mike!](114738848114096807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738848114096807
+  - Mike Huckabee has been a GREAT Ambassador to Israel. Thank you Mike!
+- [14:07 UTC - Now that we have made PEACE abroad, we must finish the job here at home by passing “THE GR...](114738729363742349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738729363742349
+  - Now that we have made PEACE abroad, we must finish the job here at home by passing “THE GREAT, BIG, BEAUTIFUL BILL,” and getting the Bill to my desk, ASAP. It will be a Historic Pr...
+- [13:56 UTC - Stupid AOC, Alexandria Ocasio-Cortez, one of the “dumbest” people in Congress, is now call...](114738685142153877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738685142153877
+  - Stupid AOC, Alexandria Ocasio-Cortez, one of the “dumbest” people in Congress, is now calling for my Impeachment, despite the fact that the Crooked and Corrupt Democrats have alrea...
+- [13:36 UTC - Truth Social post 114738606142462442](114738606142462442/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738606142462442
+  - _No text content captured._
+- [13:17 UTC - Third Rate Congressman Thomas Massie, of the Great Commonwealth of Kentucky, a phenomenal ...](114738530800440064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738530800440064
+  - Third Rate Congressman Thomas Massie, of the Great Commonwealth of Kentucky, a phenomenal State that I won all three times (by a lot!), keeps talking about how he is going to prote...
+- [13:14 UTC - China can now continue to purchase Oil from Iran. Hopefully, they will be purchasing plent...](114738521695017472/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738521695017472
+  - China can now continue to purchase Oil from Iran. Hopefully, they will be purchasing plenty from the U.S., also. It was my Great Honor to make this happen!
+- [13:14 UTC - Heading to NATO where, at worst, it will be a much calmer period than what I just went thr...](114738519652958827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738519652958827
+  - Heading to NATO where, at worst, it will be a much calmer period than what I just went through with Israel and Iran. I look forward to seeing all of my very good European friends,...
+- [11:34 UTC - IRAN WILL NEVER REBUILD THEIR NUCLEAR FACILITIES!](114738128058193093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738128058193093
+  - IRAN WILL NEVER REBUILD THEIR NUCLEAR FACILITIES!
+- [11:28 UTC - ISRAEL is not going to attack Iran. All planes will turn around and head home, while doing...](114738104789842114/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114738104789842114
+  - ISRAEL is not going to attack Iran. All planes will turn around and head home, while doing a friendly “Plane Wave” to Iran. Nobody will be hurt, the Ceasefire is in effect! Thank y...
+- [10:50 UTC - ISRAEL. DO NOT DROP THOSE BOMBS. IF YOU DO IT IS A MAJOR VIOLATION. BRING YOUR PILOTS HOME...](114737953503348541/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114737953503348541
+  - ISRAEL. DO NOT DROP THOSE BOMBS. IF YOU DO IT IS A MAJOR VIOLATION. BRING YOUR PILOTS HOME, NOW! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES
+- [05:32 UTC - “Too Late” Jerome Powell, of the Fed, will be in Congress today in order to explain, among...](114736702510423652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736702510423652
+  - “Too Late” Jerome Powell, of the Fed, will be in Congress today in order to explain, among other things, why he is refusing to lower the Rate. Europe has had 10 cuts, we have had Z...
+- [05:08 UTC - THE CEASEFIRE IS NOW IN EFFECT. PLEASE DO NOT VIOLATE IT! DONALD J. TRUMP, PRESIDENT OF TH...](114736609585800487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736609585800487
+  - THE CEASEFIRE IS NOW IN EFFECT. PLEASE DO NOT VIOLATE IT! DONALD J. TRUMP, PRESIDENT OF THE UNITED STATES!
+- [03:49 UTC - [https:// truthsocial.com/@realDonaldTru mp/114735810469150929](https://truthsocial.com/@r...](114736296778881586/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736296778881586
+  - [https:// truthsocial.com/@realDonaldTru mp/114735810469150929](https://truthsocial.com/@realDonaldTrump/114735810469150929)
+- [03:47 UTC - We couldn’t have made today’s “deal” without the talent and courage of our great B-2 pilot...](114736289471368584/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736289471368584
+  - We couldn’t have made today’s “deal” without the talent and courage of our great B-2 pilots, and all of those associated with that operation. In a certain and very ironic way, that...
+- [03:36 UTC - [https:// truthsocial.com/@realDonaldTru mp/114735940283355339](https://truthsocial.com/@r...](114736246330286685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736246330286685
+  - [https:// truthsocial.com/@realDonaldTru mp/114735940283355339](https://truthsocial.com/@realDonaldTrump/114735940283355339)
+- [02:46 UTC - Truth Social post 114736051907565431](114736051907565431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736051907565431
+  - _No text content captured._
+- [02:46 UTC - Truth Social post 114736048805846023](114736048805846023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736048805846023
+  - _No text content captured._
+- [02:43 UTC - “Tell Your Senators: Stop the Largest Tax Hike in History. Vote YES on the Working Family ...](114736040152592105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736040152592105
+  - “Tell Your Senators: Stop the Largest Tax Hike in History. Vote YES on the Working Family Tax Cuts.” [https://www. onenationamerica.org/working-f amily-taxcuts/](https://www.onenat...
+- [02:40 UTC - Truth Social post 114736024957445314](114736024957445314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736024957445314
+  - _No text content captured._
+- [02:39 UTC - Nate Friedman: “Deranged leftist paid protestor says she wants to destroy Israel then I ex...](114736023113491933/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114736023113491933
+  - Nate Friedman: “Deranged leftist paid protestor says she wants to destroy Israel then I expose her! Soros is behind it all with proof…”
+- [02:18 UTC - Israel & Iran came to me, almost simultaneously, and said, “PEACE!” I knew the time was NO...](114735940283355339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735940283355339
+  - Israel & Iran came to me, almost simultaneously, and said, “PEACE!” I knew the time was NOW. The World, and the Middle East, are the real WINNERS! Both Nations will see tremendous...
+- [02:11 UTC - Truth Social post 114735911930766741](114735911930766741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735911930766741
+  - _No text content captured._
+- [01:51 UTC - [https:// hannity.com/media-room/post-op -ed-trumps-iran-strike-opens-the-door-to-a-new-er...](114735835825162723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735835825162723
+  - [https:// hannity.com/media-room/post-op -ed-trumps-iran-strike-opens-the-door-to-a-new-era-of-mideast-peace-and-prosperity/](https://hannity.com/media-room/post-op-ed-trumps-iran-...
+- [01:50 UTC - [https:// hannity.com/media-room/trump-a nnounces-ceasefire-israel-and-iran-agree-to-compl...](114735830758023638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735830758023638
+  - [https:// hannity.com/media-room/trump-a nnounces-ceasefire-israel-and-iran-agree-to-complete-and-total-ceasefire/](https://hannity.com/media-room/trump-announces-ceasefire-israel-...
+- [01:49 UTC - Members of Congress are united in their commitment to deliver the One Big Beautiful Bill t...](114735824993417950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735824993417950
+  - Members of Congress are united in their commitment to deliver the One Big Beautiful Bill to you, the American People!
+- [01:45 UTC - Truth Social post 114735810469150929](114735810469150929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735810469150929
+  - _No text content captured._
+- [01:42 UTC - Truth Social post 114735798619882606](114735798619882606/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735798619882606
+  - _No text content captured._
+- [01:28 UTC - Truth Social post 114735744213975258](114735744213975258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735744213975258
+  - _No text content captured._
+- [01:28 UTC - Truth Social post 114735743638036591](114735743638036591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735743638036591
+  - _No text content captured._
+- [01:28 UTC - Truth Social post 114735742707999502](114735742707999502/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735742707999502
+  - _No text content captured._
+- [01:25 UTC - Truth Social post 114735731770965885](114735731770965885/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735731770965885
+  - _No text content captured._
+- [01:25 UTC - Truth Social post 114735730944623949](114735730944623949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735730944623949
+  - _No text content captured._
+- [01:24 UTC - Thanks to Tim Kennedy and Congressman Cory Mills for a great interview with Laura Ingraham...](114735727520741150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735727520741150
+  - Thanks to Tim Kennedy and Congressman Cory Mills for a great interview with Laura Ingraham!!!
+- [01:24 UTC - Truth Social post 114735726300734601](114735726300734601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735726300734601
+  - _No text content captured._
+- [01:05 UTC - Truth Social post 114735654572804189](114735654572804189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735654572804189
+  - _No text content captured._
+- [01:04 UTC - Truth Social post 114735648868565847](114735648868565847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735648868565847
+  - _No text content captured._
+- [01:03 UTC - Truth Social post 114735646669385960](114735646669385960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114735646669385960
+  - _No text content captured._
