@@ -1,7 +1,31 @@
 # TruthSocial / RealDonaldTrump / 2026-06-02
 
-- Posts: 58
+- Posts: 66
 
+- [21:19 UTC - We cannot allow this to happen to the Great State of Texas! President DONALD J. TRUMP](116682597679775684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116682597679775684
+  - We cannot allow this to happen to the Great State of Texas! President DONALD J. TRUMP
+- [18:20 UTC - Illegal Immigrants and Foreign Fraudsters steal BILLIONS every year from the American Taxp...](116681895869016849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116681895869016849
+  - Illegal Immigrants and Foreign Fraudsters steal BILLIONS every year from the American Taxpayer. As part of my Administration’s Historic effort to end FRAUD and reverse MASS ILLEGAL...
+- [18:19 UTC - The Truth the Media Won't Tell You About the Anti-Weaponization Fund: [https:// patriotfre...](116681890532843712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116681890532843712
+  - The Truth the Media Won't Tell You About the Anti-Weaponization Fund: [https:// patriotfreedomproject.substack .com/p/anti-weaponization-fund-the-games-have-already-started](https:...
+- [17:50 UTC - In a sign of Strength and Fortitude, it was just announced that The White House Correspond...](116681778563640531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116681778563640531
+  - In a sign of Strength and Fortitude, it was just announced that The White House Correspondents’ Dinner, which violently ended rather abruptly on April 25th, will be rescheduled to...
+- [17:34 UTC - It was very nice having Flávio Bolsonaro in the Oval Office of the White House — A smart y...](116681714468139916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116681714468139916
+  - It was very nice having Flávio Bolsonaro in the Oval Office of the White House — A smart young man who loves his Country, Brazil, very much! President DONALD J. TRUMP
+- [17:00 UTC - Fake News Reports that the Islamic Republic of Iran, and the U.S.A., stopped speaking a fe...](116681581361115247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116681581361115247
+  - Fake News Reports that the Islamic Republic of Iran, and the U.S.A., stopped speaking a few days ago are false and erroneous. The conversations between us have been going on contin...
+- [13:06 UTC - I am appointing the Director of the Federal Housing Finance Agency, and Chairman of Fannie...](116680659724813616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116680659724813616
+  - I am appointing the Director of the Federal Housing Finance Agency, and Chairman of Fannie Mae/Freddie Mac, William J. Pulte, to serve as Acting Director of National Intelligence....
+- [12:40 UTC - CALIFORNIA: Vote today for Steve Hilton for Governor. He will work with me and the Federal...](116680557948272372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116680557948272372
+  - CALIFORNIA: Vote today for Steve Hilton for Governor. He will work with me and the Federal Government, the money will flow because I have confidence in him (but not any of the othe...
 - [12:32 UTC - Great job by highly decorated Navy Seal Officer, Mike Sarraille, on Jesse Watters. Mike ha...](116680527571740743/)
   - Source: https://truthsocial.com/@realDonaldTrump/116680527571740743
   - Great job by highly decorated Navy Seal Officer, Mike Sarraille, on Jesse Watters. Mike has seen it all, and really gets it. A “tough cookie.” President DJT
