@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-02T21:24:05.172011+00:00",
+  "generatedAt": "2026-06-02T21:31:56.423031+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -607,6 +607,198 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116677966071630284",
       "summary": "Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dakota, a State I love, and WON BIG, in 2016, 2020, and 2024! An America First Patriot, Mike is fighting tirelessly to Advance the Great Values of the Mount Rushmore State, Champion our Farmers",
       "title": "Senator Mike Rounds is an incredibly strong advocate for the wonderful people of South Dak..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:83c5eb4509e27316",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.716777+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061869624744935424.mp4",
+            "remotePath": "archive/x/potus/1YQv2T3Dbw24LL67.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061869624744935424/vid/avc1/1920x1080/1YQv2T3Dbw24LL67.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/1YQv2T3Dbw24LL67.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061869624744935424.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/1YQv2T3Dbw24LL67.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061880121590513880"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061880121590513880/README.md",
+      "path": "X/POTUS/2026/06/02/2061880121590513880/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061880121590513880",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \ud83d\udea8@DrOzCMS announces eligible beneficiaries on Medicare will be allo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:a98038451e3f8b1b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.716922+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061868522645471233.jpg",
+            "remotePath": "archive/x/potus/HJ06f0HXwAE77ad.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ06f0HXwAE77ad.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJ06f0HXwAE77ad.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061868522645471233.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJ06f0HXwAE77ad.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061880106876903803"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061880106876903803/README.md",
+      "path": "X/POTUS/2026/06/02/2061880106876903803/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061880106876903803",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump on the rescheduled White House Correspondents\u2019 Dinn..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:4ec11dffcfbd69dc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.717184+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061806460636442624.jpg",
+            "remotePath": "archive/x/potus/HJ0CDVHXMAAhh8x.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ0CDVHXMAAhh8x.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJ0CDVHXMAAhh8x.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061806460636442624.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJ0CDVHXMAAhh8x.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061807321617994182"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061807321617994182/README.md",
+      "path": "X/POTUS/2026/06/02/2061807321617994182/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061807321617994182",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: NEW ANALYSIS CONFIRMS: The Working Families Tax Cuts just delivered..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:88fde8b108a54672",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.717055+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061859039080829098"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061859039080829098/README.md",
+      "path": "X/POTUS/2026/06/02/2061859039080829098/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061859039080829098",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: CMS Administrator Dr. Mehmet Oz Briefs Members of the Media, Jun. 2..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:2bcb457a5ae801f8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.716404+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061881025546862592.mp4",
+            "remotePath": "archive/x/potus/7NzIxVVvo3WpnzMq.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061881025546862592/vid/avc1/1280x720/7NzIxVVvo3WpnzMq.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/7NzIxVVvo3WpnzMq.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061881025546862592.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/7NzIxVVvo3WpnzMq.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061911191941714292"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061911191941714292/README.md",
+      "path": "X/POTUS/2026/06/02/2061911191941714292/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061911191941714292",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: America First. https://t.co/AL9Cq4lR5Y"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:6ef5790dbd5cab7f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.716633+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061887449949736960.jpg",
+            "remotePath": "archive/x/potus/HJ1Lth0XEAAw8S7.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ1Lth0XEAAw8S7.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJ1Lth0XEAAw8S7.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061887449949736960.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJ1Lth0XEAAw8S7.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061894297436275061"
+      },
+      "metadataPath": "X/POTUS/2026/06/02/2061894297436275061/README.md",
+      "path": "X/POTUS/2026/06/02/2061894297436275061/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061894297436275061",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"As I told Iran, 'It\u2019s time, one way or another, for you to make a ..."
     },
     {
       "category": "TruthSocial",
@@ -1890,6 +2082,40 @@
     {
       "category": "X",
       "date": "2026-06-01",
+      "id": "socials:357f32bbd9d27f0d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.717320+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061532835828146176.jpg",
+            "remotePath": "archive/x/potus/HJwJMRRXIAAD-TE.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJwJMRRXIAAD-TE.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJwJMRRXIAAD-TE.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061532835828146176.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJwJMRRXIAAD-TE.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061543482234126477"
+      },
+      "metadataPath": "X/POTUS/2026/06/01/2061543482234126477/README.md",
+      "path": "X/POTUS/2026/06/01/2061543482234126477/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061543482234126477",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Decline was a choice. Not anymore. In just 14 months, @POTUS has re..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
       "id": "socials:5d6d89ae89ef1d27",
       "kind": "social_post",
       "metadata": {
@@ -2750,6 +2976,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116669918375459254",
       "summary": "The DronePort at the White House Ballroom will be, perhaps, the most sophisticated anywhere in the World! It will safeguard our Nation\u2019s Capital, Washington, D.C., long into the future. Judge Richard Leon should stop playing games with America\u2019s Security! If anything happens, he ",
       "title": "The DronePort at the White House Ballroom will be, perhaps, the most sophisticated anywher..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:65de3eb2543fc002",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.717872+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061148776996196352.mp4",
+            "remotePath": "archive/x/potus/ZvovHC4qpASc2_6Z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061148776996196352/vid/avc1/4096x2160/ZvovHC4qpASc2_6Z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/ZvovHC4qpASc2_6Z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061148776996196352.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/ZvovHC4qpASc2_6Z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061151679156806088"
+      },
+      "metadataPath": "X/POTUS/2026/05/31/2061151679156806088/README.md",
+      "path": "X/POTUS/2026/05/31/2061151679156806088/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061151679156806088",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Never Forget: Democrats are the party that REFUSED to stand for pro..."
     },
     {
       "category": "TruthSocial",
@@ -5029,6 +5289,40 @@
       "title": "See, they have a Ballroom \u2014 It\u2019s called The Great Hall of China! It\u2019s very large and beaut..."
     },
     {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:77b75a915e95267f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718013+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060722882498473987.jpg",
+            "remotePath": "archive/x/potus/HJkoix_XMAM0OzG.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJkoix_XMAM0OzG.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJkoix_XMAM0OzG.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060722882498473987.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJkoix_XMAM0OzG.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060730501493584373"
+      },
+      "metadataPath": "X/POTUS/2026/05/30/2060730501493584373/README.md",
+      "path": "X/POTUS/2026/05/30/2060730501493584373/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060730501493584373",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"President Trump remains in excellent health... Cognitive and physi..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-30",
       "id": "socials:3e3e1e4c292372e8",
@@ -5677,6 +5971,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116659958155235373",
       "summary": "Shockingly, a Judge appointed by Barack Hussein Obama, Christopher Cooper, ruled that The Kennedy Center, which was going to close in early July for largescale renovations and construction due to years of neglect, decay, and poor maintenance, and which was to be transformed by th",
       "title": "Shockingly, a Judge appointed by Barack Hussein Obama, Christopher Cooper, ruled that The ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-29",
+      "id": "socials:da5a73b02100b955",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718135+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060374918668132355.jpg",
+            "remotePath": "archive/x/potus/HJfsEntWoAMb3bb.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJfsEntWoAMb3bb.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJfsEntWoAMb3bb.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060374918668132355.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJfsEntWoAMb3bb.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060380190081949887"
+      },
+      "metadataPath": "X/POTUS/2026/05/29/2060380190081949887/README.md",
+      "path": "X/POTUS/2026/05/29/2060380190081949887/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060380190081949887",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"Iran must agree that they will never have a Nuclear Weapon or Bomb..."
     },
     {
       "category": "TruthSocial",
@@ -6427,6 +6755,266 @@
       "title": "Secretary of the Treasury Scott Bessent Briefs Members of the Media, May 28, 2026"
     },
     {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:2b94be2277c5a71c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718601+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060048983536353762"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060048983536353762/README.md",
+      "path": "X/POTUS/2026/05/28/2060048983536353762/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060048983536353762",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \ud83d\udcf2 https://t.co/aaHh9hPu7m \ud83d\udcf2 https://t.co/v6AOEgSnlG"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:a747fc5bb93798f9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718714+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060028398706065414.jpg",
+            "remotePath": "archive/x/potus/HJaw6gQXgAYCCLu.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJaw6gQXgAYCCLu.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJaw6gQXgAYCCLu.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060028398706065414.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJaw6gQXgAYCCLu.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060048371981651982"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060048371981651982/README.md",
+      "path": "X/POTUS/2026/05/28/2060048371981651982/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060048371981651982",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Weekly reminder: Decline is a choice. https://t.co/LeFsjFqg3R"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:429656c6198c560b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718265+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060127004016394246.mp4",
+            "remotePath": "archive/x/potus/LXwZ7CcqWa_l4_SO.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060127004016394246/vid/avc1/3840x2160/LXwZ7CcqWa_l4_SO.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/LXwZ7CcqWa_l4_SO.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060127004016394246.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/LXwZ7CcqWa_l4_SO.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060132258216833352"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060132258216833352/README.md",
+      "path": "X/POTUS/2026/05/28/2060132258216833352/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060132258216833352",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: They walk among us. https://t.co/7HysdUuNVM https://t.co/PkUHcT7igg"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:5a93fc81425a15cd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718821+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060020300629032962.jpg",
+            "remotePath": "archive/x/potus/HJapjIkWQAIgyLK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJapjIkWQAIgyLK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJapjIkWQAIgyLK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060020300629032962.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJapjIkWQAIgyLK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060031006371946839"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060031006371946839/README.md",
+      "path": "X/POTUS/2026/05/28/2060031006371946839/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060031006371946839",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Minnesota\u2019s fraud schemes are finished. The days of scamming Americ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:96062a084d73eb24",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718495+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060106919550042112.mp4",
+            "remotePath": "archive/x/potus/ySiKi_3Ts_FvkS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060106919550042112/vid/avc1/1280x720/_-ySiKi_3Ts_FvkS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/ySiKi_3Ts_FvkS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060106919550042112.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/ySiKi_3Ts_FvkS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060110821271687461"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060110821271687461/README.md",
+      "path": "X/POTUS/2026/05/28/2060110821271687461/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060110821271687461",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Loading\u2026 tonight. \ud83d\udc40 https://t.co/3gU6ISfci6"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:47f2353bc84d662c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758036+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2059991516353814528.mp4",
+            "remotePath": "archive/x/potus/3ZhYaXCE6DpbBEqt.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2059991516353814528/vid/avc1/864x1080/3ZhYaXCE6DpbBEqt.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/3ZhYaXCE6DpbBEqt.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2059991516353814528.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/3ZhYaXCE6DpbBEqt.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060000062424429012"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060000062424429012/README.md",
+      "path": "X/POTUS/2026/05/28/2060000062424429012/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060000062424429012",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: IT\u2019S HERE! \ud83c\uddfa\ud83c\uddf8\ud83d\udcb0 The Trump Accounts App has officially launched. Now ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:86991061dae7a97e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718377+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060119048604565510.jpg",
+            "remotePath": "archive/x/potus/HJcDXBcXQAYRdNN.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJcDXBcXQAYRdNN.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJcDXBcXQAYRdNN.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060119048604565510.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJcDXBcXQAYRdNN.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060122298212835522"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060122298212835522/README.md",
+      "path": "X/POTUS/2026/05/28/2060122298212835522/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060122298212835522",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Don't zoom into the t-shirt. https://t.co/Y2nRIsaoqF"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-28",
+      "id": "socials:534e15891f49e46f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:28:08.718921+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060013265242009610.mp4",
+            "remotePath": "archive/x/potus/pq9ym9KSlOAjLXpU.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060013265242009610/vid/avc1/3840x2160/pq9ym9KSlOAjLXpU.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/pq9ym9KSlOAjLXpU.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060013265242009610.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/pq9ym9KSlOAjLXpU.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060030962453434601"
+      },
+      "metadataPath": "X/POTUS/2026/05/28/2060030962453434601/README.md",
+      "path": "X/POTUS/2026/05/28/2060030962453434601/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2060030962453434601",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Are you listening? \ud83d\udd0a https://t.co/Q4h4LDkaU5"
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-28",
       "id": "socials:c4986284be57c480",
@@ -7159,6 +7747,300 @@
       "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7644364072405847327",
       "summary": "THEY ARE DUMOCRATS",
       "title": "THEY ARE DUMOCRATS"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:c239210ee0e2f132",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758535+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059742353015873544.jpg",
+            "remotePath": "archive/x/potus/HJWswdBWoAghJC5.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJWswdBWoAghJC5.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJWswdBWoAghJC5.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059742353015873544.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJWswdBWoAghJC5.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059759107280711690"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059759107280711690/README.md",
+      "path": "X/POTUS/2026/05/27/2059759107280711690/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059759107280711690",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: There's no place like the United States of America. https://t.co/Qp..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:c598b7b8f701b622",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759411+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059359643747454976.png",
+            "remotePath": "archive/x/potus/HJRQr15XkAA0YFW.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJRQr15XkAA0YFW.png",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJRQr15XkAA0YFW.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059359643747454976.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJRQr15XkAA0YFW.png"
+        ],
+        "platform": "X",
+        "postId": "2059424890285949062"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059424890285949062/README.md",
+      "path": "X/POTUS/2026/05/27/2059424890285949062/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059424890285949062",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The Dumacrats and Media have totally LOST THEIR WAY. https://t.co/U..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:5a2954c753841e82",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758654+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2059708256231018499.mp4",
+            "remotePath": "archive/x/potus/PmbpQfvNCbyEgHi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2059708256231018499/vid/avc1/864x1080/PmbpQfvNCbyEgHi_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/PmbpQfvNCbyEgHi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2059708256231018499.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/PmbpQfvNCbyEgHi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2059717863557022109"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059717863557022109/README.md",
+      "path": "X/POTUS/2026/05/27/2059717863557022109/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059717863557022109",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: TOMORROW: Trump Accounts, on your phone. \ud83d\udcb0 Manage everything. Watch..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:348ff043152e95ed",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759260+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059389326253826048.jpg",
+            "remotePath": "archive/x/potus/HJRrrl2XIAAC6zM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJRrrl2XIAAC6zM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJRrrl2XIAAC6zM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059389326253826048.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJRrrl2XIAAC6zM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059424907105030477"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059424907105030477/README.md",
+      "path": "X/POTUS/2026/05/27/2059424907105030477/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059424907105030477",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Since @WHFraudTF launched, BILLIONS have already been recovered in ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:f8785267bca522cc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758907+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059642722525298690.png",
+            "remotePath": "archive/x/potus/HJVSJMhWwAILh9y.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJVSJMhWwAILh9y.png",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJVSJMhWwAILh9y.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059642722525298690.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJVSJMhWwAILh9y.png"
+        ],
+        "platform": "X",
+        "postId": "2059646477664727124"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059646477664727124/README.md",
+      "path": "X/POTUS/2026/05/27/2059646477664727124/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059646477664727124",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Real. https://t.co/RJDJCDzRMo"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:84570449c6a3df42",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759046+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2059445286284464135.mp4",
+            "remotePath": "archive/x/potus/T1E4nSExeG3NlUqF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2059445286284464135/vid/avc1/4096x2160/T1E4nSExeG3NlUqF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/T1E4nSExeG3NlUqF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2059445286284464135.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/T1E4nSExeG3NlUqF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2059448020370878830"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059448020370878830/README.md",
+      "path": "X/POTUS/2026/05/27/2059448020370878830/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059448020370878830",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Promises Made, Promises Kept: Bold Historic Steps to Lower Drug Pri..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:642ef590231cbe09",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758788+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2059667760473362833"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059667760473362833/README.md",
+      "path": "X/POTUS/2026/05/27/2059667760473362833/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059667760473362833",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Participates in a Cabinet Meeting, May 27, 2026 htt..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:79facd7418ef8f99",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758413+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059730825122324480.jpg",
+            "remotePath": "archive/x/potus/HJWiRcRWoAAP0De.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJWiRcRWoAAP0De.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJWiRcRWoAAP0De.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059730825122324480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJWiRcRWoAAP0De.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059759125806940507"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059759125806940507/README.md",
+      "path": "X/POTUS/2026/05/27/2059759125806940507/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059759125806940507",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Achieving more than most administrations do in 8 years. \ud83c\uddfa\ud83c\uddf8 12th Cab..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-27",
+      "id": "socials:1442da4c608d1828",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.758268+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059755779838623750.jpg",
+            "remotePath": "archive/x/potus/HJW49_1WwAYEcTf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJW49_1WwAYEcTf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJW49_1WwAYEcTf.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059755779838623750.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJW49_1WwAYEcTf.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059759138658242860"
+      },
+      "metadataPath": "X/POTUS/2026/05/27/2059759138658242860/README.md",
+      "path": "X/POTUS/2026/05/27/2059759138658242860/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059759138658242860",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: 45/47 \ud83c\uddfa\ud83c\uddf8 https://t.co/zpfrJKG0tM"
     },
     {
       "category": "TruthSocial",
@@ -8117,6 +8999,108 @@
       "title": "Teen takeover in Chicago. Five officers badly hurt. Mayor and Governor are terrible. Shoul..."
     },
     {
+      "category": "X",
+      "date": "2026-05-26",
+      "id": "socials:c22b7fc2537a2b96",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759662+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059304825838243840.jpg",
+            "remotePath": "archive/x/potus/HJQe1BRWEAA7zKJ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJQe1BRWEAA7zKJ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJQe1BRWEAA7zKJ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059304825838243840.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJQe1BRWEAA7zKJ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059321350553031123"
+      },
+      "metadataPath": "X/POTUS/2026/05/26/2059321350553031123/README.md",
+      "path": "X/POTUS/2026/05/26/2059321350553031123/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059321350553031123",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The mission is simple. https://t.co/JU0uGi45sn"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-26",
+      "id": "socials:39b008250190901e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759540+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059319823868284928.jpg",
+            "remotePath": "archive/x/potus/HJQseBSW0AA6wDc.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJQseBSW0AA6wDc.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJQseBSW0AA6wDc.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059319823868284928.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJQseBSW0AA6wDc.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059321373831410049"
+      },
+      "metadataPath": "X/POTUS/2026/05/26/2059321373831410049/README.md",
+      "path": "X/POTUS/2026/05/26/2059321373831410049/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059321373831410049",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: PERFECT BILL OF HEALTH! \ud83c\uddfa\ud83c\uddf8 https://t.co/nxyEpQF0Qe"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-26",
+      "id": "socials:0ce27b3cedde4414",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759796+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2059281064174944256.mp4",
+            "remotePath": "archive/x/potus/7iS7fL_OndE8r4V2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2059281064174944256/vid/avc1/4096x2160/7iS7fL_OndE8r4V2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/7iS7fL_OndE8r4V2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2059281064174944256.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/7iS7fL_OndE8r4V2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2059283050685448406"
+      },
+      "metadataPath": "X/POTUS/2026/05/26/2059283050685448406/README.md",
+      "path": "X/POTUS/2026/05/26/2059283050685448406/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059283050685448406",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: MORE JOBS. MORE INVESTMENTS. MORE FACTORIES. \"We're doing everythin..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-05-26",
       "id": "socials:86ddd6f418b4aa73",
@@ -8742,6 +9726,142 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116634733606433479",
       "summary": "The Dumocrats have BAD POLICY, AND BAD CANDIDATES. Other than that, they are doing quite well! President DJT",
       "title": "The Dumocrats have BAD POLICY, AND BAD CANDIDATES. Other than that, they are doing quite w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-25",
+      "id": "socials:a8f296162a4a0067",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.760320+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2059034451057737728.mp4",
+            "remotePath": "archive/x/potus/dw4AKXugqa-MiHSl.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2059034451057737728/vid/avc1/3840x1594/dw4AKXugqa-MiHSl.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/dw4AKXugqa-MiHSl.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2059034451057737728.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/dw4AKXugqa-MiHSl.mp4"
+        ],
+        "platform": "X",
+        "postId": "2059047264325132745"
+      },
+      "metadataPath": "X/POTUS/2026/05/25/2059047264325132745/README.md",
+      "path": "X/POTUS/2026/05/25/2059047264325132745/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059047264325132745",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \u201cThose who died so our nation could live. And we do intend with all..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-25",
+      "id": "socials:391b4ed48a20f16f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.760058+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059057644569047040.jpg",
+            "remotePath": "archive/x/potus/HJM-BLSXMAABlBO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJM-BLSXMAABlBO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJM-BLSXMAABlBO.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059057644569047040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJM-BLSXMAABlBO.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059058444737376661"
+      },
+      "metadataPath": "X/POTUS/2026/05/25/2059058444737376661/README.md",
+      "path": "X/POTUS/2026/05/25/2059058444737376661/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059058444737376661",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: We remember the fallen. We honor their sacrifice. We cherish the fr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-25",
+      "id": "socials:df34144c2435213a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.759933+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059057886563631105.jpg",
+            "remotePath": "archive/x/potus/HJM-PQyXgAEHqe7.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJM-PQyXgAEHqe7.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJM-PQyXgAEHqe7.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059057886563631105.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJM-PQyXgAEHqe7.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059058500404203536"
+      },
+      "metadataPath": "X/POTUS/2026/05/25/2059058500404203536/README.md",
+      "path": "X/POTUS/2026/05/25/2059058500404203536/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059058500404203536",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Memorial Day 2026 | Arlington National Cemetery \ud83c\uddfa\ud83c\uddf8 https://t.co/xRe..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-25",
+      "id": "socials:58129cbe86072031",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-02T21:29:56.760185+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2059028537567289344.jpg",
+            "remotePath": "archive/x/potus/HJMji7QXIAAEXjt.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJMji7QXIAAEXjt.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HJMji7QXIAAEXjt.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2059028537567289344.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HJMji7QXIAAEXjt.jpg"
+        ],
+        "platform": "X",
+        "postId": "2059047293857214809"
+      },
+      "metadataPath": "X/POTUS/2026/05/25/2059047293857214809/README.md",
+      "path": "X/POTUS/2026/05/25/2059047293857214809/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2059047293857214809",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Home of the free because of the brave. \ud83c\uddfa\ud83c\uddf8 https://t.co/etiBrNnXut"
     },
     {
       "category": "TruthSocial",

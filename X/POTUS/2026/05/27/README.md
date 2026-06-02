@@ -1,0 +1,31 @@
+# X / POTUS / 2026-05-27
+
+- Posts: 9
+
+- [22:10 UTC - Repost of @WhiteHouse: 45/47 🇺🇸 https://t.co/zpfrJKG0tM](2059759138658242860/)
+  - Source: https://x.com/POTUS/status/2059759138658242860
+  - Repost of @WhiteHouse: 45/47 🇺🇸 https://t.co/zpfrJKG0tM
+- [22:10 UTC - Repost of @WhiteHouse: Achieving more than most administrations do in 8 years. 🇺🇸 12th Cab...](2059759125806940507/)
+  - Source: https://x.com/POTUS/status/2059759125806940507
+  - Repost of @WhiteHouse: Achieving more than most administrations do in 8 years. 🇺🇸 12th Cabinet Meeting highlights: 💊Prescription drug prices plummeting 🏠Rents falling 📈Business inv...
+- [22:10 UTC - Repost of @WhiteHouse: There's no place like the United States of America. https://t.co/Qp...](2059759107280711690/)
+  - Source: https://x.com/POTUS/status/2059759107280711690
+  - Repost of @WhiteHouse: There's no place like the United States of America. https://t.co/Qp4UjPm3uV
+- [19:26 UTC - Repost of @WhiteHouse: TOMORROW: Trump Accounts, on your phone. 💰 Manage everything. Watch...](2059717863557022109/)
+  - Source: https://x.com/POTUS/status/2059717863557022109
+  - Repost of @WhiteHouse: TOMORROW: Trump Accounts, on your phone. 💰 Manage everything. Watch the growth. All in ONE place. https://t.co/xkdCuNqm2y
+- [16:07 UTC - Repost of @WhiteHouse: President Trump Participates in a Cabinet Meeting, May 27, 2026 htt...](2059667760473362833/)
+  - Source: https://x.com/POTUS/status/2059667760473362833
+  - Repost of @WhiteHouse: President Trump Participates in a Cabinet Meeting, May 27, 2026 https://t.co/0nkOcTVnBj
+- [14:42 UTC - Repost of @WhiteHouse: Real. https://t.co/RJDJCDzRMo](2059646477664727124/)
+  - Source: https://x.com/POTUS/status/2059646477664727124
+  - Repost of @WhiteHouse: Real. https://t.co/RJDJCDzRMo
+- [01:34 UTC - Repost of @WhiteHouse: Promises Made, Promises Kept: Bold Historic Steps to Lower Drug Pri...](2059448020370878830/)
+  - Source: https://x.com/POTUS/status/2059448020370878830
+  - Repost of @WhiteHouse: Promises Made, Promises Kept: Bold Historic Steps to Lower Drug Prices for American Patients Find your medication today 💊➡️ https://t.co/ZUEHHV4KFp https://t...
+- [00:02 UTC - Repost of @WhiteHouse: Since @WHFraudTF launched, BILLIONS have already been recovered in ...](2059424907105030477/)
+  - Source: https://x.com/POTUS/status/2059424907105030477
+  - Repost of @WhiteHouse: Since @WHFraudTF launched, BILLIONS have already been recovered in taxpayer dollars. The Trump Admin will keep fighting until every fraud scheme is exposed,...
+- [00:02 UTC - Repost of @WhiteHouse: The Dumacrats and Media have totally LOST THEIR WAY. https://t.co/U...](2059424890285949062/)
+  - Source: https://x.com/POTUS/status/2059424890285949062
+  - Repost of @WhiteHouse: The Dumacrats and Media have totally LOST THEIR WAY. https://t.co/UkpT7ejYXS

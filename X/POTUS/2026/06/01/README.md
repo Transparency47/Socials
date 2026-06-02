@@ -1,7 +1,10 @@
 # X / POTUS / 2026-06-01
 
-- Posts: 3
+- Posts: 4
 
+- [20:20 UTC - Repost of @WhiteHouse: Decline was a choice. Not anymore. In just 14 months, @POTUS has re...](2061543482234126477/)
+  - Source: https://x.com/POTUS/status/2061543482234126477
+  - Repost of @WhiteHouse: Decline was a choice. Not anymore. In just 14 months, @POTUS has restored our nation’s capital, making it SAFE &amp; BEAUTIFUL. 🧵 500+ instances of graffiti...
 - [17:49 UTC - Repost of @WhiteHouse: "I had a very productive call with Prime Minister Bibi Netanyahu, o...](2061505418002657292/)
   - Source: https://x.com/POTUS/status/2061505418002657292
   - Repost of @WhiteHouse: "I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut... I had a very good call with Hezbo...
