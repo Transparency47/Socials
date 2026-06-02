@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-04-21
+
+- Posts: 19
+
+- [23:47 UTC - [https:// youtu.be/iZbNjqRt7SQ](https://youtu.be/iZbNjqRt7SQ)](114378621352936756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378621352936756
+  - [https:// youtu.be/iZbNjqRt7SQ](https://youtu.be/iZbNjqRt7SQ)
+- [23:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114376885670148752](114378612000951275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378612000951275
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114376885670148752
+- [23:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114376893912687059](114378608726090688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378608726090688
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114376893912687059
+- [22:44 UTC - This is the man, Kilmar Abrego Garcia, that the Courts are trying to save from being depor...](114378371957337028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378371957337028
+  - This is the man, Kilmar Abrego Garcia, that the Courts are trying to save from being deported? He was supposed to be, according to the Judge and the Democrats, a wonderful father f...
+- [22:30 UTC - How can Biden let Millions of Criminals into our Country, totally unchecked and unvetted, ...](114378317437182332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378317437182332
+  - How can Biden let Millions of Criminals into our Country, totally unchecked and unvetted, with no Legal authority to do so, yet I, in order to make up for this assault to our Natio...
+- [22:22 UTC - I like Karrin Taylor Robson of Arizona a lot, and when she asked me to Endorse her, with n...](114378287917044509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378287917044509
+  - I like Karrin Taylor Robson of Arizona a lot, and when she asked me to Endorse her, with nobody else running, I Endorsed her, and was happy to do so. When Andy Biggs decided to run...
+- [21:18 UTC - Steve Daines is a Great Man, and TREMENDOUS Senator, representing the Fantastic People of ...](114378035138845295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114378035138845295
+  - Steve Daines is a Great Man, and TREMENDOUS Senator, representing the Fantastic People of Montana. I love Montana, won every one of my Races there by a landslide, and would only re...
+- [21:08 UTC - I’m doing what I was elected to do, remove criminals from our Country, but the Courts don’...](114377993807616549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114377993807616549
+  - I’m doing what I was elected to do, remove criminals from our Country, but the Courts don’t seem to want me to do that. My team is fantastic, doing an incredible job, however, they...
+- [21:07 UTC - The Radical Left is only good at “playing the Ref,” they are always threatening our Judges...](114377993063822566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114377993063822566
+  - The Radical Left is only good at “playing the Ref,” they are always threatening our Judges. This is Judicial Intimidation, and should be AGAINST THE LAW!
+- [20:14 UTC - I agree with the people in Massapequa, Long Island, who are fighting furiously to keep the...](114377783798888758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114377783798888758
+  - I agree with the people in Massapequa, Long Island, who are fighting furiously to keep the Massapequa Chiefs logo on their Teams and School. Forcing them to change the name, after...
+- [19:58 UTC - Melania and I will be going to the funeral of Pope Francis, in Rome. We look forward to be...](114377719179993844/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114377719179993844
+  - Melania and I will be going to the funeral of Pope Francis, in Rome. We look forward to being there!
+- [16:28 UTC - Truth Social post 114376893912687059](114376893912687059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376893912687059
+  - _No text content captured._
+- [16:27 UTC - Truth Social post 114376889221575864](114376889221575864/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376889221575864
+  - _No text content captured._
+- [16:26 UTC - Truth Social post 114376885670148752](114376885670148752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376885670148752
+  - _No text content captured._
+- [16:25 UTC - Truth Social post 114376882313646233](114376882313646233/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376882313646233
+  - _No text content captured._
+- [15:27 UTC - As a mark of respect for the memory of His Holiness Pope Francis, by the authority vested ...](114376655236734018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376655236734018
+  - As a mark of respect for the memory of His Holiness Pope Francis, by the authority vested in me as President of the United States by the Constitution and the laws of the United Sta...
+- [13:41 UTC - “Preemptive Cuts” in Interest Rates are being called for by many. With Energy Costs way do...](114376239725335883/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114376239725335883
+  - “Preemptive Cuts” in Interest Rates are being called for by many. With Energy Costs way down, food prices (including Biden’s egg disaster!) substantially lower, and most other “thi...
+- [11:59 UTC - Rest in Peace Pope Francis! May God Bless him and all who loved him!](114375838396081159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114375838396081159
+  - Rest in Peace Pope Francis! May God Bless him and all who loved him!
+- [01:52 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https:// youtu.be/yShWIx...](114373452037226239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114373452037226239
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) [https:// youtu.be/yShWIx51ECg](https://youtu.be/yShWIx51ECg)

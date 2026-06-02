@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-04-20
+
+- Posts: 11
+
+- [21:13 UTC - NON-TARIFF CHEATING: 1. Currency Manipulation 2. VATs which act as tariffs and export subs...](114372351596556599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372351596556599
+  - NON-TARIFF CHEATING: 1. Currency Manipulation 2. VATs which act as tariffs and export subsidies 3. Dumping Below Cost 4. Export Subsidies and Other Govt. Subsidies 5. Protective Ag...
+- [21:12 UTC - Since our announcement of LIBERATION DAY, many World Leaders and Business Executives have ...](114372350378942829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372350378942829
+  - Since our announcement of LIBERATION DAY, many World Leaders and Business Executives have come to me asking for relief from Tariffs. It’s good to see that the World knows we are se...
+- [21:12 UTC - Radical Lunatic Democrats and their Comrades in the Fake News Media are falsely making Kil...](114372349322321344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372349322321344
+  - Radical Lunatic Democrats and their Comrades in the Fake News Media are falsely making Kilmar Armando Abrego Garcia out to be a very sweet and innocent person, which is a total, bl...
+- [21:12 UTC - Truth Social post 114372347598074716](114372347598074716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372347598074716
+  - _No text content captured._
+- [21:11 UTC - "A Gift from China" in the Pacific Ocean!](114372346621591852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372346621591852
+  - "A Gift from China" in the Pacific Ocean!
+- [21:10 UTC - “Grassley Challenges Senate Democrats’ Promotion of Unchecked Judicial Power, Vows to Take...](114372341048664554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372341048664554
+  - “Grassley Challenges Senate Democrats’ Promotion of Unchecked Judicial Power, Vows to Take Legislative Action” [https://www. judiciary.senate.gov/press/rep /releases/grassley-chall...
+- [21:09 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Senate Judiciary Chairman Chuck Grassle...](114372339084689484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372339084689484
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) 🚨 Senate Judiciary Chairman Chuck Grassley is drafting crucial legislation to rein in activist judges sabotaging the presidency: “T...
+- [21:09 UTC - [https://www. westernjournal.com/250-years-a go-alexander-hamilton-told-us-handle-anti-tru...](114372338696867674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372338696867674
+  - [https://www. westernjournal.com/250-years-a go-alexander-hamilton-told-us-handle-anti-trump-judges/](https://www.westernjournal.com/250-years-ago-alexander-hamilton-told-us-handle...
+- [21:09 UTC - [https:// justthenews.com/accountability /political-ethics/hldjudge-who-blocked-trump-depo...](114372338103077911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372338103077911
+  - [https:// justthenews.com/accountability /political-ethics/hldjudge-who-blocked-trump-deportations-took-junket-event-anti](https://justthenews.com/accountability/political-ethics/h...
+- [21:09 UTC - [https://www. foxnews.com/opinion/scotus-mus t-stop-leftist-judges-lawless-sabotage-trump-...](114372337297485239/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372337297485239
+  - [https://www. foxnews.com/opinion/scotus-mus t-stop-leftist-judges-lawless-sabotage-trump-agenda](https://www.foxnews.com/opinion/scotus-must-stop-leftist-judges-lawless-sabotage-t...
+- [20:41 UTC - [https:// youtu.be/yShWIx51ECg](https://youtu.be/yShWIx51ECg)](114372225670509642/)
+  - Source: https://truthsocial.com/@realDonaldTrump/114372225670509642
+  - [https:// youtu.be/yShWIx51ECg](https://youtu.be/yShWIx51ECg)
