@@ -1,6 +1,6 @@
 # X / POTUS / 2026-05-25
 
-- Posts: 5
+- Posts: 7
 
 - [23:46 UTC - Repost of @WhiteHouse: Memorial Day 2026 | Arlington National Cemetery 🇺🇸 https://t.co/xRe...](2059058500404203536/)
   - Source: https://x.com/POTUS/status/2059058500404203536
@@ -17,3 +17,9 @@
 - [17:03 UTC - Repost of @WhiteHouse: Around the world we unite in solemn observance. God bless our falle...](2058957038948933837/)
   - Source: https://x.com/POTUS/status/2058957038948933837
   - Repost of @WhiteHouse: Around the world we unite in solemn observance. God bless our fallen heroes. 🇺🇸
+- [16:12 UTC - Repost of @WhiteHouse: President Trump Participates in a Wreath Laying Ceremony and Delive...](2058944259005301099/)
+  - Source: https://x.com/POTUS/status/2058944259005301099
+  - Repost of @WhiteHouse: President Trump Participates in a Wreath Laying Ceremony and Delivers Remarks https://t.co/sfdXLY643p
+- [13:57 UTC - Repost of @WhiteHouse: Memorial Day is a solemn reminder that freedom is never free. Today...](2058910430584553696/)
+  - Source: https://x.com/POTUS/status/2058910430584553696
+  - Repost of @WhiteHouse: Memorial Day is a solemn reminder that freedom is never free. Today, we honor the brave American heroes who made the ultimate sacrifice for our nation. We re...

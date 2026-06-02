@@ -1,0 +1,31 @@
+# X / POTUS / 2026-05-20
+
+- Posts: 9
+
+- [20:15 UTC - Repost of @WhiteHouse: Sounds of Summer at the Congressional Picnic: Postcard Edition 🇺🇸 h...](2057193517391176112/)
+  - Source: https://x.com/POTUS/status/2057193517391176112
+  - Repost of @WhiteHouse: Sounds of Summer at the Congressional Picnic: Postcard Edition 🇺🇸 https://t.co/ord5mGwHSW
+- [19:46 UTC - Repost of @WhiteHouse: KIND REMINDER: If you’re here illegally, please self-deport via the...](2057186278496485782/)
+  - Source: https://x.com/POTUS/status/2057186278496485782
+  - Repost of @WhiteHouse: KIND REMINDER: If you’re here illegally, please self-deport via the CBP Home App &amp; get a free trip home. 🤗
+- [18:03 UTC - Repost of @WhiteHouse: 🚨 The U.S. Department of Justice announces the indictment of Raúl C...](2057160221600981165/)
+  - Source: https://x.com/POTUS/status/2057160221600981165
+  - Repost of @WhiteHouse: 🚨 The U.S. Department of Justice announces the indictment of Raúl Castro and several others with conspiracy to kill U.S. nationals. THE UNITED STATES &amp; P...
+- [17:11 UTC - Repost of @WhiteHouse: Bad day to be a panican. https://t.co/czhd8PkJzR](2057147138551714137/)
+  - Source: https://x.com/POTUS/status/2057147138551714137
+  - Repost of @WhiteHouse: Bad day to be a panican. https://t.co/czhd8PkJzR
+- [17:11 UTC - Repost of @WhiteHouse: "The heroes of the United States Coast Guard have lived by a creed ...](2057147095207862647/)
+  - Source: https://x.com/POTUS/status/2057147095207862647
+  - Repost of @WhiteHouse: "The heroes of the United States Coast Guard have lived by a creed of honor and bravery and sacrifice that have defied every storm, shipwreck, and every sing...
+- [15:37 UTC - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United State...](2057123622246871256/)
+  - Source: https://x.com/POTUS/status/2057123622246871256
+  - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United States Coast Guard Academy https://t.co/Emu1DZISTw
+- [15:37 UTC - Repost of @FirstLadyOffice: “The @WhiteHouse Congressional Picnic has been a cherished Ame...](2057123528596509169/)
+  - Source: https://x.com/POTUS/status/2057123528596509169
+  - Repost of @FirstLadyOffice: “The @WhiteHouse Congressional Picnic has been a cherished American tradition for a great part of our nation’s two-hundred-and-fifty-year history. Beyon...
+- [15:22 UTC - Repost of @WhiteHouse: WORLD BEE DAY 🐝 https://t.co/rFbOdWyel1](2057119717005930818/)
+  - Source: https://x.com/POTUS/status/2057119717005930818
+  - Repost of @WhiteHouse: WORLD BEE DAY 🐝 https://t.co/rFbOdWyel1
+- [01:50 UTC - Repost of @WhiteHouse: MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ](2056915429138862214/)
+  - Source: https://x.com/POTUS/status/2056915429138862214
+  - Repost of @WhiteHouse: MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ
