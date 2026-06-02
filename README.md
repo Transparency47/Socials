@@ -57,6 +57,8 @@ export X_BEARER_TOKEN="your-token"
 
 For browser-authenticated X requests, put a local cookie export in `Scraper/.x_cookies.json` or set one of `X_COOKIES`, `TWITTER_COOKIES`, `X_COOKIE`, or `TWITTER_COOKIE` to a standard `name=value; name=value` cookie header. The local cookie file is ignored by git.
 
+For browser-authenticated YouTube requests, set `YOUTUBE_COOKIES` to a Netscape-format cookies.txt export filtered to YouTube/Google domains. If the raw multiline secret is inconvenient, set `YOUTUBE_COOKIES_B64` to the base64-encoded cookie file instead. Local runs may also set `YOUTUBE_COOKIES_FILE=/path/to/cookies.txt`.
+
 R2 uploads use Cloudflare's S3-compatible API. Set these environment variables locally or as GitHub Actions secrets:
 
 ```bash

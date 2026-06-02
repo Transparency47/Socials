@@ -14,17 +14,21 @@ the post folder. YouTube videos write README.md plus TRANSCRIPT.md.
 from __future__ import annotations
 
 import argparse
+import atexit
+import base64
 import contextlib
 import datetime as dt
 import fcntl
 import hashlib
 import html
+import http.cookiejar
 import json
 import mimetypes
 import os
 import re
 import subprocess
 import sys
+import tempfile
 import time
 import unicodedata
 import xml.etree.ElementTree as ET
@@ -61,6 +65,10 @@ X_WEB_USER_AGENT = (
 X_COOKIES_PATH = SCRAPER_DIR / ".x_cookies.json"
 X_COOKIE_ENV_NAMES = ("X_COOKIES", "TWITTER_COOKIES", "X_COOKIE", "TWITTER_COOKIE")
 X_COOKIE_DOMAINS = ("x.com", ".x.com")
+YOUTUBE_COOKIES_ENV = "YOUTUBE_COOKIES"
+YOUTUBE_COOKIES_B64_ENV = "YOUTUBE_COOKIES_B64"
+YOUTUBE_COOKIES_FILE_ENV = "YOUTUBE_COOKIES_FILE"
+_YOUTUBE_COOKIES_TEMP_PATH: Path | None = None
 
 PLATFORM_DIRS = {
     "x": "X",
@@ -275,6 +283,73 @@ def save_state(state: dict[str, Any]) -> None:
 def ensure_state_file(state: dict[str, Any]) -> None:
     if not STATE_PATH.exists():
         save_state(state)
+
+
+def youtube_cookiefile_from_env() -> Path | None:
+    global _YOUTUBE_COOKIES_TEMP_PATH
+
+    cookiefile = os.getenv(YOUTUBE_COOKIES_FILE_ENV)
+    if cookiefile:
+        path = Path(cookiefile).expanduser()
+        if path.exists():
+            return path
+        raise ScrapeError(f"{YOUTUBE_COOKIES_FILE_ENV} points to a missing file: {path}")
+
+    if _YOUTUBE_COOKIES_TEMP_PATH:
+        return _YOUTUBE_COOKIES_TEMP_PATH
+
+    cookie_text = os.getenv(YOUTUBE_COOKIES_ENV)
+    cookie_b64 = os.getenv(YOUTUBE_COOKIES_B64_ENV)
+    if cookie_b64:
+        try:
+            cookie_text = base64.b64decode(cookie_b64).decode("utf-8")
+        except Exception as exc:
+            raise ScrapeError(f"Could not decode {YOUTUBE_COOKIES_B64_ENV}: {type(exc).__name__}: {exc}") from exc
+    if not cookie_text:
+        return None
+
+    if "\\n" in cookie_text and "\n" not in cookie_text:
+        cookie_text = cookie_text.replace("\\n", "\n")
+    cookie_text = cookie_text.replace("\r\n", "\n").replace("\r", "\n")
+    if not cookie_text.startswith(("# Netscape HTTP Cookie File", "# HTTP Cookie File")):
+        cookie_text = "# Netscape HTTP Cookie File\n" + "\n".join(line for line in cookie_text.splitlines() if not line.startswith("#"))
+    if not cookie_text.endswith("\n"):
+        cookie_text += "\n"
+
+    handle = tempfile.NamedTemporaryFile("w", encoding="utf-8", prefix="youtube-cookies-", suffix=".txt", delete=False)
+    try:
+        os.chmod(handle.name, 0o600)
+        handle.write(cookie_text)
+    finally:
+        handle.close()
+    _YOUTUBE_COOKIES_TEMP_PATH = Path(handle.name)
+    atexit.register(lambda path=_YOUTUBE_COOKIES_TEMP_PATH: path.exists() and path.unlink())
+    return _YOUTUBE_COOKIES_TEMP_PATH
+
+
+def add_youtube_cookies_option(options: dict[str, Any]) -> dict[str, Any]:
+    cookiefile = youtube_cookiefile_from_env()
+    if cookiefile:
+        options = dict(options)
+        options["cookiefile"] = str(cookiefile)
+    return options
+
+
+def youtube_cookiejar() -> http.cookiejar.CookieJar | None:
+    cookiefile = youtube_cookiefile_from_env()
+    if not cookiefile:
+        return None
+    jar = http.cookiejar.MozillaCookieJar(str(cookiefile))
+    try:
+        jar.load(ignore_discard=True, ignore_expires=True)
+    except Exception as exc:
+        raise ScrapeError(f"Could not load YouTube cookies: {type(exc).__name__}: {exc}") from exc
+    return jar
+
+
+def youtube_get(url: str) -> requests.Response:
+    jar = youtube_cookiejar()
+    return requests.get(url, headers={"User-Agent": USER_AGENT}, cookies=jar, timeout=REQUEST_TIMEOUT)
 
 
 def refresh_listing() -> None:
@@ -1639,6 +1714,7 @@ def fetch_youtube_channel_entries(account: str, args: argparse.Namespace) -> tup
     merged: dict[str, dict[str, Any]] = {}
     source_summaries: list[str] = []
     playlist_info: dict[str, Any] = {}
+    options = add_youtube_cookies_option(options)
     for url in youtube_channel_page_candidates(account):
         try:
             with yt_dlp.YoutubeDL(options) as ydl:
@@ -1673,13 +1749,13 @@ def scrape_youtube_backfill(session: requests.Session, account: str, args: argpa
     source_url, playlist_info, entries = fetch_youtube_channel_entries(account, args)
     print(f"Fetched YouTube channel listings from {source_url} ({len(entries)} unique candidates).", flush=True)
     languages = [part.strip() for part in args.transcript_languages.split(",") if part.strip()]
-    detail_options = {
+    detail_options = add_youtube_cookies_option({
         "quiet": True,
         "no_warnings": True,
         "skip_download": True,
         "ignoreerrors": True,
         "noplaylist": True,
-    }
+    })
     records: list[ArchiveRecord] = []
     since = getattr(args, "since_dt", None)
     stopped_sources: set[str] = set()
@@ -1928,7 +2004,7 @@ def yt_dlp_transcript_from_info(info: dict[str, Any], languages: list[str]) -> t
         if track.get("ext") not in {"json3", "vtt", "srt"} or not track.get("url"):
             continue
         try:
-            response = requests.get(track["url"], headers={"User-Agent": USER_AGENT}, timeout=REQUEST_TIMEOUT)
+            response = youtube_get(track["url"])
             response.raise_for_status()
             entries = caption_track_entries(track, response)
         except Exception as exc:
@@ -1947,7 +2023,8 @@ def yt_dlp_transcript_for(video_id: str, languages: list[str]) -> tuple[list[dic
         return None, "yt-dlp is not installed"
 
     try:
-        with yt_dlp.YoutubeDL({"quiet": True, "no_warnings": True, "skip_download": True}) as ydl:
+        options = add_youtube_cookies_option({"quiet": True, "no_warnings": True, "skip_download": True})
+        with yt_dlp.YoutubeDL(options) as ydl:
             info = ydl.extract_info(f"https://www.youtube.com/watch?v={video_id}", download=False)
     except Exception as exc:
         return None, f"yt-dlp caption lookup failed: {type(exc).__name__}: {exc}"

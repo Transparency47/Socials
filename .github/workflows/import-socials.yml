@@ -52,6 +52,8 @@ jobs:
     env:
       X_BEARER_TOKEN: ${{ secrets.X_BEARER_TOKEN }}
       TWITTER_BEARER_TOKEN: ${{ secrets.TWITTER_BEARER_TOKEN }}
+      YOUTUBE_COOKIES: ${{ secrets.YOUTUBE_COOKIES }}
+      YOUTUBE_COOKIES_B64: ${{ secrets.YOUTUBE_COOKIES_B64 }}
       R2_BUCKET: comparifycdn
       R2_ACCOUNT_ID: ${{ secrets.R2_ACCOUNT_ID }}
       R2_ACCESS_KEY_ID: ${{ secrets.R2_ACCESS_KEY_ID }}
