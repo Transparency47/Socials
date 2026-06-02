@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-01-29
 
-- Posts: 72
+- Posts: 74
 
 - [23:29 UTC - Based on the fact that Canada has wrongfully, illegally, and steadfastly refused to certif...](115980983698005555/)
   - Source: https://truthsocial.com/@realDonaldTrump/115980983698005555
@@ -218,3 +218,9 @@
 - [02:35 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976053944036526](115976054958048342/)
   - Source: https://truthsocial.com/@realDonaldTrump/115976054958048342
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976053944036526
+- [02:35 UTC - Truth Social post 115976053944036526](115976053944036526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976053944036526
+  - _No text content captured._
+- [02:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976047714526049](115976048596233531/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115976048596233531
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115976047714526049
