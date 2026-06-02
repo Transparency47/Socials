@@ -15,6 +15,7 @@ from r2_media import markdown_media_attachments
 
 ROOT_DIR = Path(__file__).resolve().parents[1]
 LISTING_PATH = ROOT_DIR / "listing.json"
+FULL_TIMESTAMP_START_DATE = "2026-06-02"
 
 
 def stable_id(source: str, path: str) -> str:
@@ -85,6 +86,10 @@ def media_records_from_readme(readme: str) -> list[dict]:
     return records
 
 
+def include_full_timestamp(date_published: str | None) -> bool:
+    return bool(date_published and date_published[:10] >= FULL_TIMESTAMP_START_DATE)
+
+
 def build_record(readme_path: Path) -> dict:
     body_path = record_body_path(readme_path)
     if body_path is None:
@@ -99,9 +104,10 @@ def build_record(readme_path: Path) -> dict:
     parts = relative_body.split("/")
     account = metadata_line(readme, "Account") or (parts[1] if len(parts) > 1 else None)
     post_id = metadata_line(readme, "Post ID")
-    date = metadata_line(readme, "Date published") or html_comment(body, "date_published")
-    if date == "Unknown":
-        date = None
+    date_published = metadata_line(readme, "Date published") or html_comment(body, "date_published")
+    if date_published == "Unknown":
+        date_published = None
+    date = date_published
     if date and len(date) > 10:
         date = date[:10]
     media = media_records_from_readme(readme)
@@ -119,6 +125,19 @@ def build_record(readme_path: Path) -> dict:
         ]
     media_files = [item["localFile"] for item in media if item.get("localFile")]
     media_urls = [item["url"] for item in media if item.get("url")]
+    metadata = {
+        "platform": platform,
+        "account": account,
+        "postId": post_id,
+        "accountDisplayName": metadata_line(readme, "Account display name"),
+        "contentKind": metadata_line(readme, "Content kind"),
+        "dateAccessed": metadata_line(readme, "Date accessed"),
+        "media": media,
+        "mediaFiles": media_files,
+        "mediaUrls": media_urls,
+    }
+    if include_full_timestamp(date_published):
+        metadata["datePublished"] = date_published
     return {
         "id": stable_id("socials", relative_body),
         "title": title,
@@ -129,17 +148,7 @@ def build_record(readme_path: Path) -> dict:
         "date": date,
         "sourceUrl": metadata_line(readme, "Post URL") or html_comment(body, "source"),
         "summary": summary_from(body),
-        "metadata": {
-            "platform": platform,
-            "account": account,
-            "postId": post_id,
-            "accountDisplayName": metadata_line(readme, "Account display name"),
-            "contentKind": metadata_line(readme, "Content kind"),
-            "dateAccessed": metadata_line(readme, "Date accessed"),
-            "media": media,
-            "mediaFiles": media_files,
-            "mediaUrls": media_urls,
-        },
+        "metadata": metadata,
     }
 
 
@@ -156,7 +165,7 @@ def discover_records() -> list[Path]:
 
 def build_listing() -> dict:
     records = [build_record(path) for path in discover_records()]
-    records.sort(key=lambda row: (row.get("date") or "", row.get("title") or ""), reverse=True)
+    records.sort(key=lambda row: (row.get("metadata", {}).get("datePublished") or row.get("date") or "", row.get("title") or ""), reverse=True)
     return {
         "version": 1,
         "source": "socials",
