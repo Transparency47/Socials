@@ -1,0 +1,917 @@
+<!-- source: https://www.youtube.com/watch?v=GXDJf_LbkHw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: GXDJf_LbkHw -->
+<!-- date_published: 2025-12-15T21:04:31+00:00 -->
+<!-- date_accessed: 2026-06-02T02:40:12.278027+00:00 -->
+
+# Transcript: President Trump Participates in a Mexican Border Defense Medal Presentation
+
+- [00:00.580] The President: Thank you very much.
+- [00:01.780] Appreciate it.
+- [00:03.510] We had a very good conversation one hour ago
+- [00:07.220] with the European leaders,
+- [00:09.850] many of them involving the war with Russia and Ukraine.
+- [00:16.110] We had a long discussion and things are seemingly going well,
+- [00:20.850] but we've been saying that for a long time
+- [00:22.490] and it's a difficult one.
+- [00:25.290] We had, as you know, settled eight wars
+- [00:27.550] and one was having a little problem yesterday,
+- [00:30.090] Thailand and Cambodia.
+- [00:31.670] We were able to straighten that out.
+- [00:34.550] There was some killing going on that shouldn't have happened
+- [00:37.120] and we appreciate them working to get it straightened out,
+- [00:40.710] and they have.
+- [00:42.240] The security protocols yesterday were amazing
+- [00:46.140] and they have been amazing,
+- [00:48.330] having to do with Russia and Ukraine.
+- [00:50.620] And I had a long talk with President Zelenskyy.
+- [00:55.240] Also, I spoke with the heads of Germany,
+- [00:59.160] Italy, NATO, Finland, France,
+- [01:02.160] United Kingdom, Poland, Norway, Denmark and the Netherlands.
+- [01:07.050] We had very long and very good talks.
+- [01:10.470] And again, I think things are going along pretty well.
+- [01:16.750] 27,000 soldiers were killed last month.
+- [01:20.360] It shouldn't happen.
+- [01:21.580] It shouldn't have happened, should have never started.
+- [01:23.240] That war should have never, ever started.
+- [01:26.260] But it did and we're trying to get it solved.
+- [01:27.980] That was Biden's situation. We're trying to get it done.
+- [01:33.240] And I think we're closer now
+- [01:34.980] and they will tell you that they're closer now.
+- [01:37.940] We had numerous conversations with President Putin of Russia.
+- [01:42.850] And I think we're closer now than we have been, ever,
+- [01:46.650] and we'll see what we can do. We want to save a lot of lives.
+- [01:49.190] We sell equipment to NATO. We don't spend any money,
+- [01:52.670] but we do want to see if we can save a lot of lives.
+- [01:55.880] When you're losing 25,000 to 30,000 soldiers,
+- [02:00.080] mostly soldiers, other people too from towns and like --
+- [02:05.740] places like Kyiv, various other places throughout Ukraine.
+- [02:10.060] It's pretty bad.
+- [02:11.360] Nobody's seen anything like it actually since World War II.
+- [02:16.400] But we're -- we're getting closer.
+- [02:18.600] We're having tremendous support from European leaders.
+- [02:23.360] They want to get it ended also.
+- [02:25.760] And at this moment, Russia wants to get it ended.
+- [02:28.620] The problem is they'll want to get it ended
+- [02:31.420] and then all of a sudden, they won't.
+- [02:32.760] And Ukraine will want to get it ended
+- [02:34.380] and all of a sudden, they won't.
+- [02:36.520] So we have to get them on the same page,
+- [02:38.290] but I think that's working along, very good talk.
+- [02:42.430] On day one of my administration, I signed an executive order
+- [02:45.420] making it a core mission of the United States
+- [02:48.590] military to protect and defend the homeland.
+- [02:51.020] And today we're here to honor our military men
+- [02:53.810] and women for their central role in the protection of our border,
+- [02:58.360] something that I campaigned very, very strongly on
+- [03:01.840] and they made me look really good.
+- [03:03.710] They're unbelievable. They made us all look good.
+- [03:06.830] I mean, we went from having millions of people
+- [03:09.790] pouring over our border to having none
+- [03:11.880] in the last eight months, none. In a few moments,
+- [03:15.310] we will officially recognize their service
+- [03:17.320] by awarding them the Mexican Border Defense Medal,
+- [03:21.420] which is a big deal. We're joined for this occasion
+- [03:25.480] by Secretary of War Pete Hegseth,
+- [03:28.200] Attorney General Pam Bondi,
+- [03:29.810] Chairman of the Joint Chiefs General Dan Caine,
+- [03:33.990] Commander of US Northern Command General Gregory Guillot,
+- [03:39.530] Commander of the Southern Border Task Force Major General Scott
+- [03:44.010] Naumann, Command Sergeant Major Brett
+- [03:47.600] Johnson of the US Army's 10th Mountain
+- [03:50.050] Division, Administrator of the Drug Enforcement Agency
+- [03:54.750] Terry Cole, and many other members of our administration
+- [03:58.350] who have done an incredible job on the Border.
+- [04:00.330] You know, people forget now that the border has been secure
+- [04:03.470] for actually seven months,
+- [04:06.170] think of it, more, they don't mention the border anymore.
+- [04:09.630] Nobody talks about the border. They talk about affordability
+- [04:13.520] and we're the ones that are bringing the prices down.
+- [04:15.870] We were given the worst inflation
+- [04:17.830] in our country's history
+- [04:19.100] and we're bringing the prices down.
+- [04:22.050] But the affordability is on the Democrats
+- [04:23.890] because they have made it unaffordable
+- [04:25.400] to be in this country,
+- [04:26.650] but we're bringing those prices down
+- [04:28.350] and they're coming down quickly. Energy is coming way down.
+- [04:32.070] And if you look, gasoline prices are hitting in many locations,
+- [04:38.040] $1.99 a gallon, nobody thought they'd see that there were $4,
+- [04:43.740] $5 and $6 a gallon under Biden.
+- [04:47.540] In the four years before I took office,
+- [04:49.560] our southern border was surrendered to criminals,
+- [04:52.240] drug cartels, human traffickers and child smugglers.
+- [04:56.780] Our entire southwest border on the Mexican side
+- [05:00.600] is under the physical control of cartels
+- [05:03.170] that are among the most violent entities.
+- [05:05.760] Nobody's ever seen anywhere in the planet,
+- [05:07.750] the most violent people on the planet.
+- [05:11.000] Remember, when the Democrats and others,
+- [05:13.450] the radical left used to say that the people they're allowing
+- [05:17.020] into our country, immigrants are nice people,
+- [05:21.470] they're not violent like our people?
+- [05:23.370] Well, they make our people look like babies.
+- [05:27.860] These are some of the most violent criminals
+- [05:30.720] anywhere on Earth,
+- [05:32.380] from many countries, not just Venezuela.
+- [05:34.700] Venezuela emptied their jails into our country,
+- [05:38.000] but others have also the Congo has so many other countries
+- [05:41.370] have, and we don't put up with it.
+- [05:45.090] I have to say the drugs coming in by sea are down 94 percent
+- [05:52.100] and we're trying to figure out who the other six percent are,
+- [05:55.610] but they're down 94 percent
+- [05:57.300] and we're going to start hitting them on land,
+- [05:59.840] which is a lot easier to do, frankly.
+- [06:02.860] But these are a direct military threat
+- [06:07.180] to the United States of America.
+- [06:09.800] They're trying to drug out our country
+- [06:11.900] and you can look throughout history,
+- [06:14.000] look at China when they were loaded up with drugs.
+- [06:17.990] They were suffering greatly and others
+- [06:20.300] were able to take them over.
+- [06:22.150] And other countries also.
+- [06:23.370] They're trying to drug out our country
+- [06:24.930] and we're reversing it rapidly, actually.
+- [06:28.110] But with the help of our great service members,
+- [06:30.100] we've stopped the invasion in its tracks
+- [06:33.110] and we're dismantling the cartels very rapidly
+- [06:37.750] and they are being declared
+- [06:41.290] enemies of the United States of America --
+- [06:44.390] they have been so declared, legally declared.
+- [06:46.930] More than 25,000 warriors
+- [06:49.320] have served in this historic operation.
+- [06:51.850] It is indeed an incredible and historic operation
+- [06:57.090] and we've never done anything so effectively
+- [06:59.720] and we've had a lot of victories.
+- [07:01.720] They've spent night and day enduring,
+- [07:03.600] scorching hot and bitter cold
+- [07:05.490] and they've given up their holidays
+- [07:07.810] and their weekends,
+- [07:09.260] working with the officers of Customs and Border Protection.
+- [07:13.680] Our armed forces have already conducted nearly 13,000 patrols
+- [07:18.160] along the border and today we give these great warriors
+- [07:21.310] the recognition that they have earned,
+- [07:24.260] and they have really earned it.
+- [07:26.520] The military component of our border security efforts
+- [07:28.830] is just the beginning.
+- [07:30.120] We're also designating the drug cartels
+- [07:32.440] as foreign terrorist organizations,
+- [07:34.180] a big deal from a legal standpoint
+- [07:37.110] and military standpoint.
+- [07:39.200] We've ended catch and release and we endured
+- [07:42.530] and ensured that anyone who sets foot across our border illegally
+- [07:47.690] is intercepted arrested and immediately deported.
+- [07:51.740] Or if they're really bad, they're put into prison
+- [07:54.220] because we don't want to ever take a chance if they come back.
+- [07:57.970] As a result, illegal border crossings
+- [08:00.700] have plummeted to the lowest level
+- [08:03.470] ever recorded in the history of our country.
+- [08:05.680] Think of that, the history of our country --
+- [08:07.820] you can all be very proud.
+- [08:10.030] For the past seven months, zero, illegal aliens
+- [08:12.780] have been admitted to the United States of America.
+- [08:16.610] We inherited the worst border in the history of our country,
+- [08:20.810] one of the worst borders, I would say in the world.
+- [08:22.670] I can't imagine any border in the world being worse.
+- [08:25.620] When they allowed 25 million people to come in and again,
+- [08:29.540] many of these people are gang members
+- [08:31.430] and from prisons and jails from mental institutions
+- [08:36.160] and insane asylums and some of the worst people on earth
+- [08:41.010] they allowed to come into our country,
+- [08:42.670] we're getting a lot of them out.
+- [08:44.450] We're getting -- we've made a big dent.
+- [08:47.610] And the self-deportation is something nobody talks about,
+- [08:51.610] but literally millions of people are self-deporting
+- [08:54.990] because they don't want to be captured.
+- [08:56.640] Once they're captured,
+- [08:57.840] they don't have the chance to self-deport
+- [09:00.100] and they never have the chance to come back into our country.
+- [09:02.570] We inherited that --
+- [09:05.100] that border from an incompetent administration
+- [09:08.370] and turned it into the strongest border
+- [09:10.640] in the history of our country.
+- [09:11.990] So we took the worst border in the history of our country
+- [09:16.700] and in a period of two months,
+- [09:20.000] we turned it into the strongest border
+- [09:21.970] in the history of our country.
+- [09:24.180] During this time, we've also achieved a 50 percent drop
+- [09:27.700] in the amount of fentanyl coming across the border and China
+- [09:30.720] is working with us very closely on bringing down the number
+- [09:35.230] and the amount of fentanyl that's being shipped --
+- [09:38.540] you know, fentanyl is very bad
+- [09:40.890] when you mix it with certain ingredients,
+- [09:42.610] but it also is very important for medicine,
+- [09:46.200] for anesthesias, various other things.
+- [09:50.560] I want people to understand that it's not made
+- [09:53.850] necessarily for bad.
+- [09:55.120] When it's mixed with certain things it becomes bad.
+- [09:58.510] And that's what's taking place in Mexico
+- [10:00.500] and we've got it down to a much lower number.
+- [10:04.430] Not satisfactory, but it will be satisfactory soon.
+- [10:07.460] In May, we executed the largest fentanyl bust in the history
+- [10:12.620] of the US seizing 3 million fentanyl pills all at one time.
+- [10:17.300] Think of that 3 million pills,
+- [10:19.350] it's amounted to billions of dollars worth of drugs.
+- [10:24.180] And last month we seized another 1.7 million fentanyl pills
+- [10:27.720] in the state of Colorado. The poorly run state of Colorado
+- [10:31.150] with a governor who's incompetent
+- [10:34.010] and frankly with a governor that won't allow our wonderful Tina
+- [10:39.720] to come out of a jail, in a high-intensity jail
+- [10:43.830] because she caught people cheating on an election
+- [10:46.100] and they said she was cheating.
+- [10:47.300] She wasn't cheating, she went over,
+- [10:49.840] she looked at one of the election scams going on
+- [10:55.990] and because she did that,
+- [10:57.420] they put her in jail for nine years.
+- [11:00.270] The governor of Colorado is a weak and pathetic man,
+- [11:05.290] who was run by Tren de Aragua.
+- [11:08.040] The criminals from Venezuela took over sections of Colorado
+- [11:12.830] and he was afraid to do anything.
+- [11:14.250] But he puts Tina in jail for nine years
+- [11:16.260] because she caught people cheating
+- [11:18.950] and when she walked over and got involved in it,
+- [11:21.730] they said she was cheating. She wasn't cheating.
+- [11:24.290] She caught people cheating on the election, 2020,
+- [11:28.570] along with a lot of other people that cheated on that election.
+- [11:30.920] You'll see that coming out more and more.
+- [11:34.020] But there's no doubt that America's adversaries
+- [11:36.400] are trafficking fentanyl into the United States in part
+- [11:39.270] because they want to kill Americans.
+- [11:42.200] If this were a war that would be one of the worst wars.
+- [11:44.860] I believe they killed over the last five
+- [11:47.770] or six years per year, 200 to 300,000 people.
+- [11:52.750] You hear about 100,000, which is a lot of people,
+- [11:55.430] but the numbers are much higher than that.
+- [11:57.240] That's been proven and they've destroyed a lot of families
+- [12:01.290] because when they lose a child or even if their child
+- [12:03.570] is heavily addicted, you lose that family.
+- [12:05.970] The family will never be the same.
+- [12:08.510] That's why today I'm taking one more step to protect Americans
+- [12:11.750] from the scourge of deadly fentanyl
+- [12:14.470] flooding into our country.
+- [12:16.430] With this historic executive order I will sign today,
+- [12:19.810] we're formally classifying fentanyl
+- [12:21.630] as a weapon of mass destruction,
+- [12:24.830] which is what it is. No bomb does what this is doing.
+- [12:29.710] Two hundred to 300,000 people die every year that we know of.
+- [12:35.710] So we're formally classifying fentanyl
+- [12:38.200] as a weapon of mass destruction.
+- [12:42.570] But before I sign the fentanyl order,
+- [12:44.680] we will pin these great service members with their medals.
+- [12:49.230] And here today are the first 13 warriors
+- [12:52.000] who will receive the Mexican Border Defense Medal,
+- [12:55.320] which is a big deal.
+- [12:57.010] First, I'd like to ask Secretary Hegseth
+- [12:59.480] and Chairman Caine to say a few words.
+- [13:02.240] I'd like to have Tom Homan come up, please,
+- [13:04.300] if you would say a few words.
+- [13:07.100] And I want to thank all of the people, Pam and everybody.
+- [13:09.960] Stephen Miller, great.
+- [13:11.270] Stephen Miller, what a job he's doing for being here.
+- [13:14.090] Thank you. Both. Appreciate it very much.
+- [13:16.360] We have so many great people here,
+- [13:18.660] but I do want to ask Tom to say a few words also.
+- [13:20.930] So, Pete, why don't you start it off please? Thank you.
+- [13:25.790] Secretary Hegseth: Mr. President,
+- [13:27.070] thank you. I would echo what you said.
+- [13:29.180] This has been a team effort from the beginning.
+- [13:31.750] Tom Homan, Terry Cole, Stephen Miller, Pam Bondi,
+- [13:34.730] Kristi Noem, Customs and Border Patrol, Protection.
+- [13:38.180] It has been one team, one mission
+- [13:40.490] to get 100 percent operational control of the southern border.
+- [13:43.670] You want to talk about America first?
+- [13:45.200] Peace through strength and common sense,
+- [13:47.110] it all manifests in one basic phrase down there,
+- [13:50.040] border security is national security
+- [13:53.300] and we had the task of 100 percent control.
+- [13:55.970] And because of these men and women back here,
+- [13:57.880] we've achieved that.
+- [13:59.100] Nobody is crossing the southern border
+- [14:01.090] and I want to give a big shout out to our Northern Command,
+- [14:04.030] General Guillot, from day one he this our department
+- [14:07.540] didn't look at the border this way before you.
+- [14:10.030] Joe Biden allowed an invasion of this country,
+- [14:12.920] tens of millions of people, drugs, gangs violence
+- [14:15.780] and the military jumped to it on day one with our partners.
+- [14:19.060] But ultimately, it was incredible Americans.
+- [14:21.550] There's 13 up here with us today.
+- [14:23.330] They all represent about 2,000 people
+- [14:25.040] who've served at the border so far.
+- [14:26.900] So 25,000 Americans qualify for this Mexican National Defense
+- [14:31.620] Border Medal that we're announcing today.
+- [14:34.330] And what's cool about this medal,
+- [14:36.000] It was actually first given out in 1918.
+- [14:39.070] So we're reviving an old medal that existed was given to men
+- [14:42.030] and women who defended the southern border.
+- [14:43.710] We found out about it, we used the exact same foundry
+- [14:47.410] with the exact same imagery, same color,
+- [14:49.190] same metal, same everything.
+- [14:50.480] So our men and women will be wearing that very same medal
+- [14:52.990] as Americans 100 years
+- [14:54.520] before who were asked to defend the sovereignty of our country.
+- [14:57.310] President Trump was elected to do that.
+- [14:59.340] You have done that, Mr. President.
+- [15:00.550] We're proud of this mission.
+- [15:01.890] We're proud to defend the American people
+- [15:03.880] and pinning these medals on
+- [15:05.380] is an example of how important it is to us.
+- [15:06.990] So thank you, Mr. President, I appreciate it.
+- [15:08.700] General Caine: Thank you.
+- [15:10.960] Well, Mr. President, Mr. Secretary,
+- [15:12.700] I want to echo your thanks and gratitude for the Joint Force.
+- [15:16.910] I also want to highlight General Guillot,
+- [15:19.580] General Naumann and Command Sergeant Major Johnson
+- [15:22.830] but also leaders at every level
+- [15:25.270] that came together not just in our joint force
+- [15:28.650] but in the interagency.
+- [15:29.940] And I want to specifically highlight
+- [15:32.160] our Border Patrol teammates
+- [15:34.100] and our Office of Air and Marine teammates
+- [15:36.360] who when I went down to the southern border
+- [15:38.180] and visited were right there next to the Joint Force.
+- [15:41.640] I also want to thank not just these 13 individuals,
+- [15:44.980] but the joint force that was also down there
+- [15:47.130] and your families who poured in
+- [15:49.230] to make this deployment possible on the southern border.
+- [15:52.360] And of course, this time of the year,
+- [15:54.530] I'm always thinking about our currently deployed forces
+- [15:57.870] who are out there around the world
+- [15:59.770] doing our nation's business.
+- [16:01.360] And of course our fallen and their families
+- [16:03.870] who show us what courage and tenacity
+- [16:06.710] really are as they move forward after the
+- [16:10.220] So thank you, Mr. President.
+- [16:11.520] Thank you, Mr. Secretary. Thank you.
+- [16:14.580] The President: Tom, please.
+- [16:21.690] Tom Homan: You know, it's always an honor for me
+- [16:23.070] to be in the Oval Office
+- [16:25.110] with the greatest president of my lifetime.
+- [16:27.700] Yes, I said it and I meant it.
+- [16:31.490] You know, I was just -- I just got home last night,
+- [16:34.320] I toured the border in California, Arizona and Texas.
+- [16:39.300] I did it in four-wheel drive, I did it on the river.
+- [16:42.880] I did it from the air.
+- [16:44.730] Hundreds upon hundreds of miles of border,
+- [16:48.140] I didn't see one illegal alien.
+- [16:51.920] Not a single one. I've done this since 1984.
+- [16:56.650] I work for six different presidents.
+- [16:59.600] None has done more than President Trump.
+- [17:01.830] What he has done has gave us the most secure border
+- [17:05.980] in the history of this nation heart stop.
+- [17:10.680] I went hundreds of miles of border
+- [17:12.290] and didn't see one illegal alien.
+- [17:16.120] Incredible considering the Biden administration,
+- [17:18.280] we had ten 12,000 a day most released in the United States.
+- [17:23.940] I'm proud to be with these patriots behind me.
+- [17:25.800] I'm already proud of being in the Oval Office
+- [17:27.320] of the president, but being with these heroes,
+- [17:30.110] I met some of these soldiers down on the border
+- [17:33.380] and actually a shout out to Fort Drum, New York.
+- [17:35.310] We got some 10th Mountain Division here,
+- [17:36.830] so Elise Stefanik, Claudia Tenney,
+- [17:38.830] we all love Fort Drum and the 10th mountain.
+- [17:41.510] So look, this is a game changer.
+- [17:42.870] I want to make something perfectly clear.
+- [17:44.400] Can -- we get attacked all the time being inhumane,
+- [17:47.440] the Biden administration is much more humane,
+- [17:49.740] it's just it's a bunch of crap.
+- [17:52.400] Because there's been studies done that 31 percent of women
+- [17:55.120] that make that journey through the cartels
+- [17:56.820] get sexually assaulted.
+- [17:58.430] They get raped and not just women.
+- [18:01.150] Children too, I've done numerous investigations in that.
+- [18:05.270] Sex trafficking was historic highs with an open border.
+- [18:09.600] Fentanyl, historic highs
+- [18:11.020] that killed a quarter million Americans,
+- [18:13.880] no inspector terrorist that came across the border,
+- [18:16.790] record, historic.
+- [18:20.370] What happened under Biden administration
+- [18:22.950] was the most inhumane thing I've seen in my lifetime.
+- [18:26.500] Now that the border is 96 percent decline,
+- [18:29.280] 96 percent less people are coming,
+- [18:31.370] how many women are being raped?
+- [18:33.260] How many children are dying, making that journey?
+- [18:35.580] How many women and children aren't being sex trafficked
+- [18:37.960] to this country every day?
+- [18:39.200] How many known suspected terrorists
+- [18:40.980] aren't just walking across that border?
+- [18:43.760] President Trump and this administration
+- [18:46.660] is saving thousands of lives every month.
+- [18:49.270] Hard stop. That's just a stone cold fact.
+- [18:52.020] I'm just proud to be a part of this.
+- [18:53.480] I work with Steve Miller every day.
+- [18:54.770] Steve Miller is one of the most brilliant people
+- [18:56.340] I've met in my entire life.
+- [18:58.590] President Trump brought together one hell of a team here
+- [19:01.060] and the success proves we all working together
+- [19:03.090] one team, one fight.
+- [19:04.500] We're not done yet, we're going to keep going
+- [19:07.430] and I guarantee you we're going to continue saving thousands
+- [19:10.240] and thousands of lives.
+- [19:12.510] Secure border means strong national security,
+- [19:15.170] secure border saves lives. Thank you.
+- [19:18.090] The President: Thank you, Tom.
+- [19:23.320] Okay, let's do the medals and I'll be signing this.
+- [19:26.000] Maybe you'll do the medals first and then I'll sign.
+- [19:44.280] Nice medal. It's not bad.
+- [20:04.750] Great job.
+- [20:34.220] Great job, fellas.
+- [20:54.300] (applause)
+- [21:04.420] No auto pen, none, ever.
+- [21:07.740] We don't like auto pens, right? We don't like auto pens.
+- [21:11.960] How about gathering around me and we'll hold this up.
+- [21:15.480] Congratulations. That's an amazing job.
+- [21:17.560] Come on around, come on around. Let's take a good picture.
+- [21:34.820] Fantastic job.
+- [21:36.060] You guys, fantastic job. Thank you very much. Great job.
+- [21:39.980] Great job. What you've done is unprecedented.
+- [21:46.230] How about holding that up? You guys hold it up.
+- [21:49.310] Hold it up high. You deserve it more than me.
+- [22:03.950] So I'm going to give you another medal, though,
+- [22:07.470] that may be more beautiful.
+- [22:10.590] I'm not sure it means as much, but it's really good.
+- [22:13.640] Okay? This is gunmetal.
+- [22:15.350] This is the one the military loves.
+- [22:17.720] So we're going to start. Okay?
+- [22:24.300] It's pretty nice. Want to compare it?
+- [22:25.950] Let me see. Compare it. Let me see how that looks.
+- [22:28.020] I don't know. That looks pretty good.
+- [22:30.670] But that means something very special.
+- [22:49.050] Can tie it around your neck. Get a nice ribbon.
+- [22:53.930] I think you'll like it. It's special.
+- [22:56.890] We don't give them to many people.
+- [23:08.790] Come on over here. Come here. Look at this guy.
+- [23:12.590] (inaudible) -- that big. That means a lot up there.
+- [23:15.950] (applause)
+- [23:20.820] And General, come on over here, even though you have one.
+- [23:22.830] I gave him one.
+- [23:24.040] No, this general right here, General Razin Caine.
+- [23:27.320] He's a great general. Thank you very much.
+- [23:30.540] Well, thank you very much, everybody.
+- [23:32.000] It's an honor. This is a fantastic moment.
+- [23:35.820] I haven't done this before.
+- [23:38.670] And the job they've done on the border is unthinkable.
+- [23:41.120] What they left us with, that they would have open borders
+- [23:44.400] with millions of people, 25 million people,
+- [23:47.760] probably more than that pouring into our border,
+- [23:50.380] totally unchecked and unvetted.
+- [23:52.300] Now we have the opposite.
+- [23:54.030] And we allow -- we want people in our country,
+- [23:55.960] but they have to come in legally.
+- [23:58.470] And they know that and they know they're not getting through,
+- [24:01.670] so now they don't even try.
+- [24:03.610] So all of the death that Tom Homan talked about,
+- [24:06.490] the rape and the death and all the problems doesn't happen --
+- [24:09.770] really happened because the caravans,
+- [24:13.370] a name I think I came up with, maybe, maybe not.
+- [24:16.640] But the caravans are very small.
+- [24:20.130] In fact, for the most part, they don't even exist anymore
+- [24:22.410] because they know they're not going to get through.
+- [24:25.840] In a little while, you'll be seeing
+- [24:27.260] I'm suing the BBC for putting words in my mouth, literally.
+- [24:30.170] They put words in my mouth.
+- [24:31.930] They had me saying things that I never said coming out.
+- [24:34.300] I guess they used AI or something,
+- [24:36.940] so we'll be bringing that lawsuit.
+- [24:38.440] A lot of people are asking when are you bringing that lawsuit.
+- [24:41.350] Even the media can't believe that one.
+- [24:43.760] They actually put terrible words in my mouth
+- [24:46.770] having to do with January 6th that I didn't say.
+- [24:49.840] And the beautiful words that I said, right,
+- [24:53.900] the beautiful words talking about patriotism
+- [24:57.960] and all of the good things that I said,
+- [24:59.580] they didn't say that, but they put terrible words.
+- [25:03.830] They actually have me speaking with words that I never said.
+- [25:07.670] And they got caught because I believe somebody at BBC
+- [25:11.340] said this is so bad, it has to be reported.
+- [25:14.530] That's called fake news. So we'll be filing that suit
+- [25:17.460] probably this afternoon or tomorrow morning.
+- [25:19.950] I want to thank all of you for being here.
+- [25:22.240] If you have any questions, I guess you could ask,
+- [25:24.050] but this is really a day of celebration for these people.
+- [25:27.130] The job they've done is really unprecedented.
+- [25:30.790] So go ahead.
+- [25:32.070] The Press: On Brown University, Mr. President,
+- [25:34.380] do you know what the motive of the shooter was?
+- [25:36.700] Is it -- was it a targeted attack, sir?
+- [25:39.440] The President: No, no, that's moving along now,
+- [25:41.950] and we don't -- and we'll -- we're going to see what happens.
+- [25:46.030] Hopefully, they're going to capture this animal.
+- [25:48.870] Hopefully, they're going to capture.
+- [25:50.380] The Press: Has Kash Patel told you why it's been
+- [25:51.990] so difficult for the FBI to identify who the shooter is?
+- [25:55.140] The President: Well, it's always difficult.
+- [25:56.470] So far, we've done a very good job of doing it, with Charlie,
+- [26:00.190] with, you know, the various times this has happened,
+- [26:02.590] they've done it in pretty much record time.
+- [26:06.700] But you really have to ask the school
+- [26:10.520] a little bit more about that because you know,
+- [26:12.230] this was a school problem. They had their own guards.
+- [26:16.510] They had their own police. They had their own everything.
+- [26:18.540] But you'd have to ask that question, really,
+- [26:20.770] to the school, not to the FBI. We came in after the fact.
+- [26:25.380] And the FBI will do a good job, but they came in after the fact.
+- [26:28.900] The Press: Do you know if it was targeted,
+- [26:30.240] Mr. President, the shooter --
+- [26:31.460] The President: No, they don't know that yet.
+- [26:32.730] No.
+- [26:34.010] The Press: Sir, on the issue of drugs, is it --
+- [26:35.840] is it accurate that you are considering an executive order
+- [26:38.710] to reclassify marijuana under the control --
+- [26:40.560] The President: We are considering that, yeah.
+- [26:43.010] Because a lot of people want to see it,
+- [26:46.870] the reclassification
+- [26:48.210] because it leads to tremendous amounts of research
+- [26:50.700] that can't be done unless you reclassify.
+- [26:53.280] So we are looking at that very strongly.
+- [26:56.010] Katie.
+- [26:57.250] The Press: Is it true that the reports
+- [26:59.470] that you rebuked to the Israeli Prime Minister --
+- [27:01.320] The President: Speak up, please.
+- [27:02.540] The Press: Are the reports that you rebuked
+- [27:04.420] the Israeli Prime Minister
+- [27:05.730] for the hit on Hamas general true?
+- [27:07.900] And is Israel undermining your efforts to be a peacemaker?
+- [27:11.070] The President: No, Israel and I have gotten along very well.
+- [27:13.890] My relationship with Bibi Netanyahu
+- [27:16.220] has been obviously a very good one.
+- [27:17.730] Look, we took out Iran.
+- [27:22.440] We wiped out, with that plane right there,
+- [27:24.650] we wiped out the B-2 bomber.
+- [27:26.040] We wiped out the Iran nuclear threat
+- [27:29.050] and because of that we were able
+- [27:30.420] to make peace in the Middle East.
+- [27:32.070] No, we've had a very good relationship with Israel.
+- [27:35.120] We actually have a very good relationship
+- [27:37.850] with just about everybody in the Middle East.
+- [27:40.250] The Press: But was that a violation of the cease fire,
+- [27:42.200] the strike on the Hamas general?
+- [27:43.440] The President: We're going to have to see.
+- [27:44.650] We're looking into that. Yeah, we'll look into it.
+- [27:48.020] The Press: On the Syria ambush of US forces,
+- [27:51.290] do you still have confidence in the Syrian president?
+- [27:53.730] The President: I do.
+- [27:54.930] I mean, this had nothing to do with him.
+- [27:56.400] This is a part of Syria
+- [27:57.630] that they really don't have much control over.
+- [28:01.060] And it was a surprise. He feels very badly about it.
+- [28:05.770] He's working on it. He's a strong man.
+- [28:08.460] And no, this had nothing to do with the Syrian government.
+- [28:10.970] This had to do -- this had to do with ISIS.
+- [28:12.920] The Press: What would the US response be?
+- [28:15.240] The President: As a response? They'll be hit hard, yeah.
+- [28:17.990] The Press: (Inaudible)
+- [28:20.000] First of all, thanks for honoring these heroes.
+- [28:22.970] The communists have lost Chile. The pro-Trump candidate,
+- [28:25.510] Jose Antonio Kast, won the elections.
+- [28:27.300] Do you think this right-wing wave in the Spanish world
+- [28:30.350] is due to your influence?
+- [28:32.930] The President: Well, I just -- we just had a good one
+- [28:34.520] in Honduras, as you know, had a great election there.
+- [28:37.370] I endorsed somebody that was not leading
+- [28:39.420] and he won the election and we had a good one
+- [28:42.580] just a little -- a couple of hours ago.
+- [28:44.090] I found out in Chile, the person I endorsed who was not leading,
+- [28:48.870] ended up winning quite easily.
+- [28:50.780] So I look forward to paying my respects to him.
+- [28:52.790] I hear he's a very good person. Yeah.
+- [28:55.160] The Press: Thank you, Mr. President.
+- [28:56.650] This year, you fired Democrats
+- [28:57.970] from a number of federal agencies
+- [28:59.830] and now going into 2026,
+- [29:01.320] there are some key regulators like the SEC,
+- [29:03.530] the CFTC that are going to have zero Democrats.
+- [29:06.220] Do you plan to appoint Democrats to fill those empty spots
+- [29:09.230] or do you think that federal agencies
+- [29:11.420] shouldn't have Democrat commissioners?
+- [29:12.840] The President: Well, do you think
+- [29:14.080] they would be appointing Republicans
+- [29:16.370] if it were up to them? So you know, we'll look at it.
+- [29:18.960] Look, we want to be fair, but typically,
+- [29:21.740] they're not appointing Republicans.
+- [29:23.350] So you're asking me the question
+- [29:24.820] whether or not I'd appoint Democrats.
+- [29:27.120] But there are certain areas that we do look at
+- [29:29.570] and there are certain areas that we do share and share power
+- [29:32.970] and I'm open to that. Please. Yeah.
+- [29:34.850] The Press: Mr. President, a number of Republicans
+- [29:36.960] have denounced your statement on Truth Social
+- [29:39.680] after the murder of Rob Reiner. Do you stand by that post?
+- [29:42.780] The President: Well, I wasn't a fan of his at all.
+- [29:44.550] He was a deranged person as far as Trump is concerned.
+- [29:47.970] He said he liked -- he knew it was false.
+- [29:51.000] In fact, it's the exact opposite that I was a friend of Russia
+- [29:55.210] controlled by Russia. You know it was the Russia hoax,
+- [29:57.480] he was one of the people behind it.
+- [30:00.120] I think he hurt himself in career wise.
+- [30:02.630] He became like a deranged person,
+- [30:05.130] Trump derangement syndrome.
+- [30:06.930] So I was not a fan of Rob Reiner
+- [30:09.190] at all in any way, shape or form.
+- [30:10.980] I thought he was very bad for our country. Yeah?
+- [30:13.560] The Press: Mr. President, Leader Thune doesn't seem
+- [30:15.290] like he wants to get rid of blue slips.
+- [30:17.490] Will there be consequences for the Senate?
+- [30:18.940] The President: Well, I think
+- [30:20.230] they should get rid of blue slips
+- [30:21.590] because as a Republican president,
+- [30:25.320] I am unable to put anybody in office
+- [30:28.360] having to do with US attorneys or having to do with judges.
+- [30:32.700] In other words, if you have one, not two, you don't need two,
+- [30:35.660] just one, if you have one Democrat Senator --
+- [30:40.030] well, we have a lot of them,
+- [30:41.280] you have one Democrat Senator in a state,
+- [30:43.800] it is not possible to appoint because of blue slips a judge.
+- [30:48.270] It's not possible to appoint a US attorney,
+- [30:50.540] you see that happening. And I think it's a disgrace.
+- [30:53.730] I think blue slips are a disgrace.
+- [30:55.620] They've long since, uh. I mean, they're not --
+- [30:59.570] they should not be relevant anymore.
+- [31:01.710] This is a different world than it was 15, 20 years ago.
+- [31:04.670] You know, that was a gentleman and gentlewoman world.
+- [31:08.810] This is a little bit different unfortunately.
+- [31:10.440] Yeah, please.
+- [31:11.660] Mr. President, what do you want to see Congress do this week
+- [31:13.860] as it relates to health care and the expiring ACA?
+- [31:16.440] Yeah, that's a good question.
+- [31:17.670] I'd like to see the people get the money.
+- [31:19.710] I'd like to see all of the money
+- [31:20.980] that's going to the Democrat insurance companies.
+- [31:23.520] You know, the insurance companies are making a fortune,
+- [31:26.480] they're up 1,700 percent and more,
+- [31:29.480] and they're taking in hundreds and hundreds
+- [31:32.590] and hundreds of billions of dollars,
+- [31:34.890] even trillions of dollars and Obamacare
+- [31:38.630] gives you terrible health care.
+- [31:41.200] Just so you understand Obamacare was set up --
+- [31:43.600] and I said it right from the beginning
+- [31:45.320] for the benefit of the health insurance --
+- [31:48.070] uh, insurance companies -- of the insurance companies.
+- [31:51.400] They're making billions and billions of dollars.
+- [31:53.980] Their stock is through the roof.
+- [31:55.860] I don't want to give them anything.
+- [31:57.280] I want all money going to the people
+- [32:00.260] and let the people buy their own health care.
+- [32:02.800] It will be unbelievable. They'll do a great job.
+- [32:06.410] They'll get much better health care at a much lower cost.
+- [32:11.350] The Press: Sir, would you like
+- [32:13.260] Republicans next year to just use --
+- [32:16.020] excuse me, use reconciliation to do with health care
+- [32:19.510] exactly what you laid out
+- [32:21.000] and they wouldn't have to worry about Democratic votes?
+- [32:23.200] The President: Well, that would knock out the filibuster.
+- [32:25.180] If you knocked out the filibuster,
+- [32:27.220] it would all go away,
+- [32:28.470] but we have a few people that wouldn't do that.
+- [32:31.210] It's crazy.
+- [32:32.570] Look, we should knock out the filibuster.
+- [32:35.170] And if you did that, we'd get voter ID,
+- [32:38.460] you'd have no mail in voting,
+- [32:41.690] all things that make our elections dishonest.
+- [32:44.540] And you'd get a lot of other things
+- [32:46.010] having not even to do with voting,
+- [32:48.280] but Republicans should knock out the filibuster
+- [32:52.030] and we should approve a lot of things.
+- [32:54.140] You wouldn't have January 30th looming
+- [32:56.060] because you know you have --
+- [32:57.380] you have the 30th of January looming.
+- [33:00.400] You know that, right?
+- [33:02.110] And if we knocked out the filibuster,
+- [33:03.780] it would be just a simple approval.
+- [33:06.220] But you have some Republicans that they're unable to explain
+- [33:09.820] why you know they -- if you ask them,
+- [33:11.460] why they're unable to explain it,
+- [33:13.000] they cannot win the debate,
+- [33:14.930] but they should knock out the filibuster and frankly,
+- [33:17.190] they should get rid of the blue slips too. Yeah?
+- [33:19.160] The Press: Mr. President, the Democrats won Miami
+- [33:21.360] where you won the election one year ago.
+- [33:23.000] Do you think it's because of the Hispanic media like Telemundo
+- [33:26.010] that are publishing fake news about the ICE operations?
+- [33:29.390] How do you plan to win back those votes for midterms?
+- [33:32.230] The President: Yeah, well, I won that whole election
+- [33:34.410] and, you know, it's interesting when I'm not running,
+- [33:37.690] we don't do as well and I'm going to try
+- [33:39.800] and get that changed for the midterms.
+- [33:41.340] But we did have a big win in Tennessee, as you know.
+- [33:44.830] Matt Van Epps -- Van Epps had a big win in Tennessee
+- [33:49.940] against a very strong candidate, attractive candidate
+- [33:53.610] who a lot of people thought would do very well
+- [33:55.280] and Matt won by a lot and I won Tennessee by a real lot.
+- [34:00.750] You know, we had a great -- we had a great election,
+- [34:03.530] we won every single swing state. We won the popular vote.
+- [34:06.510] We won everything and there's a --
+- [34:09.760] there's a thing that they have now districts,
+- [34:11.840] which is a big deal.
+- [34:14.610] Uh, I think in a way it's the most important stat
+- [34:17.800] from the standpoint of,
+- [34:19.470] you know, looking at numbers accurately.
+- [34:22.030] So out of thousands of districts I won 2,750 versus 525.
+- [34:31.280] Think of that 2,750 versus 525. It was great.
+- [34:35.790] That's why the map when you see a map of the election,
+- [34:38.280] it's all red other than two little narrow lines
+- [34:42.540] on the other side. Please?
+- [34:43.910] The Press: Sir, Jimmy Lai was convicted today in Hong Kong.
+- [34:46.340] Do you have any reactions?
+- [34:47.960] The President: I feel so badly. I spoke to President Xi about it
+- [34:52.870] and I asked to consider his release.
+- [34:57.850] He's not well, he's an older man and he's not well.
+- [35:01.970] So I did put that request out.
+- [35:03.980] We'll see what happens, Okay? Yeah, please, Katie?
+- [35:06.900] The Press: A question about Ukraine,
+- [35:09.070] now that the meetings in Berlin have wrapped up with Zelenskyy,
+- [35:13.520] is there a timetable for going to Moscow?
+- [35:15.820] Is a delegation going?
+- [35:17.940] The President: Well, I think that the delegation
+- [35:19.940] is largely there right now. Actually they're in Europe
+- [35:23.380] and they met with those people that I called out
+- [35:25.780] before the various countries plus some others.
+- [35:28.640] Uh, they want to see it end, Katie, they want to see it end.
+- [35:32.710] They all want to see it end, they want to see it end.
+- [35:35.730] I actually think that President Putin wants to see it end.
+- [35:38.800] You know, I've had good talks. We've had good talks with Russia
+- [35:42.800] and I think they'd like to get back
+- [35:44.500] to a more normal way of life.
+- [35:47.410] The Press: Mr. President, follow up an Article V like,
+- [35:50.460] deal seems to be emerging
+- [35:52.390] without NATO membership for Ukraine.
+- [35:56.010] If such a security guarantee is offered,
+- [35:59.290] what incentive is there for Ukraine
+- [36:01.080] to give up any sort of territory?
+- [36:03.240] The President: Well, look, you have --
+- [36:04.500] well, they've already lost the territory, to be honest.
+- [36:07.030] I mean, the territory is lost,
+- [36:09.440] but in terms of security guarantee,
+- [36:12.250] we're working, we're working with Europe on it.
+- [36:14.270] Europe would be a big part of that
+- [36:16.420] and we're working on the security guarantees.
+- [36:19.180] So the war doesn't start up again.
+- [36:20.920] We don't want to have a war start up again.
+- [36:22.450] You know, as I said with Thailand and Cambodia,
+- [36:27.190] two people I get along with great and I dealt with them
+- [36:30.760] and I called them and I said look, fellas,
+- [36:32.730] you got to relax. You got to take it easy,
+- [36:34.970] they lost, you know, they started the war again,
+- [36:37.230] I got it ended and things like that are going to happen.
+- [36:41.190] War, there's nothing, nothing pretty about war,
+- [36:43.750] nothing good and there's nothing you can do
+- [36:45.570] to predict what's going to happen.
+- [36:47.810] But I think we've made a lot of progress
+- [36:49.610] with respect to Russia and Ukraine, I hope -- I hope.
+- [36:52.920] You know, last month it was close to 27,000 soldiers
+- [36:57.540] were killed, mostly soldiers, but 27,000 people,
+- [37:01.230] but mostly soldiers were killed last month
+- [37:03.820] in Russia versus Ukraine.
+- [37:06.310] The Press: Is there a time limit on security guarantees?
+- [37:08.310] The President: Well, there's no time limit.
+- [37:09.560] We just -- the time limit is whenever we get it done.
+- [37:11.660] I mean, we're going to try to get it done.
+- [37:13.930] We're making progress.
+- [37:15.260] It's more difficult than anybody could have thought.
+- [37:18.090] I would have said that half of the wars that I got settled,
+- [37:21.640] some were going for over 30 years,
+- [37:24.070] that half of them should have been more difficult
+- [37:26.000] and they actually haven't been.
+- [37:28.180] There's a lot of dislike between the two leaders,
+- [37:30.530] you know that and so it probably makes it a little bit tough.
+- [37:34.250] The Press: Have you spoken directly to Putin?
+- [37:35.860] Have you spoken directly to Putin?
+- [37:39.920] The President: Yeah, I have, yeah.
+- [37:41.290] The Press: On Syria, Mr. President,
+- [37:42.520] on the US troops killed in Syria over the weekend.
+- [37:45.220] Why do we have troops in Syria?
+- [37:48.390] The President: Because we're trying to make sure
+- [37:50.010] that there's going to be and remain peace
+- [37:52.460] in the Middle East and Syria is a big part of it.
+- [37:56.240] The new leader is a strong person and that's what you need.
+- [38:01.230] This is a rough part of the world and we've --
+- [38:05.660] it's been amazing what -- what's taken place in Syria.
+- [38:08.810] We got rid of Assad.
+- [38:11.090] We got rid of other people that were really bad people
+- [38:14.100] and that were in the way of peace in the Middle East.
+- [38:16.290] You know, we have legitimate peace in the Middle East,
+- [38:18.730] first time in 3,000 years
+- [38:21.070] and we have 59 countries backing it
+- [38:24.400] and we'll see what happens with Hamas.
+- [38:26.700] We'll see what happens with Hezbollah.
+- [38:29.260] But regardless, I mean we have countries that want to go
+- [38:31.910] in and clean that out if we want them to do it.
+- [38:36.130] But they said in the case of Hamas,
+- [38:37.970] they said that they're going to disarm
+- [38:39.590] and we're going to find out whether or not that's true.
+- [38:43.130] Hezbollah in Lebanon has been a problem.
+- [38:46.280] We'll see what happens there.
+- [38:47.590] But there is legitimate large-scale peace
+- [38:51.740] in the Middle East and if there weren't,
+- [38:53.150] we wouldn't have been able to make all of those deals
+- [38:56.010] that we've made with the various countries.
+- [38:57.440] They would have never been able to do that
+- [38:59.120] if, for instance, if Iran --
+- [39:01.020] if we didn't with that B-2 bomber right there on the desk,
+- [39:04.890] if we didn't of which we just ordered
+- [39:08.790] a lot more of the newer version totally stealth,
+- [39:11.900] they could not see it. They knew it was coming.
+- [39:13.670] They had no idea where it was. It was pretty amazing actually.
+- [39:16.940] Every bomb hit its mark
+- [39:18.890] perfectly despite CNN trying to say differently.
+- [39:22.100] They didn't know they just, you know, hoped --
+- [39:24.410] they hoped that we didn't but turned out that they did.
+- [39:26.820] Atomic Energy Commission confirmed it.
+- [39:29.020] So did -- actually, so did Iran confirm it,
+- [39:31.870] They got knocked to hell.
+- [39:33.370] But if we didn't knock out their nuclear capability,
+- [39:37.140] we would have never had peace in the Middle East
+- [39:39.060] because you would have had a dark cloud hanging over
+- [39:42.000] Saudi Arabia, Qatar, UAE and all the other countries.
+- [39:46.130] And they would have never, ever been able
+- [39:48.020] to sign an agreement. Yeah, please.
+- [39:49.470] The Press: How soon do you expect
+- [39:50.670] that international stabilization force
+- [39:52.660] to be up and running in Gaza?
+- [39:54.870] The President: I think that it's --
+- [39:56.610] in a form, it's already running.
+- [39:58.420] In a very strong form, it's already --
+- [40:00.090] but it'll get stronger and stronger and more
+- [40:02.140] and more countries are coming into it.
+- [40:03.920] They're already in, but they'll send --
+- [40:06.370] they'll send any number of troops
+- [40:08.080] that I asked them to send.
+- [40:09.710] They want to see peace. We have more than 59 countries.
+- [40:13.340] We have many countries that aren't even in the Middle East,
+- [40:16.600] but they're fairly close to the Middle East,
+- [40:18.850] they want to be involved. So it's been pretty amazing.
+- [40:21.630] The Press: Mr. President, this week,
+- [40:23.370] a man named Keoni Rodriguez is going to federal prison
+- [40:26.130] for creating crypto privacy software.
+- [40:28.940] The case was started under the Biden administration,
+- [40:31.130] but your DOG --
+- [40:32.970] DOJ kept it going and secured the conviction.
+- [40:35.830] A lot of people in crypto are saying
+- [40:37.470] that this man should be pardoned.
+- [40:38.950] Are you familiar with the case at all
+- [40:40.300] or would you be interested in looking at it?
+- [40:41.670] The President: I've heard about it.
+- [40:42.900] I'll look at it. Why, you think he should be pardoned?
+- [40:45.430] Sounds like it. Sounds like it, based on your question.
+- [40:49.220] Rodriguez. We'll look at that, Pam.
+- [40:51.040] Okay? Let's take a look at it.
+- [40:52.480] You know, you'll have to tell me.
+- [40:53.950] I don't know anything about it, but we'll take a look.
+- [40:56.480] Yeah, please.
+- [40:57.740] The Press: Mr. President, market analysts
+- [40:59.620] are calling for a Santa rally.
+- [41:01.820] Typically, it's five training days going into Christmas,
+- [41:04.160] and in the first two trading days of January.
+- [41:07.160] That's a sign of market optimism.
+- [41:09.340] Do you anticipate, along with the historical low gas prices,
+- [41:12.560] that continuing into the first quarter
+- [41:14.030] (inaudible)?
+- [41:15.230] The President: Well, we've had the greatest stock market
+- [41:16.640] in history, Brian.
+- [41:17.900] We have a stock market that's gone up
+- [41:20.210] 52 times to new highs during a 10-month period, my 10 months.
+- [41:25.530] My first 10 months we set a record, 52 days.
+- [41:29.770] We had the highest stock market in history, including a day ago.
+- [41:34.520] And I didn't look today, maybe it's up today.
+- [41:37.550] I don't know. But we had 52 all together
+- [41:41.120] and there's never been anything like it.
+- [41:44.480] And the reason are the tariffs
+- [41:45.980] have brought vast amounts of wealth into our country,
+- [41:50.300] that countries that have taken our car companies,
+- [41:54.200] those car companies are all coming back.
+- [41:55.900] The AI is coming at levels that nobody's ever seen before.
+- [41:59.480] That's going to be a massive industry.
+- [42:02.390] Without the tariffs, we wouldn't have that.
+- [42:05.330] Chips are coming in.
+- [42:06.740] Chip companies are coming in from Taiwan and other places,
+- [42:09.660] but mostly from Taiwan,
+- [42:11.470] which has almost 100 percent of the market.
+- [42:14.460] And we're now making chips and we're not paying anything.
+- [42:17.780] It's not the CHIPS
+- [42:18.990] Act where they give billions of dollars to companies
+- [42:21.950] and then they just take the money and they run.
+- [42:23.650] That was under Biden. The fact that I set tariffs up
+- [42:28.580] and that if they don't make their chips here,
+- [42:30.470] they have to pay a big tariff in order to send them into the US.
+- [42:33.450] They have to be here. You know, tariffs really work.
+- [42:37.270] In my opinion, almost only in the United States.
+- [42:40.460] They've been used against us successfully
+- [42:43.160] because we had presidents that had no clue,
+- [42:46.220] but tariffs really work.
+- [42:48.950] We have taken in hundreds of billions of dollars
+- [42:51.700] with tariffs.
+- [42:52.920] And more importantly, we've taken in countries
+- [42:56.120] and companies where --
+- [42:57.860] and even countries have sent their car-making people
+- [43:02.660] into the United States in order to avoid paying tariffs.
+- [43:06.100] And they'll build a plant
+- [43:07.310] and they'll hire our people to make the cars.
+- [43:10.540] But we now have -- as you know, Toyota just approved $10 billion
+- [43:16.480] in manufacturing plants in the United States using our people.
+- [43:20.770] Without tariffs, none of that would have happened.
+- [43:22.980] Tariffs have given us great national security.
+- [43:27.290] There is nothing like what's happened in the last 10 months.
+- [43:31.810] Tariffs have given us tremendous national security
+- [43:35.230] and tremendous wealth.
+- [43:36.450] Thank you all very much. Thank you.

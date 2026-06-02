@@ -1,0 +1,976 @@
+<!-- source: https://www.youtube.com/watch?v=BmD3sN-XWHU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BmD3sN-XWHU -->
+<!-- date_published: 2025-06-05T16:31:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:50.200950+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Chancellor of Germany
+
+- [00:18.110] Chancellor Merz: So to let you know,
+- [00:19.340] this is the birth certificate of Donald Trump's grandfather,
+- [00:23.840] born in 1869, close to Bad Dürkheim.
+- [00:28.060] The President: That's called serious --
+- [00:29.260] Chancellor Merz: And his Christian name was Friedrich.
+- [00:31.690] The President: That's serious German.
+- [00:32.930] Chancellor Merz: Serious German name.
+- [00:34.140] The President: That's a serious German name,
+- [00:36.180] but Durkheim is serious German too.
+- [00:38.980] But I want to thank you very much for --
+- [00:41.400] first of all, I want to thank for that.
+- [00:43.090] That's beautiful. Thank you very, very much.
+- [00:45.270] Fantastic. We'll put it up in a place of honor.
+- [00:48.410] I don't know, maybe we can -- let's see.
+- [00:52.320] We'll have to put it there someplace.
+- [00:54.900] It's an honor to have you.
+- [00:56.150] As you know, the Chancellor just won a great election --
+- [01:00.580] very, very strong election. A very respected man.
+- [01:04.050] I can tell you, we've been on the phone many times
+- [01:06.080] talking about some of the problems of the world
+- [01:08.320] outside of Germany.
+- [01:10.140] And it's very sad what's going on.
+- [01:12.830] We both feel that way.
+- [01:14.850] What's going with Russia-Ukraine.
+- [01:17.840] And other things we talk about but Russia,
+- [01:19.300] Ukraine in particular.
+- [01:20.590] I'd like to see it end, and maybe it'll end.
+- [01:23.050] But we get some news. There'll be some fighting.
+- [01:28.100] Something happened a couple of days ago,
+- [01:29.940] and now they do a return, and, you know, here it goes.
+- [01:33.350] It's not good. He's unhappy about it.
+- [01:35.600] I'm unhappy about.
+- [01:37.380] But I think eventually we're going to be successful
+- [01:40.090] in stopping the bloodshed. It's pure bloodsheds.
+- [01:42.310] Five, six thousand young soldiers a week
+- [01:46.180] are being killed. You know that?
+- [01:47.970] Those numbers. There's staggering numbers.
+- [01:52.250] But, Chancellor, I just want to congratulate you,
+- [01:54.200] and I want to welcome you to the Oval Office.
+- [01:56.200] Chancellor Merz: Thank you.
+- [01:57.440] The President: It's an Oval office
+- [01:58.820] that's in very good shape.
+- [02:00.440] We like fixing things up and having them tippy-top,
+- [02:03.380] like they have in Germany.
+- [02:05.130] They do that in Germany very much.
+- [02:07.320] And we do it here. We're having a very good run.
+- [02:10.570] We had a -- I also had a great election, a great win.
+- [02:12.920] Won everything.
+- [02:14.160] Won the popular vote, the all-seven swing states,
+- [02:17.230] which is a big deal. It's pretty unusual to do that.
+- [02:20.610] And we have a great mandate from the people.
+- [02:22.570] And part of our mandate is we're going to have
+- [02:24.930] a great relationship with your country.
+- [02:27.340] So I just want to thank you very much for being here.
+- [02:29.540] And if you'd like to say a few words?
+- [02:31.990] Chancellor Merz: Absolutely.
+- [02:33.290] Thank you, first of all, Mr. President,
+- [02:35.040] for your kind invitation to come to Washington, D.C.
+- [02:38.160] I was in this building first time ever in 1982,
+- [02:41.560] I told you, when former President Ronald Reagan
+- [02:44.480] was in office.
+- [02:45.770] So I'm very happy to be here again
+- [02:48.050] and to offer our close cooperation
+- [02:50.640] with the United States of America.
+- [02:53.800] We are having so much in common, our history.
+- [02:57.030] We owe the Americans a lot. We will never forget about that.
+- [03:00.730] And so with your German provenance
+- [03:03.270] I think this is a very good basis for close cooperation
+- [03:06.230] between America and Germany.
+- [03:08.140] So again thank you. Thank you for the hospitality
+- [03:11.220] and thank you for having your guest house for a night.
+- [03:15.520] This is a great place, great place.
+- [03:18.010] Many thanks for that. I really enjoy it.
+- [03:20.190] The President: It's a wonderful place.
+- [03:21.440] It's the landmark also.
+- [03:22.660] And Blair House, it's a nice place to stay.
+- [03:26.680] Thank you very much for saying that.
+- [03:29.020] Would you have any questions, please?
+- [03:30.520] The Press: Mr. President, on your new travel ban, why now?
+- [03:34.140] And if the Boulder attack was part of your reasoning,
+- [03:36.330] why not include Egypt on that list where the suspect is from?
+- [03:39.430] The President: Well, because Egypt has been a country
+- [03:41.760] that we deal with very closely. They have things under control.
+- [03:45.300] The countries that we have don't have things under control,
+- [03:48.250] and why now?
+- [03:49.490] I can say that it can't come soon enough, frankly.
+- [03:53.000] We want to keep bad people out of our country.
+- [03:56.210] The Biden administration allowed some horrendous people,
+- [04:00.090] and we're getting them out, one by one.
+- [04:02.420] And we're not stopping until we get them out.
+- [04:04.300] We have thousands of murderers. I hate to --
+- [04:07.130] I even hate to say this in front of the Chancellor.
+- [04:09.900] But you have a little problem, too,
+- [04:11.380] with some of the people that were allowed into your country.
+- [04:13.640] It's not your fault.
+- [04:15.010] It's not your fault, it shouldn't have happened.
+- [04:16.590] I told her it shouldn't have happened what she did.
+- [04:19.400] But you, you have your own difficulty with that,
+- [04:21.930] and we do, and we're moving them out.
+- [04:24.490] And we're moving them out very strongly.
+- [04:27.190] But it can't come fast enough.
+- [04:28.500] We want to get them out, we want to them out now.
+- [04:30.230] We don't want to have other bad people coming into our country,
+- [04:33.460] but using the word bad, I'm being nice.
+- [04:36.270] The Press: Okay, you put out on Truth Social
+- [04:40.990] a post regarding your conversation with President Xi.
+- [04:44.590] Can you talk about whether or not you feel that trade talks,
+- [04:48.170] trade relations are back on track
+- [04:51.010] after appearing to be a little bit off track last week?
+- [04:53.620] The President: A little bit off track.
+- [04:54.820] It was only the complexity. Yes, it's pretty complex stuff.
+- [04:58.940] We had a very good conversation with President Xi
+- [05:01.310] a little while ago, just before your arrival.
+- [05:03.850] In fact, we just hung up, and they said, you're here.
+- [05:06.670] I said, that's pretty good.
+- [05:08.090] Two great leaders of the world in a very short period of time.
+- [05:13.750] We had very good talk, and we've straightened out any complexity.
+- [05:18.320] And it's very complex stuff, and we straightened it out.
+- [05:23.140] The agreement was we're going to have Scott and Howard
+- [05:28.960] and Jamison will be going and meeting
+- [05:31.080] with their top people and continue it forward.
+- [05:34.300] But no, I think we have everything I think were
+- [05:36.220] in very good shape with China and the trade deal.
+- [05:39.880] We have a deal with China as you know
+- [05:42.240] but we were straightening out
+- [05:43.840] some of the points having to do mostly
+- [05:46.140] with rare-earth magnets and some other things.
+- [05:50.510] The Press: So those reduced trade tariff rates,
+- [05:52.390] they remain in effect?
+- [05:54.770] The President: We have the deal. I mean, we've had a deal.
+- [05:56.520] We announced the deal, and we'll be --
+- [05:59.750] I guess you could say --
+- [06:01.090] I wouldn't even say finalizing it up, Scott.
+- [06:03.000] I would say we have a deal,
+- [06:04.220] and we're going to just make sure
+- [06:05.450] that everybody understands what the deal is.
+- [06:09.810] We had a really good conversation.
+- [06:11.210] By the way, he invited me to China,
+- [06:12.610] and I invited him here. We both accepted.
+- [06:15.580] So I'll be going there with the First Lady at a certain point,
+- [06:18.670] and he'll be coming here, hopefully,
+- [06:21.120] with the first lady of China.
+- [06:26.810] The Press: Did you talk about the Chinese students?
+- [06:29.970] Are you allowing them to come?
+- [06:32.180] The President: Oh, yeah, no, Chinese students are coming.
+- [06:35.130] No problem.
+- [06:36.350] No problem, it's our honor to have them, frankly.
+- [06:40.320] We want to have foreign students,
+- [06:42.980] but we want them to be checked.
+- [06:44.330] You know, the case of Harvard and Columbia and others,
+- [06:48.630] all we want to do is see their list.
+- [06:50.880] There's no problem with that.
+- [06:52.430] This is anybody outside of our country, international students,
+- [06:56.290] because when we see some of the people that we've been watching,
+- [07:00.130] we say, where do these people come from?
+- [07:01.720] How is that possible?
+- [07:03.260] No, we want to have foreign students come.
+- [07:05.180] We're very honored by it, but we want to see their list.
+- [07:07.700] Harvard didn't want to give us the list.
+- [07:09.100] They're going to be giving us the list now.
+- [07:11.760] I think they're starting to behave, actually,
+- [07:13.640] if you want to know the truth.
+- [07:17.550] The Press: On Russia, are you willing
+- [07:19.470] to put more pressure on Putin
+- [07:21.390] to end the war by imposing new sanctions on Russia
+- [07:24.770] and also on China?
+- [07:26.000] The President: Well, remember, I'm the one that ended
+- [07:27.610] Nord Stream 2, going to a place called Germany.
+- [07:30.620] Come to think of it. I'm sorry I did that.
+- [07:33.160] But I ended Nord Stream 2. Nobody else did.
+- [07:36.790] And then when Biden came in, he immediately approved it.
+- [07:38.650] That's the largest --
+- [07:39.860] essentially the largest pipeline in the world,
+- [07:41.940] going to Germany and other countries.
+- [07:44.910] And, by the way, we have so much oil and gas.
+- [07:48.110] You will not be able to buy it all.
+- [07:50.100] I mean, you literally -- we have much.
+- [07:53.140] And I hope we're going to make that a part of our trade deal
+- [07:56.290] because we have more than anybody else.
+- [07:57.760] We have actually the most, by far, in the world,
+- [08:00.480] probably double what anyone else has.
+- [08:02.100] So we'll work on that.
+- [08:03.340] I'm sure that's something we'll discuss today.
+- [08:07.420] The Press: What do you expect from Germany
+- [08:08.950] and what do you expect from the Chancellor?
+- [08:11.380] The President: Well, first of all,
+- [08:12.630] I'm glad to meet,
+- [08:13.830] because I've been dealing with the Chancellor,
+- [08:15.390] and he's a very good man to deal with.
+- [08:19.340] He's difficult, I would say. Can I say that? It's a positive.
+- [08:22.730] You wouldn't want me to say you're easy, right?
+- [08:24.770] Chancellor Merz: No.
+- [08:26.000] The President: He's a very great representative of Germany.
+- [08:28.200] I think all we want
+- [08:30.040] is just going to have a good relationship.
+- [08:32.360] The rest we'll just sort of follow very easily.
+- [08:34.670] We'll have a good trade deal.
+- [08:36.360] I mean, I guess that will be mostly determined
+- [08:38.700] by the European Union,
+- [08:39.970] but you're a very big part of that, so you'll be involved.
+- [08:43.460] But we'll end up, hopefully,
+- [08:45.500] with a trade deal or we'll do something.
+- [08:48.380] You know, we'll the tariffs. I mean I'm okay with the tariffs
+- [08:50.920] or we make a deal with the trade,
+- [08:52.840] and I guess that's what we're discussing now.
+- [08:57.740] Oh please, go ahead, no, no. Not you. I've had enough of you.
+- [09:03.350] Chancellor Merz: Is Germany doing nothing on defense?
+- [09:04.840] Is Germany doing enough on defense.
+- [09:06.070] The President: What?
+- [09:07.270] The Press: Defense spending?
+- [09:08.600] The Press: Is Germany doing enough on defense?
+- [09:10.600] The Press: The Chancellor wants to spend 3.5.
+- [09:13.790] The President: Well, I don't know.
+- [09:15.090] I mean, I haven't discussed it very much.
+- [09:17.190] I know that you're spending more money on defense now,
+- [09:20.470] and quite a bit more money. And that's a positive thing.
+- [09:25.570] I'm not sure that General McArthur
+- [09:27.250] would have said it's positive, you know?
+- [09:29.340] He wouldn't like it, but I sort of think it's good.
+- [09:31.990] You understand what I mean by that?
+- [09:33.380] Chancellor Merz: I certainly understand.
+- [09:34.670] The President: He made a statement,
+- [09:35.960] never let Germany rearm.
+- [09:38.750] And I said -- I always think about that when he says, sir,
+- [09:41.360] we're spending more money on defense.
+- [09:42.910] I say, oh, is that a good thing or a bad thing?
+- [09:45.290] I think it's a good. But at least to a certain point.
+- [09:50.050] There'll be a point when I'll say,
+- [09:51.460] please don't arm anymore, if you don't mind.
+- [09:54.220] We'll be watching him.
+- [09:56.900] The Press: Presidend Biden --
+- [09:59.960] The President: Yeah, Biden, you said Biden.
+- [10:03.290] The Press: Your predecessor dismissed
+- [10:05.020] your autopen investigation and made
+- [10:06.740] all the decisions during the president's time.
+- [10:08.480] I'm curious to your reaction [inaudible].
+- [10:10.680] The President: Well, look, the auto pen,
+- [10:11.950] I think, is the big scandal.
+- [10:13.780] Outside of the rigged election of 2020,
+- [10:15.920] I think the biggest scandal of the last many years
+- [10:18.830] is the auto pen. And who's using it?
+- [10:21.110] I happen to think I know, okay, because I'm here.
+- [10:24.410] And I'm not a big auto pen person, fortunately.
+- [10:26.830] I'm glad. I'm very glad. It's an easy way out.
+- [10:30.060] But it's a very bad thing, very dangerous.
+- [10:33.320] You know, I sign important documents.
+- [10:34.770] Usually, when they put documents in front of you,
+- [10:36.720] they're important.
+- [10:38.650] Even if you're signing ambassadorships or --
+- [10:41.080] and I consider that important. I think it's inappropriate.
+- [10:43.460] You have somebody that's devoting four years
+- [10:45.290] of their life or more to being an ambassador.
+- [10:48.100] I think you really deserve,
+- [10:49.430] that person deserves to get a real signature,
+- [10:51.460] not an auto pen signature.
+- [10:53.360] And I can tell auto pen easily. I can look at it.
+- [10:57.640] Like two little pinholes from pulling the paper, right?
+- [11:00.930] You always see the pinholes.
+- [11:02.640] It's real easy to tell about auto pen.
+- [11:05.130] I think it's very disrespectful to people
+- [11:07.810] when they get an auto-pen signature.
+- [11:10.130] Outside, auto-pens to me are used
+- [11:12.120] when thousands of letters come in from young people
+- [11:14.490] all over the country and you want to get them back,
+- [11:16.500] and you know, people use auto- pens for that,
+- [11:18.970] to send a little signature at the bottom of a letter.
+- [11:23.420] We have thousands of them.
+- [11:24.620] We get thousands of letters a week.
+- [11:28.190] And it's not possible to, you know do --
+- [11:30.280] I'd like to do it myself, but you can't do it.
+- [11:33.090] To me, that's where auto pens start and stop.
+- [11:37.020] But I don't think,
+- [11:38.620] I'm sure that he didn't know many of the things.
+- [11:40.730] Look, he was never for open borders.
+- [11:43.120] He was never transgender for everybody.
+- [11:45.450] He was ever for men playing in women's sports.
+- [11:48.060] I mean, he changed.
+- [11:49.270] I mean all of these things that changed so radically.
+- [11:52.350] I don't think he had any idea that what was, frankly,
+- [11:56.080] I said it during the debate and I say it now.
+- [11:59.000] He didn't have much of an idea of what was going on.
+- [12:02.250] He shouldn't be -- I mean, essentially,
+- [12:04.290] whoever used the auto pen was the President.
+- [12:07.540] And that is wrong. It's illegal.
+- [12:10.280] It's so bad, and it's so disrespectful to our country.
+- [12:14.220] The Press: Mr. President,
+- [12:16.060] will you meet the troops in Germany
+- [12:18.750] and if I may ask a question to the Chancellor
+- [12:21.300] to answer in German for the German audience,
+- [12:24.400] how is your first account of it?
+- [12:29.040] The President: The answer is yes, we'll talk about that.
+- [12:30.980] But if they'd like to have them there, yeah.
+- [12:33.190] We have a lot of them, about 45,000.
+- [12:36.550] That's a lot troops.
+- [12:38.150] That's a city, when you think about it.
+- [12:40.460] That's good economic development.
+- [12:42.010] They're highly paid troops
+- [12:43.250] and they spend a lot money in Germany.
+- [12:45.540] But the relationship with Germany is very important.
+- [12:47.730] Yeah, we will be doing that. No problem.
+- [12:49.960] Chancellor Merz: May I say a few words in German?
+- [12:51.780] Yes, please.
+- [12:54.130] [speaking German]
+- [13:09.040] The President: Mr. President,
+- [13:10.390] you speak English because you speak such good English.
+- [13:13.610] Is it as good as your German, would you say?
+- [13:15.660] Do you feel more comfortable.
+- [13:18.010] Chancellor Merz: No, it's not my mother tongue,
+- [13:19.350] but I try to understand almost everything
+- [13:22.190] and to speak as good as I can.
+- [13:23.880] The President: Very good.
+- [13:25.150] You know, it is an achievement, actually.
+- [13:31.280] The Press: Mr. President, the criticism that I've seen
+- [13:33.310] and I'm sure you've seen regarding Elon Musk
+- [13:35.830] and your big, beautiful bill, what's your reaction to that?
+- [13:38.640] Do you think it in any way hurts passage in the Senate?
+- [13:41.780] Of course, what it is your seeking?
+- [13:43.460] The President: Well, look, you know,
+- [13:44.690] I've always liked Elon, and it's always very surprised.
+- [13:47.590] You saw the words he had for me. The words are great.
+- [13:50.190] And he hasn't said anything about me that's bad.
+- [13:52.710] I'd rather have him criticize me than the bill,
+- [13:54.790] because the bill is incredible.
+- [13:57.620] It's the biggest cut in the history of our country.
+- [14:00.240] We've never cut -- it's about $1.6 trillion in cuts.
+- [14:04.620] It's biggest tax cut -- tax, you would say,
+- [14:09.310] people's taxes will go way down.
+- [14:12.010] But it's the biggest tax cut in history.
+- [14:13.870] It's -- we are doing things in that bill that are unbelievable.
+- [14:18.280] And when you look at what we're doing for small businesses,
+- [14:21.800] for people, for middle-income people,
+- [14:24.700] all of the things that we're doing,
+- [14:27.250] nobody has ever seen anything like it.
+- [14:29.600] And, you know, Elon is upset because we took the EV mandate,
+- [14:32.380] and -- you know --
+- [14:33.710] which was a lot of money for electric vehicles.
+- [14:37.040] And, they're having a hard time, the electric vehicles,
+- [14:40.230] and they want us to pay billions of dollars in subsidy.
+- [14:45.110] And, you know, I --
+- [14:46.790] Elon knew this from the beginning.
+- [14:48.700] He knew it for a long time ago. That's been -- that's been,
+- [14:51.860] I would say, J.D., that hasn't changed.
+- [14:54.120] That's right from the beginning. Mr -- I think, Mr. Secretary,
+- [14:57.590] that hasn't changed at all, right from the beginning,
+- [15:00.130] but I know that it disturbed him.
+- [15:02.740] He wanted it rightfully.
+- [15:03.970] You know, he recommended somebody from --
+- [15:07.040] that he, I guess, knew very well.
+- [15:09.600] I'm sure he respected him.
+- [15:11.330] To run NASA, and I didn't think it was appropriate.
+- [15:14.930] And he happened to be a Democrat,
+- [15:18.000] like, totally Democrat.
+- [15:19.420] And I say, you know, look, we won.
+- [15:21.810] We get certain privileges, and one of the privileges
+- [15:24.040] we don't have to appoint a Democrat.
+- [15:26.280] NASA is very important. We have great people.
+- [15:28.880] General Tate is going to be picking somebody with our --
+- [15:34.600] we'll be checking them out and seeing.
+- [15:36.310] But he wanted that person, a certain person,
+- [15:38.910] and we said no.
+- [15:41.350] Yeah, I can understand why he's upset.
+- [15:43.320] Remember, he was here for a long time.
+- [15:45.820] You saw a man who was very happy
+- [15:48.790] when he stood behind the oval desk,
+- [15:51.400] and even with the black eye,
+- [15:53.210] I said, do you want a little makeup?
+- [15:54.680] We'll get you a little make-up.
+- [15:56.320] But he said, no, I don't think so,
+- [15:58.060] which is interesting and very nice.
+- [16:01.290] He wants to be who he is,
+- [16:02.530] so you could make that statement, too, I guess.
+- [16:04.960] Look, Elon and I had a great relationship.
+- [16:09.610] I don't know if we will anymore.
+- [16:10.830] I was surprised because you were here.
+- [16:12.850] Everybody in this room, practically,
+- [16:14.300] was here as we had a wonderful send-off.
+- [16:16.640] He said wonderful things about me.
+- [16:18.070] You couldn't have nicer, said the best thing.
+- [16:21.140] He's worn the hat.
+- [16:22.570] Trump was right about everything.
+- [16:24.400] And I am right about the great, big, beautiful bill.
+- [16:28.350] We call it a great, big, beautiful bill
+- [16:29.930] because that's what it is.
+- [16:31.620] And, again, biggest tax cuts in history,
+- [16:34.640] biggest economic development moves anywhere.
+- [16:37.550] We've never done anything like it. Business is spurred.
+- [16:41.770] And I don't know if you've seen the numbers,
+- [16:43.250] but the numbers came out.
+- [16:44.450] Even the CBO, which is run by Democrats,
+- [16:47.790] said that we're going to be doing --
+- [16:49.820] you know, I'd like you to discuss it,
+- [16:51.130] the $2.8 billion -- a trillion -- that CBO --
+- [16:54.650] this is a group of people that are Democrats.
+- [16:58.210] They're very hostile to us. They just came out
+- [17:01.120] with phenomenal numbers, what it does.
+- [17:02.800] Do you want to mention that? Okay.
+- [17:04.230] Male Speaker: Yes, sir.
+- [17:05.480] So what we've seen is we keep hearing from the CBO
+- [17:08.420] that there's going to be a large deficit from the bill,
+- [17:11.590] which we disagree with. But using the CBO scoring,
+- [17:15.940] they came out and scored the tariff revenue.
+- [17:18.180] We think it'll be the minimum of 2.8 trillion
+- [17:21.080] over the 10 year window,
+- [17:22.760] which actually puts the bill in surplus
+- [17:25.130] if you include the tarif revenue, which they won't do.
+- [17:28.470] The President: It gives you a tremendous surplus,
+- [17:30.680] but we're not allowed to use that.
+- [17:32.560] For some reason, they say scoring.
+- [17:34.370] Nobody knows what scoring means.
+- [17:35.910] Maybe a couple of people, but nobody.
+- [17:38.200] Somebody sits in the background, they say,
+- [17:39.800] well, we're going to allow that.
+- [17:41.440] They're not allowing other things that we have that
+- [17:43.510] are tremendously profitable for our country.
+- [17:46.050] But if you saw the other day CNBC,
+- [17:48.730] they came out with numbers,
+- [17:51.260] and the people on the show, very good people.
+- [17:53.140] I've watched them for a long time.
+- [17:55.300] They couldn't believe the numbers, how good they are.
+- [17:57.370] The numbers were incredible.
+- [17:58.620] That was personal income and also very low inflation.
+- [18:02.640] We have very low inflation.
+- [18:03.920] We're down to 2 percent now, and maybe even lower than that.
+- [18:07.580] And when I took it over, it was a mess.
+- [18:09.190] Remember, we had the worst inflation
+- [18:11.820] probably in the history of our country.
+- [18:14.020] They say 48 years, but let's say that's --
+- [18:16.720] I think it's worse than that -- so we had worst inflation
+- [18:20.260] in the history of our country under the Biden administration.
+- [18:24.030] Now we're down to a beautiful number, 2 percent.
+- [18:28.100] You'd actually like to keep it there.
+- [18:29.420] Better than zero is 2 percent. It's gone down maybe to 1.
+- [18:32.910] And 1 percent is like perfect. That's perfect.
+- [18:35.840] You don't want to have zero for certain reasons
+- [18:39.030] that nobody is very interested to listen to.
+- [18:42.180] But we have almost perfect inflation.
+- [18:44.770] Grocery prices are down. Everything. Remember eggs.
+- [18:48.240] Eggs, we weren't going to buy another egg
+- [18:50.200] for the next 20 years. They were so expensive.
+- [18:52.240] Right? Remember? You guys all hit me about eggs.
+- [18:55.200] Eggs have come down 400 percent. Everybody has eggs now.
+- [18:59.040] They're having eggs for breakfast again.
+- [19:00.950] But if you look at gasoline, very important.
+- [19:03.360] I think always the most important
+- [19:04.980] because you see, energy is the biggest factor.
+- [19:07.700] That's what happened. He screwed up our energy policy
+- [19:10.850] and everything went up because energy went up.
+- [19:13.420] But now energy is way down and they have states
+- [19:16.850] where you're at $1.98 a gallon for gasoline.
+- [19:21.390] So the costs have come way down.
+- [19:25.990] One of the things I ran on was that. I ran the border.
+- [19:28.850] We have the best border in the history of our country.
+- [19:30.840] Ninety-nine point nine nine percent.
+- [19:33.570] It was last week, three people came in,
+- [19:37.000] two of them for medical reasons.
+- [19:38.440] We let them in because one of them had a heart attack.
+- [19:41.230] I think it was a nice thing to do.
+- [19:42.730] And one of em had something else.
+- [19:44.890] So we've never had, I had very good numbers
+- [19:48.360] for four years, but we really topped it.
+- [19:51.660] And I want to thank Christy and Tom Holman.
+- [19:54.290] They've done a fantastic job.
+- [19:56.670] But nobody mentions that anymore.
+- [19:58.080] Remember, a few months ago, the border was a total disaster.
+- [20:02.510] People were coming in by the hundreds of thousands of people
+- [20:05.870] a day, a week, a month. I mean, we had a month,
+- [20:10.160] two million people came in in one month.
+- [20:12.540] The border was being overrun and a lot of bad people,
+- [20:16.260] criminals, murderers, drug dealers.
+- [20:18.860] We had some of the worst people in the world coming in
+- [20:21.250] from all over the world. It's totally closed.
+- [20:24.250] And you know what, people are coming into our country,
+- [20:26.080] but they're coming in legally. So we've done a great job.
+- [20:30.270] Elon knew that. Elon endorsed me very strongly.
+- [20:33.400] He actually went up and campaigned for me.
+- [20:35.570] I think I would have won --
+- [20:36.770] Suzie would say I would've won Pennsylvania easily anyway,
+- [20:40.040] even if the governor ran -- the real governor,
+- [20:42.470] not the governor from Minnesota, who's --
+- [20:44.300] I mean, he's a sick puppy, that guy.
+- [20:45.950] That poor guy I feel sorry for him.
+- [20:48.000] But they made a bad choice with him.
+- [20:51.000] But if you pick Shapiro or anybody else,
+- [20:53.810] I spoke to him recently about his, you know,
+- [20:56.030] his house being set on fire, which was terrible.
+- [21:00.700] But if they picked him, I would have won Pennsylvania.
+- [21:02.830] I won it by a lot. But I'm very disappointed,
+- [21:06.460] because Elon knew the inner workings of this bill better
+- [21:10.350] than almost anybody sitting here, better than you people.
+- [21:13.490] He knew everything about it. He had no problem with it.
+- [21:15.600] All of a sudden, he had a problem.
+- [21:17.290] And he only developed the problem when he found out
+- [21:19.380] that we're going to have to cut the EV mandate,
+- [21:21.180] because that's billions and billions of dollars.
+- [21:23.940] And it really is unfair.
+- [21:25.140] We want to have cars of all types -- electric.
+- [21:27.600] We want have electric,
+- [21:28.840] but we want to a gasoline combustion.
+- [21:33.200] We want different. We want hybrids.
+- [21:35.170] We want all -- we want be able to sell everything.
+- [21:38.290] And when that was cut -- and Congress wanted to cut it --
+- [21:42.970] he became a little bit different.
+- [21:44.450] And I can understand that.
+- [21:47.040] He knew every aspect of this bill.
+- [21:48.740] He knew it better than almost anybody.
+- [21:51.080] And he never had a problem until right after he left.
+- [21:54.080] And if you saw the statements he made about me,
+- [21:56.050] which I'm sure you can get very easily.
+- [21:57.550] It's very fresh on tape.
+- [22:00.350] He said the most beautiful things about me.
+- [22:02.310] And he hasn't said bad about me personally,
+- [22:04.230] but I'm that'll be next.
+- [22:06.010] But I'm very disappointed in Elon. I've helped Elon a lot.
+- [22:11.240] Chancellor Merz: I just want to clarify,
+- [22:12.470] did he raise any of these concerns with you privately
+- [22:14.690] before he raised them publicly?
+- [22:16.460] And this is the guy you put in charge of cutting spending.
+- [22:19.240] Should people not take him seriously about spending now?
+- [22:21.350] Are you saying this is all sour grapes?
+- [22:22.880] The President: So he worked hard,
+- [22:24.080] and he did a good job.
+- [22:25.840] And I'll be honest, I think he misses the place.
+- [22:28.510] I think you got out there and all of a sudden
+- [22:30.160] he wasn't in this beautiful Oval Office and he wasn't in it.
+- [22:32.710] He's got nice offices, too.
+- [22:34.560] But there's something about this.
+- [22:36.040] When I was telling the Chancellor,
+- [22:37.530] this is where it is.
+- [22:38.740] People come in here, even from Germany.
+- [22:41.420] They come in and they walk into the Oval Office,
+- [22:44.850] and it's just a special place.
+- [22:46.190] It's like, you know, World War I,
+- [22:48.220] it started and it ended here.
+- [22:49.920] And World War II, and so many other things.
+- [22:53.310] Everything big comes right from this beautiful space.
+- [22:57.290] It's now much more beautiful than it was six months ago.
+- [23:00.240] A lot of good things are happening in this room.
+- [23:03.320] And I'll tell you, he's not the first.
+- [23:07.010] People leave my administration and they love us.
+- [23:13.300] And then at some point they miss it so badly.
+- [23:16.280] And some of them embrace it and some of actually become hostile.
+- [23:20.560] I don't know what it is.
+- [23:21.850] It's sort of Trump derangement syndrome,
+- [23:23.660] I guess they call it, but we have it with others too.
+- [23:26.840] They leave, and they wake up in the morning,
+- [23:30.470] and the glamor is gone, the whole world is different,
+- [23:33.960] and then they become hostile. I don't know what is is.
+- [23:36.510] Someday you'll write a book about it,
+- [23:38.030] you'll let us know. Yes.
+- [23:39.250] Chancellor Merz: Mr. President,
+- [23:40.460] speaking of ending wars in the school,
+- [23:42.390] you were very critical of Vladimir Putin
+- [23:44.190] a couple of days ago.
+- [23:46.000] What kind of play is he playing, with respect to [inaudible]?
+- [23:49.590] The President: Look, he got hit, he's been doing hitting,
+- [23:53.420] so I understand it, but he got hit hard
+- [23:57.110] and I don't think he's playing games.
+- [23:59.270] I think he -- I've always said he wanted the whole thing.
+- [24:03.010] I thought he wanted the entire
+- [24:05.660] everything having to do with Ukraine.
+- [24:08.630] That's something that would have never happened
+- [24:10.220] if I were president. The election was rigged.
+- [24:12.050] I didn't get to be president, but I got to be President now.
+- [24:15.540] And I think it's a much more important presidency,
+- [24:18.010] other than a couple of things like that.
+- [24:20.880] The war would have never, would have never happened.
+- [24:23.890] The war with Ukraine, with Putin would have never happened,
+- [24:26.390] ever, not even a chance.
+- [24:27.610] And it didn't happen for four years.
+- [24:29.430] And it wasn't thought of.
+- [24:30.640] I used to talk to him about Ukraine a lot.
+- [24:32.770] It was the apple of his eye,
+- [24:34.050] but he would have never done what he did.
+- [24:36.750] And I thinks mistakes were made by him,
+- [24:39.580] but I think mistakes were make by other people.
+- [24:43.150] And the President should have never allowed that way.
+- [24:45.720] Biden should have never allowed that war to happen.
+- [24:49.320] If you had the right guy in here,
+- [24:50.730] that war would have never happened.
+- [24:52.110] Israel would have ever happened with Hamas.
+- [24:56.020] That would have every happened.
+- [24:57.290] The attack on Israel would've never happened
+- [24:59.750] because Iran was broke. They had no money.
+- [25:03.180] They had money to give to Hamas or Hezbollah or anybody else.
+- [25:07.650] And all of that would've ever happened.
+- [25:09.700] Inflation wouldn't have happened.
+- [25:11.080] It was caused mostly by energy.
+- [25:13.390] And the Biden administration messed up
+- [25:16.020] my great energy policy.
+- [25:17.460] We were down into the $1.90 a gallon,
+- [25:21.170] and it would have never happened.
+- [25:22.390] It was caused by energy and their bad
+- [25:24.040] spending or the Green New Scam
+- [25:25.520] and other things that they spent on.
+- [25:27.550] But all of those things would have ever happened.
+- [25:29.580] But maybe most importantly, the war, Chancellor,
+- [25:33.620] with Russia would never have happened with Ukraine.
+- [25:39.410] It was something that would have -- you know, I've.
+- [25:42.100] I dealt with Putin a lot. There was no chance, zero.
+- [25:46.730] And, you know, a lot of people say, how do you know?
+- [25:48.730] For four years, it didn't happen.
+- [25:50.080] There was never a chance of it happening.
+- [25:51.930] And he understood the consequences.
+- [25:53.590] Now, it's a shame.
+- [25:56.580] And when you see all of those people,
+- [25:58.580] they came out with a report today that millions of people,
+- [26:04.440] millions of of people have died much more than people thought.
+- [26:07.880] And I've been saying that for a long time.
+- [26:10.070] The amount of death in that war is far greater
+- [26:12.710] than the news has been reporting,
+- [26:15.130] or than, frankly, that either side has been reported.
+- [26:17.780] It's a very sad thing. And I can tell you,
+- [26:19.670] just speaking for the Chancellor,
+- [26:21.060] because we speak about it, he feels the same way.
+- [26:24.080] He wants to see it end. Would you like to say something?
+- [26:27.340] Chancellor Merz: I'm here, Mr. President,
+- [26:28.620] to talk with you later on
+- [26:31.180] on how we could contribute to that goal.
+- [26:35.370] We all are looking for measures
+- [26:39.370] and for instruments to bring this terrible war to an end.
+- [26:43.880] And may I remind you that we are having June 6th tomorrow.
+- [26:48.140] This is the D-Day, anniversary,
+- [26:50.980] when the Americans once ended a war in Europe.
+- [26:55.560] And I think this is in your hand, in specific, in ours.
+- [26:59.510] The President: It's not a pleasant day for you.
+- [27:01.250] Chancellor Merz: No, that was not a pleasant --
+- [27:02.980] well, int the long run, Mr. President,
+- [27:05.230] this was the liberation of my country from Nazi dictatorship.
+- [27:09.360] The President: That's true, that's true.
+- [27:10.630] Chancellor Merz: And we know what we owe you.
+- [27:12.500] But this is the reason why I'm saying that America is,
+- [27:16.190] again, in a very strong position to do something on this war
+- [27:20.930] and ending this war.
+- [27:22.210] So let's talk about what we can do jointly,
+- [27:24.840] and we are ready to do what we can,
+- [27:26.920] and you know that we gave support to Ukraine.
+- [27:29.400] And that we are looking for more pressure on Russia,
+- [27:32.920] the European Union did, and we should talk about that.
+- [27:35.710] The President: We will talk about it.
+- [27:36.990] And, you know, it's good timing.
+- [27:38.500] The numbers for our country are through the roof,
+- [27:41.980] the economic numbers, because of the election
+- [27:44.320] and because of tariffs and other things, a lot of things.
+- [27:47.800] But we've had some of the best numbers we've ever had.
+- [27:51.060] They were reported yesterday, the day before, and even today.
+- [27:54.680] The country is doing really well.
+- [27:57.180] I think that one of the things you'd be most interested in
+- [27:59.830] is that six months ago, we were having a hard time
+- [28:03.040] getting anybody to join our military.
+- [28:05.220] I mean, they just couldn't do it.
+- [28:06.700] The numbers were record low.
+- [28:08.640] We couldn't get people to join the military.
+- [28:10.490] It wasn't me. It was before I got there.
+- [28:12.280] The past administration.
+- [28:14.480] But six months ago, a year ago, the numbers were record low,
+- [28:18.840] and you couldn't them to join. That included the police,
+- [28:22.710] and you could get them to do it now.
+- [28:25.760] We just hit the highest number in the history of our country,
+- [28:29.760] we think, but very close.
+- [28:31.600] But the highest in the history of our county, recruitment.
+- [28:35.130] Joining the Army, Navy, Air Force, Marines, Coast Guard,
+- [28:38.970] police forces all over the country.
+- [28:40.220] Chancellor Merz: What did you do for them?
+- [28:41.450] What was the reason?
+- [28:42.650] The President: Spirit. They love our country again.
+- [28:44.740] You're going to do the same thing.
+- [28:46.390] Spirit. We have great spirits back in our country.
+- [28:51.850] And it's very simple. You know, it was only,
+- [28:53.800] Susie, six months ago, right? That you got reports.
+- [28:56.360] You're the one that released them,
+- [28:57.800] that you couldn't get anybody to join the military.
+- [29:00.450] And now we're stocked. Every service now is packed
+- [29:05.620] And we have waiting lists of people trying to get in,
+- [29:08.100] as good as we've ever had in the history of our country.
+- [29:10.370] So that's an honor. That's a great honor.
+- [29:17.970] The Press: Mr. President,
+- [29:19.270] so would you consider to put more sanctions on Russia,
+- [29:22.430] because this discussion is going on now for weeks and months,
+- [29:25.690] and you tweeted about it once, but then nothing happens.
+- [29:28.220] What would you do?
+- [29:29.440] The President: Yeah, when I see the moment
+- [29:30.710] when we're not going to make a deal,
+- [29:31.910] when this thing won't stop.
+- [29:33.800] The Press: Is there a deadline for it?
+- [29:35.020] The President: At that moment,
+- [29:36.420] yeah, it's in my brain, the deadline.
+- [29:39.500] When I see a moment where it's not going stop,
+- [29:44.050] and I'm sure you're going to do the same thing,
+- [29:46.180] it will be very, very tough.
+- [29:48.940] And it could be on both countries, to be honest,
+- [29:50.730] you know, it takes two to tango. But we're going be very tough,
+- [29:54.950] whether it's Russia or anybody else,
+- [29:56.930] we're gonna be very tough.
+- [29:58.340] That's a bloodbath that's going on over there.
+- [30:01.450] And when I see the moment where I say,
+- [30:04.700] well, they're going to just keep fighting.
+- [30:06.760] You know, I gave the analogy yesterday
+- [30:08.280] when I spoke to President Putin.
+- [30:10.140] I had a two-hour, 15-minute call with him.
+- [30:13.930] Sometimes -- and this is me speaking,
+- [30:16.750] maybe in a negative sense --
+- [30:18.910] but sometimes you see two young children fighting like crazy.
+- [30:22.660] They hate each other, and they're fighting in a park.
+- [30:26.620] And you try and pull them apart. They don't want to be pulled.
+- [30:29.110] Sometimes you're better off letting them fight for a while
+- [30:32.540] and then pulling them apart,
+- [30:35.200] and I gave that analogy to Putin yesterday.
+- [30:38.390] I said, President, maybe you're going to have to keep fighting
+- [30:42.640] and suffering a lot
+- [30:44.100] because both sides are suffering before you pull them up apart,
+- [30:47.370] before they're able to be pulled apart,
+- [30:49.160] but it's a pretty known analogy.
+- [30:51.670] You have two kids. They fight, fight, fight.
+- [30:54.450] Sometimes you let them fight for a little while.
+- [30:56.350] You see it in hockey. You see in sports.
+- [30:59.920] The referees let them go for a couple of seconds.
+- [31:02.070] Let them go a little for a while before you pull them apart.
+- [31:05.500] And maybe, and I said it, and maybe that's a negative
+- [31:09.520] because we're saying go, but a lot of bad blood.
+- [31:14.470] There's some bad blood between the two.
+- [31:16.550] I have to deal with it,
+- [31:17.770] and the Chancellor has to deal it.
+- [31:19.510] It's incredible the level of --
+- [31:21.070] there's a great hatred between those two.
+- [31:24.070] Between those two men, but between the warring parties.
+- [31:27.840] Great hatred.
+- [31:29.060] The Press: (inaudible)
+- [31:30.260] say and believe apparently that there is no immediate peace.
+- [31:32.620] The President: What?
+- [31:33.950] The Press: That there is not immediate peace,
+- [31:35.270] there will be no -- The President: Well, I can't.
+- [31:36.560] I'd love to have immediate if I could.
+- [31:39.270] But we don't have immediate.
+- [31:41.040] You know, it's like I'd love to have that.
+- [31:44.550] I like it to start right now.
+- [31:46.170] We would leave a room if we knew the war could end
+- [31:48.260] that everyone would say forget about you guys,
+- [31:51.100] forget about trade, right? We'd say, let's go settle it.
+- [31:56.070] There's some additional fighting that's going to go on.
+- [31:59.650] You know, he was -- he attacked
+- [32:01.600] and they attacked pretty harshly.
+- [32:05.240] They went deep into Russia, and he actually told me.
+- [32:08.800] I mean, I made it very clear.
+- [32:10.800] He said, we have no choice but to attack based on that,
+- [32:14.830] and it's probably not going to be pretty.
+- [32:18.470] I don't like it. I said, don't do it.
+- [32:20.440] You shouldn't do it. You should stop it.
+- [32:23.320] But again, there's a lot of hatred.
+- [32:25.970] And I'm very proud of the fact that with India and Pakistan,
+- [32:31.210] I was able to stop that.
+- [32:32.750] And those are nuclear powers, and that would have really --
+- [32:35.040] that was getting close to being out of hand.
+- [32:36.790] And I spoke to some very talented people
+- [32:40.070] on both sides, very good people on both sides.
+- [32:43.550] And I said, You know, we're dealing with you on trade --
+- [32:45.740] Pakistan and India -- right now.
+- [32:48.470] I said we're not going to deal with you in trade
+- [32:50.190] if you're going to go shooting each other
+- [32:51.780] and whipping out nuclear weapons that maybe even affect us.
+- [32:56.150] Because, you know, that nuclear dust blows across oceans
+- [32:58.700] very quickly. It affects us.
+- [33:01.450] And I said, If you're going to do that,
+- [33:03.010] we're not going to do any trade deals.
+- [33:04.430] And you know what? I got that war stopped.
+- [33:07.190] Now, I hope we don't go back and we find out that they restarted,
+- [33:10.080] but I don't think they will.
+- [33:11.620] They were both good. They were well represented.
+- [33:13.990] I want to congratulate both countries,
+- [33:17.470] because, as you know, the leader of India,
+- [33:21.170] who's a great guy, was here a few weeks ago.
+- [33:24.340] We had some great talks. We're doing a trade deal.
+- [33:27.330] And Pakistan, likewise, they're very, very strong leadership.
+- [33:32.250] Some people won't like when I say that,
+- [33:33.830] but, you know, it is what it is.
+- [33:36.300] And they stopped that war. Now, am I going to get credit?
+- [33:39.300] I'm not going to get credit for anything.
+- [33:41.120] They don't give me credit for anything.
+- [33:43.070] But nobody else could have done it.
+- [33:44.850] I stopped it. I was very proud of that.
+- [33:48.130] I wish we could do the same thing with Ukraine and Russia.
+- [33:52.760] And at some point, it will happen.
+- [33:54.720] I believe that. And if it doesn't happen
+- [33:57.370] or if I see somebody is out of line,
+- [33:58.970] if Russia's out of line, we'll be --
+- [34:03.100] you'll be amazed how tough.
+- [34:05.100] Remember this, they like to say that I'm friends with --
+- [34:08.960] I'm not friends with anybody. I'm friends with you.
+- [34:13.280] I want the right thing to happen for our country
+- [34:15.460] for everybody, for humanity.
+- [34:17.740] But I'm the one that stopped the pipeline.
+- [34:19.430] It's called Nord Stream 2.
+- [34:20.820] Until I came along nobody ever heard
+- [34:22.730] not one person in this room ever heard of Nord Stream 2.
+- [34:25.680] You probably did, because it went to Germany.
+- [34:28.660] He's the only one that heard of it.
+- [34:30.510] But I stopped him. I stopped it. Yeah.
+- [34:33.030] And you've said that openly. It was a mistake because --
+- [34:35.900] and I used to go with Angela. I'd say, well, wait a minute.
+- [34:38.540] We're spending all this money to defend you against Russia,
+- [34:41.820] and then you're giving Russia billions of dollars a month.
+- [34:44.810] What kind of a deal is that? You know, which was --
+- [34:47.920] but you said it better than anybody else.
+- [34:49.770] I appreciate it. But I'm the one that stopped it,
+- [34:53.550] and that was the biggest economic development job
+- [34:55.740] if you want to call it that, in the history.
+- [34:58.110] Think of it, in the history of Russia, that was a massive --
+- [35:01.200] it's the biggest pipeline in the world.
+- [35:03.390] Going to go all over Europe, not only to Germany --
+- [35:04.990] you know, they're Germany --
+- [35:06.230] but then they were branching off all over to Europe.
+- [35:08.600] Nobody ever heard of --
+- [35:09.820] not one person of you heard of it.
+- [35:12.300] And I stopped it. It was dead.
+- [35:14.840] And then they say, I'm friends with Putin.
+- [35:17.490] I get along with him. He respected me.
+- [35:19.570] I respected him. It would have never happened.
+- [35:21.930] But I stopped Nord Stream 2.
+- [35:24.030] When Biden came in, almost the first week --
+- [35:27.380] he approved it. He let it be built.
+- [35:30.050] And then they say that I wasn't tough on Russia.
+- [35:33.560] Putin said to me, you know, you're not tough on Russia.
+- [35:35.510] You stopped the biggest, most important job we've ever done.
+- [35:38.510] You've stopped it.
+- [35:39.740] And Biden came in and he let it be built.
+- [35:41.860] And I'll tell you what, I will never forget the day.
+- [35:45.260] I had it totally stopped. They weren't building.
+- [35:47.450] They gave up on it. They weren't able to.
+- [35:50.330] And then Biden came and he let it build.
+- [35:52.060] I couldn't believe it.
+- [35:53.280] Okay, one or two questions more, please.
+- [35:56.210] Any questions for the Chancellor?
+- [35:58.860] Go ahead, for the chancellor. I like his answers much better.
+- [36:05.060] The Press: Would you continue to support Ukraine?
+- [36:08.620] The President: Yeah, I'm with Ukraine.
+- [36:10.160] We just signed a big deal on rare earth with Ukraine,
+- [36:13.910] and we want it. I want to -- you know what?
+- [36:16.640] I'm for stopping killing, really.
+- [36:20.290] That's what I'm, for.
+- [36:21.710] Again, a war that would have never started,
+- [36:23.340] should have never starting. I want see the killing stop.
+- [36:26.240] We spent $350 billion, much more than Europe,
+- [36:29.590] but Europe spent a lot also,
+- [36:31.410] and they spent way over $100 billion.
+- [36:34.320] So, you're talking about close to $500 billion
+- [36:37.300] went into that whole thing. And it's not even the money.
+- [36:40.670] I know with you, too, it's a lot of money.
+- [36:44.030] But it's the death that's being caused.
+- [36:46.190] We went to the Middle East.
+- [36:47.420] I went, last week, to the Middle East.
+- [36:49.130] We took in $5.1 trillion. That's many, many times.
+- [36:53.090] It's 30, 40 times, 50 times more than what we're talking about.
+- [36:57.880] It's five point -- think of that.
+- [36:59.760] $5.1 trillion of investment with one trip that lasted four days.
+- [37:05.060] So it's just not the money, It's a little bit money,
+- [37:08.970] but not the money, the big thing.
+- [37:10.330] The big thing is the death.
+- [37:12.300] The death of -- and really the decimation.
+- [37:16.440] You've lost the whole culture.
+- [37:18.020] You know, Ukraine had the most beautiful turrets.
+- [37:20.280] They call them turrets, little towers, beautiful towers.
+- [37:23.680] The most beautiful in the world.
+- [37:26.040] They're all now laying on their side, blown to smithereens.
+- [37:29.420] It'll never happen again.
+- [37:30.800] They've taken away the culture of a country.
+- [37:34.520] They've taken away the heritage of a country.
+- [37:36.620] It's a terrible thing.
+- [37:37.930] But most importantly, again, is the death.
+- [37:40.150] 5,000-plus people a week, soldiers, are being killed.
+- [37:45.730] He doesn't want that, and I don't want.
+- [37:50.620] The Press: Mr. President, do you support
+- [37:51.880] the [inaudible]
+- [37:53.090] bill for putting high tariffs --.
+- [37:55.330] The President: I have not looked at it,
+- [37:57.140] but they'll be guided by me.
+- [37:59.220] That's the way it's supposed to be.
+- [38:00.610] They're going to be guided my me.
+- [38:01.860] No, I haven't looked at.
+- [38:03.080] It's a bill on sanctions, et cetera.
+- [38:06.860] When it -- I'm a very quick study.
+- [38:09.390] At the right time, I'll do what I want to do.
+- [38:12.070] But it could very well be okay. I'll have to see.
+- [38:13.990] But they're waiting for me to decide on what to do,
+- [38:17.660] and I'll -- I'll know. Maybe very soon.
+- [38:20.960] It's a harsh bill. Yeah, very harsh.
+- [38:30.460] The Press: Do you agree with the analogy
+- [38:32.540] the President made on the war between Russia and Ukraine
+- [38:36.440] as being a fight between two kids?
+- [38:38.640] Is that how you view that as well?
+- [38:40.750] And what do you actually want the U.S. Government to do?
+- [38:45.590] Chancellor Merz: I think we both agree on this war
+- [38:49.240] and how terrible this war is going on.
+- [38:52.670] We are both looking for ways to stop it very soon.
+- [39:01.210] I told the President before we came in that
+- [39:04.210] he is the key person in the world
+- [39:06.050] (inaudible) can really do that.
+- [39:09.320] Now by putting pressure on Russia
+- [39:12.670] and we will have this debate later on again
+- [39:15.740] how we can proceed jointly between the Europeans
+- [39:18.430] and the Americans and I think we are all in --
+- [39:22.000] we are having the duty to do something on that now
+- [39:25.760] to stop it after three and a half years
+- [39:28.320] which is really terrible. Look at the kids.
+- [39:30.830] The kids which were kidnapped from Ukraine to Russia.
+- [39:36.110] This is this is all terrible.
+- [39:38.510] And so we are talking about instruments,
+- [39:40.610] measures what we can do and my personal view is clear
+- [39:43.100] on that we are on the side of Ukraine
+- [39:45.340] and we are trying to get them stronger and stronger
+- [39:47.810] just to make Putin stop this war.
+- [39:49.950] This is (inaudible).
+- [39:51.400] The President: We get satellite pictures of the war field,
+- [39:54.630] and you don't even like to look at them, right?
+- [39:56.840] Chancellor Merz: It's terrible.
+- [39:58.040] The President: So, bodies, arms, heads, legs, all over the place.
+- [40:04.760] You've never seen anything like it.
+- [40:06.110] It's so ridiculous.
+- [40:07.680] Chancellor Merz: And this is only
+- [40:08.960] by Russian weapons against Ukraine.
+- [40:11.640] This had never happened with Ukraine weapons against Russia.
+- [40:15.570] Never. Ukraine is only targeting military targets.
+- [40:19.950] Not civilians, not private, not energy infrastructure.
+- [40:25.010] So this is the difference,
+- [40:26.460] and that's the reason why we are trying to do more on Russia.
+- [40:29.520] How to stop this war.
+- [40:30.780] The President: Well, in this case,
+- [40:32.010] I'm talking about the battlefield.
+- [40:33.620] You know, the soldiers on soldiers.
+- [40:35.180] But you could also say that, too, with the cities.
+- [40:37.280] The cities are being hit, also.
+- [40:38.860] So it's a terrible, terrible thing, right?
+- [40:40.670] One -- somebody said auto pen
+- [40:44.380] because I think it's the biggest scandal
+- [40:47.060] maybe in the last hundred years in this country.
+- [40:50.090] So when I hear that word, I think it has to be discussed,
+- [40:52.300] because the fake news will try and, you know, hide it.
+- [40:56.700] And we can't do that.
+- [40:57.970] The Press: Have you uncovered any evidence
+- [40:59.340] that anything specific was signed
+- [41:01.450] without President Biden's knowledge or by other people
+- [41:04.310] in the administration acting illegally?
+- [41:06.410] The President: Well, I don't think Biden would know
+- [41:07.800] whether or not he signed it.
+- [41:09.090] The Press: I'm asking if you've uncovered
+- [41:10.300] any of that information.
+- [41:11.500] The President: No, but I've uncovered,
+- [41:12.860] you know, the human mind.
+- [41:14.070] I was in a debate with the human mind,
+- [41:16.680] and I didn't think he knew what the hell he was doing.
+- [41:18.710] So, you know it's just one of those things,
+- [41:20.270] one of these problems.
+- [41:22.130] We can't ever allow that to happen to our country.
+- [41:24.930] The danger our country was in.
+- [41:26.920] And I know some of the people that worked with him.
+- [41:29.150] Radical, left, horrible people.
+- [41:31.860] And I could give you the name of some of people
+- [41:33.780] that used the auto pen, because I'm here.
+- [41:35.840] And I asked questions about people that were here also.
+- [41:38.240] There are a lot of people that were here when that happened,
+- [41:40.810] and they're here right now.
+- [41:42.290] And they'll answer your question very accurately.
+- [41:45.150] But I know some of the people that use that auto pen,
+- [41:47.800] and those are not the people
+- [41:49.060] that had the same ideology as Joe Biden.
+- [41:52.760] These were radical-left lunatics that used that.
+- [41:55.600] And they didn't get elected.
+- [41:57.890] He didn't get elected either, actually.
+- [41:59.980] Thank you very much, everybody.

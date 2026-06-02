@@ -1,0 +1,1149 @@
+<!-- source: https://www.youtube.com/watch?v=VxX6NGl-kB8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: VxX6NGl-kB8 -->
+<!-- date_published: 2025-05-20T00:00:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:46.634366+00:00 -->
+
+# Transcript: President Trump Participates in a Kennedy Center Board Dinner
+
+- [00:00.460] (applause)
+- [00:19.460] The President: Well, what a group.
+- [00:22.200] What a group this is.
+- [00:24.920] There is the great Steve -- hi, Steve.
+- [00:26.810] Hello, everybody.
+- [00:28.460] What a group of good friends.
+- [00:29.980] We're going to bring this place back.
+- [00:31.540] It's not so good.
+- [00:33.750] I thought it was going to be as beautiful.
+- [00:35.705] I hadn't been there in a while.
+- [00:37.270] I said, this is going to be beautiful.
+- [00:38.830] It's not looking too good.
+- [00:40.620] But we're going to bring it back.
+- [00:41.860] Why don't we sit down?
+- [00:43.390] Tell you about our day.
+- [00:44.350] Should I tell you about the day?
+- [00:46.520] My little conversation with a nice
+- [00:48.822] gentleman named Vladimir Putin.
+- [00:52.660] But we had a good talk.
+- [00:56.055] And I think that progress is being made.
+- [00:58.780] 5,000 young soldiers are being
+- [01:01.044] killed every single week on average.
+- [01:04.030] Can you -- 5,000?
+- [01:06.420] And it's actually a number -- probably worse than that.
+- [01:08.940] In addition to other people
+- [01:10.020] that are being killed in towns.
+- [01:11.920] And we're trying to stop it.
+- [01:14.050] It's a bloodbath.
+- [01:15.660] It's an absolute bloodbath.
+- [01:16.940] I've seen satellite pictures
+- [01:18.875] that are so bad, so horrible.
+- [01:21.430] And it's to think that in this day and
+- [01:24.100] age we're living with this
+- [01:26.038] horrible thing that's going on.
+- [01:27.680] We're doing the best we can.
+- [01:29.580] This was not our war.
+- [01:31.420] This was not me.
+- [01:33.160] We're doing something from the last administration.
+- [01:35.580] How they allowed that to happen.
+- [01:36.700] It wouldn't have happened.
+- [01:37.520] It would have never happened.
+- [01:38.960] And you know, the Ukraine
+- [01:39.960] Russia wouldn't have happened.
+- [01:41.760] But I'll tell you what else wouldn't have happened.
+- [01:43.855] October 7th would not have happened.
+- [01:47.320] This was a terrible thing also.
+- [01:48.381] A lot of bad things happened in the last four years.
+- [01:51.140] But good things are happening now.
+- [01:52.780] We had a tremendous visit in the Middle East.
+- [01:56.710] We went to a Qatar.
+- [01:59.110] We saw the Saudi Arabia all the top people in UAE.
+- [02:04.930] And we brought back about 5.1 trillion dollars.
+- [02:08.320] That's not bad.
+- [02:15.100] And it's been credited as one of the maybe
+- [02:17.620] the most successful visit that
+- [02:19.511] anybody has ever made to any place.
+- [02:21.280] There's never been anything like this.
+- [02:23.600] Hundreds of planes.
+- [02:24.600] Big wide body planes ordered.
+- [02:27.480] Boeing getting from Boeing.
+- [02:29.120] But I think an order of, I think, 148 planes.
+- [02:32.560] It's a lot of 777s.
+- [02:34.620] So those are the big ones or the 787 Dreamliners.
+- [02:39.690] And orders of everything.
+- [02:41.040] The AI is going to happen.
+- [02:41.641] It's going wild.
+- [02:42.870] I hope it's as good as people say.
+- [02:45.540] Because otherwise, some people are
+- [02:46.785] going to be pretty disappointed.
+- [02:47.980] But it seems like it is a lot
+- [02:49.670] of smart people are doing it.
+- [02:51.565] But massive orders into our country.
+- [02:55.420] We did 1.4 trillion in one case.
+- [02:58.160] We did two trillion in another case.
+- [02:59.661] Number's that nobody's ever really heard of before.
+- [03:02.840] And our relationship is fantastic
+- [03:05.194] with those three beautiful places
+- [03:07.820] I mean, they're incredible.
+- [03:09.000] Money is like no place else probably anywhere.
+- [03:13.720] But we have more money.
+- [03:14.501] But we didn't use it right.
+- [03:15.640] But that's all right.
+- [03:16.450] Now we're starting to.
+- [03:17.640] We were losing in trade $5 billion a day.
+- [03:21.890] And now, because of tariffs and other
+- [03:24.608] things, we're making $1 billion a day.
+- [03:27.570] And that tariffs haven't even
+- [03:29.054] really kicked in quite a while.
+- [03:32.340] It's a big difference.
+- [03:35.030] It was for the last four years.
+- [03:36.060] I've been a disaster for us with trade.
+- [03:38.380] And frankly, with everything else.
+- [03:40.780] So we're here for a different reason tonight.
+- [03:44.060] We're going to have to fix this one too.
+- [03:45.561] We're fixing everything.
+- [03:46.800] We're going around Mr. Fix it.
+- [03:48.230] Mrs. Fix it.
+- [03:49.860] Anybody want to join me?
+- [03:51.960] But the Kennedy Center --
+- [03:55.540] When I said, I'll do this.
+- [03:57.330] I hadn't been there.
+- [03:59.180] It's the last time I'll take
+- [04:00.590] a job with that looking at it.
+- [04:03.900] But it's got a tremendous amount.
+- [04:06.760] Lindsey Graham and some people put in the budget.
+- [04:10.985] Either 200 or $250 million.
+- [04:13.940] Money was spent there.
+- [04:15.060] Tremendous amounts of money was
+- [04:16.704] spent there over the last 10 years.
+- [04:18.660] I don't know where they spent it.
+- [04:20.120] They certainly didn't spend it on
+- [04:21.688] wallpaper, carpet, or painting.
+- [04:24.220] And they had over $200 million was spent.
+- [04:27.800] So I don't know what's going on.
+- [04:30.100] Pam, are you here?
+- [04:33.000] When I hear that, I say, what?
+- [04:36.420] Pam, where did all this money go?
+- [04:38.530] It's crazy.
+- [04:40.060] It's crazy what's happened with
+- [04:41.535] our country in that regard.
+- [04:43.650] You know, it's to build things.
+- [04:44.780] We go back to the Wallman rink.
+- [04:46.970] They went for years, 12 years
+- [04:48.515] without getting in a rink.
+- [04:49.901] And I got it built in three months
+- [04:52.477] for a fraction, like a tiny fraction.
+- [04:55.580] They had spent over $20 million.
+- [04:58.540] I never got it open.
+- [04:59.420] I said, I want my kids to go ice
+- [05:00.657] skating before they're too old.
+- [05:01.880] I don't want to go ice skating anymore.
+- [05:03.940] I used to watch it from my window.
+- [05:05.400] I used to watch people.
+- [05:06.260] Nobody working and spending money like crazy.
+- [05:11.040] And as you know, I got it built very quickly.
+- [05:15.280] This is a -- well, maybe a more difficult.
+- [05:17.180] That was pretty easy, actually.
+- [05:18.750] That was where we had cement mixers from
+- [05:21.073] the rink all the way back into Harlem.
+- [05:23.620] We poured one contiguous pour
+- [05:25.130] over a period of a day and a half.
+- [05:27.265] They would pour a little sectioned
+- [05:28.968] and another little sectioned.
+- [05:30.460] And when they put water, it all leaked, surprisingly.
+- [05:33.760] So it was fun, but I love construction.
+- [05:36.230] I guess why I like this a little
+- [05:37.533] because we're going to have to redo it.
+- [05:39.360] So I'm honored to welcome exceptionally
+- [05:41.154] talented and committed group of patriots.
+- [05:43.200] You're amazing people.
+- [05:44.520] This is an amazing board.
+- [05:46.760] And I got so many calls from
+- [05:48.045] people, could I get on the board?
+- [05:50.150] You have a lot of people that are not so
+- [05:51.665] much in love with me right now because I
+- [05:53.181] couldn't get them on the board.
+- [05:56.320] But because the board is taken, but
+- [05:58.012] we're going to turn it around and the
+- [05:59.801] Kennedy Center, Board of Trustees, you're here.
+- [06:02.620] And in many cases, you have your spouses.
+- [06:05.100] And I want to thank Rick Grinnow.
+- [06:06.610] Where's Rick?
+- [06:07.620] Where's Rick?
+- [06:08.460] Hello, Rick.
+- [06:10.760] Please, Rick.
+- [06:12.400] He did a great job.
+- [06:14.580] He used to walk into the Justice
+- [06:16.671] Department with self-undershown all the
+- [06:19.221] horrible things that have gone on
+- [06:20.832] in our country, had a lot of courage.
+- [06:23.400] And he's going to be with me for
+- [06:24.753] a long time different things.
+- [06:26.240] He seems to be a troubleshooter.
+- [06:28.240] I say, how about Kennedy Center?
+- [06:29.440] Let's fix that one up.
+- [06:30.900] And tremendous strides have been made.
+- [06:32.540] You'll be hearing about that in a second.
+- [06:34.710] But I want to thank the entire board
+- [06:36.865] for the incredible work and
+- [06:38.464] all the fundraising efforts.
+- [06:40.170] We're going to raise some funds, but
+- [06:41.420] we're getting a lot of funds also from Congress.
+- [06:43.610] Because I want to see this thing good.
+- [06:45.120] You know, we have the 250th year anniversary coming up.
+- [06:49.420] And this building is going
+- [06:51.150] to be a primary focus in D.C.
+- [06:53.640] And it's got the potential for greatness.
+- [06:55.560] If it didn't, I wouldn't have done it.
+- [06:56.810] But it has a great plan.
+- [07:01.300] It's got great sound.
+- [07:02.580] It's got a lot of things that, you
+- [07:03.751] know, if you don't have good sound, you can forget it.
+- [07:05.581] And they've been trying to do things
+- [07:07.877] over at Lincoln Center of all my life.
+- [07:10.360] I've been watching.
+- [07:11.160] They rip it down, build it up, rip it down.
+- [07:13.460] You know, some of the greatest sound of
+- [07:15.294] buildings built in the 1850s at a pure marble.
+- [07:18.300] And you get up and you can just talk
+- [07:19.816] lightly and they hear you back a hundred rows.
+- [07:23.160] But some, and if you don't have sound --
+- [07:24.850] I think there's a certain amount of luck.
+- [07:26.460] You hire sound engineers.
+- [07:28.080] They get a lot of money.
+- [07:28.801] And then you open the building
+- [07:30.001] and you can't hear anything.
+- [07:31.570] So we're gonna do some good things.
+- [07:34.720] But the basics are there.
+- [07:36.380] The location is phenomenal.
+- [07:37.845] The importance of the building is phenomenal.
+- [07:40.480] And we'll have some very interesting plans.
+- [07:43.560] I always thought they should have built
+- [07:46.611] a beautiful performing center, open air,
+- [07:50.120] facing out over the Potomac.
+- [07:51.440] They didn't do that.
+- [07:52.140] They built these crazy rooms underneath.
+- [07:54.520] They built three tiny little stages.
+- [07:58.741] Very expensive.
+- [08:00.960] Someday, maybe somebody will occupy one.
+- [08:03.260] They're underground.
+- [08:05.500] In fact, when I looked from a distance,
+- [08:07.733] you know, you see these like hubs, concrete hubs.
+- [08:11.440] And I thought it was modern art.
+- [08:13.080] You know, well, here we go with the
+- [08:14.898] modern art blocking everybody's view.
+- [08:17.480] And when I actually went over there,
+- [08:18.952] I said, no, it wasn't modern art.
+- [08:20.261] It was meant for a door to be in.
+- [08:21.800] So you go down to these rooms.
+- [08:23.840] So I don't know what the hell they were
+- [08:25.400] doing, but they spent a lot of money.
+- [08:27.040] And it's just not possible
+- [08:28.451] that they could have spent it.
+- [08:30.260] So poorly.
+- [08:31.540] But we're going to turn it around.
+- [08:33.180] That's what I love doing.
+- [08:34.215] I love turning things around.
+- [08:36.040] Turn around artists.
+- [08:37.840] I'm doing that with the country.
+- [08:38.920] Believe me, we're doing it.
+- [08:39.980] We're doing a job.
+- [08:40.960] We are hot.
+- [08:43.260] We are hot.
+- [08:47.440] The country is hot.
+- [08:49.580] We are in a short period.
+- [08:50.700] Look, we've been there for 100 days, plus a few days.
+- [08:54.740] And as they said, the king of Saudi Arabia
+- [08:57.913] said, your country is a whole different image now.
+- [09:02.200] We were a laughingstock, an absolute
+- [09:04.578] laughingstock, but we're not
+- [09:06.450] a laughingstock any longer.
+- [09:09.270] And, you know, I was talking to, as
+- [09:11.754] I said, President Putin for two and a
+- [09:14.381] half hours, that was being very seriously listened to.
+- [09:17.940] We don't like what's happening.
+- [09:19.920] We don't like that we should have ever been involved.
+- [09:22.080] Would have never happened.
+- [09:24.040] But we're respected again as a country.
+- [09:26.220] You know, one thing that I tell
+- [09:28.574] you that I think is amazing.
+- [09:31.120] If you remember about eight months ago,
+- [09:33.490] the big story was that nobody
+- [09:35.337] wants to join our military.
+- [09:36.560] We couldn't have any -- people weren't joining.
+- [09:39.180] And they weren't proud of our country.
+- [09:41.400] They weren't joining police forces
+- [09:43.277] all over the country, Houston, Dallas,
+- [09:45.420] all over the country, New York.
+- [09:47.510] And now we have a record setting
+- [09:49.414] enlistment in the military.
+- [09:51.021] Think of that, record setting.
+- [09:52.960] The most in 38 years, but it's probably more than that.
+- [09:55.920] They started taking the number
+- [09:57.631] Susy, 38 years ago, right?
+- [09:59.401] But the most in 30 years, probably
+- [10:00.782] the most ever, I don't know.
+- [10:02.280] But we have record setting young
+- [10:04.456] people that want to join the military.
+- [10:07.500] And that's incredible.
+- [10:08.720] To have that is just absolutely incredible.
+- [10:11.700] And to think that eight months ago,
+- [10:13.397] we were all listening to the fact that
+- [10:15.241] this was before the election.
+- [10:17.330] Eight months ago, we were listening to
+- [10:19.483] the fact that we wouldn't have any --
+- [10:21.581] You know, we wouldn't have anybody in our --
+- [10:23.433] I mean, nobody.
+- [10:25.660] Army, Navy, Air Force, Marine, Space Force.
+- [10:28.860] I'm so proud of Space Force.
+- [10:30.140] We got that going.
+- [10:31.370] We started Space Force.
+- [10:33.110] And they wanted to terminate it.
+- [10:34.661] And the military backed up.
+- [10:36.620] And they said, you're not going to do that.
+- [10:37.820] We were third in space.
+- [10:39.080] And now we're number one in space by a lot.
+- [10:40.680] They've done a great job.
+- [10:41.930] They had some great commanders in Space Force.
+- [10:44.885] But, you know, ultimately it's going to
+- [10:46.608] be truly one of the most
+- [10:47.654] important things we've ever done.
+- [10:49.130] Because it's all heading to space.
+- [10:50.580] And I'm not talking about just
+- [10:52.223] experimental things that we do.
+- [10:54.015] Because a lot of people don't understand that.
+- [10:55.800] We can understand that.
+- [10:57.300] But we're in terms of defense
+- [10:59.599] and offense of our country.
+- [11:02.340] It's going to be very, very important.
+- [11:03.900] We're number one in space by a long shot.
+- [11:07.060] The Kennedy Center mission is to be the
+- [11:09.400] Crown Jewel of the Arts and
+- [11:10.982] Culture in our nation's capital.
+- [11:13.500] And under our new leadership, we're
+- [11:15.268] going to take this revered institution to
+- [11:17.940] heights that it's never seen before.
+- [11:19.200] I think we can take this to really some --
+- [11:20.981] Because we have the right place.
+- [11:23.060] We have all the politicians.
+- [11:24.701] And then we have the people that want to
+- [11:26.483] get to know the politicians for lots of bad reasons.
+- [11:30.240] And, you know, we have everybody here.
+- [11:32.540] They have to be here for something sometime.
+- [11:36.700] I've got total confidence in the --
+- [11:39.201] And they've just great team that
+- [11:40.805] Rick and the group have put together.
+- [11:42.700] Sergio has done fantastically.
+- [11:45.440] We're especially pleased to be joined
+- [11:47.904] tonight by Secretary of State Marco Rubio.
+- [11:51.040] Great guy.
+- [11:52.380] Great guy.
+- [11:52.820] Where is Marco?
+- [11:55.720] He's great.
+- [11:57.640] I'm telling you, he was born for this.
+- [12:00.110] He loves it.
+- [12:01.060] You see him.
+- [12:01.640] He's in one country, another country.
+- [12:04.070] I think he loves it.
+- [12:05.780] But he's so respected everywhere he goes.
+- [12:08.900] And I know how tough he is because I
+- [12:10.328] used to have to be up there with him.
+- [12:11.820] He was not nice.
+- [12:13.820] He was at -- he was at tough one.
+- [12:15.760] He was as good as you get.
+- [12:17.790] I didn't know that we would end
+- [12:19.674] up being this close actually.
+- [12:22.140] We like each other.
+- [12:23.000] I think I can speak for him.
+- [12:24.180] I can speak for myself, but he's --
+- [12:26.701] I like him and he's done a fantastic job.
+- [12:29.170] And he's really, really working.
+- [12:31.090] And we're getting relationships that we lost.
+- [12:33.935] That were very important for us in many ways.
+- [12:37.220] And so I want to thank Marco and Marco's on the board.
+- [12:40.260] Attorney General Pam Bondi, who I've known so long.
+- [12:48.900] And she's -- She's married to the
+- [12:50.801] best-looking guy in the room.
+- [12:52.120] I must say.
+- [12:53.360] But she is -- The man --
+- [12:57.000] She's been amazing.
+- [12:58.730] She's so respected.
+- [13:00.180] And she's, you know, really
+- [13:01.446] delving into some tough territory.
+- [13:03.940] She sees what's happened and what's going to happen.
+- [13:06.700] And she knows before anybody else,
+- [13:08.453] she's just a fantastic person.
+- [13:10.001] She's got a great staff that's surrounding her.
+- [13:13.900] And I think she's just a star.
+- [13:15.420] But I've known that for a long time.
+- [13:16.980] I'm not surprised at all.
+- [13:18.880] So thank you very much, Pam, for the job you do.
+- [13:22.860] And by the way, she was --
+- [13:24.560] She was the Attorney General of Florida.
+- [13:26.470] So she had plenty for a long
+- [13:27.713] time and never had a problem.
+- [13:29.720] I can't remember a problem.
+- [13:32.470] And she kept everybody safe and they felt very secure.
+- [13:35.840] Now she's doing it on an even bigger --
+- [13:37.761] Who would have thought it would have
+- [13:39.476] been a much bigger level, right?
+- [13:41.001] But she gets it.
+- [13:43.360] Secretary Howard Lettnick is here with his wife, Allison.
+- [13:46.180] And he's --
+- [13:48.960] He went with us to that
+- [13:51.978] incredible four-day little journey that we had.
+- [13:57.520] And we saw some things that were incredible.
+- [13:59.901] But everybody respects him.
+- [14:01.920] Did a great job in business.
+- [14:03.220] He built a firm twice.
+- [14:04.480] You know, his firm was at the top of the
+- [14:07.761] World Trade Center when the planes hit.
+- [14:11.420] And he was -- an amazing story.
+- [14:13.660] He was always -- Allison,
+- [14:15.440] good job.
+- [14:16.190] You got him to take the boy, right?
+- [14:19.020] Years ago, on that horrible date.
+- [14:22.960] When you think of it.
+- [14:24.300] So Howard would always be --
+- [14:26.480] built Cantor Fitzgerald, and he built it.
+- [14:29.880] And very top firm.
+- [14:31.100] They had the top three floors of the World
+- [14:33.227] Trade Center, the building, the
+- [14:34.775] first building that was hit.
+- [14:37.620] And he was always there at six in the
+- [14:38.976] morning, five thirty in the morning.
+- [14:40.320] You know, a lot of the stock guys have to do that.
+- [14:42.480] Someday you'll explain to me why.
+- [14:44.520] Probably insider trading, Pam.
+- [14:46.120] I don't know, it's probably.
+- [14:47.940] But whatever the hell reason, he was
+- [14:49.648] there always at five thirty or six o'clock.
+- [14:54.120] And first time ever, like almost ever,
+- [14:56.468] his wife was after him for years
+- [14:58.444] to take their son to school.
+- [15:01.200] He was a young boy, very young, like early grades.
+- [15:04.680] And he would say, no, I can't.
+- [15:05.900] This was years after like two or three
+- [15:08.201] years of being harassed by Allison.
+- [15:10.620] It was very tough.
+- [15:12.060] A great wife, beautiful wife.
+- [15:14.000] But she's very, very tough.
+- [15:15.580] And finally, he did it.
+- [15:17.720] He took his boy and it was on that day.
+- [15:20.520] And he dropped the boy off at eight thirty
+- [15:23.040] and started driving down the west side highway.
+- [15:26.660] And he would have been in that building.
+- [15:28.320] And every single person died in your firm.
+- [15:31.640] Every single -- he had lost everybody.
+- [15:33.920] And with the exception of a few people in
+- [15:35.680] Europe and maybe a couple of other places small.
+- [15:38.435] Because it were all very New York-centric.
+- [15:41.460] And every single one of them
+- [15:42.963] died, including your brother.
+- [15:46.160] And what he did was incredible, actually.
+- [15:49.100] He rebuilt the firm.
+- [15:51.060] And he gave a percentage of it for years
+- [15:53.322] to the people, the families of the people that died.
+- [15:57.080] And the new firm became more successful than the old firm.
+- [15:59.560] I'm using the same name, Cantor Fitzgerald.
+- [16:01.720] And he rebuilt it step by step by step.
+- [16:04.960] And I mean, that's why I said I have to get this guy.
+- [16:08.270] If I have a chance, if I ever do.
+- [16:10.540] And he was very happy.
+- [16:11.640] They were doing great.
+- [16:12.300] They were doing record business.
+- [16:14.010] But when I said, how about coming over to Commerce?
+- [16:18.160] A little thing called Commerce.
+- [16:19.500] And now I don't think you could
+- [16:20.738] ever go back into that world.
+- [16:21.920] Because it's so big.
+- [16:24.220] He and Scott are in charge of,
+- [16:26.301] along with others, that are great.
+- [16:29.180] But they're in charge of the
+- [16:30.454] biggest deal ever made in history.
+- [16:32.690] The whole tariffs we've taken in
+- [16:34.735] trillions of dollars, trillions.
+- [16:37.960] And we've been hurt very badly by other
+- [16:40.156] countries that did this to us for 20, 25 years.
+- [16:43.061] They were taking advantage of us.
+- [16:45.080] We never did anything.
+- [16:46.360] But now we're doing it to them.
+- [16:48.200] And fairly, very --
+- [16:49.700] I'll tell you what, modestly.
+- [16:51.705] But we'll be taking, and we are taking
+- [16:53.875] in right now, 25 percent in cars,
+- [16:55.980] 25 percent on steel and aluminum,
+- [16:58.433] 25 percent on other things.
+- [17:00.441] And that'll be going up to 50,
+- [17:02.613] 75, maybe 100 in some cases.
+- [17:04.785] We have to get our pharmaceutical industry back.
+- [17:08.130] Once we establish that in another couple
+- [17:10.439] of weeks, it'll start roaring back.
+- [17:12.485] It's already roaring back
+- [17:13.733] because they know we're doing it.
+- [17:16.160] And it's really been -- you've done a great job.
+- [17:19.150] But he said to me that, hey, this is so big.
+- [17:21.460] These numbers are big.
+- [17:23.050] It's -- Cantor Fitzgerald
+- [17:24.210] doesn't look so big anymore.
+- [17:25.820] We see numbers.
+- [17:26.740] And we talk in the trillions now.
+- [17:28.660] We talk -- you think of it.
+- [17:29.740] 5.1 trillion dollars.
+- [17:31.300] Nobody talks.
+- [17:32.550] But we're talking big numbers.
+- [17:33.790] And he's doing a great job.
+- [17:35.630] He did a great job before.
+- [17:38.320] Chief of staff, Susie, while she's
+- [17:39.760] considered the most powerful
+- [17:40.949] woman anywhere in the world.
+- [17:48.630] A lot of people are saying that,
+- [17:51.220] but she had a couple of articles.
+- [17:54.160] And I said, you know, it's actually true.
+- [17:56.760] She can wipe out a country with just a mere phone call.
+- [18:00.070] That's the end of the country.
+- [18:02.450] But she's great.
+- [18:03.130] She's been -- I mean, I knew because we won
+- [18:06.972] Florida three times and won it --
+- [18:09.591] you know, Florida didn't used to be a red state.
+- [18:11.250] It was a blue state.
+- [18:12.330] When I first ran, that was a blue state.
+- [18:14.911] And now it's a seriously red state.
+- [18:18.070] And it got more and more.
+- [18:20.430] And we're going to keep it that way.
+- [18:21.930] But Susie ran it.
+- [18:24.150] And we won by a landslide.
+- [18:26.340] And the Republican hadn't won.
+- [18:27.770] You had a Democrat senator.
+- [18:29.550] You had two Democrats senators.
+- [18:30.950] But you had a Democrat governor.
+- [18:32.830] You had a lot of Democrats.
+- [18:35.090] And so we won in a landslide.
+- [18:37.310] I said good.
+- [18:38.270] Then the next time I won again
+- [18:39.702] in a much bigger landslide.
+- [18:41.430] And anybody I endorsed also won.
+- [18:44.160] And I said that's good.
+- [18:45.210] And then when it came time to do
+- [18:46.584] this, after the election was rigged,
+- [18:48.450] the second one was rigged.
+- [18:49.830] Whether you like it or not, it was rigged.
+- [18:51.450] Like nobody's ever seen.
+- [18:52.865] And now people are seeing it.
+- [18:54.290] Now people don't even fight me.
+- [18:56.360] You know, they used to sir, that's
+- [18:57.680] not really that nice to say.
+- [18:59.230] I'm an honest.
+- [18:59.790] It was rigged.
+- [19:00.570] And unfortunately, that's what happened.
+- [19:02.130] And you look at some of the things that happened.
+- [19:03.510] All of these things wouldn't ever happen.
+- [19:07.030] But when it came time to think about doing
+- [19:09.073] it again, I didn't think I'd have to do that.
+- [19:11.840] I said, you know, I think I can
+- [19:13.865] take that woman, my friend now.
+- [19:16.550] But the time I didn't know,
+- [19:17.977] her father was Pat Summerall.
+- [19:19.750] It was a great football player.
+- [19:21.150] He was probably a greater
+- [19:23.050] announcer for 28 years for the NFL.
+- [19:27.090] But that tells me, because I'm a big
+- [19:29.184] believer in the genes, person's genes.
+- [19:32.750] And Susie was --
+- [19:34.555] I said, you know, let's use Susie.
+- [19:37.030] She did a great job in Florida for me twice.
+- [19:39.500] We beat every Democrat by numbers
+- [19:41.287] that they never saw before.
+- [19:42.910] I said, let's use --
+- [19:44.070] And she took over and she did great.
+- [19:45.691] Chris was fantastic.
+- [19:46.870] But she had a group of people
+- [19:48.125] that she brought with her.
+- [19:49.970] And there was no looking back.
+- [19:52.290] We started off leading by a lot.
+- [19:56.190] And it only got bigger and bigger and bigger.
+- [19:58.315] We got a couple of challenges.
+- [20:00.170] Didn't work out too well.
+- [20:02.170] Worked out well for us.
+- [20:03.470] But Susie was fantastic.
+- [20:04.451] And now she's the chief of staff of the President.
+- [20:08.651] And she really makes it work.
+- [20:11.720] And she's the first woman.
+- [20:13.050] This is shocking to me.
+- [20:14.350] Because, you know, thought we were beyond it.
+- [20:16.390] First woman chief of staff in
+- [20:17.840] the history of the country.
+- [20:27.420] And she's doing a great job.
+- [20:29.440] And, you know, those men are scared.
+- [20:32.580] She sits in the -- She sits in the back of the room.
+- [20:35.860] She watches them like this.
+- [20:37.441] She doesn't want publicity.
+- [20:38.561] She doesn't want to be on camera.
+- [20:40.440] She doesn't want stories.
+- [20:42.520] But they're up there.
+- [20:44.060] Yapping, yapping, yapping.
+- [20:45.680] And if they start yapping the wrong
+- [20:47.571] way, it's not pleasant for them.
+- [20:50.520] She's great.
+- [20:51.980] And we have a friend of mine.
+- [20:53.780] A man that I endorsed.
+- [20:54.940] And he proudly went through the roof.
+- [20:56.700] Jeff Landry, Governor of Louisiana.
+- [20:59.700] Thank you.
+- [21:04.360] Did my endorsement mean much?
+- [21:06.680] When I endorsed you
+- [21:08.220] he became a rocket ship.
+- [21:10.280] Right?
+- [21:11.260] We avoided --
+- [21:12.940] Do I say it?
+- [21:13.841] We run into one of these things.
+- [21:15.720] Yep.
+- [21:16.500] Yeah.
+- [21:16.940] It's good.
+- [21:17.320] We didn't want to go a second round.
+- [21:19.660] He just -- He went up and won everything.
+- [21:21.600] And he's a great -- Great Governor.
+- [21:23.300] Great Attorney General.
+- [21:24.500] Great Governor.
+- [21:25.460] So it's great to have you.
+- [21:26.221] And we have so many people here
+- [21:27.370] that we're not going to do that.
+- [21:28.580] But we may play around in a little while,
+- [21:30.188] because we're going to have some fun tonight.
+- [21:32.400] And we'll talk about this, but
+- [21:33.588] we'll talk about other things.
+- [21:34.800] But we might talk about some
+- [21:36.972] of the questions you may have.
+- [21:39.600] We're looking to get the one great big, beautiful bill.
+- [21:43.735] It'll be the greatest tax cuts in history.
+- [21:46.100] If we don't get it, that means the
+- [21:48.150] Democrats will have stopped us.
+- [21:50.300] And that means people will get a 68 percent tax increase.
+- [21:54.100] The largest in history.
+- [21:55.560] And if we do get it, we're going to have
+- [21:57.171] the largest tax decrease in history.
+- [21:58.860] And all my life I've watched politicians
+- [22:00.838] screaming, we will cut your taxes.
+- [22:02.900] This is the only group where they
+- [22:04.050] say, we're going to raise your taxes,
+- [22:05.341] and they think they're going to win.
+- [22:06.680] There's something wrong with them.
+- [22:08.081] I don't know what the hell is going on.
+- [22:10.000] We're going to raise your taxes.
+- [22:11.640] And people said, it's strange.
+- [22:13.200] I've never heard it before.
+- [22:15.260] When we took over in recent months,
+- [22:16.942] the Kennedy Center was in dire shape.
+- [22:19.670] As I saw in my tour a few weeks
+- [22:21.647] ago, the building is falling apart.
+- [22:24.640] I don't want to scare people.
+- [22:26.660] It's in fine shape, but it's falling apart.
+- [22:30.020] That means, you know, we have to
+- [22:31.341] see, you know, we have Les Mis.
+- [22:32.760] We're opening up with Les Mis and some other things.
+- [22:35.550] We have Miss Fisher,
+- [22:37.041] Mrs. Fisher here, and she said, you know what works?
+- [22:40.400] Anything Broadway.
+- [22:41.460] So with signing Phantom of the Opera,
+- [22:43.058] we're signing a lot of great Broadway.
+- [22:44.900] We'll have them run for a while.
+- [22:48.060] I think we're going to be very well.
+- [22:50.900] But it's been neglected very badly,
+- [22:53.233] and it needs an infusion of different
+- [22:55.725] things, including probably funds.
+- [22:58.210] But I think we're going to do very well
+- [22:59.825] when we get some money from Congress to
+- [23:01.715] fix it, because it's so important.
+- [23:02.715] The previous leadership wasted millions
+- [23:05.098] and millions of dollars and handed us a
+- [23:07.680] budget deficit of $26 million.
+- [23:09.600] Can you believe that?
+- [23:11.160] In addition, the programming was out of
+- [23:13.124] control with rampant political propaganda,
+- [23:15.640] DEI, and inappropriate shows.
+- [23:17.890] We had some very inappropriate shows to put it --
+- [23:20.125] I think to put it very nicely.
+- [23:22.100] They had dance parties for,
+- [23:24.058] quote, queer and trans youth.
+- [23:26.860] And I guess that's all right for certain people.
+- [23:29.270] Quote, and I'm just quoting, I'm
+- [23:31.437] not saying, queer and trans youth.
+- [23:33.741] That wasn't working out too well.
+- [23:35.620] They had a Marxist anti-police
+- [23:37.958] performance, and they had lesbian-only
+- [23:40.921] Shakespeare, which is different.
+- [23:42.601] Who thinks of these ideas really?
+- [23:45.230] Who thinks of them?
+- [23:47.550] It's different.
+- [23:48.820] Oh, we're bringing our country back so fast.
+- [23:52.640] The military is so much better.
+- [23:54.900] Everything it's just gone.
+- [23:56.321] They had people paying
+- [23:58.482] 4,500,000 years to teach DEI.
+- [24:01.055] In just 12 weeks
+- [24:02.340] our new board is balanced a budget.
+- [24:04.120] Think of that, 2026 budget.
+- [24:06.720] That's a pretty good job.
+- [24:13.390] That's a pretty good job.
+- [24:14.010] So that's amazing.
+- [24:16.350] So the 2026, I tell you, it was 25
+- [24:19.070] million under, balanced now for the fiscal year.
+- [24:23.330] Eliminated DEI initiatives in all cases,
+- [24:25.592] brought back family-friendly programming.
+- [24:27.911] That will attract large audiences once
+- [24:30.132] again, and launch a plan to renovate the
+- [24:32.471] building, and reclaim the grandeur as a
+- [24:35.091] landmark, a really Washington landmark,
+- [24:37.910] which it always was.
+- [24:39.470] The Kennedy Center will also play an
+- [24:41.132] important role in our national celebration
+- [24:43.270] to commemorate the 250th
+- [24:44.851] anniversary of America's founding.
+- [24:47.710] So we have three really big.
+- [24:50.290] We have the 250th anniversary of America's founding.
+- [24:53.070] That's a big deal.
+- [24:54.550] And we have the Olympics, and we have the World Cup.
+- [24:58.890] And, you know, maybe I got lucky,
+- [25:01.325] because I got the Olympics, and I got the World Cup.
+- [25:04.990] I did nothing to help the 250th
+- [25:07.496] anniversary, because if I take credit for
+- [25:10.811] that one, then you'll say, I think exaggerating.
+- [25:16.570] But two of the three, I absolutely got the Olympics.
+- [25:20.030] I got the World Cup.
+- [25:21.570] And I said to myself, when I got
+- [25:23.175] them, it was my first term, I got him,
+- [25:25.750] President Obama would not take the calls
+- [25:27.828] from the Olympic Committee refused to take
+- [25:30.011] the calls, and I think because he traveled
+- [25:33.619] to Oslo, wherever he went, and very far
+- [25:36.971] away, in order to get the Olympics a previous Olympics.
+- [25:41.640] And I said, well, that's great.
+- [25:42.651] That means we got it, because what
+- [25:44.635] President would travel to come in fourth
+- [25:46.971] place, which is what we came in fourth place.
+- [25:49.550] And so he was so angry he wouldn't
+- [25:51.454] take the call, so I got a call from,
+- [25:53.471] at the time, the mayor of Los Angeles.
+- [25:57.820] Not looking too good with what the water.
+- [26:00.570] We just sent so much water down their way.
+- [26:02.390] They didn't want to take it because
+- [26:03.661] it was bad for the environment.
+- [26:04.810] I said, no water's good for the environment.
+- [26:07.150] They would have had it when I told them to get it.
+- [26:09.070] They wouldn't have had the fires
+- [26:10.350] or would have been very small.
+- [26:13.430] But we took so much, and we
+- [26:15.879] were looking at the Olympics.
+- [26:18.690] We were looking at other things.
+- [26:20.100] And Obama went there and all
+- [26:22.078] that travel, all that everything.
+- [26:24.950] And think, who would go there
+- [26:26.004] unless you know the answer?
+- [26:27.010] You have to know the answer.
+- [26:28.110] You can't be embarrassed as President.
+- [26:29.751] No President has ever done that.
+- [26:32.010] And I give him credit.
+- [26:33.050] He went, but he should have known the answer.
+- [26:35.150] This is called deal-making.
+- [26:37.590] And he didn't.
+- [26:38.930] And they put him in fourth.
+- [26:39.910] And he was so angry that it hurt his whole thing.
+- [26:44.071] He didn't want to talk to anybody.
+- [26:45.150] So I got a call from the mayor and he
+- [26:46.906] said, Sir, you're the President-elect.
+- [26:48.750] I was President-elect at the time.
+- [26:50.940] The President will not speak to the Olympic Committee.
+- [26:53.151] And I understand that, but a
+- [26:55.033] little bit his fault, I guess.
+- [26:57.630] He was very embarrassed by that.
+- [26:59.910] And I said, I'll speak to him.
+- [27:00.970] And I spoke to this gentleman,
+- [27:03.340] who was obviously Scandinavian,
+- [27:06.470] seriously Scandinavian.
+- [27:08.230] And very nice.
+- [27:09.150] I couldn't get him off the phone,
+- [27:10.732] because he was so starved for love.
+- [27:14.600] He just kept, I must have had him for two hours.
+- [27:17.430] I couldn't.
+- [27:17.910] I said, Sir, I have to go.
+- [27:19.650] I'm President-elect.
+- [27:21.770] All I said to him, yes, yes, yes.
+- [27:23.431] We will take good care.
+- [27:24.530] They wanted to know that if they choose
+- [27:26.819] us for the Olympics, will we treat him nicely?
+- [27:29.615] And I said, we're going to treat you like
+- [27:31.293] so well, like you've never been treated.
+- [27:33.530] And then he wanted to talk about anything,
+- [27:34.941] because nobody would talk to him.
+- [27:36.051] Now he talks to me.
+- [27:38.280] And we got the Olympics.
+- [27:39.375] And then we got through Johnny.
+- [27:41.650] Who's the boss?
+- [27:42.970] We got he's a friend of mine.
+- [27:44.235] We got the World Cup.
+- [27:45.010] I got him both.
+- [27:45.550] And I said, man, I won't be President.
+- [27:49.370] I won't be -- I got the Olympics and the World Cup.
+- [27:51.671] And I won't be President.
+- [27:52.930] And they're going to forget that I got themm.
+- [27:54.610] Nobody's going to mention it, because,
+- [27:56.260] you know, a little bit, that's the way life is.
+- [27:59.530] And then they rigged the election.
+- [28:01.780] And then I said, you know what, I'll
+- [28:03.304] do, I'll run again, and I'll shove it up there ass.
+- [28:10.740] And that's what I did.
+- [28:12.260] And all of a sudden, I then
+- [28:14.355] realized I said, you know what?
+- [28:17.200] I got the Olympics.
+- [28:19.600] I got the World Cup.
+- [28:20.520] And I got the 250th.
+- [28:22.001] Look at the way this works out.
+- [28:23.740] So if they would have left us alone and
+- [28:25.563] wouldn't have cheated on the election and
+- [28:27.481] wouldn't have rigged it, I would
+- [28:29.219] have been retired right now.
+- [28:30.900] I would have been happily doing something else.
+- [28:33.201] And instead, they have me for four more years.
+- [28:35.101] Can you believe it?
+- [28:36.480] So it has --
+- [28:42.710] So instead of putting forward programming,
+- [28:45.199] that tears are country down and tears are country apart.
+- [28:48.350] The Kennedy Center should be the nation's
+- [28:50.800] premier venue for lifting up the best of
+- [28:53.191] our country and lifting up the American
+- [28:55.434] arts, theater, music, and culture.
+- [28:57.690] And together, it's really an honor to be here.
+- [29:00.110] I mean, I have so many friends on the board.
+- [29:01.451] This is a hot board.
+- [29:02.620] Just like we have a hot country.
+- [29:03.730] You know, we have a hot country.
+- [29:04.571] Our country was stone cold eight months ago.
+- [29:08.050] It all began on November 5th.
+- [29:09.791] That's everybody know that that was the election day.
+- [29:12.360] And from that moment on, and then
+- [29:14.345] January 20th came and what we've done,
+- [29:17.630] we have, you know, we have almost no inflation.
+- [29:20.150] Our energy prices are way down,
+- [29:22.043] our gasoline costs are way down,
+- [29:24.170] our groceries are way down, eggs.
+- [29:26.150] Remember, they hit me with eggs my first week.
+- [29:28.430] Sir, the fake news, those people right
+- [29:30.691] there, they're saying, Sir,
+- [29:32.200] eggs have gone through the roof.
+- [29:34.990] They were doubling in tripling eggs.
+- [29:36.630] I said, I don't know what I've just got here.
+- [29:38.510] Excuse me.
+- [29:39.950] And through our great, she's done a great job.
+- [29:42.450] Brooke Rowland's Secretary of Agriculture.
+- [29:45.605] Anyway, did prices came down.
+- [29:46.810] They didn't want us to -- We had the egg roll here a
+- [29:48.988] couple of weeks ago for Easter.
+- [29:51.130] They didn't want us to order eggs.
+- [29:53.010] They wanted the eggs to be -- Made out of plastic.
+- [29:54.910] They wanted plastic.
+- [29:55.620] I said, I'm not going to do that.
+- [29:57.065] But by the time it came around,
+- [29:58.691] the egg prices are way down,
+- [30:00.470] the groceries are way down.
+- [30:02.410] Everything's way --
+- [30:03.090] We are just doing great.
+- [30:04.990] Think of it.
+- [30:05.631] No inflation.
+- [30:06.190] And we're taking in billions, hundreds
+- [30:07.931] of billions of dollars in
+- [30:08.982] tariffs that we never did before.
+- [30:11.570] We got a hot country right now.
+- [30:13.330] We have a country that people
+- [30:14.490] are proud to be a part of.
+- [30:16.490] So we're going to honor the legacy of President Kennedy.
+- [30:19.040] It's great legacy.
+- [30:20.190] And we'll create the best and most
+- [30:21.852] beautiful home for the performing
+- [30:23.488] arts anywhere in the country.
+- [30:25.230] And many other things also.
+- [30:26.410] I want to thank you again.
+- [30:28.151] We're going to have some fun working together.
+- [30:29.770] We're going to make this a fun project.
+- [30:31.370] That's what I thought.
+- [30:32.530] Until I walked into the building.
+- [30:34.010] I said, this won't be the fun that I thought.
+- [30:36.530] But it is fun.
+- [30:37.090] I'd like to create.
+- [30:37.950] You'd like to create.
+- [30:38.511] Most of the people in the room.
+- [30:40.350] I like to create.
+- [30:41.111] Just like Bob Craft created, the New England Patriots.
+- [30:43.790] He happens to be here.
+- [30:48.770] And he tells me here's a great new quarterback.
+- [30:51.290] So we're going to see a lot
+- [30:52.370] of people make that statement.
+- [30:54.250] We're going to find out.
+- [30:55.250] But I have a feeling you're going to be right.
+- [30:56.831] about a lot of things.
+- [30:58.750] But he was right about Tom Brady, right?
+- [31:00.230] He got him almost last draft choice in the last round.
+- [31:04.530] Six round, whatever it was.
+- [31:06.510] How did he work out Tom Brady, okay?
+- [31:08.730] Not bad.
+- [31:09.690] Good, right?
+- [31:11.210] But Bob's here and his wife, as you
+- [31:12.929] know, Dana, she's on the board.
+- [31:17.380] And she's much younger than him.
+- [31:18.430] So he wanted to come tonight with her.
+- [31:22.470] Isn't it nice when you have a husband
+- [31:24.047] that will travel with you to the board?
+- [31:26.050] And he's a big shot too.
+- [31:27.460] And he's a great guy.
+- [31:28.470] He's been my friend for a long time.
+- [31:30.670] So I'd like to ask, if I might, Secretary Rubio.
+- [31:34.390] And followed by, we're going to ask
+- [31:36.020] Sergio to say a couple of words.
+- [31:37.670] And then Rick Renell.
+- [31:38.840] And we'll have a little fun tonight.
+- [31:40.071] And you know what they can do?
+- [31:41.030] If they can, relatively quietly,
+- [31:42.670] they can start serving the meal.
+- [31:45.010] So by the time we're all finished,
+- [31:46.260] we get the hell out of here.
+- [31:47.291] We go home.
+- [31:47.911] And we have our board all quorum.
+- [31:49.925] And we can start doing that quietly.
+- [31:53.460] And so Marco, please come up and say,
+- [31:54.940] a few words; thank you everybody.
+- [31:56.850] Thank you.
+- [32:13.580] Secretary Rubio: Well, thank you
+- [32:14.640] all for being here tonight.
+- [32:16.010] It's an unusual day.
+- [32:17.010] You know, it's not often you wake up in
+- [32:18.522] the morning and your first meeting is with the Pope.
+- [32:20.690] And your last meeting is a dinner with
+- [32:22.041] the President of the United State.
+- [32:23.251] That's heck of a day.
+- [32:28.810] And, but it actually is an honor to
+- [32:30.823] be a part of this administration, Mr. President.
+- [32:33.310] It's actually a very unique situation.
+- [32:35.290] I don't know how many of you got to see
+- [32:36.700] the President's speech in Saudi Arabia.
+- [32:38.170] I think it will go down as one of the
+- [32:40.162] most profound, foreign policy
+- [32:41.729] speeches in American history.
+- [32:44.210] And we're an outlined division for
+- [32:45.731] the future and a vision of prosperity.
+- [32:47.700] And I tell people that we have a President of peace.
+- [32:50.330] In fact, I'll tell you kind of an aside.
+- [32:52.835] One of the Cardinals I was meeting with,
+- [32:54.676] Mr. President, the day before the Papal
+- [32:56.471] Mass said to me, you know, it's very unusual for us.
+- [33:00.640] It's, you know, we have an American
+- [33:01.919] President that wants peace.
+- [33:02.930] And it's some of the Europeans that are
+- [33:04.490] constantly talking about doing war stuff.
+- [33:06.370] The world's upside
+- [33:07.712] down in their mind right now.
+- [33:08.880] It's usually the other way around.
+- [33:10.590] And it's a great honor to work for a
+- [33:12.673] President who literally spends half his
+- [33:14.931] day, maybe more, trying to stop
+- [33:16.994] wars, end wars, prevent wars.
+- [33:19.880] And it's an extraordinary thing to be a part of.
+- [33:21.830] And thank you for your leadership on that front.
+- [33:23.610] He's a --
+- [33:28.440] A key part of the speech he gave,
+- [33:31.870] and I could just summarize it this way.
+- [33:33.020] Our President is a builder, not a bomber.
+- [33:35.760] He wants to make things.
+- [33:36.721] He wants to build things.
+- [33:38.220] He wants people to have prosperity and to be happy.
+- [33:40.420] And frankly, he knows we have to have national defense.
+- [33:42.795] Because of course that's the world we live in.
+- [33:44.860] But I think one of the things that
+- [33:46.220] troubles him deeply is how much money has
+- [33:48.760] to be spent on some of his military and war.
+- [33:50.000] Because it's just the way the nature of the world is.
+- [33:52.000] He'd much rather be spending growing the
+- [33:53.713] economy and doing the deals that we've seen.
+- [33:55.960] And he's trying to convince
+- [33:57.067] other countries of that as well.
+- [33:59.280] It's an honor to be a part of
+- [34:00.440] this tonight for a few moments.
+- [34:02.830] Because you have an opportunity here.
+- [34:03.881] The Kennedy Center is the showcase of
+- [34:05.764] American excellence in arts and culture.
+- [34:07.920] And that's what it needs to be again.
+- [34:09.890] And the work that Rick and his team are
+- [34:11.855] doing, both to bring the building and the
+- [34:13.921] actual function of the organization to reflect that.
+- [34:18.720] But the programming is the other thing.
+- [34:20.300] We're really excited to see the
+- [34:21.540] programming, the shows that are coming.
+- [34:23.200] There will be a highlight of American
+- [34:25.459] excellence and of American culture
+- [34:27.567] and American entertainment.
+- [34:29.650] And just so you know the influence that
+- [34:31.176] American culture has around
+- [34:32.215] the world in a positive way.
+- [34:33.420] A few months ago, the President hosted the
+- [34:35.766] Prime Minister of Italy down in Florida.
+- [34:39.140] And her English is excellent.
+- [34:41.680] Very good English.
+- [34:43.080] And I asked her, why is your English so good?
+- [34:45.400] How?
+- [34:45.920] It was really good.
+- [34:47.040] You know what she said?
+- [34:48.100] You know where she learned English?
+- [34:49.760] Michael Jackson.
+- [34:52.200] Not from him, not like personally.
+- [34:53.780] He wasn't doing the lessons.
+- [34:55.200] From his music.
+- [34:57.260] But what it tells you is the impact that
+- [34:59.423] American culture has on the
+- [35:00.858] world in such a positive way.
+- [35:02.500] And it can have such an influence.
+- [35:04.100] And the Kennedy Center is the showcase for it.
+- [35:06.000] So we're excited to see what you're leading here.
+- [35:08.240] And all of you contributing towards that.
+- [35:12.390] And we're excited to see also the
+- [35:13.710] restoration of that building that really
+- [35:15.400] should be a showcase and something that we're proud of.
+- [35:17.645] That when people come to Washington,
+- [35:19.085] when people come to America, they want to
+- [35:20.835] see the shows that reflect the greatness
+- [35:22.739] of our culture and society and in the
+- [35:25.300] building run by an organization that
+- [35:27.310] is reflective of excellence as well.
+- [35:29.470] So it's an honor to be here tonight.
+- [35:30.680] I want to thank all of you for contributing to this.
+- [35:33.390] Because it's important that this board and
+- [35:34.829] everyone that's involved in it and Rick
+- [35:36.190] and his team are doing a great job
+- [35:37.720] of making sure that your dollars and
+- [35:39.341] everything you've made possible will be well spent.
+- [35:42.340] So we'll have a treasure in our
+- [35:43.766] hands for future generations.
+- [35:46.025] I think, Sergio, you want to come up here
+- [35:47.683] now and tell us about -- Sergio Gore for personnel.
+- [35:56.690] Sergio Gore: Good evening.
+- [35:57.210] It's an honor to be here with all of you.
+- [36:00.190] We're here to honor the spirit
+- [36:01.400] that makes America exceptional.
+- [36:03.100] On the President Trump's leadership,
+- [36:04.954] we're witnessing the revitalization of
+- [36:06.911] American culture return to the
+- [36:08.391] values that fuel our greatness.
+- [36:10.750] I can't think of a better chairman, the
+- [36:12.476] Kennedy Center than President Trump.
+- [36:14.820] And a lot of you know --
+- [36:19.450] a lot of you know his incredible record
+- [36:21.985] when it comes to dealing with these
+- [36:25.110] individuals who become American icons.
+- [36:26.700] So from Michael Jackson, to hosting
+- [36:28.925] Poveroti many times, to Andre Boccelli,
+- [36:31.420] to incredible individuals that have
+- [36:33.444] changed the landscape of art and music.
+- [36:36.650] A couple of years ago, we were publishing a book.
+- [36:39.100] And it was called "Letters to Trump."
+- [36:40.610] And we would open a box that's been closed for decades.
+- [36:44.320] And the letters that would show up
+- [36:45.966] in these boxes were just absolutely incredible.
+- [36:48.760] And there was a letter from 1986.
+- [36:51.680] And it was written to Dear Donald.
+- [36:53.720] I have a new show opening up.
+- [36:55.820] And I'd love for you to attend.
+- [36:57.540] It's called Phantom of the Opera.
+- [36:59.780] Signed Andrew Lloyd Webber.
+- [37:01.670] And so there's nobody more qualified
+- [37:04.468] to lead this institution than President Donald Trump.
+- [37:09.640] America has had an incredible run for the
+- [37:11.820] last 250 years, minus the last four on
+- [37:13.841] the previous administration.
+- [37:15.520] And so we hope on their his leadership
+- [37:17.665] under his vision, under this entire team,
+- [37:20.260] the next 250 will be just as great.
+- [37:28.030] I want to thank all the individuals who
+- [37:30.195] have contributed to the Kennedy Center,
+- [37:32.460] Howard Lutnick, seven-figure donation.
+- [37:34.720] Thank you.
+- [37:35.540] And we have a lot of other individuals
+- [37:37.094] who are looking to contribute.
+- [37:38.500] Anthony, you're nothing but cash.
+- [37:39.980] We know that.
+- [37:42.160] With that, I want to bring up our
+- [37:43.778] incredible director who's leading up the
+- [37:45.890] day-to-day, activities of the Kennedy
+- [37:47.925] Center, Ambassador Rick Grenell.
+- [37:55.790] Rick Grenell: I'll be very quick.
+- [37:58.010] First of all, how great is it to have a
+- [38:00.591] president who actually cares about the art center?
+- [38:04.640] That's what I love best, is that he actually cares.
+- [38:07.970] He came, he saw the problem, and he
+- [38:10.320] immediately said, I'm going to call
+- [38:12.720] Congress, and we're going to try to fix it.
+- [38:15.680] This is traditionally a Democrat
+- [38:18.389] territory, except President Trump says,
+- [38:22.390] I want to do this.
+- [38:24.070] I have to tell you, President Trump
+- [38:25.806] is actually saving the Kennedy Center,
+- [38:27.990] because there is discussion right now
+- [38:30.262] of whether or not to take it down.
+- [38:33.400] The deferred maintenance of
+- [38:35.285] the Kennedy Center is criminal.
+- [38:39.075] It has been terrible.
+- [38:40.450] Mr. President, we said today in our board
+- [38:43.932] meeting, our great new CFO, went through
+- [38:47.430] the '24 and '25 budgets of the Kennedy
+- [38:50.736] Center, and found $26 million in
+- [38:53.737] phantom revenue, fake revenue.
+- [38:57.050] It's criminal.
+- [38:58.130] We're going to refer this to the U.S.
+- [39:01.490] Attorney's Office here.
+- [39:04.470] We're lucky enough to have the Attorney
+- [39:06.283] General on the board of the Kennedy
+- [39:07.911] Center, who heard all the details today.
+- [39:11.830] She heard the details.
+- [39:14.080] And this is unacceptable in America to
+- [39:17.856] have a fake revenue of $26 million fraud
+- [39:23.080] on previous donors.
+- [39:26.525] It's unacceptable.
+- [39:27.490] But I'm here to tell you that what
+- [39:29.790] we have is total transparency now.
+- [39:32.750] We want people to go through the budget.
+- [39:34.450] We want them to question it.
+- [39:36.290] We announced our program today, which
+- [39:39.218] is literally shocking the media,
+- [39:42.630] because they're saying, okay, this is pretty good.
+- [39:47.300] We're not getting criticized for
+- [39:48.804] the programing, because guess what,
+- [39:50.590] Mr. President, when you pick programs that
+- [39:53.970] are popular with the public, they respond.
+- [39:57.930] People buy tickets.
+- [39:59.755] It is popular when you do programming for the masses.
+- [40:05.650] As I said today, I am somebody who
+- [40:08.428] loves niche programming in the arts.
+- [40:11.530] I am somebody who embraces it.
+- [40:13.170] It's not for everybody.
+- [40:14.490] But I like to be challenged by the arts.
+- [40:16.560] I like it when somebody can teach me and
+- [40:18.955] make me a little bit uncomfortable in a show.
+- [40:22.670] But one thing that we're not going to do
+- [40:24.598] at the Kennedy Center is
+- [40:25.755] inappropriate content for children.
+- [40:27.820] We're going to protect children.
+- [40:29.330] And we're going to make sure that we
+- [40:32.015] are absolutely not losing money on our program.
+- [40:35.270] We can't do arts education if we don't
+- [40:38.225] have enough money and we have fake revenue coming in.
+- [40:42.540] So I promise you, and this board
+- [40:44.925] today responded incredibly well.
+- [40:47.540] I can't thank you all enough.
+- [40:49.750] Jennifer, thank you for being the chair.
+- [40:51.550] Thank you for every single board member.
+- [40:55.110] Your commitment is amazing.
+- [40:57.110] And as President Trump said,
+- [40:58.230] we're going to do great things.
+- [40:59.650] Everyone needs to go out and buy
+- [41:01.899] tickets to Les Mis and Porgy and Bess,
+- [41:04.960] which are currently being right now about to launch.
+- [41:10.780] We're building the stages and we're getting ready to have premier
+- [41:15.610] entertainment at America's premier arts institution.
+- [41:18.310] Thank you very much.
+- [41:19.510] (applause)

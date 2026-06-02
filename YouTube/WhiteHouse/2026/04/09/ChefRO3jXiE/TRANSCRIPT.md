@@ -1,0 +1,104 @@
+<!-- source: https://www.youtube.com/watch?v=ChefRO3jXiE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ChefRO3jXiE -->
+<!-- date_published: 2026-04-09T19:56:25+00:00 -->
+<!-- date_accessed: 2026-06-02T01:02:01.210258+00:00 -->
+
+# Transcript: Angel Families Speak at the White House: This Is Our Why
+
+- [00:00.000] My name is Patty Morin. I'm the mother
+- [00:02.120] of Rachel Morin.
+- [00:03.760] Rachel is a mother to five children. She
+- [00:07.800] went out on a walk after work.
+- [00:10.880] She never came home. My name is Michael
+- [00:13.040] Morin.
+- [00:14.240] My sister was Rachel Morin.
+- [00:17.400] She was
+- [00:18.920] brutally raped and murdered
+- [00:21.000] by
+- [00:22.440] a illegal alien. 3/4 of her head and
+- [00:25.640] brain hemorrhaged because of the
+- [00:28.040] violence.
+- [00:29.400] Brutally raped and then stuffed into a
+- [00:31.640] culvert.
+- [00:33.600] A drain pipe.
+- [00:36.520] It was the most devastating thing that
+- [00:38.320] our family has ever experienced.
+- [00:40.440] >> I'm Tammy Nobles. I am Kayla Hamilton's
+- [00:43.240] mother.
+- [00:44.680] My daughter, Kayla, was murdered, raped,
+- [00:49.640] tied up,
+- [00:51.440] and left on the floor like trash. He was
+- [00:53.640] a known MS-13 gang member. He was
+- [00:55.520] allowed to come into this country
+- [00:58.120] and murder my daughter. I don't
+- [01:00.760] understand how these Democrats are
+- [01:04.559] fighting for the criminals. You're
+- [01:07.160] fighting for Kayla's murderer. You're
+- [01:09.680] fighting for those that have done have
+- [01:12.600] committed horrific crimes on American
+- [01:15.120] citizens. This is my wife, Wendy. I'm
+- [01:17.480] D.J. Corcoran. We're the Corcorans. Our
+- [01:19.360] son was Pierce Corcoran. He was 22 years
+- [01:21.600] old and he was killed by an illegal
+- [01:23.920] immigrant. They feel better about this
+- [01:26.760] today than we did the last 4 years. It
+- [01:29.200] was really just a slap in the face,
+- [01:31.720] an insult to injury when they allowed
+- [01:33.600] all these
+- [01:34.760] illegals to come through across our
+- [01:36.480] border knowing what these angel families
+- [01:39.600] have suffered through. My name is Nikki
+- [01:42.200] Jones and my husband is Shane Jones and
+- [01:44.960] he was killed by an illegal alien back
+- [01:48.000] in 2019.
+- [01:49.880] Today
+- [01:51.200] um
+- [01:52.720] means a lot because
+- [01:55.160] for years I've been trying to get my
+- [01:57.600] story out and the press just
+- [02:01.120] censors me. My name is Rosalie Sowerd.
+- [02:04.080] And I'm Louise Schlosser.
+- [02:05.960] Uh we lost our father over 30 years ago
+- [02:08.600] in a car accident. He was killed by an
+- [02:10.560] illegal who uh had no driver's license
+- [02:12.640] or car insurance and left him to die. He
+- [02:14.920] had six children,
+- [02:16.640] multiple grandchildren, and he was a
+- [02:18.000] beautiful person. And we miss him every
+- [02:19.800] day. So, thank you President Trump for
+- [02:21.320] everything you've done in honoring our
+- [02:23.080] families. I just want to say to our
+- [02:25.160] mother who was devastated by the loss of
+- [02:27.160] our father, she knew that Trump would do
+- [02:29.320] something about it. My son, Bradley
+- [02:31.720] English, he passed away on October 27th,
+- [02:35.760] 2004.
+- [02:37.600] He was um
+- [02:39.600] struck by a vehicle driven by an illegal
+- [02:43.400] alien, and um they let him out after 2
+- [02:46.720] years and 1 month. They said they
+- [02:49.280] deported him, but they didn't. And we've
+- [02:52.560] just been devastated ever since. Life
+- [02:55.360] will never be the same. As a mother, you
+- [02:57.520] cannot fathom the pain
+- [02:59.840] that you feel.
+- [03:02.080] It doesn't go away. But it's been 2 and
+- [03:04.080] 1/2 years, and it still feels like it
+- [03:06.200] was yesterday. It doesn't go away.
+- [03:09.880] Today, President Trump honored us.
+- [03:13.120] The most powerful man in the whole world
+- [03:17.560] honored us.
+- [03:19.680] He looked at us. He saw our grief and
+- [03:22.480] our pain.
+- [03:24.000] And he genuinely cared. And I just want
+- [03:26.880] to say thank you, President Trump,
+- [03:30.239] for your kindness
+- [03:32.600] and for your integrity in keeping your
+- [03:35.160] word,
+- [03:37.280] but also your love for the American
+- [03:39.760] citizen
+- [03:41.239] and for humanity
+- [03:43.360] and for us
+- [03:44.920] who have lost so much. Thank you.

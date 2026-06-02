@@ -1,0 +1,754 @@
+<!-- source: https://www.youtube.com/watch?v=3MYm2XzvrM4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3MYm2XzvrM4 -->
+<!-- date_published: 2025-06-19T18:01:25+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:17.666329+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, June 19, 2025
+
+- [00:04.110] Karoline Leavitt: Good afternoon, everyone.
+- [00:08.900] President Trump's powerful efforts
+- [00:10.760] to secure our homeland are working.
+- [00:13.360] According to newly released numbers, last month,
+- [00:15.730] Border Patrol saw a 93 percent decrease of illegal aliens
+- [00:19.560] crossing the southwest border
+- [00:21.380] between ports of entry from May 2024 under Joe Biden
+- [00:25.300] when they encountered more than 117,000 illegal aliens.
+- [00:29.990] And this particular statistic is absolutely astounding.
+- [00:33.610] In the month of May, under the Trump administration,
+- [00:36.370] zero illegal aliens were released into our country
+- [00:40.220] by Border Patrol. Let me say that again.
+- [00:42.570] Not a single illegal alien
+- [00:44.130] was released into the interior of the United States of America
+- [00:46.970] last month under this administration.
+- [00:49.840] Let's contrast that to Joe Biden's failed leadership,
+- [00:53.090] where immigration officers were wasting their finite time
+- [00:56.200] and resources processing dangerous illegal aliens
+- [00:59.010] for release into the United States.
+- [01:02.170] President Trump immediately terminated
+- [01:04.220] that reckless Biden-era practice that undermined the rule of law,
+- [01:08.050] jeopardized public safety and our national security,
+- [01:11.160] and diverted critical resources
+- [01:12.760] away from stopping deadly drugs and violent criminals
+- [01:15.660] from entering our country.
+- [01:17.720] That's the reason why not a single illegal alien
+- [01:20.100] was released into the interior of the United States
+- [01:22.510] in the month of May.
+- [01:23.770] And as a result, we now have a border
+- [01:25.730] that is reaching unprecedented levels of operational success.
+- [01:29.900] The efforts by President Trump
+- [01:31.330] to stop the illegal immigrant invasion
+- [01:33.110] and secure the border in this short amount of time
+- [01:35.220] represent one of the greatest achievements
+- [01:37.320] by a presidential administration
+- [01:38.980] in the history of our great country.
+- [01:41.920] With illegal entries being overwhelmingly halted,
+- [01:44.300] the Trump administration
+- [01:45.590] is dramatically ramping up efforts to arrest
+- [01:48.260] and deport all of the millions of criminal illegal
+- [01:51.940] that Joe Biden let into our country
+- [01:54.190] over the past four years.
+- [01:56.080] President Trump has directed all of our ICE officers
+- [01:58.920] to do everything in their power to carry out the single
+- [02:02.140] largest mass deportation operation in history.
+- [02:06.420] Illegal criminals who are hiding in America's largest
+- [02:08.900] so-called sanctuary cities
+- [02:10.920] will be increasingly targeted for removal.
+- [02:13.720] Radical Democrats will no longer be allowed to shelter illegals
+- [02:16.920] who threaten public safety as part of their cynical efforts
+- [02:20.250] to expand political power, drain the American taxpayer,
+- [02:23.710] and artificially lower wages and steal American jobs.
+- [02:27.260] ICE officers are courageous heroes,
+- [02:29.790] upholding the rule of law and keeping our citizens safe.
+- [02:33.350] And they have the full and unwavering support
+- [02:35.970] of this President.
+- [02:37.400] In economic news, President Trump's pro-growth agenda
+- [02:40.280] is delivering for the American worker.
+- [02:42.640] Through the first five months of the Trump administration,
+- [02:45.000] real blue-collar wages are up nearly 2 percent.
+- [02:48.420] It's the strongest growth in nearly 60 years
+- [02:50.990] and a stark contrast from the negative wage growth scene
+- [02:54.170] during the first five months of the Biden administration.
+- [02:57.950] America is quickly returning to the successful formula
+- [03:01.060] of the first Trump administration,
+- [03:02.980] low inflation and rising wages.
+- [03:05.550] Once the Big, Beautiful Bill is passed,
+- [03:08.390] this positive trend will only accelerate.
+- [03:11.180] Senate Republicans are continuing
+- [03:12.810] to push this critical legislation forward.
+- [03:15.450] The One Big Beautiful Bill will drive growth
+- [03:17.520] and supercharge the American economy.
+- [03:20.030] The Council of Economic Advisers
+- [03:21.820] found that the One Big Beautiful bill
+- [03:23.450] will raise take-home pay by nearly $14,000
+- [03:28.400] for a year for the average family of four.
+- [03:31.180] The CEA also found that The One Big Beautiful Bill
+- [03:34.030] will increase wages as much as $11,000
+- [03:37.020] for the Average worker in America.
+- [03:39.840] The One Big Beautiful Bill expands the child tax credit
+- [03:42.490] and makes it permanent for more
+- [03:43.900] than 40 million families with children.
+- [03:46.800] And the bill will deliver no tax on tips, no tax on overtime,
+- [03:50.350] and substantial tax cuts for our incredible seniors.
+- [03:54.140] Simply put, the One Big Beautiful Bill
+- [03:56.010] is a massive win for middle class Americans.
+- [03:59.660] When nearly 80 million Americans sent President Trump
+- [04:02.570] back to this White House, they were doing so expecting
+- [04:05.190] these popular policies to be enacted.
+- [04:07.640] Republicans in Congress have a mandate to deliver.
+- [04:11.350] And President Trump demands they send this historic bill
+- [04:14.520] to his desk for signature. By Independence Day, July 4th.
+- [04:19.520] The American people are fully behind President Trump.
+- [04:22.750] According to brand-new polling from Insider Advantage,
+- [04:25.740] a clear 54 percent majority of Americans
+- [04:28.250] approve of the job President Trump is doing.
+- [04:31.310] That's because this president is keeping his promises
+- [04:33.850] and taking action every day to improve their lives.
+- [04:37.410] In passing, this bill will help fulfill
+- [04:39.640] a number of President Trump's core campaign promises.
+- [04:44.140] Regarding the ongoing situation in Iran.
+- [04:46.710] I know there has been a lot of speculation
+- [04:48.430] amongst all of you in the media
+- [04:49.940] regarding the President's decision-making
+- [04:52.130] and whether or not the United States
+- [04:53.570] will be directly involved. In light of that news,
+- [04:56.370] I have a message directly from the President,
+- [04:58.760] and I quote, "Based on the fact
+- [05:01.180] that there's a substantial chance of negotiations
+- [05:04.060] that may or may not take place with Iran in the near future,
+- [05:07.340] I will make my decision
+- [05:08.770] whether or to go within the next two weeks."
+- [05:12.140] That's a quote directly from the President for all of you today.
+- [05:15.420] So we'll kick it off for questions.
+- [05:16.730] Here in our new media seat,
+- [05:18.080] we have Eli Lake from the Free Press.
+- [05:19.730] Eli, go ahead.
+- [05:20.990] The Press: Thanks so much for having us.
+- [05:22.250] Karoline Leavitt: Thank you.
+- [05:24.270] The Press: The decision to extend the delay
+- [05:28.400] in enforcing the TikTok ban,
+- [05:30.480] can you talk about how the White House
+- [05:32.970] understands its constitutional authority
+- [05:34.600] in light of the Supreme Court's decision in January
+- [05:38.150] that said that the President had to enforce the ban?
+- [05:41.040] Karoline Leavitt: Sure. Well, as all of you know,
+- [05:42.290] because the President put it out on his Truth Social today,
+- [05:44.850] he did sign an executive order to extend the TikTok ban
+- [05:49.220] for 90 days, so in the effort to make a deal.
+- [05:52.110] And the White House counsel and the Department of Justice
+- [05:54.970] have reviewed this executive order,
+- [05:56.540] and I can get it for you.
+- [05:57.740] I think it's on our website by now.
+- [05:59.240] If it's not, my team will now put it up immediately.
+- [06:02.600] And you can read the language in that executive
+- [06:04.600] order in the White House Counsel's Office
+- [06:06.150] and the Department of Justice strongly believe
+- [06:08.420] in the legal rationale for this executive order.
+- [06:10.310] They wouldn't have the President's pen hit it
+- [06:11.850] if they didn't.
+- [06:13.060] And the political reasoning for this, of course,
+- [06:14.620] is because the President made a promise to keep TikTok on.
+- [06:18.170] There are a hundred million Americans who use this app.
+- [06:21.240] It's widely popular.
+- [06:22.530] He also wants to protect Americans' data
+- [06:25.030] and privacy concerns on this app,
+- [06:26.820] and he believes we can do both things at the same time.
+- [06:29.430] So he's making an extension so we can get this deal done.
+- [06:34.080] The Press: A few weeks ago,
+- [06:35.330] Tucker Carlson reported on a meeting
+- [06:37.050] between the President, Mark Levin,
+- [06:38.430] and others at the White House. Is there a leak investigation,
+- [06:41.040] and can you say who else was in that meeting?
+- [06:43.280] Karoline Leavitt: I'm not aware of a leak investigation
+- [06:44.790] at this time.
+- [06:46.000] I, for one, do not reveal details
+- [06:47.560] about the President's private meetings
+- [06:48.900] without his permission to do so,
+- [06:51.190] but certainly the President does not like when people leak.
+- [06:54.630] He takes that very seriously.
+- [06:55.970] This entire administration takes that seriously,
+- [06:58.160] and that's why you've seen at agencies
+- [07:00.070] some of the Cabinet Secretaries
+- [07:01.370] have been given the authority by the President
+- [07:04.110] to let go of staff who are engaged in such leaks,
+- [07:06.690] especially those that risk American national security.
+- [07:12.140] The Press: Karoline, thank you.
+- [07:13.900] So, RINO warmonger, Lindsey Graham,
+- [07:16.770] he recently called on the U.S. to go all in --
+- [07:19.320] Karoline Leavitt: That's quite the lead to a question.
+- [07:21.130] The Press: Right.
+- [07:22.990] What's your message to everyday Trump supporters,
+- [07:25.620] not the Tucker Carlsons or other big names,
+- [07:28.450] but everyday Trump supporter grassroots
+- [07:30.990] who voted for President Trump to stop the wars,
+- [07:33.960] rejected this in the primary,
+- [07:36.100] going into another war with voting against Nikki Haley,
+- [07:40.190] and they want to see non-U.S. Involvement
+- [07:42.820] in this war. What's you message?
+- [07:44.390] Karoline Leavitt: Trust in President Trump.
+- [07:46.440] President Trump has incredible instincts,
+- [07:48.900] and President Trump kept America
+- [07:50.950] and the world safe in his first term as president
+- [07:54.520] in implementing a peace-through- strength foreign policy agenda.
+- [07:58.460] And with respect to Iran,
+- [08:00.630] nobody should be surprised by the President's position
+- [08:03.160] that Iran absolutely cannot obtain a nuclear weapon.
+- [08:06.570] He's been unequivocally clear about this for decades,
+- [08:08.970] not just as president, not just a presidential candidate,
+- [08:12.200] but also as a private citizen.
+- [08:13.620] In fact, I have some quotes for you.
+- [08:15.460] In 2011, President Trump said America's primary goal
+- [08:18.810] with Iran must be to destroy its nuclear ambitions.
+- [08:21.680] We cannot allow this radical regime
+- [08:23.810] to acquire a nuclear weapon
+- [08:25.740] that they will either use or hand off to terrorists.
+- [08:28.680] In 2015, the President said the problem
+- [08:31.070] is that Iran poses the next essential threat to Israel,
+- [08:33.850] our Middle Eastern allies, and the United States,
+- [08:35.830] and of course the President has repeated
+- [08:37.370] that in his first term as President
+- [08:39.030] and his second term as president as well.
+- [08:40.970] That's why he was adamantly opposed
+- [08:42.510] to the disastrous Iranian nuclear agreement
+- [08:45.500] that was implemented by President Obama.
+- [08:48.270] And it's why has given great latitude
+- [08:51.050] and given a lot of effort to achieving a diplomatic solution.
+- [08:54.660] But he's been very clear.
+- [08:56.480] Iran went for 60 days when he gave them
+- [08:59.570] that 60-day warning without coming to the table.
+- [09:02.590] On day 61, Israel took action against Iran.
+- [09:05.970] And as I just told you from the President
+- [09:08.340] directly he will make a decision within two weeks.
+- [09:11.710] The Press: A follow up?
+- [09:13.100] Karoline Leavitt: Sure. Go ahead, Natalie.
+- [09:14.770] The Press: Can you confirm whether Steve Witkoff has been
+- [09:17.360] in touch with the Iranian foreign minister
+- [09:19.130] and does Witkoff plan to go to Geneva tomorrow for talks?
+- [09:21.970] Karoline Leavitt: I am not tracking that
+- [09:23.200] on Mr. Witkoff's travel schedule,
+- [09:25.070] but I can certainly check in with him to be sure.
+- [09:27.770] As for correspondence between the United States
+- [09:30.640] and the Iranians,
+- [09:32.030] I can confirm that correspondence has continued.
+- [09:34.820] As you know, we were engaged with six rounds of negotiations
+- [09:38.170] with them in both indirect and direct ways.
+- [09:41.900] The Press: Just to clarify the President's statement just now,
+- [09:44.140] when he says that he'll make a decision in the next two weeks,
+- [09:47.130] is he saying that if Iran does not come back
+- [09:49.840] to the negotiating table within the next few weeks,
+- [09:51.950] that the President will strike?
+- [09:53.310] Karoline Leavitt: The President is saying
+- [09:54.530] that he will make a decision
+- [09:55.740] whether or not to go within the next two weeks.
+- [09:58.100] It's very clear and direct.
+- [09:59.400] The Press: And is he seeing any signs of progress?
+- [10:01.830] He obviously is holding out hope for negotiations,
+- [10:03.660] but is he see any inklings of progress
+- [10:06.210] that give him that hope that talks are still possible?
+- [10:08.680] Karoline Leavitt: Well, that's why he said
+- [10:09.880] in the statement that I just read for all of you,
+- [10:11.480] based on the fact that there's a substantial chance
+- [10:13.340] of negotiations
+- [10:14.600] that may or may not take place with Iran in the near future,
+- [10:18.050] he will make that decision within the next two weeks.
+- [10:19.960] The Press: What makes him think there's still
+- [10:21.250] a substantial change, is my question.
+- [10:22.940] Karoline Leavitt: I'm not going to get into the reasoning
+- [10:24.450] and the rationale the President believes that,
+- [10:26.140] but that's his position
+- [10:27.360] and he will a decision within the next 2 weeks.
+- [10:29.770] The Press: Thanks, Karoline.
+- [10:31.270] President Trump has said previously,
+- [10:33.080] in regard to Russia,
+- [10:34.390] he's used this phrase about two weeks
+- [10:36.320] several times in terms of,
+- [10:38.260] like, we expect, like a two-week deadline,
+- [10:40.600] and then you give another two- week deadline.
+- [10:42.310] How can we be sure that he's going to stick to this one
+- [10:44.520] on making a decision on Iran?
+- [10:46.570] Karoline Leavitt: Well, in those deadlines,
+- [10:48.220] as you've seen in respect to Russia-Ukraine,
+- [10:50.320] might I add, these are two very different,
+- [10:51.940] complicated global conflicts, as you know,
+- [10:54.150] that the President inherited
+- [10:55.910] from our previous incompetent president
+- [10:58.440] in the weakness of the previous administration.
+- [11:00.480] And the President has spent a tremendous amount of time
+- [11:03.000] and effort cleaning up these crises
+- [11:04.660] that were caused by the last administration's
+- [11:07.340] just complete dereliction of duty
+- [11:09.040] on the world stage in American weakness.
+- [11:10.790] Now we have American strength again.
+- [11:12.530] With respect to Russia and Ukraine,
+- [11:14.380] because of that American and the President's leadership,
+- [11:17.380] we have seen these two sides engage in direct negotiations.
+- [11:20.730] And the last time the President said two weeks,
+- [11:22.850] you saw Russia and Ukraine have direct negotiations
+- [11:25.600] for the first time in years.
+- [11:27.110] And so the President is always interested
+- [11:29.140] in a diplomatic solution to the problems
+- [11:31.220] and the global conflicts in this world.
+- [11:33.010] Again, he is a peacemaker in chief.
+- [11:35.080] He is the peace through strength president.
+- [11:37.440] And so if there's a chance for diplomacy,
+- [11:38.970] the President always going to grab it,
+- [11:40.620] but he's not afraid to use strength as well,
+- [11:42.470] I will add. Francesca.
+- [11:44.010] The Press: Thanks, Karoline.
+- [11:45.250] What exactly would a deal with Iran need to entail?
+- [11:49.650] Karoline Leavitt: No enrichment of a uranium,
+- [11:51.410] and it would absolutely not,
+- [11:53.630] Iran is absolutely not able to achieve a nuclear weapon.
+- [11:57.200] The president has been very clear about that.
+- [11:59.320] And by the way, the deal that Special Envoy Witkoff
+- [12:02.640] proposed to the Iranians
+- [12:03.910] was both realistic and acceptable within its terms,
+- [12:07.710] and that's why the President sent that deal to them.
+- [12:11.320] The Press: Follow-up on what you told Natalie,
+- [12:13.190] are the talks that the United States
+- [12:14.940] is currently having with Iran direct
+- [12:17.560] or are those through intermediaries
+- [12:19.790] and if so which countries are acting
+- [12:21.690] as the intermediary area right now?
+- [12:23.520] Karoline Leavitt: Out of respect for the ongoing discussions
+- [12:25.700] and negotiations,
+- [12:26.950] I'm not going to get into the details of them.
+- [12:29.930] We've provided you confirmation for now.
+- [12:32.450] Go ahead. And then behind you too.
+- [12:37.900] The Press: On the topic of negotiations and talks,
+- [12:40.120] does the President have any hopes or specific expectations
+- [12:42.970] for the talks tomorrow between European Foreign Secretaries
+- [12:45.940] and their Iranian counterpart?
+- [12:48.170] Karoline Leavitt: Well, certainly the entire world
+- [12:49.940] is on the President's side when it comes to the fact
+- [12:52.590] that Iran cannot obtain a nuclear weapon.
+- [12:55.500] This is something that pretty much all of all of humanity
+- [12:59.520] except for the Iranian terrorist regime themselves agree upon.
+- [13:03.690] And so the President expects that Europe will deliver
+- [13:07.530] that message directly to the Iranians.
+- [13:10.410] The Press: Why does President Trump believe
+- [13:12.370] that this 90-day extension on TikTok
+- [13:14.550] will provide more runway,
+- [13:15.890] perhaps, than the previous extensions
+- [13:17.460] that haven't led to a divestment deal?
+- [13:19.110] Karoline Leavitt: Because it's more time,
+- [13:20.400] more time to make a good deal. Simple question, Dasha.
+- [13:23.340] The Press: Thank you so much.
+- [13:24.680] I know things are going day by day right now.
+- [13:27.030] The President wants maximum optionality.
+- [13:29.450] Is the possibility of the U.S.
+- [13:31.410] getting involved in a regime change in Iran
+- [13:33.970] at all on the table at this point?
+- [13:36.890] The Press: Sure, the President's top priority right now
+- [13:38.970] is ensuring that Iran cannot obtain a nuclear weapon
+- [13:41.930] and providing peace and stability in the Middle East.
+- [13:44.420] The Press: On Medicaid, Karoline,
+- [13:45.650] the Senate put forward Medicaid provisions,
+- [13:47.590] particularly a lower cap on state provider taxes
+- [13:51.030] that hospitals have said would lead to mass closures,
+- [13:54.280] particularly in rural communities.
+- [13:56.200] Is the President willing to sign a bill
+- [13:57.590] that includes those provisions
+- [13:59.110] that Republican senators like Josh Hawley
+- [14:01.040] say will lead to hospital closures?
+- [14:03.520] Karoline Leavitt: Out of respect for the ongoing discussions
+- [14:05.410] that the White House is very much actively involved
+- [14:08.060] in with our friends in the United States Senate,
+- [14:11.190] I won't comment on that specific provision.
+- [14:13.240] Look, the bill hasn't been sent to the President's desk yet.
+- [14:15.580] There's more room for change.
+- [14:16.790] The President, for one, I will reiterate,
+- [14:18.940] has been very clear on his priorities
+- [14:21.630] with respect to Medicaid.
+- [14:23.210] He wants to see waste, fraud, and abuse ridden from the system
+- [14:27.310] to protect it for taxpaying citizens
+- [14:29.990] who deserve of those much needed benefits.
+- [14:32.440] He wants to prioritize the sick, the needy,
+- [14:35.920] the poor in this country who deserve those benefits,
+- [14:38.290] not the 1.4 million illegal aliens who are receiving them.
+- [14:42.400] And he wants to make sure this One Big Beautiful Bill
+- [14:44.290] kicks those illegal aliens off of this program
+- [14:47.250] to preserve it and protect it
+- [14:48.560] and strengthen it for the American people.
+- [14:50.810] And the President has been very clear in that message
+- [14:53.320] to his friends in the Senate.
+- [14:58.130] The Press: Logistically, if the Iranians are getting to Geneva,
+- [15:00.750] does that mean they've found a way to get to the White House?
+- [15:02.920] Karoline Leavitt: I am not going to get into hypotheticals,
+- [15:05.440] but as you heard from the President yesterday,
+- [15:07.030] they have expressed interest in doing so.
+- [15:09.610] The Press: On the President to come to the aid of Israel,
+- [15:13.790] there's a lot of pressure on him to finish the job with force.
+- [15:16.620] How is he balancing the concern that
+- [15:19.330] if he doesn't choose to do that,
+- [15:21.680] that it would send a message to Xi Jinping
+- [15:24.160] about the U.S. commitment to Taiwan?
+- [15:26.880] Karoline Leavitt: Well, the President enjoys
+- [15:28.240] a very respectful
+- [15:29.990] and cordial relationship with China's president.
+- [15:33.140] He has long maintained that, even in his first term.
+- [15:36.390] And China and the United States share many strategic interests,
+- [15:39.540] both in terms of economics and also, of course,
+- [15:43.280] global affairs and foreign policy as well.
+- [15:46.000] However, when it comes to balancing
+- [15:48.440] these different viewpoints,
+- [15:49.660] the President is balancing a lot of viewpoints.
+- [15:51.890] And he is listening, not just to other world leaders,
+- [15:55.170] but to his advisors and to people here in the country
+- [15:57.970] and the American people, too.
+- [15:59.180] And I think that's what makes this president
+- [16:01.220] such a great leader, is his ability to listen
+- [16:04.880] and make a good decision on behalf of the American public
+- [16:08.460] based on his instincts and his experience.
+- [16:11.380] Don't forget, this is a president who was here before,
+- [16:13.990] and the world was a much more peaceful and stable place
+- [16:16.500] when he left office than when he came back in
+- [16:18.750] after the past four years of complete incompetence
+- [16:21.160] by the previous president. Philip, go ahead.
+- [16:22.880] The Press: Thank you, Karoline. Two quick questions.
+- [16:24.900] When the President says Iran is very close to a nuclear weapon,
+- [16:28.030] is he relying on U.S. Intelligence or intelligence
+- [16:30.850] sharing from an ally to make that assessment?
+- [16:33.100] Karoline Leavitt: It is a fact,
+- [16:34.690] and the United States government maintains this fact,
+- [16:37.500] that Iran has never been closer to obtaining a nuclear weapon.
+- [16:41.170] The Press: And then if the U.S.
+- [16:42.450] were to take some type of military action,
+- [16:46.490] would the President go to Congress to seek war authority?
+- [16:51.030] Karoline Leavitt: I'm not going to engage in hypotheticals.
+- [16:52.660] I gave you the statement from the President.
+- [16:54.200] He'll make a decision within two weeks.
+- [16:55.470] The Press: Thank you, Karoline.
+- [16:56.760] Karoline Leavitt: Sure. Go ahead.
+- [16:57.980] Mary and then Elizabeth.
+- [16:59.330] The Press: Two questions, one on Iran and then the second
+- [17:01.270] on something Jasmine Crockett said this morning.
+- [17:03.500] So given that we know the Iranian government
+- [17:05.300] did order an operative to assassinate the President,
+- [17:08.320] is there concern that Iran might respond
+- [17:10.630] with nontraditional military ways
+- [17:14.310] to some kind of strike on Iran,
+- [17:16.250] such as another assassination attempt?
+- [17:17.800] And has the Department of Justice
+- [17:19.100] looked into this last attempt on the President's life?
+- [17:22.230] Karoline Leavitt: I believe Secret Service and the FBI
+- [17:24.580] have looked into the two assassination attempts
+- [17:27.180] that took place against the President,
+- [17:30.100] both of which were sad days in our nation's history.
+- [17:33.900] So I would defer you to the Department of Justice
+- [17:35.620] on where those investigations stand.
+- [17:37.930] But as for your question regarding Iranian retaliation,
+- [17:42.330] I'm not going to engage in hypotheticals again,
+- [17:44.540] but I can assure the American public
+- [17:46.760] and the world that this administration
+- [17:48.900] Is prepared and ready to defend American interests and assets,
+- [17:52.510] not just in the region, but here on our homeland as well.
+- [17:54.400] Thank you. The Press: Thank you.
+- [17:55.650] And then really quick on Jasmine Crockett.
+- [17:57.230] She said, I believe, that Trump supporters are mentally ill
+- [18:01.360] before calling for bipartisan support against the President.
+- [18:03.970] Can you respond to that,
+- [18:05.230] especially considering she's a rising star
+- [18:07.410] in the Democrat Party right now?
+- [18:08.620] Karoline Leavitt: She is a rising star.
+- [18:09.910] It's quite something to behold, actually.
+- [18:12.330] I hope that she continues to be a rising star,
+- [18:15.160] for the Republican Party at least.
+- [18:17.470] I think it's incredibly derogatory
+- [18:19.830] to accuse nearly 80 million Americans of mental illness.
+- [18:23.970] The last time I checked,
+- [18:25.190] Jasmine Crockett couldn't dream of winning
+- [18:27.360] such a majority of the public as President Trump did,
+- [18:30.080] and the America First movement, which President Trump has built,
+- [18:33.010] is filled of hardworking patriots,
+- [18:35.310] the forgotten men and women, business owners,
+- [18:37.360] law enforcement officers, nurses and teachers,
+- [18:40.930] and middle America, as we all know,
+- [18:44.230] you know, from where you all grew up outside of this beltway.
+- [18:47.100] That's who makes up this president's movement.
+- [18:48.860] And Jasmine Crockett should go to a Trump rally sometime
+- [18:52.080] and she can see it for herself.
+- [18:54.360] The Press: One on North Korea and one on China.
+- [18:56.390] On North Korea,
+- [18:57.620] they launched some rockets into the ocean today.
+- [19:00.790] What does the White House make of that?
+- [19:02.170] Do you read any meaning into that timing of that launch?
+- [19:05.580] And then on China, do you have any reaction to Xi Jinping's
+- [19:10.250] offer of getting intervening in Iran diplomatically?
+- [19:13.840] And are you seeing any signs that China would get involved
+- [19:16.520] militarily to support Iran?
+- [19:17.960] Karoline Leavitt: I don't believe
+- [19:19.240] we're seeing any signs of that
+- [19:20.440] at this moment in time. As for Xi Jinping's offer,
+- [19:23.500] I will leave it to the President to respond to that himself.
+- [19:26.180] As for your question about North Korea,
+- [19:27.780] we are monitoring the situation.
+- [19:29.650] The Trump administration is in close contact
+- [19:31.520] with our new South Korean counterparts
+- [19:33.250] as we work together to deter our adversaries
+- [19:35.990] and preserve a free and open Indo-Pacific.
+- [19:38.940] And no matter where,
+- [19:40.230] our adversaries and our allies alike know
+- [19:42.100] that President Trump will not tolerate threats
+- [19:44.430] against our interests on his watch
+- [19:45.960] even as he works to resolve the wars that he inherited.
+- [19:51.120] The Press: Is the President concerned about the economy
+- [19:53.070] if farms and hotels, et cetera, struggle to find workers?
+- [19:56.990] Karoline Leavitt: The President's always concerned
+- [19:58.470] about the economy. That's on his mind every day.
+- [20:00.760] He wakes up, he checks the markets, he checks wage growth.
+- [20:04.110] As I pointed out, it's a record high today
+- [20:06.790] for middle class and American workers.
+- [20:08.900] So the President's is always wanting to ensure
+- [20:11.440] that we have a strong and robust economy
+- [20:13.290] for the American people and worker,
+- [20:14.610] and we do as for the specific concerns regarding jobs.
+- [20:18.640] Look, the President has made it very clear.
+- [20:20.620] We need to remove public safety threats
+- [20:22.890] from the interior of our country.
+- [20:24.380] And that remains the focus
+- [20:25.590] and the priority of this administration
+- [20:27.220] when it comes to deportations. No matter where somebody works,
+- [20:30.390] if they're an illegal alien rapist or murderer
+- [20:32.700] that was allowed into this country in the past
+- [20:34.880] four years by this administration,
+- [20:36.240] the American people want those types of criminals
+- [20:39.200] to be deported from our country,
+- [20:41.050] and that's what the President is backing ICE to do.
+- [20:45.110] The Press: There was an apparent skirmish between the Chinese
+- [20:46.830] and the Philippines and the South China Sea.
+- [20:48.410] I'm just curious if you had any reaction to that
+- [20:50.560] and if the steps you're taking towards the Middle East
+- [20:53.300] right now are reducing your capacity
+- [20:54.680] to deal with that situation.
+- [20:55.910] Karoline Leavitt: I believe that happened as I was
+- [20:57.410] preparing and coming out here,
+- [20:58.750] so we'll get you a response to that.
+- [21:00.110] Certainly we'll have one and our teams
+- [21:01.490] are always monitoring situations all around the globe.
+- [21:04.480] The Press: And one more, just on Iran.
+- [21:06.040] Just over the past 24 hours,
+- [21:07.360] we've seen some Israeli strikes on Natanz, Isfahan,
+- [21:11.640] and Kondah nuclear facilities.
+- [21:13.950] Is there any assessment just of how effective
+- [21:16.420] or what the result of those strikes will be?
+- [21:18.740] Karoline Leavitt: What I can share
+- [21:19.940] is that the IDF and Israel, I think, have exceeded
+- [21:23.630] a lot of people's expectations in their ability
+- [21:27.080] to really hinder Iran's nuclear facilities,
+- [21:30.640] but also they've taken out key people
+- [21:32.560] in the Iranian regime's leadership as well.
+- [21:34.440] So this is something, of course,
+- [21:35.990] we are monitoring and watching every day,
+- [21:37.560] and the President was just in an intelligence briefing.
+- [21:41.160] He continues to be briefed by his National Security Council,
+- [21:43.720] and he will throughout the duration
+- [21:45.110] of this war and conflict.
+- [21:46.470] And he also remains in constant communication
+- [21:49.110] with our Israeli counterparts,
+- [21:50.720] most notably Prime Minister Benjamin Netanyahu.
+- [21:53.850] The Press: Thank you, Karoline.
+- [21:55.400] We have heard from a number of U.S. officials
+- [21:56.860] who say that Iran doesn't want to make a deal,
+- [21:58.430] that they are just stringing the United States along.
+- [22:00.690] What is to say that they're not going to continue to do
+- [22:02.940] so if we continue to give them extensions
+- [22:06.440] now two weeks before 60 days?
+- [22:08.470] Karoline Leavitt: Look, Iran is in a very weak
+- [22:09.910] and vulnerable position
+- [22:11.130] because of the strikes and the attacks from Israel.
+- [22:15.030] And with respect to the President's statement,
+- [22:17.010] I shared that with all of you.
+- [22:18.440] And he has been very direct and clear.
+- [22:20.590] Iran can and should make a deal.
+- [22:23.760] We sent a deal to them that was practical,
+- [22:25.900] that was realistic, or they will face grave consequences.
+- [22:28.180] The Press: Why is Steve Witkoff
+- [22:29.560] not participating in the talks this week?
+- [22:31.430] Karoline Leavitt: I can ask Mr. Witkoff why he is not.
+- [22:35.120] The Press: Does the President object
+- [22:36.400] if Israel attempts its own operation against
+- [22:38.450] Fordow in the next two weeks?
+- [22:40.130] Karoline Leavitt: I won't decide that for the President,
+- [22:41.870] nor will I share that here. I'll let him speak to that.
+- [22:43.910] The Press: Just another one. Iran is apparently warning
+- [22:47.380] Europeans that if struck by the U.S.
+- [22:49.630] It may withdraw from the Nuclear Proliferation
+- [22:52.300] Treaty that would result in throwing out inspectors
+- [22:55.320] and taking the program dark.
+- [22:57.260] What does the President think of the value of having
+- [22:59.990] Iran as a full signatory of that (inaudible).
+- [23:02.210] Karoline Leavitt: Well, that's reckless rhetoric,
+- [23:03.730] but I understand the Europeans are meeting
+- [23:05.180] with the Iranians tomorrow,
+- [23:06.390] so we'll see how that meeting goes.
+- [23:07.790] The Press: Just one more on Juneteenth.
+- [23:09.530] Does the President plan to commemorate the holiday today,
+- [23:11.740] or make any comment on it?
+- [23:13.020] Karoline Leavitt: I'm not tracking his signature
+- [23:14.360] on a proclamation today.
+- [23:15.570] I know this is a federal holiday.
+- [23:16.930] I want to thank all of you for showing up to work.
+- [23:18.740] We are certainly here. We're working 24-7 right now.
+- [23:20.990] Nikki, go ahead.
+- [23:22.200] The Press: Actually, that was my question.
+- [23:23.430] Will he plan to mark Juneteenth in any way,
+- [23:25.470] either today or with an event later on, maybe next week?
+- [23:28.450] Karoline Leavitt: I just answered that question for you
+- [23:30.930] The Press: Thank you very much, Karoline.
+- [23:32.510] The fact that this president is giving some time and space
+- [23:35.310] for diplomacy in other two weeks,
+- [23:37.200] does it mean that the President is trying his best
+- [23:40.150] to avoid a direct conflict with Iran?
+- [23:43.180] Karoline Leavitt: I think the President has made it clear
+- [23:45.320] he always wants to pursue diplomacy.
+- [23:48.210] But believe me, the President is unafraid to use strength
+- [23:51.370] if necessary.
+- [23:52.610] And Iran and the entire world
+- [23:54.270] should know that the United States military is the strongest
+- [23:57.070] and most lethal fighting force in the world,
+- [24:00.470] and we have capabilities that no other country
+- [24:02.650] on this planet possesses. Owen?
+- [24:06.000] The Press: Good afternoon. The Supreme Court, as you know,
+- [24:08.330] has upheld Tennessee's ban on transgender medical procedures
+- [24:11.630] for minors, community blockers, hormone therapy, et cetera.
+- [24:15.100] The White House reaction to that, please.
+- [24:16.620] Karoline Leavitt: That's a huge victory for America's children,
+- [24:19.100] and it's obviously something this administration
+- [24:21.700] believes strongly in, that young minor children
+- [24:24.160] should not be allowed to be subjected
+- [24:25.840] to chemical castration and mutilation.
+- [24:28.680] The President himself has taken very strong orders,
+- [24:32.010] or has signed very strong executive orders on this,
+- [24:35.060] and we are grateful for Tennessee's efforts
+- [24:37.100] to protect our children,
+- [24:38.350] and we're grateful the Supreme Court
+- [24:40.190] ruled on the side of the law, but also on the side
+- [24:43.140] of protecting America's innocent children.
+- [24:46.130] Elizabeth, go ahead.
+- [24:47.410] The Press: Thank you so much.
+- [24:49.610] Secretary of State Marco Rubio announced
+- [24:51.610] new vetting procedures on student visas.
+- [24:53.880] Will this serve as a model for vetting other foreign visas?
+- [24:57.480] Karoline Leavitt: For all foreign visas, yes.
+- [24:59.190] As you know, the President signed an executive order.
+- [25:01.410] I think it was one of the first he signed in the first week
+- [25:04.060] to strengthen our vetting requirements
+- [25:06.180] and our vetting system here in the United States for all visas,
+- [25:09.110] he directed the Secretary of State to do that.
+- [25:11.450] There was a pause in some of that vetting,
+- [25:13.350] as you all know, recently,
+- [25:15.170] especially with respect to students
+- [25:16.880] from some certain countries. But the vetting has continued,
+- [25:20.860] and it's stronger than ever before.
+- [25:22.750] As for specifics on how the vetting process has changed,
+- [25:25.580] I would defer you to the Department of State
+- [25:27.410] as you know they're in charge of things like that.
+- [25:31.300] The Press: To what extent is this two-week delay
+- [25:32.950] with Iran the result of interventions
+- [25:34.520] by the likes of Tucker Carlson, Marjorie Taylor-Green
+- [25:37.100] or the entreaties of European leaders
+- [25:39.200] who want a de-escalation?
+- [25:40.660] Karoline Leavitt: Look, the President hears
+- [25:42.170] all voices across the country,
+- [25:43.870] and he makes decisions based on his instincts.
+- [25:46.780] And he has always said diplomacy is his first option.
+- [25:48.830] The Press: (inaudible)
+- [25:50.100] plan to attend the NATO summit next week?
+- [25:51.470] Karoline Leavitt: He is.
+- [25:52.690] Yes, we will be departing from Washington on Monday morning,
+- [25:55.860] and hopefully we'll see some of you there.
+- [25:57.670] Mikayla?
+- [25:59.590] The Press: Oil prices have been spiking over the last week.
+- [26:01.990] Is the President watching the oil market,
+- [26:03.850] and is that factoring into his decision-making
+- [26:05.460] in the Middle East?
+- [26:06.750] Karoline Leavitt: Again, as I said to I think
+- [26:08.420] Alex's question previously,
+- [26:09.810] the President is always watching,
+- [26:11.770] and this administration is doing more than any in history
+- [26:15.080] to bring oil prices and gas prices here
+- [26:17.390] at home down for the American public.
+- [26:20.210] They have been plummeting since President Trump's inauguration
+- [26:23.040] because of the executive action and the federal action
+- [26:26.320] this administration has taken on the home front.
+- [26:28.150] But yes, of course, he's paying attention and monitoring that.
+- [26:31.160] But as for whether it's weighing into his decision,
+- [26:33.880] there's a number of factors that of course are,
+- [26:35.690] and as I said, he will make that decision in the next two weeks.
+- [26:38.470] Can't reiterate that enough.
+- [26:40.230] The Press: Karoline, thank you. With regard to a potential deal,
+- [26:43.760] Iran has said it will not negotiate under duress.
+- [26:46.670] Does the President believe there should be a ceasefire
+- [26:49.790] in these next two weeks
+- [26:51.170] as the U.S. tries to broker a deal?
+- [26:53.610] Karoline Leavitt: That's not what he said
+- [26:54.850] in the statement he dictated to me,
+- [26:56.160] so I won't get ahead of the President
+- [26:57.600] or add anything additional to the statement
+- [26:59.690] that he gave me the liberty to share with all of you.
+- [27:02.010] The Press: Follow-up on how close Iran
+- [27:03.670] is to a nuclear weapon.
+- [27:05.620] Can you clarify, when the President said a few weeks away,
+- [27:09.820] did he mean obtaining enough enriched uranium
+- [27:13.480] to start building a weapon,
+- [27:15.540] or did he means Iran is a few week
+- [27:18.030] away from completing the production of a weapon?
+- [27:21.170] Karoline Leavitt: I'm glad you asked that, Weijia.
+- [27:22.650] It's an important question and it's one, frankly,
+- [27:24.880] the media has been getting wrong.
+- [27:26.400] Let's be very clear.
+- [27:27.980] Iran has all that it needs to achieve a nuclear weapon.
+- [27:31.790] All they need is a decision from the Supreme Leader to do that.
+- [27:34.820] And it would take a couple of weeks
+- [27:36.230] to complete the production of that weapon,
+- [27:38.510] which would of course pose an existential threat
+- [27:41.250] not just to Israel,
+- [27:42.520] but to the United States and to the entire world.
+- [27:45.020] And that is something that the entire
+- [27:47.360] Including countries like Russia, is in agreement with,
+- [27:49.830] that Iran should not and cannot obtain a nuclear weapon.
+- [27:53.280] And that's why the President believes that,
+- [27:54.780] and he's believed that, again, not just his political career,
+- [27:57.510] but, frankly, his entire life.
+- [28:00.320] The Press: It's the former, just to be clear.
+- [28:01.790] They have the components.
+- [28:03.030] Karoline Leavitt: Correct. Michael.
+- [28:04.230] The Press: Thanks, Karoline, as we look forward
+- [28:05.640] to the NATO summit next week,
+- [28:07.030] Spain right now is threatening not to oblige
+- [28:10.440] the President's request for all NATO countries
+- [28:13.100] to spend at least 5 percent of their GDP.
+- [28:16.710] Does the President take issue with this, with Spain right?
+- [28:19.840] Karoline Leavitt: I didn't see Spain's comments.
+- [28:21.300] I'll make sure the President sees them,
+- [28:22.800] and I can assure you,
+- [28:24.010] he wants to see all European countries
+- [28:26.040] pay their fair share and meet that 5 percent threshold.
+- [28:28.830] It's only fair considering the American taxpayers
+- [28:31.500] have given a significant chunk of money
+- [28:34.250] to the tune of billions of dollars
+- [28:36.580] to support our mutual interests and our assured defense.
+- [28:40.230] So I will let him speak to that.
+- [28:42.120] But he's made his priorities for our European
+- [28:43.970] allies quite clear, including Spain.
+- [28:46.340] The Press: One last question,
+- [28:47.610] when it comes to the President's position
+- [28:49.040] on foreign policy in general,
+- [28:50.780] is there a phrase that the White House has coined?
+- [28:53.630] Is there a Trump doctrine?
+- [28:55.430] Does the President like to talk about this?
+- [28:57.020] Anyone here in the White house talking about this,
+- [28:58.870] and if so, if there is something akin to a Trump Doctrine,
+- [29:01.610] how would you define it?
+- [29:02.920] Karoline Leavitt: America first always.
+- [29:04.600] And with that I think I'll leave you.
+- [29:06.200] I know there's a lot of news in the world right now.
+- [29:08.040] As you know our team is always here to answer your questions
+- [29:10.830] and the President I am sure we'll take more questions
+- [29:13.260] from you guys at some point this week
+- [29:15.170] as he always does in the effort of transparency.
+- [29:17.300] I appreciate your being here on a federal holiday.
+- [29:19.150] We'll see you later. Thank you.
+- [29:20.470] The Press: Thank you, Karoline.

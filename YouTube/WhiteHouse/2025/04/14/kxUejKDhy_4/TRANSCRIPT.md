@@ -1,0 +1,462 @@
+<!-- source: https://www.youtube.com/watch?v=kxUejKDhy_4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kxUejKDhy_4 -->
+<!-- date_published: 2025-04-14T19:49:32+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:56.663841+00:00 -->
+
+# Transcript: President Trump Welcomes the 2024 College Football National Champions - The Ohio State University
+
+- [00:00.000] Announcer: Ladies and gentlemen, please welcome the 2024 College
+- [00:01.260] Football National Champions, the Ohio State University
+- [00:02.690] Buckeyes. Ladies and gentlemen,
+- [00:03.910] the president of the United States,
+- [00:05.780] accompanied by the vice president of the United States
+- [00:08.590] and Ryan Day, head coach of the Ohio
+- [00:11.040] State University Buckeyes.
+- [01:09.870] The President: That's a good- looking group behind me.
+- [01:12.270] And they're big.
+- [01:13.560] We're not going to get into any fights with them,
+- [01:15.680] I can guarantee you.
+- [01:17.840] So I want to just congratulate everybody.
+- [01:19.950] Coach, you have done some job, man.
+- [01:22.890] But today is my great honor to welcome the 2024 College
+- [01:28.020] Football National Champions, The Ohio State University.
+- [01:38.540] And it turns out January 20th was a big day for all of us.
+- [01:44.700] That's true. That was a big day.
+- [01:48.540] I love that day. I won't forget that day.
+- [01:53.880] To Ohio State President Ted Carter… Ted, where is Ted?…
+- [01:57.640] Ted, congratulations. Good job, man.
+- [02:01.910] Athletic Director Ross Bjork. Ross, where is Ross?
+- [02:07.200] [inaudible], congratulations.
+- [02:12.020] Did you not know they were this good?
+- [02:15.050] He said, "Absolutely." That's a good answer.
+- [02:17.840] To Coach Ryan Day, who… and I have to read this
+- [02:20.350] because this is not part of it,
+- [02:21.620] but they gave me a little briefing.
+- [02:23.810] I knew how good a coach… I didn't know he was that good.
+- [02:27.100] It's Ryan Day, head coach of The Ohio State University.
+- [02:30.710] So here's just a little summary.
+- [02:31.980] Ryan was named head coach in December 2018.
+- [02:35.510] Think of this, first of all,
+- [02:36.810] he's a very young looking guy, he's got a lot of time left.
+- [02:40.330] In his six seasons as head coach,
+- [02:42.240] Day has led the team to nine championship wins.
+- [02:45.900] You don't do that.
+- [02:47.130] He's currently the only coach to lead his team to the College
+- [02:50.440] Football Playoffs four times since 2019,
+- [02:53.880] and his first season as head coach
+- [02:55.630] and his overall coaching record 70 and 10.
+- [03:00.590] So in other words, Ryan, I'd like to be your agent.
+- [03:03.030] I want to represent you. And he won the big one, right?
+- [03:06.610] He won the big one. That's the biggest of all.
+- [03:09.260] That's fantastic. Let me have you.
+- [03:16.170] It's an amazing achievement at a young age.
+- [03:18.290] And to the entire team and everybody up here,
+- [03:21.070] we want to thank you and congratulate you.
+- [03:22.900] There's this building behind you,
+- [03:24.190] there's nothing like it. I have a lot of buildings.
+- [03:27.010] This is the one… this one you can't beat.
+- [03:32.400] The White House.
+- [03:33.620] And I think the coach was all excited about it.
+- [03:36.560] I threw it out just hoping that it wouldn't be a big deal.
+- [03:39.680] I said, "Coach Edwards, if you'd like,
+- [03:42.180] but only if you like, don't worry about it.
+- [03:44.270] We could take the team down to the Oval Office
+- [03:46.580] and show them what the Oval Office
+- [03:47.930] is because it is spectacular."
+- [03:51.150] And I don't know if the floor could withstand it,
+- [03:53.750] that's the only thing. But we're going to do that.
+- [03:57.270] And I've done some Trump touches to the Oval Office.
+- [04:01.610] It's a little nicer than it used to be, I think.
+- [04:04.870] Most people… A lot nicer, you're right about that.
+- [04:08.410] No, it's special. Everything begins,
+- [04:10.540] ends and re-begins at the Oval Office.
+- [04:13.380] So we're going to take the team down there
+- [04:14.770] right when we finish, okay?
+- [04:16.180] If anyone doesn't want to go, that'll be okay.
+- [04:18.400] Who's going, everybody? We look forward to it.
+- [04:24.060] Also with us are many Ohio State fans from my administration.
+- [04:29.010] And the biggest of them all, of course,
+- [04:30.850] is our vice president, who's been fantastic.
+- [04:33.910] [inaudible] JD Vance.
+- [04:39.150] JD [inaudible].
+- [04:42.380] But he was such a good student,
+- [04:44.850] he didn't stay there for four years.
+- [04:46.730] He got out in two years, number one in his class.
+- [04:48.860] How do you do that?
+- [04:50.850] Did you have any better students than that?
+- [04:52.640] Better football players, yes. But JD's doing a great job.
+- [04:57.140] Thanks as well to Secretary of State Marco Rubio
+- [04:59.280] for being here.
+- [05:00.520] Marco, you're doing incredible. Thank you.
+- [05:03.640] As well as Representatives Warren Davidson and Mike Carey.
+- [05:07.290] Fellows, thank you. Thank you, thank you very much.
+- [05:12.080] Governor Mike DeWine. Mike, where are you?
+- [05:14.410] Hi, Mike. Doing a great job.
+- [05:18.280] Attorney General Dave Yost.
+- [05:21.420] Dave, congratulations on everything.
+- [05:23.960] Secretary of State Frank LaRose. Frank, thank you, Frank.
+- [05:29.750] Mayor Trent Conaway. I love Trent Conaway.
+- [05:32.190] Where's Trent Conaway? Where are you, Trent?
+- [05:35.840] You look at him, that guy from East Palestine.
+- [05:40.440] I think you're the reason they say that was…
+- [05:43.450] I visited and Biden didn't.
+- [05:46.040] And when I went there and I went there
+- [05:47.760] right after the problem, right?
+- [05:49.750] And I met Trent and I love Trent.
+- [05:52.630] But a lot of people give you a lot of credit
+- [05:54.820] for the success that we've had
+- [05:56.230] 'cause we won in a huge stampede,
+- [05:59.560] in a landslide, and I want to thank you.
+- [06:01.510] You've been a great mayor and you went through a lot,
+- [06:04.000] and we took care of you. We helped and other people did.
+- [06:07.380] But you were a big stop in the first one.
+- [06:09.660] So thank you for being here. It's good to see you again.
+- [06:11.880] Mayor Conaway: [inaudible].
+- [06:13.190] The President: Thank you very much.
+- [06:14.640] [inaudible].
+- [06:17.070] And of course, the Ohio State legend,
+- [06:19.860] he's a current lieutenant governor, Jim Tressel.
+- [06:27.470] Where's Jim? Thank you. Thank you, Jim.
+- [06:30.980] Thank you very much and he's a legend.
+- [06:33.470] Thanks also to my friends JJ Cafaro
+- [06:36.620] and the Schottenstein family.
+- [06:38.490] They here somewhere. There they are.
+- [06:40.950] Hi, fellows, good to have you.
+- [06:44.290] This was a historic year in college football.
+- [06:46.630] Standing together today, these men are the first…
+- [06:49.700] think about it,
+- [06:50.950] the first college football players in history
+- [06:53.380] who can proudly call themselves 12-team Playoff Champions.
+- [06:58.260] You're the first ones. You're the first ones.
+- [07:04.510] Congratulations, coach.
+- [07:06.090] This team showed the world that the road to greatness
+- [07:09.330] is paved by hard work, sweat,
+- [07:11.190] and often a great deal of adversity.
+- [07:13.180] They had a lot of adversity because…
+- [07:15.070] I shouldn't say this, I actually said,
+- [07:17.020] "Should I leave this line out?
+- [07:19.230] And they said, "Sir," and you said, "Yes, leave it."
+- [07:22.760] "Sir, they want to hear the whole thing."
+- [07:24.670] The bad and the good, right? But many people counted you out,
+- [07:28.100] as you know, after the losses against Oregon,
+- [07:30.460] which is a great team and that team up north.
+- [07:36.350] Multiple Speakers: Yeah.
+- [07:37.570] The President: But you refused to let the Buckeye Nation down.
+- [07:41.080] You got better and better and tougher
+- [07:43.120] and tougher as the season went along.
+- [07:45.920] And after a very strong regular season,
+- [07:49.660] but with adversity,
+- [07:50.920] you held a closed-door players-only meeting.
+- [07:53.810] This extraordinary group rallied together
+- [07:55.740] for a single glorious mission,
+- [07:57.990] to win four straight playoff games
+- [08:00.620] against the finest teams in college football.
+- [08:04.330] And you were able to do it, obviously.
+- [08:08.060] In the first playoff game, Tennessee quarterback,
+- [08:10.450] Will Howard, scorched the volunteer defense.
+- [08:13.400] I watched that game. I said, "That guy is good."
+- [08:18.150] Defense for 311 yards and completed 24 of 29 passes.
+- [08:24.350] Known for his accuracy, strong arm,
+- [08:27.430] but boy is he known for his…
+- [08:29.030] Where is Will? I want to see this guy.
+- [08:41.740] The President: You are fantastic.
+- [08:43.820] Oh, he's going to be so rich. Think of that.
+- [08:49.700] To look like that and to play, that's a good combination.
+- [08:52.500] But Will went on to set an all-time college
+- [08:55.230] football player of record with 1,150 yards passing.
+- [08:59.720] That's an incredible thing. Thank you.
+- [09:05.460] We'll be watching him for about 15 years, maybe longer.
+- [09:09.140] The next game was a chance at redemption
+- [09:11.400] against the top ranked Oregon Ducks,
+- [09:13.810] which was a tough team.
+- [09:15.780] It was a total team effort by Ohio State.
+- [09:19.940] In the first half, the Buckeyes built an insurmountable 34 point
+- [09:24.120] lead thanks to the scores from veteran playmaker
+- [09:27.440] Treveyon Henderson. Where is he? Treveyon.
+- [09:31.510] [inaudible 00:21:01]
+- [09:44.560] You think I could beat him in a race?
+- [09:46.340] I don't. Great going. And Ohio State.
+- [09:50.920] And also your reception's leader Emeka Egbuka.
+- [09:57.140] Where is he? Look at this guy.
+- [10:05.550] Congratulations fellas.
+- [10:07.580] How important were they to your passing?
+- [10:09.490] Male Speaker: Oh, they were everything.
+- [10:10.870] The President: That's good. You said the right thing.
+- [10:13.720] Then came the team's biggest test in the semifinals.
+- [10:16.760] A trip to Texas for the Cotton Bowl,
+- [10:19.800] and that Texas was pretty much rated the number one team
+- [10:22.860] at the beginning of the season.
+- [10:24.210] Right? So that was a tough team.
+- [10:25.620] I know that. It was neck and neck.
+- [10:27.960] Late in the fourth quarter, Texas was down a score.
+- [10:30.780] But marching in the red zone with two minutes
+- [10:33.590] left on the fourth and eight, with 2:29 on the clock.
+- [10:37.630] Hometown legend Jack Sawyer… Boy, that's a good name.
+- [10:43.200] Jack Sawyer. It sounds like the name of a legend, right?
+- [10:47.940] A son of Columbus.
+- [10:49.470] We won Columbus by a lot of points.
+- [10:51.610] I like it too.
+- [10:53.530] Gave the world an all-time great Ohio State football moment.
+- [10:57.930] Most of you know what I'm talking about.
+- [10:59.670] In one amazing play, Jack exploded off the line.
+- [11:03.200] Strip-sacked the quarterback, which is not easy to do.
+- [11:06.960] Scooped the fumble recovery,
+- [11:09.370] scored an 83-yard touchdown return
+- [11:12.660] and punched Ohio State's ticket to the championship game.
+- [11:16.050] Yeah, it's a hell of a thing.
+- [11:17.360] You mean you took the ball out of the quarterback's head?
+- [11:20.620] I don't want to say this. I don't want to make…
+- [11:22.350] How do you think that other team field?
+- [11:23.860] Not too good.
+- [11:25.350] That's one of those disasters for another team, right?
+- [11:28.830] Oh, that quarterback doesn't feel good.
+- [11:31.030] Where is he? I want to see this guy.
+- [11:34.350] [inaudible]
+- [11:42.030] Male Speaker: Phenomenal.
+- [11:43.230] The President: Are you that fast?
+- [11:44.450] [inaudible].
+- [11:45.720] Male Speaker: I had some great blockers leading the way
+- [11:47.490] [inaudible] probably.
+- [11:48.720] The President: That's unbelievable actually.
+- [11:50.610] Size of these guys.
+- [11:52.470] I used to think I was quite a big fellow.
+- [11:54.280] Not so much anymore.
+- [11:56.320] But he later said that it was the best feeling he'd ever felt.
+- [11:59.950] Are you sure about that, Jack? I don't know about that.
+- [12:03.450] As he gets older, who knows,
+- [12:06.420] but I don't think he's ever going to forget it.
+- [12:09.800] And Jack, you earned it and congrats.
+- [12:12.300] That's really a special.
+- [12:13.510] So you thought that game, it was maybe over coach.
+- [12:17.130] What do you think?
+- [12:18.500] Male Speaker: That's when I felt like we were going to win.
+- [12:20.290] The President: You felt like it was going to…
+- [12:21.710] That's why he's a good coach.
+- [12:23.930] He felt he was going to win. That was pretty amazing.
+- [12:28.300] And the other team was tough, right?
+- [12:29.710] Male Speaker: They were good team.
+- [12:30.920] The President: Will they be good again this season?
+- [12:32.460] Male Speaker: We open up the first game with them next year.
+- [12:34.180] The President: Oh, you have the first game with them.
+- [12:35.410] Wow. That's tough.
+- [12:36.840] And a lot of your players are coming back,
+- [12:39.180] but quite a few great ones are leaving, right?
+- [12:40.840] Male Speaker: To the NFL.
+- [12:42.070] The President: How do you feel about…
+- [12:43.320] To the NFL.
+- [12:44.520] That's the good thing about every one of them goes.
+- [12:47.060] How do you feel about the season?
+- [12:48.370] Male Speaker: That's going to be exciting.
+- [12:49.600] The President: Better be good.
+- [12:50.810] Male Speaker: We're going to miss some of these guys.
+- [12:52.050] But we've got good young guys
+- [12:53.300] and we're excited about next season.
+- [12:54.570] The President: I bet you're going to do great.
+- [12:56.230] But the Buckeyes had defied the critics,
+- [12:58.330] but the job just wasn't finished.
+- [13:00.680] This tremendous team needed one more win
+- [13:03.880] for the ultimate victory.
+- [13:05.550] The national championship game against Notre Dame.
+- [13:09.320] Offensive MVP, Will Howard led the charge again
+- [13:13.240] completing 14 of his first 15…
+- [13:16.190] I'm telling you, the guy has an accurate arm.
+- [13:18.360] How many times do I have to tell you that.
+- [13:22.090] Quinshon Judkins reached the end zone three times.
+- [13:26.300] Where the hell is he? [inaudible]
+- [13:34.230] Three times defensive MVP, Cody
+- [13:37.050] Simon, stuffed the fighting Irish rushing attack.
+- [13:41.030] Where's Cody?
+- [13:52.770] Do you notice the way they're sitting in like a little trench?
+- [13:56.300] I didn't want them at the same level actually.
+- [13:59.990] But I feel very good about that, J.D, right?
+- [14:02.600] The Vice President: Yes sir.
+- [14:03.830] The President: Keep them down a little bit.
+- [14:05.840] But offensive MVP, Will Howard led that charge.
+- [14:09.910] And really these people are going places
+- [14:12.860] that are going to be very exciting in the future.
+- [14:15.250] We're going to be watching them all on Sundays
+- [14:17.620] and for a long time to come.
+- [14:19.220] I believe many of them, many of the people behind us.
+- [14:22.310] But Cody Simon, that was a very important deal.
+- [14:25.270] And Buckeye star, Jeremiah Smith
+- [14:27.200] pulled down the unforgettable deep ball on third
+- [14:30.400] and 11 to clinch the championship.
+- [14:32.900] Where's Jeremiah?
+- [14:35.330] [inaudible]
+- [14:47.300] Oh, I shouldn't say this,
+- [14:49.350] but the coach was giving Jeremiah
+- [14:51.670] some major praise backstage. I said, "So what's the future?"
+- [14:55.330] He said, "Well, we have a guy. He may be the best ever."
+- [14:59.090] That's a lot to think about Jeremiah.
+- [15:00.820] Just be real good. You could be Jerry Rice, right?
+- [15:04.900] Who's your favorite?
+- [15:06.140] Male Speaker: Jerry Rice.
+- [15:07.370] The President: Jerry Rice. Jerry Rice was a great guy too.
+- [15:10.230] But Jeremiah was the only freshman
+- [15:14.440] that was just at a level that few people have ever seen
+- [15:18.450] before, according to what I hear.
+- [15:20.560] And nobody could stop them all year long,
+- [15:22.910] even as a freshman.
+- [15:24.490] And let's not forget the resilient offensive line
+- [15:26.940] that helped Will achieve this record-breaking season.
+- [15:30.330] Get ready fellas. Come on up here.
+- [15:32.560] Josh Fryer, Luke Montgomery,
+- [15:35.770] Carlson Heinsman, Tegra Tshabola,
+- [15:43.720] Austin Siereveld and Donovan Jackson
+- [15:48.150] stepped up when you needed him most
+- [15:50.170] and they protected this valuable quarterback.
+- [16:01.660] Male Speaker: Thank you Mr. President.
+- [16:03.060] [inaudible].
+- [16:07.160] The President: Oh wow. It's nice one.
+- [16:12.950] They can say we're going to the NFL with…
+- [16:15.650] Other people said, they got to come back.
+- [16:18.060] You going early from what I hear.
+- [16:19.510] Good luck, fellas.
+- [16:20.740] Male Speaker: Thank you, sir.
+- [16:21.950] The President: Good luck in the NFL.
+- [16:24.870] Male Speaker: Thank you, sir.
+- [16:26.070] The President: Fantastic. Male Speaker: Thanks sir.
+- [16:27.290] The President: I'm looking at him. What's he doing?
+- [16:28.500] The Vice President: I'm short compared to these guys, sir.
+- [16:29.870] The President: Thank you. Great job.
+- [16:31.640] The Vice President: Thank you all.
+- [16:33.350] The President: That's so important.
+- [16:39.610] That offensive line is so important.
+- [16:43.010] You have no idea. I've seen teams that were great,
+- [16:45.820] but they didn't have the offensive line
+- [16:47.490] and it just doesn't work out, right Will?
+- [16:49.530] Male Speaker: Right.
+- [16:50.830] The President: You beat the fighting Irish that day, 34-23.
+- [16:53.910] And for the first time in 10 years,
+- [16:55.550] proudly claimed the title of the great state of Ohio,
+- [16:59.530] the great state. I love that state.
+- [17:01.450] We won that state in a landslide Governor.
+- [17:04.900] We want it in a landslide. I love Ohio.
+- [17:07.860] We'll never let you down, I swear. I promise.
+- [17:11.070] And if I let you down, he won't.
+- [17:12.730] Okay, so you have a backup. But I do love the place.
+- [17:16.960] And so today I'm honored to call
+- [17:18.640] the Ohio State University Buckeyes National Champions.
+- [17:22.550] You're the national champions
+- [17:23.980] and you're standing right here at the White House.
+- [17:26.610] And it's a proud day for all of us,
+- [17:28.530] but it's a proud day for the Scarlet and Gray.
+- [17:31.900] Congratulations once again,
+- [17:33.720] and coach, you are a fantastic person.
+- [17:36.310] I got to know him just a little bit back there
+- [17:38.110] and I realized almost immediately
+- [17:40.690] that he's really a special guy. And to your wife and your three
+- [17:44.830] beautiful children, congratulations.
+- [17:46.760] And I'm going to ask J.D to say a couple of words.
+- [17:49.610] It's an honor to have everybody at the White House.
+- [17:52.090] You are a very special group from a special state,
+- [17:55.940] the state of Ohio. Thank you very much everybody.
+- [18:00.310] Thank you.
+- [18:06.190] The Vice President: Well, thank you Mr. President.
+- [18:07.410] Thanks to Coach Day and the entire team
+- [18:09.080] for being here at the White House.
+- [18:10.470] I'm so proud to be part of Team Scarlet and Gray today.
+- [18:14.710] Congratulations to the Ohio State Buckeyes
+- [18:16.870] on a hell of a 2024 season.
+- [18:22.860] Now, I want to say just a couple of words about this team
+- [18:25.740] because they really helped make, sir, an incredible year
+- [18:28.500] even better for this very proud Ohio State alum.
+- [18:31.090] So two things.
+- [18:32.330] First of all, I made a bet with Ted Cruz over the Texas game,
+- [18:36.190] a bet that he is still not paid up on.
+- [18:37.990] Ted Cruz, if you're watching on TV,
+- [18:40.730] and I don't like losing any bet,
+- [18:42.060] but I really don't want to lose a bet to Ted Cruz.
+- [18:44.460] So thank you all for helping me win that bet against Ted Cruz.
+- [18:47.160] And the second thing,
+- [18:48.550] I asked the President on January the 20th,
+- [18:50.620] I said, "Sir, would you mind if I skipped
+- [18:52.760] that Final Inaugural Ball
+- [18:54.100] to go to the Ohio State National Championship game?"
+- [18:56.320] And the President said,
+- [18:57.570] "No, but we'll have them at the White House."
+- [18:59.010] So here we are, celebrating that national title.
+- [19:02.280] And I just want to say I'm proud of you guys.
+- [19:03.910] You guys were resilient, you were tough.
+- [19:06.310] You represented the state of Ohio well,
+- [19:08.060] and you represented the whole country well.
+- [19:09.640] And the last thing that I'll say
+- [19:11.130] is I don't know who let the guy over in the corner here
+- [19:14.260] in a Michigan hat enter this celebration,
+- [19:17.160] but I'm about to tell the Secret Service
+- [19:21.080] you've got a dangerous weapon, sir.
+- [19:22.480] But I just want to say, "Proud of this team,
+- [19:25.570] Mr. President, thank you for hosting,
+- [19:27.330] and thanks to the whole state of Ohio
+- [19:29.270] for showing up and cheering for our Buckeyes."
+- [19:31.180] God bless you guys.
+- [19:37.230] Mr. Day: Thank you.
+- [19:44.160] Mr. President, Mr. Vice President,
+- [19:46.120] and other distinguished guests,
+- [19:48.200] on behalf of the Ohio State University,
+- [19:50.820] the Department of Athletics, thank you for inviting
+- [19:53.500] the National Championship Ohio State Buckeyes
+- [19:56.100] to the White House this afternoon.
+- [19:58.420] I'd like to thank Ohio State President, Ted Carter,
+- [20:01.170] members of the Ohio delegation here with us today,
+- [20:04.090] Governor DeWine, Lieutenant Governor Tressel,
+- [20:07.490] Athletics Director Ross Bjork,
+- [20:08.970] and all the staff members for their work
+- [20:10.920] and efforts to make this trip to the White House a reality.
+- [20:14.140] We're honored and humbled to be here,
+- [20:16.010] celebrating with you our ninth National Championship
+- [20:18.800] in our great university's history.
+- [20:22.400] To be here surrounded by our players,
+- [20:24.760] staff, university leadership is a moment we'll never forget.
+- [20:29.700] Traveling to DC though was the easy part,
+- [20:32.340] earning the right to be here was the hard one.
+- [20:35.890] This team made history
+- [20:37.330] by winning the most difficult series of games
+- [20:39.670] in the history of college football,
+- [20:41.880] defeating number seven, Tennessee, number one,
+- [20:45.070] Oregon in the Rose Bowl,
+- [20:46.500] number three, Texas in the Cotton Bowl,
+- [20:48.550] and number five, Notre Dame in National Championship,
+- [20:50.720] back to back to back to back. No team has ever done that.
+- [21:01.220] No team has ever done that.
+- [21:02.990] And through discipline and execution,
+- [21:05.640] this team dominated, finished the mission and left no doubt.
+- [21:11.010] It all started with a group of fourth
+- [21:12.320] and fifth-year seniors. They chose each other.
+- [21:15.940] They chose Ohio State, and they built and lived
+- [21:18.420] a culture of brotherhood, toughness and love.
+- [21:22.690] When adversity hit, they stood tall, stuck together,
+- [21:26.400] showed their true character,
+- [21:28.090] rose to the occasion and became champions.
+- [21:31.500] There's a quote I love from President Roosevelt,
+- [21:34.250] displayed proudly in our team room,
+- [21:36.380] The Man in the Arena, "It's not the critic who counts,
+- [21:39.300] not the man who points out how the strongman stumbles.
+- [21:41.980] The credit belongs to the man who's actually in the arena,
+- [21:44.860] who strives valiantly, comes up short again and again,
+- [21:49.050] but who does actually strive to do the deeds."
+- [21:51.920] This quote reminds us of the true honor
+- [21:53.460] that belongs to those who rise to the challenge
+- [21:55.750] and stand in the arena un-wavered.
+- [21:59.020] It took every challenge and we responded with heart,
+- [22:03.570] with grit and with determination.
+- [22:05.980] That's why this moment means so much to us.
+- [22:09.340] Our families, thank you so much for your love
+- [22:11.450] and your support along the way.
+- [22:13.000] To our coaches, thank you for your hard work
+- [22:15.060] and for your leadership.
+- [22:16.650] And to our players, thank you for everything,
+- [22:19.180] your story will forever be told.
+- [22:21.680] And Mr. President, thank you again for this incredible honor.
+- [22:24.990] God bless America and Go Bucks.
+- [22:27.080] The President: Thank you very much. Great job.
+- [22:32.880] Mr. Day: All right. We have some really nice gifts
+- [22:35.780] that we're going to have our captains
+- [22:37.280] give Mr. President and Mr. Vice President.
+- [22:39.850] All right.
+- [22:46.760] Announcer: Ladies and gentlemen,
+- [22:56.120] please remain in your seats
+- [23:04.980] until all stage participants
+- [23:29.090] have departed.

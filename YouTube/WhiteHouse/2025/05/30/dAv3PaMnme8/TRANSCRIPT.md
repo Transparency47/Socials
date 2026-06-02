@@ -1,0 +1,1190 @@
+<!-- source: https://www.youtube.com/watch?v=dAv3PaMnme8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dAv3PaMnme8 -->
+<!-- date_published: 2025-05-30T18:54:20+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:06.114511+00:00 -->
+
+# Transcript: President Trump Participates in a Press Conference with Elon Musk
+
+- [00:04.560] The President: Fantastic job.
+- [00:06.160] He didn't need this, he didn't need it.
+- [00:08.400] And we find out government's a little nasty on occasion.
+- [00:11.840] Hello, Peter.
+- [00:13.080] Male Speaker: Hello, President Trump.
+- [00:14.310] The President: Government's a little bit nasty, Peter,
+- [00:15.700] you haven't noticed that.
+- [00:16.940] You had a -- you've had a charmed life, right?
+- [00:18.630] Male Speaker: You tell me.
+- [00:19.870] The President: Very charmed.
+- [00:21.150] I think you've have a charmed life.
+- [00:22.460] I think what I'll do -- if you don't mind --
+- [00:25.040] numbers have just come out, which are rather extraordinary.
+- [00:27.640] And I thought I'd play a tape of one of the people
+- [00:30.610] who I've respected over the years,
+- [00:32.980] from, you know, Joe Kiernan and Rick Santelli.
+- [00:36.920] This just came out, and we'll just play that for a second.
+- [00:39.940] Rick Santelli: Personal income is up eight tenths,
+- [00:42.840] up eight-tenths of a percent.
+- [00:44.700] That is almost triple the expectations, the income.
+- [00:49.590] The income numbers, really,
+- [00:51.360] for the first four months of the year, they're stellar.
+- [00:53.710] They're really stellar. I mean, I could go back
+- [00:55.670] and look at the first 4 months of many different years.
+- [00:58.600] Really very strong numbers, and you're right.
+- [01:01.310] This administration is criticized
+- [01:03.430] for just about everything under the sun.
+- [01:05.320] I've never ever in my lifetime had glimpses into the politics
+- [01:10.040] of an administration in the form of transparency like this one.
+- [01:14.500] Why don't we, you know give credit where credit is due,
+- [01:18.410] income really shooting up.
+- [01:19.720] Joe Kiernan: Rick, I also thought everybody was going to
+- [01:22.580] get one last order of imports that were going to be tariffed
+- [01:28.010] and they were loading up on things.
+- [01:29.530] How the hell did they already fix the trade, or not fix it,
+- [01:33.440] but to cut it in half, that's crazy.
+- [01:37.640] So there wasn't a lot of front loading of things
+- [01:39.710] that they needed before the tariffs hit?
+- [01:42.900] Rick Santelli: Yeah I'll tell you what it really does
+- [01:44.550] call the question some of the conventional wisdom
+- [01:47.650] you know it's going to be interesting
+- [01:49.120] to see what happens next month when we get this number
+- [01:52.400] or we see some of these other numbers uh --
+- [01:55.400] Like current accounts see how they fare
+- [01:57.320] because I don't know
+- [01:58.550] I've been watching these numbers a long time
+- [02:00.520] I don't think I've ever seen the trade deficit
+- [02:02.960] cut after one month.
+- [02:06.490] The President: Not bad. Elon Musk: Come on, guys.
+- [02:07.750] (applause)
+- [02:08.950] The President: I see Howard and Scott are here,
+- [02:16.030] so it's great.
+- [02:17.270] If you guys want to stand over here, you might as well.
+- [02:19.440] You're the ones that help produce those numbers.
+- [02:21.970] And it'll only get better. The tariffs are so important.
+- [02:25.070] And that's why we were so happy with the decision yesterday
+- [02:28.890] where the tariffs continue, because without the tariffs,
+- [02:32.690] our nation would be imperiled. We would really be imperiled.
+- [02:35.770] I think I can say that with great surety, Scott and Howard.
+- [02:39.150] And so, we were very happy to get that decision,
+- [02:41.520] that big decision yesterday.
+- [02:43.590] And today, it's about a man named Elon,
+- [02:48.720] and he's one of the greatest business leaders
+- [02:51.350] and innovators the world has ever produced.
+- [02:53.840] He stepped forward to put his very great talents
+- [02:57.630] into the service of our nation, and we appreciate it.
+- [03:01.120] And I just want to say that Elon has worked tirelessly
+- [03:04.190] helping lead the most sweeping and consequential government
+- [03:07.550] reform program.
+- [03:09.250] In generations, and you know the kinds of things
+- [03:11.610] that he's found and his people have --
+- [03:14.840] he's brought a group of very smart people in,
+- [03:17.550] and they found things that are pretty unbelievable.
+- [03:21.820] I have to say that the numbers
+- [03:23.840] that we're talking about are substantial,
+- [03:25.700] but they're going to be very much more substantial with time
+- [03:28.630] because many of the things that we are working on right now,
+- [03:31.480] we're going to have to remember Elon as we find him,
+- [03:34.400] but the numbers could double and triple.
+- [03:37.740] Because many, many things,
+- [03:39.070] we don't want to go out with them until we're sure.
+- [03:41.260] But we've found things that are unbelievably stupid
+- [03:45.640] and unbelievably bad.
+- [03:46.860] With the Department of Government Efficiency,
+- [03:49.050] Elon's delivered a colossal change
+- [03:51.680] in the old ways of doing business in Washington.
+- [03:54.480] DOGE has installed geniuses with an engineering mindset
+- [03:58.710] and unbelievably talented people in computers.
+- [04:01.710] I actually asked Elon one time, what's their primary thing?
+- [04:05.320] They have a lot of primary things,
+- [04:07.280] all having to do with being smart.
+- [04:08.770] But he said the thing that they're really the best at
+- [04:10.810] is working with computers so that they can't be outsmarted
+- [04:14.590] by somebody that's not so honest,
+- [04:17.050] that happens to also be good with computers,
+- [04:19.740] but not as good as these people.
+- [04:21.240] But the mindset and the senior ranks
+- [04:22.950] of every federal department, it's really changed.
+- [04:27.370] And with Elon's guidance, they're helping to detect fraud,
+- [04:30.770] slash waste, and modernize broken and outdated systems.
+- [04:34.460] So, as you know, we're talking about various systems
+- [04:36.660] and changing systems.
+- [04:37.900] And, you know sadly, it takes a long time to do that.
+- [04:41.400] You'll change, let's say, a system at IRS
+- [04:45.830] and computerize it properly,
+- [04:47.310] where the job can be done in one-tenth the time.
+- [04:49.400] But it takes sometimes years to rebuild those systems.
+- [04:54.090] But we've started. In many cases, we've started --
+- [04:56.820] I will say that this has less to do with Elon,
+- [04:59.650] but the air traffic control systems
+- [05:02.300] we're bidding out to the best companies
+- [05:04.310] in the world those systems right now.
+- [05:06.030] They were horrible.
+- [05:08.140] The previous administration was horrible, what they did.
+- [05:11.420] They spent billions and billions of dollars.
+- [05:14.310] And in the end, it didn't even come close to working.
+- [05:17.900] They tried to hook up wire to copper, and it can't be done.
+- [05:21.720] And they just spent billions of dollars and just wasted money.
+- [05:24.930] Actually made the system much worse.
+- [05:27.390] So we're going to get a brand new, modern system.
+- [05:29.330] Congress is working with us on that.
+- [05:31.540] And we're going to get it done as quickly as we can.
+- [05:33.720] But it's in the works.
+- [05:35.100] And once it's done, it'll be good for 30 years.
+- [05:38.300] But we have a system that's 48 years old
+- [05:41.060] and would have a modern computer
+- [05:42.710] hooked into a very outdated computer.
+- [05:45.860] And they don't hook up. I mean, they didn't hook up.
+- [05:48.560] So after spending billions of dollars,
+- [05:50.700] they turned on the system.
+- [05:52.370] And in never any cases, from local to countrywide,
+- [05:57.550] they never work. More than 75,000 bureaucrats
+- [06:00.970] have voluntarily left their taxpayer-funded jobs
+- [06:04.160] to come out and really do the job.
+- [06:08.380] Countless wasteful and unnecessary contracts
+- [06:10.940] have been terminated.
+- [06:12.390] And you know that we have terminated many, many contracts.
+- [06:16.220] And many contracts, Elon, are right now being looked at.
+- [06:20.250] And it may be six months.
+- [06:23.000] It may be almost a year, in some cases.
+- [06:24.990] We're going through procedures. We're going through courts.
+- [06:27.890] And we'll remember you as we announce billions of dollars
+- [06:32.220] of extra waste, fraud, and abuse.
+- [06:34.710] Just as an example, DOGE canceled $101 million for DEI
+- [06:40.640] contracts at the Department of Education.
+- [06:42.730] $101 million.
+- [06:44.780] And that was just a small section
+- [06:46.790] of the Department Of Education.
+- [06:48.320] $59 million for illegal alien hotel rooms in New York City.
+- [06:53.860] And the landlord never made the kind of money
+- [06:56.450] that he made in the last. Short period of time.
+- [06:58.840] Fifty-nine million dollars to a hotel in New York City.
+- [07:02.230] Forty-five million dollars for diversity,
+- [07:04.190] equity, and inclusion scholarships in Burma.
+- [07:07.210] In Burma -- does anyone know about Burma?
+- [07:10.330] Forty two million dollars for social and behavioral
+- [07:13.230] change in Uganda. Forty million dollars to improve
+- [07:17.670] the social and economic inclusion of sedentary migrants.
+- [07:21.890] I can say it's two billion dollars to Stacey Abrams
+- [07:26.770] and her environmental movement.
+- [07:29.140] There was $100 in the account, and all of a sudden,
+- [07:32.210] they found $2 billion in the account.
+- [07:34.870] And I assume that's being looked at.
+- [07:36.270] I don't know. I'm not sure. But I assume it's being look at.
+- [07:39.740] Think of that. $2 Billion.
+- [07:41.700] And then Lee will tell you there's another one over there
+- [07:44.990] for $20 billion being spent on another environmental.
+- [07:50.410] $20 billion, not $20 million a lot,
+- [07:52.930] not $200,000, which is a lot.
+- [07:55.660] So think of it, in her case, you have $100,
+- [07:59.540] and now, all of a sudden,
+- [08:01.030] she gets hit with an infusion of $2 billion
+- [08:04.060] just before I take office.
+- [08:06.530] $20 million for Arab Sesame Street in the Middle East.
+- [08:11.850] Nobody knows what that's all about.
+- [08:13.350] Nobody has been able to find it.
+- [08:14.630] $8 million for making mice transgender.
+- [08:18.310] So they spent $8 billion on making mice, transgender.
+- [08:23.140] And those are better than many of the others --
+- [08:26.230] I could sit here all day and read things just like that,
+- [08:29.220] but we have other things to do.
+- [08:30.960] So it's much, much more than just that.
+- [08:32.780] We're totally committed to making the DOGE cuts permanent
+- [08:36.180] and stopping much more of the waste in the months to come.
+- [08:39.060] We want to get our great, big, beautiful bill
+- [08:41.860] finished and done. After that, we're going to be --
+- [08:44.140] we put some of this into the bill,
+- [08:47.500] but most of it's going to come later.
+- [08:48.940] We're going have it cauterized by Congress,
+- [08:53.860] affirmed by Congress. In some cases, we'll make cuts.
+- [08:57.070] In some case, we will just use it
+- [08:58.600] in a different layer to save the money.
+- [09:00.840] But it's hundreds of billions of dollars.
+- [09:03.960] DOGE has also fully modernized the federal retirement process
+- [09:07.820] and continues to work very hard on the IRS modernization.
+- [09:11.350] But we're taking that over with DOGE.
+- [09:14.300] Many of the DOGE people, Elon, are staying behind him,
+- [09:17.040] so they're not leaving. And Elon is really not leaving,
+- [09:21.010] he's going to be back and forth, I think.
+- [09:22.670] I have a feeling. It's his baby
+- [09:25.120] and I think he's going to be doing a lot of things.
+- [09:27.260] But Elon's service to America has been,
+- [09:29.120] without comparison in modern history,
+- [09:31.700] he's already running one of the most innovative
+- [09:34.380] car companies in the world.
+- [09:35.940] You look at his factories and compare them
+- [09:37.780] with some of the old factories we have,
+- [09:40.000] and it's a big difference.
+- [09:41.230] And the most successful space company, and I guess in history,
+- [09:44.630] you would have to say,
+- [09:45.840] the largest free speech platform on the internet, et cetera.
+- [09:50.860] Elon, willingly, with all of the success,
+- [09:53.450] he willingly accepted the outrageous abuse and slander
+- [09:57.470] and lies and attacks because he does love our country.
+- [10:00.630] I know that very much.
+- [10:01.860] He loves our country and comes from another country --
+- [10:05.090] a country that's going through trials and tribulations,
+- [10:09.160] I would say. But he's all about the USA,
+- [10:13.650] and Americans owe him a great debt of gratitude.
+- [10:16.870] So I just want to thank Elon for his time.
+- [10:20.090] Special government employee. Can you imagine?
+- [10:22.410] They called him an employee,
+- [10:24.440] but it's a special government employee,
+- [10:27.000] and for coming and helping us,
+- [10:29.330] and he really has changed the mindset of a lot of people.
+- [10:31.830] A lot of thought, you know,
+- [10:33.250] maybe we'll cut 1 percent or 2 percent or 3 percent.
+- [10:36.990] Then they said, wow, we can cut a lot more than that.
+- [10:39.680] And we're going to do it very surgically.
+- [10:41.560] We're going continue on the march.
+- [10:44.780] We're making America great again.
+- [10:46.860] When I was in Saudi Arabia and we were in as you know,
+- [10:51.750] three really great countries, predominantly the three.
+- [10:56.610] Qatar was great, UAE was great. Saudi Arabia, incredible.
+- [11:01.020] What an -- like such an incredible experience
+- [11:03.900] to be in those three countries.
+- [11:05.790] But the crown prince of Saudi Arabia --
+- [11:08.640] and I must tell you, the leaders --
+- [11:10.930] the great leaders of the other two that we just mentioned,
+- [11:14.520] they all said the same thing,
+- [11:15.750] that the United States is the hottest country right now,
+- [11:18.470] anywhere in the world.
+- [11:19.850] And six months ago, we thought it was dead.
+- [11:21.790] It was like a dead country.
+- [11:23.390] And it would have been a dead country
+- [11:24.910] if we didn't have the right result on November 5th.
+- [11:27.060] There would have been a horrible,
+- [11:28.620] horrible situation was going on with the borders,
+- [11:32.170] with transgender for everyone, men playing in women's sports,
+- [11:37.600] and so much more. But they were saying,
+- [11:40.770] the hottest country anywhere in the world.
+- [11:42.520] And then I played that little clip
+- [11:43.930] because I was one person who was respected.
+- [11:46.360] But there were two people,
+- [11:47.630] because Joe was in that one, too.
+- [11:49.210] Joe is a good man. But that was one group of people
+- [11:53.830] saying something about the success
+- [11:56.570] of what we've done over the last four months.
+- [11:58.270] They cannot believe it. In the one case,
+- [12:00.210] they said they've never seen anything like it
+- [12:01.930] as long as they've been doing what they've be doing.
+- [12:03.580] They've been it for a long time. So, I just --
+- [12:07.640] I want to thank Elon for helping.
+- [12:10.640] And again, you know, the United States right now
+- [12:13.030] is the hottest country anywhere in the world.
+- [12:14.980] There's no country as hot. And we're doing really well.
+- [12:18.540] We're -- we came -- when I left,
+- [12:21.020] we had no wars, we had problems, we defeated ISIS,
+- [12:23.820] we rebuilt our military, and we had no inflation.
+- [12:28.600] And when I came back, we had a lot of inflation.
+- [12:31.780] We had wars all over the place.
+- [12:33.890] We had the embarrassment in Afghanistan,
+- [12:36.660] where we gave up billions and billions
+- [12:39.190] of dollars of military equipment.
+- [12:40.950] The most embarrassing moment in the history of our country,
+- [12:43.410] I believe. I believe that strongly.
+- [12:45.790] We have Russia with Ukraine.
+- [12:48.020] We had the attack on Israel in October,
+- [12:52.350] the horrible attack, October 7th.
+- [12:55.530] Horrible, horrible attack.
+- [12:56.900] Nobody's ever seen anything like it.
+- [12:59.040] And now we have something
+- [13:01.270] where we're really healing a lot of that.
+- [13:03.850] We stopped India and Pakistan from fighting.
+- [13:09.110] I believe that could have turned out into a nuclear disaster.
+- [13:12.840] And I want to thank the leaders of India,
+- [13:14.600] the leaders in Pakistan, and I want thank my people also.
+- [13:18.550] We talk trade.
+- [13:20.260] And we said, we can't trade with people
+- [13:22.690] that are shooting at each other
+- [13:24.790] and potentially using nuclear weapons.
+- [13:27.980] And they're great leaders in those countries,
+- [13:31.210] and they understood and they agreed.
+- [13:35.780] And that all stopped.
+- [13:37.310] And we're stopping others from fighting also,
+- [13:39.220] because ultimately, we can fight better than anybody.
+- [13:41.490] We have the greatest military in the world.
+- [13:43.460] We have greatest leaders in the word.
+- [13:46.480] We put one of them in charge of the Joint Chiefs of Staff,
+- [13:49.500] as you know, General Razin Cain. And we wiped out ISIS,
+- [13:54.110] completely wiped out Isis in three weeks.
+- [13:56.180] They said it would take five years,
+- [13:58.120] and we did it in three week. And that's the way it is.
+- [14:01.210] But we don't want to have to use our military.
+- [14:02.970] We want to be pieced through strength when we can.
+- [14:06.970] And that's the way we're going to have it.
+- [14:08.410] So I just want to thank Elon and all of his people.
+- [14:11.580] Most of those people are staying.
+- [14:12.830] Almost all of them are staying, and they're going be with us.
+- [14:15.430] And you're going see the results coming long into the future.
+- [14:18.260] Even a year and two years later,
+- [14:19.990] you're going to see a lot of the results.
+- [14:21.660] And those hundreds of billions of dollars
+- [14:23.680] are going to be adding up,
+- [14:24.940] and they are going continue to add.
+- [14:26.260] It will be really interesting to see
+- [14:29.160] what the final number is going to.
+- [14:31.050] But again, Elon gave an incredible service.
+- [14:34.230] Nobody like him.
+- [14:35.460] And he had a go through the slings and the arrows,
+- [14:40.620] which is a shame because he's an incredible patriot.
+- [14:44.190] The good news is that 90 percent of the country knows that,
+- [14:47.170] and they appreciate it,
+- [14:48.400] and they really appreciate what he did.
+- [14:50.630] And I gave him a little special something we have here.
+- [14:53.780] A very special that I give to very special people.
+- [14:58.350] I have given it to some, but it goes to very people.
+- [15:02.000] People and I thought it.
+- [15:03.590] And give it to Elon as a presentation from our country.
+- [15:07.570] Thank you, Elon. Take care of yourself.
+- [15:09.130] (applause)
+- [15:10.330] Elon Musk: Thank you. Did you see the lock?
+- [15:16.880] The lock on this is amazing.
+- [15:21.250] Well, let me say perhaps a few words.
+- [15:23.950] That this is not the end of DOGE,
+- [15:26.170] but really the beginning.
+- [15:27.920] My time as a special government employee
+- [15:29.600] necessarily had to end. It was a limited time thing.
+- [15:31.960] It's 134 days, I believe, which ends in a few days.
+- [15:36.820] So that comes with a time limit.
+- [15:40.840] But the DOGE team will only grow stronger over time.
+- [15:44.110] The DOGE influence will only go stronger.
+- [15:45.740] It's likened to a sort of Buddhism.
+- [15:48.340] It's like a way of life.
+- [15:50.450] So it is permeating throughout the government.
+- [15:52.980] And I'm confident that over time,
+- [15:54.600] we will see a trillion dollars of savings
+- [15:57.260] and a reduction in a trillion of dollars
+- [15:59.970] of waste and forward reduction.
+- [16:02.500] The calculations of the DOGE team thus far
+- [16:05.780] In terms of an FY 25 to FY
+- [16:07.740] 26 Delta are over 160 billion and that's climbing.
+- [16:11.910] We expect that number
+- [16:13.310] will probably go over 200 billion soon.
+- [16:16.920] I think the Doge team is doing an incredible job,
+- [16:19.450] they're going to continue doing an incredible job
+- [16:23.850] and I'll continue to be visiting here
+- [16:26.230] and be a friend and advisor to the President
+- [16:30.470] and I look forward to times being back in this amazing room.
+- [16:33.590] By the way, isn't this incredible?
+- [16:36.300] This incredible, I mean, it's stunning, I think,
+- [16:40.890] the way the Oval Office,
+- [16:42.660] how the President has completely redone the Oval Office.
+- [16:46.210] It's beautiful. I love the gold on the ceiling.
+- [16:48.500] The President: Thank you. It's pretty nice.
+- [16:51.830] It's been a long time.
+- [16:53.120] That was plaster. Nobody ever really saw it.
+- [16:55.580] They didn't know the eagle was up there.
+- [16:57.650] We highlighted it said,
+- [16:59.990] essentially, it's a landmark, a great landmark.
+- [17:02.070] And that's 24 karat gold and everybody loved it.
+- [17:05.760] Now they all see it when they come in.
+- [17:07.260] So it's been it's good.
+- [17:09.240] Elon Musk: The Oval Office finally has the majesty
+- [17:11.930] that it deserves thanks to the President.
+- [17:13.970] So I look forward to continuing to be a friend and advisor
+- [17:17.880] to the President, continuing to support the DOGE team.
+- [17:21.590] And we are relentlessly pursuing a trillion dollars
+- [17:26.150] in waste and fraud reductions,
+- [17:28.950] which will benefit the American taxpayer.
+- [17:36.320] That's it, really. Thank you, Mr. President.
+- [17:38.510] The President: Thank you. Great job.
+- [17:40.740] (applause)
+- [17:44.900] The Press: The President mentioned that you had to deal
+- [17:46.560] with all the slings and arrows during your time at DOGE.
+- [17:48.790] There's this New York Times --.
+- [17:50.030] Elon Musk: Some of the people, you know,
+- [17:51.270] some of the media organizations in this room were the slingers.
+- [17:56.060] The Press: There is a New York Times report today
+- [17:57.890] that accuses you of blurring the line --
+- [18:01.020] Elon Musk: New York Times, is that the same publication
+- [18:04.080] that got a Pulitzer Prize
+- [18:06.660] for false reporting on the Russiagate?
+- [18:10.420] Is it the same organization? I think it is.
+- [18:16.280] I think the judge just ruled against the New York Times
+- [18:19.340] for their lies about the Russiagate hoax
+- [18:22.300] and that they might have to give back that Pulitzer prize.
+- [18:25.110] That New York times, let's move on? Next question.
+- [18:31.080] The Press: So, President Trump,
+- [18:32.890] Biden aides who used to work here
+- [18:35.660] are in talks with Republicans in Congress
+- [18:38.770] to go and testify about what they did
+- [18:41.530] or didn't do to possibly conceal President Biden's decline.
+- [18:46.470] Do you think that Dr. Jill Biden
+- [18:48.480] should also have to come in and testify
+- [18:50.860] about what she did or did not do?
+- [18:54.950] The President: Well, I hate the concept of it.
+- [18:56.760] It's the wife of a man who was going through a lot of problems.
+- [19:02.380] And everybody that dealt with him understood that.
+- [19:04.690] And I guess it came out during the debate loud and clear.
+- [19:07.300] That was a big -- that was the biggest signal of all.
+- [19:11.210] They have to do what's right. The country was --
+- [19:14.110] there was a lot of dishonesty in the election,
+- [19:17.300] as you know, 2020. That's been now caught.
+- [19:19.800] People understand. It was a rigged election.
+- [19:22.410] And when you go further out, when you see the auto pen --
+- [19:25.660] I mean, I think the auto-pen is going to become
+- [19:27.400] one of the great scandals of all time.
+- [19:29.840] Because you have somebody operating it
+- [19:31.800] or a number of people operating. Because I knew Joe Biden.
+- [19:34.640] Joe Biden wasn't in favor of opening up borders,
+- [19:37.640] letting 21 million people into this,
+- [19:39.570] from prisons and mental institutions and gang members.
+- [19:43.040] He wasn't into that at all.
+- [19:45.030] And, you know, who signed these orders, proclamations,
+- [19:49.190] and all of the different things that he signed
+- [19:50.930] that set our country so far back that was so bad for our country.
+- [19:55.550] The Press: With the auto pen, how would it work?
+- [19:57.150] Like we're in the Oval Office right now.
+- [19:58.750] If there was a group of rogue staffers that worked for you
+- [20:02.680] who wanted to advance a bill or an executive order
+- [20:06.340] without your knowledge, how could they do it?
+- [20:09.150] How do they --
+- [20:10.370] The President: Well, it's very hard
+- [20:11.610] because I'd read your newspapers or your media the next day
+- [20:14.800] and I'd say well I didn't approve that and I would find it
+- [20:17.750] I mean they wouldn't get away with it for long
+- [20:19.710] because it's I never signed that who the hell signed
+- [20:21.830] that Autopens to me are used to sign letters to people
+- [20:27.750] because we get I think they said 20,000 letters a week and
+- [20:31.830] You like to be able
+- [20:33.120] when somebody takes the time to write a letter.
+- [20:34.810] It's nice to sort of write back and auto pens
+- [20:37.600] are meant for that.
+- [20:38.870] Auto pens are not meant to sign major proclamations
+- [20:41.800] or tax cuts or borders,
+- [20:44.040] anything having to do with the border, which is so important.
+- [20:47.140] And if it happened on my watch,
+- [20:49.070] I would be able to see it because the next day or sooner,
+- [20:52.090] I'd be reading about something that I knew nothing about
+- [20:55.150] and who the hell signed this.
+- [20:56.870] So I almost never used the auto pen.
+- [20:59.090] In fact, yesterday, I was signing about 81,
+- [21:02.800] I think it was 81 proclamations and statements to people
+- [21:07.860] that I think should be signed by us.
+- [21:10.120] I think when you write letters to foreign dignitaries
+- [21:13.710] or presidents or prime ministers,
+- [21:15.560] you should be signing those letters.
+- [21:17.350] Not done with auto pens.
+- [21:19.320] I understand he signed almost everything with an auto pen.
+- [21:22.420] It's a very dangerous thing.
+- [21:23.830] It really means you're not President.
+- [21:25.540] Whoever operated the auto pen,
+- [21:27.380] and we think we know who that is,
+- [21:30.100] and it was actually more than one person.
+- [21:32.720] But that's not what the presidency is all about.
+- [21:36.270] I hardly used to hear --
+- [21:38.150] The Press: (inaudible)
+- [21:39.770] reinstate the tariffs on China you said
+- [21:42.110] that they violated the agreement with the U.S.
+- [21:43.880] The President: Well, they did.
+- [21:45.100] They were, they violated a big part of the agreement we made.
+- [21:48.990] You know, if you read that whole statement,
+- [21:50.580] I was very nice to them.
+- [21:51.850] I helped them because they were in trouble
+- [21:53.400] with the stoppage of a massive amount of business.
+- [21:57.580] But I'm sure that I'll speak to President Xi
+- [21:59.710] and hopefully we'll work that out.
+- [22:01.880] But yeah, that's a violation of the agreement. Yeah.
+- [22:04.530] The Press: Mr. President, can you give us an update
+- [22:06.550] to the latest ceasefire agreement
+- [22:08.000] that Israel has agreed to, but Hamas is still considering?
+- [22:11.970] The President: Well, they're very close
+- [22:13.260] to an agreement on Gaza,
+- [22:15.280] and we'll let you know about it during the day,
+- [22:17.200] or maybe tomorrow, and we have a chance of that.
+- [22:19.480] I think we have the chance of making a deal with Iran also.
+- [22:22.110] They don't want to be blown up. They would rather make a deal.
+- [22:25.420] And I think that could happen in the not-too-distant future.
+- [22:28.200] That would be a great thing if we could have a deal
+- [22:30.660] without bombs being dropped all over the Middle East,
+- [22:34.510] that would be a very good thing.
+- [22:36.180] They can't have a nuclear weapon.
+- [22:39.040] We want them to be safe.
+- [22:40.330] We want to have a very, very successful nation.
+- [22:43.630] Let it be a great nation, but we can't --
+- [22:45.730] they cannot have a nuclear weapon, it's very simple.
+- [22:47.850] And I think we're fairly close to a deal with Iran.
+- [22:54.130] The Press: You said just now that you look forward
+- [22:56.160] to being a friend and advisor to the President.
+- [22:58.200] So do you expect to continue
+- [23:00.690] advising the President and DOGE informally,
+- [23:03.400] or are you going to sort of shift
+- [23:05.160] your focus entirely to your companies?
+- [23:09.320] Elon Musk: Well, I expect to continue to provide advice
+- [23:12.210] whenever the President would like advice.
+- [23:14.100] The President: I hope so.
+- [23:15.640] Elon Musk: I mean, yeah,
+- [23:17.980] I'd expect to remain a friend and an advisor.
+- [23:22.290] And certainly, if there's anything the President
+- [23:24.810] wants me to do, I'm at the President's service.
+- [23:28.130] The Press: On DOGE, you said that there was a trillion-dollar
+- [23:30.990] promise for cuts from --
+- [23:32.240] Elon Musk: Yes, I think we do expect over time
+- [23:34.160] to achieve a trillion dollars.
+- [23:35.490] The Press: But what have you found, in your time here,
+- [23:38.060] was the biggest roadblock to getting those cuts?
+- [23:40.650] Was it the cabinet, or was it Congress, or something else?
+- [23:43.980] What was the big roadblock from your work?
+- [23:46.730] Elon Musk: It's mostly just a lot of hard work.
+- [23:48.830] It's really not any one person or Congress.
+- [23:52.510] It's going through. Millions of line items
+- [23:57.670] and saying does each one of them make sense
+- [23:59.780] or does it not make sense?
+- [24:01.180] Obviously at times when you cut expenses,
+- [24:03.630] those who are receiving the money,
+- [24:05.470] whether they're receiving that money legitimately or not,
+- [24:07.910] they do complain.
+- [24:09.380] And you're not going to hear someone confessing
+- [24:12.260] that they received money inappropriately. Never.
+- [24:15.290] They're going to always say that they receive money
+- [24:16.900] appropriately for an important cause, naturally.
+- [24:19.150] That's what you'd expect.
+- [24:21.580] But, so we just have to -- it's just a lot of work
+- [24:25.740] going through the vast expenses of the federal government,
+- [24:29.330] and just really asking questions.
+- [24:31.950] What's this money for?
+- [24:33.170] Are you sure it's actually being used well?
+- [24:37.140] Many times we can't even find anyone who defends it.
+- [24:41.050] So for a lot of the expenses,
+- [24:42.680] there is actually no defender at all.
+- [24:45.160] And then we have to just work through the process
+- [24:46.960] of stopping the spending,
+- [24:48.870] where there's often literally no defender.
+- [24:50.500] Nobody even knows why the money's being spent.
+- [24:52.240] It's truly absurd. I mean, we find situations
+- [24:54.640] where there are there are millions of software licenses
+- [24:58.850] with zero people using them.
+- [25:01.790] Zero. Exactly. This is the quizzical expression.
+- [25:05.370] You're like, surely, if there's millions of software licenses,
+- [25:08.330] someone should be using them. No, and then we just,
+- [25:10.740] we've got to go through the process of saying,
+- [25:12.500] okay, look, if someone's using the software,
+- [25:14.260] we need to terminate this software license agreement.
+- [25:18.270] That's everywhere in the government, by the way.
+- [25:20.030] The Press: Mr. Musk, what do you think would be easier,
+- [25:22.730] colonizing Mars or making the government official?
+- [25:27.620] The Press: It's a tough call, but I think colonizing Mars
+- [25:30.990] and making life multi-planetary is harder.
+- [25:34.310] And as I said, we do expect to achieve,
+- [25:37.660] over time, the $20,000 of savings.
+- [25:39.830] We can't do it in like a few months.
+- [25:41.570] But if you say by the, I think, the official end of DOGE,
+- [25:44.940] which the President may choose to extend,
+- [25:47.370] is the middle of next year. Say by the middle next year,
+- [25:50.460] with the support of the president and Congress,
+- [25:52.190] could we achieve a trillion dollars of savings?
+- [25:54.440] I think so. We're on track to do so.
+- [26:00.710] The Press: Mr. President,
+- [26:01.950] you had mentioned earlier in the week
+- [26:04.160] that DOGE had become a whipping boy,
+- [26:06.320] and as the President mentioned,
+- [26:07.720] you went through a lot to go through this process.
+- [26:10.260] Was it worth it for you, and what would you change?
+- [26:14.930] Elon Musk: Yes, so what we thought was happening
+- [26:16.930] was that if there were any cuts anywhere people
+- [26:21.980] would assume that was done by DOGE.
+- [26:24.800] And so we became essentially the DOGE bogeyman,
+- [26:29.900] where if any cut anywhere would be ascribed to DOGE,
+- [26:35.070] a friend of mine's daughter,
+- [26:36.730] who's at law school at Georgetown,
+- [26:38.620] thought that DOGE had cut the Senate,
+- [26:43.680] the legal internships for the Senate.
+- [26:45.230] And we have nothing to do with that.
+- [26:46.930] So if they have been cut, it's not to do it with us,
+- [26:48.970] just as an example.
+- [26:51.820] You know, it just became a bit ridiculous where anything,
+- [26:56.130] at any cut anywhere was somehow DOGE,
+- [26:59.080] and including things that made no sense,
+- [27:00.560] and we would agree made no sense.
+- [27:02.500] So there are many things that occur in the government
+- [27:06.550] because it's the banal evil of bureaucracy.
+- [27:10.600] It's sort of the, frankly,
+- [27:13.820] largely uncaring nature of bureaucracy,
+- [27:19.190] as the great Moulton Friedman money is spent most poorly,
+- [27:22.510] when it is someone else's money being spent
+- [27:26.120] on people you don't know.
+- [27:28.320] And that's how federal spending is.
+- [27:31.550] And then you can't really even blame the individuals,
+- [27:34.730] because the way the government works is complaint minimization.
+- [27:38.290] So when you do try to --
+- [27:40.590] when someone within the government
+- [27:42.040] tries to stop that money being spent,
+- [27:44.180] there's usually someone that complains.
+- [27:46.880] And then their manager will say, it's not worth the trouble.
+- [27:50.700] Just pay it anyway.
+- [27:52.220] That happens over and over again.
+- [27:56.160] I think it was an important thing.
+- [27:57.380] I think was a necessary thing.
+- [27:58.600] And I think we'll have a good effect in the future.
+- [28:00.290] The Press: Thank you, President Trump.
+- [28:01.900] This week, there was a video on Board of Plane
+- [28:04.310] that showed the First Lady of France
+- [28:06.400] slapping her husband, Emmanuel Macron.
+- [28:10.390] Do you have any world leader-to-world
+- [28:11.970] leader marital advice on this role?
+- [28:17.440] The President: Make sure the door remains closed.
+- [28:19.660] That was not good.
+- [28:22.780] No, I spoke to him, and he's fine. They're fine.
+- [28:27.060] They're two really good people. I know them very well.
+- [28:30.010] And I don't know what that was all about.
+- [28:33.500] But I know him very well and they're fine.
+- [28:39.870] The Press: What do you think about the Democratic Party plan
+- [28:41.690] to avoid being swept from every battleground state again
+- [28:45.390] by spending $20 million to study how to speak to American men?
+- [28:51.520] The President: Well, you know, they spent 2.8 million.
+- [28:54.980] We spent 1.5. We spent much less.
+- [28:57.090] We spent about half of what they spent.
+- [29:00.240] And at the end, they were $28 million short.
+- [29:04.920] They had to be -- they spent $2.8 billion.
+- [29:08.020] That's a lot, but they couldn't get $28 million at the and.
+- [29:11.620] And now they want to spend -- I read that.
+- [29:13.020] They want to spent money to learn how to talk.
+- [29:15.010] That's fake. You don't want to be fake.
+- [29:17.090] You shouldn't have to hire consultants to --
+- [29:19.270] say what America needs because, you know, then they should be --
+- [29:22.160] the consultant should be running the deal, not them.
+- [29:25.020] But I read that they want to spend
+- [29:26.460] a lot of money in each state.
+- [29:27.790] We want all seven swing states -- seven out of seven.
+- [29:30.620] We won a lot more than that.
+- [29:31.960] We won the popular vote. We won everything.
+- [29:33.870] And they want spend money to find out what they did wrong.
+- [29:37.630] And I mean, I could tell you what they did wrong.
+- [29:39.450] I could you every -- one of their programs,
+- [29:42.370] when they say men playing in women's sports,
+- [29:44.690] I would say that's not a winner.
+- [29:46.510] When they say, transgender for everybody,
+- [29:48.900] I think that's not a winner. When they open borders
+- [29:52.950] so the entire world's population of criminals
+- [29:55.430] can pour into our country, I don't think that is a winner,
+- [29:58.190] I mean, I can -- I just gave them that for free.
+- [30:01.600] But I don't know if they'll change their ways.
+- [30:03.690] I see them all the time.
+- [30:05.650] People that I know in Congress, Democrats,
+- [30:07.860] they're trying to justify some of the things I just said.
+- [30:11.040] You can't justify them. They're -- you know, they --
+- [30:13.360] I always hear they're 80-20 issues.
+- [30:15.280] I say they're not 80- 20, they are 97-3.
+- [30:18.290] They might be 99-1, they aren't 80-20.
+- [30:21.680] They wish they were 80-20.
+- [30:23.640] And they're wasting a lot of money
+- [30:25.570] if they're going to continue with that nonsense.
+- [30:27.950] The Press: (inaudible)
+- [30:29.820] but back when you were hosting the Apprentice,
+- [30:31.800] you mentioned once in 2012
+- [30:33.150] that Diddy was a good friend of yours back then.
+- [30:36.380] He has since found himself in some very serious legal trouble.
+- [30:40.320] Would you ever consider pardoning him?
+- [30:44.540] The President: Well, nobody's asked.
+- [30:45.810] You had to be the one to ask, Peter, but nobody's asked.
+- [30:48.400] But I know people are thinking about it.
+- [30:50.530] I know they're thinking about.
+- [30:52.150] I think people have been very close to asking.
+- [30:54.920] First of all, I look at what's happening,
+- [30:57.830] and I haven't been watching it too closely,
+- [31:00.070] although it's certainly getting a lot of coverage.
+- [31:02.970] I haven't seen him. I haven't spoken to him in years.
+- [31:06.780] He used to really like me a lot,
+- [31:08.480] but I think when I ran for politics,
+- [31:10.170] he sort of that relationship busted up.
+- [31:13.510] From what I read, I don't know. He didn't tell me that,
+- [31:15.320] but I'd read some little bit nasty statements in the paper
+- [31:18.920] all of a sudden. You know, it's different.
+- [31:21.120] You become a much different person
+- [31:23.150] when you run for politics, and you do what's right.
+- [31:25.890] I could do other things, and I'm sure he'd like me,
+- [31:28.650] and sure other people would like me.
+- [31:30.010] But it wouldn't be as good for our country.
+- [31:31.520] As we said, our country is doing really well
+- [31:33.990] because of what we're doing.
+- [31:35.740] So I can't -- it's not a popularity contest.
+- [31:37.970] So, I would certainly look at the facts.
+- [31:40.950] If I think somebody was mistreated
+- [31:43.900] whether they like me or don't like me,
+- [31:45.620] it wouldn't have any impact on me.
+- [31:47.110] The Press: Mr. President, on the Big Beautiful bill,
+- [31:49.810] would you like to see the Senate build
+- [31:51.180] in some support for your tariffs on the big beautiful bill,
+- [31:53.640] or should that be a standalone?
+- [31:56.480] The President: I have great support on the tariffs.
+- [31:57.890] I mean, I was so honored
+- [31:59.160] that we got that ridiculous stay lifted
+- [32:01.750] because that would have taken away presidential power.
+- [32:05.250] It would have taking away everything
+- [32:06.510] that was granted by the founders.
+- [32:08.660] It would've been a terrible thing.
+- [32:10.300] And it would have -- most importantly,
+- [32:11.830] it would have left us vulnerable.
+- [32:13.490] We have a lot of countries that use tariffs on us
+- [32:16.480] and use them viciously, actually -- viciously.
+- [32:19.470] And if we didn't have the power to use tariffs on them --
+- [32:21.750] and instantly, not when you go back to Congress
+- [32:24.090] and try and get hundreds of people to agree
+- [32:26.440] on something that would take months to get
+- [32:29.290] just one simple proclamation --
+- [32:32.570] if we didn't the power to counteract their powers,
+- [32:35.790] you wouldn't have a country left.
+- [32:37.720] We have to act fast.
+- [32:39.300] We have to be fast and nimble, as they say.
+- [32:42.080] And that was a really great moment,
+- [32:45.590] I think, yesterday, when that stay was lifted.
+- [32:47.520] And hopefully, now we'll go to court and just win that battle.
+- [32:51.440] Because if we don't have the power
+- [32:52.910] to do what they're doing to us,
+- [32:55.570] we are going to be a great nation no longer.
+- [32:59.940] The Press: Elon Musk was once idolized by folks in the left
+- [33:02.440] in this country before joining your administration.
+- [33:04.530] Now he's considered a hero by conservatives.
+- [33:07.190] Why do you think this man, what he's done in American life,
+- [33:10.060] has been so politicized?
+- [33:11.740] The President: Oh, his life has been amazing.
+- [33:13.940] When I look at so many different things,
+- [33:15.610] I look that rocket being guided back into position.
+- [33:19.850] I've never seen that before. I thought it was a space movie.
+- [33:22.350] I thought that it was movie.
+- [33:25.000] You look at what he's done in terms of communication.
+- [33:27.350] It's been unbelievable.
+- [33:28.720] So many different, even tunnels going underground,
+- [33:32.290] not having to go through all the process of going,
+- [33:35.040] you know, he's got a company that does that.
+- [33:36.630] He's got so many companies.
+- [33:38.420] Starlink. As an example. He saved a lot of lives,
+- [33:41.180] probably hundreds of lives in North Carolina.
+- [33:44.090] I don't even know if you remember, but I called you.
+- [33:46.050] They needed Starlink in North Caroline.
+- [33:49.930] And I didn't know what the hell Starlink was.
+- [33:52.140] I said, What is it? Who owns it? He said, Do you know Elon Musk?
+- [33:55.420] I said you happen to know the gentleman.
+- [33:56.960] This was before his government stay.
+- [33:59.540] And they said we really need it
+- [34:01.280] because North Carolina was literally became an island.
+- [34:04.360] There was -- people had no communication.
+- [34:07.480] They had no access to anything.
+- [34:09.160] And they were dying. And I called up Elon.
+- [34:12.350] And you can't get it because it's so successful.
+- [34:14.160] It's very hard to get.
+- [34:15.370] And he had so much of it brought over there.
+- [34:17.290] And they told me it was unbelievable.
+- [34:18.890] It saved a lot of lives.
+- [34:20.090] So, you know, he's just done a lot things.
+- [34:22.010] He -- I don't think -- frankly,
+- [34:23.600] I don't think he gets credit for what he's done.
+- [34:25.830] But he's -- and he's a very good person, too.
+- [34:28.770] You know what? If he wasn't a good person --
+- [34:31.670] if he wasn't but he did the same things.
+- [34:33.940] You know, I'd probably maybe speak differently.
+- [34:36.110] He happens to be a really good person who loves the country.
+- [34:41.860] The Press: You had indicated this week
+- [34:43.190] that there were some things you didn't like
+- [34:44.640] about what had passed in the House.
+- [34:47.320] What changes do you want to see the Senate make?
+- [34:49.730] And you had also indicated there were things
+- [34:51.550] you did not like about the bill. What would you be suggesting
+- [34:54.140] he push senators to change in their version?
+- [34:57.110] The President: Well, I'll tell you, I'll go first.
+- [34:59.260] It's an unbelievable bill. It cuts your deficits.
+- [35:02.070] It cuts -- you know, it's a huge cutting.
+- [35:04.600] But there's things I'd like to see
+- [35:06.090] maybe cut a little bit more.
+- [35:07.290] I'd to see a bigger cut in taxes.
+- [35:09.880] It's going to be the largest tax decrease
+- [35:12.460] or cut in the history of our country.
+- [35:15.270] I'd liked to see it get down to an even lower number.
+- [35:18.110] I was shooting for a slightly lower number,
+- [35:21.270] I would have liked to have done that.
+- [35:24.130] But with all of that being said when you look at the tax cut
+- [35:28.430] and the fact that the original tax cut, which made us so
+- [35:32.000] We had the most successful four years
+- [35:34.640] in the history of our country, the economy.
+- [35:36.450] And this is going to be even better.
+- [35:38.040] And you see that by the reports that came out
+- [35:40.460] just yesterday or tonight.
+- [35:41.790] I guess they were released this morning at 8:00.
+- [35:44.680] You see the kind of numbers where somebody that's a pro is
+- [35:47.150] like, whoa,
+- [35:48.380] I haven't seen numbers like this since I've been doing this.
+- [35:50.970] You know, these are human emotions of professionals
+- [35:54.880] that have never seen numbers like,
+- [35:56.650] and we've just, we've just started.
+- [35:59.030] The bill is a great bill.
+- [36:01.360] It's going to be jiggled around a little bit.
+- [36:03.710] It's going to be negotiated with the Senate, with the House.
+- [36:07.830] But the end result is it extends the Trump tax cuts.
+- [36:12.080] If it doesn't get approved,
+- [36:14.240] you'll have a 68 percent tax increase.
+- [36:17.470] You're going to go up. 68 percent.
+- [36:20.680] That's a number that nobody's ever heard of before.
+- [36:23.800] You'll have a massive tax increase.
+- [36:26.420] If it does get approved, you'll have a large tax cut,
+- [36:30.650] the largest we've ever had,
+- [36:32.170] when you add the past tax cuts that we've got you,
+- [36:35.610] the Trump tax -- they call them the Trump Tax Cuts.
+- [36:39.340] It's an amazing bill. It does amazing things.
+- [36:42.520] With all of that, it's going to be adjusted
+- [36:44.210] a little bit over the next coming weeks,
+- [36:45.650] and I think it's going to be passed.
+- [36:47.690] The Republicans want to pass it.
+- [36:49.890] With all of the great things it does,
+- [36:51.640] including an extension of debt, it's the extension.
+- [36:54.390] We have to extend the debt.
+- [36:55.990] If we don't extend debt, we're in default.
+- [36:58.570] Now, the Democrats might like our country to be in default,
+- [37:01.260] but in 250 years, we've never been in default.
+- [37:04.700] That was handed to them by a very well-meaning man
+- [37:08.000] that gave it to them
+- [37:09.410] because he thought it was the right thing to do.
+- [37:12.250] It could have been their problem before the election,
+- [37:14.340] but this man thought it the right to do,
+- [37:16.200] and it was well-meaning.
+- [37:18.110] I don't hold anything against him for that.
+- [37:20.400] But that was put on our plate
+- [37:22.430] when it should have been on the Democrats' --
+- [37:24.100] September 28th, a famous date.
+- [37:26.910] It should have be taken care of by the Democrats.
+- [37:29.200] But this person, a man of power,
+- [37:33.410] gave it to us so that, in June, that comes due.
+- [37:36.720] Well, we have to take care of that,
+- [37:38.050] because if we don't take care of it,
+- [37:40.310] we'll have a country in default.
+- [37:42.390] And we don't ever want to have a county in default,
+- [37:44.730] You know, I'll tell you a certain senator,
+- [37:49.890] Elizabeth Warren, said that she would never,
+- [37:54.560] ever allow a default on our debt.
+- [37:58.810] She would never let it happen.
+- [38:00.760] And she would like to get rid of the debt ceiling,
+- [38:02.820] what's called the debt seal. And I call it the debt extension
+- [38:05.130] because we really need an extension
+- [38:07.640] that she'd like to see that got rid of.
+- [38:09.550] And there are many people that agree.
+- [38:10.850] Many Democrats agree with that. But we gave that through,
+- [38:17.330] you know, I don't want to say an error.
+- [38:18.740] He did it well, meaning they gave that to us.
+- [38:21.930] It was a Democrat problem just before the election.
+- [38:24.820] Would have had a huge impact on the election,
+- [38:27.160] and to our benefit.
+- [38:28.710] We won anyway, but to our benefits.
+- [38:31.250] But felt that, really, for the good of the country,
+- [38:33.900] we should extend that.
+- [38:35.470] But Elizabeth Warren and various other people
+- [38:37.790] would like to see that.
+- [38:39.260] Her whole career, she wanted to see it terminated,
+- [38:43.290] gotten rid of not being voted on every five years or 10 years.
+- [38:48.580] And the reason was because it's so catastrophic for our country.
+- [38:53.410] And I always agreed with her.
+- [38:54.770] That was one thing I agreed with her on.
+- [38:56.940] Now, I haven't spoken to her, but I would say
+- [38:59.640] that if you asked her that question now,
+- [39:01.110] she'd say, no, no. It's their problem.
+- [39:03.520] But it's a very unfortunate situation.
+- [39:06.130] It's very unfair situation.
+- [39:07.970] And she happened to be right on that.
+- [39:09.350] It should be gotten rid of, or it should simply be extended.
+- [39:12.450] But that's one of the things
+- [39:13.810] that gets taking care of in this bill.
+- [39:15.830] That automatically gets extended for a four-year period.
+- [39:19.630] And it should be. But I agree with Elizabeth Warren on that.
+- [39:22.000] I think you should get rid of it.
+- [39:23.390] It's too catastrophic.
+- [39:25.270] The Press: (inaudible)
+- [39:29.230] international students (inaudible)
+- [39:32.320] welcome to study in the United States?
+- [39:36.630] The President: Well, we want to have great students here,
+- [39:38.320] we just don't want students that are causing trouble.
+- [39:40.290] We want to students, I want to foreign students.
+- [39:42.870] I think Harvard, you know, it's close to 31 percent,
+- [39:45.580] that's a lot. Our country has given $5 billion
+- [39:51.150] plus to Harvard over a short period of time.
+- [39:54.360] Nobody knew that. We found that out.
+- [39:56.410] I wouldn't say that was a DOGE thing,
+- [39:58.010] but we found that over a period of
+- [40:00.030] That was sort of a Trump thing.
+- [40:01.990] We ended up in litigation for other reasons
+- [40:04.130] because they're very anti-Semitic.
+- [40:06.290] And in finding out and in going through the books,
+- [40:09.640] we found out that the country gave them $5 million
+- [40:13.200] plus, much more than that, actually.
+- [40:15.850] And we're having it out with them.
+- [40:17.380] And let's see what happens.
+- [40:18.600] I think we have a very good -- well, it's a very sad case.
+- [40:23.480] It's a case we win. We can't lose that case.
+- [40:25.790] Because we have the right to make grants.
+- [40:27.410] We're not going to make any grants like that.
+- [40:29.760] But I don't think Harvard has been acting very --
+- [40:33.400] I think Colombia wants to get to the bottom of the problem.
+- [40:36.250] They've acted very well.
+- [40:37.590] And there are other institutions, too,
+- [40:39.090] that are acting, but Harvard is trying to be a big shot.
+- [40:42.330] And all that happens is, every three days,
+- [40:45.840] we find another $100 million that was given.
+- [40:48.930] Last two days ago, we found $200 million more.
+- [40:52.100] The money is given to them like gravy.
+- [40:54.100] I'd like to see the money go to trade schools,
+- [40:57.120] where people learn how to fix motors and engines,
+- [40:59.480] where people learned how to build rocket ships.
+- [41:01.900] Because, you know, somebody has to build those rocket ships.
+- [41:04.640] And I'd like to see trade schools set up,
+- [41:06.570] because you could take 5 billion plus hundreds of billions more,
+- [41:10.840] which is what's spent.
+- [41:12.220] And you could have the greatest trade school system
+- [41:15.030] anywhere in the world. And that's what we need,
+- [41:16.760] to build his rockets and robots and things that he's doing
+- [41:20.300] and to build lots of other things.
+- [41:22.040] And, you, know, I went to school with people.
+- [41:24.890] In some cases, they weren't good students.
+- [41:27.670] But they could fix the engine of a car better
+- [41:29.730] than anybody I've ever seen.
+- [41:31.020] They could take it apart blindfolded.
+- [41:32.730] They had an ability at that. And they did very well.
+- [41:35.660] They made a lot of money, and it's a very skilled job.
+- [41:37.630] It's great.
+- [41:38.880] But I'd like to see a lot of money
+- [41:40.320] going into trade schools. I've always felt that.
+- [41:42.360] And we probably found our pot of gold,
+- [41:44.900] and that's what's been wasted at places like Harvard.
+- [41:49.170] And the money has been wasted.
+- [41:50.400] The Press: I wanted to ask quickly, Mr. Musk,
+- [41:53.260] is your eye okay? What happened to your eye
+- [41:55.170] (inaudible)?
+- [41:56.400] Elon Musk: Well, it wasn't anywhere near France, so --
+- [42:09.200] The President: I didn't notice.
+- [42:10.420] Elon Musk: So, yeah, I was just horsing around
+- [42:12.500] with little X and I said, go ahead, punch me in the face.
+- [42:15.770] And he did. Turns out even a five-year-old
+- [42:17.760] punching you in the face actually does.
+- [42:19.660] The President: That was X that did that?
+- [42:21.560] The President: X could do it. If you knew X, he could do that.
+- [42:25.840] Elon Musk: But I didn't really feel much at the time,
+- [42:27.950] and then it, I guess, bruises up.
+- [42:29.610] But I was just horsing around with the kids, basically.
+- [42:31.480] The President: I didn't notice it actually.
+- [42:34.220] The Press: I know that you tried to stay pretty neutral,
+- [42:36.480] because not your war, but --
+- [42:39.100] The President: And by the way, not my war,
+- [42:41.310] I just want to solve the problem for people.
+- [42:43.260] This was not a war that was going to happen
+- [42:44.710] if I were president.
+- [42:45.940] The Press: Right, and so now you're war,
+- [42:47.470] but as you try to fix it,
+- [42:49.730] and as you survey this hellscape of the Ukrainian front lines.
+- [42:54.430] And you guys, you and your team deal
+- [42:56.110] with a very stubborn Vladimir Putin.
+- [42:59.100] The President: And Zelensky, very stubborn Zelenski too.
+- [43:03.760] The Press: Do you look at this
+- [43:05.120] and see Putin as the good guy or the bad guy?
+- [43:08.590] The President: So, I've known him very well,
+- [43:11.280] and I went through a lot of things with him
+- [43:13.460] because Russia was,
+- [43:16.190] you know, the Russia, Russia, Russian hoax.
+- [43:17.880] Turned out to be a total hoax, New York Times,
+- [43:21.190] they got a Pulitzer Prize,
+- [43:22.500] they have to give back the Pulitzer prize.
+- [43:24.000] That's my lawsuit, and they're doing
+- [43:25.960] very poorly in that lawsuit, but, you know they wrote stories
+- [43:29.040] about how it was true and it was false,
+- [43:30.860] and you know a lot The Washington Post also.
+- [43:35.370] I have gotten to see things that I was very surprised at.
+- [43:41.000] Rockets being shot into cities like Kiev
+- [43:46.450] during a negotiation that I felt was maybe very close to ending.
+- [43:50.760] We were going to solve a problem,
+- [43:52.590] and then all of a sudden rockets
+- [43:53.840] got shot into a couple of cities and people died.
+- [43:58.910] I saw things that were surprised at, so --
+- [44:02.230] and I don't like being surprised.
+- [44:04.070] So I'm very disappointed in that way.
+- [44:06.620] With that being said, I'd like to see then 5,000 people --
+- [44:09.790] I think the number is even more than that --
+- [44:11.870] but 5,000 people a week are being killed.
+- [44:15.690] Mostly soldiers, but also people that live in little cities
+- [44:19.340] and towns throughout Ukraine. And I'd like to see that stop.
+- [44:24.400] The Press: And I asked Karoline this yesterday,
+- [44:26.630] but I want to ask you directly.
+- [44:28.700] So many of the things you're trying to do
+- [44:30.330] are held up in court right now.
+- [44:32.940] If the courts are going to have so much influence
+- [44:35.300] over U.S. policy,
+- [44:36.830] do you wish you would have just become a judge?
+- [44:40.190] The President: Yeah, well, look, it wasn't meant to be that way.
+- [44:42.800] If you look at the founders,
+- [44:44.150] the President had certain powers,
+- [44:45.830] and you have your three groups,
+- [44:48.200] and they all had supposed to be equal, pretty equal powers.
+- [44:52.790] But you can't have a judge in Boston running foreign policy
+- [44:57.180] in places all over the country
+- [44:59.400] because he's got a liberal bent or he's a radical left person.
+- [45:05.100] That's what the executive branch is for.
+- [45:07.390] And you have checks and balances.
+- [45:09.650] But we had millions of people pour into our country.
+- [45:11.990] Many, many criminals poured into our Murderers.
+- [45:14.980] Murderers, mental institutions from all over the world
+- [45:18.460] being emptied out into our country.
+- [45:20.760] And if we don't get them out and get them out quickly,
+- [45:22.750] we're going to lose your country very easily.
+- [45:25.220] He's a -- this is a bet that anybody would allow this
+- [45:28.800] to happen to our country,
+- [45:30.090] you know, with all of the things.
+- [45:31.340] We took over inflation, we took over some wars,
+- [45:33.640] we took a lot of problems that didn't exist
+- [45:35.970] when I was President. None of it existed.
+- [45:37.870] We wiped out ISIS. Other than that, we had no wars.
+- [45:41.870] Putin was never going to hit Ukraine.
+- [45:45.430] Israel would have never been attacked.
+- [45:48.040] That attack, as you know, Iran had no money.
+- [45:52.130] They didn't have money for Hamas.
+- [45:53.800] They didn't have money Hezbollah.
+- [45:55.150] They had no money whatsoever. That wasn't going to happen.
+- [45:58.320] All of these things that happened
+- [45:59.560] weren't going to happen, you wouldn't have had inflation.
+- [46:03.090] So it's very sad when I came back,
+- [46:05.030] but the thing that is the hardest.
+- [46:08.930] Is that they allowed 21 million people into our country.
+- [46:12.380] And many of those people are stone-cold criminals.
+- [46:17.640] They moved their criminal population
+- [46:19.820] into the United States.
+- [46:21.210] And of all the things that, you know, are bad,
+- [46:26.100] I solved inflation, I believe, already.
+- [46:28.080] I got the fuel prices down. The fuel prices came down.
+- [46:30.660] That's one of the reasons they screwed up the energy.
+- [46:33.940] They screwed up to cost of gasoline and oil and gas.
+- [46:38.330] And you had tremendous inflation.
+- [46:40.300] You had the greatest inflation, probably,
+- [46:41.880] in the history of our country under Biden.
+- [46:44.190] And when people said, oh, but the economy was --
+- [46:46.950] no, the economy is terrible for the people
+- [46:48.770] because they couldn't afford the energy.
+- [46:50.690] And the energy brought everything else up.
+- [46:52.430] Energy is the big deal.
+- [46:54.340] But with all of that, we solved that already.
+- [46:56.950] In four months, we've solved it. $1.99 and $1,98 gasoline.
+- [47:01.460] First time people have seen that in a long time, since my term.
+- [47:05.190] But the hardest thing to solve is millions of people
+- [47:09.680] pouring into our country, many of whom are criminals.
+- [47:12.250] Because remember, these countries are smart.
+- [47:14.520] Their leaders are very street-smart.
+- [47:16.870] They're sending the people that they don't want.
+- [47:19.420] They don't the people who are there,
+- [47:21.160] that are law-abiding, that are productive,
+- [47:23.420] that are working hard.
+- [47:25.480] They want people that are in jails.
+- [47:28.620] We have them. They allow them to come in.
+- [47:31.650] And I always look to the other side,
+- [47:33.500] like, why would somebody do something?
+- [47:35.180] You know, in business, I'd try and study,
+- [47:36.700] why would they want to do this?
+- [47:38.200] Why would they want to sell it? Why would want to buy it?
+- [47:41.530] One thing I can't figure out is, what would an administration --
+- [47:47.040] what were they thinking when they allowed millions of people
+- [47:50.710] from prisons all over the world,
+- [47:52.550] not just from South America, Venezuela,
+- [47:55.240] all over world, from the Congo in Africa?
+- [47:59.280] Hundreds of people, thousands of people from the Congo,
+- [48:03.310] rough, rough prisoners from Asia, from Europe,
+- [48:08.870] rough parts of Europe.
+- [48:10.930] Why would they allow them to come into our country?
+- [48:13.700] Why would the do that?
+- [48:15.420] It's the one thing I can't figure out.
+- [48:19.220] I don't believe it was Joe Biden.
+- [48:20.580] I really don't. I mean, look,
+- [48:22.430] he's been a sort of a moderate person over his lifetime.
+- [48:25.350] Not a smart person, but a somewhat vicious person,
+- [48:30.070] I will say. If you feel sorry for him,
+- [48:32.520] don't feel so sorry because he's vicious.
+- [48:34.130] What he did with his political opponent
+- [48:36.380] and all of the people that he hurt,
+- [48:37.800] he hurt a lot of people by --
+- [48:40.230] and so I really don't feel sorry for him.
+- [48:42.550] But he wasn't a person that would allow murderers
+- [48:46.170] to come into our country.
+- [48:47.470] He wasn't a person that was in favor of transgender
+- [48:50.160] for anybody that wanted it.
+- [48:53.310] Take kids out of families, etc., etc.
+- [48:56.260] So I just don't understand why, why a thing like this,
+- [48:59.710] how a thing like this could have been allowed to happen.
+- [49:02.310] Very sad. It's very sad. Very sad for our country.
+- [49:07.370] Elon Musk: If I could add something to that,
+- [49:08.810] which is I think the fundamental moral flaw of the left
+- [49:14.520] is empathy for the criminals and not empathy for victims.
+- [49:19.120] Empathy for the criminal but not empathy for victim.
+- [49:22.380] And there's been way too much of that.
+- [49:24.370] That needs to stop. To the President's point,
+- [49:27.230] there's immense judicial overreach
+- [49:29.820] that is unconstitutional. That was never intended.
+- [49:33.880] And it's undermining the people's faith
+- [49:35.760] in the legal system.
+- [49:37.070] It needs to stop. It's gone too far.
+- [49:41.950] The President: And just today,
+- [49:43.150] we had just a couple of hours ago,
+- [49:45.260] we had a great decision from the Supreme Court.
+- [49:48.310] Thank goodness. That was very important.
+- [49:52.140] We had two important decisions yesterday on the tariffs
+- [49:55.060] because, again, we have to be able to fight.
+- [49:57.610] A fair fight with other countries.
+- [49:59.800] Howard, would you say we have to be able to use tariffs
+- [50:03.630] to fight people that use tariffs on us?
+- [50:05.430] I mean, if we didn't have that power of tariffs,
+- [50:07.990] we would economically be destroyed as a country
+- [50:11.280] because they will destroy us.
+- [50:12.710] Other countries will destroy us with unchecked tariffs.
+- [50:16.770] We can check them when we have the
+- [50:18.750] (inaudible). They tried to take that power away from us.
+- [50:21.530] And if you take that power away,
+- [50:22.740] we're not going to have a country.
+- [50:23.990] We won't have an economically viable country.
+- [50:27.000] But it's very important, on immigration,
+- [50:30.480] that we be able to get people out
+- [50:32.880] without having to go through a long court case.
+- [50:35.090] I mean, it was up to some of these judges.
+- [50:37.180] Every single one of these millions of people,
+- [50:40.400] millions of people, criminals,
+- [50:43.000] prisoners that were let go from jails
+- [50:45.640] because they save a fortune when they do.
+- [50:47.580] They brought them into the United States.
+- [50:49.180] You know what they're saving? The money they're savings.
+- [50:52.330] But some of the murderers
+- [50:53.760] It's very important that we're able to get
+- [50:55.130] those people out of here fast,
+- [50:56.480] bring them back to their country where they belong.
+- [50:59.460] And those countries take them because if they don't take them,
+- [51:02.150] they have to go through the wrath of the United States
+- [51:04.520] and they take them.
+- [51:05.730] But we have judges that don't want that to happen.
+- [51:08.380] And it would be it's a terrible thing.
+- [51:11.810] The that's going through the court system right now,
+- [51:14.330] that whole situation.
+- [51:16.470] But when ICE and with Border Patrol,
+- [51:19.660] they've done an incredible job.
+- [51:20.890] When they do this incredible job,
+- [51:23.380] and they capture 100 killers and drug dealers,
+- [51:29.070] and we can't keep them for years here as we go through trials.
+- [51:33.820] We have to get them out rapidly.
+- [51:35.410] And we know who they are. We know who the are.
+- [51:38.880] And we're very careful about who they,
+- [51:41.000] but we have to them out rapidly,
+- [51:42.570] or again, we're not going to have a country.
+- [51:44.530] Okay? Maybe one or two more. Go ahead.
+- [51:48.370] The Press: There's a story that cars
+- [51:49.880] (inaudible) companies like Tesla,
+- [51:52.730] which have cars manufactured abroad,
+- [51:55.230] and this is also (inaudible)?
+- [51:56.770] The Press: Well, he's going to end up
+- [51:58.140] building his whole car here.
+- [51:59.470] I mean, I thought he built his whole car pretty much he does.
+- [52:02.110] He's got incredible factories.
+- [52:03.630] And like I looked at one in Texas, it's unbelievable.
+- [52:07.640] In no way, all of the manufacturers
+- [52:10.350] will build their parts here, too.
+- [52:12.340] I mean I used to bother me.
+- [52:14.410] They make a part in Canada, part in Mexico,
+- [52:17.560] a part in Europe, and sent all over the place,
+- [52:19.940] and nobody knew what the hell was happening.
+- [52:21.510] I think it's really good.
+- [52:22.760] You build a car, make it in America.
+- [52:24.920] And I gave them a little leeway on that.
+- [52:27.560] You know, I gave them some leeway.
+- [52:29.220] But over the next year,
+- [52:30.480] they've got to have the whole thing built in America.
+- [52:32.670] That's what we want.
+- [52:34.630] We want America to buy American-built cars.
+- [52:37.460] Thank you very much.
+- [52:39.240] Female Speaker: Thank you, guys, for coming out.
+- [52:42.350] Right out this way. Thanks guys!

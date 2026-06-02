@@ -1,0 +1,1324 @@
+<!-- source: https://www.youtube.com/watch?v=Yn7-eCpY3Lk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Yn7-eCpY3Lk -->
+<!-- date_published: 2025-05-15T10:32:14+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:07.325496+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to Troops at Al Udeid Air Base, May 15, 2025
+
+- [00:04.940] [Applause]
+- [00:26.640] USA.
+- [00:37.680] How we doing, American warriors?
+- [00:40.090] [Applause]
+- [00:42.480] What an absolute honor it is to be here
+- [00:46.640] amongst America's best alongside our
+- [00:49.520] allies. I look out into this
+- [00:52.440] audience and I truly see the eyes of
+- [00:55.120] American strength, the eyes of American
+- [00:58.920] deterrence, the eyes of
+- [01:01.239] Americans who put America first. So on
+- [01:06.320] behalf of a grateful nation, I want to
+- [01:08.000] thank you for your willingness to take
+- [01:09.360] the prime of your life to raise your
+- [01:11.680] right hand to defend our Constitution
+- [01:15.920] and our great nation. We salute you. We
+- [01:19.040] thank you and your families these six or
+- [01:21.720] 7,000 miles
+- [01:24.439] away. You know, I have the distinct
+- [01:27.320] privilege every day of watching
+- [01:30.240] President Donald Trump put America
+- [01:33.720] first. From the Oval Office to foreign
+- [01:36.880] trips, every single moment he has the
+- [01:39.759] best interests of our war fighters in
+- [01:43.119] mind. He wants to ensure in every
+- [01:46.320] situation, in every scenario, in every
+- [01:48.759] conflict, we have your back. And that's
+- [01:53.280] his message to me. He says, "Pete, we
+- [01:57.280] better have their back as warfighters
+- [01:59.600] every time." We have three things at the
+- [02:01.360] Department of Defense that we're doing
+- [02:04.320] to ensure we achieve peace through
+- [02:06.960] strength and put America first. Number
+- [02:08.640] one, we're restoring the warrior ethos.
+- [02:14.160] No more political
+- [02:16.360] correctness, gender pronouns, DEI, CRT,
+- [02:20.560] or climate change. We're in the business
+- [02:23.360] of war fighting, accountabilities,
+- [02:26.480] standards, warriors, and
+- [02:29.480] lethality. And the American people have
+- [02:31.680] responded. The young people of America
+- [02:33.760] have signed up in historic numbers,
+- [02:35.519] which is why you've seen recruiting
+- [02:37.720] skyrocket across the country in historic
+- [02:40.160] ways, responding to their
+- [02:41.319] commander-in-chief, Donald Trump. Uh,
+- [02:44.160] you've also seen retention in our ranks
+- [02:47.120] at historic numbers as well. We're
+- [02:49.760] restoring the warrior ethos. We're also
+- [02:51.440] rebuilding our military. President Trump
+- [02:53.599] has committed a trillion dollar defense
+- [02:56.480] budget, a historic budget unlike any
+- [02:58.800] before. A generational rebuilding of our
+- [03:01.519] capabilities. We will have the best
+- [03:03.760] ships, the best subs, the best planes,
+- [03:06.720] the best fighters, the best drones,
+- [03:09.519] missiles, air defense, space defense,
+- [03:12.319] border security, Golden Dome, you name
+- [03:15.760] it. America will be stronger than ever
+- [03:19.159] before under our commander-in-chief,
+- [03:21.599] Donald Trump. He is committed to that.
+- [03:24.560] And number three, we are reestablishing
+- [03:27.640] deterrence. Sadly, over the last four
+- [03:30.080] years, we saw a collapse in
+- [03:34.040] Afghanistan. What happened on October
+- [03:36.239] 7th, the war in Ukraine, violence
+- [03:38.799] unleashed by wokeness and
+- [03:41.480] weakness. But under President Trump,
+- [03:44.239] we're seeing a renaissance of peace
+- [03:46.720] through
+- [03:47.720] strength. Our enemies know that we mean
+- [03:50.799] business.
+- [03:52.239] and our allies like Qatar here know that
+- [03:55.360] we will stand beside
+- [03:57.000] them. That projection of strength, that
+- [04:00.159] recognition of American leadership is
+- [04:02.560] what unleashes
+- [04:04.040] peace. You see, my first motto as a
+- [04:06.560] platoon leader was those for my
+- [04:09.720] platoon Charlie Company second to the
+- [04:12.599] 113th was those who long for peace must
+- [04:17.120] prepare for war. We are war fighters
+- [04:20.560] standing behind this commander-in-chief
+- [04:22.240] prepared to deliver peace and security
+- [04:24.880] for the American people. And we have the
+- [04:28.160] greatest commander-in-chief possible in
+- [04:30.160] the Oval Office and here with us today.
+- [04:32.800] It's always my message to the troops.
+- [04:35.199] This man has your back. And that is why
+- [04:40.320] it is a distinct honor to introduce to
+- [04:43.600] you the 45th and 47th President of the
+- [04:48.720] United States, our commanderin-chief,
+- [04:51.919] Donald J. Trump.
+- [04:55.340] [Applause]
+- [05:08.780] [Music]
+- [05:22.160] If tomorrow all the things were gone,
+- [05:25.919] I'd worked for all my
+- [05:28.280] life and I had to start
+- [05:31.560] again. Just my children and my wife.
+- [05:36.720] Thank my lucky
+- [05:38.440] stars to be living here
+- [05:41.960] today. Cuz our flag still stands for
+- [05:45.400] freedom and they can't take that
+- [05:49.050] [Music]
+- [05:52.520] away. And I'm proud to be an American
+- [05:56.960] where at least I know I'm free. And I
+- [06:01.039] won't forget the men who died, who gave
+- [06:04.800] that right to me. And I gladly stand up
+- [06:09.759] next to you and defend her still
+- [06:13.720] today. Cuz there ain't no doubt I love
+- [06:17.120] this
+- [06:19.000] land. God bless the USA.
+- [06:28.760] [Music]
+- [06:35.360] From the lakes of
+- [06:38.039] Minnesota to the hills of
+- [06:41.880] Tennessee, across the plains of Texas,
+- [06:45.840] from sea to shining sea,
+- [06:49.680] from Detroit down to
+- [06:52.199] Houston and New York to
+- [06:56.639] There's pride in every American heart.
+- [06:59.919] And it's time we stand and
+- [07:03.160] [Music]
+- [07:05.800] say that I'm proud to be an American
+- [07:10.560] where at least I know I'm free. And I
+- [07:14.560] won't forget the men who died, who gave
+- [07:18.400] that right to me. And I gladly stand up
+- [07:23.199] next to you and defend her still
+- [07:27.080] today. Cuz there ain't no doubt I love
+- [07:30.720] this
+- [07:32.440] land. God bless the
+- [07:38.720] [Music]
+- [07:41.560] USA. And I'm proud to be an American
+- [07:46.560] where at least I know I'm free.
+- [07:50.240] And I won't forget the men who died, who
+- [07:54.319] gave that right to me. And I gladly
+- [07:57.840] stand
+- [07:59.720] up next to you and defend her still
+- [08:04.440] today. Cuz there ain't no doubt I love
+- [08:08.319] this
+- [08:09.960] land. God bless the US.
+- [08:16.620] [Music]
+- [08:27.360] [Applause]
+- [08:49.600] Well, thank you very much everybody.
+- [08:51.440] This is an honor. What a beautiful group
+- [08:54.720] of people you are. You are good. I wish
+- [08:57.040] I looked like you. I would have I would
+- [08:58.880] have been president 20 years ago if I
+- [09:00.959] looked like you. But I want to give a
+- [09:04.080] special hello to Aluded Air Base.
+- [09:08.480] Sometimes referred to as the deed.
+- [09:10.800] That's a little sinister term, the deed.
+- [09:13.720] Today we can all relax and be at ease
+- [09:16.640] and we're going to have a little fun. I
+- [09:18.800] have nothing else to do. So, let's have
+- [09:20.480] a little fun. Right.
+- [09:22.430] [Applause]
+- [09:27.120] So, I'm thrilled to be here with the men
+- [09:29.200] and women who embody American strength
+- [09:31.440] and pride, the warriors of the United
+- [09:33.519] States armed forces. It's an amazing
+- [09:36.640] group of people. You are without a doubt
+- [09:39.760] the greatest fighting force in the
+- [09:41.680] history of the world. That's the way it
+- [09:43.279] is. I said it last night. I said it
+- [09:45.200] strong. We have the strongest military
+- [09:47.040] in the world. Not even a contest. We
+- [09:49.600] have the best equipment. Nobody has
+- [09:51.279] equipment like us. Nobody has the planes
+- [09:53.920] or the missiles or anything else. And as
+- [09:57.040] your commander-in-chief, I'm here to say
+- [09:59.120] that America's military will soon be
+- [10:02.080] bigger, better, stronger, and more
+- [10:03.760] powerful than ever before. We just did a
+- [10:07.360] budget. The budget was the highest by
+- [10:09.600] far. Over a trillion dollars. It's a
+- [10:11.760] lot. It's a lot of stuff. And hopefully
+- [10:14.160] it's peace through strength. Hopefully
+- [10:15.680] you don't have to use it. Uh because if
+- [10:18.480] you use it, uh I feel sorry for the
+- [10:21.440] other guy, but we don't want to have to
+- [10:22.800] use it. I want to recognize a true
+- [10:26.320] warrior and that's our secretary of
+- [10:28.079] defense. They put him through hell. The
+- [10:30.560] radical left did. And uh he's
+- [10:34.079] incredible. You know, he went to the
+- [10:36.000] best schools. He did the best stuff. He
+- [10:39.040] was a smart guy and he's a great guy and
+- [10:41.360] I just listened to his words standing
+- [10:43.360] backstage when he was speaking and he
+- [10:45.839] really has it right on the peg. Pete
+- [10:48.160] Hegath. He's going to be great. You're
+- [10:49.680] going to love this guy. You're going to
+- [10:51.360] love
+- [10:52.240] [Applause]
+- [10:58.880] [Applause]
+- [11:00.200] him. And I also wanna influ it's really
+- [11:04.320] I want to influence you to clap for a
+- [11:07.279] man who's a great influencer. In fact,
+- [11:09.680] my son Baron said, "Dad, you got to do
+- [11:12.480] an interview with somebody I hadn't
+- [11:15.040] heard of, but my son knew very well. He
+- [11:18.079] knows everyone." He said, "Dad, this is
+- [11:20.720] before the election. You know, we won in
+- [11:22.560] a landslide in case you hadn't known.
+- [11:25.200] But he said, "Dad, you got to do an
+- [11:27.519] interview with a guy named Theo Vaughn."
+- [11:29.600] And I said, "Who the hell is Theo
+- [11:31.040] Vaughn?" He said, "Dad, he's such a big
+- [11:33.440] guy. You got to do an interview." So, he
+- [11:36.320] knew all the names. I didn't know the
+- [11:38.000] names. And where is Theo? He's around
+- [11:40.000] here someplace, I think. Theo, thank you
+- [11:42.320] very
+- [11:42.650] [Applause]
+- [11:49.640] much. That's Baron. You know Baron. He
+- [11:52.320] said, "You got to do with it." We had a
+- [11:54.000] good time, right? Had a good time. We
+- [11:55.680] had like 270 million people that listen.
+- [11:58.800] And so, you know what? I think Baron was
+- [12:00.959] right. Thank you for being here, Theo.
+- [12:03.279] Appreciate it. Also, Lee Greenwood,
+- [12:05.839] right from the beginning, that song went
+- [12:07.519] on. And you know, that song was a
+- [12:09.120] successful song, but we made it the
+- [12:10.880] most. Number one, we made that song uh
+- [12:14.720] it's the top of the list of that type of
+- [12:16.959] song. That's a pretty big I don't want
+- [12:18.639] to go into the list because you'll get
+- [12:20.320] upset with me if I do like uh the
+- [12:23.839] national anthem and things. It's like
+- [12:26.240] and it became uh unbelievable. And I was
+- [12:30.160] saying you could get Elvis or anybody
+- [12:31.920] else to do a song. There's nothing. That
+- [12:34.720] was my intro song right from the
+- [12:36.600] beginning because as you know we won
+- [12:38.720] three elections. Okay. And some people
+- [12:41.839] want us to do a fourth. I don't know.
+- [12:44.959] We'll have to think about that. You saw
+- [12:46.880] the new the new hat. The hottest hat is
+- [12:49.279] it says Trump 2028. We're driving the
+- [12:52.880] left crazy when you see that.
+- [12:55.519] We didn't need that hat. But uh it was
+- [12:59.839] uh it's been an amazing period of time.
+- [13:02.480] And when uh Lee Greenwood did that song,
+- [13:05.120] it went from the first day I I came out
+- [13:07.440] and played it. It was a great song, but
+- [13:09.519] we didn't know. And then I did it a
+- [13:10.959] second time, a third time, and that was
+- [13:14.519] 968 rallies ago. Can you believe that?
+- [13:17.279] We did 968 rounds. There another hat
+- [13:20.240] says 968. I said, "What the hell does
+- [13:22.320] that mean?" That's the number of
+- [13:23.760] rallies. I said, "You have to be
+- [13:25.360] kidding." But from the very beginning
+- [13:27.120] and we played Lee's song and it was the
+- [13:30.440] walk-on. And then for the last
+- [13:32.440] inauguration, I had every all the big
+- [13:35.360] singers, they wanted to do a song for
+- [13:37.200] me, and they wanted to have me walk on
+- [13:39.600] to their song. And my people, oh, that
+- [13:41.440] would be nice. That would be nice. And
+- [13:43.040] when I heard about it, we were all set.
+- [13:45.279] We had a lot of them. And I heard about
+- [13:47.760] it, I said, I'm not switch. Are you
+- [13:50.160] kidding me? I'm not switching. So, we
+- [13:52.720] stick with Lee. There's nobody could
+- [13:54.560] have done better than Lee. And he's been
+- [13:56.399] so loyal and so great. And it's been
+- [13:58.560] really about nine years of that stuff.
+- [14:01.519] And you know, we had really honestly we
+- [14:03.920] had three unbelievable campaigns. And
+- [14:06.480] it's been uh it's been an honor. And
+- [14:09.120] there's nobody been stronger than the
+- [14:10.880] military in terms of backing us. Nobody.
+- [14:12.959] So I just want to thank you all very
+- [14:14.480] much. Great honor. Thank you very much.
+- [14:22.280] [Applause]
+- [14:24.720] And also with us today is a really a
+- [14:27.440] great talent and uh somebody who's one
+- [14:31.199] of the most
+- [14:32.920] popular television hosts in history.
+- [14:35.600] Still looks young to me, but he's been
+- [14:37.279] doing it a long time, but he's an
+- [14:39.360] incredible man. He's always seems to
+- [14:41.920] take my side, and therefore I like him
+- [14:43.760] even more. But he has a he has common
+- [14:46.639] sense. We talk about common sense all
+- [14:48.560] the time, but he's one of the biggest in
+- [14:51.120] the history of television. The great
+- [14:53.920] Sean Hannity. He's here someplace. Sean,
+- [14:56.480] stand up wherever you are. Thank you,
+- [14:59.440] Sean. Thank you. Where is
+- [15:02.360] he? Thank you,
+- [15:04.410] [Applause]
+- [15:06.199] Sean. Thank you, Sean. He was a little
+- [15:09.040] shy for a change. I I've never seen
+- [15:11.279] that. Uh, we're also grateful to have a
+- [15:14.480] very excellent ambassador, Timmy Davis.
+- [15:17.519] Everybody loves him. Timmy, thank you
+- [15:19.199] very much. Thank
+- [15:24.680] you. Along with your great military
+- [15:27.360] leaders, real these are real leaders.
+- [15:29.839] These are real tough cookies. Lieutenant
+- [15:33.279] General Derek Trapper,
+- [15:35.480] France. Major General David Shoemaker.
+- [15:39.600] Brigadier General Richard Duce Dickens,
+- [15:43.360] Chief Master Sergeants Chris Murphy and
+- [15:46.399] Joshua Weiner and Colonel Brian Ellis.
+- [15:50.399] We want to thank you. Amazing people.
+- [15:52.399] They're real leaders and this is one of
+- [15:54.240] the great bases anywhere in the world
+- [15:56.240] and we're lucky to have them. Thank you
+- [15:58.560] very much, fellas.
+- [16:04.230] [Applause]
+- [16:09.759] And a very special thanks as well to our
+- [16:12.639] partners from the Qatar Army and Armed
+- [16:17.240] Forces. Let's give them a really special
+- [16:20.160] hand. They are so
+- [16:22.120] great. They are so great.
+- [16:30.959] And in particular, we want to be
+- [16:34.079] uh give a little special applause for
+- [16:36.480] somebody that's been so good. Deputy
+- [16:38.240] Prime Minister and Defense Minister Sah.
+- [16:41.120] Where are you, Sah? Thank you very much.
+- [16:43.600] Great. Thank
+- [16:44.400] [Applause]
+- [16:46.600] you. Thank you. It's an honor.
+- [16:50.959] Yesterday, we signed an agreement for
+- [16:52.959] Qatar to purchase 42 billion dollars
+- [16:55.519] worth of the finest American military
+- [16:58.240] hardware, including THAAD missile
+- [17:00.079] batteries, Pegasus refueling aircraft,
+- [17:03.920] Desert Vipers, light armored vehicles,
+- [17:07.120] amphibious combat vehicles, the
+- [17:10.919] MQ9B, and the Sky Guardian drones.
+- [17:14.880] That's all the best stuff. Is it? If it
+- [17:16.559] isn't, please stand up and tell me, and
+- [17:18.160] we'll get something else.
+- [17:19.760] But I believe it's the best. Qar will
+- [17:23.439] also be investing10 billion dollars to
+- [17:26.240] support this massive base in the coming
+- [17:28.960] years. And there's no place like it they
+- [17:31.480] say. And uh a man the leader Amir he's
+- [17:38.400] been a special friend of mine for a long
+- [17:40.320] time long before I did the political
+- [17:42.080] thing. when he was a novice, he was a
+- [17:44.559] young guy and we got to know each other
+- [17:46.320] and we liked each other and got along
+- [17:49.360] long before I ever thought of running
+- [17:50.880] for president. And it's nice when you
+- [17:53.200] have that kind of a relationship. We got
+- [17:54.880] along right from the beginning. He's a
+- [17:56.400] special guy who's a great leader, great
+- [17:58.720] leader of your country. So, I want to
+- [18:01.600] just uh congratulate you on that and all
+- [18:04.559] the Qatari people, a spectacular group,
+- [18:08.400] and it's an honor. And I don't think our
+- [18:10.160] friendship's ever been stronger than it
+- [18:11.840] is right now. It's uh you had the last
+- [18:14.520] administration. I don't know if they
+- [18:16.320] knew too much about what was happening,
+- [18:17.919] but this administration does. And uh you
+- [18:20.960] will never see anything like the
+- [18:22.480] relationship that we have. We just left
+- [18:24.720] Saudi Arabia, as you know, and you have
+- [18:27.200] a fantastic crown prince. He is a
+- [18:30.960] fantastic guy likewise. And we're going
+- [18:33.840] from here, we're going to UAE and uh
+- [18:38.200] United Arab Emirates and uh we're going
+- [18:41.200] to see another leader. We have it's an
+- [18:43.919] amazing part of the world and our
+- [18:45.919] relationship has never been stronger and
+- [18:48.799] you're going to see that as time goes
+- [18:50.240] by. But uh with us, it's not words. As
+- [18:52.559] you know, I'm in the midst of a very
+- [18:54.640] historic trip visiting the key partners
+- [18:57.280] in the Gulf. We had uh just uh some
+- [19:00.840] incredible stopovers and a wonderful day
+- [19:04.400] yesterday. We had the dinner however
+- [19:08.799] with his highness the Amir and he is uh
+- [19:12.640] I'm going to see him in a little while.
+- [19:14.640] I'm going to be saying goodbye to him
+- [19:16.080] but we'll we'll be saying hello again
+- [19:17.919] very very soon. But no visit in the Gulf
+- [19:21.520] would be complete without stopping to
+- [19:23.280] salute the people who keep America safe,
+- [19:25.600] strong, and free. And the patriots of
+- [19:27.520] the United States Army, Navy, Space
+- [19:30.480] Force. I love Space
+- [19:33.640] Force. That's I have to say that's my
+- [19:36.640] little baby. You know, I started that.
+- [19:38.080] They said that will never work. Oh, it
+- [19:40.960] worked. You know, we were way behind
+- [19:43.120] Russia and China and now we're way way
+- [19:46.000] ahead of everybody. So, Space Force, I'm
+- [19:48.559] very happy. That was my you know not
+- [19:50.559] since the air force has that happened.
+- [19:53.039] So we created a force and it's a big
+- [19:56.000] force and it's a brilliant force. So
+- [19:58.559] space force thank you for doing such a
+- [20:00.240] great job. The Marines and of course the
+- [20:02.160] United States Air Force. Alided is the
+- [20:06.240] home of the legendary
+- [20:08.440] 379th Air Expeditionary Wing known as
+- [20:11.919] the Grand Slam Wing. We also have the
+- [20:15.280] first expeditionary theater support
+- [20:17.919] group. You got them all. And let's not
+- [20:20.320] forget the top-notch army soldiers from
+- [20:22.640] the 11th Air Defense Artillery, the
+- [20:26.400] Imperial Brigade. Thank you, fellas.
+- [20:28.720] That's great. We also have the Eighth
+- [20:31.320] Expeditionary Air Mobility Squadron
+- [20:34.159] known as Mighty OOS. Where are the
+- [20:37.400] OOS? We don't want to fight with them.
+- [20:40.080] All of you are the tip of the spear.
+- [20:42.640] You're the finest we have anywhere in
+- [20:44.400] the world. You're the finest we have.
+- [20:45.840] You're the finest anyone has in the
+- [20:48.240] fight against the enemies of
+- [20:50.440] civilization. You're the people that are
+- [20:53.760] defeating chaos, combating terror,
+- [20:56.960] defending our interests, supporting our
+- [20:58.640] allies, securing our homeland, and
+- [21:00.559] making America incredibly proud. And you
+- [21:02.880] know what? Making America great again.
+- [21:04.799] That's what's happened. It's happened
+- [21:06.159] very fast. Happened very fast.
+- [21:15.280] As president, my priority is to end
+- [21:17.760] conflicts, not start them, but I will
+- [21:20.799] never hesitate to wield American power
+- [21:23.360] if it's necessary to defend the United
+- [21:25.600] States of America or our partners. And
+- [21:28.480] this is one of our great partners right
+- [21:30.360] here. When we're threatened, America's
+- [21:32.960] military will answer our enemies without
+- [21:35.760] even thinking about it. We have
+- [21:38.000] overwhelming strength and devastating
+- [21:40.080] force. And we had people that didn't
+- [21:42.000] like to talk about that. You know, they
+- [21:43.919] didn't want to talk about the level of
+- [21:46.320] quality that we have. They didn't want
+- [21:47.919] to talk about anything. They didn't
+- [21:49.520] We're going to have a big parade this
+- [21:50.799] year, you know, in Washington DC, a real
+- [21:53.559] parade. And I'll tell you just a little
+- [21:55.840] story. A week ago, May 8th, uh I'd call
+- [21:59.440] up a certain country and they said, "Oh,
+- [22:01.360] we're celebrating the victory of World
+- [22:05.200] War II today, sir." "Oh, really?" I'd
+- [22:08.480] speak to one of the presidents or prime
+- [22:10.880] ministers or whatever. And they were so
+- [22:13.840] busy. Oh. Oh, yes. We're celebrating the
+- [22:16.240] victory of World War II. Then I speak to
+- [22:19.039] another one that they were celebrating.
+- [22:21.360] And the fact is Russia was celebrating.
+- [22:23.280] France was celebrating. Everybody was
+- [22:25.600] celebrating but us. And we're the ones
+- [22:28.080] that won the war. We won the
+- [22:31.410] [Applause]
+- [22:35.720] war and they helped. But without us,
+- [22:39.200] they don't win the war. We're all
+- [22:40.480] speaking
+- [22:41.559] German. You know that, right? Without
+- [22:43.760] us, they're speaking German. Maybe a
+- [22:45.760] little Japanese,
+- [22:47.400] too. We won the war. and we're the only
+- [22:50.720] ones that didn't celebrate. So what I
+- [22:52.559] did is I got my crack staff over there
+- [22:56.159] and we did it every time. We have May
+- [22:59.039] 8th and we also have the date in
+- [23:00.640] November, that sacred date in November
+- [23:02.559] for World War I because we won that war,
+- [23:04.840] too. But think of it, I'm calling now.
+- [23:08.159] We love France, right? But I think we
+- [23:10.880] did a little more to win the war than
+- [23:12.799] France did. Do we agree? You know, I
+- [23:15.039] don't want to be a wise guy.
+- [23:20.000] But when Hitler made his speech at the
+- [23:22.000] Eiffel Tower, I would say that wasn't
+- [23:24.400] exactly
+- [23:26.600] ideal. And I called up the president
+- [23:29.600] Mcronone, good guy, by the way, Donald,
+- [23:32.559] we are celebrating our victory over the
+- [23:35.679] Germans. Oh, that's wonderful. No, we
+- [23:38.559] don't take credit for what we do. And I
+- [23:40.880] said, what the hell? Every country I've
+- [23:42.480] spoken to in the last week is
+- [23:44.000] celebrating the war but us. Isn't that
+- [23:45.919] terrible? So, we're going to be uh doing
+- [23:49.200] uh holidays, but I said it has to be a
+- [23:51.600] working holiday because we, you know,
+- [23:53.200] you can only do so many of them. We have
+- [23:55.840] a lot of holidays. I'm not so sure we
+- [23:57.679] should have them and you don't have to
+- [23:59.120] go to work. Our country has to go to
+- [24:01.120] work. So, we're going to have a working
+- [24:02.960] holiday for each one of those two dates.
+- [24:05.600] And we're going to be celebrating, too,
+- [24:07.280] because we should celebrate more than
+- [24:08.799] anybody else. And others did help a lot,
+- [24:11.360] but nobody helped like us. We wouldn't
+- [24:13.440] have won. I mean, the fact is not
+- [24:15.039] winnable without us. And now we're
+- [24:17.600] stronger than ever before. You know, I
+- [24:19.120] rebuilt the military in my first term.
+- [24:21.919] We had a great first term every way. We
+- [24:24.240] had the greatest economy ever, stock
+- [24:26.080] market up 88%, the biggest rise ever,
+- [24:29.600] and all of that stuff. But the second
+- [24:31.840] term is going to be even better. We have
+- [24:33.360] over 10 trillion dollars going to be
+- [24:36.960] invested in our country. And this little
+- [24:38.880] tour didn't hurt, I will tell you.
+- [24:41.200] between the three great places. I
+- [24:43.200] recently announced that I'll approve an
+- [24:45.520] unprecedented $1 trillion dollars. As I
+- [24:47.919] told you, it's going to end up going
+- [24:49.279] higher. Investment in the US armed
+- [24:51.840] forces, and that's a record. As part of
+- [24:53.760] that effort, I signed an order to build
+- [24:57.600] the Golden Dome Missile Defense Shield
+- [25:00.080] to protect our country from missile
+- [25:02.000] attack. Is everybody okay with that?
+- [25:12.960] It was called the Iron Dome, but I
+- [25:14.640] changed it to the Golden Dome. I thought
+- [25:16.240] it was a little more
+- [25:17.559] beautiful, maybe a little more modern or
+- [25:20.080] something, but we're going to have it.
+- [25:22.000] And it's uh it's amazing actually what
+- [25:24.799] they do. It was, you know, it's going to
+- [25:26.400] cost many billions of dollars. All made
+- [25:30.080] in the USA. I want it all made in the
+- [25:31.840] USA. The days of making our parts all
+- [25:34.159] over the world because we have wonderful
+- [25:35.840] partners. No, it's America first now.
+- [25:38.480] America first. We're going to make it
+- [25:40.480] all in the USA. And we're going to, by
+- [25:43.360] the way, it's America first, but we're
+- [25:44.640] going to take care of other countries.
+- [25:46.960] We're going to have plenty left over
+- [25:48.799] because we're doing things now. You
+- [25:51.320] know, six months ago, our country was
+- [25:54.880] laughed at. Now, our country is
+- [25:57.679] respected again at a level that it
+- [25:59.600] hasn't seen in a long, long time. And
+- [26:02.400] we're going to keep it that way. And our
+- [26:04.400] air force will soon have the world's
+- [26:06.799] first and only sixth generation fighter
+- [26:09.360] jet, the
+- [26:11.240] F47. Why did they name it 47? Does
+- [26:14.080] anybody know? I don't
+- [26:15.799] know. That was a nice thing. But uh it's
+- [26:20.080] quite the plane. They say it's uh
+- [26:21.919] there's never been anything done. But
+- [26:24.159] we're also looking at an increased
+- [26:26.159] version of the F-35. I think we're going
+- [26:29.279] to call it the F55, which will be a
+- [26:32.720] double engine plane. I like two engines
+- [26:34.480] on a plane. I'm sorry if I say that, but
+- [26:37.679] does that make sense to anybody? Does
+- [26:39.440] anybody agree? General, do you agree
+- [26:40.880] with that? I like Thank you. So many of
+- [26:43.279] us, Sir, this engine is infallible. No
+- [26:46.000] engine is
+- [26:47.159] infallible. I like two engines on a
+- [26:49.880] plane. Should have been made with two
+- [26:52.000] engines. If I were here, you would have
+- [26:53.360] had two engines, and you would have had
+- [26:54.640] a lot of other victories, by the way.
+- [26:56.880] But we're going to do uh when you think
+- [26:59.279] of it, Russia Ukraine would have never
+- [27:01.720] started. October 7th, Israel would have
+- [27:06.039] never happened because Iran, as you
+- [27:09.279] know, was broke. They were unable to
+- [27:12.799] fund Hamas or anything else. It wouldn't
+- [27:15.520] have happened. We wouldn't have had the
+- [27:17.440] disaster of Afghanistan, the leaving. We
+- [27:20.159] were getting out, but we're getting out
+- [27:21.520] with dignity and strength. We're going
+- [27:23.039] to keep Bram Air Base. We aren't going
+- [27:24.960] to give that up because it's one hour
+- [27:26.480] away from China. One hour. You know who
+- [27:28.960] occupies it now?
+- [27:30.440] China. The damage that that
+- [27:32.720] administration did to this country is
+- [27:34.960] legendary. Allowing 21 million people
+- [27:38.159] through an open border where anybody
+- [27:39.919] could walk into the United States of
+- [27:42.039] America is something that will never be
+- [27:45.159] forgiven. Grossly incompetent and evil.
+- [27:48.159] Bad people too. Bad people. But the real
+- [27:51.600] strength of our military doesn't come
+- [27:54.320] from its fighter jets. It really comes
+- [27:56.880] from our people. That's you. Comes from
+- [28:00.080] our people. You're unbelievable people.
+- [28:02.080] The aptitude and all of the things you
+- [28:04.559] have to do to do what you do. You know,
+- [28:07.279] I look at some of those engines and I'm
+- [28:09.600] a pretty smart cookie. I would tell you
+- [28:12.320] I'm real smart. And I look at you and
+- [28:14.640] you take those engines apart and put
+- [28:16.399] them back together blindfolded and fix
+- [28:18.640] them up. It's amazing what you're able
+- [28:20.240] to do and then to fly them just
+- [28:23.279] incredible. You're incredible. You're a
+- [28:24.960] very special group of people. And that's
+- [28:27.520] why in my 2026 budget includes uh across
+- [28:33.279] the board. Maybe you don't want to look
+- [28:35.120] for the good of the country. You don't
+- [28:36.640] have to take it. Pay raises for each and
+- [28:38.880] every one of you. Substantial pay
+- [28:40.399] raises. But you don't have to take it.
+- [28:51.520] You don't have to
+- [28:53.000] take you can go to your commanding
+- [28:56.399] officer say sir I'd rather not take that
+- [28:58.399] pay I love my country sir I don't want I
+- [29:01.360] refuse to take it anybody here raise
+- [29:03.440] your hand please if you refuse to take
+- [29:05.120] it let's see here all right well at
+- [29:08.159] least at least we have smart people
+- [29:09.919] that's good so you do your duty for us
+- [29:13.840] and as commander and chief I will always
+- [29:16.320] do and fulfill my duty to you. That's
+- [29:19.279] what I'm doing. Under the Trump
+- [29:21.520] administration, we're
+- [29:23.480] liberating everything in our armed
+- [29:25.919] forces from really radical social
+- [29:29.360] experiments carried out under the
+- [29:31.039] previous administration and beyond that
+- [29:33.520] and actually beyond that and restoring
+- [29:36.320] the strong and fierce spirit of the
+- [29:38.720] American warrior and the American
+- [29:40.559] fighter. On day one, I signed an
+- [29:43.360] executive order stopping our service
+- [29:45.919] members from being forced to endure
+- [29:48.240] endless training sessions on political
+- [29:51.600] correctness. We don't care if you're
+- [29:53.120] politically correct. And I directed the
+- [29:55.919] reinstatement of all patriots expelled
+- [29:58.159] from our military by the COVID vaccine
+- [30:00.559] mandate, which should have never
+- [30:01.919] happened. They're being returned at
+- [30:04.080] their former rank with full back pay.
+- [30:08.399] Very important. After years of not
+- [30:11.279] making our enrollment targets, to me,
+- [30:14.080] this is the biggest thing. Our military
+- [30:16.559] suddenly has the best recruiting numbers
+- [30:18.559] that perhaps they've ever had, but
+- [30:20.640] certainly in 30 years. Think of that.
+- [30:23.760] You go back six months ago, we couldn't
+- [30:26.480] get people to join the military. Nobody
+- [30:28.399] wanted your job. Now, everybody wants
+- [30:31.120] your job. So, we went from having the
+- [30:33.120] worst numbers we've ever had in terms of
+- [30:37.200] recruitment. That included police
+- [30:38.799] officers also, firefighters, but police
+- [30:41.399] officers. But in the military, think of
+- [30:43.840] that, you couldn't get people to join
+- [30:46.240] the military. And now we're brimming
+- [30:49.120] over. We have the highest numbers. We
+- [30:51.960] probably minimum 30 years, but probably
+- [30:54.960] have ever had because there's such an
+- [30:57.600] incredible spirit now in our country. We
+- [30:59.760] have a whole new spirit. And it began on
+- [31:03.200] a date, November 5th. That was election
+- [31:05.840] day. Under the Trump administration,
+- [31:08.559] America is back. And America's military
+- [31:10.960] is back, bigger, better, and stronger
+- [31:14.000] than ever before. Since my inauguration,
+- [31:17.440] service members stationed throughout
+- [31:19.200] this region have
+- [31:20.679] terminated. 83 major terrorists
+- [31:24.000] operating across Iraq, Syria, and
+- [31:26.600] Somalia, including the number two just
+- [31:29.279] recently, global leader of ISIS. And I
+- [31:32.880] knocked out ISIS as you know in my term.
+- [31:36.000] They said it was going to take four
+- [31:37.880] years. I said why four years? That's a
+- [31:40.799] long time. And then I met a general
+- [31:43.760] raisin Kane. He's now the head of the
+- [31:45.360] Joint Chiefs of Staff, right? And he was
+- [31:48.159] great. He said, uh, we could do it in
+- [31:51.120] three weeks, sir. I said, well, I was
+- [31:53.760] told four years, General, by your
+- [31:57.200] television generals in Washington, DC.
+- [32:01.200] and he didn't want to be disrespectful
+- [32:02.880] to them. He said, "Sir, I'm telling you,
+- [32:04.799] if you want, we can do it in three
+- [32:06.480] weeks." And that's what he did. He
+- [32:08.399] knocked out 100% of the ISIS caliphate
+- [32:11.919] in three
+- [32:15.100] [Applause]
+- [32:21.960] weeks. Should I tell you a little long
+- [32:24.480] boring story about that? Yes. Okay. Some
+- [32:27.919] of you have heard it because it's sort
+- [32:29.200] of a cool story. But I was wondering why
+- [32:32.480] we couldn't defeat, you know, ISIS. We
+- [32:34.640] have this great military, all these
+- [32:36.559] great jets that we have new all over the
+- [32:39.360] place, the best in the world, the
+- [32:40.799] fastest, the best. And I went out and I
+- [32:44.399] said to a certain general in Washington
+- [32:46.960] DC, a television general, not much.
+- [32:49.039] There's a real general on tele. You have
+- [32:50.640] the television guys and you have the
+- [32:52.000] real generals. And I said, general, how
+- [32:54.799] long will it uh take us? because it
+- [32:56.799] doesn't make sense. We're spending a lot
+- [32:58.159] of money on defeating ISIS and they
+- [33:00.960] don't have great equipment. They in many
+- [33:03.039] cases don't even have equipment. They're
+- [33:04.559] vicious and they are good fighters. We
+- [33:06.880] always have to respect that, sir. It'll
+- [33:09.799] take at least five years,
+- [33:13.080] sir. I said, five years? That's a long
+- [33:15.760] time. You mean we have jets, they have
+- [33:17.840] knives, and it's going to take five
+- [33:19.279] years? Yes,
+- [33:21.000] sir. I said, I don't really believe
+- [33:24.080] that. So, I did something that I've
+- [33:27.440] never done before. I said, "I want to go
+- [33:28.960] to Iraq and I want to meet with the
+- [33:31.840] people in Iraq because maybe they're
+- [33:34.720] different." But I couldn't understand
+- [33:36.600] how a large and powerful terror group
+- [33:39.679] could last so
+- [33:42.039] long. And so I scheduled a flight,
+- [33:47.200] meaning I left at 3:00 in the morning,
+- [33:49.440] was pitch black. We left very very under
+- [33:53.880] guard. We traveled through Washington
+- [33:57.919] DC. There was nobody around. Got to the
+- [34:00.240] hanger at about
+- [34:02.039] 3:15. Air Force One was waiting for us.
+- [34:04.880] Pilots, the best looking human beings
+- [34:06.640] I've ever seen. Even better looking than
+- [34:08.399] Tom Cruz and he's a friend of mine.
+- [34:10.359] Okay. These guys were central casting.
+- [34:13.280] And they could also fly. And we headed
+- [34:16.399] out about 3:30 in the morning, pitch
+- [34:19.119] black. We headed for Iraq and nobody
+- [34:22.720] knew I was going. Nobody. And we're
+- [34:25.599] flying and we're starting to get close.
+- [34:29.359] And they come to see me and they say,
+- [34:31.079] "Sir, we have a problem. What? We're
+- [34:34.079] flying over enemy territory very soon,
+- [34:36.159] sir. Could we please turn off your
+- [34:37.679] lights?" I said, "My lights? We're
+- [34:40.240] flying in Air Force One. We just spent
+- [34:43.119] trillions of dollars on fighting the and
+- [34:46.079] you can't fly in with lights on." No,
+- [34:48.720] sir. It's very very dangerous out there.
+- [34:51.520] So I said, "Oh, obviously turn them
+- [34:53.359] off." Then he comes in in addition to
+- [34:55.040] the lights. We want to turn down the
+- [34:56.480] shades. So I said, "You mean not even
+- [34:58.000] shades?" Okay, we turned down the
+- [34:59.359] shades. They said, "I want to go
+- [35:01.119] upstairs. This is 747, two levels,
+- [35:04.480] beautiful plane. Just ordered new ones,
+- [35:06.400] by the way. Beautiful new ones." And
+- [35:08.960] Boeing just, by the way, did the biggest
+- [35:10.800] order in the history of Boeing. Just uh
+- [35:13.359] did with your beautiful territory right
+- [35:16.880] here. They ordered, I think, 160 planes.
+- [35:19.359] I think it's the largest order ever for
+- [35:22.000] aircraft. So, I salute the people from
+- [35:24.160] Boeing, Kelly, and everybody. And
+- [35:25.839] General Electric, the engines are
+- [35:29.119] General Electric Super Prime, and I I
+- [35:31.839] really think it's great.
+- [35:33.119] Congratulations. But I go up to the to
+- [35:36.079] see the pilots because I love sitting
+- [35:37.680] with the pilots. I admire their skill. I
+- [35:39.680] really do. And like amazing, especially
+- [35:42.079] at a certain level. And when you when
+- [35:44.000] you fly Air Force One supposedly you're
+- [35:46.000] the best pilot. So I hope that's true by
+- [35:49.200] the way. But it seems to be I have no
+- [35:51.760] complaints. We land it's like always
+- [35:53.359] landing like glass. I've had pilots
+- [35:55.040] where when you land it's not a pretty
+- [35:56.640] picture. In fact you admire the plane so
+- [35:58.800] much for being able to keep apart you
+- [36:01.920] know. I mean these sometimes I land with
+- [36:03.599] some of these guys you're bouncing down
+- [36:06.160] the runway. I'm saying these planes are
+- [36:07.920] amazing that they don't crack up, but
+- [36:11.200] these pilots landed. I mean, and the
+- [36:13.440] 747's a hard one to land, but they're
+- [36:15.839] great. So, I go up. I see the pilots. I
+- [36:17.760] say, "Hi, captain. The guy's a handsome
+- [36:19.599] guy. We got a blonde flat top. I'd like
+- [36:23.359] to have a flat top like that. I don't
+- [36:26.320] know if the hair is good enough for
+- [36:27.520] that. I don't think so. I don't think
+- [36:29.520] I'm going to try it either." But perfect
+- [36:32.880] person. Then I look at the right. He's
+- [36:34.720] perfect. Everybody was perfect. They're
+- [36:36.480] like perfect human beings. I said, "How
+- [36:39.440] we doing, Captain?" "We're doing fine,
+- [36:41.440] sir. We'll be there in half hour, sir."
+- [36:44.320] I said, "They want the lights turned
+- [36:45.839] off, Captain." And they do, "Yes, sir.
+- [36:47.520] They're doing the right thing." Oh,
+- [36:48.720] that's great, Captain. That's that's
+- [36:50.880] great. So, now we're 15 more minutes and
+- [36:53.839] all of a sudden, and most of you know
+- [36:55.520] the sound because that's what you do.
+- [36:57.040] But you have the computer voice, a
+- [36:58.400] beautiful voice where it says
+- [37:01.240] 1,900. They're talking about feet. So
+- [37:03.920] when you're in the big planes and
+- [37:05.520] sophisticated planes, a voice comes on
+- [37:07.760] and I'm sitting back there watching them
+- [37:09.440] fly it beautifully. And I'm still not
+- [37:12.079] 100% happy with the statement that he
+- [37:14.640] agrees that the light should be turned
+- [37:16.079] off. I would have preferred that he said
+- [37:17.839] no, there's no problem, but that's not
+- [37:20.240] what he said. So we're going through and
+- [37:22.400] it goes
+- [37:27.720] 1,900
+- [37:30.359] 800 700
+- [37:33.520] Talking about feet now 700's getting
+- [37:35.440] pretty close to the ground. I don't see
+- [37:37.040] a thing. There's no lights. There's no
+- [37:39.119] runway. And I've done this a lot. And I
+- [37:40.960] always see the runway in the distance. I
+- [37:42.800] have fairly good eyes. I'd say for my
+- [37:45.359] age, extremely good eyes. And I don't
+- [37:47.920] see a
+- [37:49.480] runway.
+- [37:51.480] 600 500s. Captain, are we okay? Yes,
+- [37:55.760] sir. We'll be landing in just a few
+- [37:57.839] minutes, sir. 400. Captain, are we okay?
+- [38:01.040] I don't see a runway up there, Captain.
+- [38:03.839] Oh, we're fine, sir. No problem,
+- [38:07.000] sir.
+- [38:08.920] 300 200. I'm saying, "Captain, you sure
+- [38:12.640] we're okay
+- [38:14.119] here?" And he said, "We're fine, sir."
+- [38:17.680] And then b, you know, just lands that
+- [38:20.560] thing so beautifully. And I see you.
+- [38:23.440] They had no light. They had no nothing.
+- [38:25.119] I don't know how the hell they do it.
+- [38:26.720] Okay. All I know is we landed like and
+- [38:29.280] for him it was routine and I'm trying to
+- [38:32.240] pretend I'm cool as a cucumber. You
+- [38:34.160] know, I'm your president. I'm supposed
+- [38:36.160] to be cool as a cucumber. And I'm like,
+- [38:38.800] you know, I'm like I'm not
+- [38:42.200] happy. But after we land, I actually
+- [38:44.800] went to my people and I said, I want to
+- [38:46.480] ask you a question. I did a very brave
+- [38:48.240] thing just there. Is the president
+- [38:50.560] allowed to designate himself for the
+- [38:52.720] Congressional Medal of Honor?
+- [38:55.760] And they said, "Uh, sir,
+- [38:58.440] honestly, that wouldn't be good." I
+- [39:00.640] said, ' Okay. So, anyway, we get it. I
+- [39:02.800] kid. You know, I have to say I kid
+- [39:04.079] because the fake news is back there and
+- [39:05.680] they'll actually No, it's true. And
+- [39:08.240] they'll say that the president wanted to
+- [39:10.160] give himself the Congressional Medal of
+- [39:12.160] Honor and he was talked out of it by his
+- [39:14.480] staff. So, anyway, so I I get the door
+- [39:18.000] opens. We have a platform and I have uh
+- [39:20.880] I see down I look down and I see all
+- [39:23.119] these are all specimens just like you
+- [39:24.800] guys are all perfect people and I'm
+- [39:27.440] seeing a couple of generals, a couple of
+- [39:30.320] uh staff sergeants and drill sergeants
+- [39:33.359] but everybody's like from a movie and I
+- [39:36.880] walk out of the plane and meet the first
+- [39:40.599] gentleman and I said, "What's your
+- [39:43.119] name?" He said, "Cane, sir. My name is
+- [39:45.400] Kane." I said, "Hello, Kane. What's your
+- [39:48.000] first name? Well, they call me Raisin. I
+- [39:50.800] said, "Wait a minute." Raisin. You mean
+- [39:52.960] like Raisin Cane? Yes, sir. That's what
+- [39:55.440] they call me. General, I love you.
+- [39:57.760] You're the guy I'm looking for, General.
+- [40:00.560] You're the guy I'm looking for. So, is
+- [40:03.119] Raisin Kane? It's Daniel Kane. But
+- [40:05.200] Raisin Kane, that's what they call him.
+- [40:07.119] Then I met another general. I met a
+- [40:08.560] colonel. I met a S. We all They said,
+- [40:10.960] "Sir, would you like to rest?" He said,
+- [40:13.520] "What do you mean rest? I've been
+- [40:14.720] resting on the plane. I don't want to
+- [40:16.160] rest. What do I have to arrest for? He
+- [40:18.240] was thinking about Biden to come. Okay,
+- [40:20.800] Biden. Biden would have rested the
+- [40:22.560] entire trip. He wouldn't know. First of
+- [40:24.079] all, he wouldn't have made the trip. But
+- [40:26.480] if he landed, he would have been rested
+- [40:28.079] for about five days before he had the
+- [40:29.680] first meeting. I said, "No, let's go
+- [40:31.200] have the meeting because I want to find
+- [40:32.320] out what's going on over here. We're
+- [40:33.920] spending a lot of money and people are
+- [40:36.640] being killed. I want to find out why
+- [40:38.560] it's taken so long. So, let's go right
+- [40:40.320] away." So we went to the almost like a
+- [40:43.040] just a very secure room that was in the
+- [40:45.599] form of a boardroom, very professional.
+- [40:48.160] However, it was very highly
+- [40:49.599] sophisticated with the equipment. Best
+- [40:51.760] you can buy. We have the best you can
+- [40:53.920] buy all the time. But uh I went into the
+- [40:57.119] room and I said, "General, so they tell
+- [40:59.839] me in Washington it will take four to
+- [41:01.920] five years to defeat ISIS and I want to
+- [41:06.160] know from you. Is that true or is that
+- [41:08.480] No, sir.
+- [41:10.160] But it's not my place to say, sir,
+- [41:12.440] because they are the ones that have
+- [41:14.560] called the shots. They said, 'Well, uh,
+- [41:16.880] if you disagree, you do. It's not the
+- [41:18.960] military way, sir. You have to listen to
+- [41:20.720] them. That's a chain of command. I said,
+- [41:22.560] oh, that's great. I'm not sure I like
+- [41:24.000] that system, but how long do you think
+- [41:26.319] it would take you if I gave you total
+- [41:28.160] authority to go in and knock the hell
+- [41:30.640] out of them? So, it would take
+- [41:32.839] approximately three
+- [41:34.680] weeks. I say, say it again, General. I
+- [41:38.800] was told five years, sir, it'll take
+- [41:41.599] three weeks and you'll have time left
+- [41:43.800] over. I said, 'You got to be kidding me.
+- [41:47.359] Where the hell have you
+- [41:48.920] been? And then I sort of was really in
+- [41:51.920] disbelief because I said, you know, I've
+- [41:53.680] been hearing for so long and we've been
+- [41:55.200] fighting it. How long were we fighting?
+- [41:57.200] 18 years or something. And here's a guy
+- [41:59.599] telling me three weeks. So I said,
+- [42:02.000] General, how do you do it in three
+- [42:03.200] weeks? He says, "Well, sir, I don't like
+- [42:05.440] saying this because I do have people in
+- [42:07.040] Washington, but I'm going to say it. We
+- [42:09.200] have portable stations. We have portable
+- [42:11.040] runways. We have runways all over the
+- [42:12.720] place. We have other bases. And we're
+- [42:14.880] being forced to fight them from a very
+- [42:16.560] far away distant base, which is right
+- [42:18.880] here. And by the time we get there, we
+- [42:21.119] have to come back because there's no
+- [42:22.560] fuel. And we're way too far away, sir.
+- [42:25.920] And they're over here." And he shows me
+- [42:27.520] a map. And we're over here. And we're
+- [42:30.240] all the way here, sir. I said, 'Why
+- [42:32.560] didn't they use the other bases?' Well,
+- [42:34.880] uh, they didn't want to disturb the
+- [42:36.800] country where those bases were located.
+- [42:38.720] I said, 'We give those countries
+- [42:40.240] billions of dollars. We can disturb them
+- [42:42.480] a little bit. They wouldn't know what
+- [42:44.160] we're doing anyway. Are they going to
+- [42:45.520] know where the planes are going? Not
+- [42:46.960] really, sir. I said, "So, what would you
+- [42:49.359] do different?" He said, "Well, sir, I'd
+- [42:51.200] start from here and I'd get He went
+- [42:52.720] through a whole thing. Then I'd hit him
+- [42:55.359] from the left. I'd hit him from the
+- [42:57.280] right. I'd hit him from underneath. I'd
+- [42:59.839] hit him from a top. I'd hit him from
+- [43:02.720] every angle, sir. It hit him so hard and
+- [43:04.960] so fast they wouldn't know what the hell
+- [43:06.720] is
+- [43:07.640] happening. I said, "And you think you
+- [43:10.079] can do that in three weeks?" "Yes, sir."
+- [43:12.319] And we're going to have time left
+- [43:14.040] over. And I said, "Let me think about
+- [43:16.560] it, General." I went back to Washington
+- [43:19.359] and I spoke to a couple of people and
+- [43:21.440] they said, "I don't think so, sir. I
+- [43:23.599] think you're talking about years of
+- [43:25.040] fighting."
+- [43:26.560] And
+- [43:27.560] then I called the general and I said,
+- [43:30.079] "So, General, you still think you can do
+- [43:31.760] it in three weeks? A lot of people think
+- [43:33.680] you can't even come close to that, sir.
+- [43:36.400] We'll have time left
+- [43:37.960] over." I said, "Go to it, General. Go to
+- [43:41.520] it. Thank you,
+- [43:43.480] sir." And he hit the hell out of him. He
+- [43:47.280] hit the hell out of him. And he calls me
+- [43:50.000] up. Sir, we have a lot of these
+- [43:56.760] people and if you want I can finish it
+- [43:59.599] off right now, sir. I said, well, I
+- [44:03.040] don't know. That's a lot. It's, you
+- [44:04.720] know, it's a lot of people. Well, these
+- [44:06.480] people are not good people, sir. These
+- [44:09.200] are not good people. You'll feel better
+- [44:10.880] about it. Well, they're not good people,
+- [44:13.200] but they're people, aren't they? And he
+- [44:14.640] goes, I said, you know what? Why don't
+- [44:17.040] you buzz them for a little while and
+- [44:18.480] maybe after a day or two of buzzing
+- [44:20.000] them, they'll surrender. They don't know
+- [44:21.440] about surrendering, sir. Well, maybe
+- [44:23.119] they'll raise the white flag. They don't
+- [44:24.640] have a white flag,
+- [44:26.359] sir. He said, "Well, give it a shot
+- [44:28.800] anyway." He said, "All we're going to do
+- [44:30.160] is take a couple of bullet holes in our
+- [44:32.000] wings. You guys know about that, right?"
+- [44:34.640] And I said, "Well, let's give it a
+- [44:36.960] shot." And he calls up and says, "Let me
+- [44:38.880] do the job, sir." I said, "All right, do
+- [44:41.920] the job." And we defeated 100% of the
+- [44:45.680] ISIS caliphate in just a very short
+- [44:48.160] little period of time. Totally different
+- [44:50.400] from what I was told in Washington DC by
+- [44:53.599] a bunch of freaking losers. Okay?
+- [44:57.880] Losers. And that's the beginning. And I
+- [45:01.200] took that general and made him the head
+- [45:02.720] of the joint chiefs of staff as I told
+- [45:04.720] you. And he's going to be great. And
+- [45:06.560] he's highly respected by everybody. Just
+- [45:08.800] a different kind of respect. It's a real
+- [45:10.720] respect. But we can do our job better
+- [45:14.160] than anybody in the world. But you have
+- [45:15.920] to have the leadership of the top at the
+- [45:17.839] top. And we're doing that. We're
+- [45:19.760] finding, you know, we uh we let a lot of
+- [45:22.000] four stars go. A lot of four. We had
+- [45:24.480] more four stars. We had I think 425 four
+- [45:27.200] stars in World War
+- [45:29.160] II, which by the way, we won in World
+- [45:32.319] War II. We had
+- [45:34.839] 187
+- [45:36.599] generals and we had like 425 generals
+- [45:40.240] now.
+- [45:41.920] without really a war. And so we made a
+- [45:45.440] lot of changes and we have the best. We
+- [45:47.680] have the best. We figured we worked hard
+- [45:49.839] to figure the best, the real ones. We
+- [45:51.440] want the real generals, not the fake
+- [45:53.880] generals and not the political generals,
+- [45:56.720] too. So, we have something that's
+- [45:58.960] special, but it can show you really what
+- [46:01.920] happened. And we also just apprehended,
+- [46:03.920] as an example, the ISIS terrorist of uh
+- [46:07.880] the
+- [46:09.880] Alreg, the one that caused all of the
+- [46:12.960] problems in Afghanistan, caused
+- [46:17.319] unbelievable destruction. We lost 13
+- [46:20.720] great soldiers. I got to know the
+- [46:22.240] parents and the families of those
+- [46:23.839] soldiers. But you know what they don't
+- [46:25.280] say is the ones who were so horribly
+- [46:27.160] wounded, which were many, and hundreds
+- [46:30.480] of people were killed from the other
+- [46:32.000] side. I always include that. That should
+- [46:33.760] have never happened. That whole mess
+- [46:35.280] should have never happened. I think it
+- [46:36.880] was the most embarrassing day in the
+- [46:38.480] history of our country. And uh we're not
+- [46:41.119] going to have things like that happen
+- [46:42.400] anymore. And again, we should have kept
+- [46:44.480] we should have kept the air base. We
+- [46:47.440] should have kept it. We left it go. And
+- [46:50.560] we left. And it was a very embarrassing
+- [46:52.960] moment in the history of our country.
+- [46:54.400] That'll never happen again. There are a
+- [46:55.839] lot of people that said that Russia went
+- [46:58.119] into Ukraine. When they saw that, they
+- [47:01.680] said, "Wow, we didn't think that was
+- [47:03.839] possible. But it's not possible any
+- [47:06.000] longer." I could tell you that's another
+- [47:07.520] one would have never happened if I were
+- [47:09.200] president. Russia would have never gone
+- [47:10.960] into Ukraine. All of those things, they
+- [47:12.800] would have never happened. But the
+- [47:14.720] Afghanistan withdrawal, not the fact
+- [47:16.640] that they withdrew, but the fact that
+- [47:19.240] they the way they did it was so horrible
+- [47:22.319] and so embarrassing. So we brought this
+- [47:26.520] uh horrible person to justice to
+- [47:29.599] American justice. We we caught the
+- [47:31.200] person that that set off that
+- [47:34.280] bomb. And all of this is possible
+- [47:37.280] because of the work that you do with
+- [47:39.040] partnerships that you forge. In this
+- [47:41.280] case, it was Pakistan. And by the way, I
+- [47:44.880] don't want to say I did, but I sure as
+- [47:47.200] hell helped settle the problem between
+- [47:50.000] Pakistan and India last week, which was
+- [47:52.960] getting more and more hostile, and all
+- [47:55.599] of a sudden you'll start seeing missiles
+- [47:57.920] of a different type, and we got it uh
+- [48:01.680] settled. I hope I hope I don't walk out
+- [48:03.760] of here and two days later find out that
+- [48:05.440] it's not settled, but I think it is
+- [48:07.000] settled. And we talked to them about
+- [48:09.200] trade. Let's do trade instead of do war.
+- [48:12.560] And Pakistan was very happy with that
+- [48:14.960] and India was very happy with that. And
+- [48:17.680] I think they're on the way. You know,
+- [48:19.359] they have been fighting for about a
+- [48:20.640] thousand years in all fairness. So I
+- [48:23.440] said, you know, I could settle that up.
+- [48:25.839] I could settle anything. Let me settle
+- [48:28.480] it up. Let's get them all together. How
+- [48:30.240] long have you been fighting? About a
+- [48:32.319] thousand years. Oh, that's a lot. I'm
+- [48:34.400] not sure about that. I'm not sure about
+- [48:36.400] settling. That's a tough one. They've
+- [48:38.240] been fighting for a long time. But uh we
+- [48:41.359] got that settled. Nobody boy everybody
+- [48:44.319] was very happy. I'll tell you that
+- [48:45.920] looked like it was really going to be
+- [48:47.280] escalating out of control. But with us
+- [48:49.440] today is the first sergeant of the 379th
+- [48:54.359] wing, Master Sergeant Patrick Elders.
+- [48:59.040] Patrick, wherever you may be, where are
+- [49:00.720] you, Patrick?
+- [49:07.839] Handsome guy.
+- [49:11.000] Wow. I'm looking at him from here and it
+- [49:14.960] says after having served 22 years, he's
+- [49:17.359] a a
+- [49:18.680] lot. How long have you been in Patrick?
+- [49:23.599] Wow, that's amazing. It looks like he's
+- [49:25.200] like 25 years old. I'm saying 22 years.
+- [49:28.000] They said we must have this mixed up. We
+- [49:29.920] don't have it mixed up. I guess when you
+- [49:32.000] love what you do, you stay young, right?
+- [49:34.160] And he loves what he does. No doubt
+- [49:36.079] about it. But having served over 22
+- [49:38.079] years in the Air Force, he's one of his
+- [49:41.040] uh right now this is his sixth
+- [49:43.480] deployment. But this time it's a little
+- [49:45.680] different because his stepson Airman
+- [49:47.599] first class Ashton Inman is on his own
+- [49:52.079] first ever deployment nearby in Kuwait
+- [49:55.359] right now in Kuwait which is really
+- [49:58.559] incredible. Master Sergeant Elders is
+- [50:00.960] proud that two generations of his family
+- [50:03.040] are now serving the same mission in the
+- [50:05.040] same theater protecting the same great
+- [50:08.000] American flag. So say hello to him.
+- [50:10.400] Thank you very
+- [50:14.359] much. Very nice. A lot of stories like
+- [50:20.119] that. A lot of stories like that. And I
+- [50:23.119] want to thank Airman First Class Inman
+- [50:25.440] also very much. It's uh that's a great
+- [50:28.240] that's a great story. That's a great
+- [50:30.240] story and we have many of them. I I
+- [50:32.000] guarantee in this room right now there
+- [50:33.280] are many such stories. There are several
+- [50:35.599] married couples serving side by side in
+- [50:37.839] uniform at this base including Staff
+- [50:39.920] Sergeants Tyler and Paige Duck. Where is
+- [50:43.280] Tyler and Paige?
+- [50:45.370] [Applause]
+- [50:53.440] For years they grew their relationship
+- [50:55.920] while Paige was deployed in the UK and
+- [50:58.640] Tyler was halfway around the world at
+- [51:01.040] Joint Base Elmenorf Richardson in Alaska
+- [51:04.800] conquering a 14-hour time difference.
+- [51:06.880] That's a lot of time difference. And now
+- [51:09.119] they're together at Al
+- [51:11.559] Yudid. And it's really great. So Staff
+- [51:14.160] Sergeants, congratulations. It's
+- [51:15.920] fantastic. The American people never
+- [51:18.040] forget that our service members and
+- [51:20.480] their families make incredible
+- [51:22.079] sacrifices each and every day so that
+- [51:24.319] all Americans can be safe and be free.
+- [51:27.440] And we love our amazing military
+- [51:29.520] families. Our military families are as
+- [51:31.599] good as you can get. The men and women
+- [51:33.839] here today are part of a noble tradition
+- [51:35.839] of service that has been passed down
+- [51:37.760] from one generation of Americans to the
+- [51:40.640] next. and your spirit and courage and
+- [51:43.280] sacrifice has always been there when we
+- [51:46.079] needed you the most. You're always there
+- [51:47.920] when we need you the most. With us today
+- [51:50.559] is Master Sergeant Michael Schlow, who
+- [51:54.079] happens to be from a small town in a
+- [51:56.720] place called Butler, Pennsylvania. Has
+- [51:58.880] anybody heard of Butler,
+- [52:01.400] Pennsylvania?
+- [52:03.079] Yeah. Michael is a member of the Air
+- [52:05.920] Force Reserve as well as Butler County
+- [52:08.400] Corrections Officer. And last July 13th,
+- [52:11.440] he attended the rally where an assassin
+- [52:13.599] tried to take my life. He gave it a
+- [52:15.720] shot. Not good. I was someday. As soon
+- [52:19.920] as the shots were fired, Michael raced
+- [52:22.079] to direct law enforcement toward the
+- [52:23.920] sniper's perch, then worked to evacuate
+- [52:26.480] the rest of the crowd in a very safe
+- [52:28.400] manner. But Master Sergeant Schllo would
+- [52:31.200] be the first to tell you who the real
+- [52:33.359] hero was that day. He personally knew
+- [52:36.319] and really liked.
+- [52:38.280] Veteran firefighter, also a veteran of
+- [52:41.680] the military, great veteran of the
+- [52:43.359] military who laid down his
+- [52:45.240] life
+- [52:46.839] for his country. Really laid down his
+- [52:49.920] life for his country. His whole life was
+- [52:52.079] about his
+- [52:53.240] country. Corey
+- [52:55.800] comparator. And he's become somewhat of
+- [52:58.160] a legend, I will tell you. He took a
+- [53:00.160] hard shot. He took a hard shot guarding
+- [53:03.680] his family. Master Sergeant Schllo, your
+- [53:07.920] commitment represents the very best in
+- [53:10.079] America. Thank you for your incredible
+- [53:12.480] service that day and forever because
+- [53:15.760] that day was a horrible day, but you
+- [53:18.400] acted with incredible bravery. We've
+- [53:20.480] gotten reports about what you did. It
+- [53:23.040] was really amazing and I personally
+- [53:24.800] appreciate it. That was a that was a
+- [53:26.640] rough day. We don't want to have days
+- [53:28.079] like that.
+- [53:29.839] But Corey was an incredible guy. Lost
+- [53:31.839] his life guarding his wife and children.
+- [53:35.359] Every American warrior here today
+- [53:37.200] inherits the legacy of exceptional
+- [53:39.359] patriots who have defended our freedom
+- [53:41.280] for nearly 250 years. You carry on the
+- [53:44.960] glorious tradition of the heroes of
+- [53:46.960] Lexington and Concord, Gettysburg and
+- [53:50.119] Bellowwood, Normandy and Midway. You
+- [53:53.920] embody the spirit of the soldiers who
+- [53:56.240] hoisted the flag over Fort Mckendry and
+- [53:59.280] the Marines who planted the stars and
+- [54:01.520] stripes on the summit to Ewoima. That
+- [54:04.960] was a rough attack. You carry forward
+- [54:07.920] the mission of generations of Americans
+- [54:10.240] before you who marched through halls of
+- [54:13.359] gunfire, treked over rugged mountains,
+- [54:15.920] stormed across scorching deserts, sailed
+- [54:18.800] through hostile waters, conquered
+- [54:20.400] unknown dangers, and poured out their
+- [54:23.040] blood and guts and battlefields all over
+- [54:25.839] the world. The military is
+- [54:29.960] incredible. And we won our independence.
+- [54:32.880] We preserved our union, protected our
+- [54:35.440] way of life, defeated fascism, crushed
+- [54:38.319] terrorism, liberated millions and
+- [54:40.640] millions of people from bondage, and
+- [54:43.599] brought communism to its knees. It's
+- [54:46.640] what we did. And now we're going to
+- [54:49.359] defend America from all enemies,
+- [54:52.000] overcome all obstacles and dangers, and
+- [54:54.240] as one nation, we're going to build a
+- [54:56.319] future of peace and prosperity for
+- [54:59.480] generations to come. Together we will
+- [55:03.200] stand strong. We will stand proud. We
+- [55:06.240] will live free. And we will fight fight
+- [55:09.359] fight and win win win.
+- [55:11.970] [Applause]
+- [55:23.880] So, my trip is four and a half days, but
+- [55:27.359] this is the one I was so looking forward
+- [55:29.200] because I'm with the people that I
+- [55:30.640] really love and respect. We love and
+- [55:33.200] respect you. This is what you're doing,
+- [55:35.440] the service you do for your country. You
+- [55:37.280] keep us safe. There is no more important
+- [55:41.040] profession. And I was so proud to see
+- [55:44.000] those reports coming in just a few days
+- [55:45.920] ago saying that the enrollment is at the
+- [55:48.000] highest level ever. Especially when I
+- [55:49.839] had a suffer running against a group of
+- [55:52.559] people that were very
+- [55:54.760] inappropriate where they allowed that
+- [55:57.599] reputation of what you stood for and
+- [55:59.520] what you stand for to deteriorate to a
+- [56:03.440] point where we weren't able to recruit.
+- [56:05.680] So just remember this, you have a job
+- [56:07.599] now that everybody wants. Everybody
+- [56:11.520] wants to be doing what you're doing.
+- [56:13.359] It's a special job. And I am so proud
+- [56:16.000] when I saw those numbers come across the
+- [56:18.079] board that we set the record for
+- [56:20.079] enrollment in the military. And we took
+- [56:22.799] that from the exact opposite just six
+- [56:26.319] months before. I was very, very proud of
+- [56:28.559] that. We have a great country. We have a
+- [56:30.960] proud country. We have a country that's
+- [56:34.000] respected all over the world. And as I
+- [56:36.160] said before, a year ago we were laughed
+- [56:38.799] at, but nobody's laughing at our country
+- [56:40.960] anymore. We're the most respected
+- [56:43.200] country anywhere in the world. And thank
+- [56:46.000] you very much. And enjoy your lives. And
+- [56:48.079] God bless America. Thank you very much.
+- [56:50.240] Thank you.
+- [56:54.010] [Music]
+- [57:13.170] [Applause]
+- [57:15.860] [Music]
+- [57:20.400] There's no need to feel down. I said
+- [57:22.799] young
+- [57:23.960] man off the ground. I
+- [57:27.240] said you're in a new town. There's no
+- [57:30.400] need to be
+- [57:34.520] unhappy. There's a place
+- [57:39.559] I
+- [57:42.200] do and I'm sure you will find many ways
+- [57:47.750] [Music]
+- [57:50.599] to fun.
+- [57:55.119] It's fun to stay at the YMCA.
+- [58:00.930] [Music]
+- [58:06.480] It's hard to stay

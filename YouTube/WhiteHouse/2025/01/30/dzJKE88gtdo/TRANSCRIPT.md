@@ -1,0 +1,388 @@
+<!-- source: https://www.youtube.com/watch?v=dzJKE88gtdo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dzJKE88gtdo -->
+<!-- date_published: 2025-01-30T22:43:26+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:48.672312+00:00 -->
+
+# Transcript: 01/30/25: President Trump Signs Executive Orders
+
+- [00:00.280] okay thank you very much for seeing me
+- [00:03.320] twice today it's going to be a quite an
+- [00:06.560] important signing so we thought we'd let
+- [00:08.880] you watch uh if we could I'd ask uh will
+- [00:13.080] to explain the first but Mo really more
+- [00:16.400] importantly explain the second and we'll
+- [00:18.520] start signing go ahead please yes sir
+- [00:20.080] just two items for your signature today
+- [00:21.760] the first is the formal commission uh
+- [00:24.240] appointing Chris roselo to be the Deputy
+- [00:27.119] Administrator of the Federal Aviation
+- [00:28.880] Administration right and since the uh
+- [00:30.960] commissioner position is is uh excuse me
+- [00:33.399] since the administrator position is
+- [00:34.760] currently vacant he will act as the
+- [00:36.920] administrator uh since he's now been
+- [00:38.920] appointed deputy and he's a very capable
+- [00:41.840] guy extremely experienced in aviation
+- [00:44.360] and highly regarded in the industry and
+- [00:46.440] in in
+- [00:52.680] government okay thank you sir thank you
+- [00:56.600] second for your signature we have a
+- [00:58.079] presidential memorandum titled immediate
+- [01:00.480] assessment of Aviation safety uh in
+- [01:03.120] light of the Damage Done uh to Aviation
+- [01:05.519] safety by the Biden administration's Dei
+- [01:08.360] and woke policies uh what this
+- [01:10.600] presidential memorandum orders is for
+- [01:12.479] your Secretary of Transportation and FAA
+- [01:15.439] administrator in this case acting FAA
+- [01:17.759] administrator uh to basically ensure
+- [01:20.119] that we are actively undoing all of that
+- [01:22.520] damage that we are assessing how much
+- [01:24.680] damage was done and that we're ensuring
+- [01:26.960] that people hired within the FAA in
+- [01:29.400] keeping with your memorandum of January
+- [01:31.240] 21st are only the most outstanding
+- [01:34.079] capable people for the jobs that they
+- [01:36.000] are being hired into and other words
+- [01:38.399] competence yes sir elevating competence
+- [01:40.960] over everything else instead of uh the
+- [01:43.600] Dei policies that were pursued by the
+- [01:45.640] Biden
+- [01:47.040] Administration I think everyone
+- [01:49.079] understands
+- [01:51.600] that and Obama yes both of
+- [01:55.680] them okay but Biden much worse not even
+- [01:58.799] a contest what they done is just crazy
+- [02:01.280] in so many other
+- [02:03.439] ways okay Mr President to be clear are
+- [02:06.799] you saying race or gender play a role in
+- [02:09.399] this tragedy it may have I don't know uh
+- [02:11.879] incompetence might have played a role
+- [02:14.000] we'll we'll let you know that but uh we
+- [02:16.280] want the most competent people we don't
+- [02:17.959] care what race they are we want the most
+- [02:20.599] competent people especially in those
+- [02:22.440] positions and uh you know you're talking
+- [02:24.920] about extremely complex things and if
+- [02:28.440] they don't have a a great brain a great
+- [02:31.160] power of the brain they're not going to
+- [02:32.640] be very good at what they do and bad
+- [02:34.120] things will happen Mr President there's
+- [02:35.879] long been concerns about the amount of
+- [02:37.560] congestion out of DCA Airport do you
+- [02:39.319] think that there's too many flights
+- [02:40.560] coming out of that airport no I think we
+- [02:42.159] need very smart people uh running the
+- [02:44.319] flights and doing it you know the ones
+- [02:46.560] that aren't good when they'll either do
+- [02:48.680] one of two things they'll have too many
+- [02:50.159] coming in and they can't handle it or
+- [02:52.519] they'll have the people waiting up in
+- [02:54.480] the air which everyone's been caught in
+- [02:56.319] that situation and circling the airports
+- [02:58.680] for an hour and that's no good
+- [03:02.680] military helicopter training flights
+- [03:04.640] that are flying around national airport
+- [03:06.400] all the time what's your view should
+- [03:07.599] they well my view is fine if they're in
+- [03:09.400] the right locations and if they're not
+- [03:11.400] at the same levels I mean if a plane
+- [03:14.840] coming in is at 300 feet or 400 feet and
+- [03:18.159] a helicopter's training at 300 or 400
+- [03:20.480] feet why wouldn't they be up 500 feet
+- [03:23.360] higher so I certainly and that to a
+- [03:26.080] certain extent is the air traffic
+- [03:27.680] controller
+- [03:30.040] wait please wait just a second you feel
+- [03:32.040] like what happened last night was
+- [03:34.200] prevent I do yeah oh absolutely and uh
+- [03:38.040] obviously uh that was something that
+- [03:40.439] should not have happened and we're not
+- [03:42.280] going to let it happen again yes please
+- [03:44.000] Mr President uh on a slightly different
+- [03:46.319] subject on your Canada and Mexico
+- [03:48.360] tariffs will oil be included or excluded
+- [03:51.840] from those tariffs so will be announcing
+- [03:56.000] the tariffs on Canada and Mexico for a
+- [03:59.079] number of reasons
+- [04:00.560] number one is the people that have
+- [04:02.079] poured into our country so horribly and
+- [04:04.480] so much number two are the drugs fentol
+- [04:06.879] and everything else that have come into
+- [04:08.280] the country and number three are the
+- [04:10.360] massive uh subsidies that we're giving
+- [04:12.680] to Canada and to Mexico in the form of
+- [04:15.280] deficits and I'll be uh putting the
+- [04:18.959] Tariff of 25% on Canada and separately
+- [04:22.280] 25% on
+- [04:24.000] Mexico and we will really have to do
+- [04:26.880] that because we have very big deficits
+- [04:28.639] with those countri those tariffs may or
+- [04:31.080] may not rise with time and will oil be
+- [04:34.080] part of that because we get oil from can
+- [04:37.120] oil is going to have nothing to do with
+- [04:38.560] it as far as I'm concerned oil has
+- [04:40.280] nothing to do with
+- [04:43.680] it Guan Bay you want 30 new th 30,000
+- [04:48.120] new beds there is there a possibility
+- [04:50.120] that will increase or is 30,000 it could
+- [04:52.080] increase yes what what would be the max
+- [04:53.840] it depends but countries that won't take
+- [04:55.880] back their criminals that they sent into
+- [04:58.280] us you know they sent them to us they
+- [04:59.919] put them into the Caravans and they came
+- [05:02.639] in as sure as you're standing that they
+- [05:04.199] were sent by those countries and then
+- [05:06.240] they're going to be met very harshly
+- [05:07.560] with sanctions Etc what are you hoping
+- [05:09.639] to help Ono Bay this new facility up and
+- [05:12.120] running it'll be up pretty quickly how
+- [05:13.759] much do you think it's going to cost uh
+- [05:15.280] not very much which a lot of the
+- [05:17.320] structure is already there as you know
+- [05:19.160] Mr you said that inconfidence may have
+- [05:21.520] played a role are you aware of any
+- [05:24.080] performance issues or disciplinary
+- [05:26.240] actions that were taken against anyone
+- [05:28.120] who was working the tower last or flying
+- [05:30.440] the plane no no and I hope that's not
+- [05:32.880] the case in this case but certainly over
+- [05:34.720] the years it's been the case and uh it's
+- [05:36.880] the case with respect to close calls and
+- [05:39.039] it's the case with respect to circling
+- [05:40.720] for hours on end you know planes Circle
+- [05:43.840] a lot and they Circle because the people
+- [05:46.680] uh bringing them down these people that
+- [05:48.319] have to be very very smart and it's not
+- [05:50.759] based on anything other than the brain
+- [05:53.319] we need the smartest people we need uh
+- [05:55.759] both psychologically smart and just
+- [05:57.520] brilliant period and we are going to
+- [06:00.039] have them in our in our control Towers
+- [06:02.240] we are going to have we are going to
+- [06:04.319] have the most competent people in the
+- [06:06.160] country in our control Towers not people
+- [06:08.199] that are there for any other
+- [06:09.840] reason you said that you envision
+- [06:12.199] sending the 80 something thousand IRS
+- [06:15.039] agents hired under bid to the B what
+- [06:18.919] role do you see them playing well we'll
+- [06:20.400] see I mean I may do that or I may use
+- [06:22.360] different people but we're going to send
+- [06:23.800] more we're going to give the border
+- [06:24.919] patrol some help uh although now if you
+- [06:27.599] look uh they've taken in the lowest
+- [06:29.599] number since my Administration the
+- [06:31.319] numbers are very low and uh at that
+- [06:34.199] level we don't need so much help people
+- [06:36.440] know not to come because if they come
+- [06:38.199] they're not going to make it in and
+- [06:39.240] they're going to be shipped
+- [06:40.720] out Egypt president and the King of
+- [06:43.160] Jordan have both said that they won't
+- [06:45.000] take in displac people from Gaza like
+- [06:47.599] you suggested is there anything you can
+- [06:49.560] do to make them do that I mean tariffs
+- [06:51.720] against those countries for example uh
+- [06:54.560] they will do it they will do it
+- [06:59.759] they're going to do it okay we do a lot
+- [07:02.560] for them and they're going to do it Mr
+- [07:04.639] President you've offered over two
+- [07:06.360] million federal workers the option to
+- [07:08.440] resign immediately there are 50,000 FAA
+- [07:11.879] employees does this tragedy give you
+- [07:14.479] reason to reconsider that option of
+- [07:17.000] resignations because of
+- [07:20.160] concerns if people aren't coming to work
+- [07:22.919] if they're not going to come into the
+- [07:24.240] office and report as per the date that
+- [07:26.280] you know what it is everybody knows what
+- [07:28.199] the date is it's been very well
+- [07:29.919] documented then they're going to be
+- [07:31.759] terminated you're not going to be you're
+- [07:33.560] not concerned though that if many people
+- [07:36.319] take that offer there could be shortages
+- [07:38.680] that could bead and they'll be replaced
+- [07:40.400] with very competent people we have a lot
+- [07:42.319] of competent people in this country have
+- [07:44.120] you spoken to any of the families of the
+- [07:45.960] victims of the plan crash I don't want
+- [07:47.240] to comment on that do you have a plan to
+- [07:49.319] go visit the site I have a plan to visit
+- [07:52.319] not the site because uh what did you
+- [07:54.960] tell me what's the site the water to me
+- [07:57.440] to go swimming down there uh I don't
+- [07:59.840] have a plan to do that but I will be
+- [08:01.759] meeting with some people that were very
+- [08:03.759] badly hurt with their family member
+- [08:05.599] obviously but I'll be meeting with some
+- [08:07.039] of the families youth citizenship sir do
+- [08:10.000] you believe that there are five votes on
+- [08:12.280] a supreme court that would uphold your
+- [08:14.280] position one what five votes on a
+- [08:16.680] supreme court what position Birthright
+- [08:19.360] citizenship I think so yeah look
+- [08:22.319] Birthright citizenship was if you look
+- [08:25.199] back when this was passed and made that
+- [08:28.560] was meant for the children of slaves
+- [08:30.919] this was not meant for the whole world
+- [08:32.440] to come and aile into into the United
+- [08:34.360] States of America everybody coming in
+- [08:36.839] and totally un unqualified people with
+- [08:40.279] perhaps unqualified children this wasn't
+- [08:42.959] meant for that this was meant when it
+- [08:44.760] was originally done for the children of
+- [08:48.000] slaves and that was a very good and
+- [08:50.640] Noble thing to do and I'm in favor of
+- [08:52.760] that 100% but it wasn't meant for the
+- [08:55.120] entire world to occupy the United States
+- [08:58.519] requiring a con ual amendment that would
+- [09:00.440] be I just think that we'll end up
+- [09:02.320] winning that court in the Supreme Court
+- [09:04.160] I think we're going to win that case and
+- [09:06.279] I look forward to winning it this has
+- [09:07.880] been going on we're at that level we're
+- [09:09.839] the only country in the world that does
+- [09:11.839] this there's no other country at this
+- [09:14.240] level there's no other country in the
+- [09:15.959] world that does it it's crazy Mr
+- [09:18.279] President if uh 64 people lost their
+- [09:21.839] lives last night um if you aren't
+- [09:25.399] confident that Dei had any role why
+- [09:29.440] bring it up well all I'm talking about
+- [09:32.200] is competence and we want in the uh in
+- [09:36.959] that particular position we have to have
+- [09:39.079] the most competent people in our country
+- [09:41.240] because we're talking about lives now it
+- [09:44.279] may or may not have had to do but I
+- [09:46.240] don't like the fact that the helicopter
+- [09:48.120] was at the exact same level as the
+- [09:52.120] airplane the helicopter should have
+- [09:54.760] been 1,000 ft or 500 ft above it
+- [10:00.000] or something below it the plane was at 3
+- [10:02.560] to 400 ft or the plane should have been
+- [10:05.320] stopped because the helicopter could
+- [10:07.160] have stopped the plane can't be stopped
+- [10:09.399] but the plane was on a schedule that was
+- [10:11.320] you know was a a track they call it a
+- [10:14.040] track and it's the same track that every
+- [10:16.399] other plan's used for many years it was
+- [10:18.160] going down and landing and the
+- [10:21.279] helicopter got in its way and if the
+- [10:24.440] helicopter was higher or lower or
+- [10:26.480] stopped or turning left or turning right
+- [10:29.079] at a quicker time I mean it turned but
+- [10:31.600] it turned when it was too late a tragic
+- [10:34.360] a tragic story so I don't know do you
+- [10:37.360] blame it on the air traffic controller
+- [10:39.079] too in addition to the pilots maybe the
+- [10:41.480] Pilot's fault they should have seen it I
+- [10:43.040] would have thought they should have seen
+- [10:44.160] it because it was a plane that was
+- [10:46.040] loaded up with lights and everybody you
+- [10:49.120] can see it from Kennedy Center you can
+- [10:51.279] see it very easily so all I want is the
+- [10:54.440] most competent people in our country to
+- [10:56.040] be air traffic controllers it's a very
+- [10:57.880] important position and other Physicians
+- [10:59.720] too by the way we're not only talking
+- [11:01.120] about that we're talking but air traffic
+- [11:03.680] controllers maybe in particular they
+- [11:05.600] have to be brilliant with computers
+- [11:07.920] brilliant with Graphics they have to be
+- [11:10.440] uh psychologically really really
+- [11:13.120] smart and uh you know there are a lot of
+- [11:16.160] people that wouldn't be able to do that
+- [11:18.800] you talk about tariffs on Canada and
+- [11:21.560] Mexico 25% that's coming on Saturday
+- [11:24.600] that's coming on the 1 Saturday but no
+- [11:27.800] oil tar no oil
+- [11:29.880] no I don't well I didn't say that you
+- [11:32.040] said that no I I don't want to Mis no we
+- [11:34.800] may or may not we're going to make that
+- [11:36.240] determination probably tonight on oil
+- [11:39.600] yeah because they send us oil we'll see
+- [11:41.399] it depends on what the price is if the
+- [11:43.839] oil is properly priced if they treat us
+- [11:47.000] properly which they don't look Mexico
+- [11:48.800] and Canada have never been good to us on
+- [11:51.920] trade they've treated us very unfairly
+- [11:53.639] in trade and we will uh be able to make
+- [11:56.680] that up very quickly because we don't
+- [11:58.200] need the products that they they have we
+- [11:59.920] have all the oil you need we have all
+- [12:02.200] the trees you need meaning the lumber we
+- [12:05.240] have more than almost anybody and those
+- [12:07.360] two categories in oil we have more than
+- [12:09.200] anybody and and we don't need anybody's
+- [12:11.160] trees we have to free up some of the uh
+- [12:14.240] some of the tree areas that we have we
+- [12:15.920] have great Lumber in this country we
+- [12:17.519] have to free them up environmentally
+- [12:19.160] which I can do very quickly but we don't
+- [12:21.399] need what they have and for us to be
+- [12:23.720] subsidizing Canada to the tune of$
+- [12:26.880] 175 billion dollar a year and
+- [12:29.240] subsidizing Mexico to the tune of 250
+- [12:32.600] billion $300 billion a year and Mexico
+- [12:36.440] is a method of China sending in its
+- [12:38.600] product and with China I'm also thinking
+- [12:41.120] about something because they're sending
+- [12:42.920] fentol into our country and because of
+- [12:45.800] that they're causing us hundreds of
+- [12:47.279] thousands of deaths so China is going to
+- [12:49.880] end up paying a tariff also for that and
+- [12:51.920] we're in the process of doing that Mr
+- [12:54.839] we'll make that determination what it's
+- [12:56.399] going to be but China has to stop
+- [12:59.240] sending fentanyl into our country and
+- [13:01.199] killing our people Mr President Israeli
+- [13:03.880] media has reported that conversations
+- [13:05.880] between uh n government and the White
+- [13:08.160] House have signaled that the US may be
+- [13:10.600] about to pull its troops out of Syria
+- [13:12.600] have you made a decision to pull your I
+- [13:14.560] don't know who said that I mean I don't
+- [13:16.000] know who said that but we'll make a
+- [13:17.800] determination on on that we're not we're
+- [13:21.000] not getting we're not involved in Syria
+- [13:23.360] Syria is its own mess they got enough
+- [13:25.120] messes over there they don't need us
+- [13:26.720] involved in everyone Mr President there
+- [13:28.680] SED of staff at the control tower at DCA
+- [13:32.160] last night you were aware of well that's
+- [13:34.560] part of competence right there they
+- [13:36.399] shouldn't have that happen uh right
+- [13:38.920] there is what I'm talking about
+- [13:41.519] competence would be you're not going to
+- [13:42.959] have a shortage but if you had the right
+- [13:44.399] people you wouldn't need as many people
+- [13:46.800] either do you know if there was a
+- [13:48.480] shortage last night or not I don't know
+- [13:50.440] no I don't know you're telling me
+- [13:51.560] something Mr you said earlier today that
+- [13:53.800] you had not spoken to Putin about this
+- [13:56.560] when was the last time you spoke with
+- [13:58.160] him and has president G um responded to
+- [14:01.600] your ask to help pressure to end yeah I
+- [14:04.680] won't comment on either of them but
+- [14:06.440] we're doing very well with regard to
+- [14:08.160] both there are some reports that g might
+- [14:10.800] ask of you uh in order to give that help
+- [14:14.440] pressure to disavow potential Taiwan
+- [14:17.360] Independence is that something that you
+- [14:19.320] no we never discussed it you had said
+- [14:21.720] earlier that we would get more details
+- [14:23.839] about the victims on the plane can you
+- [14:26.040] give more on that now yeah we have I
+- [14:28.240] have a lot of detail but uh it's
+- [14:31.240] something that'll be released to you
+- [14:32.720] also at the appropriate time no I have
+- [14:34.800] the full details there were a lot of
+- [14:36.680] young people young people great people
+- [14:39.120] great athletes great skaters very sad
+- [14:43.320] situation from numerous
+- [14:46.320] countries thank you very much everybody
+- [14:48.680] thank you

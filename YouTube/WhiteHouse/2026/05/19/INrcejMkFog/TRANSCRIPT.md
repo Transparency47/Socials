@@ -1,0 +1,443 @@
+<!-- source: https://www.youtube.com/watch?v=INrcejMkFog -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: INrcejMkFog -->
+<!-- date_published: 2026-05-19T23:48:23+00:00 -->
+<!-- date_accessed: 2026-06-02T02:33:36.371516+00:00 -->
+
+# Transcript: President Trump and the First Lady Deliver Remarks at the Congressional Picnic
+
+- [00:02.050] Announcer: Ladies and gentlemen,
+- [00:03.280] the President of the United States,
+- [00:05.270] Donald J. Trump, and First Lady Melania Trump.
+- [00:09.980] ♪ (Hail to the Chief) ♪
+- [00:29.740] The First Lady: Hello. Good evening and welcome
+- [00:32.330] to the White House on this beautiful evening.
+- [00:35.880] I have a breaking news.
+- [00:38.270] Today, the House passed the Fostering the Future Act.
+- [00:44.300] Thank you, Chairman Smith,
+- [00:46.560] Chairman LaHood, Ranking Member Davis,
+- [00:49.840] and the House of Representative for voting
+- [00:53.650] unanimously to lift America's foster children
+- [00:57.280] above parties and politics.
+- [00:59.950] Senators, we have momentum.
+- [01:03.460] Now it's your turn to bring the Fostering the Future Act
+- [01:07.080] across the finish line.
+- [01:09.220] Let's support our next generation
+- [01:11.980] and swiftly get this to the President for his signature.
+- [01:21.240] The White House congressional picnic
+- [01:24.130] has been cherished American tradition
+- [01:26.730] for a great part of our nation's 250 year history.
+- [01:31.970] Beyond politics, it provides an important social ritual
+- [01:36.320] where our nation's leaders share a moment of lightheartedness
+- [01:40.830] as we transition into the warm summer months.
+- [01:45.070] This evening's beautiful setting brings families
+- [01:48.360] from both sides of the political aisle together
+- [01:51.490] to enjoy Americana.
+- [01:53.400] The Marine band's wonderful music, great food,
+- [01:56.960] and some friendly gaming competition.
+- [02:00.860] This great American social tradition remind us
+- [02:03.950] that some fun and laughter with our families can bring unity,
+- [02:08.860] especially with our children and loved ones by our side.
+- [02:14.500] I have seen firsthand how much can be accomplished
+- [02:18.510] when Republicans and Democrats
+- [02:20.410] come together with a shared purpose,
+- [02:23.020] particularly for the betterment of our children.
+- [02:27.900] We experience great bipartisan success with the TAKE
+- [02:31.690] IT DOWN Act.
+- [02:33.300] I saw the spirit of American unity shine once again
+- [02:37.780] during my recent engagement with the House Ways
+- [02:40.910] and Means Committee as we began to shape legislation
+- [02:44.700] to protect America's foster care community.
+- [02:48.660] Young Americans deserve every opportunity to learn,
+- [02:52.830] grow and succeed, and I believe we will continue
+- [02:56.480] making meaningful progress on their behalf.
+- [03:00.600] Make the most of this evening so that we can be impactful
+- [03:04.480] together with greater alignment in the future.
+- [03:09.380] And now it's my pleasure to introduce my husband,
+- [03:13.220] President Donald J. Trump.
+- [03:15.780] (applause)
+- [03:18.940] The President: Great job. What a great job.
+- [03:23.920] I have to follow that. I hate it.
+- [03:27.290] I never like following our great First Lady
+- [03:30.120] because it makes me look not so good.
+- [03:33.820] I want to thank all of you for being here.
+- [03:35.510] It's amazing, actually, and thank you, Melania.
+- [03:38.240] We're truly blessed to have such a First Lady.
+- [03:41.560] She's been so popular.
+- [03:44.600] She did a movie, it became number one.
+- [03:47.190] She then went to streaming, it became number on.
+- [03:50.360] And I say there's only room, remember this,
+- [03:55.370] for one star in a family, so I better get rid of that.
+- [03:58.520] That's not, that's not so good.
+- [04:01.130] But she's been amazing and people love
+- [04:03.430] her as you can see by the results
+- [04:05.890] and that was a big thing today.
+- [04:07.790] Congratulations on that vote. She had a bipartisan vote.
+- [04:11.040] I should use you for some of the things
+- [04:13.100] I want to try and pass. But I joined Melania
+- [04:16.790] and congratulating the House of Representatives
+- [04:19.310] on passing the Fostering the Future Act,
+- [04:22.120] which is a big deal,
+- [04:23.660] this afternoon to modernize foster care,
+- [04:27.290] an issue close to the First Lady's heart,
+- [04:29.450] and hopefully it will quickly pass in the Senate.
+- [04:32.260] I'm sure it will. It's great. It's a great thing.
+- [04:35.770] And I want to thank everybody. We have a lot of senators.
+- [04:38.200] We have a lot of Congress people and I want to thank you all.
+- [04:41.920] And I'm thrilled to welcome you all
+- [04:43.640] to the White House this evening
+- [04:45.660] for a very special annual tradition,
+- [04:47.910] the Congressional Picnic.
+- [04:49.260] It's been going on for many years
+- [04:51.580] and we're joined by many of the members
+- [04:53.450] of the House and the Cabinet, Senate.
+- [04:56.200] And I just want to say a special hello
+- [04:58.930] to the Speaker of the House, Mike Johnson.
+- [05:01.280] He's going to go down as one of the great speakers.
+- [05:03.590] We've done a lot together. We've done a lot.
+- [05:06.260] Where are you, Mike? Where are you, Mike?
+- [05:09.300] Hi, Mike. Oh, there he is. He's a great guy, actually,
+- [05:14.430] and he's done, he's worked so hard.
+- [05:16.460] I want to thank also John Thune,
+- [05:18.860] who's worked so hard and he's been really a,
+- [05:22.190] he's a terrific person. He really is a terrific person.
+- [05:25.620] And we have a lot of things to pass,
+- [05:27.180] but one of the things we did pass was a great,
+- [05:29.490] Big Beautiful Bill and that covered a lot of territory.
+- [05:33.410] I want to tell you, we said, "Let's do it all in one time."
+- [05:36.690] And it was four years worth in one bill.
+- [05:38.670] Everyone said that couldn't be done.
+- [05:40.770] And I want to congratulate and thank the Senate,
+- [05:44.150] House for the unbelievable job.
+- [05:47.310] And while there are too many members in the House and Senate,
+- [05:52.570] I'd like to, I see half of you right here
+- [05:54.620] and I'd like to introduce everyone,
+- [05:56.230] but I want to let people enjoy themselves tonight
+- [05:59.730] So but we have so many representative.
+- [06:02.760] This evening it will be something very special
+- [06:07.030] to remember that all of us here tonight
+- [06:09.320] continue a priceless tradition.
+- [06:11.930] This really is a great tradition.
+- [06:14.250] We represent the oldest
+- [06:15.700] and most extraordinary constitutional republic
+- [06:18.680] on the face of the earth,
+- [06:19.930] and a special privilege and a unique responsibility it is.
+- [06:24.860] It's really something very special.
+- [06:26.470] I'm standing here and I'm looking
+- [06:27.760] at our great American flag and it's hard to believe,
+- [06:30.720] but I put that in two months ago.
+- [06:34.410] That, I put one on the other side.
+- [06:36.530] You know, this is actually in theory,
+- [06:38.820] this would be, I consider them both, we have two fronts.
+- [06:42.240] I've never figured out, nobody else has either for,
+- [06:45.270] since if you think about it,
+- [06:47.280] 1792, nobody's figured out which is the front
+- [06:50.410] and which is the back of the White House.
+- [06:51.990] So when I'm speaking here, I say the front and I speak,
+- [06:55.590] when I speak over there, I say the front.
+- [06:58.000] It actually has two fronts.
+- [06:59.260] And I put two flags up and it's a great pole
+- [07:02.330] and it's a beautiful flag
+- [07:03.730] and it's amazing that it wasn't up before.
+- [07:06.590] We have another flag slightly smaller
+- [07:08.690] on the top of the White House,
+- [07:10.080] but it's a little bit on the smaller side.
+- [07:12.690] But everybody loves that pole.
+- [07:14.200] It's a beauty and it represents so much.
+- [07:16.970] And I want to thank the company that put it up.
+- [07:18.810] They're the best. I think they make the best.
+- [07:20.680] It's hard to believe.
+- [07:21.920] I have so many different developments all over the world.
+- [07:24.210] I always like putting the flag up
+- [07:26.210] and I know a lot about flag poles
+- [07:27.790] and that's the best flag poll there is, okay?
+- [07:29.840] So congratulations. We have two of them.
+- [07:32.820] We got actually two for the price of on.
+- [07:34.620] We negotiated a tough deal. But we have, finally,
+- [07:37.950] we have a really representative flag pole and flag
+- [07:40.650] up in front of our White House, so that's good.
+- [07:43.480] I also want to recognize the incredible congressional
+- [07:46.190] spouses, families, and children who make enormous sacrifices
+- [07:50.710] so that their loved ones can serve.
+- [07:54.000] So that their loved ones can get beat up by the fake news.
+- [07:58.200] So that their loved ones can also beat up the enemy
+- [08:02.000] And they do that. They do. They're warriors.
+- [08:03.940] It's not easy and I want to give them,
+- [08:07.020] the spouses a very special hand today.
+- [08:10.110] Thank you. Thank you, darling. Thank you very much. Thank you.
+- [08:14.960] You do, you put up with a lot. It's not easy.
+- [08:18.780] But on the eve of the 250th year,
+- [08:21.250] there's so much for our country to celebrate
+- [08:23.950] regarding our, really the party.
+- [08:27.010] Uh, we have a party that's really at a,
+- [08:30.560] a point that I don't think we've ever been at.
+- [08:33.300] And America's thriving, America's winning,
+- [08:35.590] and America's respected,
+- [08:37.480] perhaps like it has never been respected before.
+- [08:41.620] If you go back two years, we were not respected.
+- [08:44.230] We were a dead country. I'll tell you what.
+- [08:46.220] We were a dead country and today we're the hottest country
+- [08:49.040] anywhere in the world. There's nobody even close.
+- [08:55.420] And the, they, I don't know if you saw the numbers today,
+- [08:58.510] but the stock market's at an all-time high.
+- [09:01.630] We had 67 all-time highs,
+- [09:04.040] so we've been here for a little bit more than a year now
+- [09:07.110] and we had 67 all-time highs.
+- [09:09.550] And I want to say that in our first term,
+- [09:13.030] we finished the term out despite COVID
+- [09:15.150] and all the other things,
+- [09:16.480] we had a great, we had really an amazing period of time
+- [09:20.170] and we finished at the highest point
+- [09:22.870] in the history of the stock market.
+- [09:25.200] And now we're blowing it away. We're blowing everything away.
+- [09:28.280] And we're going to end that war very quickly.
+- [09:31.180] They want to make a deal so badly.
+- [09:32.900] They're tired of this,
+- [09:34.460] this shoulda happened for 47 years.
+- [09:36.890] Somebody should have done something about it
+- [09:38.740] and it's going to happen and it's going to happen fast
+- [09:41.690] and you're going to see oil prices plummet.
+- [09:44.600] They're going to come down. There's so much oil out there,
+- [09:46.890] they're going to come plummeting down.
+- [09:48.930] But even with that, the stock market's at an all-time high.
+- [09:52.980] Jobless claims recently hit the lowest level
+- [09:55.910] and since 1969, the best numbers since 1969.
+- [10:01.800] And more Americans are working today
+- [10:03.980] than at any time in the history of our country.
+- [10:07.200] Think of that. And we have a war.
+- [10:09.990] We have something happening that I,
+- [10:12.000] I, you know, we just hit, it was very interesting.
+- [10:15.220] Two and a half months ago, we hit the best numbers
+- [10:18.100] that we've ever hit as a country. Jobs the best.
+- [10:21.410] Everything was the best. Stock market the highest.
+- [10:23.760] And I called my people in. I called them in. I said,
+- [10:26.890] "Congratulations everybody, but we're going to have to make
+- [10:30.120] a little journey down to a place called Iran.
+- [10:32.420] We have to stop them. They have nuclear on their mind
+- [10:36.700] and we're not going to let them have a nuclear weapon."
+- [10:38.700] And we've done a hell of a job and we're,
+- [10:41.060] I think we're going to be finished with that very quickly
+- [10:44.200] and they won't have a nuclear weapon
+- [10:45.820] and hopefully we're going to get it done in a very nice manner.
+- [10:50.280] Factory construction as you heard today also is up.
+- [10:53.780] Housing starts are up, and consumer spending is up.
+- [10:57.210] All things that we have an economy,
+- [10:59.500] people aren't seeing it yet.
+- [11:01.260] When we inherited, when we started,
+- [11:04.970] we had the highest inflation in the history of our country
+- [11:08.500] and we actually had just before the war,
+- [11:10.540] before the energy forced other things up,
+- [11:13.210] but up or down we had the best numbers.
+- [11:17.530] We had inflation was at 1.6% for the last three months
+- [11:23.190] just prior to the war
+- [11:24.780] and now you're going to see numbers like that again.
+- [11:28.010] We inherited high prices and we got the prices down
+- [11:31.820] and we got them down to numbers
+- [11:33.300] that in some cases people have not seen before.
+- [11:35.640] But think of it, inflation at 1.6%.
+- [11:39.560] Manufacturing right now is booming.
+- [11:42.210] American companies are purchasing core capital goods at
+- [11:45.950] the highest amounts ever in the history of our country.
+- [11:49.350] Our previously wide-open border is now the most secure border
+- [11:53.390] in the history of the United States of America.
+- [11:57.100] And last year, r- -- last, remember, we inherited a mess.
+- [12:01.880] And last year we had the largest drop in murder rate
+- [12:04.940] ever recorded to the lowest level in 125 years.
+- [12:08.840] That's year 1900. Think of that.
+- [12:13.110] And working alongside many of you and you are unbelievable,
+- [12:16.890] the senators, the cabinet members.
+- [12:20.400] We have such a great cabinet
+- [12:22.050] and all of the congressmen and women,
+- [12:24.420] you're the most incredible people,
+- [12:26.230] but working alongside of many of you here,
+- [12:28.860] we passed that very important.
+- [12:31.060] And again, remember I went to John and I went to Mike.
+- [12:34.920] I went to a lot of the senators and Congressmen and women
+- [12:37.680] and I said,
+- [12:39.120] "We can try and do this at one time, get four years worth."
+- [12:42.200] That's why we call it the Great Beautiful Bill.
+- [12:44.800] We can do it at one time, give it a shot,
+- [12:46.700] but everybody says it's impossible to get approved.
+- [12:49.860] Well, we got four years worth of goodies approved
+- [12:53.720] in a period of time
+- [12:55.000] and at a period of time that they said would be impossible.
+- [12:57.830] And we're lucky we did
+- [12:59.170] and it's gotten a little bit harder as time goes by.
+- [13:01.810] In fact, the only one that gets things approved
+- [13:03.700] now are Melania and her friends.
+- [13:07.060] She gets them approved bipartisan.
+- [13:09.060] I'm going to have a, I'm going to talk to her later.
+- [13:10.790] I'm going to say, "What are you doing?"
+- [13:12.820] But it's great. It's great stuff.
+- [13:15.180] But what we did do is we got something done
+- [13:17.480] and we've got, we're getting a lot approved.
+- [13:19.960] Uh, we're getting a lot. You're going to be seeing that too.
+- [13:22.160] You've been watching it amazing with really small majorities,
+- [13:26.350] we've gotten record setting numbers approved.
+- [13:30.110] And when you add no tax on tips and no tax on social security
+- [13:34.740] all of the things, think of this,
+- [13:36.940] no tax on tips, no tax on overtime,
+- [13:40.070] no tax on social security for our great seniors.
+- [13:43.400] And that's just the start. Uh, deduction, you buy a car
+- [13:47.540] and you get a deduction for the first time
+- [13:49.550] on the interest you're paying on your loan.
+- [13:51.320] If you're borrowing money, you take out a loan,
+- [13:53.700] you get a deduction. It's never happened before.
+- [13:56.150] We have so many different things.
+- [13:58.140] One other thing I have to say
+- [13:59.370] because it's affected so many people,
+- [14:01.190] estate taxes or the death tax, you love your children.
+- [14:06.130] You want to pass on your estate to your children.
+- [14:09.390] Well, in the old days, meaning not so long ago
+- [14:13.230] your children would have to go out
+- [14:14.540] and borrow tremendous amounts of money to go
+- [14:17.360] and take care of the farm or the small business,
+- [14:19.300] whatever it may be.
+- [14:20.520] But it especially affected those in small business,
+- [14:24.170] but more than anything, farmers.
+- [14:26.410] And they'd go out. The children would go out,
+- [14:28.710] borrow money from their bank, wouldn't be able to pay it back.
+- [14:32.900] Uh, bad, bad things happened to them.
+- [14:34.910] Many of them couldn't handle life, actually.
+- [14:37.910] And we got it.
+- [14:39.170] There's no estate tax, there's no death tax
+- [14:42.990] on your farm, on your small business.
+- [14:46.010] Nobody thought that was possible.
+- [14:47.990] So if you love your children,
+- [14:49.790] you can leave your business to your children,
+- [14:52.180] you can leave your farm to your children
+- [14:54.300] and they'll be very happy.
+- [14:55.530] Now, if you don't love your children, don't bother.
+- [14:57.280] Then it doesn't matter.
+- [14:58.500] What I'm saying is just a big waste of time.
+- [15:01.680] But if you love, think of it, you have no death tax,
+- [15:04.010] you have no estate tax.
+- [15:05.430] You can leave it to your children and we love that.
+- [15:08.830] It was so important to me.
+- [15:10.830] We've restored the American strength on the world stage.
+- [15:13.820] We're respected all over the world.
+- [15:15.160] You might have seen.
+- [15:16.390] I was in China a few days ago with President Xi
+- [15:19.920] and it was some display. We had a great time,
+- [15:23.540] but we also got a lot of business,
+- [15:25.150] done a lot of great business for our farmers
+- [15:27.110] with soybeans record,
+- [15:28.540] purchases of soybeans and lots of other things.
+- [15:31.900] And they're buying many, many Boeing airplanes
+- [15:35.390] and they're buying a lot of other things too.
+- [15:37.330] We had a great relationship.
+- [15:39.100] I've always had a great relationship with President Xi.
+- [15:41.860] Together, on a bipartisan basis we passed the Laken Riley Act
+- [15:46.940] to get dangerous criminal aliens off our streets. We love Laken.
+- [15:53.670] We passed the Genius Act to keep America
+- [15:56.000] at the forefront of finance and new technology
+- [15:58.690] and working with Melania and the group.
+- [16:01.420] Congress passed the Take It Down Act
+- [16:03.810] to protect our nation's children.
+- [16:05.590] So that was something. And everyone here tonight
+- [16:08.490] has a lot to look forward to so that in the coming months
+- [16:12.020] we're going to have some very amazing events.
+- [16:14.720] One of them is going to be right there where you're standing.
+- [16:18.650] Uh, it's gon- -- The hardest ticket I've ever,
+- [16:20.570] I have never seen anybody want anything so much
+- [16:23.890] as people want those tickets. It's a one of a kind.
+- [16:27.130] UFC, that's going to be something,
+- [16:30.610] UFC event on the South Lawn.
+- [16:32.830] Right there, we're going to build an arena.
+- [16:35.330] It's going to hold probably, I would say, 4,000, 5,000.
+- [16:40.020] The great Dana White is putting it on,
+- [16:41.840] you know, we'll get it up to the max.
+- [16:43.940] And behind you in the park, the beautiful park,
+- [16:46.980] beautiful open piece of land,
+- [16:49.010] we're going to have anywhere from 75,000
+- [16:51.180] to 100,000 people all free of charge.
+- [16:54.420] We're building eight giant screens back there.
+- [16:57.620] So we have a small arena here that we're building.
+- [17:01.250] Never happened before.
+- [17:02.850] And in the back, we're going to have close to 100,000 people
+- [17:05.990] watching the fight.
+- [17:07.370] They're going to be all championship fights.
+- [17:09.010] It's going to be great.
+- [17:10.510] We also have as, as you know, the Indy,
+- [17:13.740] Roger Penske is doing the Indy around the Capitol
+- [17:16.580] and that'll be in August.
+- [17:17.860] That's going to be unbelievable. They've been trying to,
+- [17:20.030] he said he's been trying to do that for 25 years.
+- [17:23.080] He's made 129 trips to Washington.
+- [17:26.260] He was never able to do it. Then he met me one trip,
+- [17:29.730] took a half an hour and we got it done.
+- [17:31.980] And it's going to be fantastic.
+- [17:34.180] And we have then, of course, FIFA, Johnny.
+- [17:37.190] Uh, good old Johnny. He's great. He's doing a fantastic job.
+- [17:40.870] Johnny Infantino. We have the FIFA World Cup
+- [17:44.070] and our great American State Fair
+- [17:45.950] on the National Mall
+- [17:47.610] and the Freedom 250 Grand Prix here.
+- [17:51.230] And then on July 4th we have an unbelievable display.
+- [17:55.360] And don't forget, we have a thing called
+- [17:58.530] the Olympics coming up.
+- [17:59.860] I got the Olympics during my first term
+- [18:02.600] and then I got FIFA during my first term and I said,
+- [18:06.260] "Oh, I won't be able to see it because it happened now."
+- [18:09.260] But then strange things happened with an election
+- [18:12.600] and I didn't get to serve the air,
+- [18:14.290] the four years that I was supposed to serve.
+- [18:16.990] I don't want to say it.
+- [18:18.380] I don't want to be controversial.
+- [18:20.160] The election was rigged.
+- [18:22.820] And we came back and we did something very special
+- [18:25.630] and I ended up getting the Olympics
+- [18:28.270] and getting FIFA and we got 252.
+- [18:31.140] I want to take credit for 250 years,
+- [18:33.250] but that I'm not going to get away with.
+- [18:35.150] But we're going to have an amazing period of time.
+- [18:37.960] So we have exciting things happening.
+- [18:39.730] I just want to leave by saying our country is so strong.
+- [18:43.500] Our military is the greatest in the world.
+- [18:45.420] You saw that with Venezuela. You see it now with Iran.
+- [18:48.550] We wiped out their Navy. The Navy is gone.
+- [18:51.700] The Air Force is gone. Their anti-aircraft is gone.
+- [18:55.370] All of their material that they use for warfare is gone.
+- [18:59.370] Just about everything is gone.
+- [19:00.690] I don't want to say their leaders are gone
+- [19:02.280] because it's not very nice, but that happens to be true.
+- [19:05.450] And they're not going to have a nuclear weapon.
+- [19:08.000] They cannot have a nuclear weapon.
+- [19:09.440] We won't, we won't be able to put up with that
+- [19:12.810] and we're not going to put up with it.
+- [19:16.240] And just to say one final thing, in the history of the world,
+- [19:21.110] there's never been anything like happened
+- [19:23.250] over the last short period of time.
+- [19:26.090] 18 trillion, with a T,
+- [19:29.210] dollars is being invested in the United States.
+- [19:33.670] There's never been anything close.
+- [19:35.280] As an example, the previous administration in four years,
+- [19:40.020] the previous administration in four years had less,
+- [19:44.490] substantially less than $1 trillion.
+- [19:48.210] We have $18 trillion in 11 months.
+- [19:51.530] We haven't gotten the results from the eight,
+- [19:53.690] from the last month, from the 12th month.
+- [19:56.330] But think of that. 18 trillion.
+- [19:58.600] In the history of the world, there's been no country
+- [20:01.000] with anywhere even close to that number.
+- [20:03.980] And all of that money's going to building factories
+- [20:06.540] that I mean car plants, auto plants.
+- [20:09.480] Everything is coming back A- -- AI plants.
+- [20:12.290] We have everything coming back.
+- [20:14.300] We've never had a situation like it.
+- [20:16.210] We're building plants,
+- [20:17.700] thousands of plants all over our country, $18 trillion.
+- [20:22.170] It's many times greater than another country,
+- [20:25.270] a certain other country that I just visited.
+- [20:27.870] Uh, if you go, I won't mention names.
+- [20:29.580] If you go back 10 years that had the record at three trillion,
+- [20:33.660] we're at 18 trillion.
+- [20:34.920] There's never been anything like that in history.
+- [20:37.460] So I just want to thank you all.
+- [20:39.320] You're spectacular people, the political people out there.
+- [20:41.990] I love you all and we're going to have one hell of a time
+- [20:45.620] for the next few years and hopefully the next few years
+- [20:49.050] will lead to greatness for many, many years to come.
+- [20:51.570] Thank you very much, everybody. Thank you. Thank you.
+- [20:55.950] ♪ (orchestral "God Bless America") ♪

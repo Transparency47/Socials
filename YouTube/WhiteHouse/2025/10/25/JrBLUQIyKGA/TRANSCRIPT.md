@@ -1,0 +1,359 @@
+<!-- source: https://www.youtube.com/watch?v=JrBLUQIyKGA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: JrBLUQIyKGA -->
+<!-- date_published: 2025-10-25T06:08:47+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:27.787229+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Oct. 24, 2025
+
+- [00:01.260] The President: Hello everybody.
+- [00:02.470] Have a good trip. It's going to be a long one.
+- [00:04.960] It is going to be a very long trip, right?
+- [00:08.920] What's up?
+- [00:10.390] The Press: What are you expecting from your meeting
+- [00:11.990] with President Xi and what is your message to him?
+- [00:14.370] The President: We have a lot of things to discuss,
+- [00:16.020] including our farmers. We have lot of thing to discuss.
+- [00:21.370] The various trade deals that have been made in the past.
+- [00:23.950] Some broken, some not broken. But we've got many, many things.
+- [00:27.600] I think it's going to turn out to be a very good meeting.
+- [00:30.410] The Press: Do they need to make concessions to get a deal?
+- [00:32.790] Are you willing to pause tariffs?
+- [00:34.040] The President: Sure, they have to make a concession.
+- [00:35.590] I guess we would too. We're at a 157% tariff for them.
+- [00:41.280] I don't think that's sustainable for them
+- [00:43.690] They want to get that down
+- [00:45.110] and we want certain things from them.
+- [00:47.920] It'll be, I think it'll be very good.
+- [00:49.390] The Press: What do you think the odds are you go ahead
+- [00:52.780] with that 100% tariff on November 1st?
+- [00:54.540] The President: I don't know.
+- [00:55.740] I have no odds. I don't want to predict odds.
+- [00:57.930] I just, I don't think they would want that.
+- [01:00.300] That would not be good for them. And I wouldn't like to see it.
+- [01:04.230] The Press: What's your view on what Canada needs to do
+- [01:06.570] to get things back on track?
+- [01:07.850] The President: Canada lied.
+- [01:09.130] I mean, what they did was terrible.
+- [01:10.760] They made up a fake statement by President Reagan.
+- [01:15.040] Reagan was a big supporter of tariffs when needed,
+- [01:19.040] and we need tariffs for national security.
+- [01:21.310] And they totally turned it around
+- [01:22.890] because they're getting hurt by tariffs,
+- [01:25.490] and we're gaining by tariffs. They've used tariffs on us
+- [01:29.760] when we had different presidents very successfully,
+- [01:32.910] and they've taken a lot of money out of our country,
+- [01:34.840] and now we're taking it all back.
+- [01:37.390] So they went out and they made a fake commercial
+- [01:41.210] the Reagan Foundation went crazy when they saw it
+- [01:43.940] because it was, you know, the opposite was the opposite
+- [01:47.000] of what Ronald Reagan -- Ronald Reagan liked tariffs
+- [01:49.890] and when necessary he would use tariffs
+- [01:53.190] and it's made us a very rich country.
+- [01:56.430] It's also made us when they were used against us
+- [01:59.080] it was not good for us.
+- [02:01.500] But we've used them very successfully.
+- [02:03.260] We have the highest stock market we've ever had.
+- [02:06.570] We have great national security.
+- [02:08.180] I've settled wars because of tariffs.
+- [02:10.750] And a president has the right to use tariffs,
+- [02:13.650] especially when it comes to national security,
+- [02:15.870] and we need it for national security
+- [02:18.070] even including our own wealth and paying down debt
+- [02:20.350] and all of the other things.
+- [02:21.710] So, you know, we're in very good shape with that.
+- [02:25.010] But they took a commercial
+- [02:26.330] saying the exact opposite, Canada.
+- [02:29.020] I'm very disappointed in Canada. They lied.
+- [02:31.420] I mean, it was a fraud what they did.
+- [02:35.290] The Press: What can they do to get it back on track, though?
+- [02:37.390] The President: I don't know.
+- [02:38.620] I mean, I'm satisfied with the deal we have.
+- [02:40.910] We have a deal right now that's very good for us.
+- [02:44.140] Any deal that would have been made
+- [02:45.730] would have been better for them
+- [02:47.170] than the one they have right now.
+- [02:48.510] That's why I was surprised they did this.
+- [02:50.560] They did this to try and influence the Supreme Court.
+- [02:53.470] And many foreign countries aren't particularly happy,
+- [02:56.180] but they took advantage of us for years.
+- [02:58.910] For years and years they took it advantage.
+- [03:01.460] And presidents shouldn't have allowed that to happen,
+- [03:03.470] but they did.
+- [03:04.870] So, really, I don't think there's much they can do.
+- [03:08.030] I just assume leave it the way it is.
+- [03:10.110] You know, if you leave it the way is,
+- [03:11.900] it's very good for us.
+- [03:13.490] The Press: Will you meet with Prime Minister Carney
+- [03:15.040] during this trip?
+- [03:16.260] The President: I don't have any intention of it, no.
+- [03:17.830] The Press: (inaudible)
+- [03:19.030] of your meeting with the new Japanese Prime Minister,
+- [03:21.180] Taika Ichi.
+- [03:22.410] The President: And I hear great things about her.
+- [03:24.560] I think she's going to be great.
+- [03:27.020] She was a great friend of Mr. Abi,
+- [03:30.520] who was a good man, Prime Minister Abi.
+- [03:33.310] Had a great friend of mine, as you know.
+- [03:34.730] And he was just a fantastic person.
+- [03:37.890] And he liked her a lot.
+- [03:39.390] She liked him a lot, so that's a good sign.
+- [03:42.740] I look forward to meeting her.
+- [03:44.050] The Press: (inaudible)
+- [03:45.280] reportedly planning to bring plans
+- [03:47.580] to buy Ford F-150 pickup trucks.
+- [03:52.140] The President: Well that's good. They're great trucks.
+- [03:54.990] Are you saying I have that plan or she has that plan?
+- [03:56.940] The Press: Shea had that that plan.
+- [03:58.220] The President: That's great. She has good taste.
+- [04:01.160] That's a hot truck.
+- [04:02.460] The Press: She might eventually try to renegotiate
+- [04:04.870] the more than --
+- [04:06.250] The President: Look, I'm open to whatever that --
+- [04:08.360] we have a great relationship with Japan,
+- [04:10.890] and we're going to have a fantastic relationship with her.
+- [04:13.050] So we'll see what happens.
+- [04:14.340] The Press: Do you believe that China played a role at all
+- [04:16.700] in establishing peace between Cambodia and Thailand
+- [04:20.440] in their recent conflict? Did China help in that process?
+- [04:24.190] The President: They weren't involved, they weren't.
+- [04:26.240] The Press: Will you still sit over, preside over this --
+- [04:28.790] The President: Malaysia was involved, actually.
+- [04:30.470] So Malaysia helped us.
+- [04:31.740] One of the reasons I'm going to Malaysia
+- [04:34.320] is they were very, very much involved
+- [04:37.140] in that whole thing, Thailand and all.
+- [04:39.650] And I told the leader of Malaysia,
+- [04:43.750] who's a very good man, I said, I think I owe you a trip.
+- [04:48.050] That's why we're stopping in Malaysia for that reason.
+- [04:50.890] Malaysia was very much involved.
+- [04:53.330] The Press: Sir, while in South Korea,
+- [04:54.690] do you have any plans to meet with Kim Jong-un at the DMZ?
+- [04:57.700] The President: Will I would if he would contact.
+- [05:00.080] I mean, I was -- the last time I met, you know,
+- [05:02.810] I put it out over the Internet that I'm coming to South Korea.
+- [05:06.230] If he'd like to meet, I'm open to it, certainly.
+- [05:09.020] We had a very -- yeah, I'd do it.
+- [05:10.710] I mean if he -- if you want to put out the word,
+- [05:12.520] I'm open to it.
+- [05:13.850] You know, they don't have a lot of telephone service.
+- [05:17.040] They have a lots of nuclear weapons,
+- [05:18.420] but not a lot a telephone service, so I'm open to it.
+- [05:20.920] And I had a great relationship with him
+- [05:23.520] and he probably knows I'm coming, right?
+- [05:26.820] But if you want to put out the word, I'm open to it.
+- [05:30.630] The Press: Do you expect
+- [05:31.920] (inaudible) touch at all before this trip?
+- [05:33.770] The President: Really, there's not a lot of ways
+- [05:35.060] other than the internet.
+- [05:36.260] You know, they have very little telephonic service.
+- [05:41.310] But he knows I'm coming,
+- [05:42.960] and he would, yeah, I'd be open to 100 percent.
+- [05:47.270] I got along very well with him. Kim Jong Un.
+- [05:49.660] The Press: Do you expect to finalize your trade deal
+- [05:52.150] with or your tariff deal with South Korea on this trip?
+- [05:54.710] It hasn't been signed yet.
+- [05:55.950] The President: Well it's close to being finalized, I think,
+- [05:58.000] and so it could be if they have it ready, I'm ready.
+- [06:01.330] The Press: How about Malaysia, Cambodia, those trade deals.
+- [06:03.840] Are you ready?
+- [06:05.090] The President: Sure. If the papers are ready.
+- [06:07.640] We have deals with a lot of people,
+- [06:10.020] and they're very good deals.
+- [06:11.690] I hope they're good for everybody.
+- [06:13.900] Who are you with?
+- [06:17.220] The Press: I'm with Politico.
+- [06:18.810] The President: Politico, oh. Stepping up their game.
+- [06:22.820] That's good.
+- [06:24.490] The Press: There's a report just as we were leaving --.
+- [06:26.120] The President: Which one?
+- [06:27.330] The Press: That the Thailand Prime Minister may not attend
+- [06:29.070] due to the death in Thailand.
+- [06:31.320] The President: Well, there was a change.
+- [06:32.970] Yeah, there was a death. So I don't know.
+- [06:35.000] The Press: You don't know if this --.
+- [06:36.200] The President: No, I don't know that.
+- [06:37.400] The Press: How did you manage to find somebody to pay
+- [06:40.650] for our troops during the shutdown.
+- [06:44.590] The President: He's a great gentleman,
+- [06:46.020] he's a great patriot,
+- [06:47.230] he is obviously a very substantial man
+- [06:50.390] and he contributed $130 million toward the military
+- [06:55.240] in order to make up any difference.
+- [06:56.750] So he wanted to see the military get paid, so did I.
+- [07:01.120] And he's wonderful man and he doesn't want publicity.
+- [07:03.920] He doesn't, you know, he'd prefer,
+- [07:05.930] I think, that his name not be mentioned,
+- [07:07.630] which is pretty unusual in the world I come from.
+- [07:11.140] And in the world of politics, you want your name mentioned.
+- [07:13.520] He doesn't. He's a great patriot.
+- [07:15.180] He really is.
+- [07:16.460] He put up $130 million in order to make sure the --
+- [07:20.690] that's a lot of money --
+- [07:22.300] in order make sure that the military got paid.
+- [07:25.310] And he's a big supporter of mine.
+- [07:27.960] The Press: He's an American citizen?
+- [07:29.440] The President: It is, yeah. Great American citizen.
+- [07:33.020] The Press: Congress to pass a bill
+- [07:34.990] to allow 42 million Americans
+- [07:38.490] to continue to get food stamps during the shutdown?
+- [07:41.300] The President: I'm going to let some other people talk.
+- [07:43.290] I'll have a comment on that later.
+- [07:44.650] But the Democrats are stopping it.
+- [07:46.900] All they have to do is agree to let's go and we're ready.
+- [07:49.560] And we've voted for it many times.
+- [07:51.770] All we need is five Democrats.
+- [07:53.470] The Republicans vote for it, but we'll see what happens.
+- [07:57.290] But really, this is purely Democrat.
+- [08:01.120] They're doing some really bad things.
+- [08:02.980] I think they're lost.
+- [08:05.070] They're lost souls, you know? They are lost souls.
+- [08:09.030] The Press: After this trip,
+- [08:10.330] do you think you'll sit down with Hakeem Jeffries and --
+- [08:14.160] The President: I would. I'd be willing to.
+- [08:16.550] I would have now to. You know,
+- [08:18.160] I left I said come on over just put the government back.
+- [08:21.880] All they have to do is say yes and it's over and we start
+- [08:25.720] and then we go into a negotiation.
+- [08:28.000] Look, Obamacare has been terrible.
+- [08:30.100] We can make it better. I'm all for that,
+- [08:33.440] but they're not and they want to allow many,
+- [08:36.890] many, illegal people that came into our country
+- [08:39.270] illegally from prisons from mental institutions
+- [08:42.740] from all over the world, they want them to get paid,
+- [08:45.250] and that's going to hurt the citizens of our country,
+- [08:48.070] and I just can't do it.
+- [08:50.230] The Press: What influence do you want China
+- [08:52.220] to exert on Russia to stop --
+- [08:54.490] The President: I'd love China to help us out with Russia.
+- [08:56.580] We put very big sanctions on Russia.
+- [08:59.150] I think those sanctions are going to be,
+- [09:00.690] you know, they're very biting, they're strong.
+- [09:03.090] But I'd like to see China help us.
+- [09:04.860] I have a good relationship with,
+- [09:06.640] as you know President Xi, very good.
+- [09:08.340] We're going to have a meeting, we'll have a good meeting,
+- [09:10.140] I'm pretty sure we're going to have a great meeting,
+- [09:12.330] maybe a great meeting.
+- [09:14.190] But I think we're going to do some good business.
+- [09:16.770] One of the things we'll talk about is the Russia-Ukraine.
+- [09:19.910] They're killing 7,000 people a week.
+- [09:22.580] Soldiers, mostly soldiers.
+- [09:24.750] We'll certainly be talking about that.
+- [09:26.850] He'd like to see that end, too.
+- [09:28.910] The Press: Do you worry that the sanctions are so biting
+- [09:31.370] that you might push Putin too far?
+- [09:34.470] The President: I don't think so. No, I don't think so.
+- [09:36.430] He's saying well they won't have that much of an effect,
+- [09:38.960] so I don't know.
+- [09:40.170] That's what he says. I don't --
+- [09:41.690] I don't think he's right about that but we'll see.
+- [09:44.120] We'll see what happens.
+- [09:45.320] I think he'd like to see it over with.
+- [09:47.290] The Press: Earlies this week, you said that you don't think
+- [09:49.290] that China would make any moves on Taiwan.
+- [09:52.740] What gives you that idea?
+- [09:54.060] The President: Don't think China would what?
+- [09:55.300] The Press: Would make any moves on Taiwan.
+- [09:58.810] What makes you think that?
+- [10:00.290] The President: I hope they won't and we'll have to see.
+- [10:02.290] Maybe they will, maybe they won't.
+- [10:03.740] I hope that won't.
+- [10:05.650] It would be very dangerous for them to do.
+- [10:08.960] The Press: Are you open to changing U.S. policy on Taiwan?
+- [10:12.080] The President: I don't want to talk about that now.
+- [10:13.380] I don't want to create any complexity.
+- [10:16.090] The trip is already complex enough, right?
+- [10:19.180] But, you know, I think China wants to have 10 great years.
+- [10:25.870] And they can.
+- [10:27.090] You know, they can, or they can have some bad years.
+- [10:30.490] And they don't that. We're going to have a very good meeting.
+- [10:32.880] The Press: If you don't get it,
+- [10:34.160] what will you do for U.S. farmers
+- [10:35.660] who are being impacted by the soybean --.
+- [10:37.280] The President: We're going to subsidize them
+- [10:38.550] and we'll give them some money because it's not their fault.
+- [10:42.700] They've been doing very well. They did very well under me,
+- [10:46.180] even if you look at the ranchers.
+- [10:47.540] The ranchers, for the first time in years, have made some money,
+- [10:50.360] but the beef prices are up a little bit,
+- [10:52.090] so we'll have to make a determination.
+- [10:54.870] But the rancher's are very happy because,
+- [10:56.800] you know, for many years, they suffered.
+- [10:58.510] Now they're making a little money.
+- [11:00.660] They're making some money. And that's a good thing.
+- [11:03.660] You know, I'm happy about that.
+- [11:04.910] So we'll see. But we'll see. Beyond that point we'll see.
+- [11:08.070] The Press: North Korea,
+- [11:09.450] they say that in order to have talks with the U.S.,
+- [11:12.820] they have to be recognized as a nuclear power.
+- [11:15.420] Is that something you're open to?
+- [11:18.520] The President: Well, I think they are
+- [11:19.850] sort of a nuclear power.
+- [11:21.170] I mean, I know how many weapons they have.
+- [11:23.180] I know everything about them.
+- [11:25.020] And I've had a very good relationship with Kim Jong-un.
+- [11:28.340] When you say they have to be recognized as a nuclear power,
+- [11:31.080] well, they got a lot of nuclear weapons, I'll say that.
+- [11:33.950] Okay, go ahead, please.
+- [11:35.520] The Press: What kind of land targets in Venezuela
+- [11:38.670] do you want to strike
+- [11:40.010] and how do you decide which ones to strike?
+- [11:41.850] The President: (inaudible) with Venezuela.
+- [11:43.070] I can tell you one thing, we stopped all drugs, virtually,
+- [11:46.820] from coming in by sea.
+- [11:49.280] I will stop all drugs from coming in
+- [11:51.050] by land very shortly. You'll see that starting.
+- [11:54.010] They're not going to want to do that.
+- [11:55.530] They're going to not want to that.
+- [11:56.800] But you're going to see drugs
+- [11:58.680] stopping coming into our country,
+- [12:00.740] just like we stopped prisoners and drug dealers,
+- [12:04.520] drug addicts, drug every --
+- [12:06.900] we have stopped virtually everybody from coming in,
+- [12:10.040] other than people that want to come in legally.
+- [12:12.290] You know, we have a lot of people coming in legally,
+- [12:15.030] passing tests, going through the process.
+- [12:18.710] But we don't have people coming in from prisons
+- [12:21.150] and from mental institutions and the drug dealers.
+- [12:25.140] We don't have them coming in. We have almost nobody.
+- [12:27.500] We really have nobody, if you know.
+- [12:29.620] For five months in a row, they had zero people come in.
+- [12:33.040] And we used to have a million and two million
+- [12:35.500] and three million people coming in.
+- [12:37.900] The Press: Will you meet with Brazil's president on this trip.
+- [12:39.770] He's going to --
+- [12:40.970] The President: I believe we're meeting, yeah.
+- [12:42.880] We met at the United Nations briefly,
+- [12:45.370] just before I went on, and there was no teleprompter.
+- [12:48.780] They didn't allow my teleprompter to work.
+- [12:51.330] How about that one?
+- [12:52.630] But I gave a good speech anyway. Have a good trip, everybody.
+- [12:55.320] The Press: Are you open to reducing the tariffs on Brazil?
+- [12:57.980] The President: Yeah. Under the right circumstances, sure.
+- [13:00.210] The Press: Will you talk about AI with President Xi?
+- [13:03.300] The President: We're leading AI, we're leading China in AI,
+- [13:06.110] we're leading everybody in AI. We're doing very well.
+- [13:09.060] We have plants being built all over the country.
+- [13:12.010] We're going to have maybe 20, 21 trillion dollars
+- [13:14.490] by the time my first year is up. Nobody's ever had numbers --
+- [13:17.340] we've already hit 17 trillion dollars.
+- [13:19.960] Nobody's, no country has ever hit numbers like that.
+- [13:22.640] That's investment into our country.
+- [13:26.140] We have auto factories open.
+- [13:28.200] You saw General Motors yesterday at Ford.
+- [13:30.200] They took a big leap forward.
+- [13:32.440] Because of tariffs, but they took a big leap.
+- [13:37.470] We're respected, again, as really respected as a country.
+- [13:40.780] And a lot of that has to do with the tariffs.
+- [13:42.520] The tariffs are giving us national security and strength.
+- [13:46.490] Thank you very much.
+- [13:47.820] The Press: Thank you, Mr. President.
+- [13:49.380] The President: Have a good time. Go to sleep, everybody, right?
+- [13:51.660] The Press: Are you going to sleep?
+- [13:53.330] The President: I don't know. I'd love to. I don't know.
+- [13:55.700] I don't know that I'm capable of it,
+- [13:57.110] if you want to know truth. But I'm going to try.
+- [13:58.760] This is a long trip. The answers is I would imagine so.
+- [14:01.480] Have fun, have fun.

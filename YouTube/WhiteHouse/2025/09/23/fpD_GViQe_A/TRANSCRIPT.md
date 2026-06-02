@@ -1,0 +1,1259 @@
+<!-- source: https://www.youtube.com/watch?v=fpD_GViQe_A -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: fpD_GViQe_A -->
+<!-- date_published: 2025-09-23T15:10:13+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:27.368441+00:00 -->
+
+# Transcript: President Trump Delivers Remarks to the United Nations General Assembly
+
+- [00:04.871] (applause)
+- [00:19.919] The President: Thank you very much.
+- [00:22.222] Very much appreciate it.
+- [00:29.262] And I don't mind making this speech without a
+- [00:32.532] teleprompter, because the teleprompter is not working.
+- [00:39.973] I feel very happy to be up here with you, nevertheless.
+- [00:43.943] And that way, you speak more from the heart.
+- [00:47.747] I can only say that whoever is operating this
+- [00:51.117] teleprompter is in big trouble.
+- [01:08.501] Hello, Madam First Lady.
+- [01:12.872] Thank you very much for being here.
+- [01:16.943] Madam President, Mr. Secretary General,
+- [01:20.180] First Lady of the United States,
+- [01:21.781] distinguished delegates, ambassadors, and world leaders.
+- [01:26.586] Six years have passed since I last stood in this
+- [01:29.122] grand hall and addressed a world that was prosperous
+- [01:32.792] and at peace in my first term.
+- [01:36.095] Since that day, the guns of war have shattered the
+- [01:39.265] peace I forged on two continents.
+- [01:42.435] An era of calm and stability gave way to one
+- [01:45.505] of the great crises of our time.
+- [01:50.076] And here in the United States, four years of
+- [01:52.412] weakness, lawlessness, and radicalism under the last
+- [01:56.216] administration delivered our nation into a repeated
+- [02:01.521] set of disasters.
+- [02:03.823] One year ago, our country was in deep trouble.
+- [02:07.527] But today, just eight months into my
+- [02:09.562] administration, we are the hottest country anywhere
+- [02:12.999] in the world, and there is no other country even
+- [02:17.303] close.
+- [02:18.938] America is blessed with the strongest economy, the
+- [02:22.075] strongest borders, the strongest military, the
+- [02:25.211] strongest friendships, and the strongest spirit of
+- [02:28.314] any nation on the face of the Earth.
+- [02:32.151] This is, indeed, the golden age of America.
+- [02:36.723] We are rapidly reversing the economic calamity we
+- [02:40.960] inherited from the previous administration,
+- [02:44.931] including ruinous price increases and
+- [02:47.300] record-setting inflation -- inflation like we've
+- [02:50.503] never had before.
+- [02:51.404] Under my leadership, energy costs are down,
+- [02:56.276] gasoline prices are down.
+- [02:58.578] Grocery prices are done.
+- [03:00.880] Mortgage rates are down and inflation has been
+- [03:05.151] defeated.
+- [03:07.253] The only thing that's up is the stock market, which
+- [03:09.689] just hit a record high.
+- [03:12.025] In fact, it hit a record high 48 times in the last
+- [03:17.063] short period of time.
+- [03:18.164] Growth is surging.
+- [03:20.300] Manufacturing is booming.
+- [03:22.569] The stock market, as I said, is doing better than
+- [03:26.172] it's ever done.
+- [03:27.874] And all of you in this room benefit by that.
+- [03:30.743] Almost everybody.
+- [03:32.845] And importantly, workers' wages are rising at the
+- [03:35.481] fastest pace in more than 60 years.
+- [03:38.618] And that's what it's all about, isn't it?
+- [03:41.688] In four years of President Biden, we had less than $1
+- [03:46.359] trillion of new investment into the United States.
+- [03:51.698] In just eight months since I took office, we have
+- [03:54.867] secured commitments and money already paid for $17
+- [04:00.340] trillion.
+- [04:01.007] Think of it.
+- [04:01.741] Four years, less than a trillion.
+- [04:04.944] Eight months, much more than $17 trillion is being
+- [04:10.049] invested in the United States, and it's now
+- [04:12.986] pouring in from all parts of the world.
+- [04:16.589] We've implemented the largest tax cuts in
+- [04:18.992] American history and the largest regulation cuts in
+- [04:23.196] America history, making this, once and again, the
+- [04:26.699] best country on Earth to do business.
+- [04:30.036] And many of the people in this room are investing in
+- [04:33.673] America, and it has turned out to be an awfully good
+- [04:35.975] investment during this eight-month period.
+- [04:39.879] In my first term, I built the greatest economy in
+- [04:42.215] the history of the world.
+- [04:43.149] We had the best economy ever.
+- [04:46.285] History of the World.
+- [04:47.920] And I'm doing the same thing again, but this
+- [04:49.956] time, it's actually much bigger and even better.
+- [04:55.094] The numbers far surpassed my record-setting first
+- [04:58.464] term.
+- [04:59.666] On our southern border, we have successfully repelled
+- [05:02.301] a colossal invasion.
+- [05:04.003] And for the last four months, and that's four
+- [05:07.073] months in a row, the number of illegal aliens
+- [05:11.244] admitted and entering our country has been zero.
+- [05:16.783] Hard to believe.
+- [05:18.584] Because if you look back just a year ago, it was
+- [05:22.021] millions and millions of people pouring in from all
+- [05:24.957] over the world, from prisons, from mental
+- [05:27.794] institutions, drug dealers.
+- [05:30.797] All over the word they came.
+- [05:32.965] They just poured into our country with the
+- [05:35.134] ridiculous open border policy of the Biden
+- [05:37.570] administration.
+- [05:39.872] Our message is very simple.
+- [05:41.274] If you come illegally into the United States, you're
+- [05:44.343] going to jail, or you're going back to where you
+- [05:46.913] came from, or perhaps even further than that.
+- [05:51.084] You know what that means.
+- [05:54.053] I want to thank the country of El Salvador for
+- [05:56.656] the successful and professional job they've
+- [05:59.392] done in receiving and jailing so many criminals
+- [06:02.628] that entered our country.
+- [06:04.864] And it was under the previous administration in
+- [06:07.633] that the number became record-setting, and
+- [06:12.238] they're all being taken out.
+- [06:15.374] We have no choice.
+- [06:16.843] And other countries have no choose, because other
+- [06:18.845] countries are in the exact same situation with
+- [06:22.448] immigration.
+- [06:24.450] It's destroying your country, and you have to
+- [06:27.787] do something about it.
+- [06:29.722] On the world stage, America is respected again
+- [06:33.626] like it has never been respected before.
+- [06:37.897] Think about two years ago, three years ago four years
+- [06:41.501] ago or one year ago, we were a laughing stock all
+- [06:44.871] over the world.
+- [06:46.606] At the NATO summit in June, virtually all NATO
+- [06:48.975] members formally committed to increased defense
+- [06:52.145] spending at my request, from 2 percent to 5
+- [06:55.982] percent of GDP, making our alliance far stronger and
+- [07:00.086] more powerful than it was ever before.
+- [07:03.089] In May, I traveled to the Middle East to visit my
+- [07:07.193] friends and rebuild our partnerships in the Gulf,
+- [07:09.662] and those valued relationships with Saudi
+- [07:12.632] Arabia, Qatar, and the UAE, and other countries
+- [07:17.036] are now, I believe, closer than ever before.
+- [07:22.308] My administration has negotiated one historic
+- [07:25.411] trade deal after another, including with the United
+- [07:27.880] Kingdom, the European Union, Japan, South Korea,
+- [07:31.684] Vietnam.
+- [07:33.052] Indonesia, the Philippines, Malaysia, and
+- [07:35.521] many, many others.
+- [07:38.491] Likewise, in a period of just seven months, I have
+- [07:41.294] ended seven unendable wars.
+- [07:44.964] They said they were unendable.
+- [07:46.899] You're never going to get them solved.
+- [07:48.768] Some were going for 31 years -- two of them.
+- [07:51.971] 31.
+- [07:52.738] You think of it, 31 years, one was 36 years, one was
+- [07:56.943] 28 years.
+- [07:59.111] I ended seven wars.
+- [08:02.849] In all cases, they were raging with countless
+- [08:05.585] thousands of people being killed.
+- [08:09.388] This includes Cambodia and Thailand, Kosovo and
+- [08:13.960] Serbia, the Congo and Rwanda, a vicious, violent
+- [08:19.065] war that was.
+- [08:20.533] Pakistan and India, Israel and Iran, Egypt and
+- [08:25.438] Ethiopia, and Armenia and Azerbaijan.
+- [08:30.443] It included all of them.
+- [08:33.279] No president or prime minister, and for that
+- [08:36.048] matter, no other country has ever done anything
+- [08:38.351] close to that.
+- [08:40.586] And I did it in just seven months.
+- [08:43.122] It's never happened before.
+- [08:45.157] There's never been anything like that.
+- [08:46.826] Very honored to have done it.
+- [08:49.095] It's too bad that I had to do these things instead of
+- [08:54.066] the United Nations doing them.
+- [08:56.569] And sadly, in all cases, the United Nation did not
+- [09:00.573] even try to help in any of them.
+- [09:04.310] I ended seven wars, dealt with the leaders of each
+- [09:07.480] and every one of these countries, and never even
+- [09:10.049] received a phone call from the United Nations
+- [09:12.451] offering to help in finalizing the deal.
+- [09:17.957] All I got from the Unites Nations was an escalator
+- [09:21.127] that, on the way up, stopped right in the
+- [09:22.929] middle.
+- [09:24.797] If the First Lady wasn't in great shape, she would
+- [09:26.999] have fallen.
+- [09:28.367] But she's in great shape.
+- [09:30.703] We're both in good shape.
+- [09:31.771] We both stood.
+- [09:35.541] And then a teleprompter that didn't work.
+- [09:39.245] These are the two things I got from the United
+- [09:41.414] Nations, a bad escalator and a bad teleprompter.
+- [09:45.451] Thank you very much.
+- [09:48.020] And by the way, it's working now.
+- [09:49.355] It just went on.
+- [09:52.291] I think I should just do it the other way.
+- [09:53.893] It's easier.
+- [09:54.560] Thank you very much.
+- [09:57.863] I didn't think of it at the time because I was too
+- [10:00.866] busy working to save millions of lives.
+- [10:03.769] That is the saving and stopping of these wars.
+- [10:07.239] But later I realized that the United Nations wasn't
+- [10:09.976] there for us.
+- [10:10.810] They weren't there.
+- [10:11.610] I thought of it really after the fact, not during
+- [10:16.148] these negotiations, which were not easy.
+- [10:19.185] That being the case, what is the purpose of the
+- [10:22.254] United Nations?
+- [10:23.356] The U.N.
+- [10:24.023] has such tremendous potential.
+- [10:26.292] I've always said it.
+- [10:27.860] It has such a tremendous, tremendous potential, but
+- [10:31.764] it's not even coming close to living up to that
+- [10:34.367] potential, for the most part.
+- [10:36.469] At least for now, all they seem to do is write a
+- [10:39.805] really strongly worded letter and then never
+- [10:43.075] follow that letter up.
+- [10:44.543] It's empty words, and empty words don't solve
+- [10:47.980] war.
+- [10:49.448] The only thing that solves war and wars is action.
+- [10:53.919] Now, after ending all of these wars and also
+- [10:56.522] earlier negotiating the Abraham Accords, which is
+- [11:00.092] a very big thing for which our country received no
+- [11:04.697] credit, never receives credit, everyone says that
+- [11:08.067] I should get the Nobel Peace Prize for each one
+- [11:10.703] of these achievements.
+- [11:13.105] But for me, the real prize will be the sons and
+- [11:15.574] daughters who live to grow up with their mothers and
+- [11:19.045] fathers, because millions of people are no longer
+- [11:21.547] being killed in endless and unglorious wars.
+- [11:27.086] What I care about is not winning prizes, it's
+- [11:30.122] saving lives.
+- [11:30.890] We saved millions and millions of lives with the
+- [11:33.025] seven wars.
+- [11:35.661] And we have others that we're working on, and you
+- [11:37.663] know that.
+- [11:39.198] Many years ago, a very successful real estate
+- [11:41.834] developer in New York known as Donald J.
+- [11:45.771] Trump.
+- [11:47.206] I bid on the renovation and rebuilding of this
+- [11:49.942] very United Nations complex.
+- [11:53.112] I remember it so well.
+- [11:55.047] I said at the time that I would do it for $500
+- [11:57.483] million, rebuilding everything.
+- [11:59.485] It would be beautiful.
+- [12:01.320] I used to talk about, I'm going to give you marble
+- [12:03.489] floors.
+- [12:04.890] They're going to you terraza.
+- [12:07.993] I'm going to give you the best of everything.
+- [12:10.896] You're going to have mahogany walls.
+- [12:12.565] They're going to give plastic.
+- [12:15.568] But they decided to go in another direction, which
+- [12:17.903] was much more expensive at the time, which actually
+- [12:21.674] produced a far inferior product.
+- [12:23.576] And I realized that they did not know what they
+- [12:26.879] were doing when it came to construction and that
+- [12:29.014] their building concepts were so wrong and the
+- [12:32.017] product that they were proposing to build was so
+- [12:34.620] bad and so costly.
+- [12:37.223] It was going to cost them a fortune.
+- [12:39.158] And I said, and wait till you see the overruns.
+- [12:42.228] Well, I turned out to be right.
+- [12:43.596] They had massive cost overruns and spent between
+- [12:46.765] $2 and $4 billion on the building and did not even
+- [12:51.036] get the marble floors that I promised them.
+- [12:54.473] You walk on terraza.
+- [12:55.608] Do you notice that?
+- [12:57.810] As far as I'm concerned, frankly, looking at the
+- [13:00.646] building and getting stuck on the escalator, they
+- [13:05.017] still haven't finished the job.
+- [13:07.286] They still haven't finished.
+- [13:08.387] That was years ago.
+- [13:10.689] The project was so corrupt that Congress actually
+- [13:13.159] asked me to testify before them on the tremendous
+- [13:17.897] waste of money, because it turned out that they had
+- [13:21.100] no idea what it was, but they knew it was anywhere
+- [13:24.270] between $2 billion and $4 billion, as opposed to
+- [13:27.273] $500 million with a guarantee.
+- [13:30.543] But they had not idea, and I said it cost much more
+- [13:32.611] than $5 billion.
+- [13:34.680] Unfortunately, many things in the United Nations are
+- [13:37.183] happening just like that.
+- [13:39.585] But on an even much bigger scale, much, much bigger.
+- [13:43.355] Very sad to see whether the U.N.
+- [13:46.292] can manage to play a productive role.
+- [13:49.695] I've come here today to offer the hand of American
+- [13:53.532] leadership and friendship to any nation in this
+- [13:56.235] assembly that is willing to join us in forging a
+- [13:59.972] safer, more prosperous world.
+- [14:05.077] It's a world that we'll be much happier with, a
+- [14:08.781] dramatically better future is within our reach.
+- [14:12.184] But to get there, we must reject the failed
+- [14:14.920] approaches of the past and work together to confront
+- [14:18.724] some of the greatest threats in history.
+- [14:22.962] There is no more serious danger to our planet today
+- [14:26.465] than the most powerful and destructive weapons ever
+- [14:29.268] devised by man, of which the United States, as you
+- [14:33.005] know, has many.
+- [14:35.007] Just as I did in my first term, I've made containing
+- [14:38.877] these threats a top priority, starting with
+- [14:43.148] the nation of Iran.
+- [14:46.318] My position is very simple.
+- [14:48.988] The world's number-one sponsor of terror can
+- [14:51.523] never be allowed to possess the most dangerous
+- [14:54.193] weapon.
+- [14:55.694] That's why, shortly after taking office, I sent the
+- [14:58.530] so-called the Supreme Leader a letter making a
+- [15:01.800] generous offer.
+- [15:03.469] I extended a pledge of full cooperation in
+- [15:06.438] exchange for a suspension of Iran's nuclear program.
+- [15:11.910] The regime's answer was to continue their constant
+- [15:14.546] threats to their neighbors and U.S.
+- [15:16.949] interests throughout the region and some great
+- [15:19.518] countries that are right nearby.
+- [15:22.855] Today, many of Iran is former military
+- [15:24.857] commanders, in fact, I can say almost all of them are
+- [15:29.528] no longer with us.
+- [15:30.929] They're dead.
+- [15:32.464] And three months ago, in Operation Midnight Hammer,
+- [15:35.901] seven American B-2 bombers dropped the 14
+- [15:38.871] 30,000-pound each bombs on Iran's key nuclear
+- [15:44.009] facilities, totally obliterating everything.
+- [15:49.014] No other country on Earth could have done what we
+- [15:50.983] did.
+- [15:51.650] No other county has the equipment to do what we
+- [15:53.619] do.
+- [15:54.286] We have the greatest weapons on Earth.
+- [15:56.855] We hate to use them.
+- [15:58.791] But we did something that For 22 years, people
+- [16:02.428] wanted to do.
+- [16:04.296] With Iran's nuclear enrichment capacity
+- [16:06.465] demolished, I immediately brokered an end to the
+- [16:09.068] 12-day war, as it's called, between Israel and
+- [16:12.738] Iran, with both sides agreeing to fight, fight
+- [16:17.443] no longer.
+- [16:19.378] As everyone knows, I have also been deeply engaged
+- [16:22.281] in seeking a ceasefire in Gaza.
+- [16:24.983] Have to get that done.
+- [16:26.752] Have to get it done.
+- [16:28.687] Unfortunately, Hamas has repeatedly rejected
+- [16:31.457] reasonable offers to make peace.
+- [16:34.059] We can't forget October 7th, can we?
+- [16:37.229] Now, as if to encourage continued conflict, some
+- [16:41.133] of this body is seeking to unilaterally recognize a
+- [16:45.270] Palestinian state.
+- [16:47.239] The rewards would be too great for Hamas'
+- [16:51.510] terrorists for their atrocities.
+- [16:53.846] This would be a reward for these horrible atrocities,
+- [16:58.150] including October 7th, even while they refuse to
+- [17:01.253] release the hostages or accept to cease fire.
+- [17:04.590] Instead of giving to Hamas and giving so much,
+- [17:10.062] because they've taken so much.
+- [17:11.864] They have taken so many.
+- [17:13.432] This could have been solved so long ago.
+- [17:16.902] But instead of giving in to Hamas' ransom demands,
+- [17:19.972] those who want peace should be united with one
+- [17:24.276] message.
+- [17:25.477] Release the hostages now.
+- [17:28.046] Just release the hostages.
+- [17:30.548] (applause)
+- [17:41.026] Thank you.
+- [17:42.161] As we have got to come together, and we will come
+- [17:45.697] together.
+- [17:46.365] Going to get it done.
+- [17:47.766] We have to stop the war in Gaza immediately.
+- [17:49.735] We have stop it.
+- [17:50.569] We have get it done.
+- [17:51.470] We have negotiate.
+- [17:54.039] Immediately have to negotiate peace.
+- [17:55.908] We got to get the hostages back.
+- [17:58.110] We want all 20 back.
+- [17:59.978] We don't want two and four.
+- [18:01.280] As you know, I got, along with Steve Witkoff and
+- [18:04.817] others that helped us, Marco Rubio.
+- [18:06.718] We got most of them back.
+- [18:09.922] We were involved in all of them.
+- [18:12.458] But I always said, the last 20 are going to be
+- [18:14.092] the hardest, and that's exactly what happened.
+- [18:16.929] We have to get them back now.
+- [18:18.397] We don't want to get back two, then another two, and
+- [18:20.933] then one, and then three, have this process.
+- [18:23.769] No, we want them all back, and we want the actually
+- [18:26.638] 38 dead bodies back, too.
+- [18:28.807] Those parents came to me, and they want them back,
+- [18:30.642] and they wanted them back very quickly and very
+- [18:33.612] badly.
+- [18:34.813] As though they were alive, they want him.
+- [18:36.315] They want him every bit as much as if their son or
+- [18:39.551] daughter were alive.
+- [18:41.820] I've also been working relentlessly, stopping the
+- [18:45.891] killing in Ukraine.
+- [18:48.694] I thought that would be of the seven wars that I
+- [18:51.730] stopped.
+- [18:52.865] I thought would be the easiest because of my
+- [18:54.733] relationship with President Putin, which had
+- [18:57.236] always been a good one.
+- [18:58.670] I thought was going to be the easier one.
+- [19:00.739] But, you know, in war, you never know what's going to
+- [19:03.242] happen.
+- [19:03.909] There are always lots of surprises, both good and
+- [19:05.878] bad.
+- [19:07.446] Everyone thought Russia would win this war in
+- [19:10.015] three days.
+- [19:12.384] But it didn't work out that way.
+- [19:13.785] It was supposed to be just a quick little skirmish.
+- [19:18.457] It's not making Russia look good.
+- [19:20.425] It's making them look bad.
+- [19:22.728] No matter what happens, from here on out, this was
+- [19:25.864] something that should have taken a matter of days,
+- [19:29.301] certainly less than a week, and they've been
+- [19:31.503] fighting for three and a half years and killing
+- [19:36.141] anywhere from 5,000 to 7,000 young soldiers,
+- [19:40.612] Mostly, mostly soldiers.
+- [19:43.015] On both sides every single week, from 5,000 to 7,000
+- [19:47.920] dead young people, and some in cities, much
+- [19:52.057] smaller numbers, where rockets are shot, where
+- [19:55.527] drones are dropped.
+- [19:57.663] This war would never have started if I were
+- [20:00.032] president.
+- [20:00.699] This was a war that should have never happened.
+- [20:03.735] It shows you what leadership is, what bad
+- [20:06.038] leadership can do to a country.
+- [20:08.073] Look what happened to the United States.
+- [20:10.776] And look where we are right now in just a short
+- [20:12.778] period of time.
+- [20:13.478] The only question now is how many more lives will
+- [20:15.781] be needlessly lost on both sides.
+- [20:19.885] China and India are the primary funders of the
+- [20:22.688] ongoing war by continuing to purchase Russian oil.
+- [20:26.625] But inexcusably, even NATO countries have not cut off
+- [20:30.596] much Russian energy and Russian energy products.
+- [20:35.801] Which, as you know, I found out about two weeks
+- [20:37.569] ago, and I wasn't happy.
+- [20:40.505] They're funding the war against themselves.
+- [20:44.710] Who the hell ever heard of that one?
+- [20:47.646] In the event that Russia is not ready to make a
+- [20:49.715] deal to end the war, then the United States is fully
+- [20:53.752] prepared to impose a very strong round of powerful
+- [20:57.923] tariffs, which would stop the bloodshed, I believe,
+- [21:01.026] very quickly.
+- [21:01.693] But for those tariffs to be effective, European
+- [21:04.796] nations, all of you are gathered here right now
+- [21:09.368] would have to join us in adopting the exact same
+- [21:12.437] measures.
+- [21:13.105] I mean, you're much closer to the sea.
+- [21:16.575] We have an ocean in between.
+- [21:18.844] You're right there.
+- [21:20.445] And Europe has to step it up.
+- [21:22.681] They can't be doing what they're doing.
+- [21:24.416] They're buying oil and gas from Russia while they're
+- [21:28.320] fighting Russia.
+- [21:31.089] It's embarrassing to them.
+- [21:32.858] And it was very embarrassing to them when
+- [21:34.559] I found out about it, I can tell you that.
+- [21:36.495] They have to immediately cease all energy purchases
+- [21:41.033] from Russia.
+- [21:42.868] Otherwise, we're all wasting a lot of time.
+- [21:46.271] So I'm ready to discuss this.
+- [21:47.706] We're going to discuss it today with the European
+- [21:50.542] nations, all gathered here.
+- [21:52.244] I'm sure they're thrilled to hear me speak about it,
+- [21:55.514] but that's the way it is.
+- [21:56.615] I like to speak my mind and speak the truth.
+- [21:59.718] As we seek to reduce the threat of dangerous
+- [22:02.921] weapons today, I'm also calling on every nation to
+- [22:05.557] join us in ending the development of biological
+- [22:08.360] weapons once and for all.
+- [22:11.196] And biological is terrible, and nuclear.
+- [22:14.433] Is even beyond, and we include nuclear in that.
+- [22:17.035] We want to have a cessation of the
+- [22:20.706] development of nuclear weapons.
+- [22:23.241] We know, and I know, and I get to view it all the
+- [22:25.544] time.
+- [22:26.211] Sir, would you like to see?
+- [22:27.079] And I look at weapons that are so powerful.
+- [22:32.884] We just can't ever use them.
+- [22:33.985] If we ever use them, the world literally might come
+- [22:38.223] to an end.
+- [22:38.890] There would be no United Nations to be talking
+- [22:42.194] about.
+- [22:43.528] There would no nothing.
+- [22:45.464] Just a few years ago, reckless experiments
+- [22:47.866] overseas gave us a devastating global
+- [22:50.669] pandemic.
+- [22:52.304] Yet, despite that worldwide catastrophe,
+- [22:54.573] many countries are continuing extremely risky
+- [22:57.175] research into bioweapons and man-made pathogens.
+- [23:02.414] This is unbelievably dangerous.
+- [23:05.784] To prevent potential disasters, I'm announcing
+- [23:08.253] today that my administration will lead a
+- [23:10.589] international effort to enforce Biological Weapons
+- [23:13.692] Convention, which is going to be meeting with the top
+- [23:17.462] leaders of the world by pioneering an AI
+- [23:20.599] verification system that everyone can trust.
+- [23:24.436] Hopefully, the U.N.
+- [23:25.570] can play a constructive role, and it will also go,
+- [23:29.174] be one of the early Projects under AI.
+- [23:32.577] Let's see how good it is, because a lot of people
+- [23:34.546] are saying it could be one of the great things ever,
+- [23:38.750] but it also can be dangerous, but it could be
+- [23:41.119] put to tremendous use and tremendous good.
+- [23:43.255] And this would be an example of that.
+- [23:45.891] Not only is the U.N.
+- [23:46.925] not solving the problems it should, too often, it's
+- [23:50.796] actually creating new problems for us to solve.
+- [23:53.632] The best example is the number one political issue
+- [23:56.768] of our time, the crisis of uncontrolled migration.
+- [23:59.905] It's uncontrolled.
+- [24:02.507] Your countries are being ruined.
+- [24:04.075] The United Nations is funding an assault on
+- [24:07.479] Western countries and their borders.
+- [24:11.149] In 2024, the U.N.
+- [24:12.684] budgeted $372 million in cash assistance to support
+- [24:18.256] an estimated 624,000 migrants journeying into
+- [24:23.195] the United States.
+- [24:24.863] Think of that.
+- [24:25.530] The U.N.
+- [24:26.198] is supporting people that are illegally coming into
+- [24:28.900] the United States, and then we have to get them
+- [24:30.869] out.
+- [24:32.504] The U.N.
+- [24:33.171] also provided food, shelter, transportation,
+- [24:35.640] and debit cards to illegal aliens.
+- [24:37.676] Can you believe that?
+- [24:39.411] On the way to infiltrate our southern border,
+- [24:44.316] millions of people came through that southern
+- [24:46.284] border.
+- [24:47.085] Just a year ago, millions and millions of people
+- [24:49.621] were pouring in.
+- [24:50.288] Twenty-five million altogether over the four
+- [24:52.557] years of the incompetent Biden administration.
+- [24:56.995] And now we have it stopped, totally stopped.
+- [25:00.065] In fact, they're not even coming anymore because
+- [25:02.901] they know they can't get through.
+- [25:05.904] But what took place is totally unacceptable.
+- [25:08.440] The U.N.
+- [25:09.107] is supposed to stop invasions, not create
+- [25:11.443] them, and not finance them.
+- [25:14.312] In the United States, we reject the idea that mass
+- [25:16.982] numbers of people from foreign lands can be
+- [25:19.084] permitted to travel halfway around the world,
+- [25:22.153] trample our borders, violate our sovereignty,
+- [25:24.389] because unmitigated crime and deplete our social
+- [25:28.860] safety net.
+- [25:30.695] We have reasserted that America belongs to the
+- [25:34.900] American people, and I encourage all countries to
+- [25:37.402] take their own stand in defense of their citizens
+- [25:41.840] as well.
+- [25:42.841] You have to do that because I see it.
+- [25:46.544] I'm not mentioning names.
+- [25:48.013] I see and I can call every single one of them out.
+- [25:51.216] You're destroying your countries.
+- [25:52.717] They're being destroyed.
+- [25:55.320] Europe is in serious trouble.
+- [25:57.722] They've been invaded by a force of illegal aliens
+- [26:00.892] like nobody's ever seen before.
+- [26:02.894] Illegal aliens are pouring into Europe.
+- [26:05.530] Nobody is ever -- and nobody is doing anything
+- [26:08.633] to change it, to get them out.
+- [26:11.469] It's not sustainable.
+- [26:13.605] And because they choose to be politically correct,
+- [26:17.008] they're doing just absolutely nothing about
+- [26:19.945] it.
+- [26:22.914] And I have to say, I look at London, where you have
+- [26:26.084] a terrible mayor, terrible, terrible mayor.
+- [26:28.219] And it's been so changed, so changed.
+- [26:33.725] Now they want to go to Sharia law.
+- [26:37.429] But you're in a different country.
+- [26:38.763] You can't do that.
+- [26:40.565] Both the immigration and their suicidal energy
+- [26:43.368] ideas will be the death of Western Europe if
+- [26:46.504] something is not done immediately.
+- [26:48.473] They cannot, this cannot be sustained.
+- [26:52.577] What makes the world so beautiful is that each
+- [26:54.779] country is unique.
+- [26:56.848] But to stay this way, every sovereign nation
+- [26:59.184] must have the right to control their own borders.
+- [27:01.386] You have the rights to control your borders, as
+- [27:04.155] we do now, and to limit the sheer numbers of
+- [27:07.425] migrants entering their countries and paid for by
+- [27:10.595] the people of that nation that were there and that
+- [27:13.365] built that particular nation at the time.
+- [27:16.868] They put their blood, sweat, tears, money into
+- [27:20.939] that country.
+- [27:22.474] And now they're being ruined.
+- [27:24.509] Proud nations must be allowed to protect their
+- [27:26.678] communities and prevent their societies from being
+- [27:29.214] overwhelmed by people they have never seen before
+- [27:32.317] with different customs, religions, with different
+- [27:36.087] everything.
+- [27:37.422] Where migrants have violated laws, lodged
+- [27:40.225] false asylum claims, or claimed refugee status for
+- [27:43.862] illegitimate reasons, they should, in many cases, be
+- [27:48.066] immediately sent home.
+- [27:50.201] And while we will always have a big heart for
+- [27:52.404] places and people that are struggling and truly
+- [27:54.806] compassionate, answers will be given.
+- [28:00.545] We have to solve the problem and we have to
+- [28:02.414] solve it in their countries, not create new
+- [28:04.616] problems in our countries.
+- [28:06.017] And we are very helpful to a lot of countries that
+- [28:10.155] are just not able to send their people anymore.
+- [28:13.291] They used to send them to us in caravans of 25,000,
+- [28:16.428] 30,000 people each.
+- [28:18.129] These massive caravans of people pouring into our
+- [28:20.965] country, totally unchecked and unvetted.
+- [28:23.835] But not anymore.
+- [28:26.404] According to the Council of Europe, in 2024, almost
+- [28:29.741] 50 percent of inmates in German prisons were
+- [28:33.711] foreign nationals or migrants.
+- [28:35.914] In Austria, the number was 53 percent of the people
+- [28:39.717] in prisons were from places that weren't from
+- [28:45.490] where they are now.
+- [28:46.891] In Greece, the number was 54 percent.
+- [28:49.094] And in Switzerland -- beautiful Switzerland --
+- [28:51.096] it's 72 percent of the people in prisons are from
+- [28:53.965] outside of Switzerland.
+- [28:56.768] When your prisons are filled with so-called
+- [28:58.603] asylum seekers who repaid kindness -- and that's
+- [29:02.040] what they did.
+- [29:02.707] They repaid kindness with crime.
+- [29:05.643] It's time to end the failed experiment of open
+- [29:08.046] borders.
+- [29:08.713] You have to end it now.
+- [29:09.380] See, I can tell you.
+- [29:11.716] I'm really good at this stuff.
+- [29:13.351] Your countries are going to hell.
+- [29:16.688] In America, we've taken bold action to swiftly
+- [29:19.324] shut down uncontrolled migration.
+- [29:21.893] Once we started detaining and deporting everyone who
+- [29:24.496] crossed the border and removing illegal aliens
+- [29:27.565] from the United States, they simply stopped
+- [29:29.634] coming.
+- [29:30.335] They're not coming anymore.
+- [29:31.002] We're getting a lot of credit, but they're not
+- [29:32.337] come anymore.
+- [29:34.272] This was a humanitarian act for all involved
+- [29:37.909] because, on the trips up, thousands of people a week
+- [29:42.046] were dying.
+- [29:43.114] Women were being raped.
+- [29:45.216] Nobody's ever seen anything like it.
+- [29:47.252] Raped, horribly beaten, raped.
+- [29:50.822] On the trip up, the journey up, it was a long
+- [29:53.124] walk.
+- [29:53.791] It was a large arduous journey, indeed.
+- [29:58.029] And it was also a historic victory against human
+- [30:01.299] trafficking throughout the region.
+- [30:03.768] What we did was a victory, and we saved so many lives
+- [30:07.639] of people that wouldn't make the journey.
+- [30:09.741] That journey was loaded up with death.
+- [30:14.913] Loaded up with death.
+- [30:16.948] Dead bodies all along, all along the roads of jungles
+- [30:22.453] to get up.
+- [30:23.188] They go through jungles.
+- [30:24.355] They go to areas so hot you couldn't breathe.
+- [30:27.525] They were dying of suffocation.
+- [30:29.093] Areas so hot that you couldn't breathe.
+- [30:33.665] Dead bodies, all over.
+- [30:36.834] By them not coming, we're saving tremendous numbers
+- [30:39.571] of lives.
+- [30:41.272] My people have done a fantastic job in doing
+- [30:45.176] what they did, and the American public agrees
+- [30:48.680] with it.
+- [30:49.347] I mean, I was very proud to see this morning I have
+- [30:51.349] the highest poll numbers I've ever had.
+- [30:52.984] Part of it is because of what we've done on the
+- [30:55.687] border.
+- [30:56.354] I guess the other part is what we have done on the
+- [30:57.722] economy.
+- [30:58.957] Joe Biden's policies empowered murderous gangs,
+- [31:01.726] human smugglers, child traffickers, drug cartels,
+- [31:04.762] and prisoners.
+- [31:06.030] Prisoners from all over the world.
+- [31:09.100] The previous administration also lost
+- [31:11.135] nearly 300,000 children.
+- [31:12.870] Think of that.
+- [31:13.671] They lost more than 300,000 children, little
+- [31:17.775] children, who were trafficked into the United
+- [31:20.511] States on the Biden watch, many of whom have been
+- [31:24.916] raped, exploited, and abused, and sold.
+- [31:29.320] Sold.
+- [31:30.555] Nobody talks about that.
+- [31:31.823] The fake news doesn't write about it, with many
+- [31:35.693] others, young children, who are missing or dead.
+- [31:41.099] And we found a lot of these children, we're
+- [31:43.534] sending it back.
+- [31:45.036] And we've been sending them back to their
+- [31:46.537] parents.
+- [31:47.338] They said, nobody knows who they are.
+- [31:49.741] They said where do you come from?
+- [31:51.075] And they'll give us a country and we'll find out
+- [31:52.877] and we will figure it out and we bring them back to
+- [31:54.712] their homes.
+- [31:56.648] And the mother and father rushed to the door and
+- [31:58.916] their tears in their eyes.
+- [32:00.685] They can't believe that they're seeing their son
+- [32:02.520] or daughter, their little son or daughter again.
+- [32:05.323] We've done almost 30,000 of them so far.
+- [32:09.193] Any system that results in the mass trafficking of
+- [32:11.896] children is inherently evil.
+- [32:14.699] Yet that is exactly what the globalist migration
+- [32:17.602] agenda has done, and it's what it's all about.
+- [32:21.272] In America, those days, as you know, are over.
+- [32:23.441] The Trump administration is working, and we are
+- [32:26.377] continuing to work to track down the villains
+- [32:30.048] that are causing this problem, and also, as I
+- [32:32.917] said, to get back the 30,000 we've already
+- [32:37.755] returned.
+- [32:38.790] Now I think we're going to have another.
+- [32:40.224] We're going find a lot.
+- [32:41.559] You're not going to find all of them, 300 -- more
+- [32:43.661] than 300,000.
+- [32:44.329] They're lost or they're dead.
+- [32:46.631] They're lost or they are dead because of the
+- [32:50.902] animals that did this.
+- [32:52.870] To protect our citizens, I've also designated
+- [32:55.773] multiple savage drug cartels as far as to --
+- [32:59.677] and you see this, and you'll see it happening
+- [33:01.946] right before your eyes.
+- [33:04.449] Let's put it this way, people don't like taking
+- [33:07.752] big loads of drugs in boats anymore.
+- [33:09.954] There aren't too many boats that are traveling
+- [33:11.622] on the seas by Venezuela.
+- [33:14.125] They tend not to want to travel very quickly
+- [33:17.095] anymore.
+- [33:18.830] And we've virtually stopped drugs coming into
+- [33:21.933] our country by sea.
+- [33:23.601] We call them the water drugs.
+- [33:25.036] They kill hundreds of thousands of people.
+- [33:29.273] I've also designated multiple savage drug
+- [33:33.244] cartels as far as foreign terrorist organizations,
+- [33:37.048] along with two bloodthirsty transnational
+- [33:39.584] gangs, probably the worst gangs anywhere in the
+- [33:41.753] world, MS-13 and Trende Aragua.
+- [33:45.556] Trende Aragua is from Venezuela, by the way.
+- [33:48.659] Such organizations torture, maim, mutilate,
+- [33:52.430] and murder with impunity.
+- [33:55.400] They're the enemies of all humanity.
+- [33:57.201] And for this reason, we've recently begun using the
+- [34:00.271] supreme power of the United States military to
+- [34:03.875] destroy Venezuelan terrorists and trafficking
+- [34:07.545] networks led by Nicolas Maduro.
+- [34:12.283] To every terrorist thug smuggling poisonous drugs
+- [34:14.919] into the United States of America, please be warned
+- [34:17.722] that we will blow you out of existence.
+- [34:20.691] That's what we're doing.
+- [34:21.526] We have no choice.
+- [34:23.327] Can't let it happen.
+- [34:24.262] They're destroying, I believe we lost 300,000
+- [34:27.732] people last year to drugs.
+- [34:29.100] 300,000 fentanyl and other drugs.
+- [34:33.671] Each boat that we sink carries drugs that would
+- [34:36.140] kill more than 25,000 Americans.
+- [34:39.944] We will not let that happen.
+- [34:42.713] Energy is another area where the United States is
+- [34:45.183] now thriving like never before.
+- [34:47.652] We're getting rid of the falsely named renewables.
+- [34:51.856] By the way, they're a joke.
+- [34:54.959] They don't work.
+- [34:56.928] They're too expensive.
+- [34:58.329] They're not strong enough to fire up the plants that
+- [35:00.765] you need to make your country great.
+- [35:03.468] The wind doesn't blow.
+- [35:04.769] Those big windmills are so pathetic and so bad, so
+- [35:08.840] expensive to operate.
+- [35:11.342] And they have to be rebuilt all the time, and
+- [35:13.211] they start to rust and rot.
+- [35:16.214] Most expensive energy ever conceived, and it's
+- [35:19.450] actually energy.
+- [35:20.451] You're supposed to make money with energy, not
+- [35:22.620] lose money.
+- [35:23.287] You lose money, the governments have to
+- [35:24.789] subsidize.
+- [35:25.456] You can't put them out without massive subsidies.
+- [35:28.893] And most of them were built in China, and I give
+- [35:30.828] China a lot of credit.
+- [35:31.929] They build them, but they have very few wind farms.
+- [35:34.065] So why is it that they build them and they send
+- [35:35.900] them all over the world, but they barely use them.
+- [35:39.637] You know, they use coal.
+- [35:41.839] They use gas.
+- [35:43.908] They use almost anything, but the don't like wind.
+- [35:47.612] But they sure as hell like selling the windmills.
+- [35:50.748] Europe, on the other hand, is a long way to go, with
+- [35:53.084] many countries being on the brink of destruction
+- [35:56.888] because of the green energy agenda.
+- [35:58.890] And I give a lot of credit to Germany.
+- [36:00.491] Germany was being led down a very sick path, both on
+- [36:05.363] immigration, by the way, and on energy.
+- [36:08.733] They were going green, and they were going bankrupt.
+- [36:12.270] And the new leadership came in, and they went
+- [36:16.374] back to where they were, with fossil fuel and with
+- [36:19.544] nuclear, which is good.
+- [36:21.412] It's now safe, and you can do it properly.
+- [36:24.448] But they went back to where they were, and they
+- [36:28.419] opened up a lot of different plants, energy
+- [36:30.788] plants, and energy-producing plants.
+- [36:33.324] And they're doing well.
+- [36:34.358] I give Germany a lot credit for that.
+- [36:36.994] They've said this is a disaster, what's
+- [36:38.896] happening.
+- [36:40.264] They were going all green.
+- [36:41.566] All green is all bankrupt.
+- [36:44.802] That's what it represents.
+- [36:46.671] And it's not politically correct.
+- [36:48.873] I'll be very badly criticized for saying it,
+- [36:51.075] but I'm here to tell the truth.
+- [36:53.010] I don't care.
+- [36:53.678] It doesn't matter to me.
+- [36:55.346] I'm in New York City.
+- [36:57.181] I'm feeling a lot safer.
+- [36:58.516] Crime, we're getting crime down.
+- [37:00.585] And by the way, speaking of crime, Washington,
+- [37:02.853] D.C. Washington, D.C. was the crime capital of
+- [37:07.024] America.
+- [37:08.125] Now it's a totally -- after 12 days, it's a
+- [37:11.395] totally safe city.
+- [37:13.497] Everyone's going out to dinner.
+- [37:15.166] They're going out the restaurants.
+- [37:16.701] Your wife can walk down the middle of the street.
+- [37:19.537] With or without you, nothing's going to happen.
+- [37:22.773] My people have done a fantastic job.
+- [37:24.709] And, yes, I called in the National Guard, and the
+- [37:27.645] National Guard took care of business.
+- [37:29.380] And they weren't politically correct, but
+- [37:31.015] they took care business.
+- [37:32.149] We got 1,700 career criminals out, brought
+- [37:36.020] them back to where they came from, the countries
+- [37:37.922] where they come from, or put them in jails.
+- [37:40.524] Washington, D.C. is now a totally safe city again.
+- [37:45.162] And I welcome you to come.
+- [37:46.664] In fact, we'll have dinner together at a local
+- [37:48.666] restaurant, and we'll be able to walk.
+- [37:51.102] We don't have to go by an armor plated vehicle.
+- [37:54.705] We'll walk right over there from the White
+- [37:56.374] House.
+- [37:57.742] They've given up their powerful edge.
+- [38:00.678] A lot of the countries that we're talking about
+- [38:02.813] in oil and gas, such as essentially closing the
+- [38:06.017] great North Sea oil.
+- [38:07.284] Oh, the North Sea.
+- [38:08.419] I know it so well.
+- [38:09.987] Aberdeen was the oil capital of Europe, and
+- [38:13.891] there's tremendous oil that hasn't been found in
+- [38:16.127] the North Sea.
+- [38:17.528] Tremendous oil.
+- [38:18.529] And I was with the Prime Minister, who I respected
+- [38:20.965] like a lot, and I said, You're sitting with the
+- [38:22.667] greatest asset.
+- [38:23.834] They essentially closed it by making it so highly
+- [38:27.371] taxed that no developer, no oil company can go
+- [38:31.709] there.
+- [38:32.610] They have tremendous oil left.
+- [38:34.812] And more importantly, they have tremendous oil that
+- [38:36.681] hasn't even been found yet.
+- [38:38.149] And what a tremendous asset for the United
+- [38:43.721] Kingdom.
+- [38:44.922] And I hope the Prime Minister is listening
+- [38:47.191] because I told it to him three days in a row.
+- [38:49.694] That's all he heard.
+- [38:50.828] North Sea oil, North Sea, because I want to see them
+- [38:53.664] do well.
+- [38:54.598] I want stop seeing them ruining that beautiful
+- [38:57.268] Scottish and English countryside with windmills
+- [39:01.472] and massive solar panels that go seven miles by
+- [39:05.109] seven miles, taking away farmland.
+- [39:08.579] But we're not letting this happen in America.
+- [39:10.848] In 1982 the executive director of the United
+- [39:14.151] Nations Environmental Program predicted that by
+- [39:16.887] the year 2000, climate change would cause a
+- [39:21.225] global catastrophe.
+- [39:23.027] He said that it will be irreversible as any
+- [39:26.964] nuclear holocaust would be.
+- [39:29.400] This is what they said at the United nations.
+- [39:32.169] What happened?
+- [39:32.870] Here we are.
+- [39:34.271] Another U.N.
+- [39:34.972] Official stated in 1989 that within a decade,
+- [39:37.908] entire nations could be wiped off the map.
+- [39:41.078] By global warming.
+- [39:42.880] Not happening.
+- [39:44.882] You know, it used to be global cooling.
+- [39:46.650] If you look back years ago, in the 1920s and the
+- [39:50.387] 1930s, they said, global cooling will kill the
+- [39:54.225] world.
+- [39:55.459] We have to do something.
+- [39:57.194] Then they said global warming will kill the
+- [40:00.131] world, but then it started getting cooler.
+- [40:02.299] So now they could just call it climate change,
+- [40:04.335] because that way they can't miss. Climate change
+- [40:07.104] because if it goes Higher or lower, whatever the
+- [40:10.841] hell happens, is climate change.
+- [40:14.078] It's the greatest con job ever perpetrated on the
+- [40:17.314] world, in my opinion.
+- [40:19.116] Climate change, no matter what happens, you're
+- [40:21.619] involved in that.
+- [40:23.387] No more global warming, no more global cooling.
+- [40:26.056] All of these predictions made by the United Nations
+- [40:29.593] and many others, often for bad reasons, were wrong.
+- [40:34.832] They were made by stupid people.
+- [40:37.268] But have caused their country's fortunes, and
+- [40:39.136] given those same countries no chance for success, if
+- [40:42.473] you don't get away from this green scam, your
+- [40:45.075] country is going to fail.
+- [40:46.710] And I'm really good at predicting things, you
+- [40:48.612] know?
+- [40:49.280] They actually said during the campaign, they had a
+- [40:51.415] hat, the best-selling hat.
+- [40:53.584] Trump was right about everything.
+- [40:55.686] And I don't say that in a braggadocios way, but it's
+- [40:57.855] true.
+- [40:58.789] I've been right about every thing.
+- [41:00.658] And I am telling you that if you don't go away from
+- [41:05.095] the green energy scam, Your country is going to
+- [41:08.566] fail.
+- [41:09.233] And if you don't stop people that you've never
+- [41:12.903] seen before that you have nothing in common with,
+- [41:15.339] your country is gonna fail.
+- [41:17.775] I'm the President of the United States, but I worry
+- [41:20.277] about Europe.
+- [41:20.945] I love Europe.
+- [41:21.612] I love the people of Europe.
+- [41:23.514] And I hate to see it being devastated by energy and
+- [41:28.352] immigration.
+- [41:30.087] This double-tailed monster destroys everything in its
+- [41:32.890] wake, and they cannot let that happen any longer.
+- [41:36.293] You're doing it because you want to be nice, you
+- [41:39.763] want be politically correct, and you're
+- [41:41.565] destroying your heritage.
+- [41:45.002] They must take control strongly and immediately
+- [41:47.304] of the unmitigated immigration disaster and
+- [41:49.874] the fake energy catastrophe before it's
+- [41:53.310] too late.
+- [41:54.578] The carbon footprint is a hoax made up by people
+- [41:59.316] with evil intentions, and they're heading down a
+- [42:02.519] path of total destruction.
+- [42:04.989] You know the carbon footprint.
+- [42:06.190] It was a big, big thing a few years ago.
+- [42:10.628] I remember hearing about the carbon footprint, and
+- [42:13.998] then President Obama would get into Air Force One, a
+- [42:16.967] massive Boeing 747, and not a new one, an old one,
+- [42:21.739] with old engines that spew everything into the
+- [42:25.042] atmosphere.
+- [42:26.577] He'd talk about the carbon footprint, we must do
+- [42:29.213] something.
+- [42:29.880] Then he'd get in, and he'd fly from Washington to
+- [42:32.383] Hawaii to play a round of golf.
+- [42:35.452] And then he'd get back onto that big, beautiful
+- [42:37.755] plane, and he'd fly back, and he would talk about,
+- [42:41.091] again, global warming and the carbon footprint.
+- [42:46.196] It's a con job.
+- [42:48.265] At extreme cost and expense, Europe reduced
+- [42:50.768] its own carbon footprint by 37 percent.
+- [42:54.672] Think of that.
+- [42:55.906] Congratulations, Europe.
+- [42:57.274] Great job.
+- [42:57.975] It cost yourself a lot of jobs.
+- [42:59.643] A lot of factories closed.
+- [43:01.512] But you reduced the carbon footprint by 37 percent.
+- [43:06.116] However, for all of that sacrifice and much more,
+- [43:10.821] it's been totally wiped out and then some by a
+- [43:13.624] global increase of 54 percent.
+- [43:16.794] Much of it coming from China and other countries
+- [43:21.732] that are thriving around China, which now produces
+- [43:25.936] more CO2 than all the other developed nations in
+- [43:30.107] the world.
+- [43:32.443] So all of these countries are working so hard on the
+- [43:34.979] carbon footprint, which is nonsense, by the way.
+- [43:38.082] It's nonsense.
+- [43:40.384] You know, it's interesting.
+- [43:42.019] In the United States, we have still radicalized
+- [43:45.055] environmentalists, and they want the factories to
+- [43:48.025] stop, everything should stop, no more cows.
+- [43:50.594] We don't want cows anymore.
+- [43:51.695] I guess they want to kill all the cows.
+- [43:53.097] They want to do things that are just
+- [43:54.431] unbelievable.
+- [43:55.299] And you have it, too.
+- [43:57.234] But, you know, we a border, strong, and we
+- [44:01.338] have a shape.
+- [44:02.006] And that shape doesn't just go straight up.
+- [44:05.309] That shape is amorphous when it comes to the
+- [44:07.644] atmosphere.
+- [44:09.279] And if we had the most clean air, and I think we
+- [44:11.515] do, we have very clean air.
+- [44:13.183] We have the cleanest air we've had in many, many
+- [44:15.519] years.
+- [44:16.553] But the problem is that other countries, like
+- [44:18.956] China, which has air that's a little bit rough,
+- [44:23.494] it blows.
+- [44:25.362] And no matter what you're doing down here, the air
+- [44:28.098] up here, tends to get very dirty because it comes in
+- [44:31.602] from other countries where their air isn't so clean.
+- [44:35.406] And the environmentalists refuse to acknowledge
+- [44:37.608] that.
+- [44:38.475] Same thing with garbage.
+- [44:40.677] In Asia, they dump much of their garbage right into
+- [44:43.514] the ocean.
+- [44:44.815] And over about a one-week and two-week journey, it
+- [44:48.485] flows right past Los Angeles.
+- [44:51.889] You've seen it.
+- [44:52.990] Massive amounts of garbage.
+- [44:54.825] Almost too much to do anything about.
+- [44:57.327] Flowing past Los Angeles, past San Francisco, and
+- [45:01.965] then somebody would get in trouble because he dropped
+- [45:04.034] a cigarette on the beach.
+- [45:05.936] The whole thing is crazy.
+- [45:10.074] The primary effect of these brutal green energy
+- [45:12.543] policies has not been to help the environment but
+- [45:17.047] to redistribute manufacturing and
+- [45:19.383] industrial activity from developed countries that
+- [45:21.885] follow the insane rules that are put down to
+- [45:26.457] polluting countries that break the rules and are
+- [45:29.560] making a fortune.
+- [45:30.961] They're making a fortunately.
+- [45:33.163] European electricity bills are now four to five times
+- [45:36.800] more expensive than those in China and two to three
+- [45:40.404] times higher than the United States.
+- [45:42.206] And our bills are coming way down.
+- [45:43.574] You probably see that our gasoline prices are way
+- [45:46.844] down, you know, we have an expression, drill, baby
+- [45:50.180] drill.
+- [45:50.848] And that's what we're doing.
+- [45:51.815] We're going to be much lower in a year from now.
+- [45:55.486] But they've come way down over the last year.
+- [45:58.322] As a result, every air conditioner is, like, very
+- [46:04.161] uncommon to see one in some of these countries
+- [46:07.431] because the electric cost is so high.
+- [46:10.734] So while the U.S.
+- [46:11.635] has approximately 1,300 heat-related deaths
+- [46:15.372] annually, that's a lot, Europe loses more than
+- [46:18.509] 175,000 people to heat deaths each year.
+- [46:22.579] Because the cost is so expensive you can't turn
+- [46:24.515] on an air conditioner.
+- [46:25.516] What is that all about?
+- [46:26.617] That's not Europe.
+- [46:28.085] That's the Europe that I love and know.
+- [46:30.721] All in the name of pretending to stop the
+- [46:34.224] global warming hoax.
+- [46:36.793] The entire globalist concept of asking
+- [46:39.196] successful industrialized nations to inflict pain on
+- [46:42.232] themselves and radically disrupt their entire
+- [46:45.269] societies must be rejected completely and totally,
+- [46:48.805] and it must be immediate.
+- [46:50.607] That's why, in America, I withdrew from the fake
+- [46:53.844] Paris Climate Accord, where, by the way, America
+- [46:57.247] was paying so much more than every country.
+- [47:00.484] Others weren't paying.
+- [47:01.485] China didn't have to pay until 2030.
+- [47:05.022] Russia was given an old standard that was easy to
+- [47:07.791] meet, the 1990 standard.
+- [47:11.962] But for the United States, we're supposed to pay like
+- [47:14.164] a trillion dollars.
+- [47:15.165] And I said, this is another scam.
+- [47:19.503] The fact is, the United States has been taken
+- [47:22.206] advantage of by the world for many, many years, but
+- [47:24.641] not any longer, as you probably noticed.
+- [47:27.411] I unleashed massive energy production and signed
+- [47:30.447] historic executive orders to hunt for oil.
+- [47:35.552] But we don't have to do much hunting because we
+- [47:37.487] have the most oil of any nation anywhere, oil and
+- [47:40.257] gas, in the world.
+- [47:42.226] And if you add coal, we have the most oil in the
+- [47:45.128] country.
+- [47:45.796] Of any nation in the world.
+- [47:46.763] Clean -- I call it clean, beautiful coal.
+- [47:48.765] You can do things today with coal that you
+- [47:50.467] couldn't have done 10 years ago, 15 years.
+- [47:53.637] So I have a little standing order in the
+- [47:55.105] White House.
+- [47:56.406] Never use the word coal.
+- [47:57.841] Only use the words clean, beautiful coal -- sounds
+- [48:01.511] much better, doesn't it?
+- [48:03.247] But we stand ready to provide any country with
+- [48:05.582] abundant, affordable energy supplies if you
+- [48:07.884] need them, when most of you do.
+- [48:10.354] We're proudly exporting energy all over the world.
+- [48:12.723] We're now the largest exporter.
+- [48:14.958] In the United States, we want trade and robust
+- [48:17.561] commerce with all nations, everybody.
+- [48:21.098] We want to help nations.
+- [48:22.299] We're going to help the nations.
+- [48:24.301] But it must also be fair and reciprocal.
+- [48:27.404] The challenge with trade is much the same with
+- [48:30.674] climate.
+- [48:31.875] The countries that followed the rules and all
+- [48:35.112] their factories have been plundered, it's really sad
+- [48:39.383] to watch.
+- [48:40.684] They've been broken.
+- [48:42.653] They've been broken by countries that broke the
+- [48:45.455] rules.
+- [48:46.757] That's why the United States is now applying
+- [48:48.825] tariffs to other countries.
+- [48:50.961] And much as these tariffs were, for many years,
+- [48:53.897] applied to us, uncontrollably applied to
+- [48:56.600] us.
+- [48:57.901] We've used tariffs as a defense mechanism under
+- [49:02.839] the Trump administration, including my first term,
+- [49:06.176] where hundreds of billions of dollars in tariffs were
+- [49:08.712] taken in.
+- [49:09.780] And by the way, we had the lowest inflation, and now
+- [49:11.748] we have very low inflation.
+- [49:13.684] The only thing different is that we have hundreds
+- [49:15.585] of billions of dollars flowing into our country.
+- [49:19.022] But this is how we will ensure that the system
+- [49:21.525] works for everyone and is sustainable into the
+- [49:24.594] future.
+- [49:25.896] We're also using tariffs to defend our sovereignty
+- [49:28.565] and security throughout the world, including
+- [49:30.634] against nations that have taken advantage of former
+- [49:33.970] U.S.
+- [49:34.638] administrations for decades, including the
+- [49:38.942] most corrupt, incompetent administration in history,
+- [49:45.382] the sleepy Joe Biden administration.
+- [49:48.652] Brazil now faces major tariffs in response to its
+- [49:53.256] unprecedented efforts to interfere in the rights
+- [49:56.293] and freedoms of our American citizens and
+- [49:58.995] others, with censorship, repression, weaponization,
+- [50:02.866] judicial corruption, and targeting of political
+- [50:06.803] critics in the United States.
+- [50:08.271] I have a little problem saying this because I must
+- [50:10.907] tell you.
+- [50:12.275] I was walking in, and the leader of Brazil was
+- [50:14.344] walking out.
+- [50:15.846] We saw him, and I saw him.
+- [50:17.981] He saw me, and we embraced.
+- [50:20.751] And then I'm saying, can you believe I'm going to
+- [50:22.519] be saying this in just two minutes?
+- [50:26.390] But we actually agreed that we would meet next
+- [50:28.658] week.
+- [50:30.293] We didn't have much time to talk, like about 20
+- [50:32.362] seconds.
+- [50:33.029] They were -- in retrospect.
+- [50:35.899] I'm glad I waited because this thing didn't work out
+- [50:39.102] too well.
+- [50:39.770] But we did talk.
+- [50:42.139] We had a good talk, and we agreed to meet next week,
+- [50:44.608] if that's of interest.
+- [50:46.376] But he seemed like a very nice man, actually.
+- [50:48.311] He liked me.
+- [50:49.413] I liked him.
+- [50:50.080] But if you -- and I only do business with people I
+- [50:53.950] like.
+- [50:54.618] I don't -- when I don't like them, I don't like
+- [50:58.688] them.
+- [50:59.356] But we had, at least for about 39 seconds, we had
+- [51:04.761] excellent chemistry.
+- [51:05.729] It's a good sign.
+- [51:08.632] But also in the past, Brazil, can you believe
+- [51:11.134] this, unfairly tariffed our nation.
+- [51:13.603] But now, because of our tariffs, we are hitting
+- [51:15.839] them back, and we're hitting them back very
+- [51:17.974] hard.
+- [51:18.642] As President, I will always defend our national
+- [51:21.778] sovereignty and the rights of American citizens, so
+- [51:25.949] I'm very sorry to say this, that Brazil is doing
+- [51:30.086] poorly and will continue to do poorly.
+- [51:33.924] They can only do well when they're working with us.
+- [51:38.929] Without us, they will fail just as others have
+- [51:41.398] failed.
+- [51:42.065] It's true.
+- [51:42.732] Next year, the United States will celebrate the
+- [51:44.668] 250th anniversary of our glorious independence, a
+- [51:48.738] testament to enduring power in American freedom
+- [51:51.475] and spirit.
+- [51:52.843] We will also be proudly hosting the 2026 FIFA
+- [51:57.047] World Cup.
+- [51:58.448] And shortly thereafter, the 2028 Olympics, which
+- [52:01.585] is going to be very exciting.
+- [52:02.686] I hope you all come.
+- [52:04.154] I hope that countless people from all over the
+- [52:06.323] globe will take part of these great celebrations
+- [52:09.459] of liberty and human achievement, and that
+- [52:13.630] together we all can rejoice in the miracles of
+- [52:16.132] history that began in July 4th, 1776, when we founded
+- [52:21.638] the light to all nations.
+- [52:24.241] And it's something, really, that an amazing
+- [52:27.043] thing came out of that date.
+- [52:28.512] It's called the United States of America.
+- [52:31.515] In honor of this momentous anniversary, I hope that
+- [52:34.184] all countries who find inspiration in our example
+- [52:36.920] will join us in renewing our commitment, values and
+- [52:41.491] those values, really that we hold so dear together.
+- [52:45.262] Let us defend free speech and free expression.
+- [52:47.864] Let us protect religious liberty, including for the
+- [52:50.400] most persecuted religion on the planet today.
+- [52:54.471] It's called Christianity.
+- [52:56.773] And let us safeguard our sovereignty and cherish
+- [52:59.543] qualities that have made each of our nations so
+- [53:02.145] special, incredible, and extraordinary.
+- [53:05.582] In closing, I just want to repeat that immigration
+- [53:08.351] and the high cost of so-called green renewable
+- [53:11.021] energy is destroying a large part of the free
+- [53:14.524] world and a large of our planet.
+- [53:17.227] Countries that cherish freedom are fading fast
+- [53:21.364] because of their policies on these two subjects.
+- [53:24.734] You need strong borders and traditional energy
+- [53:27.837] sources if you are going to be great again.
+- [53:31.107] Whether you have come from north or south, east or
+- [53:34.444] west, near or far, every leader in this beautiful
+- [53:38.582] hall today represents a rich culture, a noble
+- [53:42.319] history, and a proud heritage that makes each
+- [53:44.955] nation majestic and unique.
+- [53:47.958] Unlike anything else in human history or any other
+- [53:52.095] place on the face of the Earth.
+- [53:54.364] From London to Lima, from Rome to Athens, from Paris
+- [53:58.435] to Seoul, from Cairo to Tokyo, and Amsterdam to
+- [54:03.206] right here in New York City, we stand on the
+- [54:06.142] shoulders of the leaders and legends, generals and
+- [54:09.112] giants, heroes and titans who won and built our
+- [54:12.616] beloved nations, all of our nations.
+- [54:15.852] With their own courage, strength, spirit, and
+- [54:18.154] skill, our ancestors climbed to mountains,
+- [54:21.825] conquered oceans, crossed deserts, and trekked over
+- [54:25.161] wide-open plains.
+- [54:27.130] They charged into thunderous battles,
+- [54:29.866] plunged into grave dangers.
+- [54:31.835] And they were soldiers and farmers and workers and
+- [54:35.672] warriors and explorers and patriots.
+- [54:38.875] They built towns into cities, tribes into
+- [54:41.077] kingdoms, ideas into industries and small
+- [54:44.447] islands into mighty empires.
+- [54:47.550] You're a part of all of that.
+- [54:49.653] They were champions for their people who never
+- [54:51.655] gave up and who never, ever gave in.
+- [54:55.659] Their values defined our national identities.
+- [54:59.896] Their visions forged our magnificent destiny.
+- [55:05.168] Everybody in this room is a part of it in your own
+- [55:08.338] way.
+- [55:09.005] That each of us inherits the deeds and the myths,
+- [55:12.442] the triumphs, the legacies of our own heroes and
+- [55:14.978] founders who so bravely showed us the way.
+- [55:18.048] Our ancestors gave everything for homelands
+- [55:21.651] that they defended with pride, with sweat, with
+- [55:26.056] blood, with life, and with death.
+- [55:29.859] Now the righteous task of protecting the nations
+- [55:32.729] that they built belongs to each and every one of us.
+- [55:37.801] So together, let us uphold our sacred duty to our
+- [55:40.804] people and to our citizens.
+- [55:42.439] Let us protect their borders, ensure their
+- [55:45.075] safety, preserve their cultures, treasure, and
+- [55:48.178] traditions, and fight, fight, fight for their
+- [55:51.347] precious dreams and their cherished freedoms.
+- [55:54.851] And in friendship and really a beautiful vision,
+- [55:59.689] let us all work together to build a bright
+- [56:04.160] beautiful planet, a planet that we all share, a
+- [56:06.763] planet of peace and a world that is richer,
+- [56:09.632] better, and more beautiful than ever before.
+- [56:11.668] That can happen.
+- [56:12.836] It will happen.
+- [56:14.104] It will happen, and I hope it can happen and start
+- [56:17.140] right now, right at this moment.
+- [56:19.375] We'll turn it around.
+- [56:20.343] We're going to make our countries better, safer,
+- [56:23.546] more beautiful.
+- [56:24.380] We're going to take care of our people.
+- [56:26.282] Thank you very much.
+- [56:27.150] It's been an honor.
+- [56:27.851] God bless the nations of the world.
+- [56:29.986] Thank you, very much, bye.
+- [56:32.622] (applause)
+- [56:47.804] Female Speaker: On behalf of the Assembly, I wish to
+- [56:49.906] thank the President of the United States.

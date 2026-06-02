@@ -1,0 +1,459 @@
+<!-- source: https://www.youtube.com/watch?v=9f8eaO2Vw4I -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9f8eaO2Vw4I -->
+<!-- date_published: 2025-08-22T16:08:37+00:00 -->
+<!-- date_accessed: 2026-06-02T01:17:27.723048+00:00 -->
+
+# Transcript: President Trump Visits The People's House Exhibit and Gaggles with the Press
+
+- [00:01.500] (inaudible conversation)
+- [00:22.430] Stewart McLaurin: Thank you so much for coming.
+- [00:23.750] We really appreciate it.
+- [00:27.330] The President: Thank you very much, everybody.
+- [00:28.720] We're doing a tour of the store, the new store.
+- [00:31.560] And Steward McLaurin is in charge
+- [00:35.240] and he's done a really great job.
+- [00:37.930] We've moved, as you know,
+- [00:39.200] the store from where you've had it for many years,
+- [00:42.520] because we're starting construction on the ballroom.
+- [00:45.140] And Stewart's excited about it.
+- [00:48.280] I think everybody's excited about it.
+- [00:49.900] It's going to be amazing, actually,
+- [00:52.800] but that was where they had their store.
+- [00:55.070] The President: So we had to move them out
+- [00:56.430] and we were going to find them another location over there.
+- [00:59.150] But this is a store that recently opened.
+- [01:00.960] Stewart, would you like to say anything about the store?
+- [01:02.910] Stewart McLaurin: Well, we're so excited
+- [01:04.140] to have the President here to look at the gift shop
+- [01:06.980] and we have this wonderful People's House Gallery,
+- [01:09.130] so that while the White House is closed for tours
+- [01:11.900] for this wonderful ballroom to be built,
+- [01:13.920] we have this 33,000 square foot experience
+- [01:16.780] open seven days a week, free to the public.
+- [01:19.620] So until that's built and reopened,
+- [01:21.810] we're happy to welcome everyone here and so honored
+- [01:23.670] and happy that you came over today.
+- [01:24.940] The President: And you do a great job.
+- [01:26.170] Stewart McLaurin: Thank you.
+- [01:27.400] The President: He's been here a long time.
+- [01:28.660] And we have a lot of things in common.
+- [01:31.650] We love the White House, right?
+- [01:33.980] And we're doing some very detailed renovations,
+- [01:37.360] fixing things that are broken,
+- [01:39.590] fixing floors that are cracked up and not good anymore.
+- [01:42.660] And in many cases, they were done in the 50s and 60s and 70s.
+- [01:47.110] We're redoing the Lincoln bathroom, which was part deco.
+- [01:49.730] The President: Lincoln -- they didn't have white deco
+- [01:51.110] (inaudible)
+- [01:52.310] Stewart McLaurin: It was from Harry Truman days.
+- [01:53.570] The President: It's been a long time ago.
+- [01:55.870] I think it was Harry Truman, is that right?
+- [01:58.240] But it's -- we're making it actually incredible.
+- [02:03.070] And that'll be done in about a week, two weeks.
+- [02:06.660] We're making some great improvements in the White House.
+- [02:08.990] We're doing it with the money that I give --
+- [02:12.500] the salary that I give in addition.
+- [02:15.160] The President: I wish it was only the salary, OK,
+- [02:16.910] that would be nice if it was only the salary.
+- [02:19.040] But -- and the ballroom, as you know, is being donated.
+- [02:22.890] It's going to be a couple of hundred million dollars
+- [02:25.890] at least, and it's going to be something.
+- [02:27.840] And there won't be anything like it anywhere.
+- [02:30.870] We're also looking at doing something
+- [02:32.330] on the executive office building
+- [02:33.880] because it's such a beautiful building,
+- [02:35.630] but it doesn't look it.
+- [02:36.830] It's one of the most beautiful buildings
+- [02:39.060] anywhere in Washington.
+- [02:40.300] I think it's just incredible,
+- [02:42.000] but you have to get passed the color,
+- [02:44.100] because the stone they used was a really bad color.
+- [02:47.760] Then we're looking at doing something very exciting
+- [02:49.880] on the executive office building,
+- [02:51.820] cosmetic, all cosmetic, to make it --
+- [02:54.640] to bring out the beauty, because it's one of the --
+- [02:57.290] to me, it's one of the most beautiful buildings.
+- [02:59.140] The President: But you have to study it to realize
+- [03:02.200] how incredible and complex it is.
+- [03:05.120] So we have a lot of fun doing this.
+- [03:06.480] We're fixing up the city. We're fixing up the White House
+- [03:09.030] and the environment at the White House.
+- [03:11.330] We're fixing up the whole world.
+- [03:13.690] We have great numbers that have just come out.
+- [03:16.280] The numbers -- the economy is doing incredibly, billions --
+- [03:20.370] trillions, actually, dollars of tariffs are coming in.
+- [03:24.510] And maybe most important,
+- [03:26.720] we have about close to $17 trillion
+- [03:29.350] being invested in the United States.
+- [03:31.120] We've never had anything even close to that.
+- [03:33.500] And that's in six months.
+- [03:35.340] So we've done numbers that nobody's ever seen before.
+- [03:38.890] And I'm now going over to Kennedy Center.
+- [03:42.870] I have some great contractors in my car.
+- [03:46.660] I have really great marble contractors and wood workers,
+- [03:50.580] and we're fixing Kennedy Center the way it should be.
+- [03:53.250] It was -- it was a mess.
+- [03:55.170] It was an absolute mess.
+- [03:57.010] And we're -- the bones are so great.
+- [04:00.010] They have marble that is so unbelievable,
+- [04:03.190] but it hasn't been polished and hasn't been grouted
+- [04:06.470] and hasn't been taken care of.
+- [04:08.740] And we're able to use most of it.
+- [04:10.290] As opposed to taking it out, we're able to use it.
+- [04:11.970] You couldn't buy --
+- [04:13.200] actually, it's marble that you couldn't buy.
+- [04:14.440] Stewart McLaurin: Wow.
+- [04:15.650] The President: The slabs are so big, white, beautiful slabs.
+- [04:17.520] You couldn't buy it today, and we're renovating it.
+- [04:21.430] And Kennedy Center, within a year,
+- [04:22.990] will be unbelievable, I think. It's got tremendous --
+- [04:26.550] we're painting the columns a different color.
+- [04:28.620] You know, it's got a fake -- fake gold.
+- [04:31.460] If you're going to use gold, gold, you know about gold.
+- [04:34.480] I love the gold, but if you don't use
+- [04:36.420] 24 karat gold, it doesn't look good
+- [04:38.310] and there's never been a paint that imitates it.
+- [04:40.360] So we're going to be painting the columns,
+- [04:42.950] probably a very good white, beautiful white.
+- [04:46.130] It'll look beautiful with the white marble behind it,
+- [04:48.110] the marble is all being renovated inside and out.
+- [04:51.100] So that's where I'm going right now.
+- [04:52.590] I have all the marble people with me
+- [04:54.580] and we're going to do that with Kennedy Center.
+- [04:57.450] The interior of Kennedy Center is being totally done.
+- [04:59.830] The chairs are being replaced or renovated.
+- [05:03.760] The stages are being renovated fully,
+- [05:05.990] very good stages, very good sound.
+- [05:07.530] They have great sound.
+- [05:08.740] We're lucky.
+- [05:09.970] Some opera houses, they spend a lot of time and money
+- [05:12.210] if it doesn't have good sound.
+- [05:14.160] It's like you're born a certain way,
+- [05:15.730] if an opera house opens up
+- [05:17.180] and it doesn't have good sound, you never make it good.
+- [05:20.190] They try. They've tried. In New York, they had a problem
+- [05:22.680] and they rip it apart every five years
+- [05:24.820] and try to make it good.
+- [05:26.160] But if it doesn't work, it doesn't work.
+- [05:27.750] This one, the Kennedy Center has phenomenal sound.
+- [05:30.660] It's one of the big advantages.
+- [05:32.080] So we're going to make that fantastic.
+- [05:34.090] We have a great board of close to 40 people
+- [05:37.800] and they're in love with it.
+- [05:40.030] They've made great contributions for it.
+- [05:42.790] And we'll have that, I think within a year,
+- [05:44.530] the Kennedy Center will be finished.
+- [05:46.760] We have the awards coming up in December.
+- [05:49.560] We have great people being awarded,
+- [05:51.270] Sylvester Stallone and KISS,
+- [05:55.020] which is -- right, very unusual, KISS.
+- [05:57.850] They don't do that, but they do it here.
+- [06:00.010] And we have just -- you know, you saw Michael Crawford's
+- [06:02.300] going to get an award.
+- [06:04.500] It is really going to be very exciting.
+- [06:07.230] I'm going to be hosting, not that I want to host.
+- [06:08.900] I don't want to host,
+- [06:10.160] but they've asked me very strongly to host
+- [06:11.930] so I'll host it, like I hosted The Apprentice years ago.
+- [06:15.760] And we'll -- we'll do a good job.
+- [06:18.230] And we have the awards, I guess, on December something.
+- [06:20.460] Early in December we have the awards.
+- [06:22.780] We'll be on CBS on television.
+- [06:25.270] The President: So I just wanted to thank you.
+- [06:26.570] Do you have any questions or anything?
+- [06:27.910] The Press: President Trump, are you going to fire Lisa Cook,
+- [06:29.770] the fed governor over her mortgage fraud?
+- [06:31.580] The President: Yeah, I'll fire her if she doesn't resign.
+- [06:33.050] Yeah, she's -- what she did was bad.
+- [06:36.300] So I'll fire her if she doesn't resign.
+- [06:38.900] The Press: Mr. President, have you been briefed
+- [06:41.060] on the FBI raid of John Bolton's home?
+- [06:43.390] The President: No, I don't know about it.
+- [06:44.730] I saw it on television this morning.
+- [06:46.400] I'm not a fan of John Bolton.
+- [06:48.280] He's a -- a real, sort of a lowlife.
+- [06:54.590] When I hired him, he served a good purpose
+- [06:56.400] because as you know,
+- [06:57.620] he was one of the people that forced Bush
+- [06:59.750] to do the ridiculous bombings in the Middle East.
+- [07:02.810] Bolton, he wants to kill people
+- [07:06.240] and he's very bad at what he does.
+- [07:08.050] The President: But he worked out great for me
+- [07:09.360] because every time -- he doesn't talk.
+- [07:11.980] He's like a very quiet person, except on television.
+- [07:14.930] If he could say something bad about Trump,
+- [07:16.560] he will always do that, but he really doesn't talk.
+- [07:19.060] He's quiet.
+- [07:20.450] And I'd walk into a room with him with a foreign country
+- [07:22.730] and the foreign country would give me everything
+- [07:24.390] because they said, oh, no, they're going to get blown up
+- [07:26.180] because John Bolton is there.
+- [07:28.340] The President: He's a -- not a smart guy,
+- [07:31.180] but he could be very unpatriotic.
+- [07:33.740] I mean, we're going to find out. I know nothing about it.
+- [07:35.800] I just saw it this morning. They did a raid.
+- [07:38.050] The Press: Do you expect the DOJ
+- [07:39.330] to brief you on this at some point today?
+- [07:40.800] The President: Yeah, they'll -- they'll brief me,
+- [07:42.040] probably today sometime.
+- [07:43.300] The Press: And the Foreign Minister Lavrov --
+- [07:44.510] The President: I don't want to --
+- [07:45.760] I tell Pam and I tell the group, I don't want to know,
+- [07:47.240] but just, you have to do what you have to do.
+- [07:49.020] I don't want to know about it. It's not necessary.
+- [07:51.250] I could know about it. I could be the one starting it.
+- [07:53.690] I'm actually the chief law enforcement officer,
+- [07:57.420] but I feel that it's better this way.
+- [08:00.050] The Press: Foreign Minister Lavrov said no meeting
+- [08:02.000] is planned right now between Putin and Zelensky.
+- [08:04.250] Absent that meeting, what are the next steps
+- [08:05.850] (inaudible) --
+- [08:07.080] The President: Well, we'll see. We're going to see
+- [08:08.280] if Putin and Zelenskyy will be working together.
+- [08:12.210] You know, that's like oil and vinegar, a little bit.
+- [08:14.850] They don't get along too well for obvious reasons,
+- [08:17.600] but we'll see.
+- [08:18.920] And then we'll see whether or not I would have to be there.
+- [08:21.600] I'd rather not. I'd rather have them have a meeting
+- [08:23.490] and see how they can do.
+- [08:25.200] But in the meantime, they continue to fight
+- [08:26.860] and they continue to kill people,
+- [08:28.490] which is very stupid because they're losing 7,000 people now.
+- [08:31.370] I used to tell you five,
+- [08:32.660] now they're losing 7,000 people a day, 7,000 people a week.
+- [08:36.570] They're losing -- think of that, they're losing 7,000 people
+- [08:40.560] on average a week, mostly soldiers.
+- [08:45.120] So we want -- we want to see if we can stop it.
+- [08:47.190] I've stopped seven wars. I'd like to make this --
+- [08:50.400] this one I thought would have been
+- [08:51.810] in the middle of the pack in terms of difficulty
+- [08:55.070] and it's turning out to be the most difficult.
+- [08:57.170] The Press: With the launching of the White House TikTok account,
+- [08:59.500] are you no longer concerned about privacy concerns
+- [09:01.870] or national security problems?
+- [09:03.440] The President: I'm really not. I think it's highly overrated.
+- [09:05.400] So TikTok, as you know, I used TikTok in the campaign,
+- [09:11.800] some young guy named TikTok Jack,
+- [09:16.500] and I won the young people by 36 points.
+- [09:19.320] No Republican ever wins the young people,
+- [09:21.140] and I won it by a lot. And I'm a fan of TikTok.
+- [09:26.440] My kids like TikTok. Young people love TikTok.
+- [09:31.090] If we can keep it going, good.
+- [09:32.880] The President: And we're going to watch the security concerns
+- [09:35.270] and we have buyers, American buyers.
+- [09:37.530] We have American buyers.
+- [09:39.380] And I haven't spoken to President Xi about it.
+- [09:41.470] At the right time, when we're set, I'll do it.
+- [09:43.740] In the meantime, until the complexity of things work out,
+- [09:48.220] we just extend a little bit longer, but we have buyers.
+- [09:51.660] We have very substantial American buyers
+- [09:53.310] that want to buy it.
+- [09:54.520] The Press: President Trump would you like Congress
+- [09:55.750] to give you more control over D.C.
+- [09:57.310] when they return from recess?
+- [10:01.030] The President: Look, D.C. is a miracle what's happened.
+- [10:04.480] I mean, they can come up with fake numbers like the mayor
+- [10:06.860] is doing, oh no, it was going down for 20 years.
+- [10:09.250] You live here, you know. Have you been mugged?
+- [10:11.560] OK.
+- [10:12.920] D.C. was a hellhole and now it's safe.
+- [10:16.210] And in fact, I put out this morning, it's --
+- [10:19.090] I said, I hate to say this
+- [10:20.450] because it doesn't sound very good,
+- [10:21.880] but there have been no murders in D.C. in the last week.
+- [10:24.310] That's the first time in anybody's memory
+- [10:26.750] that you haven't had a murder in a week.
+- [10:29.290] And I think the mayor has to get on the ball
+- [10:31.270] because we have a situation -- and she's a nice woman.
+- [10:36.330] But I'll tell you what, she's got to get on the ball.
+- [10:38.570] We have -- I don't want to see phony numbers.
+- [10:41.610] D.C. hit an all-time high last year
+- [10:44.930] of absolute total crime and it continued pretty bad.
+- [10:50.010] And then we put some strength into it,
+- [10:52.340] got the numbers down a little bit,
+- [10:53.640] but we brought in the D.C. National Guard
+- [10:57.770] and we coupled them with the police,
+- [10:59.570] and it has been amazing. I have friends that live here,
+- [11:02.730] people that work in the White House,
+- [11:04.030] but I have friends that live here,
+- [11:05.240] they're all going out to dinner now.
+- [11:06.840] They haven't gone out in years.
+- [11:09.130] One man, I told this story yesterday
+- [11:11.170] when we were with the police and with the National Guard.
+- [11:15.070] We had a great little celebration for them,
+- [11:17.040] brought them hamburgers, brought them pizza,
+- [11:19.020] but we were with them.
+- [11:20.230] And I told the story about one friend
+- [11:21.870] hasn't been out in four years to a restaurant
+- [11:23.980] and now he's been out four nights in a row.
+- [11:25.640] He called me this morning, by the way.
+- [11:27.370] He said, it's so safe.
+- [11:28.580] he feels like totally safe, he can walk.
+- [11:30.780] He's got a 10-block walk, he walks it.
+- [11:32.810] He wouldn't have walked those ten blocks.
+- [11:34.340] He said it would be a chain of hell, he called it.
+- [11:37.290] He said it was just horrible.
+- [11:39.240] He had no chance of making it to the 10th block.
+- [11:42.620] And the mayor has to admit that. She can't say it was --
+- [11:45.560] just like it hasn't been clean, now it's going to be clean.
+- [11:49.100] I'm giving out a contract very soon.
+- [11:50.900] Susie is with me. We're going to be raising
+- [11:54.220] about $2 billion from Congress, and Congress is happy to do it,
+- [11:58.770] and we're going to wisely spend the money.
+- [12:00.270] We're doing it with Clark Construction.
+- [12:02.060] We're going to head out
+- [12:03.260] right from the Capitol and the White House,
+- [12:05.100] and if you look at a circle and go about three miles out,
+- [12:08.860] it's going to be beautiful. All those light poles --
+- [12:11.440] or see the polls there, they're rusting
+- [12:14.180] and they got different lenses on top, if you look.
+- [12:17.490] I mean, just looking at so many different problems
+- [12:20.420] and we're going to have this place beautified
+- [12:23.920] within a period of 12 months.
+- [12:25.900] The streets are going to be re-topped,
+- [12:27.490] not ripped up and rebuilt and they're no good
+- [12:30.090] after they rebuild them because they start settling.
+- [12:32.990] We're going to take off the asphalt
+- [12:34.330] and put beautiful, well-done asphalt.
+- [12:37.830] You know, if you have a good asphalt worker,
+- [12:39.440] it's the greatest thing you can have,
+- [12:40.720] but there aren't too many of them, but we know --
+- [12:42.170] I know all the good contractors.
+- [12:43.480] So this place will be beautified within a period of months.
+- [12:46.860] So it'll be safe and beautified.
+- [12:49.180] And then the big question is, how long do we stay?
+- [12:53.200] Because if we stay, we want to make sure it doesn't come back.
+- [12:56.240] So we have to take care of these criminals
+- [12:57.920] and get them out of here.
+- [12:59.130] We have -- we've collected hundreds of career criminals.
+- [13:02.230] These are career criminals.
+- [13:03.450] You're not going to teach them to be nice.
+- [13:05.470] These are probably born that way.
+- [13:08.490] I don't know, but they're career criminals.
+- [13:10.570] They're very, very dangerous people.
+- [13:13.600] They would love to --
+- [13:15.020] they would love to be with you for a little while.
+- [13:16.730] They'd slap you around.
+- [13:17.970] But I'd put my money on this guy.
+- [13:19.400] He'd take them down, right? He'd take them down so quickly.
+- [13:24.600] He's saying, I don't want any part of it.
+- [13:26.350] No, people don't want to be that.
+- [13:27.720] And we're taking -- we have over a thousand arrests.
+- [13:30.920] We're taking career criminals off the streets.
+- [13:34.650] It's my ambition that when we're complete,
+- [13:36.730] we can take everybody out and you have a great capital,
+- [13:41.110] but people are so happy.
+- [13:43.780] And I don't know where they get the polls.
+- [13:45.550] I see polls that are 90 percent in favor of what I'm doing.
+- [13:48.900] And then you turn to CNN, which is fake news
+- [13:50.920] and nobody watches it, or MSDNC, they change, MSNBC.
+- [13:56.760] They change their name now because they were so bad.
+- [13:59.870] But they're the worst, owned by Comcast,
+- [14:02.230] run by a guy named Brian Roberts,
+- [14:03.680] who doesn't have a clue.
+- [14:04.900] He's terrible, a terrible manager,
+- [14:07.060] but they -- they're not -- I don't think selling it.
+- [14:09.450] They're changing the name because they're ashamed of it
+- [14:11.980] and they're disassociating it from NBC,
+- [14:13.970] which is also fake news.
+- [14:15.220] You know, they should be ashamed of that too,
+- [14:17.690] but a lot of fake news.
+- [14:19.550] I think the news is getting better.
+- [14:22.680] They're learning that they have no credibility.
+- [14:24.530] ABC, CBS was just sold to a great person
+- [14:27.650] that I know very well, great --
+- [14:29.290] a great man, actually, just bought CBS
+- [14:31.400] and I think he's going to do the right thing with it.
+- [14:33.680] NBC is run terribly by Concast.
+- [14:36.560] I call it Concast because it's a whole con.
+- [14:39.370] And you're going to see some things happening.
+- [14:41.780] I think you're going to see some just amazing things happening.
+- [14:44.030] But to me, D.C. is very exciting and a lot of people say,
+- [14:47.320] well, where is he going from there?
+- [14:48.800] Well, I have calls from politicians
+- [14:50.750] begging me to go to Chicago,
+- [14:53.010] begging me to go to New York, begging me to go to Los Angeles.
+- [14:56.710] And if we didn't go to Los Angeles with Newsom,
+- [14:59.030] they run it so badly,
+- [15:00.610] I don't think we would have been able to have the Olympics.
+- [15:02.410] They would have ripped down that city.
+- [15:04.120] We went there and it stopped day one
+- [15:05.710] and the chief of police in Los Angeles,
+- [15:09.400] when they asked him the question,
+- [15:10.830] he said, thank God they came
+- [15:13.600] because we could not have handled what was happening.
+- [15:15.580] We went in, we stopped it and that was it.
+- [15:18.080] So they needed help. They don't like to say it.
+- [15:21.150] I wish they'd say, I need help.
+- [15:23.350] I wish the mayor of D.C. would say,
+- [15:25.260] you know, we're overridden with crime and we need help,
+- [15:27.530] instead of saying the stats are down.
+- [15:29.860] I mean, they're under investigation now
+- [15:31.560] for fake numbers,
+- [15:33.010] where they fudged the numbers and they did.
+- [15:34.960] There's no question about it.
+- [15:36.280] They said, oh, we're on a downtrend for 20 years.
+- [15:38.930] No, they're on an upward trend for 20 years.
+- [15:42.230] We are going to make D.C. totally safe.
+- [15:45.050] When people come from Iowa, Indiana,
+- [15:47.100] all of the beautiful places and they come,
+- [15:49.020] they're not going to go home in a body bag.
+- [15:51.680] They're not going home in a coffin.
+- [15:53.720] And it's very safe right now.
+- [15:55.520] There's been no murders since I started.
+- [15:57.730] And you know, it's a terrible thing to say.
+- [15:59.340] Who would think that
+- [16:00.560] You have to say that there have been no murders.
+- [16:02.660] It's terrible. I wrote it this morning.
+- [16:04.000] I said, it's hard to say this, but it's actually good news,
+- [16:07.860] but it's a hell of a thing to say.
+- [16:09.330] There have been no murders in the last week
+- [16:11.770] and nobody can remember the last time that this happened.
+- [16:15.570] And there won't be murders because all the thugs are hiding
+- [16:18.310] or they're being sent back to their countries
+- [16:21.010] or they're in jail, and it'll only get better.
+- [16:24.700] But we're also doing the beautification
+- [16:26.500] and I just wanted to see the store
+- [16:28.100] because they have done a fantastic job.
+- [16:30.940] It's memorabilia, it's beautiful books and beautiful --
+- [16:35.960] beautiful everything.
+- [16:37.350] It's really -- I think the fake news ought to go
+- [16:39.290] and buy some stuff and make happy.
+- [16:41.390] I'd pay it, but then you say I'm trying to pay you off,
+- [16:43.440] so I don't want to do it. I'd pay the price,
+- [16:45.350] but if I did that, Margo,
+- [16:46.580] they'd say he's trying to pay us off
+- [16:48.790] and we're the fake news, we can't be bought off.
+- [16:51.390] So anyway, so I want to -- I just want to thank you all.
+- [16:53.730] We're going now and I don't know if you're following.
+- [16:55.320] Are you following?
+- [16:56.610] The Press: Yes.
+- [16:57.850] The President: We'll have a stop at the really beautiful,
+- [17:01.180] what will be beautiful --
+- [17:02.440] right now, I can't use bad language,
+- [17:06.100] but it's been so badly run
+- [17:08.740] and they built these cubes outside, these cubes
+- [17:12.180] and they're stairways that go down to little rooms
+- [17:15.190] that nobody uses. It's so crazy what they did.
+- [17:17.320] They spend hundreds of millions of dollars.
+- [17:19.440] It's like throwing money out the window. They built cubes.
+- [17:21.890] All it does is block off the view.
+- [17:24.200] So I'm either going to use those cubes as a platform.
+- [17:27.080] You know, they go down to little stages, but nobody uses them
+- [17:30.370] and we're taking care of our big, beautiful stages
+- [17:32.940] that people really want.
+- [17:34.710] And we have artists from all over the world wanting to come.
+- [17:38.280] I think we're signing the World Cup.
+- [17:39.810] The World Cup is going to have its primary office
+- [17:43.950] in the Kennedy Center.
+- [17:45.960] And again, I want to thank our board of the Kennedy Center.
+- [17:48.560] They have been absolutely incredible.
+- [17:50.330] But you may get a chance to see what we're going to do
+- [17:52.420] a little bit. I'll show you.
+- [17:53.630] I'll show you beautiful slabs of marble
+- [17:56.370] that for the sake of cleaning and grouting,
+- [17:59.100] would look like they got put in yesterday by a top marble smith.
+- [18:03.500] So I want to thank you all and I'll see you in 15 minutes.
+- [18:06.950] Okay? Thank you. Thank you very much.

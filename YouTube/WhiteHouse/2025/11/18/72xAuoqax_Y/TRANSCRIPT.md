@@ -1,0 +1,982 @@
+<!-- source: https://www.youtube.com/watch?v=72xAuoqax-Y -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 72xAuoqax-Y -->
+<!-- date_published: 2025-11-18T18:16:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:25.952513+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Crown Prince of Saudi Arabia
+
+- [00:07.500] (inaudible)
+- [00:23.900] The President: Well, thank you very much everybody.
+- [00:25.620] We have a extremely respected man in the Oval Office today,
+- [00:31.140] and a friend of mine for a long time,
+- [00:32.540] a very good friend of mine,
+- [00:35.170] and I'm very proud of the job he's done,
+- [00:37.760] what he's done is incredible in terms of human rights
+- [00:40.170] and everything else.
+- [00:42.460] And he's the Crown Prince, the future king,
+- [00:46.610] and I just want to pay my greatest respect to your father,
+- [00:51.120] the King, who's an amazing man. I met him early on.
+- [00:55.330] He greeted me at the airport at an age
+- [00:57.150] that was pretty high up there, and it was about 117 degrees,
+- [01:01.020] and he was standing on the red carpet
+- [01:02.550] as I came out of the plane, he's amazing.
+- [01:07.670] And when I met his brilliant son who was at the Oval Office
+- [01:12.720] shortly thereafter, you came in representing the country,
+- [01:15.780] and I called the father, I said, "This guy is fantastic."
+- [01:19.930] And I don't know if that helped you or hurt you,
+- [01:21.960] but obviously it couldn't have hurt too much,
+- [01:23.880] because here you are.
+- [01:25.100] But we had a great meeting,
+- [01:27.330] and the office has changed quite a bit and we inherited a mess.
+- [01:32.490] You actually told me you thought the country was in big trouble.
+- [01:35.860] I'm not going to use the exact word that you used,
+- [01:38.030] I refuse to say that you thought our country was dead,
+- [01:41.500] a year and a half, two years ago.
+- [01:43.600] But our country was in trouble,
+- [01:44.850] and now we have the hottest country in the world,
+- [01:47.050] you said that also, and we do. The United States is right now
+- [01:50.980] the hottest country in the world.
+- [01:53.190] And between the tariffs and the election,
+- [01:56.550] November 5th election,
+- [01:59.690] we've done things that nobody can believe.
+- [02:01.700] $21 trillion will be the amount invested in the United States,
+- [02:07.530] or committed to invest, in one year.
+- [02:10.970] So I'm here nine months and we're up to almost $18 trillion.
+- [02:15.720] Biden, as an example, the Biden administration,
+- [02:17.980] if you'd call it that, it's not to me,
+- [02:19.600] it was the Biden lack of administration,
+- [02:23.630] they were less than $1 trillion for four years.
+- [02:27.050] We're going to be $21 trillion for one year.
+- [02:30.850] I think that's hard to believe.
+- [02:33.840] The biggest in history was a certain country,
+- [02:37.240] $3 trillion, we're going to be $21 trillion.
+- [02:40.150] On top of that, prices are coming down.
+- [02:42.070] We inherited a mess with high prices,
+- [02:45.230] the worst inflation in the history of our country.
+- [02:47.560] We had inflation that was a single
+- [02:49.380] (inaudible)
+- [02:50.580] for years, the worst inflation in the history
+- [02:53.040] of the United States, gas prices through the roof,
+- [02:56.980] and that's after destroying our petroleum reserve,
+- [03:00.630] which was meant for wars and big emergencies,
+- [03:03.490] not to try and win an election. They opened up the reserves
+- [03:07.440] so that people would get $3 less in gasoline,
+- [03:11.090] and it didn't work, they got about three cents less,
+- [03:13.650] because as big as those reserves are, they're peanuts
+- [03:16.170] when you're talking about that kind of traffic.
+- [03:19.750] And we're rebuilding the reserves,
+- [03:21.810] we're doing all of this, and we've done a job.
+- [03:24.560] We're also bringing down prices very substantially,
+- [03:26.780] and we've already brought them down very, very substantially.
+- [03:29.340] Gasoline is way down, I think you'll be seeing $2 gasoline,
+- [03:34.200] but we're now at $2.50, $2.45, some are lower than that.
+- [03:38.920] It was $4.50, $5, $6, $3.50, $3.75, under Biden,
+- [03:44.050] all different numbers, but way high.
+- [03:46.290] And we have energy way down. But the biggest thing to me,
+- [03:50.620] because I know what it means in jobs,
+- [03:52.250] is the fact that we're at over $17 trillion, Scott,
+- [03:57.830] and we expect to be around $20, $21 trillion in one year,
+- [04:02.060] and that's many times bigger than --
+- [04:03.690] In history, the highest number was $3 trillion,
+- [04:08.320] and we're going to be at $21 trillion.
+- [04:09.750] That means new plants, new AI, new auto plants.
+- [04:13.400] We have auto plants coming in from Canada, from Mexico,
+- [04:17.010] from Germany, from Japan.
+- [04:19.570] Toyota just agreed to invest $10 billion on new auto plants,
+- [04:23.970] all American workers.
+- [04:26.360] We've never been in a position like this.
+- [04:29.230] You can go back to the beginning,
+- [04:31.680] our country has never been in a position like this,
+- [04:34.840] and it really is because of the fact that we use tariffs
+- [04:38.680] to bring all this money in,
+- [04:40.400] and you're going to see the results in a year
+- [04:41.960] when these plants start to open up.
+- [04:43.550] We have more plants under construction now
+- [04:46.240] than at any time in the history of our country.
+- [04:48.810] And these are big plants,
+- [04:50.060] these are the biggest plants anywhere in the world.
+- [04:52.510] And I want to thank you, because you've agreed to invest
+- [04:54.550] $600 billion into the United States,
+- [04:57.800] and because he's my friend, he might make it a trillion,
+- [05:01.240] but I'm going to have to work on him.
+- [05:02.830] But we can count on $600 billion,
+- [05:07.030] but that number could go up a little bit higher yet,
+- [05:10.410] I don't know, we'll see. But we appreciate it very much.
+- [05:14.640] Saudi is going to be investing at least $600 billion,
+- [05:18.290] and that means investments in plants, in companies,
+- [05:22.680] money on Wall Street, and what it really means
+- [05:25.470] for everybody that really counts is jobs,
+- [05:28.820] a lot of jobs, we have a lot of jobs.
+- [05:31.410] So I just want to thank you.
+- [05:33.130] We've been really good friends for a long period of time.
+- [05:35.280] We've always been on the same side of every issue.
+- [05:38.550] I think we've done a great job
+- [05:39.890] in wiping out the nuclear capacity of Iran.
+- [05:45.110] Nobody else could have done that,
+- [05:47.240] no other president would've done it.
+- [05:49.230] We had the pilots in the Oval Office right here,
+- [05:51.180] we were celebrating a very successful attack.
+- [05:54.070] So I had them in with that beautiful B-2 bomber
+- [05:56.520] that's over there.
+- [05:57.910] And they said, "Sir, for 22 years,
+- [06:01.940] we practiced this attack. Our predecessors --"
+- [06:04.770] These were very young guys, so 22 years.
+- [06:08.060] They said, "Our predecessors and us practiced the attack on Iran,
+- [06:14.150] but no president ever gave us the go-ahead."
+- [06:16.870] Three times a year, they went out
+- [06:18.540] and they practiced the attack.
+- [06:20.890] "Nobody let us do it until you came along."
+- [06:22.830] And I let them do it because it was the right thing to do,
+- [06:24.640] you can't have a nuclear Iran,
+- [06:26.630] and so we put you in a very good position.
+- [06:29.130] But I just want to say it's an honor to be your friend
+- [06:31.360] and it's an honor that you're here,
+- [06:33.610] and if you'd like to say a few words,
+- [06:35.350] but thank you very much.
+- [06:37.150] Mohammed bin Salman: Thank you. Mr. President.
+- [06:38.920] This relation has been a relation for about nine decades,
+- [06:42.230] and we've been working together for a long time.
+- [06:45.940] But today, it's a very important time in our history,
+- [06:50.090] because there is also a lot of things
+- [06:51.590] that we are working on in the future.
+- [06:54.030] We believe in the future of the United States of America.
+- [06:56.320] We believe in what you're doing, Mr. President,
+- [06:58.500] really creating a lot of good things
+- [07:00.880] and a good foundation to create more economic growth,
+- [07:03.680] more business in America,
+- [07:05.350] and also, your work for the world peace.
+- [07:10.080] I believe, Mr. President, and today and tomorrow,
+- [07:12.080] we're going to announce that we are going to increase
+- [07:13.910] that $600 billion to almost $1 trillion of investment,
+- [07:18.220] real investment and real opportunity,
+- [07:19.850] by details in many areas.
+- [07:21.850] And the agreement that we are signing today in many areas,
+- [07:25.090] in technology, in AI, in rare earth materials,
+- [07:28.800] magnet, et cetera, that will create
+- [07:31.660] a lot of investment opportunity between both countries.
+- [07:33.400] The President: So you are doing that now,
+- [07:34.600] you're saying to me now that the $600 billion
+- [07:37.550] will be $1 trillion?
+- [07:38.850] Mohammed bin Salman: Definitely, because what we are signing,
+- [07:40.240] it will facilitate that.
+- [07:42.190] The President: Good. I like that very much.
+- [07:47.680] Go ahead. No, that's great. I appreciate that, that's great.
+- [07:51.220] No, we're doing numbers that nobody's ever done.
+- [07:53.450] And in all fairness, if you didn't see
+- [07:54.790] potential in the US, you wouldn't be doing that.
+- [07:56.370] Mohammed bin Salman: Definitely.
+- [07:57.600] The President: You don't want to lose money.
+- [07:58.830] Mohammed bin Salman: As you said, Mr. President,
+- [08:00.080] it's the most hottest country in the planet.
+- [08:01.690] But what you're creating is not about opportunity today,
+- [08:04.860] it's about also long-term opportunity
+- [08:06.470] in United States of America
+- [08:07.690] that will affect American economy
+- [08:09.290] positively in the next coming decades,
+- [08:11.460] preparing the right foundation of emerging technologies.
+- [08:15.040] That's a game-changer for America in a good way,
+- [08:17.360] and we want to be part of it.
+- [08:19.250] The President: Yeah, we're doing really well.
+- [08:21.100] You don't see what we're doing so much, because we have --
+- [08:23.880] Although, the construction industry sees it.
+- [08:26.710] If you look at Caterpillar, who's been incredible,
+- [08:29.660] the tractors, everything else,
+- [08:31.840] the numbers that we're doing in construction are unbelievable.
+- [08:35.960] Some of the plants that we're building, AI,
+- [08:38.550] and they're building their own electric with the plant,
+- [08:40.580] I gave them the right to build their own electric
+- [08:42.400] with the plant,
+- [08:43.700] because no country, frankly, will have this.
+- [08:47.110] China's working very hard to produce enough electric,
+- [08:49.850] but we're beating China substantially at AI,
+- [08:52.410] which is a big thing.
+- [08:53.970] And we had a great meeting two weeks ago with President Xi.
+- [08:56.530] But on AI, we're doing well.
+- [08:59.240] And I have a man, David Romel. David, could you say a few words
+- [09:05.190] about what you're seeing on the job front
+- [09:08.080] and some of the assets,
+- [09:11.110] and also how we've been helped by the Saudis
+- [09:14.130] in terms of the investment they've made?
+- [09:15.750] Please.
+- [09:16.990] David Romel: Most certainly. Thank you for the opportunity.
+- [09:18.820] I am a facility leader for GE Vernova,
+- [09:21.420] and if you look at the landscape for GE Vernova investment,
+- [09:24.370] over $750 million in the US focused on true
+- [09:29.060] manufacturing jobs here stateside.
+- [09:32.710] We're looking at tripling the output of our Greenville,
+- [09:35.680] South Carolina facility,
+- [09:37.510] where we make the gas turbines that are supporting US needs,
+- [09:41.030] as well as the Saudi Arabia needs, so real jobs.
+- [09:44.940] $300 million in gas investment,
+- [09:47.780] resulting in over 500 pieces of new equipment
+- [09:50.230] being installed in the Greenville,
+- [09:51.700] South Carolina facility.
+- [09:53.440] That translates into roughly 1,800 jobs
+- [09:55.870] across the board for GE Vernova
+- [09:57.890] as we try to scale capacity to be able to meet this demand.
+- [10:01.870] Along with that,
+- [10:03.130] we're partnering with local communities
+- [10:04.700] to build the skill set that's required
+- [10:07.910] to meet these capacity needs,
+- [10:10.130] so that talent pipeline is incredibly important.
+- [10:12.910] So it's real jobs in the manufacturing space.
+- [10:16.010] The President: Well, you've been great,
+- [10:17.230] and thank you very much. And we love that state,
+- [10:20.190] I won that state by record numbers.
+- [10:22.630] I won a lot of states by record, Texas, a lot of them, Indiana.
+- [10:28.920] We're working with Indiana on something right now,
+- [10:30.750] we won that.
+- [10:31.970] We won a lot of them by records, but that was one of them.
+- [10:34.200] I want to thank you very much. Say hello to everybody.
+- [10:36.730] Great job, you're doing a great job. Thank you.
+- [10:38.270] David Romel: Appreciate it, Mr. President.
+- [10:40.740] The President: So just in wrapping up,
+- [10:42.410] we'll take a couple of questions.
+- [10:43.730] But I want to just tell you what an honor is to be your friend,
+- [10:48.420] and I very much appreciate the investment
+- [10:50.160] of now $1 trillion, okay. I'm glad you got that out.
+- [10:53.810] I didn't want to be the one to tell them. That's great news.
+- [10:56.960] Mohammed bin Salman: We keep increasing, Mr. President.
+- [10:59.160] Each time, the opportunities are just increasing more and more.
+- [11:01.930] The President: Well, the opportunities,
+- [11:03.380] we're doing better.
+- [11:05.760] Even if you look back six months ago,
+- [11:07.870] all of a sudden, you feel even better,
+- [11:10.620] and I think we're only going to go in one way.
+- [11:13.040] Does anybody have any questions?
+- [11:16.430] The Press: Mr. President,
+- [11:17.640] have you approved the export licenses for advanced chips
+- [11:23.060] to Saudi Arabia, the export licenses?
+- [11:25.120] The President: We are working on that,
+- [11:26.330] we're negotiating that right now.
+- [11:27.710] Marco, do you want to talk about that, or Scott?
+- [11:32.680] Secretary Rubio: We may have announcements
+- [11:33.910] on that later today,
+- [11:35.250] but that's what we've been working on
+- [11:36.640] is the mechanics by which something like that
+- [11:38.550] could be achieved.
+- [11:39.770] And it's part of the broader process,
+- [11:41.570] part of this broader engagement and cooperation
+- [11:43.330] between our two countries.
+- [11:44.530] The President: Certain levels of chips, yep.
+- [11:45.980] The Press: For the Crown Prince, Your Royal Highness,
+- [11:47.920] you're talking about $1 trillion of investment,
+- [11:50.510] could the Kingdom continue to do that
+- [11:52.090] with oil prices in the mid-60s?
+- [11:54.960] Mohammed bin Salman: We are not creating fake opportunities
+- [11:56.790] to please America, please President Trump,
+- [12:00.140] it's a real opportunities.
+- [12:01.470] For example, when you ask about the AI and the chips,
+- [12:04.340] Saudi Arabia have a huge need of computing power,
+- [12:08.340] and we are going to spend, in the short term,
+- [12:10.750] around $50 billion by consuming those semiconductors
+- [12:15.080] for our needs in Saudi Arabia.
+- [12:17.320] And with the agreement that we're going to have
+- [12:19.040] with the United States of America
+- [12:20.280] that will allow us to focus
+- [12:21.860] that consuming power in the short term
+- [12:24.840] by $50 million from the United States of America
+- [12:27.400] and long term with hundreds of billion dollars
+- [12:29.050] in the long term.
+- [12:30.270] So there is a lot of real opportunities
+- [12:32.240] that fit to our needs in Saudi Arabia
+- [12:34.460] and fit to our investment strategy.
+- [12:36.400] The Press: Mr. President,
+- [12:37.740] is it appropriate, Mr. President,
+- [12:40.110] for your family to be doing business in Saudi Arabia
+- [12:42.510] while you're president? Is that a conflict of interest?
+- [12:44.970] And your Royal Highness, the US. Intelligence concluded
+- [12:48.110] that you orchestrated the brutal murder of a journalist.
+- [12:50.770] 9/11 families are furious that you are here in the Oval Office.
+- [12:52.680] The President: Who are you with? Who are you with?
+- [12:54.030] The Press: Why should Americans trust you?
+- [12:55.300] The President: Who are you with?
+- [12:56.220] The Press: And the same to you, Mr. President?
+- [12:57.460] The President: Now, who are you with?
+- [12:58.330] The Press: I'm with ABC News, sir.
+- [12:59.580] The President: You are with who? The Press: ABC News, sir.
+- [13:00.850] The President: Fake news. ABC Fake news. One of worst --
+- [13:03.070] one of the worst in the business,
+- [13:04.460] but I'll answer your question.
+- [13:05.720] The Press: Thank you.
+- [13:06.920] The President: I have nothing to do with the family business.
+- [13:08.600] I have left and I've devoted 100% of my energy.
+- [13:12.170] What my family does is fine. They do business all over.
+- [13:15.920] They've done very little with Saudi Arabia, actually.
+- [13:18.220] I'm sure they could do a lot,
+- [13:19.780] and anything they've done has been very good.
+- [13:21.490] That's what we've done.
+- [13:22.720] We've built a tremendous business for a long time.
+- [13:25.110] I've been very successful.
+- [13:26.750] I decided to leave that success behind
+- [13:29.420] and make America very successful,
+- [13:31.470] and I've made America more successful
+- [13:33.140] by far than it ever was
+- [13:35.800] and that it ever could have been,
+- [13:37.100] no matter who was president.
+- [13:38.500] There would be nobody bringing in $21 trillion.
+- [13:40.850] That, I can tell you right now.
+- [13:42.550] As far as this gentleman is concerned,
+- [13:44.740] he's done a phenomenal job.
+- [13:46.340] You're mentioning somebody that was extremely controversial.
+- [13:50.090] A lot of people didn't like that gentleman
+- [13:51.740] that you're talking about.
+- [13:53.040] Whether you like him or didn't like him, things happen,
+- [13:55.960] but he knew nothing about it, and we can leave it at that.
+- [13:57.830] You don't have to embarrass our guests
+- [13:59.080] by asking a question like that.
+- [14:00.360] Mohammed bin Salman: (inaudible) It's okay.
+- [14:01.590] Just, yes, Mr. President- The President: Please, go ahead.
+- [14:03.000] Mohammed bin Salman: Allow me to answer.
+- [14:04.270] I feel painful about the families of 9/11 in America,
+- [14:12.030] but we have to focus in reality.
+- [14:14.390] Reality, based on CIA documents and based on all documents,
+- [14:17.820] that Osama bin Laden used Saudi people in that event
+- [14:22.350] for one main purpose, is to destroy this relation,
+- [14:25.890] to destroy the American-Saudi relation.
+- [14:28.030] That's the purpose of 9/11. So whoever buying that,
+- [14:32.420] that mean they are helping Osama bin Laden
+- [14:34.310] purpose of destroying this relation.
+- [14:35.750] He know that strong relation
+- [14:37.350] between America and Saudi Arabia,
+- [14:38.570] it's bad for extremism, it's bad for terrorism,
+- [14:41.520] and we have to prove him wrong and to build our relation,
+- [14:46.310] continue developing our relations.
+- [14:47.740] It's a critical in the safety of the world,
+- [14:49.620] it's a critical against extremism and terrorism.
+- [14:53.090] About the journalist, it's really painful to hear
+- [14:57.520] anyone that been losing his life for no real purpose
+- [15:03.170] or not in a legal way,
+- [15:05.600] and it's been painful for us in Saudi Arabia.
+- [15:07.470] We've did all the right steps of investigation,
+- [15:11.970] et cetera, in Saudi Arabia,
+- [15:13.670] and we've improved our system to be sure
+- [15:16.110] that nothing happen like that.
+- [15:18.490] And it's painful and it's a huge mistake,
+- [15:20.220] and we are doing our best that this doesn't happen again.
+- [15:25.410] The Press: Thank you, Mr. President.
+- [15:27.250] The Crown Prince has been instrumental
+- [15:29.290] in helping lifting the sanctions on Syria.
+- [15:32.300] The President: That's true.
+- [15:33.500] The Press: Will there be any joint investment
+- [15:35.680] between the US and Syria? And will you visit Damascus --
+- [15:38.550] The President: Are you from Syria?
+- [15:39.780] The Press: No, but --
+- [15:40.990] The President: Where are you from?
+- [15:42.270] The Press: I'm from Palestine.
+- [15:43.860] The President: Oh, you're making a lot of progress, huh?
+- [15:45.950] It's very good. They like me. The Palestinians like me.
+- [15:48.170] The Press: May I have a question for the Crown Prince
+- [15:49.910] as well after you, sir?
+- [15:51.120] The President: Palestinians are doing very well actually.
+- [15:53.110] I think we're working very closely
+- [15:54.540] with a lot of people that make everybody happy,
+- [15:56.480] including Israel, the Palestinians, and everybody.
+- [15:59.470] That's very interesting. No, I think that --
+- [16:03.410] I will tell you, the Crown Prince called me
+- [16:06.760] and he specifically asked me
+- [16:09.170] if I would lift the sanctions on Syria,
+- [16:11.180] because he wants to see Syria make it.
+- [16:14.520] As you know, the leader of Syria was just here
+- [16:18.040] and we had a great meeting, and he's a strong guy
+- [16:21.130] and I guess you'd need a strong person to run it,
+- [16:24.350] and I think Syria's made tremendous progress.
+- [16:26.390] We did lift the sanctions at the request of the Crown Prince.
+- [16:31.030] Also the president of Turkey, Erdoğan, called me specifically.
+- [16:34.990] He said, "If you don't lift the sanctions,
+- [16:37.810] Syria doesn't have a chance.
+- [16:39.660] If you do, they have a very good chance."
+- [16:41.880] And between the two of them and some others,
+- [16:43.840] I lifted the sanctions,
+- [16:45.710] and the results so far have been pretty good.
+- [16:48.720] The Press: Mr. President,
+- [16:50.030] can I ask you a question about the F-35s
+- [16:52.110] that are being sold to Saudi Arabia?
+- [16:53.420] The President: Sure.
+- [16:54.630] The Press: Are these the same ones
+- [16:55.860] that are being used by the Israeli military,
+- [16:58.060] and if so, how does that allow
+- [17:00.610] for the qualitative military edge for Israel?
+- [17:03.230] And then I want to ask you,
+- [17:04.570] because you brought up the plight of the Palestinians,
+- [17:08.160] are you aware of relocation flights to South Africa
+- [17:11.870] that are taking place right now?
+- [17:13.170] The President: Which flights?
+- [17:14.370] The Press: The relocation flights that are taking place.
+- [17:16.700] Some Palestinians are being charged up to $2,000 --
+- [17:18.880] The President: I'm not going to South Africa for the G20
+- [17:21.220] because I think their policies on the extermination
+- [17:24.850] of people are unacceptable,
+- [17:26.870] so I'm not going so I won't refer
+- [17:28.530] to anything having to do with South Africa.
+- [17:30.860] South Africa has behaved extremely badly,
+- [17:34.590] but I will say that when you look at the F-35
+- [17:40.110] and you're asking me is it the same?
+- [17:41.620] I think it's going to be pretty similar, yeah.
+- [17:44.940] This is a great ally and Israel's a great ally,
+- [17:48.750] and I know they'd like you to get planes of reduced caliber.
+- [17:54.530] I don't think that makes you too happy.
+- [17:56.540] They've been a great ally, Israel's been a great ally,
+- [17:59.470] and we're looking at that exactly right now,
+- [18:01.790] but as far as I'm concerned, I think they are both at a level
+- [18:06.530] where they should get top of the line.
+- [18:07.840] Yes, please?
+- [18:09.130] The Press: Can I ask for the Crown Prince?
+- [18:10.350] If I could just ask about the direct talks between US-
+- [18:13.950] The President: That's all right. Steve? One second. Go ahead.
+- [18:15.990] The Press: Have you reached an agreement
+- [18:17.290] on a US-Saudi defense treaty today?
+- [18:20.550] And are you going to bring up the Abraham Accords
+- [18:22.370] in your discussion?
+- [18:23.640] The President: I already brought them up.
+- [18:24.900] The Press: What did you say?
+- [18:26.110] The President: I think I got a positive response.
+- [18:27.550] Would you like to respond? I put you on the spot.
+- [18:29.590] Mohammed bin Salman: Yeah.
+- [18:30.850] So definitely, we believe having a good relation
+- [18:33.190] with all of these new countries, it's a good thing,
+- [18:35.330] and we want to be part of the Abraham Accords,
+- [18:38.780] but we want also to be sure
+- [18:40.830] that we secure a clear path of two-state solution.
+- [18:44.650] And today, we have a healthy discussion with Mr. President
+- [18:47.340] that we're going to work on that
+- [18:48.940] to be sure that we can prepare the right situation
+- [18:51.020] as soon as possible to have that.
+- [18:52.720] The President: I think we're --
+- [18:54.380] I don't want to use the word commitment,
+- [18:55.790] but we've had a very good talk on the Abraham Accords.
+- [18:59.020] We talked about one-state, two-state.
+- [19:01.040] We talked about a lot of things. In a short period of time,
+- [19:03.690] we'll be discussing it further too,
+- [19:05.660] but I think you have a very good feeling
+- [19:07.170] toward the Abraham Accords.
+- [19:08.550] Mohammed bin Salman: Yes, definitely.
+- [19:09.750] Mr. President. We want peace for the Israelis,
+- [19:11.230] we want peace for the Palestinians.
+- [19:12.690] We want them to coexist peacefully in the region,
+- [19:15.430] and we will do our best to reach that day.
+- [19:18.190] The Press: And the defense agreement,
+- [19:19.480] have you reached the agreement on that?
+- [19:21.060] The President: We pretty much have.
+- [19:23.210] The Press: The question for the Crown Prince,
+- [19:24.710] if I could just finish?
+- [19:25.950] The President: We have reached agreement on that.
+- [19:28.470] The Press: I wanted to ask you about the direct talks
+- [19:30.460] between the United States and Iran.
+- [19:32.470] Have you been fully briefed on that,
+- [19:34.050] and are you concerned at all about
+- [19:35.860] how this might impact Saudi security interests?
+- [19:39.760] Mohammed bin Salman: We are a close ally.
+- [19:41.030] We'll be working closely together on that issue,
+- [19:43.550] and we will do our best to help to reach a deal
+- [19:46.060] between the United States of America and Iran.
+- [19:47.730] And we believe it's good for Iran's future
+- [19:49.350] to have a good deal that will satisfy the region
+- [19:52.520] and the world and the United States of America,
+- [19:54.260] so we will do our best to see that day happen.
+- [19:57.330] The President: And by the way, Iran does want to make a deal.
+- [20:00.820] I can say I think they very badly want to make a deal.
+- [20:04.390] I am totally open to it
+- [20:06.130] and we're talking to them and we start a process,
+- [20:09.800] but it would be a nice thing to have a deal with Iran.
+- [20:11.720] And we could have done it before the war,
+- [20:13.530] but that didn't work out,
+- [20:15.800] and something will happen there, I think.
+- [20:18.890] But they would very much like -- They may say something else,
+- [20:21.780] but they would very much like to have a deal.
+- [20:23.570] Yeah, please?
+- [20:24.860] The Press: Mr. President, you are going to sell F-35 jets.
+- [20:28.210] The President: Say it.
+- [20:29.950] The Press: You said you are planning to sell
+- [20:31.680] the F-35 jets to Saudi Arabia.
+- [20:33.190] The President: Yeah.
+- [20:34.390] The Press: Is it part of the security agreement,
+- [20:36.560] and how you assist the defense partnership
+- [20:39.050] between Saudi Arabia and the United States?
+- [20:41.890] And the question for --
+- [20:43.200] The President: Well, I just said it though.
+- [20:45.320] We're going to sell them F-35s.
+- [20:46.830] That's the end of the question, I guess.
+- [20:48.140] The Press: Is it part of the security agreement or no?
+- [20:50.350] The President: No. We're going to have a deal.
+- [20:52.840] They're going to purchase F-35s.
+- [20:54.500] They're buying them from Lockheed and it's a great plane.
+- [20:59.130] We make, by the way, the best military equipment.
+- [21:01.580] You saw that during the Iran little skirmish.
+- [21:04.450] We make the best planes, the best missiles,
+- [21:06.960] we make the best offensive missiles.
+- [21:10.290] We make the best military equipment in the world.
+- [21:13.420] The Press: For His Royal Highness,
+- [21:14.680] I would like to ask you about how you see the cooperation
+- [21:17.360] between the United States and Saudi Arabia
+- [21:19.340] in the advanced technological field,
+- [21:21.940] especially AI, and how it will support Saudi Arabia
+- [21:24.730] to serve its goals to achieve the vision of 2030.
+- [21:27.460] Mohammed bin Salman: Well, I'll try to answer that in short,
+- [21:28.980] but definitely, there's a lot of interest in many industry
+- [21:30.760] between Saudi Arabia and America
+- [21:32.000] and we are signing a lot of agreements in different areas
+- [21:33.870] that will really add value to American economy,
+- [21:36.030] but also to add value to us in Saudi Arabia.
+- [21:39.350] And AI, it's critical for us
+- [21:40.670] because one of the long-term problems
+- [21:44.340] that we could have is lack of workforce.
+- [21:46.140] As you've seen in the past few years,
+- [21:48.070] some of them have reached 30%
+- [21:49.460] of the global immigration to Saudi Arabia,
+- [21:51.520] so we know that to assure the Saudi Arabia GDP growing,
+- [21:57.090] with the lack of workforce that we have,
+- [21:58.540] we need to use a lot of computing power
+- [22:01.900] to replace job in the long term.
+- [22:03.740] So that's huge demand in Saudi Arabia
+- [22:06.150] and we want to link it to American private sectors
+- [22:11.440] and getting the supply from America,
+- [22:13.180] so there is a lot of opportunities in that area.
+- [22:16.140] The President: And we're also involved in AI in Saudi Arabia,
+- [22:19.470] so we're working, and again, we're leading by a lot on AI.
+- [22:23.830] Actually, a lot. China would be in second place,
+- [22:26.540] but we're leading by a lot. And I have to say this,
+- [22:29.540] and our relationship with China has been very good,
+- [22:32.420] and as far as buying our farm products,
+- [22:35.770] they're pretty much on schedule.
+- [22:37.150] Scott, I'd like you to call them,
+- [22:38.460] say if they could speed it up, we'll be good.
+- [22:39.830] The Press: I will, sir.
+- [22:41.030] The President: Okay, but they're pretty much on schedule.
+- [22:42.700] The Press: (inaudible). If I may have a question
+- [22:46.230] for both the Crown Prince and the President.
+- [22:47.930] The President: Sure, go ahead.
+- [22:49.180] Who are you and where are you from?
+- [22:50.430] The Press: I'm Faisal Abbas from Arab News, Saudi Arabia,
+- [22:52.560] Your Excellency.
+- [22:53.760] The President: Okay. It should be a friendly question.
+- [22:56.820] The Press: Your Royal Highness,
+- [22:58.780] just picking up on something you've just mentioned
+- [23:01.120] about how some people try to destroy the relationship
+- [23:03.860] between Saudi Arabia and the United States.
+- [23:06.640] Perhaps since the launch of the Vision,
+- [23:08.900] we've been used to having the bigger picture
+- [23:11.280] and that everything fits into the bigger picture.
+- [23:14.150] Might you want to elaborate a little bit about
+- [23:17.640] where is the relationship, the bilateral relationship,
+- [23:20.260] the strategic partnership between Saudi Arabia
+- [23:22.830] and the United States heading,
+- [23:24.880] and what's the big picture there?
+- [23:26.510] Mohammed bin Salman: Well, I don't think it's a relation
+- [23:27.890] that we can replace it from the Saudi side or the American side.
+- [23:30.500] It's a critical relationship for our political attempt,
+- [23:36.450] for our economical attempt, for our security,
+- [23:39.150] for our military, for many things,
+- [23:41.570] and it has been there for nine decades.
+- [23:44.980] And the opportunities that we have today, it's huge,
+- [23:47.880] and it seems that it's going to get deeper
+- [23:50.100] in the next few decades.
+- [23:52.350] And what we are having today and tomorrow with President Trump,
+- [23:54.980] it's really a huge new chapter on this relation
+- [23:58.810] that will add value to both of us.
+- [24:00.350] The President: When you think about it, I'm just sitting here.
+- [24:03.610] You are with the future king,
+- [24:05.370] a man who's respected by everybody,
+- [24:08.120] a man that doesn't have to be doing this really.
+- [24:11.690] I don't have to be doing it either.
+- [24:13.330] And yet we're sitting here, taking questions, any questions.
+- [24:16.100] We didn't say, "Oh, you can't talk about this."
+- [24:18.670] And there's never been transparency like this.
+- [24:21.640] Even in his country.
+- [24:22.840] But there's never been in our country
+- [24:24.770] that's been acknowledged.
+- [24:26.030] But we didn't put restrictions.
+- [24:28.030] And I'm saying it's wonderful to be taking questions
+- [24:32.440] from all over the world, everybody is here.
+- [24:34.460] This is just a small group representative
+- [24:36.820] of tremendous numbers of media that are outside,
+- [24:40.180] that are very jealous that these people were so selected.
+- [24:43.610] But they're representing a lot of people that are outside.
+- [24:46.490] I think it's terrific that we can be
+- [24:47.880] sitting here being this open,
+- [24:49.340] and I think it's really a wonderful thing. Yeah.
+- [24:51.470] The Press: (inaudible) had a personal question for --
+- [24:53.010] The President: Uh-oh. Okay. Here we go.
+- [24:54.620] The Press: -- (inaudible).
+- [24:56.330] So, apart from everything you mentioned
+- [24:57.870] in your opening remarks, you forgot to mention
+- [24:59.910] that you've deescalated seven more since you started.
+- [25:02.780] At least, in our part of the world
+- [25:04.250] you are seen as a peacemaker.
+- [25:05.970] And adding that to all the executive orders
+- [25:09.520] and everything else you've mentioned,
+- [25:11.220] I really have to wonder, you in your speech in Saudi Arabia,
+- [25:13.770] I was there, you said that his royal highness
+- [25:16.210] does not sleep at night thinking how he does things better.
+- [25:18.370] We wonder in Saudi Arabia how do you manage your own time?
+- [25:21.600] And what's your formula for management?
+- [25:23.370] The President: He does not sleep much, and I don't sleep much.
+- [25:25.180] I think we have the same schedule.
+- [25:26.410] We're thinking about our countries.
+- [25:27.860] If you sleep a lot and you're president,
+- [25:30.830] we just had one that slept more than any president,
+- [25:32.850] he broke every record, he sleeps all the time,
+- [25:35.360] during the day, during the night, on the beach.
+- [25:38.490] The only guy that could fall asleep on the beach
+- [25:40.040] with the press watching.
+- [25:42.350] No. He's not a sleeper. I'm not a sleeper.
+- [25:44.780] We talk at night. I can call him almost any time.
+- [25:49.060] He goes, "Hi. How you doing?" It's the craziest times.
+- [25:52.530] But, no. When you love your job, when you love your country,
+- [25:58.220] and when you're in a position like we are,
+- [26:00.810] future king, highly-respected, crown prince,
+- [26:03.820] and, in my case, president,
+- [26:07.690] you're thinking about your country.
+- [26:09.080] You're thinking about making America great, again.
+- [26:11.890] We're thinking about keeping Saudi Arabia strong
+- [26:14.400] and vital in a pretty tough part of the world.
+- [26:17.350] Tricky part. Right? Tricky part? A lot of tricky people.
+- [26:21.330] But he thinks about his country, and I think about my country.
+- [26:25.640] I don't want to sleep.
+- [26:27.030] The Press: (inaudible)
+- [26:28.260] do you expect a formal, civil, nuclear deal to be reached soon?
+- [26:31.350] Can you talk to us about that aspect of today's-
+- [26:33.060] The President: With who?
+- [26:34.320] The Press: With Saudi Arabia.
+- [26:35.560] The President: I can see that happening. Yeah.
+- [26:36.810] The Press: Do you think that an agreement will happen today?
+- [26:39.200] The President: It's not urgent.
+- [26:41.390] It's always -- When you have civil nuclear,
+- [26:43.530] but you have more oil than almost anybody else --
+- [26:46.150] We actually have more oil and gas than they do,
+- [26:48.100] but I refuse to say that.
+- [26:51.770] We have more than anybody. Can you imagine?
+- [26:53.760] The Press: And on the F-35s, are those sales --
+- [26:58.250] Israel had reportedly wanted those sales
+- [27:00.900] to be conditioned on Saudi Arabia
+- [27:03.950] moving to normalization is not a condition of the effort --
+- [27:07.960] The President: Israel is aware,
+- [27:09.330] and they're going to be very happy.
+- [27:11.150] Okay? Yeah. Please. Hello.
+- [27:14.540] The Press: Hi, hello. My name is
+- [27:16.720] (inaudible) newspaper.
+- [27:18.610] (inaudible).
+- [27:21.080] I have a question for the crown prince
+- [27:22.750] and for you, Mr. President.
+- [27:27.640] Crown Prince of Saudi Arabia, how much you expected
+- [27:31.590] from (inaudible)
+- [27:32.840] cooperation with the United States in the field of
+- [27:38.570] (inaudible) supply chain? How much you expected from that?
+- [27:45.740] Mohammed bin Salman: We just continue pushing forward.
+- [27:47.390] There is no limit.
+- [27:48.660] So, we just push forward for all opportunities that we have.
+- [27:51.310] The President: You have to understand this
+- [27:54.310] is really a great ally.
+- [27:55.950] Just the fact that they're now doing --
+- [27:57.730] I came in here at six. I did not know that.
+- [27:59.760] I was pushing for the $1 trillion,
+- [28:02.150] but he didn't tell me that. Now he told me.
+- [28:05.410] This is a great ally of ours.
+- [28:08.790] When you invest a trillion dollars,
+- [28:11.490] that's national security for us too,
+- [28:13.870] because it creates jobs, it creates a lot of things.
+- [28:16.950] And I would say, Scott. Right? When you hear one country
+- [28:20.760] is putting a trillion dollars into the United States,
+- [28:24.310] that creates national security.
+- [28:26.540] And I think that they don't have to say that,
+- [28:29.260] but I think a big part of that
+- [28:30.610] is also the fact that tariffs are in play.
+- [28:33.770] But even beyond tariffs, that's a real ally that will do that.
+- [28:37.730] It creates a lot of power for the United States.
+- [28:40.760] The Press: Mr. President, we are also in Saudi Arabia
+- [28:43.310] very happy for this much of Saudi
+- [28:47.400] (inaudible) money (inaudible)
+- [28:49.240] here, and, of course, it's cut back for us
+- [28:54.350] (inaudible). So, it's complementary interest.
+- [28:59.650] So, this is (inaudible).
+- [29:04.550] The President: Well, look,
+- [29:05.770] I love the country of Saudi Arabia.
+- [29:07.430] I know the people very well.
+- [29:10.840] The level of treatment that we go
+- [29:13.160] when we go to Saudi Arabia is something that is incredible.
+- [29:17.180] And the people like us.
+- [29:18.430] And I think they really like America,
+- [29:20.440] especially, when I'm president.
+- [29:23.250] I don't think they liked America so much
+- [29:24.760] maybe for four years recently.
+- [29:27.970] I think Obama treated Saudi Arabia very, very badly.
+- [29:30.870] Very badly. As you know.
+- [29:33.520] And I think Biden didn't have any idea where the hell he was.
+- [29:36.360] So, I don't think Biden knew the difference.
+- [29:38.610] The Press: How would you describe
+- [29:40.870] the future relationship with Saudi Arabia?
+- [29:44.490] From the strategic aspect. How would you describe --
+- [29:47.880] The President: How would I say the relationship is with --
+- [29:50.840] The Press: Yeah. Yeah. (inaudible) --
+- [29:52.190] The President: I would say top-of-the-line.
+- [29:54.180] It's as good as it can --
+- [29:55.470] I don't think it can get much better.
+- [29:59.440] Look, we have a country that trusts us,
+- [30:01.240] and that's why they make that investment.
+- [30:02.820] If they didn't trust us, they couldn't make that investment.
+- [30:05.480] And we trust them. They've been very reliable.
+- [30:09.570] Now we are -- I rebuilt our military in my first term.
+- [30:14.440] And we spent trillions of dollars.
+- [30:16.480] Ad we gave away some of it in Afghanistan, stupidly,
+- [30:19.220] because we had stupid people running our country,
+- [30:21.700] but we gave away --
+- [30:23.520] As much as it was, it's a tiny fraction of what we put here.
+- [30:28.300] And we're, again, we're bringing our military to a new level,
+- [30:31.960] the highest level ever. We have those plans.
+- [30:35.510] And, again, it's all American jobs and everything.
+- [30:37.860] So, it's good for a lot of reasons.
+- [30:39.490] But as far as Saudi is concerned,
+- [30:41.610] no, I don't think our relationship could be better.
+- [30:44.810] I don't think they had a great relationship under Biden,
+- [30:47.080] and I don't think they had a great relationship under Obama.
+- [30:51.580] But they have a great relationship under Trump.
+- [30:54.100] When we did the presidential walk of fame --
+- [30:56.990] You saw that. Right?
+- [30:58.400] And we're walking, and I asked the crown prince,
+- [31:01.730] "So, outside of Trump, outside of Trump,"
+- [31:05.420] because I blow everyone away,
+- [31:07.300] "Who was the best president for Saudi Arabia?"
+- [31:11.220] Maybe it's an interesting answer.
+- [31:13.150] I don't know.
+- [31:14.350] Mohammed bin Salman: Yeah. (inaudible)
+- [31:17.140] Democrat. And Reagan.
+- [31:19.370] He's one of the historical presidents
+- [31:21.100] that have close ties with Saudi Arabia.
+- [31:23.670] But we've worked with all presidents.
+- [31:25.610] The President: Does Trump blow them all away?
+- [31:28.480] Mohammed bin Salman: It's not about me, Mr. President.
+- [31:33.180] The President: And Trump doesn't give a fist bump.
+- [31:34.800] I grab that hand.
+- [31:37.150] I don't give a hell where that hand's been.
+- [31:39.140] I grab that hand. Remember Biden?
+- [31:43.830] He travels for 20 hours. He gets out.
+- [31:47.080] And he gives the fist bump. No.
+- [31:49.260] When you get out of the plane, and you got the future king
+- [31:52.130] and the man who is one of the most respected people
+- [31:54.490] in the world, you shake his hand.
+- [31:57.100] You don't give him a fist bump. Right?
+- [31:59.860] We don't want to ask you about that,
+- [32:01.630] but I can't imagine you were thrilled.
+- [32:03.520] You were a little bit surprised. He's a fantastic guy.
+- [32:07.590] You don't do that. Yeah, please.
+- [32:09.050] The Press: We're getting closer to the end of the year.
+- [32:10.660] Have you started the interviews for the Fed chair?
+- [32:12.870] The President: Yes.
+- [32:14.110] The Press: Who have you interviewed?
+- [32:17.700] The President: I think I already know my choice.
+- [32:19.010] The Press: Who is it?
+- [32:20.230] The President: Well, I liked him,
+- [32:21.750] but he's not going to take the job.
+- [32:23.320] He refused. You like Treasury better. Right?
+- [32:26.300] The Press: Much better, sir.
+- [32:27.850] The President: So, we are talking to various people.
+- [32:31.200] And, frankly, I'd love to get the guy currently
+- [32:35.590] in there out right now. But people are holding me back.
+- [32:39.520] He's done a terrible job, hurting housing a little bit.
+- [32:45.200] The truth is we've been so successful.
+- [32:47.520] We've blown past his interest rate stupidity.
+- [32:52.350] He's been wrong -- That's why I call him
+- [32:54.170] Too Late. He's too late. Jerome Too Late Powell.
+- [32:57.180] He was recommended to me by a guy that made a bad choice.
+- [33:01.270] And it's too bad.
+- [33:02.480] But despite that, it's having very little impact,
+- [33:05.070] because we have all of these things happening.
+- [33:07.910] But it has an impact on housing to a certain extent.
+- [33:10.630] He's a fool. He's a stupid man.
+- [33:12.970] But we have some very good people.
+- [33:16.050] Secretary Bessent: Sir, you'll be sitting down with him
+- [33:19.740] in the near-future and --
+- [33:21.730] The President: We have some surprising names,
+- [33:23.100] and we have some standard names that everybody's talking about.
+- [33:27.460] And we may go the standard way.
+- [33:29.570] It's nice to every once in a while go politically correct.
+- [33:33.460] But we have some great names. Steve, please?
+- [33:35.590] The Press: Have you talked to President Maduro
+- [33:37.150] of Venezuela yet? Are you still open to that?
+- [33:39.380] The President: He wants to talk.
+- [33:40.600] The Press: Yes, sir.
+- [33:41.800] The President: Yeah. I'm open to talking.
+- [33:43.040] I talk to everybody, but, no.
+- [33:45.480] He wants to. They treated us very badly.
+- [33:47.750] They sent all of their prison population
+- [33:50.340] into the United States,
+- [33:52.180] and we're getting them out rapidly.
+- [33:55.050] But he sent all of his --
+- [33:56.270] And he sends drugs into the United States and other things.
+- [33:58.860] No. He treated us badly.
+- [34:01.190] He was dealing with a bad president,
+- [34:02.810] and he was able to get away. We have now --
+- [34:05.430] I think we have the strongest borders anywhere in the world.
+- [34:07.770] Nobody is coming in unless they come in legally.
+- [34:11.500] We're talking very weak borders
+- [34:13.200] where millions of people came in.
+- [34:15.240] For the last six months -- I don't do these reports.
+- [34:25.930] The Press: But why wait for Congress to release
+- [34:28.070] the Epstein files? Why not just do it now?
+- [34:31.340] The President: It's not the question that I mind.
+- [34:32.940] It's your attitude.
+- [34:34.520] I think you are a terrible reporter.
+- [34:37.440] It's the way you ask these questions.
+- [34:39.450] You start off with a man who is highly respected,
+- [34:42.180] asking him a horrible, insubordinate,
+- [34:45.850] and just a terrible question.
+- [34:48.180] And you could even ask that same exact question nicely.
+- [34:52.510] You're all psyched --
+- [34:53.800] Somebody psychs you over at ABC, they're going to psych --
+- [34:59.270] You're a terrible person and a terrible reporter.
+- [35:03.070] As far as the Epstein files,
+- [35:05.860] I have nothing to do with Jeffrey Epstein.
+- [35:07.510] I threw him out of my club many years ago,
+- [35:09.530] because I thought he was a sick pervert.
+- [35:13.050] And I guess I turned out to be right.
+- [35:14.590] But you know who does have?
+- [35:16.080] Bill Clinton, Larry Summers, who ran Harvard,
+- [35:19.310] was with him every single night, every single weekend.
+- [35:22.530] They lived together. They went to his island many times.
+- [35:24.990] I never did. Andrew Weissman, I hear.
+- [35:30.610] All these guys were friends of his.
+- [35:32.180] You don't even talk about those people.
+- [35:34.790] You just keep going on the Epstein files.
+- [35:37.220] Now what the Epstein is is a Democrat hoax to try and get me,
+- [35:41.550] not to be able to talk about the $21 trillion
+- [35:43.980] that I talked about today. It's a hoax.
+- [35:46.960] Now I just got a little report, and I put it in my pocket,
+- [35:50.500] of all the money that he's given to Democrats.
+- [35:54.500] He gave me none. Zero. No money to me.
+- [35:57.520] But he gave money to Democrats.
+- [35:59.880] And people are wise to your hoax.
+- [36:02.100] And ABC, your company, your crappy company
+- [36:05.330] is one of the perpetrators, and I'll tell you something --
+- [36:08.250] I'll tell you something.
+- [36:10.310] I think the license should be taken away from ABC
+- [36:14.320] because your news is so fake and it's so wrong.
+- [36:17.890] And we have a great commissioner,
+- [36:19.770] the chairman, who should look at that.
+- [36:22.120] Because I think when you come in
+- [36:24.570] and when you're 97% negative to Trump
+- [36:27.900] and then Trump wins the election in a landslide,
+- [36:30.620] that means obviously your news is not credible
+- [36:33.520] and you're not credible as a reporter.
+- [36:35.050] So, I've answered your question.
+- [36:37.020] You should go and look at the Democrats
+- [36:39.470] who received money from Epstein, who spent their time --
+- [36:43.100] Larry Summers was with him all the time.
+- [36:46.770] That creep, the fund guy, was with him all the time.
+- [36:51.340] What's his name?
+- [36:52.570] Male Speaker: Reid Hoffman.
+- [36:53.780] The President: Reid Hoffman. I don't know Reid Hoffman,
+- [36:56.500] but I know he spends a lot of money on the radical left.
+- [36:59.350] Reid Hoffman, in my opinion,
+- [37:00.910] should be under investigation, he's a sleazebag.
+- [37:06.240] But they don't get any press, they don't get any news.
+- [37:09.090] And you're not after the radical left
+- [37:10.610] because you're a radical left network.
+- [37:12.470] But I think the way you ask a question with the anger
+- [37:15.280] and the meanness is terrible.
+- [37:17.560] You ought to go back and learn how to be a reporter.
+- [37:19.760] No more questions from you. Who else has a question?
+- [37:21.920] The Press: Crown Prince, very quickly, I want to ask you,
+- [37:24.040] how much money is Saudi Arabia giving for Gaza reconstruction?
+- [37:28.790] Mohammed bin Salman: We are in discussion about that.
+- [37:30.760] Still, there is no amount being --
+- [37:33.000] The President: It'll be a lot. It'll be a lot.
+- [37:36.240] Yeah, it's very important to him.
+- [37:38.840] The Press: And a quick follow-up,
+- [37:40.110] the international security force.
+- [37:42.320] Given your pledge, there would be no US boots on the ground,
+- [37:45.030] what is the US role going to be in that?
+- [37:47.580] And how do you ratify the allegations
+- [37:50.720] that this could undermine Palestinian sovereignty
+- [37:53.070] and even the path to statehood?
+- [37:54.440] The President: Look, I think we're going to get along great
+- [37:55.820] with the Palestinians and we know their leadership.
+- [37:59.230] We just had a very, you hate to say war,
+- [38:01.420] but it was a war. Very, very successful.
+- [38:04.400] And you could say, really, it was on behalf of everybody.
+- [38:06.940] We did that on behalf of everybody.
+- [38:09.320] And the outcome was extraordinary
+- [38:11.260] because we had the best pilots, the best equipment,
+- [38:13.400] the best planes, the best everything.
+- [38:15.500] And Israel bought the best equipment,
+- [38:17.100] they bought it from us.
+- [38:18.600] Everything's from us. It all starts here.
+- [38:21.110] This office, I was talking to the Crown Prince a little while.
+- [38:25.840] You walk into this office, for somebody from the outside,
+- [38:29.240] the Oval Office, it's most powerful place in the world.
+- [38:33.850] You're standing right now in the most powerful place
+- [38:36.450] in the world. And no matter how big you are,
+- [38:38.610] these are the biggest people, the richest people.
+- [38:41.550] They walk into this office, it's special, isn't it?
+- [38:43.680] Look at him. He's so happy to be here.
+- [38:45.880] But you walk into this office, it's the Oval Office,
+- [38:48.990] and we've done a lot of good with this office.
+- [38:50.880] I've stopped actually eight wars.
+- [38:52.350] I appreciated your question before,
+- [38:54.750] but I've actually stopped eight wars.
+- [38:56.870] I have another one to go with Putin.
+- [38:58.330] I'm a little surprised at Putin.
+- [39:00.080] It's taken longer than I thought,
+- [39:01.980] but we stopped India and Pakistan.
+- [39:03.840] I could go through the list,
+- [39:05.090] you know the list better than I do.
+- [39:06.880] I'm very proud.
+- [39:08.110] And I stopped one that was almost ready to start again.
+- [39:10.840] There was one that was -- and they're doing very well.
+- [39:15.570] So, it all took place right here in the Oval Office,
+- [39:20.280] whether by telephone or whether they came in.
+- [39:24.040] Many of these leaders have come in
+- [39:26.520] and they signed their peace deals right here
+- [39:29.020] in the Oval Office.
+- [39:30.330] So, no matter if it's the biggest business people
+- [39:33.140] in the world or the greatest leaders in the world,
+- [39:35.090] the biggest leaders in the world,
+- [39:37.900] like the gentleman on my right,
+- [39:39.750] everybody walks into the Oval Office
+- [39:41.720] and they say, "Wow."
+- [39:43.780] And now by the way, the Oval Office
+- [39:46.110] is in the condition that it should be in,
+- [39:48.610] whether you look at the walk or the marble floors
+- [39:50.780] or down the road, we're fixing the White House
+- [39:55.480] and we're building one of the greatest ballrooms
+- [39:58.300] ever to be built. We have an event tonight
+- [40:01.460] and we're going to have about 118 people
+- [40:03.470] because we have a very small room.
+- [40:05.250] For 150 years they've wanted a ballroom
+- [40:08.210] and now you're going to get a great ballroom.
+- [40:09.850] And I have to say, I probably made a lot of enemies
+- [40:13.230] because in your honor we're having a dinner tonight,
+- [40:16.380] a beautiful dinner tonight, and we have a very small room.
+- [40:21.570] It's called the East Room.
+- [40:23.100] And it's beautiful, it's lovely,
+- [40:26.000] but it's like for a little cocktail
+- [40:27.820] before you go into a ballroom. It's a very small room.
+- [40:30.240] They've wanted a new ballroom for 150 years.
+- [40:34.580] We could have sold the big ballroom
+- [40:36.500] out three times in honor of this gentleman.
+- [40:38.830] So, I made a lot of enemies
+- [40:40.070] because I have a lot of people that aren't invited tonight
+- [40:42.190] or are unable to come because of the size constraint.
+- [40:45.860] But you know what we'll do?
+- [40:47.110] Before I leave office, we'll have another dinner
+- [40:49.480] because we'll have it ready long before I leave office
+- [40:52.450] and it's going to be beautiful.
+- [40:56.030] It's a very popular thing, what we're doing.
+- [40:57.640] And by the way, no government funds,
+- [40:59.160] it's all put up, private money. All private money.
+- [41:02.960] And in the case, I think there's a restriction on foreigners.
+- [41:06.760] Otherwise, I could have asked you just for a check,
+- [41:09.050] (inaudible), but there's a restriction.
+- [41:10.840] These are all private individuals
+- [41:13.120] that put up a lot of money to build the ballroom.
+- [41:15.560] Not one penny is being used from the federal government.
+- [41:18.460] So, it's really a nice thing, but I look forward to it.
+- [41:21.040] I just pointed it out.
+- [41:22.790] This would be a perfect night
+- [41:25.160] to have that ballroom open, Susie.
+- [41:27.540] If we had that open, we'd have a lot of people very happy.
+- [41:30.860] Right now we have a lot of unhappy people
+- [41:32.980] because they all want to be with us tonight
+- [41:35.500] to honor this great man.
+- [41:36.860] Thank you all very much. Thank you.

@@ -1,0 +1,416 @@
+<!-- source: https://www.youtube.com/watch?v=n0CpuSf99bI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: n0CpuSf99bI -->
+<!-- date_published: 2025-11-19T01:06:38+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:22.993361+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in a Dinner with the Crown Prince of Saudi Arabia
+
+- [00:08.280] Announcer: Ladies and gentlemen,
+- [00:09.250] the President of the United States,
+- [00:11.250] and the First Lady Melania Trump,
+- [00:13.250] accompanied by the Crown Prince and Prime Minister
+- [00:16.620] of the Kingdom of Saudi Arabia.
+- [00:19.110] ♪ (Hail to the Chief) ♪
+- [01:20.580] The President: Well, thank you very much, everybody.
+- [01:22.870] Thank you. What an honor.
+- [01:29.210] Well, this is a very special occasion.
+- [01:33.570] And it is indeed my honor to welcome
+- [01:35.660] to the White House a great friend
+- [01:38.020] and a man of leadership, vision, courage, and strength,
+- [01:41.620] his Royal Highness crowned Prince Mohammad
+- [01:44.660] bin Salman of the Kingdom of Saudi Arabia.
+- [01:49.660] And we had a big day today.
+- [01:52.290] A very big day for both countries.
+- [01:55.670] We've gotten to know each other well over the years,
+- [01:57.930] and he has become a true partner
+- [01:59.580] for peace and prosperity for our countries
+- [02:02.900] and for the world and for peace in the Middle East,
+- [02:06.180] which was a crowning achievement for both of us.
+- [02:09.830] And I just want to say that Crown Prince Mohammed,
+- [02:14.330] we're delighted to have you with us at the White House.
+- [02:16.810] Very special, very, very special.
+- [02:25.070] I'd like to also express my gratitude
+- [02:27.270] to our wonderful First Lady
+- [02:29.450] for organizing this beautiful evening.
+- [02:31.520] She worked hard on it. Thank you very much, Melania.
+- [02:33.810] Thank you.
+- [02:35.040] (applause)
+- [02:39.640] And we're pleased to be joined as well by Vice President J. D.
+- [02:43.030] Vance and his magnificent wife Usha.
+- [02:46.320] Thank you. Thank you, JD.
+- [02:48.320] (applause)
+- [02:51.000] Speaker of the House, Mike Johnson and his wife Kelly.
+- [02:55.310] Thank you, Mike, wherever you may be.
+- [02:56.960] Thank you. Thank you, Kelly.
+- [03:01.820] Princess Rima, thank you, Princess Rima.
+- [03:04.410] Such a incredible representative of your country.
+- [03:10.390] And you really are. We really appreciate it.
+- [03:12.810] Great job you do.
+- [03:14.420] And members of the Saudi delegation,
+- [03:17.680] we want to thank you very much for being with us.
+- [03:20.680] We spent a lot of time with you today in the cabinet.
+- [03:23.070] You're extremely good negotiators that I can tell you.
+- [03:26.060] So I want to thank you.
+- [03:27.380] And we have so many other unbelievable dignitaries.
+- [03:30.970] I won't I won't talk too much about you
+- [03:33.300] because we'll be here all night.
+- [03:34.570] This room is loaded up with the biggest leaders
+- [03:37.290] in the world, business, sports.
+- [03:39.530] You know, my son is a big fan of Ronaldo,
+- [03:42.410] wherever Ronaldo is here. Ronaldo.
+- [03:45.970] (applause)
+- [03:49.940] And Baron got to meet him and I think he respects
+- [03:52.600] his father a little bit more now.
+- [03:54.090] Just the fact that I introduced you.
+- [03:56.430] So I just want to thank you both for being here.
+- [03:58.550] Thank you very much. Really an honor.
+- [04:00.980] But I want to thank everybody because you do.
+- [04:03.310] You have the biggest business leaders in the world.
+- [04:06.090] You have the biggest leaders
+- [04:07.360] politically anywhere in the world.
+- [04:09.620] And I think it's a group that maybe to this extent
+- [04:12.620] has never come together quite like this.
+- [04:15.250] I only wish we had about two thousand more seats.
+- [04:18.970] We would have filled every one of them two times over.
+- [04:22.490] But very soon you'll be having that.
+- [04:24.570] And we'll have to do another one in about two years from now.
+- [04:27.840] But we really do. We appreciate it very much.
+- [04:30.480] It's a special privilege
+- [04:31.680] to welcome his Royal Highness to Washington this year
+- [04:34.840] as we mark the 80th anniversary of the first meeting
+- [04:38.460] between US President and a Saudi King.
+- [04:41.690] Eight decades ago in 1945,
+- [04:45.480] President Franklin Delanore Roosevelt met
+- [04:47.830] with the Crown Prince's own grandfather,
+- [04:49.930] the founder of the Saudi Arabian incredible country,
+- [04:55.340] and that was King Abdul Aziz on the deck of the US Navy cruiser,
+- [05:01.640] and a beautiful one at that.
+- [05:02.930] It has become known for that meeting all over the world.
+- [05:07.260] The two became immediate and warm friends,
+- [05:09.380] and in fact, when we were walking down
+- [05:11.250] the presidential walk of fame today,
+- [05:14.580] I said, so which one -- other than Trump, of course,
+- [05:17.620] because Trump absolutely is number one in this category,
+- [05:20.610] meaning friend to Saudi Arabia. I said, which is the greatest
+- [05:24.450] of the President's friends of Saudi Arabia?
+- [05:26.590] And I think you said very truly, Franklin Delano Roosevelt,
+- [05:31.380] he's a Democrat, so I don't know.
+- [05:34.330] But I understood it and it's true.
+- [05:36.000] He was a great friend,
+- [05:37.220] and right now you have the best friend you've ever had.
+- [05:40.110] But ever since our countries have been enduring partners
+- [05:42.970] and together this evening we're making that partnership
+- [05:46.010] closer and stronger than ever before,
+- [05:48.150] and we've never had the relationship
+- [05:50.820] our countries like this. We had four great years,
+- [05:53.490] but Things happened today and documents were signed
+- [05:57.160] and we went through a lot during the first nine months
+- [06:00.940] and we have a very different Middle East than we had
+- [06:03.290] when I first came into office, like I would say day and night.
+- [06:07.720] As I saw during my wonderful visit to the kingdom in May,
+- [06:12.030] with the Crown Prince's help,
+- [06:13.590] Saudi Arabia's made extraordinary strides and grown
+- [06:16.410] into an economic engine and really a modern day miracle,
+- [06:21.360] an amazing transformation and all for the good.
+- [06:25.280] This opening up of the new avenues of cooperation
+- [06:29.370] between the United States and Saudi Arabia
+- [06:32.010] is really unprecedented.
+- [06:33.360] And on that trip, Saudi Arabia announced
+- [06:35.800] that it will invest an incredible 600 billion dollars.
+- [06:39.660] That means jobs. That means jobs.
+- [06:41.410] It's also good for your companies,
+- [06:43.500] but I'm only interested in the jobs for your country.
+- [06:45.890] I'm not interested in the profits,
+- [06:47.500] but I guess the profits are there too.
+- [06:49.680] But 600 billion dollars in the United States.
+- [06:53.090] And today I said, Any way you can up that?
+- [06:56.430] And he said, I am going to up that to one trillion dollars.
+- [06:59.480] So he's investing one trillion dollars into the United States.
+- [07:05.230] (applause)
+- [07:06.950] And when I was in Saudi Arabia, he looked at me
+- [07:10.200] and I've used his name all over the place
+- [07:12.110] because he was the first to say it,
+- [07:13.720] but a lot of people have said it after.
+- [07:15.850] He said, You know, one year ago,
+- [07:18.670] we thought your country was dead,
+- [07:21.000] and now you have the hottest country anywhere in the world.
+- [07:23.990] We are the hottest country anywhere in the world right now.
+- [07:26.440] So I want to thank you for giving me
+- [07:28.460] one of the most effective lines that I have.
+- [07:31.310] And I quote you and I quote some others,
+- [07:33.250] but I always put you up atop, but many people have said that.
+- [07:36.460] This week we're also signing exciting agreements
+- [07:38.940] on civil nuclear energy, critical minerals,
+- [07:42.160] and artificial intelligence,
+- [07:43.800] numbers that nobody's ever heard of before.
+- [07:46.430] And Jensen, I want to thank you.
+- [07:47.940] You had a great meeting of Nvidia, wherever you may be,
+- [07:51.260] and I want to thank Tim Cook and Apple
+- [07:53.700] for all of the money that you're investing in the United States.
+- [07:56.780] They're both investing $600 billion,
+- [07:59.050] and we have numerous other country companies in the room
+- [08:02.840] that are likewise investing large sums
+- [08:06.610] because they believe in what we are doing
+- [08:08.680] and what's taken place,
+- [08:10.270] this miracle that's taken place in the USA.
+- [08:13.280] Together these will come together,
+- [08:16.520] we're going to have support,
+- [08:17.930] the many thousands of American jobs that have been created
+- [08:20.870] and helped solidify the USA and the world leader.
+- [08:24.910] We're really now by far the world leader in technology
+- [08:28.080] and nobody even questions it.
+- [08:29.410] Advanced manufacturing and other vital industries,
+- [08:32.850] they were saying two, three years ago
+- [08:35.020] when the country was really losing business,
+- [08:37.070] not gaining business, that will never be manufacturers again,
+- [08:40.950] we'll never be doing any of these businesses again
+- [08:43.590] that are coming back to us in record numbers, AI plants,
+- [08:47.090] but maybe even most importantly, in a sense, the auto plants.
+- [08:50.920] They're all pouring back into the United States.
+- [08:53.710] And I have to say, because of tariffs,
+- [08:55.310] I'll also say because of November 5th, the election.
+- [08:59.070] But because of the tariffs there coming back.
+- [09:02.170] We have the head of Ford,
+- [09:03.430] we have the head of General Motors in the room,
+- [09:05.560] and their stock has gone through the roof
+- [09:07.510] because what I did with tariffs last week
+- [09:10.040] on certain kinds of vehicles. I won't get into it.
+- [09:14.670] It's called mid-sized trucks and large trucks.
+- [09:18.300] So I wanted to get into it
+- [09:19.780] because their stock went through the roof,
+- [09:22.030] and they were very happy.
+- [09:23.940] They did not really a hell of a lot of work.
+- [09:26.480] I gave it to them at their request,
+- [09:28.540] and for that, they get a big fat salary,
+- [09:30.640] but more importantly,
+- [09:31.860] they create jobs all over the country.
+- [09:33.800] It's been amazing.
+- [09:35.130] And the business you've gotten in the mid-size
+- [09:36.680] and the large trucks
+- [09:37.890] because of what we did with tariffs is incredible.
+- [09:40.900] It's incredible. So I congratulate both companies
+- [09:43.460] and thank you both for being here very much.
+- [09:45.910] And as we announced in May, Saudi Arabia
+- [09:47.800] is also making an enormous commitment
+- [09:49.810] to building up its own defense capabilities
+- [09:52.580] with the largest arms purchase in history,
+- [09:54.850] nearly $142 billion worth of
+- [09:57.750] American military equipment and services.
+- [10:00.030] And as I've said many times
+- [10:01.900] and We've demonstrated a short while ago,
+- [10:05.670] but we make the best military equipment in the world by far.
+- [10:11.030] We make the best jets, the best missiles,
+- [10:12.970] we make the best military equipment in the world,
+- [10:15.950] as nothing even close.
+- [10:17.990] But this will mark and make both of our nations
+- [10:21.660] safer and cement the kingdom's role
+- [10:24.290] as a key force for stability and security in the Middle East.
+- [10:27.930] And they are, I think right now I can say
+- [10:30.730] with what we did with our beautiful B-2 bombers
+- [10:33.250] going in and obliterating a very serious nuclear threat,
+- [10:39.110] which would have taken place in about a month from that date.
+- [10:42.770] They were ready to go. They're not ready to go anymore.
+- [10:45.530] They'd like very much to make a deal with us
+- [10:47.370] and they call us and we'll end up probably doing that.
+- [10:49.990] That's Iran.
+- [10:51.430] But when you really think about it, your majesty,
+- [10:54.910] I think that this is best in terms of safety,
+- [10:59.050] Saudi Arabia has never been as safe as it is right now.
+- [11:02.280] You always had a little cloud over your head
+- [11:04.000] and sometimes that cloud was very big.
+- [11:05.750] That cloud is not there anymore. And we want to keep it that way.
+- [11:08.940] So that's why tonight I'm pleased to announce
+- [11:11.480] that we are taking our military cooperation
+- [11:13.610] to even greater heights by formally
+- [11:16.180] designating Saudi Arabia as a major non
+- [11:19.720] NATO ally, which is something that is very important to them
+- [11:25.230] and I'm just telling you now for the first time
+- [11:26.930] because I wanted to keep a little secret for tonight.
+- [11:29.980] I just heard him say, oh that's nice.
+- [11:32.990] That's another point you won today.
+- [11:35.350] But and signing a historic strategic defense agreement
+- [11:38.930] which we just signed a little while ago.
+- [11:40.570] So congratulations at Saudi Arabia.
+- [11:48.330] A stronger and more capable alliance
+- [11:50.630] will advance the interests of both countries
+- [11:52.990] and it will serve the highest interest of peace
+- [11:56.080] and we all share in peace and we've never had and been
+- [11:59.660] so close to truly everlasting peace in the Middle East.
+- [12:02.980] All my life I've heard, oh, peace in the Middle East,
+- [12:05.870] but it'll never happen. We did it.
+- [12:07.760] Now we have to make sure it matures properly
+- [12:10.150] and is really as strong as we think it can be,
+- [12:12.230] but we've gotten all good signals.
+- [12:14.020] I want to just thank you for all the help too.
+- [12:16.860] I want to thank the Crown Prince for the role he played
+- [12:19.860] in the transformational peace deal
+- [12:22.580] that was achieved last month and so many of the other things
+- [12:27.520] that happened to end the war in Gaza.
+- [12:30.640] Gaza, while it looks a little bit messy,
+- [12:33.080] it has for many, many years, I will tell you, many decades,
+- [12:37.100] but it's getting very close to being perfected,
+- [12:40.860] and people are shocked.
+- [12:42.130] And even the great experts that have gone around
+- [12:44.690] criticizing badly every country
+- [12:47.140] and every president and everything,
+- [12:48.900] they're all saying that what's taking place in the Middle East
+- [12:51.470] is a miracle.
+- [12:52.750] They're just calling it a miracle,
+- [12:54.330] and we're going to make it a miracle,
+- [12:55.760] and we're very close to doing that.
+- [12:58.030] But as you know, all of the living hostages
+- [13:00.980] were returned to their families. We got all 20, 20 out of 20.
+- [13:05.280] And likewise, this sounds terrible,
+- [13:08.170] but the parents of the young men,
+- [13:14.680] mostly young men, almost all young men,
+- [13:17.360] they wanted those bodies back
+- [13:19.250] as much as the parents of the living.
+- [13:21.930] The parents of the living would do anything
+- [13:24.740] to get their boy back and they got him back.
+- [13:28.920] The parents of the dead wanted them just as much.
+- [13:32.520] It almost seemed as though they wanted them more.
+- [13:35.550] And today through the efforts of Steve Whitkoff and Jared Kushner
+- [13:39.210] and Marco Rubio and everybody, everybody worked together.
+- [13:43.440] We worked so hard together.
+- [13:45.700] Two more bodies were brought back
+- [13:47.390] and we're up to almost the full count.
+- [13:50.370] I think we're too short right now.
+- [13:52.070] And a lot of work has been done by Hamas
+- [13:56.510] and a lot of a lot of people said
+- [13:57.760] they wouldn't be doing that, but they did do it.
+- [14:00.110] And the bodies have been delivered to the families,
+- [14:03.870] to the mothers, to the fathers,
+- [14:05.990] and at least they can be in peace.
+- [14:09.050] It's amazing. It was a miserable period of time.
+- [14:11.870] We have two more to go
+- [14:13.160] and I think we'll be getting them also.
+- [14:16.630] Not easy. That was not easy, not an easy situation.
+- [14:19.740] I've met with many of those parents
+- [14:21.400] at what a time, what a time they've had.
+- [14:24.340] But we all also want to thank all of the people
+- [14:27.420] living in Gaza, the residents of Gaza,
+- [14:30.530] and they're -- they've, as you know,
+- [14:32.600] begun to move back to their homes
+- [14:34.570] and a lot more safety. They said today
+- [14:36.780] a lot more safety than they've ever had before.
+- [14:39.510] It was rough neighborhood to put it mildly,
+- [14:43.730] and a lot of progress has been made with respect to Gaza
+- [14:46.410] and just about everything else we touch.
+- [14:48.830] Just yesterday the United Nations Security Council
+- [14:51.450] formally adopted my peace plan
+- [14:54.850] and officially endorsed the Board of Peace.
+- [14:57.330] This is a board like no other.
+- [14:59.470] It will have the heads of major countries.
+- [15:02.290] I think all of the major countries.
+- [15:04.650] I hope your Highness will be on the board.
+- [15:06.410] You'll accept, I hope.
+- [15:07.880] But the Board of Peace will be something
+- [15:09.450] that's never even been thought of before.
+- [15:11.800] And it's covering Gaza,
+- [15:13.100] but it'll end up covering large portions of the world.
+- [15:16.530] And I was honored to be chosen the chair.
+- [15:20.440] Board of Peace, and I think you'll see something
+- [15:22.750] that nobody's ever seen
+- [15:23.970] before in terms of the status of the board.
+- [15:26.480] There will never be a board like the board
+- [15:28.900] that we're going to be announcing.
+- [15:30.630] Everybody wants to be on the board,
+- [15:33.770] and it'll end up being quite a large board
+- [15:36.730] because it'll be the heads of every major country,
+- [15:40.520] and the United Nations passed it.
+- [15:43.730] I guess unanimously you can say China,
+- [15:46.970] which was against it, took a pass,
+- [15:50.650] didn't vote against it, and Russia,
+- [15:52.210] which was against it, didn't vote against it.
+- [15:54.240] So we appreciate it because one one negative vote
+- [15:57.110] and it doesn't happen.
+- [15:58.630] So people were shocked to see that was approved,
+- [16:02.890] and that was a great honor.
+- [16:04.780] It's a great honor for me, I will tell you.
+- [16:06.470] I think it's something like nobody's ever even imagined.
+- [16:10.710] So it's called the Board of Peace, and watch for it
+- [16:14.170] because it's going to do some fantastic things.
+- [16:16.880] And I know we're both deeply committed
+- [16:18.550] to an enduring ceasefire.
+- [16:19.980] It grows into the beautiful lasting peace,
+- [16:22.820] and we've got things going at numbers
+- [16:25.830] and far ahead of schedule
+- [16:27.580] that nobody thought was possible.
+- [16:29.400] So your Royal Highness, just as my predecessors
+- [16:33.090] and so many of the people
+- [16:34.900] that you know and love from a long time ago,
+- [16:38.010] they bonded with the US and Saudi relationship,
+- [16:41.730] which was forged 80 years ago.
+- [16:44.360] You and I are strengthening and renewing the alliance,
+- [16:47.380] I believe, to levels that were far greater
+- [16:49.330] than what they had even 80 years ago, frankly.
+- [16:52.220] And we pray that we will be celebrated
+- [16:54.740] by our own descendants some days for this incredible relationship
+- [16:58.890] that's been built between the United States of America
+- [17:01.360] and Saudi Arabia.
+- [17:02.630] Someday they maybe will talk about us
+- [17:04.590] as being two wonderful men.
+- [17:06.610] Forget about great. Wonderful is okay.
+- [17:09.140] But two wonderful men that did tremendous work
+- [17:11.930] for their countries, and that bond is very important.
+- [17:14.350] Our friendship and blessings to America,
+- [17:17.660] to the kingdom of Saudi Arabia
+- [17:19.770] and to the world stand out and will always stand out to me.
+- [17:23.880] So I look forward to working with you,
+- [17:25.470] and we'll be here for three and a quarter years.
+- [17:29.150] For the Trump, that's like an eternity.
+- [17:31.930] You know, for somebody else, that doesn't sound long,
+- [17:34.550] but we love doing it.
+- [17:36.650] We love, you know, we have an expression,
+- [17:38.210] make America great again,
+- [17:39.840] and that's what we're doing beyond
+- [17:41.550] what anyone even thought possible.
+- [17:43.220] So I just want to thank you for being a very big part of it.
+- [17:46.380] And I want to thank you for a one trillion dollar investment
+- [17:50.470] and contribution toward our country.
+- [17:52.400] That's a lot of jobs. Thank you very much.
+- [17:54.570] Thank you. Please.
+- [17:57.410] (applause)
+- [18:05.490] Mohammed bin Salman Al Saud: Well it's too hard
+- [18:06.740] to speak after Mr. President. No one speaks better than him.
+- [18:10.220] But first of all I will start with thanking Mr. President
+- [18:12.520] for the warm and great welcome that we have today.
+- [18:16.140] We feel home.
+- [18:17.530] And this relation started around close to nine decades ago
+- [18:21.870] with Roosevelt and King Abdraziz
+- [18:24.050] who've established the modern Saudi Arabia.
+- [18:26.730] Also I've known that America is almost celebrating
+- [18:30.040] 250 years of establishment and also in two years
+- [18:33.370] we will celebrate in Saudi Arabia 300 years
+- [18:36.140] of establishing Saudi Arabia.
+- [18:38.400] We've been since the last nine decades
+- [18:40.630] working together in many areas.
+- [18:42.550] During the World War II, we was a major supplier for oil
+- [18:46.290] during the Cold War, countering extremism, terrorism,
+- [18:48.790] but during that time we've been also working
+- [18:51.100] on a lot of economical opportunities.
+- [18:53.140] But today it's special day.
+- [18:54.560] We think the horizon of the economic cooperation
+- [18:57.020] between Saudi Arabia and South America
+- [18:58.930] it's bigger and wider in many in many areas.
+- [19:01.870] We've been signing a lot of agreement
+- [19:03.190] that's going to open the door
+- [19:04.610] to develop the relation deeper in many areas
+- [19:07.560] and we're going to work on it.
+- [19:08.900] We believe the opportunities is huge.
+- [19:11.120] So we're going to focus on implementation
+- [19:12.640] and keep increasing the opportunities
+- [19:13.900] between our both countries.
+- [19:16.000] So thank you again, Mr. President.
+- [19:18.130] And also before I come here,
+- [19:19.520] I someone told me that there is in some of the bidding sites
+- [19:24.530] that they are betting on me wearing black suits,
+- [19:27.650] and if you bet me wearing black suits
+- [19:29.450] and coming here with the black suits,
+- [19:30.700] they're going to get (inaudible)
+- [19:32.540] So I want to tell them sorry you lose the bet.
+- [19:36.580] Maybe next time.
+- [19:37.860] So thank you, Mr. President. Thank you.
+- [19:40.830] (applause)

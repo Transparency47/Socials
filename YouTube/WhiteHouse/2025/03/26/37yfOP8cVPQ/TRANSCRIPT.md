@@ -1,0 +1,960 @@
+<!-- source: https://www.youtube.com/watch?v=37yfOP8cVPQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 37yfOP8cVPQ -->
+<!-- date_published: 2025-03-26T20:17:08+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:21.386387+00:00 -->
+
+# Transcript: President Trump Participates in a Women's History Month Event
+
+- [00:00.850] [Music]
+- [00:02.650] [Applause]
+- [00:03.460] [Music]
+- [00:04.640] Ladies and gentlemen, the President of
+- [00:06.720] the United States
+- [00:10.880] [Music]
+- [00:15.090] [Applause]
+- [00:17.980] [Music]
+- [00:28.000] Well, thank you very
+- [00:29.560] much. That's a lot of good-looking
+- [00:32.160] people there. This is great. It's a
+- [00:34.719] great honor to be with you. And I want
+- [00:37.040] to thank everyone and welcome you to the
+- [00:39.680] most spectacular place, the White House.
+- [00:41.760] It's just an amazing place to to live
+- [00:44.719] and to work in. And uh you know, I've
+- [00:47.920] seen a lot of good places, but believe
+- [00:49.520] me, there's nothing like this. It's just
+- [00:51.200] very special. It's great to have you
+- [00:52.800] here to celebrate Women's History Month.
+- [00:55.760] That's a big deal. And today we honor
+- [00:58.800] the legacy of incredible women like
+- [01:01.520] Betsy Ross, Harriet Tubman, Susan B.
+- [01:05.119] Anthony, Clara Barton, and Amelia
+- [01:08.400] Heheart. All
+- [01:10.920] legends. And their extraordinary courage
+- [01:13.439] and patriotism and devotion propelled
+- [01:15.920] our nation to glory and to greatness.
+- [01:19.439] They are great women. many great women
+- [01:22.240] and thank you for the vote. You were
+- [01:23.680] very nice to me. The
+- [01:25.240] women we set every record. We we loved
+- [01:28.920] it. We love that vote. But we're
+- [01:32.720] delighted to be joined by some of the
+- [01:34.640] pioneering women who are making history
+- [01:36.799] in our own time. A woman that's uh just
+- [01:41.200] absolutely incredible. I have I can't
+- [01:43.200] tell you enough about her. She ran my
+- [01:44.880] campaign. We kept winning, winning,
+- [01:46.399] winning winning. And then we did well
+- [01:49.840] where she won Florida by record numbers.
+- [01:53.119] And I said, you know, uh the second time
+- [01:55.119] I said, "Well, just keep running
+- [01:56.479] Florida." And the big one was stolen
+- [01:58.640] from us, you know. So I said, "We better
+- [02:00.320] get her for number three." And we won in
+- [02:03.119] uh records. We won every swing state. We
+- [02:05.600] won by millions of votes the popular
+- [02:07.680] vote. We won everything. We won the
+- [02:09.520] districts at
+- [02:11.480] 2,750 to uh 500 57 or something like
+- [02:16.360] that. And uh we just won so big and her
+- [02:20.000] name is Susie Wilds
+- [02:22.750] [Applause]
+- [02:26.680] and she where are you Susie? And she was
+- [02:29.680] just named by one of the very prominent
+- [02:32.239] media groups. I won't mention it because
+- [02:33.760] I cannot stand the people, but she was
+- [02:36.319] just ma named as and it's true the most
+- [02:40.160] powerful woman in the world. Seriously,
+- [02:44.160] that is crazy,
+- [02:45.879] huh? That's a big her father was a great
+- [02:49.360] Pat Summerall, a great announcer. Really
+- [02:51.760] great football player and announcer for
+- [02:53.519] the NFL for like 27 years. He really got
+- [02:55.920] the NFL. He did pretty well with the
+- [02:57.920] NFL. He got him off to a very good
+- [02:59.920] start, didn't he? But he was great. but
+- [03:01.760] she's got those same traits. So, thank
+- [03:03.360] you very much, Susie. Great job.
+- [03:08.720] Also, uh we're going to go to somebody
+- [03:11.040] that's really the rage right now. She's
+- [03:13.200] the youngest ever White House press
+- [03:15.239] secretary, Caroline Levit. Caroline,
+- [03:18.720] look at you. Huh?
+- [03:21.760] [Applause]
+- [03:24.640] They said, "Sir, sir, she's just too
+- [03:27.200] young." And I said, "I don't know about
+- [03:29.519] that. She did awfully good because she
+- [03:31.120] did it during the campaign and she was
+- [03:32.720] awfully good. And uh she's been amazing.
+- [03:35.840] She just did another one just a little
+- [03:37.519] while ago. She looked at Susie and
+- [03:39.760] looked at me. I don't know. I think I'm
+- [03:41.360] ready, sir. How old are you? 27, right?
+- [03:43.959] 27. I said, "You're not too young." And
+- [03:46.640] she's knocking him dead. Everyone's
+- [03:48.080] talking about you. Thank you very much.
+- [03:49.599] Great
+- [03:53.239] job. And we have somebody else who's
+- [03:55.680] like a rocket ship. Uh the counselor to
+- [03:58.239] the president. She served me well. I'm
+- [04:00.799] going to miss her, but we'll see a lot
+- [04:02.799] of her anyway. I hope it's on friendly
+- [04:05.200] basis because I've got to be very
+- [04:07.120] concerned because she's going to be the
+- [04:09.200] new US attorney for the district of New
+- [04:11.840] Jersey. Alina, where's Alina Haba?
+- [04:16.440] Alina. Alina Haba. Thanks, Alena. She's
+- [04:20.880] going to be great. I'll tell you, she's
+- [04:22.400] going to be great. She's a great lawyer
+- [04:24.560] and uh lives in New Jersey. And I said,
+- [04:27.120] "That sounds like a good combination.
+- [04:28.800] Every everybody wanted that job. They're
+- [04:30.639] all looking for the job." I said, "Wait
+- [04:32.639] a minute. Doesn't Alena live in New
+- [04:34.160] Jersey?" "Yeah, I think Alena's going to
+- [04:36.080] get that job." So, congratulations,
+- [04:38.320] Elena. It's fantastic. I'm also thrilled
+- [04:41.199] to say that we have more women in our
+- [04:43.120] cabinet than any Republican president in
+- [04:45.520] the history of our country.
+- [04:52.960] And joining us today is uh a woman I've
+- [04:56.400] known a long time. You talk about strong
+- [04:58.479] women. This is strong woman. Remember
+- [05:00.320] they were saying he doesn't like strong
+- [05:02.360] women. That may be true. But if that's
+- [05:04.960] true, I'm in deep trouble because I'm
+- [05:06.720] surrounded. I got the strongest women.
+- [05:09.840] And this is a beautiful, strong,
+- [05:12.639] wonderful woman. Attorney General Pam
+- [05:15.440] Bondi.
+- [05:19.120] [Applause]
+- [05:23.680] But yesterday, you know, she was talking
+- [05:25.360] about these guys that like burning down
+- [05:27.840] cars and plants and everything else. And
+- [05:30.400] I was watching her on television. She
+- [05:32.120] said, "I'm going to get you. We're going
+- [05:34.880] to find you and you're going to suffer."
+- [05:37.919] And I say, "Man, I don't want her after
+- [05:40.000] me." That was And you know, it's
+- [05:42.400] amazing. The attacks have gone down
+- [05:44.160] very, very precipitously. It's really
+- [05:46.639] Pam is fantastic. Thank you very much,
+- [05:48.800] Pam. Really
+- [05:52.680] amazing. Along with a woman who was
+- [05:56.880] given a very hard and difficult problem,
+- [06:00.479] the cost of eggs. This was the problem.
+- [06:03.360] The cost of eggs. Eggs were through the
+- [06:05.440] roof. If you got to see the Biden chart,
+- [06:07.280] it's like a rocket ship. And Trump is
+- [06:09.440] like this way. Uh, but I gave Brooke the
+- [06:13.560] uh, Secretary of Agriculture and I
+- [06:16.720] didn't know
+- [06:18.440] it. I I didn't know it. She studied that
+- [06:21.520] in college. I didn't know that. I was
+- [06:23.039] going to give it to her anyway like it
+- [06:25.840] didn't matter that she studied, but it
+- [06:27.360] sort of helped, right? But she came in
+- [06:29.360] and she lowered the cost of eggs by
+- [06:31.520] almost 50% in three weeks,
+- [06:35.479] right? Someday you're going to tell us
+- [06:37.520] that secret. I want to find out. But the
+- [06:39.280] chart looks great. It's Biden like this
+- [06:41.120] and then we're like this. But we also,
+- [06:43.759] by the way, we low we lowered energy
+- [06:46.000] costs tre really like tremendously. Uh
+- [06:49.759] energyy's way down. Cost of gasoline's
+- [06:51.919] weigh down. Uh the cost of groceries, a
+- [06:54.560] word that I used a lot on the campaign.
+- [06:56.080] It's like an oldfashioned word, but it's
+- [06:57.759] a beautiful word, very descriptive word.
+- [06:59.680] And uh the groceries are coming down,
+- [07:01.680] Brooke, at a level that very I mean,
+- [07:03.919] we're finally getting costs under
+- [07:06.080] control in our country. And people don't
+- [07:08.240] like talking about it because it's so
+- [07:09.919] good. It's so positive. I haven't seen
+- [07:11.680] one story on eggs plummeting by 50%. But
+- [07:15.280] someday we'll they'll get around to
+- [07:16.720] writing it. Secretary of Education,
+- [07:20.000] she's trying to put herself out of a
+- [07:21.880] job.
+- [07:23.880] Linda, she's trying to put herself out
+- [07:26.400] of a job. She's moving education back to
+- [07:29.520] the states and she's doing it at a rapid
+- [07:32.800] rate. And she's an amazing woman. I've
+- [07:35.039] known her also for a long time. She's
+- [07:36.960] been amazing. No matter where she's
+- [07:38.319] been, she's been successful, including
+- [07:40.800] with her husband building a tremendous
+- [07:43.000] empire. And Linda McMahon is very
+- [07:45.520] special. Thank you, Linda. Thank
+- [07:49.639] you. And it's getting praised, by the
+- [07:52.000] way. The concept of moving education
+- [07:54.479] back to the states, back to the mothers
+- [07:56.639] of the
+- [07:58.759] fathers, and you probably do it for less
+- [08:01.599] than half, and you're going to have
+- [08:03.440] great great schools. You know, I I say
+- [08:05.280] that uh in our country, they have charts
+- [08:08.160] and they rate the countries. Various
+- [08:10.000] countries and Norway and Denmark and
+- [08:12.960] Sweden and lots of places are rated at
+- [08:15.840] the top. And Finland, China is rated
+- [08:19.599] very high, too. Tell me that's that
+- [08:21.440] takes the big problem out because if
+- [08:23.280] they can do it, that's big. So, we can
+- [08:25.039] do it. And we're rated toward the
+- [08:27.199] bottom. We're at number 37, 38, 39, or
+- [08:30.160] 40 out of 40. So, we're just about last.
+- [08:33.440] And yet we're first in one very nice
+- [08:35.279] category, cost per pupil. So obviously
+- [08:38.880] there's something wrong. We just have to
+- [08:40.560] repeat that, Linda. And everybody says,
+- [08:42.159] "Well, I guess it's time to do it." And
+- [08:44.240] it's been that way for a long time. And
+- [08:46.560] originally, we had it run by home state.
+- [08:49.200] So we never had that kind of a problem.
+- [08:50.959] But it's going to be Katie. It's going
+- [08:52.560] to be brought back again. And Linda's
+- [08:54.880] going to do it. And uh I I just say, you
+- [08:58.000] know, she said, "You basically want me
+- [09:00.160] to uh get out of government, don't you?"
+- [09:03.200] I said, "That's right. Do your job and
+- [09:04.720] get out. But I promise I'll have
+- [09:06.080] something else for you." Okay. I promise
+- [09:08.800] I'll have something even better for you.
+- [09:10.640] All right. But you're doing a job and we
+- [09:12.959] appreciate it. Also a special man. He's
+- [09:15.200] got a tremendous majority. It's so easy.
+- [09:17.200] A majority of about one. I think he's
+- [09:20.080] the only man could do the job because
+- [09:21.680] everybody loves him. Everybody respects
+- [09:23.600] him. He's really smart. Really? He's so
+- [09:26.480] nice. People say, "Is he smart?" I said,
+- [09:28.000] "You have no idea." He's actually, you
+- [09:30.720] know, he's really nice because he's
+- [09:32.880] smart. He knows it's the only way you
+- [09:34.800] can live with it. Where is Mike? Where
+- [09:37.360] Mike? It's the only way you can do it.
+- [09:39.600] You got He's the nicest guy. But in
+- [09:41.760] actuality, he's not a nice person. He's
+- [09:44.519] ruthless. You haven't seen this guy when
+- [09:47.120] he gets angry. I don't want to. I'll
+- [09:48.800] ruin your image
+- [09:50.200] overnight. He is a phenomenal guy. our
+- [09:53.200] great speaker, Mike Johnson. Thank you
+- [09:55.040] very
+- [09:59.000] much. I'm just I don't know. Is that
+- [10:01.519] good or bad for you? I'm not so sure.
+- [10:03.360] It's okay. He said whatever the heck you
+- [10:06.160] want to say is okay. Uh first female
+- [10:08.880] Republican attorney general of Iowa and
+- [10:11.440] an early supporter of Trump. And where's
+- [10:14.320] Brena Bird? Brena. Brena, thank you very
+- [10:17.000] much. She's so popular in Iowa. She came
+- [10:20.959] out so early and I appreciate it very
+- [10:22.959] much. That's great. Alaska Lieutenant
+- [10:25.600] Governor Nancy Dalstrom. Nancy, thank
+- [10:28.480] you,
+- [10:29.480] Nancy. Thank you very much. You have a
+- [10:32.480] You have a great governor, too, by the
+- [10:34.000] way. Nancy, he's also tall. He's
+- [10:37.040] seriously tall. I mean, the guy's like 7
+- [10:38.920] foot2. He is a tall guy, but he's a
+- [10:41.600] great governor. And I have a son who's
+- [10:43.360] tall like him.
+- [10:45.360] And Baron is very tall. They're all
+- [10:48.160] tall, but Baron's seriously tall, right?
+- [10:50.720] So anyway, say hello to him. He's great
+- [10:52.399] governor. South Carolina Lieutenant
+- [10:54.800] Governor Pamela Evette. Where is Pamela?
+- [10:58.079] Thank you very much. Good job you're
+- [10:59.800] doing. Great job. Good. And good luck
+- [11:03.440] with everything. I know it's big stuff,
+- [11:05.120] right? Governor. Oh, good. Thank you.
+- [11:07.600] Well, you have a great governor.
+- [11:09.440] Oklahoma Agricultural Commissioner
+- [11:11.839] Blaine Arthur. Blaine. Thank you,
+- [11:14.320] Blaine. Good. nice to see
+- [11:17.399] you and so many other incredible women.
+- [11:20.240] I'm going to make so many enemies
+- [11:21.440] because I'm looking here. I know every
+- [11:22.800] one of them and I'm supposed to say
+- [11:24.160] their names and maybe we'll get to it. I
+- [11:26.160] don't know. It's a long list. For four
+- [11:28.800] long years, we had an administration
+- [11:31.279] that tried to abolish the very concept
+- [11:34.160] of womanhood and replace it with radical
+- [11:37.200] gender ideology. Maybe you heard
+- [11:39.279] something about that. They destroyed
+- [11:41.440] women's spaces and even tried to replace
+- [11:43.839] the word mother with the term birther
+- [11:46.480] person. A mother became a birther
+- [11:48.320] person. What's that all about? Then you
+- [11:50.640] wonder why they lost. They're trying to
+- [11:52.160] figure out why did they lose. I saw a
+- [11:54.560] congressman today for the Democrats. He
+- [11:56.720] was having a big fight on television
+- [11:58.959] early this morning trying to uh make it
+- [12:02.079] so that really he thinks men should play
+- [12:04.800] in women's sports. He hasn't given that
+- [12:06.480] up yet. He was fighting like crazy. I
+- [12:08.399] said, "This guy is going to lose. she's
+- [12:10.000] going to lose badly. The whole party is
+- [12:12.079] still into that. They haven't learned
+- [12:13.519] under and we don't want them to learn,
+- [12:15.040] frankly. We want them to keep fighting.
+- [12:17.200] Let's not tell them. Under the Trump
+- [12:18.720] administration, we're ending the Marxist
+- [12:21.440] war on women. And you had a war on
+- [12:23.440] women. And we're protecting women's
+- [12:25.600] rights, defending women's dignity and
+- [12:27.680] standing up for the American moms and
+- [12:30.320] daughters. So many are represented here.
+- [12:32.720] Great people in this room. American
+- [12:35.200] women have never had bigger champions
+- [12:37.839] than all of us in the White House. I
+- [12:39.680] mean, it's me, but it's the group of men
+- [12:42.320] and women. We have a lot of men that are
+- [12:44.480] like Howard, our head of commerce, I
+- [12:46.720] see, is here. What are you doing here,
+- [12:49.240] Howard? Oh, that's a good He's got his
+- [12:51.920] beautiful wife here. I was saying,
+- [12:54.079] what's Howard doing? Like, not there
+- [12:56.079] aren't too many men in this audience,
+- [12:57.880] actually. But he's a big advocate. And
+- [13:00.399] we're going to be making a right after
+- [13:01.920] this, we're going to be making a big
+- [13:03.600] special announcement, Howard and I and
+- [13:06.079] Scott and a few other people on cars. We
+- [13:09.120] have uh liberation day in America.
+- [13:12.000] That's where we take back all of this
+- [13:13.760] money that's been ripped off from us for
+- [13:16.399] so many decades. And we start a process.
+- [13:19.120] We're going to go with the tariffs and
+- [13:20.720] cars. And as you've probably been
+- [13:22.720] reading, uh it's all over the place.
+- [13:24.320] You've been reading and seeing and
+- [13:25.600] watching, uh car companies and every
+- [13:28.240] other form of company. They're pouring
+- [13:30.079] back into our country at levels never
+- [13:32.160] seen before. We're up to, I guess,
+- [13:34.079] close, Howard, to $5 trillion of
+- [13:36.240] investments already. And there's never
+- [13:38.480] been that much for a year. We did that
+- [13:41.680] in a period of six weeks. There's never
+- [13:43.920] been any numbers like that. We've never
+- [13:45.680] seen. They're all coming. They're all
+- [13:47.440] coming in so they don't have to pay
+- [13:48.800] tariffs. It's very simple because if you
+- [13:50.639] build your product in the USA, there is
+- [13:52.399] no tariff. On day one, I made the
+- [13:55.040] official policy of the United States
+- [13:57.040] government that there are only two
+- [13:58.760] genders, male and female.
+- [14:06.360] So, is there anybody seriously is there
+- [14:09.519] anybody that disagrees with that in this
+- [14:11.360] room?
+- [14:12.880] I was thinking maybe somebody from the
+- [14:14.480] press might raise their hand. I don't
+- [14:16.959] think so. There aren't too many people.
+- [14:20.000] You know, it's amazing. It's got to be
+- [14:21.519] like a 98%
+- [14:23.440] issue, right? So, what are they doing,
+- [14:25.760] Marjorie? What are they doing? They're
+- [14:28.560] fighting for a 2% issue. That's good.
+- [14:30.639] Let them keep doing it. No matter how
+- [14:32.880] many surgeries you have or chemicals you
+- [14:35.600] inject, if you're born with male DNA in
+- [14:38.480] every cell of your body, you can never
+- [14:40.959] become a woman. You're not going to be a
+- [14:42.720] woman.
+- [14:46.240] And that's why last month I proudly
+- [14:48.399] signed a historic executive order to ban
+- [14:51.279] men from competing in women's sports.
+- [14:53.680] And it was very popular and
+- [14:55.910] [Applause]
+- [14:57.800] very very popular. We had a track meet
+- [15:01.519] and I it was so disparaging to great
+- [15:03.920] women athletes. I've known so many great
+- [15:05.839] women athletes. I gave Anukica Saen Stam
+- [15:08.480] the Medal of Freedom here not so long
+- [15:11.199] ago and these are unbelievable athletes.
+- [15:13.519] But it's so ridiculous. They had a track
+- [15:15.279] meet uh and you heard me talking about a
+- [15:18.000] long a long distance track meet. The man
+- [15:20.000] won by 5 hours and 14 minutes and 12
+- [15:23.120] seconds. And I said, "This is not good."
+- [15:26.240] And you want to see worse, take a look
+- [15:27.760] at the weightlifting records. Take a
+- [15:29.440] look at the boxing. Take a look at this.
+- [15:31.199] The whole thing is ridiculous. And
+- [15:33.360] frankly, it's demeaning to women. And
+- [15:35.600] you are superior to men in my opinion.
+- [15:37.839] What do I know? You are. Huh? Nice
+- [15:40.959] seeing you.
+- [15:43.360] No, they are superior. I've known it all
+- [15:45.360] my life and I'm not happy about it. I'm
+- [15:48.160] not happy. I also banned puberty
+- [15:51.279] blockers. Can you believe I'm even
+- [15:52.880] saying
+- [15:56.120] this? And the sexual mutilation of minor
+- [16:00.160] youth. Now, who would who would think,
+- [16:02.240] you know, let's go back 10 or 15 years.
+- [16:04.720] If you ever heard a statement like that,
+- [16:06.160] you'd say, "What the hell is he even
+- [16:08.000] talking about?" Right, Brooke? What is
+- [16:09.759] he talking about? puberty blockers. But
+- [16:12.560] that's where we are. That's where we've
+- [16:14.240] come and we're ending it. We're sending
+- [16:15.920] it back to where it came from, oblivion.
+- [16:18.930] [Applause]
+- [16:21.639] Right. So, in the recent election, we
+- [16:24.639] did fantastically well with women. I
+- [16:26.720] kept hearing women don't like them. I
+- [16:28.880] said, I think they
+- [16:30.600] do. You know, don't like fake polls
+- [16:33.279] don't like me. They don't like me. But
+- [16:35.759] we uh were setting records in so many of
+- [16:37.920] these cases. And uh I was for women. I
+- [16:41.040] was for the women, the suburban
+- [16:42.639] housewife where I stopped low-income
+- [16:45.199] housing projects from being built at a
+- [16:47.680] house next to you where people were
+- [16:49.440] being decimated. The houses were being
+- [16:51.519] literally ripped up and destroyed. And I
+- [16:54.240] stopped it. And we've stopped it again.
+- [16:55.920] We had to stop it again. I stopped at
+- [16:57.440] first term. We had a great first term, a
+- [16:59.279] really successful first term. We had the
+- [17:01.839] largest increase in stock market value,
+- [17:04.720] 88% increase in the history of our
+- [17:06.799] country. We gave you the biggest tax
+- [17:09.120] cuts. We gave you the biggest regulation
+- [17:10.959] cuts. We rebuilt our military. We gave
+- [17:13.839] too much of it away to Afghanistan. This
+- [17:15.760] character, what I mean, he gave billions
+- [17:17.839] and billions of dollars of it away to
+- [17:20.679] Afghanistan. And maybe we'll have to ask
+- [17:23.039] for that back. Although it's getting a
+- [17:24.720] little old now. Get a little old. We're
+- [17:26.799] building new stuff. But I will say that
+- [17:29.120] uh it was such an honor working with so
+- [17:31.120] many great women. I've worked with women
+- [17:32.799] all my life. I've always been ahead on
+- [17:34.480] that subject. I had women in my
+- [17:37.120] construction business putting up
+- [17:38.799] skyscrapers in New York 30 years ago, 35
+- [17:41.840] years ago, long before it was uh
+- [17:44.520] invogue. And they were phenomenal. Every
+- [17:47.520] one of them was phenomenal. My
+- [17:48.960] administration listens to America's
+- [17:50.960] moms. And that's why I recently created
+- [17:53.280] the presidential commission to make
+- [17:55.360] America healthy again. And that's really
+- [17:57.360] caught
+- [18:00.039] on. That's really caught on. And Bobby
+- [18:03.760] Kennedy, by the way, is doing a great
+- [18:05.360] job. He's uh he was I think it's going
+- [18:08.480] to be I think it's going to go down as
+- [18:10.400] another great choice. And we just don't
+- [18:12.720] want to treat the chronic disease
+- [18:14.640] crisis. We want to prevent our children
+- [18:16.960] from getting sick in the first place.
+- [18:18.720] And there are so many things that we uh
+- [18:22.080] are doing wrong. Something happened. If
+- [18:24.000] you go back 20 years, autism, think of
+- [18:26.480] it, one in 20,000 children. Think of
+- [18:30.480] that. One autism. You see it all over.
+- [18:34.080] One in 20,000 children. Now it's one in
+- [18:39.120] 36 children. Now, what the hell is that
+- [18:42.880] all about? There's something out there
+- [18:45.200] and we got to find it. But can you
+- [18:47.760] imagine one in 20,000 and now it's one
+- [18:50.960] in 36, not 36,000, one in 36 children.
+- [18:55.600] And I see it. I see it all the time. And
+- [18:58.559] uh so there's something uh there's
+- [19:01.120] something out there and we're gonna find
+- [19:02.720] it. We're doing something really wrong
+- [19:05.600] and it might be very simple to even
+- [19:07.520] correct, but we're looking very hard and
+- [19:09.600] Bobb's looking very hard and we're going
+- [19:11.280] to figure it
+- [19:12.920] [Applause]
+- [19:15.160] out. And to further support our nation's
+- [19:18.080] mothers, I've signed an executive order
+- [19:20.080] to expand access to fertility treatments
+- [19:22.640] like IVF. That's Katie.
+- [19:25.400] Katie, where's Katie?
+- [19:28.799] Katie called your great your great
+- [19:30.880] senator from Alabama. She called and she
+- [19:33.200] was like in a little bit of angst,
+- [19:35.840] right? She said, "Sir, we just had a
+- [19:38.320] ruling from an Alabama judge who said
+- [19:40.160] you didn't couldn't have the clinics IVF
+- [19:42.720] and I was in my plane and she said,
+- [19:44.559] "It's terrible. It's terrible. Friends
+- [19:46.240] of mine are virtually attacking me and
+- [19:48.240] said because they don't they're not
+- [19:49.919] really uh people don't talk about it
+- [19:52.640] necessarily and why should they?" But
+- [19:54.559] Katie called me up. She did such a great
+- [19:56.400] job. And she said, "Sir, you have to get
+- [19:58.400] on this right away. It's terrible.
+- [19:59.679] They're going to close up all the
+- [20:00.799] clinics. They ordered all the clinics
+- [20:02.240] closed." And I said, "So Katie, give me
+- [20:04.559] a quick definition. Please educate me in
+- [20:07.520] a minute or less." And she did. And I
+- [20:10.240] came out totally in favor of what all of
+- [20:13.440] these women wanted. And it I mean, it
+- [20:15.760] became our issue. We actually took it
+- [20:17.600] away, Mike, from the Democrats. They
+- [20:19.919] were late to the party. And it was
+- [20:21.840] really I give you a lot of credit. So,
+- [20:23.440] thank you very much. Thank you, Katie.
+- [20:25.280] Great
+- [20:28.440] job. And I also signed an executive
+- [20:31.280] order to begin abolishing the Department
+- [20:33.840] of Education, as we said, but also to go
+- [20:36.440] back to go back and do things with our
+- [20:39.360] school children uh that are that just
+- [20:41.840] hasn't been done in many, many years.
+- [20:43.600] But the basic is reading, writing, and
+- [20:45.679] arithmetic. And we want to make sure
+- [20:47.840] that they teach English. Okay. But I
+- [20:50.080] think we're not going to have a problem.
+- [20:51.280] And you're going to see things happen, I
+- [20:52.799] think, on the education front like
+- [20:54.960] nobody like nobody can believe. It's
+- [20:56.960] very
+- [20:59.080] exciting. Very exciting. And so many of
+- [21:01.760] the states like Iowa and Idaho and
+- [21:04.080] Indiana, by the way, uh unrelated, but
+- [21:07.280] Indiana, they just signed Honda, one of
+- [21:10.080] the biggest auto plants in the world, is
+- [21:12.720] going Honda, big, big company. Would
+- [21:14.799] have never come here except for let's
+- [21:16.480] say the election. I like to say the
+- [21:18.000] election result, but let's give tariffs
+- [21:20.159] a little a little uh well, without the
+- [21:22.559] election result, you wouldn't have the
+- [21:23.919] tariffs, right? So, I guess so I guess
+- [21:26.159] it's all about the election, Marjorie.
+- [21:28.880] But, uh, one of the biggest anywhere in
+- [21:31.200] the world they're building in Indiana,
+- [21:32.880] big big plant and uh, we get we have
+- [21:34.960] many of them going up. Many plants in
+- [21:37.200] other countries have stopped they've
+- [21:39.120] stopped construction. One of them right
+- [21:40.640] in the middle of construction. They're
+- [21:42.000] coming they just signed a contract.
+- [21:43.760] They're going to build it here instead.
+- [21:44.960] So you're going to see that at record.
+- [21:46.640] Just remember I told you so in 12 months
+- [21:48.720] from
+- [21:49.559] now. But on day one, we're ending the
+- [21:52.960] inflation nightmare that Joe Biden
+- [21:55.039] created and caused. But just by his
+- [21:57.840] spending, two things, his spending, but
+- [21:59.520] I think more importantly, he destroyed
+- [22:01.120] our energy policy. And uh energy started
+- [22:04.480] going up, gasoline, all of any form of
+- [22:06.720] energy went through the roof. And then
+- [22:09.200] what he did to get it down a little bit,
+- [22:11.039] he went back to the Trump policy.
+- [22:12.799] everything. Let him drill. Let him They
+- [22:14.960] were very, very concerned and uh it was
+- [22:17.919] too late because that jack rabbit had
+- [22:20.480] gotten out of the nest and it was too
+- [22:23.039] late. They really screwed us up in so
+- [22:25.120] many ways. How about allowing millions
+- [22:27.600] and millions of people to come into our
+- [22:29.760] country? Open borders. People from all
+- [22:32.559] over the world, not South America, South
+- [22:34.400] America, but all over the world. They
+- [22:36.240] came in from Africa, from Asia, from all
+- [22:39.840] over the world, from prisons. The
+- [22:41.679] prisons were emptied into our country. I
+- [22:43.760] call them prisons and jails. Prison
+- [22:45.520] being a slightly tougher term, but the
+- [22:47.280] prisons and jails were emptied into our
+- [22:49.080] country. The mental institutions and
+- [22:51.760] insane asylum, same thing. Insane asylum
+- [22:54.240] is mental institution on steroids,
+- [22:56.799] right? Ins I say I used to say Dr.
+- [22:59.840] Hannibal Lectar, the great Dr. Hannibal
+- [23:02.000] Lecter is is in a hotel room near
+- [23:05.400] you and the fake news back there. A lot
+- [23:08.480] of fake news here by the way. fake news
+- [23:10.559] would say, "Why does he keep mentioning
+- [23:12.240] Hannibal Lecter?" I said, 'You know why?
+- [23:15.039] Because I just we just won an election.
+- [23:16.960] We got a lot of votes because of
+- [23:18.320] Hannibal Lecter. We don't want to have
+- [23:20.240] Hannibal Lectar in our country. So, uh
+- [23:23.760] we uh we watched the what was happening
+- [23:26.400] to destroy our country. And uh a woman,
+- [23:29.840] by the way, the head of Homeland is
+- [23:32.000] doing Christy is doing a great job.
+- [23:34.080] Christine Gnome, she's doing a great
+- [23:36.960] job. She's getting them out. and Tom
+- [23:38.919] Hman. But Tom Hman and Christy Nome,
+- [23:42.240] they're doing an unbelievable job. She's
+- [23:44.480] tough. She's She might be tougher than
+- [23:47.039] Tom. Is that pretty tough, right? I'd
+- [23:49.200] say Tom is central casting, but he says,
+- [23:51.600] "I think she might be tougher than me."
+- [23:53.200] So that's We needed that because she's
+- [23:55.360] dealing with a rough group of people.
+- [23:56.799] Millions and millions of people. 21
+- [23:58.640] million people came in, but of that at
+- [24:01.200] least three million are serious serious
+- [24:03.400] criminals. Many of them are murderers.
+- [24:06.760] 11,088 and of that number about half
+- [24:09.440] have murdered more than one person. This
+- [24:11.520] is not going to end well. So we're
+- [24:13.520] getting them out in record numbers and
+- [24:15.520] we're having a lot of problems with the
+- [24:16.960] courts because the courts want to
+- [24:18.320] pretend they're president and they're
+- [24:20.640] not president. They didn't get 80
+- [24:22.559] million votes and they didn't they're
+- [24:24.080] not they they can't do that to this
+- [24:25.880] country. That's not their job. But we're
+- [24:28.559] getting them out in record numbers and
+- [24:30.640] it's going to save a lot of lives. It's
+- [24:32.799] we got some really bad people in this
+- [24:34.880] country, but we you see the ones we're
+- [24:36.480] taking out. Trendy Aragua, the toughest
+- [24:39.039] of all gangs.
+- [24:41.320] MS-13 and we're getting them out. So, in
+- [24:43.840] just two months, core inflation has
+- [24:46.080] dropped to its lowest pace in four
+- [24:48.080] years. We've got it going down. The
+- [24:50.240] groceries I told you about and energy of
+- [24:52.720] all kinds, gasoline, that's fallen below
+- [24:55.520] now $3. For $3, for the first time in
+- [24:58.960] years since I was there, it's fallen
+- [25:00.960] below $3. We're going to get it down
+- [25:02.559] quite a bit lower. That's going to bring
+- [25:04.240] prices still further down and people are
+- [25:06.000] going to be able to buy their groceries
+- [25:07.440] again. And so important. And again, I
+- [25:10.240] want to just congratulate you, Brooke.
+- [25:11.840] What a job you've done over there with
+- [25:13.279] the
+- [25:16.760] eggs. I was in office. I was in office
+- [25:20.840] for one week and I I got this one
+- [25:25.120] article was so bad that Donald Trump has
+- [25:28.480] caused a massive egg problem.
+- [25:31.679] And I said, "This is ter." And they
+- [25:33.279] showed it. It's like, you know,
+- [25:34.559] terrible. But it was during his term
+- [25:36.640] that it went up, right? And uh but they
+- [25:39.360] were hammering me. They thought they had
+- [25:41.279] us until I put you in that position. And
+- [25:44.080] I don't know what the hell magic wand
+- [25:46.000] you use. And now they don't talk about
+- [25:48.240] it anymore. It's terrible. Well, we'll
+- [25:50.159] talk. We have to talk about it. You
+- [25:51.760] know, if they don't talk about it, we
+- [25:53.840] talk about it, right, Brooke? But what a
+- [25:55.279] job you've done. Now we need Congress to
+- [25:57.679] pass the largest tax cuts in American
+- [26:00.000] history. And Mike is going to get
+- [26:04.120] that. And I think now I think we can
+- [26:06.640] finally say one big beautiful bill cuz
+- [26:09.039] everybody's there. I I spoke with John
+- [26:11.440] Thun is doing a terrific job also and
+- [26:13.600] the senators and we want one big
+- [26:16.159] beautiful bill. Just put it all in that
+- [26:18.080] bill and we'll figure a way to have it
+- [26:20.559] passed. Right. We'll figure away. But we
+- [26:22.799] have it's the largest it'll be the
+- [26:24.640] largest tax cuts in American history.
+- [26:26.559] When you add that onto the fact that if
+- [26:28.799] they don't pass this, you will have the
+- [26:30.559] largest tax increase by far, because the
+- [26:33.840] tax increase that I passed five years
+- [26:36.400] ago, the biggest in history, bigger than
+- [26:38.240] the Reagan tax cuts, what happens is
+- [26:40.559] that jumps back to where they used to
+- [26:42.159] be. So if you add that onto the other
+- [26:45.600] normal tax increases that the Democrats
+- [26:49.120] want to give, this would be the largest
+- [26:50.960] tax increase in history by 58% or more,
+- [26:54.799] I guess, but
+- [26:56.279] 58%. And I don't know how anybody can
+- [26:58.640] vote for a Democrat, but I know one
+- [27:00.640] thing that I believe the Democrats are
+- [27:02.880] going to be forced to help vote for this
+- [27:04.400] bill. And then we have the uh very
+- [27:07.039] important uh continuation of debt. Uh, I
+- [27:10.559] don't call it a debt increase because
+- [27:12.000] we're not looking to increase. We want
+- [27:13.520] to just continue that line and we we
+- [27:15.760] should call it, I think, from now on,
+- [27:17.840] Mike. We're going to call it the
+- [27:18.960] continuation because that's what it is.
+- [27:21.120] That was thrown into our lap
+- [27:22.600] unnecessarily. But we have it and it's
+- [27:25.039] it's fine that we have it. But I think
+- [27:27.120] we're going to get tremendous support
+- [27:28.480] even from Democrats because uh otherwise
+- [27:31.600] they're voting for the biggest tax
+- [27:33.120] increase in history by far by I think 38
+- [27:35.840] points and I don't think they're going
+- [27:37.679] to want to do that. So, Mike, I hear
+- [27:39.120] you're doing great on it. And we're
+- [27:40.720] going to have tremendous uh tremendous
+- [27:43.520] goodies in the bag for women, too. The
+- [27:45.679] women between the fertilization and all
+- [27:48.000] of the other things that we're talking
+- [27:49.360] about, it's going to be it's going to be
+- [27:51.120] great. We're uh joined
+- [27:54.039] today.
+- [27:57.330] [Applause]
+- [27:58.840] Fertilization. I'm I'm still very proud
+- [28:01.840] of it. I don't
+- [28:03.159] care. I'll be known as the fertilization
+- [28:05.919] president that that's okay. That's not
+- [28:09.159] bad. That's not bad. I've I've been
+- [28:12.880] called I've been called much
+- [28:16.600] worse. Actually, I like it. Right. I
+- [28:20.159] like it. Thank you. We're joined today
+- [28:23.200] by many of the women members of the
+- [28:25.039] House and Senate who make up uh so much
+- [28:28.000] and make this all happen. And I
+- [28:29.679] especially want to recognize the leaders
+- [28:31.600] of the brand new Republican Women's
+- [28:33.279] Caucus, Senator Katie Britt. again.
+- [28:35.919] Katie, thank
+- [28:39.000] you. Thank you, Katie. Great job you do.
+- [28:41.840] And Representative Cat Kamock, who just
+- [28:45.600] announced a new baby girl. That's
+- [28:49.799] great. I also uh want to say driving
+- [28:52.960] force behind the effort to create a
+- [28:54.960] woman's history museum with working very
+- [28:57.600] much with some of the women in this
+- [28:59.440] room. I'm not sure if it's been
+- [29:00.720] discussed specifically, but to create a
+- [29:02.640] women's museum on the National Mall. And
+- [29:05.919] we have a great site. I'm very good at
+- [29:07.679] real estate. You know, we have a great
+- [29:10.080] site. And Nicole Malotakus is here
+- [29:12.559] someplace. Where's Nicole? And she is
+- [29:15.520] really working hard on this one. This is
+- [29:18.559] this is a passion for you. And uh you're
+- [29:21.120] working beautiful museum. It's a big
+- [29:23.200] beautiful She said it's going to be a
+- [29:24.559] big beautiful museum. Well, it has to
+- [29:26.240] be. If it's for women, it better be big
+- [29:27.919] and beautiful or we're in trouble,
+- [29:30.080] right? But we're working on that. Also,
+- [29:32.320] here I just just have this list and
+- [29:34.799] they're incredible people. So, I have to
+- [29:36.559] do it otherwise I'll be run out of town.
+- [29:38.799] I don't have the courage not to do it.
+- [29:40.559] Senator Marsha Blackburn. Marcia, thank
+- [29:42.960] you very much. So incredible.
+- [29:45.360] Unbelievable talent. Senator Joanie
+- [29:49.559] Ernst. Joanie Ernst. Where's Joanie? Hi,
+- [29:52.480] Joanie. I owe you a call. I'll call you.
+- [29:55.799] Okay. Deb Fiser just won a great race.
+- [29:59.200] Nebraska. Thank you, Deb. Great race,
+- [30:02.919] Deb. Senator Cindy Hyde Smith. Oh, we
+- [30:06.000] love Cindy Hyde. Thank you, Cindy Hyde.
+- [30:09.200] She said, "Sir, could you do a rally for
+- [30:10.960] me?" I said, "Yeah, I'll do a rally for
+- [30:12.640] you." I get there. Sir, could you do two
+- [30:14.559] more for me? I did. We did three and we
+- [30:17.039] blew him out. Right. It was a an Obama
+- [30:20.760] sink. We blew him out of the water.
+- [30:23.200] Right, Cindy Hyde? So, thank you. And uh
+- [30:26.480] Senator Ashley Moody, congratulations.
+- [30:29.279] Where is
+- [30:31.559] Ashley? Congratulations, Ashley. Also,
+- [30:35.760] Representative, and this one is tough.
+- [30:38.080] She's tough. Lisa Mlan, she's tough and
+- [30:41.559] good. She's a good one. She's a real
+- [30:45.039] leader. Thank you. Great job, Lisa.
+- [30:47.960] Representative Stephanie Bice. Thank you
+- [30:50.960] very much. Thank you. Where's Stephanie?
+- [30:54.880] Thank you very
+- [30:56.039] much. Sherry
+- [31:01.080] Biggs. Hi. Hi, Sherry.
+- [31:03.640] Good. Lauren
+- [31:08.440] Boowbert. Great people. Monica Da
+- [31:12.679] Cruz. Monica Da Cruz. Hi, Monica. Good
+- [31:16.520] job. Julie
+- [31:19.240] Federichek. Federichek. Hi, Julie.
+- [31:22.399] Great. Nice to see
+- [31:23.960] you. A person that is more experienced
+- [31:26.880] than anybody and she's still a young
+- [31:28.559] woman. Very young. Virginia
+- [31:31.320] Fox.
+- [31:34.200] Virginia. What a good woman. Right,
+- [31:37.480] Mike? A quiet woman, but she underneath
+- [31:40.799] that quiet facade, she's a tiger.
+- [31:43.679] Marjorie Taylor
+- [31:45.720] Green. Highly respected woman, I tell
+- [31:48.760] you. Thanks, Marjorie. Great woman.
+- [31:52.399] Diana Harshburgger. Diana Harshburgger.
+- [31:55.919] Where are you, Diana? Thank you. Thank
+- [31:58.559] you. Good job with your son, too. Thank
+- [32:01.360] you, sir. Thank you, Ashley Hinton.
+- [32:05.640] Ashley, thank you. Thanks, Ashley. Good.
+- [32:08.559] Good
+- [32:09.960] job. Erin Hchin, thank you, Erin. Thank
+- [32:14.720] you very
+- [32:15.960] much. Laurel Lee, Laurel, thank you.
+- [32:19.360] Good. Good job.
+- [32:22.960] Julia
+- [32:25.080] Lelo, good. Nice seeing you, Julia.
+- [32:28.799] She's done a great job. Anna Paulina
+- [32:31.480] Luna. Anna, good. Nice to see
+- [32:36.039] you. Another quiet one. Nancy
+- [32:39.399] Mace. Hi,
+- [32:41.559] Nancy. Great. Great job. And Nicole, I
+- [32:45.519] said hello to you and your museum. and
+- [32:47.360] you get that going and we're going to
+- [32:48.720] back it 100%. Unless the women here
+- [32:50.720] would rather not have a Is anybody not
+- [32:53.440] in favor of a women's museum in this
+- [32:55.679] room, please? You It's okay. I could see
+- [32:57.440] some maybe they want to save a couple of
+- [32:58.960] bucks,
+- [32:59.880] right? No takers. Okay, you're all set.
+- [33:03.279] You have it that I guess. I guess I sort
+- [33:05.840] of thought that was going to happen.
+- [33:08.360] Celeste Malloy. Celeste, thank you.
+- [33:11.919] Great
+- [33:13.000] job. Great job. Carol Miller, great
+- [33:16.600] election. Thank you, Carol. Great job,
+- [33:20.600] Carol. A friend of mine, a beautiful
+- [33:23.360] person, a beautiful family. It's like uh
+- [33:26.000] she's got children. They're all
+- [33:27.360] supermodels, male and female, handsome
+- [33:31.559] husband.
+- [33:33.080] Carol. Mary. Carol. Mary Miller.
+- [33:39.000] Mary, how's it going? Okay, good.
+- [33:42.559] Mary Miller is a really spectacular
+- [33:44.640] person and a great congresswoman. Thank
+- [33:46.640] you very much.
+- [33:49.360] 22nd grandchild. Look at
+- [33:51.960] her. It's one of the most beautiful
+- [33:54.399] families. It really is. Starting with
+- [33:55.919] you. It's just a beautiful family. So,
+- [33:57.600] you have a long way to go. Cat. Come on.
+- [33:59.440] You have to get going.
+- [34:02.480] Marionette Miller Meeks. Great election.
+- [34:04.799] You had great
+- [34:06.200] election. Great. Great. Great job.
+- [34:11.280] Oh, Maria Salazar. Where is Maria? She
+- [34:13.919] is strong. She's a tough one, but they
+- [34:17.520] love her. We all love her. Thank you.
+- [34:20.079] Another one who's really good. I got her
+- [34:22.879] got to know her very well along with
+- [34:25.599] Mike. We were having some talks and she
+- [34:28.079] really knows what she's talking about.
+- [34:29.440] She was right. 100%. Victoria Sparts.
+- [34:32.320] Thank you,
+- [34:34.200] Victoria. Thank you very much. and Beth
+- [34:38.879] Van Dyene, who's fabulous. Hi, Beth.
+- [34:42.000] Thank you. Thank you very much. It's
+- [34:44.399] such a great group of people. And
+- [34:46.240] there's others in there. I'm going to be
+- [34:48.399] Oh, I'm going to get killed. I know they
+- [34:50.639] all You're for me and I'm for you.
+- [34:52.240] That's true. Can you imagine? There are
+- [34:54.079] others. I'm sitting looking at others.
+- [34:55.679] I'm going to be in trouble. That's the
+- [34:57.599] problem. When you do that, you leave a
+- [34:59.119] couple of them out. They never speak to
+- [35:00.560] you again. They never speak. Now, we
+- [35:03.280] need Congress to pass the largest tax
+- [35:05.359] cuts. And we are going to get that done.
+- [35:06.960] And we're joined today by so many people
+- [35:09.839] that are just uh so great. And we are
+- [35:13.440] going to have a little bit of a
+- [35:14.800] celebration after this is finished in
+- [35:16.720] one of the outer rooms. They have some
+- [35:18.160] stuff for the women. Uh much better. We
+- [35:20.800] did this for men. And you know, it's
+- [35:22.800] very unexciting having a day for men. I
+- [35:26.160] stood up here. It was like I just I
+- [35:27.920] reduced the speech from 10 pages to
+- [35:29.839] about two paragraphs. It was boring. It
+- [35:32.720] was boring as hell to tell you
+- [35:34.800] throughout our history. Strong, tough,
+- [35:36.480] visionary women have defended our flag,
+- [35:39.359] strengthened our communities, explored
+- [35:41.200] new frontiers, and expanded the American
+- [35:43.440] dream for all of our children, all of
+- [35:46.000] our children, and all of our people.
+- [35:48.240] Now, patriotic American women like those
+- [35:50.720] in this room are helping lead our nation
+- [35:52.720] into the golden age of America. That's
+- [35:54.800] what we're calling it. This is the
+- [35:56.720] golden age of America. We want to do
+- [35:59.839] things that nobody thought were
+- [36:01.599] possible. you know, had I done it the
+- [36:03.839] more traditional way, which I actually
+- [36:05.520] did, but we won't talk about that. Uh,
+- [36:08.560] but had it been the, you know, four plus
+- [36:10.880] four as opposed to floor four, let's see
+- [36:13.520] how bad they do, and then we get another
+- [36:15.599] four at at numbers too big to rig, we
+- [36:18.079] call it, we have to go out too big to
+- [36:19.760] rig. They tried, but it was too big to
+- [36:21.680] rig. Had we done it that way, it
+- [36:23.119] wouldn't have been nearly as important
+- [36:25.359] or nearly as historic. It's much more
+- [36:27.680] historic. It's a much more important
+- [36:29.440] presidency. And frankly, because of how
+- [36:32.160] bad they were, we're able to do things
+- [36:34.079] that we could have never done if it were
+- [36:36.480] traditional. I don't think, Marjgerie,
+- [36:38.079] we would have ever been able to have
+- [36:39.680] done the things we uh we are doing now.
+- [36:42.400] You see what we're doing with the
+- [36:43.640] colleges and they're all bending and
+- [36:46.079] saying, "Sir, thank you very much. We
+- [36:48.480] appreciate it." And uh they are nobody
+- [36:51.119] can believe it. Including law firms that
+- [36:53.359] have been so horrible. Law firms that
+- [36:55.599] nobody would believe and they're just
+- [36:57.200] saying, "Where do I sign? Where do I
+- [36:58.960] sign?" Nobody can believe it. And
+- [37:00.400] there's more coming. But we really are
+- [37:02.880] in the golden age of America. And I
+- [37:04.640] think you're going to see it more and
+- [37:05.680] more as we go along. Together, we're
+- [37:07.280] beginning our country's greatest era,
+- [37:09.680] and we're building a future that will be
+- [37:11.760] stronger, safer, healthier, and happier
+- [37:13.920] than ever before. And uh you're really
+- [37:16.960] going to be the leaders. I think really
+- [37:18.400] I think you're going to be the dominant
+- [37:19.680] leaders and you have a lot of them in
+- [37:21.280] this room politically, but just the fact
+- [37:23.359] that you're here and the fact that
+- [37:24.640] you're with us is so important. There is
+- [37:26.880] nothing like strong, beautiful,
+- [37:29.520] wonderful women. You have the heart. You
+- [37:31.839] have the whole spirit. You're amazing
+- [37:34.000] people. And it's an honor to be with
+- [37:35.599] you. And we're going to work together.
+- [37:37.119] And we're going to make this the
+- [37:38.720] greatest age in the history of our
+- [37:41.280] country. Thank you. Thank you, Mary.
+- [37:43.359] Thank
+- [37:45.720] you. Thank you very much, everybody.
+- [37:50.830] [Music]
+- [37:53.330] [Applause]
+- [37:55.600] [Music]
+- [38:06.280] Heat. Heat.
+- [38:11.150] [Music]

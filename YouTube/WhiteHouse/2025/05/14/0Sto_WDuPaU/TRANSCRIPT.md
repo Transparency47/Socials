@@ -1,0 +1,170 @@
+<!-- source: https://www.youtube.com/watch?v=0Sto-WDuPaU -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0Sto-WDuPaU -->
+<!-- date_published: 2025-05-14T10:25:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:15.937531+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, May 14, 2025
+
+- [00:00.730] The Press: Did the PGA tour or LIV Golf come up at
+- [00:03.130] all in your conversations with the Crown Prince?
+- [00:06.090] The President: No.
+- [00:07.291] Do you mean the LIV?
+- [00:08.970] No.
+- [00:09.270] No it didn't. Didn't discuss that.
+- [00:11.090] The Press: Mr. President, regarding
+- [00:12.530] the Saudi intelligence agent.
+- [00:14.950] The 9/11 families want the Saudi
+- [00:17.155] intelligence agent to be extradited to the
+- [00:20.051] United States to face charges for 9/11.
+- [00:22.330] Did that come up in conversation?
+- [00:23.970] The President: No.
+- [00:24.130] I know all about it.
+- [00:25.990] But it didn't come up.
+- [00:26.990] The Press: On Israel,
+- [00:28.190] You're not going to Israel.
+- [00:29.530] Does this this trip sideline
+- [00:30.711] Israel at all?
+- [00:33.390] The President: No, not at all. This is good for Israel.
+- [00:35.730] Having a relationship like I have with these countries.
+- [00:41.010] I think it's very good for Israel.
+- [00:44.371] The Press: Again, on Israel on the hostage deal,
+- [00:49.930] did any of your people speak with Israel
+- [00:52.057] about the release of the American hostage?
+- [00:54.930] I'm sorry.
+- [00:55.330] I'm the sanctions lifting of Syria.
+- [01:00.030] What credit does Israel deserve, if any,
+- [01:02.952] for that release of the hostage?
+- [01:06.510] The President: Well, they've been fighting a long time.
+- [01:09.250] They're warring.
+- [01:11.270] And I think they deserve a lot of credit.
+- [01:13.370] I think my people deserve a lot of credit, maybe.
+- [01:17.190] The most credit.
+- [01:18.690] He wouldn't be there if it weren't for us.
+- [01:21.250] He wouldn't be living right now.
+- [01:22.810] Probably none of the hostages
+- [01:24.086] would be living right now.
+- [01:26.290] We probably have 20 that are living
+- [01:29.118] that we'll be getting out step by step.
+- [01:33.390] A lot of progress.
+- [01:34.110] You know, we've gotten a lot of them out.
+- [01:37.010] And last time, a couple of weeks
+- [01:39.768] ago, 10 people walked into my office,
+- [01:42.871] the Oval Office, and they said --
+- [01:46.934] that a 59 on their shirt on the front.
+- [01:50.910] And I said, what does that represent?
+- [01:52.430] The number of hostages.
+- [01:53.470] They said, wow, that's a lot.
+- [01:55.390] They said, well, 24 are living.
+- [01:59.330] And now it's 20.
+- [02:00.591] The number is 20 -- are living.
+- [02:02.990] Four have died.
+- [02:04.470] And their young people.
+- [02:05.730] Young people don't die.
+- [02:08.150] Young people are killed.
+- [02:09.290] They don't die.
+- [02:10.510] So the 24 living
+- [02:12.491] of the 59 and 24 living is now down to 20.
+- [02:16.750] And we got Edan out.
+- [02:19.330] His family was so thankful.
+- [02:21.990] We did a good job with that.
+- [02:23.410] We'll continue to do it.
+- [02:26.370] The Press: What happends on Thursday if President Putin
+- [02:28.010] doesn't show up in Turkey for
+- [02:28.932] the talks on Ukraine?
+- [02:30.110] What will you do?
+- [02:30.670] The President: Well, I don't know if he's showing up.
+- [02:32.090] I know he would like me to be there.
+- [02:35.790] And that's a possibility if we could end the war.
+- [02:39.390] I'd be thinking about that.
+- [02:41.010] Now tomorrow, we're all booked out.
+- [02:42.750] You understand that.
+- [02:43.690] We're all set.
+- [02:44.390] We're going to UAE tomorrow.
+- [02:48.330] And so we have a very full situation now.
+- [02:51.970] That doesn't mean I wouldn't do it
+- [02:53.330] to save a lot of lives and come back.
+- [02:55.950] But yeah, I think they're thinking about something.
+- [02:58.790] I don't know that he would be there if I'm not there.
+- [03:01.750] We're going to find out.
+- [03:02.430] Marco is going.
+- [03:04.310] And Marco has been very effective.
+- [03:25.990] What's their reaction?
+- [03:28.270] The President: Well, we told him we're doing it.
+- [03:30.870] The reason I did it, and I think it's been
+- [03:32.778] very popular actually, certainly in the
+- [03:34.551] Middle East it's been very popular with virtually everybody.
+- [03:38.870] But the reason I did it is because
+- [03:40.697] I spoke with President Erdogan,
+- [03:42.650] who I get along with very well.
+- [03:44.850] And I spoke to Mohammed, as you know,
+- [03:47.516] and they thought it was very important to do.
+- [03:50.651] It gives them a much better
+- [03:52.800] chance of survival as a country.
+- [03:56.670] Well, I think what's happened is Turkey
+- [03:59.626] feels we should do it, other countries --
+- [04:02.790] so if you looked at my speech last
+- [04:04.567] night, which I assume most of you were at,
+- [04:07.210] I think the biggest applause was when I
+- [04:09.608] said that we're lifting these sanctions on Syria.
+- [04:13.460] And that's because they want to give
+- [04:15.654] Syria a chance to live and to be great.
+- [04:19.810] The Press: Mr. President, In Emirati, government backed
+- [04:22.420] firm did a $2 billion deal.
+- [04:25.550] And Emirati government backed firm
+- [04:28.347] did a $2 billion deal using
+- [04:30.483] the Trump digital coins.
+- [04:33.350] How did that deal come about?
+- [04:34.951] The President: I don't know anything about it.
+- [04:36.510] I really don't know anything about
+- [04:38.485] it, but I'm a big crypto fan.
+- [04:40.350] I will tell you, I've been that from
+- [04:41.790] the beginning, right from the campaign.
+- [04:44.070] I'm a believer in crypto, and if we're not
+- [04:45.700] going to do it, China is going
+- [04:46.897] to do it to -- the way I look at.
+- [04:48.070] It's like AI.
+- [04:49.390] I'm a believer in AI because we have to have it.
+- [04:51.850] We're leading China by a lot.
+- [04:53.990] And in crypto, we're leading China by a lot.
+- [04:56.010] So I'm a big crypto fan.
+- [04:59.350] The Press: [inaudible] he wants to block your Justice Department
+- [05:01.988] political appointees until he
+- [05:03.889] gets answers about questions.
+- [05:06.610] The President: Schumer is, you know, he's become a Palestinian.
+- [05:10.450] Something wrong with him.
+- [05:11.610] I don't know.
+- [05:11.971] I've known him a long time.
+- [05:13.930] There's something wrong.
+- [05:14.950] He's lost his confidence totally.
+- [05:18.130] And it's just something wrong with him.
+- [05:19.830] I don't know what it is with Schumer.
+- [05:21.850] Yeah, did you have a question?
+- [05:24.190] The Press: I've got two questions on Iran and Russia.
+- [05:26.890] Are you still considering secondary
+- [05:29.544] sanctions on Iran's oil exports?
+- [05:33.650] The President: Let's see what happens over the next week.
+- [05:35.810] I don't really want to answer it because
+- [05:37.350] I want to see what happens over the next week.
+- [05:39.650] The Press: On Iran and Russia, are you considering
+- [05:42.870] sanctions on Russia for supporting Iran
+- [05:46.091] and for the continued war in Ukraine?
+- [05:48.091] The President: Well, again, I don't want to talk about
+- [05:49.832] it, but I'm always considering the secondary sanctions.
+- [05:52.050] I had the secondary sanctions on
+- [05:54.337] Iran and drove them into bankruptcy.
+- [05:57.210] And there would have been no October 7th.
+- [05:59.091] There would have been no money for
+- [06:00.933] Hamas or Hezbollah or anybody else.
+- [06:03.430] So I'm always -- and as you know, I put
+- [06:05.765] secondary sanctions on Iran again.
+- [06:08.450] And hopefully they're going to make the
+- [06:10.306] right decision because something's going
+- [06:12.211] to happen one way or the other.
+- [06:14.870] It's going to happen one way or the other.
+- [06:17.030] They can't have a nuclear weapon.
+- [06:18.530] So we'll either do it friendly,
+- [06:20.370] or we'll do it very unfriendly.
+- [06:22.290] And that won't be pleasant.
+- [06:23.610] Thank you very much, everybody.

@@ -1740,7 +1740,12 @@ def fetch_youtube_channel_entries(account: str, args: argparse.Namespace) -> tup
     raise ScrapeError("Could not fetch YouTube channel videos. " + "; ".join(errors))
 
 
-def scrape_youtube_backfill(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+def iter_youtube_backfill_records(
+    session: requests.Session,
+    account: str,
+    args: argparse.Namespace,
+    state: dict[str, Any] | None = None,
+) -> Iterable[ArchiveRecord]:
     try:
         import yt_dlp
     except ImportError as exc:
@@ -1754,11 +1759,14 @@ def scrape_youtube_backfill(session: requests.Session, account: str, args: argpa
         "no_warnings": True,
         "skip_download": True,
         "ignoreerrors": True,
+        "ignore_no_formats_error": True,
         "noplaylist": True,
     })
-    records: list[ArchiveRecord] = []
     since = getattr(args, "since_dt", None)
     stopped_sources: set[str] = set()
+    seen_posts = state.get("seen_posts", {}) if state else {}
+    skipped_seen = 0
+    yielded = 0
     with yt_dlp.YoutubeDL(detail_options) as ydl:
         for index, entry in enumerate(entries, 1):
             entry_source = str(entry.get("_youtube_source_url") or "")
@@ -1768,6 +1776,12 @@ def scrape_youtube_backfill(session: requests.Session, account: str, args: argpa
                 continue
             video_url = youtube_entry_url(entry)
             if not video_url:
+                continue
+            video_id = str(entry.get("id") or "").strip()
+            if video_id and not args.force and f"youtube:{account.lower()}:{video_id}" in seen_posts:
+                skipped_seen += 1
+                if skipped_seen == 1 or skipped_seen % 100 == 0:
+                    print(f"YouTube/{account}: skipped {skipped_seen} already-archived videos", flush=True)
                 continue
             video_label = entry.get("id") or video_url
             print(f"YouTube/{account}: checking {index}/{len(entries)} {video_label}", flush=True)
@@ -1787,12 +1801,24 @@ def scrape_youtube_backfill(session: requests.Session, account: str, args: argpa
                     stopped_sources.add(entry_source)
                 continue
             if in_date_window(record.published, args):
-                print(f"YouTube/{account}: queued {record.post_id} ({record.published.date() if record.published else 'unknown date'})", flush=True)
-                records.append(record)
-                if len(records) >= args.max_items:
+                if record.transcript_error or not record.transcript:
+                    reason = clean_text(record.transcript_error or "No transcript entries captured.")
+                    print(f"SKIP YouTube/{account}: no transcript for {record.url}: {reason}", file=sys.stderr, flush=True)
+                    continue
+                print(
+                    f"YouTube/{account}: transcript {len(record.transcript)} entries for {record.post_id} "
+                    f"({record.published.date() if record.published else 'unknown date'})",
+                    flush=True,
+                )
+                yielded += 1
+                yield record
+                if yielded >= args.max_items:
                     break
             time.sleep(REQUEST_DELAY_SECONDS)
-    return records
+
+
+def scrape_youtube_backfill(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+    return list(iter_youtube_backfill_records(session, account, args))
 
 
 def scrape_tiktok(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
@@ -2023,7 +2049,14 @@ def yt_dlp_transcript_for(video_id: str, languages: list[str]) -> tuple[list[dic
         return None, "yt-dlp is not installed"
 
     try:
-        options = add_youtube_cookies_option({"quiet": True, "no_warnings": True, "skip_download": True})
+        options = add_youtube_cookies_option(
+            {
+                "quiet": True,
+                "no_warnings": True,
+                "skip_download": True,
+                "ignore_no_formats_error": True,
+            }
+        )
         with yt_dlp.YoutubeDL(options) as ydl:
             info = ydl.extract_info(f"https://www.youtube.com/watch?v={video_id}", download=False)
     except Exception as exc:
@@ -2167,6 +2200,33 @@ def run(args: argparse.Namespace) -> int:
     seen = 0
     for platform, account in accounts:
         print(f"Scraping {canonical_platform_dir(platform)}/{account}", flush=True)
+        if platform == "youtube" and args.backfill and getattr(args, "since_dt", None):
+            try:
+                for record in iter_youtube_backfill_records(session, account, args, state):
+                    key = state_key(record)
+                    already_seen = key in state["seen_posts"]
+                    if already_seen and not args.force:
+                        seen += 1
+                        continue
+                    changed = archive_record(session, record, state, args)
+                    if changed:
+                        archived += 1
+                        print(f"Archived: {record.url}", flush=True)
+                        day_dir = output_dir_for(record).parent
+                        if write_if_changed(day_dir / "README.md", day_readme_markdown(day_dir)):
+                            print(f"Wrote {day_dir.relative_to(ROOT_DIR)}/README.md", flush=True)
+                    else:
+                        seen += 1
+                    save_state(state)
+                    refresh_listing()
+                    time.sleep(REQUEST_DELAY_SECONDS)
+            except Exception as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {type(exc).__name__}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
+            save_state(state)
+            continue
+
         try:
             records = scrape_account(session, platform, account, args)
         except RateLimitError as exc:

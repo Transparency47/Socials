@@ -1,0 +1,92 @@
+<!-- source: https://www.youtube.com/watch?v=C7eSJ011Muc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: C7eSJ011Muc -->
+<!-- date_published: 2025-06-22T02:08:17+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:14.560735+00:00 -->
+
+# Transcript: President Trump Delivers Address to the Nation, June 21, 2025
+
+- [00:18.240] Thank you very much.
+- [00:20.480] A short time ago, the US military
+- [00:22.640] carried out massive precision strikes on
+- [00:25.760] the three key nuclear facilities in the
+- [00:29.439] Iranian regime. Foraux, Natans, and
+- [00:34.239] Esfahan.
+- [00:36.160] Everybody heard those names for years as
+- [00:39.440] they built this horribly destructive
+- [00:42.399] enterprise. Our objective was the
+- [00:45.200] destruction of Iran's nuclear enrichment
+- [00:48.399] capacity and a stop to the nuclear
+- [00:51.200] threat posed by the world's number one
+- [00:53.840] state sponsor of terror. Tonight, I can
+- [00:56.559] report to the world that the strikes
+- [00:59.039] were a spectacular
+- [01:01.359] military success. Iran's key nuclear
+- [01:04.879] enrichment facilities have been
+- [01:06.560] completely and totally obliterated.
+- [01:09.600] Iran, the bully of the Middle East, must
+- [01:12.240] now make peace. If they do not, future
+- [01:15.040] attacks will be far greater and a lot
+- [01:17.280] easier. For 40 years, Iran has been
+- [01:20.240] saying death to America, death to
+- [01:22.720] Israel. They have been killing our
+- [01:25.119] people, blowing off their arms, blowing
+- [01:27.200] off their legs with roadside bombs. That
+- [01:30.479] was their specialty. We lost over a
+- [01:32.560] thousand people and hundreds of
+- [01:34.880] thousands throughout the Middle East and
+- [01:37.280] around the world have died as a direct
+- [01:39.439] result of their hate. In particular, so
+- [01:42.000] many were killed by their general, Casm
+- [01:45.759] Solommani.
+- [01:47.520] I decided a long time ago that I would
+- [01:50.159] not let this happen. It will not
+- [01:52.159] continue. I want to thank and
+- [01:54.560] congratulate Prime Minister BB
+- [01:56.799] Netanyahu.
+- [01:58.399] We worked as a team like perhaps no team
+- [02:00.880] has ever worked before and we've gone a
+- [02:03.920] long way to erasing this horrible threat
+- [02:06.079] to Israel. I want to thank the Israeli
+- [02:09.119] military for the wonderful job they've
+- [02:11.440] done. And most importantly, I want to
+- [02:13.760] congratulate the great American patriots
+- [02:15.840] who flew those magnificent machines
+- [02:18.080] tonight and all of the United States
+- [02:20.959] military on an operation the likes of
+- [02:23.120] which the world has not seen in many,
+- [02:25.040] many decades. Hopefully, we will no
+- [02:27.840] longer need their services in this
+- [02:30.000] capacity. I hope that's so. I also want
+- [02:33.280] to congratulate the chairman of the
+- [02:35.040] Joint Chiefs of Staff, General Dan
+- [02:37.519] Raisen Kaine, spectacular general, and
+- [02:40.640] all of the brilliant military minds
+- [02:42.560] involved in this attack. With all of
+- [02:45.200] that being said, this cannot continue.
+- [02:47.360] There will be either peace or there will
+- [02:50.080] be tragedy for Iran, far greater than we
+- [02:53.280] have witnessed over the last eight days.
+- [02:55.440] Remember, there are many targets left.
+- [02:59.760] Tonight's was the most difficult of them
+- [03:02.080] all by far and perhaps the most lethal.
+- [03:06.000] But if peace does not come quickly, we
+- [03:08.080] will go after those other targets with
+- [03:10.640] precision, speed, and skill.
+- [03:14.400] Most of them can be taken out in a
+- [03:16.879] matter of minutes. There's no military
+- [03:19.040] in the world that could have done what
+- [03:20.720] we did tonight. Not even close. There
+- [03:23.280] has never been a military that could do
+- [03:25.280] what took place just a little while ago.
+- [03:28.640] Tomorrow, General Kaine, Secretary of
+- [03:31.200] Defense Pete Hgsth will have a press
+- [03:34.239] conference at 8 a.m. at the Pentagon.
+- [03:36.959] And I want to just thank everybody. And
+- [03:39.760] in particular, God, I want to just say
+- [03:43.840] we love you, God. And we love our great
+- [03:45.760] military. Protect them. God bless the
+- [03:49.280] Middle East. God bless Israel. and God
+- [03:51.599] bless America. Thank you very much.
+- [03:54.560] Thank you.

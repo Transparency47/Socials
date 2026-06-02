@@ -1,0 +1,1351 @@
+<!-- source: https://www.youtube.com/watch?v=XkFKNkAEzQ8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XkFKNkAEzQ8 -->
+<!-- date_published: 2025-03-05T04:06:43+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:09.989874+00:00 -->
+
+# Transcript: President Trump Addresses Joint Session of Congress, March 4, 2025
+
+- [17:05.420] The President: Thank you.
+- [17:06.650] Thank you very much, thank you very much.
+- [17:07.880] It's great honor, thank you very much.
+- [18:27.960] Speaker Johnson, Vice President Vance,
+- [18:32.690] the First Lady of the United States,
+- [19:00.810] members of the United States Congress, thank you very much.
+- [19:06.900] And to my fellow citizens, America is Back.
+- [19:36.960] Six weeks ago, I stood beneath the dome of this Capitol
+- [19:42.120] and proclaimed the dawn of the golden age of America.
+- [19:48.080] From that moment on, it has been nothing
+- [19:50.120] but swift and unrelenting action to usher in the greatest
+- [19:54.910] and most successful era in the history of our country.
+- [20:00.230] We have accomplished more in 43 days
+- [20:02.910] than most administrations accomplished in four years
+- [20:06.830] or eight years, and we are just getting started.
+- [20:29.490] I return to this chamber tonight
+- [20:31.610] to report that America's momentum is back,
+- [20:35.950] our spirit is back, our pride is back,
+- [20:38.820] our confidence is back,
+- [20:40.810] and the American dream is surging bigger
+- [20:43.160] and better than ever before.
+- [20:52.000] The American dream is unstoppable and our country
+- [20:54.970] is on the verge of a comeback,
+- [20:57.370] the likes of which the world has never witnessed
+- [21:00.260] and perhaps will never witness again,
+- [21:04.390] there's never been anything like it.
+- [21:09.800] The presidential election of November 5th
+- [21:13.610] was a mandate like has not been seen in many decades.
+- [21:18.940] We won all seven swing states,
+- [21:21.170] giving us an electoral college victory of 312 votes.
+- [21:40.410] We won the popular vote by big numbers
+- [21:43.740] and won counties in our country --
+- [22:12.300] And won counties in our country, 2,700 to 525 on a map
+- [22:21.770] that reads almost completely red for Republican.
+- [22:31.160] Now for the first time in modern history,
+- [22:34.410] more Americans believe that our country
+- [22:36.500] is headed in the right direction than the wrong direction,
+- [22:39.860] in fact, it's an astonishing record,
+- [22:43.250] 27 point swing, the most ever.
+- [22:59.810] Likewise, small business optimism,
+- [23:03.970] so its single largest one-month gain ever recorded,
+- [23:08.200] a 41-point jump
+- [23:15.660] Speaker Johnson: Members are directed to uphold
+- [23:18.060] and maintain decorum in the House
+- [23:20.260] and to cease any further disruptions,
+- [23:23.170] that's your warning. Members are engaging in willful
+- [23:31.340] and continuing breach of the decorum
+- [23:33.110] and the chair is prepared to direct the Sergeant at Arms
+- [23:35.800] to restore order to the joint session.
+- [24:00.190] Mr. Green, take your seat, take your seat, sir.
+- [24:03.300] Representative Green: He has no mandate.
+- [24:04.840] Speaker Johnson: Take your seat.
+- [24:08.920] Finding that members continue to engage in willful
+- [24:11.700] and concerted disruption of proper decorum,
+- [24:13.870] the chair now directs the Sergeant at Arms
+- [24:15.720] to restore order.
+- [24:19.490] Remove this gentleman from the chamber.
+- [24:55.580] Members are directed to uphold
+- [24:58.440] and maintain the decorum in the house.
+- [25:01.230] Mr. President, you can continue.
+- [25:02.740] The President: Thank you. Over the past six weeks,
+- [25:06.790] I have signed nearly 100 executive orders
+- [25:10.010] and taken more than 400 executive actions,
+- [25:13.110] a record, to restore common sense, safety, optimism,
+- [25:17.390] and wealth all across our wonderful land.
+- [25:21.070] The people elected me to do the job, and I'm doing it.
+- [25:44.620] In fact, it has been stated by many
+- [25:47.810] that the first month of our presidency,
+- [25:50.890] it's our presidency, is the most successful
+- [25:55.910] in the history of our nation by many.
+- [26:09.440] And what makes it even more impressive
+- [26:12.170] is that do you know who number two is?
+- [26:15.580] George Washington. How about that, how about it?,
+- [26:19.120] I don't know about that list, but we'll take it.
+- [26:23.070] Within hours of taking the oath of office,
+- [26:25.790] I declared a national emergency on our southern border
+- [26:29.640] and I deployed the U.S. military and Border Patrol
+- [26:32.800] to repel the invasion of our country,
+- [26:37.300] and what a job they've done.
+- [26:39.340] As a result, illegal border crossings last month
+- [26:42.860] were by far the lowest ever recorded, ever.
+- [27:01.900] They heard my words and they chose not to come,
+- [27:05.630] much easier that way. In comparison, under Joe Biden,
+- [27:10.900] the worst president in American history,
+- [27:14.180] there were hundreds of thousands of illegal crossings a month,
+- [27:18.660] and virtually all of them, including murderers,
+- [27:21.500] drug dealers, gang members,
+- [27:23.290] and people from mental institutions
+- [27:25.500] and insane asylums were released into our country.
+- [27:30.750] Who would want to do that?
+- [27:32.900] This is my fifth such speech to Congress,
+- [27:36.280] and once again, I look at the Democrats in front of me
+- [27:39.790] and I realize there is absolutely nothing
+- [27:42.240] I can say to make them happy,
+- [27:44.990] or to make them stand, or smile, or applaud, nothing I can do.
+- [27:50.140] I could find a cure to the most devastating disease,
+- [27:54.270] a disease that would wipe out entire nations,
+- [27:58.480] or announce the answers to the greatest economy in history
+- [28:02.990] or the stoppage of crime to the lowest levels ever recorded
+- [28:07.290] and these people sitting right here will not clap,
+- [28:11.030] will not stand,
+- [28:12.310] and certainly will not cheer for these astronomical achievements,
+- [28:16.760] they won't do it no matter what.
+- [28:18.300] Five times I've been up here, it's very sad
+- [28:23.960] and it just shouldn't be this way.
+- [28:43.580] So Democrats sitting before me, for just this one night,
+- [28:48.540] why not join us in celebrating
+- [28:50.600] so many incredible wins for America?
+- [28:55.220] For the good of our nation, let's work together
+- [28:57.690] and let's truly make America great again.
+- [29:17.170] Every day, my administration is fighting
+- [29:19.620] to deliver the change America needs to bring a future
+- [29:25.460] that America deserves, and we're doing it.
+- [29:29.050] This is a time for big dreams and bold action.
+- [29:32.990] Upon taking office, I imposed an immediate freeze
+- [29:36.150] on all federal hiring,
+- [29:38.180] a freeze on all new federal regulations,
+- [29:41.010] and a freeze on all foreign aid.
+- [29:54.630] I terminated the ridiculous Green News Scam,
+- [29:58.260] I withdrew from the unfair Paris Climate Accord,
+- [30:01.930] which was costing us trillions of dollars
+- [30:06.150] that other countries were not paying,
+- [30:09.110] I withdrew from the corrupt World Health Organization,
+- [30:17.940] and I also withdrew from the anti-American
+- [30:21.000] UN Human Rights Council.
+- [30:29.180] We ended all of Biden's environmental restrictions
+- [30:32.500] that were making our country far less safe
+- [30:35.280] and totally unaffordable, and importantly,
+- [30:38.790] we ended the last administration's
+- [30:41.300] insane electric vehicle mandate,
+- [30:44.930] saving our auto workers and companies
+- [30:47.270] from economic destruction.
+- [31:00.530] To unshackle our economy,
+- [31:03.900] I have directed that for every one new regulation,
+- [31:08.030] 10 old regulations must be eliminated,
+- [31:11.580] just like I did in my very successful first day.
+- [31:23.640] And in that first term, we set records
+- [31:26.160] on ending unnecessary rules and regulations
+- [31:29.480] like no other president had done before.
+- [31:32.810] We ordered all federal workers to return to the office,
+- [31:36.650] they will either show up for work in person
+- [31:39.450] or be removed from their job.
+- [31:52.990] And we have ended weaponized government,
+- [31:55.150] where as an example, a sitting president
+- [31:57.920] is allowed to viciously prosecute
+- [32:01.090] his political opponent like me.
+- [32:05.230] How did that work out? Not too good, not too good.
+- [32:22.020] And I have stopped all government censorship
+- [32:24.940] and brought back free speech in America, it's back.
+- [32:38.860] And two days ago I signed an order
+- [32:41.240] making English the official language
+- [32:43.790] of the United States of America.
+- [32:54.850] I renamed the Gulf of Mexico, the Gulf of America,
+- [33:08.420] and likewise, I renamed for a great president
+- [33:13.230] William McKinley, Mount McKinley again.
+- [33:21.530] Beautiful Alaska, we love Alaska.
+- [33:26.420] We've ended the tyranny of so-called diversity,
+- [33:29.770] equity, and inclusion policies
+- [33:32.070] all across the entire federal government
+- [33:35.300] and indeed the private sector and our military,
+- [33:43.370] and our country will be woke no longer.
+- [33:55.090] We believe that whether you are a doctor,
+- [33:57.980] an accountant, a lawyer, or an air traffic controller,
+- [34:02.980] you should be hired and promoted based on skill and competence,
+- [34:07.050] not race or gender, very important.
+- [34:18.430] You should be hired based on merit,
+- [34:22.530] and the Supreme Court,
+- [34:23.990] in a brave and very powerful decision,
+- [34:26.810] has allowed us to do so.
+- [34:28.750] Thank you, thank you very much, thank you.
+- [34:33.880] We have removed the poison of critical race theory
+- [34:37.530] from our public schools, and I signed an order
+- [34:40.540] making it the official policy of the United States government
+- [34:44.790] that there are only two genders, male and female.
+- [35:03.380] I also signed an executive order
+- [35:06.460] to ban men from playing in women's sports.
+- [35:23.270] Three years ago, Payton McNabb
+- [35:25.840] was an all-star high school athlete,
+- [35:28.630] one of the best preparing for a future in college sports,
+- [35:32.540] but when her girl's volleyball match was invaded by a male,
+- [35:36.990] he smashed the ball so hard in Payton's face,
+- [35:41.140] causing traumatic brain injury,
+- [35:43.210] partially paralyzing her right side
+- [35:46.590] and ending her athletic career.
+- [35:48.910] It was a shot like she's never seen before,
+- [35:52.740] she's never seen anything like it.
+- [35:55.240] Payton is here tonight in the gallery,
+- [35:57.610] and Payton, from now on,
+- [35:58.980] schools will kick the men off the girls team
+- [36:01.830] or they will lose all federal funding.
+- [36:32.290] And if you really want to see numbers,
+- [36:35.180] just take a look at what happened in the woman's boxing,
+- [36:38.140] weightlifting, track and field, swimming or cycling,
+- [36:41.520] where a male recently finished a long-distance race,
+- [36:45.190] five hours and 14 minutes ahead of a woman
+- [36:49.850] for a new record by five hours, broke the record by five hours.
+- [36:55.310] It's demeaning for women
+- [36:57.090] and it's very bad for our country,
+- [36:58.900] we're not going to put up with it any longer.
+- [37:17.110] What I have just described is only a small fraction
+- [37:20.120] of the common sense revolution that is now,
+- [37:22.330] because of us, sweeping the entire world.
+- [37:25.640] Common sense has become a common theme
+- [37:28.670] and we will never go back,
+- [37:31.350] never, never going to let that happen.
+- [37:37.210] Among my very highest priorities is to rescue our economy
+- [37:41.690] and get dramatic and immediate relief to working families.
+- [37:46.030] As you know, we inherited from the last administration
+- [37:49.700] an economic catastrophe and an inflation nightmare.
+- [37:56.120] Their policies drove up energy prices,
+- [37:58.810] pushed up grocery costs,
+- [38:01.220] and drove the necessities of life out of reach
+- [38:03.820] for millions and millions of Americans,
+- [38:06.390] they've never had anything like it.
+- [38:09.030] We suffered the worst inflation in 48 years,
+- [38:12.060] but perhaps even in the history of our country,
+- [38:15.300] they're not sure.
+- [38:16.680] As president, I'm fighting every day to reverse this damage
+- [38:20.140] and make America affordable again.
+- [38:37.140] Joe Biden especially let the price of eggs
+- [38:40.290] get out of control, the egg prices out of control,
+- [38:46.900] and we're working hard to get it back down.
+- [38:49.760] Secretary, do a good job on that,
+- [38:51.820] you inherited a total mess
+- [38:53.440] from the previous administration, do a good job.
+- [39:05.080] A major focus of our fight to defeat inflation
+- [39:08.310] is rapidly reducing the cost of energy.
+- [39:11.700] The previous administration cut the number of new oil
+- [39:14.760] and gas leases by 95%,
+- [39:18.260] slowed pipeline construction to a halt,
+- [39:20.820] and closed more than 100 power plants.
+- [39:24.340] We are opening up many of those power plants right now.
+- [39:37.160] And frankly, we have never seen anything like it,
+- [39:42.200] that's why on my first day in office
+- [39:44.070] I declared a national energy emergency.
+- [39:52.200] As you've heard me say many times,
+- [39:54.460] we have more liquid gold under our feet
+- [39:56.760] than any nation on earth, and by far.
+- [40:00.150] And now I fully authorize the most talented team
+- [40:03.890] ever assembled to go and get it. It's called Drill, baby, Drill.
+- [40:23.020] My administration is also working
+- [40:25.230] on a gigantic natural gas pipeline in Alaska,
+- [40:29.150] among the largest in the world,
+- [40:30.680] where Japan, South Korea and other nations want to be
+- [40:33.690] our partner with investments of trillions of dollars each,
+- [40:37.880] there's never been anything like that.
+- [40:39.460] One, it will be truly spectacular,
+- [40:41.950] it's all set to go, the permitting is gotten.
+- [40:44.930] And later this week I will also take historic action
+- [40:48.010] to dramatically expand production
+- [40:50.430] of critical minerals and rare earths here in the USA.
+- [41:08.190] To further the combat inflation,
+- [41:09.960] we will not only be reducing because of energy,
+- [41:12.680] but we'll be ending the flagrant waste of taxpayer dollars.
+- [41:26.850] And to that end, I have created the brand-new
+- [41:29.750] Department of Government Efficiency, DOGE.
+- [41:34.810] Perhaps you've heard of it, perhaps.
+- [41:44.800] Which is headed by Elon Musk, who is in the gallery tonight.
+- [42:07.290] Thank you, Elon, he's working very hard.
+- [42:09.510] He didn't need this, he didn't need this.
+- [42:12.860] Thank you very much, we appreciate it.
+- [42:14.630] Everybody here, even this side appreciates it
+- [42:16.990] I believe, they just don't want to admit that.
+- [42:23.540] Just listen to some of the appalling waste
+- [42:27.020] we have already identified.
+- [42:29.620] $22 billion from HHS
+- [42:33.170] to provide free housing and cars for illegal aliens,
+- [42:38.220] $45 million for diversity,
+- [42:40.430] equity and inclusion scholarships in Burma,
+- [42:44.950] $40 million to improve the social and economic inclusion
+- [42:48.950] of sedentary migrants,
+- [42:51.480] Nobody knows what that is.
+- [42:55.470] $8 million to promote LGBTQI+
+- [43:01.090] in the African nation of Lesotho,
+- [43:03.770] which nobody has ever heard of.
+- [43:06.860] $60 million for Indigenous peoples
+- [43:10.080] and Afro-Colombian empowerment in Central America.
+- [43:14.800] $60 million. $8 million for making mice transgender.
+- [43:23.210] This is real.
+- [43:25.690] $32 million for a left-wing propaganda operation in Moldova.
+- [43:32.060] $10 million for male circumcision in Mozambique.
+- [43:37.580] $20 million for the Arab Sesame Street in the Middle East.
+- [43:43.320] It's a program. $20 million for a program.
+- [43:46.990] $1.9 billion to recently created decarbonization
+- [43:53.100] of homes committee headed up, and we know she's involved.
+- [43:58.230] Just at the last moment, the money was passed over
+- [44:01.720] by a woman named Stacey Abrams. Have you ever heard of her?
+- [44:07.700] A $3.5 million
+- [44:09.580] consulting contract for lavish fish monitoring.
+- [44:14.970] $1.5 million for voter confidence in Liberia.
+- [44:20.680] $14 million for social cohesion in Mali.
+- [44:25.010] $59 million for illegal alien hotel rooms in New York City.
+- [44:32.520] He's a real estate developer. He's done very well.
+- [44:35.750] $250,000 to increase
+- [44:38.320] vegan local climate action innovation in Zambia.
+- [44:44.190] $42 million for social and behavior change in Uganda.
+- [44:49.840] $14 million for improving public procurement in Serbia.
+- [44:54.630] $47 million for improving learning outcomes in Asia.
+- [45:00.710] Asia's doing very well with learning.
+- [45:03.820] You know what we're doing. Should use it ourselves.
+- [45:07.040] And $101 million for DEI
+- [45:09.580] contracts at the Department of Education.
+- [45:13.680] The most ever paid. Nothing even like it.
+- [45:16.880] Under the Trump administration, all of these scams,
+- [45:19.740] and there are far worse,
+- [45:20.990] but I didn't think it was appropriate to talk about them.
+- [45:24.190] They're so bad.
+- [45:25.920] Many more have been found out and exposed
+- [45:28.490] and swiftly terminated by a group of very intelligent,
+- [45:32.270] mostly young people,
+- [45:34.250] headed up by Elon, and we appreciate it.
+- [45:36.620] We found hundreds of billions of dollars of fraud.
+- [45:56.150] And we've taken back the money and reduced our debt
+- [45:59.810] to fight inflation and other things.
+- [46:03.020] Taken back a lot of that money. We got it just in time.
+- [46:06.500] This is just the beginning.
+- [46:09.340] The government's accountability office,
+- [46:11.660] a federal government office,
+- [46:13.300] has estimated annual fraud of over $500 billion in our nation,
+- [46:19.020] and we are working very hard to stop it.
+- [46:21.430] We're going to.
+- [46:23.020] We're also identifying shocking levels of incompetence
+- [46:26.210] and probable fraud in the social security program for our seniors
+- [46:31.990] and that our seniors and people that we love rely on.
+- [46:36.610] Believe it or not, government databases list
+- [46:39.070] 4.7 million social security members
+- [46:42.730] from people aged 100 to 109 years old.
+- [46:47.460] Speaker 1: No!
+- [46:48.810] Speaker 2: It's false. False!
+- [46:51.280] The President: It lists 3.6 million people
+- [46:55.860] from ages 110 to 119. I don't know any of them.
+- [47:01.210] I know some people that are rather elderly
+- [47:03.700] but not quite that elderly.
+- [47:06.260] 3.47 million people from ages 120 to 129,
+- [47:15.700] 3.9 million people from ages 130 to 139.
+- [47:20.650] Speaker 2: False!
+- [47:21.890] Speaker 1: Not true!
+- [47:23.160] The President: 3.5 million people
+- [47:26.020] from ages 140 to 149-
+- [47:30.210] Speaker 1: Not true!
+- [47:31.460] The President: … and money is being paid to many of them,
+- [47:34.680] and we're searching right now. In fact, Pam, good luck.
+- [47:40.460] Good luck. You're going to find it,
+- [47:42.950] but a lot of money is paid out to people
+- [47:46.010] because it just keeps getting paid and paid, and nobody does.
+- [47:49.480] And it really hurts social security and hurts our country.
+- [47:53.260] 1.3 million people from ages 150 to 159,
+- [47:58.760] and over 130,000 people according to the social security
+- [48:06.230] databases are aged over 160 years old.
+- [48:11.760] Speaker 3: That's lying.
+- [48:13.500] The President: We have a healthier country
+- [48:14.930] than I thought, Bobby.
+- [48:32.480] Including, to finish,
+- [48:34.980] 1039 people between the ages of 220 and 229,
+- [48:40.880] one person between the age of 240 and 249,
+- [48:45.060] and one person is listed at 360 years of age,
+- [48:52.140] more than 100 years.
+- [48:54.090] More than 100 years older than our country.
+- [49:01.110] But we're going to find out where that money's going,
+- [49:04.710] and it's not going to be pretty.
+- [49:05.950] By slashing all of the fraud, waste, and theft we can find,
+- [49:09.970] we will defeat inflation, bring down mortgage rates,
+- [49:12.620] lower car payments and grocery prices,
+- [49:15.260] protect our seniors,
+- [49:16.580] and put more money in the pockets of American families.
+- [49:34.910] And today, interest rates took a beautiful drop.
+- [49:38.360] Big, beautiful drop. It's about time.
+- [49:40.920] And in the near future,
+- [49:42.960] I want to do what has not been done in 24 years:
+- [49:47.580] balance the federal budget. We're going to balance it.
+- [50:10.070] With that goal in mind, we have developed in great detail
+- [50:13.750] what we are calling the gold card,
+- [50:16.650] which goes on sale very, very soon.
+- [50:19.700] For $5 million, we will allow
+- [50:22.750] the most successful job-creating people
+- [50:25.200] from all over the world to buy a path to US citizenship.
+- [50:28.940] It's like the green card,
+- [50:30.280] but better and more sophisticated.
+- [50:34.950] And these people will have to pay tax in our country,
+- [50:38.120] they won't have to pay tax from where they came,
+- [50:41.060] the money that they've made, you wouldn't want to do that,
+- [50:43.200] but they have to pay tax, create jobs.
+- [50:45.570] They'll also be taking people out of colleges
+- [50:47.870] and paying for them so that we can keep them in our country
+- [50:51.080] instead of having them being forced out.
+- [50:54.120] Number one at the top school, as an example,
+- [50:56.150] being forced out and not being allowed to stay
+- [50:59.140] and create tremendous numbers of jobs
+- [51:01.340] and great success for a company out there.
+- [51:04.550] So while we take out the criminals, killers,
+- [51:07.520] traffickers, and child predators
+- [51:10.020] who are allowed to enter our country
+- [51:12.070] under the open border policy of these people,
+- [51:15.230] the Democrats, the Biden administration,
+- [51:18.000] the open-border insane policies
+- [51:20.580] that you've allowed to destroy our country,
+- [51:24.160] we will now bring in brilliant, hard-working,
+- [51:26.570] job-creating people.
+- [51:28.940] They're going to pay a lot of money,
+- [51:30.370] and we're going to reduce our debt with that money.
+- [51:44.370] Americans have given us a mandate for bold
+- [51:48.490] and profound change. For nearly 100 years,
+- [51:52.260] the federal bureaucracy has grown
+- [51:55.260] until it has crushed our freedoms,
+- [51:57.250] ballooned our deficits,
+- [51:58.530] and held back America's potential
+- [52:01.130] in every possible way. The nation founded by pioneers
+- [52:06.270] and risk-takers now drowns under millions
+- [52:09.110] and millions of pages of regulations and debt.
+- [52:13.650] Approvals that should take 10 days to get instead
+- [52:17.900] take 10 years, 15 years,
+- [52:19.980] and even 20 years before you reject it.
+- [52:23.080] And meanwhile, we have hundreds of thousands of federal workers
+- [52:26.200] who have not been showing up to work.
+- [52:29.080] My administration will reclaim power
+- [52:31.320] from this unaccountable bureaucracy,
+- [52:34.000] and we will restore true democracy to America again.
+- [52:51.410] And any federal bureaucrat who resists this change
+- [52:54.720] will be removed from office immediately
+- [52:59.730] because we are draining the swamp, it's very simple,
+- [53:03.770] and the days of rule by unelected bureaucrats are over.
+- [53:26.380] And the next phase of our plan
+- [53:28.480] to deliver the greatest economy in history
+- [53:30.870] is for this Congress to pass tax cuts for everybody.
+- [53:35.270] They're in there, they're waiting for you to vote,
+- [53:38.340] and I'm sure that the people on my right,
+- [53:41.560] I don't mean the Republican right,
+- [53:43.730] but my right, right here,
+- [53:45.280] I'm sure you're going to vote for those tax cuts,
+- [53:47.160] because otherwise, I don't believe
+- [53:49.220] that people will ever vote you into office,
+- [53:51.530] so I'm doing you a big favor by telling you that.
+- [53:55.780] But I know this group is going to be voting for the tax cuts.
+- [54:12.420] Thank you. It's a very, very big part of our plan.
+- [54:15.630] We had tremendous success in our first term.
+- [54:17.710] Within a very big part of our plan,
+- [54:19.470] we're seeking permanent income tax cuts all across the board
+- [54:23.520] and to get urgently needed relief to Americans
+- [54:26.460] hit especially hard by inflation.
+- [54:29.160] I'm calling for no tax on tips, no tax on overtime,
+- [54:33.730] and no tax on social security benefits for our great seniors.
+- [54:53.810] And I also want to make interest payments on car
+- [54:59.270] loans tax-deductible,
+- [55:00.790] but only if the car is made in America.
+- [55:15.040] And by the way, we're going to have growth in the auto industry
+- [55:17.500] like nobody's ever seen.
+- [55:18.730] Plants are opening up all over the place,
+- [55:20.870] deals are being made, never seen.
+- [55:22.770] That's a combination of the election win and tariffs.
+- [55:25.970] It's a beautiful word, isn't it?
+- [55:28.570] That along with our other policies
+- [55:30.980] will allow our auto industry to absolutely boom.
+- [55:35.290] It's going to boom. Spoke to the majors today,
+- [55:37.890] all three, the top people, and they're so excited.
+- [55:41.390] In fact, already numerous car companies have announced
+- [55:44.770] that they will be building massive automobile plants
+- [55:47.750] in America,
+- [55:49.010] with Honda just announcing a new plant in Indiana,
+- [55:52.690] one of the largest anywhere in the world.
+- [56:07.290] And this has taken place
+- [56:08.870] since our great victory on November 5th,
+- [56:12.250] a date which will hopefully go down
+- [56:14.220] as one of the most important in the history of our country.
+- [56:22.660] In addition, as part of our tax cuts,
+- [56:25.400] we want to cut taxes on domestic production
+- [56:28.630] and all manufacturing, and just as we did before,
+- [56:32.740] we will provide 100% expensing.
+- [56:36.160] It will be retroactive to January 20th, 2025,
+- [56:40.810] and it was one of the main reasons
+- [56:42.720] why our tax cuts were so successful in our first term,
+- [56:46.920] giving us the most successful economy
+- [56:50.450] in the history of our country.
+- [56:52.180] First term. We had a great first term.
+- [57:00.060] If you don't make your product in America, however,
+- [57:02.850] under the Trump administration, you will pay a tariff,
+- [57:06.300] and in some cases, a rather large one.
+- [57:09.160] Other countries have used tariffs against us for decades,
+- [57:12.230] and now it's our turn to start using them
+- [57:14.980] against those other countries.
+- [57:17.350] On average, the European Union, China, Brazil,
+- [57:21.580] India, Mexico, and Canada, have you heard of them?
+- [57:26.420] And countless other nations charge us
+- [57:28.740] tremendously higher tariffs than we charge them.
+- [57:32.980] It's very unfair.
+- [57:34.720] India charges us auto tariffs higher than 100%.
+- [57:40.290] China's average tariff on our products
+- [57:42.670] is twice what we charge them,
+- [57:45.480] and South Korea's average tariff is four times higher.
+- [57:48.550] Think of that. Four times higher.
+- [57:51.320] And we give so much help militarily
+- [57:53.270] and in so many other ways to South Korea,
+- [57:55.690] but that's what happens.
+- [57:57.390] This is happening by friend and foe.
+- [58:00.680] This system is not fair to the United States and never was,
+- [58:03.910] and so on April 2nd, I wanted to make it April 1st,
+- [58:08.790] but I didn't want to be accused of April Fool's Day.
+- [58:15.320] Just one day costs us a lot of money,
+- [58:18.960] but we're going to do it in April.
+- [58:20.980] I'm a very superstitious person.
+- [58:23.670] April 2nd, reciprocal tariffs kick in,
+- [58:27.740] and whatever they tariff us,
+- [58:30.300] other countries, we will tariff them.
+- [58:33.640] That's reciprocal, back and forth.
+- [58:35.690] Whatever they tax us, we will tax them.
+- [58:41.520] If they do non-monetary tariffs to keep us out of their market,
+- [58:48.860] then we will do non-monetary barriers
+- [58:52.350] to keep them out of our market. There's a lot of that too.
+- [58:55.690] They don't even allow us in their market.
+- [58:58.480] We will take in trillions and trillions of dollars
+- [59:01.150] and create jobs like we have never seen before.
+- [59:05.070] I did it with China and I did it with others,
+- [59:07.250] and the Biden administration couldn't do anything about it
+- [59:09.780] because it was so much money,
+- [59:11.090] they couldn't do anything about it.
+- [59:13.310] We have been ripped off for decades
+- [59:15.310] by nearly every country on Earth,
+- [59:17.560] and we will not let that happen any longer.
+- [59:31.030] Much has been said over the last three months
+- [59:34.960] about Mexico and Canada,
+- [59:37.550] but we have very large deficits with both of them,
+- [59:40.290] but even more importantly, they've allowed fentanyl
+- [59:42.880] to come into our country at levels never seen before,
+- [59:45.450] killing hundreds of thousands of our citizens,
+- [59:49.430] and many very young, beautiful people, destroying families.
+- [59:53.370] Nobody's ever seen anything like it.
+- [59:55.610] They are in effect receiving subsidies
+- [59:58.150] of hundreds of billions of dollars.
+- [59:59.880] We pay subsidies to Canada
+- [01:00:03.390] and to Mexico of hundreds of billions of dollars,
+- [01:00:06.110] and the United States will not be doing that any longer.
+- [01:00:09.790] We're not going to do it any longer.
+- [01:00:15.860] Thanks to our America-first policies
+- [01:00:18.550] we're putting into place,
+- [01:00:20.350] we have had $ 1.7 trillion of new investment in America
+- [01:00:25.220] in just the past few weeks.
+- [01:00:27.360] The combination of the election and our economic policies
+- [01:00:32.770] that people of SoftBank,
+- [01:00:34.080] one of the most brilliant anywhere in the world,
+- [01:00:36.040] announced a $200 billion investment.
+- [01:00:40.220] OpenAI and Oracle, Larry Ellison
+- [01:00:44.470] announced 500 billion investment,
+- [01:00:48.390] which they wouldn't have done if Kamala had won.
+- [01:00:52.880] Apple announced a $500 billion investment.
+- [01:00:59.320] Tim Cook called me, he said, "I cannot spend it fast enough."
+- [01:01:03.330] It's going to be much higher than that, I believe.
+- [01:01:05.600] They'll be building their plants here instead of in China.
+- [01:01:09.390] And just yesterday, Taiwan Semiconductor,
+- [01:01:12.200] the biggest in the world, most powerful in the world,
+- [01:01:15.860] has a tremendous amount, 97% of the market,
+- [01:01:20.210] announced a $165 billion investment
+- [01:01:23.840] to build the most powerful chips on earth right here in the USA.
+- [01:01:39.610] And we're not giving them any money.
+- [01:01:41.590] Your CHIPS Act is a horrible, horrible thing.
+- [01:01:45.030] We give hundreds of billions of dollars,
+- [01:01:47.690] and it doesn't mean a thing.
+- [01:01:48.990] They take our money and they don't spend it.
+- [01:01:51.870] All that meant to them, we're giving them no money.
+- [01:01:55.510] All that was important to them
+- [01:01:56.950] was they didn't want to pay the tariffs,
+- [01:01:58.440] so they came and they're building,
+- [01:01:59.690] and many other companies are coming.
+- [01:02:01.810] We don't have to give them money.
+- [01:02:03.610] We just want to protect our businesses and our people,
+- [01:02:06.320] and they will come because they won't have to pay tariffs
+- [01:02:08.680] if they build in America, so it's very amazing.
+- [01:02:11.830] You should get rid of the CHIPS Act,
+- [01:02:14.330] and whatever's left over, Mr. Speaker,
+- [01:02:16.990] you should use it to reduce debt or any other reason you want to.
+- [01:02:34.420] Our new trade policy will also be great
+- [01:02:36.800] for the American farmer, I love the farmer,
+- [01:02:42.970] who will now be selling into our home market,
+- [01:02:46.870] the USA, because nobody is going to be able to compete with you
+- [01:02:52.170] because there's goods that come in
+- [01:02:54.620] from other countries and companies.
+- [01:02:58.310] They're really, really in a bad position
+- [01:03:01.900] in so many different ways. They're uninspected.
+- [01:03:05.730] They may be very dirty and disgusting,
+- [01:03:08.150] and they come in and they pour in,
+- [01:03:09.900] and they hurt our American farmers.
+- [01:03:11.710] The tariffs will go on agricultural product
+- [01:03:15.140] coming into America, and our farmers,
+- [01:03:17.720] starting on April 2nd,
+- [01:03:19.660] it may be a little bit of an adjustment period.
+- [01:03:23.000] We had that before when I made the deal with China,
+- [01:03:25.450] $50 billion of purchases, and I said, "Just bear with me,"
+- [01:03:28.760] and they did. They did.
+- [01:03:30.970] Probably have to bear with me again,
+- [01:03:33.440] and this will be even better. That was great.
+- [01:03:35.900] The problem with it was that Biden didn't enforce it.
+- [01:03:38.310] He didn't enforce it.
+- [01:03:39.560] $50 billion of purchases, and we were doing great,
+- [01:03:43.220] but Biden did not enforce it, and it hurt our farmers.
+- [01:03:46.810] But our farmers are going to have a field day right now.
+- [01:03:50.030] So to our farmers, have a lot of fun.
+- [01:03:54.040] I love you too. I love you too. It's all going to happen.
+- [01:04:05.880] And I have also imposed a 25% tariff
+- [01:04:09.290] on foreign aluminum, copper, lumber, and steel
+- [01:04:11.740] because if we don't have, as an example, steel,
+- [01:04:15.810] and lots of other things, we don't have a military,
+- [01:04:18.190] and frankly, we just won't have a country very long.
+- [01:04:22.260] Here today is a proud American steelworker,
+- [01:04:26.410] fantastic person, from Decatur, Alabama.
+- [01:04:30.720] Jeff Denard has been working at the same steel plant
+- [01:04:35.970] for 27 years in a job that has allowed him to serve
+- [01:04:39.670] as the captain of his local volunteer fire department,
+- [01:04:43.720] raised seven children with his beautiful wife, Nicole,
+- [01:04:47.490] and over the years, provide a loving home
+- [01:04:49.590] for more than 40 foster children.
+- [01:04:52.380] So great, Jeff.
+- [01:05:02.690] Thank you, Jeff. Thank you, Jeff.
+- [01:05:13.380] Stories like Jeff's remind us that tariffs
+- [01:05:16.080] are not just about protecting American jobs,
+- [01:05:19.800] they're about protecting the soul of our country.
+- [01:05:24.520] Tariffs are about making America rich again
+- [01:05:27.170] and making America great again, and it's happening,
+- [01:05:29.830] and it will happen rather quickly.
+- [01:05:31.570] There'll be a little disturbance,
+- [01:05:34.600] but we're okay with that. It won't be much.
+- [01:05:37.630] Speaker 4: No, we're not.
+- [01:05:38.910] The President: No, you're not. Uh-oh.
+- [01:05:42.990] And look where Biden took us.
+- [01:05:44.670] Very low, the lowest we've ever been.
+- [01:05:46.910] Jeff, I want to thank you very much,
+- [01:05:48.800] and I also want to recognize another person
+- [01:05:51.610] who has devoted herself to foster care community.
+- [01:05:55.340] She works so hard on it, a very loving person,
+- [01:05:58.170] our magnificent First Lady of the United States.
+- [01:06:20.500] Melania's work has yielded incredible results,
+- [01:06:23.140] helping prepare our nation's future leaders
+- [01:06:25.550] as they enter the workforce.
+- [01:06:28.240] Our First Lady is joined by two impressive young women,
+- [01:06:31.250] very impressive.
+- [01:06:33.030] Haley Ferguson, who benefited from the First Lady's
+- [01:06:36.020] Fostering the Future initiative
+- [01:06:38.500] and is poised to complete her education and become a teacher.
+- [01:06:42.880] And Elliston Berry, who became a victim
+- [01:06:45.820] of an illicit deepfake image produced by a peer.
+- [01:06:51.200] With Elliston's help,
+- [01:06:53.270] the Senate just passed the Take It Down Act,
+- [01:06:57.180] and this is so important. Thank you very much, John.
+- [01:07:00.620] John Thune. Thank you. Stand up, John. Thank you, John.
+- [01:07:09.430] Thank you all very much. Thank you.
+- [01:07:19.140] And thank you to John Thune and the Senate.
+- [01:07:22.100] Great job.
+- [01:07:23.360] To criminalize the publication of such images online
+- [01:07:27.880] is terrible, a terrible thing, and once it passes the house,
+- [01:07:31.740] I look forward to signing that bill into law.
+- [01:07:35.780] Thank you.
+- [01:07:36.980] And I'm going to use that bill for myself too,
+- [01:07:38.670] if you don't mind,
+- [01:07:40.070] because nobody gets treated worse than I do online.
+- [01:07:42.710] Nobody. That's great.
+- [01:07:45.390] Thank you very much to the Senate. Thank you.
+- [01:07:48.680] But if we truly care about protecting America's children,
+- [01:07:52.460] no step is more crucial than securing America's borders.
+- [01:07:57.520] Over the past four years,
+- [01:07:58.780] 21 million people poured into the United States.
+- [01:08:01.790] Many of them were murderers, human traffickers, gang members
+- [01:08:06.650] and other criminals from the streets of dangerous cities,
+- [01:08:10.250] all throughout the world. Because of Joe Biden's insane
+- [01:08:14.080] and very dangerous open-border policies,
+- [01:08:17.190] they're now strongly embedded in our country,
+- [01:08:21.040] but we are getting them out and getting them out fast.
+- [01:08:37.240] And I want to thank Tom Homan, and Kristi,
+- [01:08:40.680] I want to thank you and Paul of Border Patrol.
+- [01:08:43.820] I want to thank you. What a job they've all done.
+- [01:08:46.320] Everybody. Border Patrol, ICE.
+- [01:08:49.050] Law enforcement in general is incredible.
+- [01:08:51.230] We have to take care of our law enforcement.
+- [01:08:54.660] Have to.
+- [01:09:00.060] Last year a brilliant 22-year-old
+- [01:09:08.280] nursing student named Laken Riley,
+- [01:09:11.750] the best in her class, admired by everybody,
+- [01:09:15.640] went out for a jog on the campus of the University of Georgia.
+- [01:09:20.130] That morning, Laken was viciously attacked,
+- [01:09:22.810] assaulted, beaten, brutalized, and horrifically murdered.
+- [01:09:27.840] Laken was stolen from us by a savage
+- [01:09:30.820] illegal alien gang member who was arrested
+- [01:09:34.510] while trespassing across Biden's open southern border
+- [01:09:39.400] and then set loose into the United States
+- [01:09:41.690] under the heartless policies of that failed administration.
+- [01:09:45.660] It was indeed a failed administration.
+- [01:09:48.640] He had then been arrested and released
+- [01:09:51.950] in a Democrat-run sanctuary city,
+- [01:09:54.620] a disaster,
+- [01:09:56.140] before ending the life of this beautiful young angel.
+- [01:10:00.590] With us this evening are Laken's beloved mother,
+- [01:10:03.330] Allison, and her sister, Lauren.
+- [01:10:30.510] Last year I told Laken's grieving parents
+- [01:10:33.250] that we would ensure their daughter
+- [01:10:36.260] would not have died in vain.
+- [01:10:38.640] That's why the very first bill I signed into law
+- [01:10:42.210] as your 47th president mandates the detention
+- [01:10:47.180] of all dangerous criminal aliens who threaten public safety.
+- [01:10:51.760] It's a very strong, powerful act.
+- [01:11:07.020] It's called the Laken Riley Act.
+- [01:11:10.650] So Allison and Lauren, America will never,
+- [01:11:13.500] ever forget our beautiful Laken Hope Riley.
+- [01:11:35.140] Thank you very much.
+- [01:11:38.570] Since taking office, my administration has launched
+- [01:11:41.450] the most sweeping border and immigration
+- [01:11:44.230] crackdown in American history,
+- [01:11:47.430] and we quickly achieved the lowest numbers
+- [01:11:49.750] of illegal border crossers ever recorded.
+- [01:11:53.920] Thank you.
+- [01:12:11.070] The media and our friends in the Democrat party
+- [01:12:14.450] kept saying we needed new legislation,
+- [01:12:16.990] we must have legislation to secure the border,
+- [01:12:20.280] but it turned out that all we really needed
+- [01:12:23.550] was a new president.
+- [01:12:46.860] Thank you.
+- [01:12:49.030] Joe Biden didn't just open our borders,
+- [01:12:51.190] he flew illegal aliens over them to overwhelm our schools,
+- [01:12:55.920] hospitals and communities throughout the country.
+- [01:12:59.110] Entire towns like Aurora, Colorado,
+- [01:13:01.870] and Springfield, Ohio, buckled under the weight
+- [01:13:05.050] of the migrant occupation and corruption
+- [01:13:07.920] like nobody's ever seen before. Beautiful towns destroyed.
+- [01:13:12.750] Now just as I promised in my inaugural address,
+- [01:13:16.350] we are achieving the great liberation of America.
+- [01:13:29.210] But there still is much work to be done.
+- [01:13:34.780] Here tonight is a woman I have gotten to know,
+- [01:13:38.960] Alexis Nungaray, from Houston. Wonderful woman.
+- [01:13:43.190] Last June, Alexis's 12-year-old daughter,
+- [01:13:46.190] her precious Jocelyn, walked to a nearby convenience store.
+- [01:13:51.260] She was kidnapped, tied up,
+- [01:13:52.730] assaulted for two hours under a bridge
+- [01:13:56.070] and horrifically murdered.
+- [01:13:58.330] Arrested and charged with this heinous crime
+- [01:14:00.700] are two illegal alien monsters from Venezuela
+- [01:14:03.980] released into America by the last administration
+- [01:14:07.310] through their ridiculous open border.
+- [01:14:10.690] The death of this beautiful 12-year-old girl
+- [01:14:13.010] and the agony of her mother and family
+- [01:14:15.980] touched our entire nation greatly.
+- [01:14:19.060] Alexis, I promised that we would always remember your daughter,
+- [01:14:23.570] your magnificent daughter, and earlier tonight
+- [01:14:26.780] I signed an order keeping my word to you.
+- [01:14:32.090] One thing I have learned about Jocelyn
+- [01:14:33.900] is that she loved animals so much, she loved nature.
+- [01:14:37.900] Across Galveston Bay, from where Jocelyn lived, in Houston,
+- [01:14:42.330] you'll find a magnificent national wildlife refuge,
+- [01:14:47.750] a pristine, peaceful 34,000 acre sanctuary
+- [01:14:52.910] for all of God's creatures
+- [01:14:54.900] on the edge of the Gulf of America.
+- [01:14:58.480] Alexis, moments ago I formally renamed that refuge
+- [01:15:04.360] in loving memory of your beautiful daughter, Jocelyn.
+- [01:15:08.660] So Mr. Vice President, if you would,
+- [01:15:11.610] may I have the order.
+- [01:15:44.170] Thank you very much.
+- [01:15:46.160] All three savages charged with Jocelyn and Laken's murders
+- [01:15:52.490] were members of the Venezuelan prison gang,
+- [01:15:55.340] the toughest gang they say in the world,
+- [01:15:58.060] known as Tren De Aragua.
+- [01:16:00.950] Two weeks ago I officially designated
+- [01:16:03.320] this gang along with MS-13
+- [01:16:05.450] and the bloodthirsty Mexican drug cartels
+- [01:16:07.900] as foreign terrorist organizations.
+- [01:16:27.970] They are now officially in the same category as ISIS,
+- [01:16:32.620] and that's not good for them.
+- [01:16:35.110] Countless thousands of these terrorists
+- [01:16:37.190] were welcomed into the US by the Biden administration,
+- [01:16:42.060] but now every last one will be rounded up
+- [01:16:44.700] and forcibly removed from our country,
+- [01:16:46.810] or if they're too dangerous, put in jails,
+- [01:16:50.870] standing trial in this country
+- [01:16:52.530] because we don't want them to come back ever.
+- [01:16:56.570] With us this evening is a warrior on the front lines
+- [01:16:59.700] of that battle, border patrol agent,
+- [01:17:02.530] Roberto Ortiz. Great guy.
+- [01:17:30.330] In January, Roberto and another agent
+- [01:17:33.790] were patrolling by the Rio Grande,
+- [01:17:36.760] near an area known as Cartel Island,
+- [01:17:39.880] doesn't sound too nice to me,
+- [01:17:42.040] when heavily armed gunmen started shooting at them.
+- [01:17:46.510] Roberto saw that his partner was totally exposed at great danger
+- [01:17:50.570] and he leapt into action returning fire
+- [01:17:53.400] and providing crucial seconds for his fellow agent
+- [01:17:56.370] to seek safety, and just barely.
+- [01:18:01.560] I have some of the prints of that event,
+- [01:18:05.550] and it was not good.
+- [01:18:06.970] Agent Ortiz, we salute you for your great courage
+- [01:18:10.000] and for your line of fire that you took,
+- [01:18:14.140] and for the bravery that you showed,
+- [01:18:16.630] we honor you and we will always honor you.
+- [01:18:19.190] Thank you Roberto, very much.
+- [01:18:36.050] Thank you Roberto.
+- [01:18:39.380] And I actually got to know him on my many calls to the border.
+- [01:18:44.220] He's a great gentleman.
+- [01:18:47.170] The territory to the immediate south of our border
+- [01:18:50.120] is now dominated entirely by criminal cartels
+- [01:18:53.180] that murder, rape, torture, and exercise total control,
+- [01:18:57.620] they have total control over a whole nation,
+- [01:19:01.060] posing a grave threat to our national security.
+- [01:19:04.700] The cartels are waging war on America
+- [01:19:07.070] and it's time for America to wage war on the cartels,
+- [01:19:10.610] which we're doing.
+- [01:19:22.510] Five nights ago, Mexican authorities,
+- [01:19:26.440] because of our tariff policies being imposed on them,
+- [01:19:31.480] think of this, handed over to us
+- [01:19:34.900] 29 of the biggest cartel leaders in their country.
+- [01:19:38.910] That has never happened before, they want to make us happy.
+- [01:19:42.700] First time ever.
+- [01:19:46.700] But we need Mexico and Canada
+- [01:19:50.130] to do much more than they've done
+- [01:19:51.750] and they have to stop the fentanyl and drugs
+- [01:19:54.750] pouring into the USA. They're going to stop it.
+- [01:19:59.450] I have sent Congress a detailed funding request
+- [01:20:02.380] laying out exactly how we will eliminate these threats
+- [01:20:05.860] to protect our homeland
+- [01:20:07.600] and complete the largest deportation operation
+- [01:20:10.800] in American history, larger even then current record holder,
+- [01:20:15.270] President Dwight D. Eisenhower, a moderate man,
+- [01:20:18.070] but someone who believed very strongly in borders.
+- [01:20:21.960] Americans expect Congress to send me this funding
+- [01:20:25.460] without delay so I can sign it into law,
+- [01:20:27.850] so Mr. Speaker, John Thune, both of you,
+- [01:20:32.500] I hope you're going to be able to do that.
+- [01:20:34.050] Mr. Speaker, thank you. Mr. Leader, thank you.
+- [01:20:37.720] Thank you very much, and let's get it to me.
+- [01:20:40.170] I'll sign it so fast, you won't even believe it.
+- [01:20:56.570] And as we reclaim our sovereignty,
+- [01:20:59.730] we must also bring back law and order to our cities and towns.
+- [01:21:12.200] In recent years our justice system
+- [01:21:16.210] has been turned upside down by radical left lunatics.
+- [01:21:22.530] Many jurisdictions virtually seized enforcing the law
+- [01:21:26.990] against dangerous repeat offenders
+- [01:21:29.430] while weaponizing law enforcement
+- [01:21:31.130] against political opponents like me.
+- [01:21:35.060] My administration has acted swiftly
+- [01:21:37.320] and decisively to restore fair, equal and impartial justice
+- [01:21:42.470] under the constitutional rule of law.
+- [01:21:45.380] Starting at the FBI and the DOJ, Pam, good luck.
+- [01:21:51.710] Cash, wherever you may be, good luck.
+- [01:21:54.800] Good luck. Pam Bondi. Good luck.
+- [01:21:59.750] So important. Going to do a great job.
+- [01:22:02.900] Cash, thank you. Thank you, Cash.
+- [01:22:18.140] They've already started very strong,
+- [01:22:19.930] they're going to do a fantastic job,
+- [01:22:21.410] you're going to be very proud of them.
+- [01:22:23.590] We're also, once again, giving our police officers
+- [01:22:26.680] the support, protection and respect
+- [01:22:29.050] they so dearly deserve, they have to get it.
+- [01:22:32.630] They have such a hard, dangerous job,
+- [01:22:35.390] but we're going to make it less dangerous.
+- [01:22:37.380] The problem is the bad guys don't respect the law,
+- [01:22:39.940] but they're starting to respect it
+- [01:22:41.350] and they soon will respect it.
+- [01:22:43.750] This also includes our great fire departments
+- [01:22:46.180] throughout the country,
+- [01:22:47.390] our firemen and women are unbelievable people
+- [01:22:50.240] and I will never forget them.
+- [01:22:52.810] And besides that, they voted for me in record numbers
+- [01:22:55.310] so I have no chance.
+- [01:23:06.090] One year ago this month,
+- [01:23:08.690] 31-year-old New York police officer, Jonathan Diller,
+- [01:23:12.760] unbelievably wonderful person and a great officer,
+- [01:23:18.430] was gunned down at a traffic stop on Long Island.
+- [01:23:21.460] I went to his funeral.
+- [01:23:23.930] The vicious criminal charged with his murder
+- [01:23:26.860] had 21 prior arrests, and they were rough arrests too.
+- [01:23:31.140] He was a real bad one.
+- [01:23:33.040] The thug in the seat next to him had 14 prior arrests
+- [01:23:37.630] and went by the name of Killer.
+- [01:23:39.270] He was Killer, he killed other people,
+- [01:23:41.070] they say a lot of them.
+- [01:23:42.950] I attended Officer Diller's service
+- [01:23:46.300] and when I met his wife and 1-year-old son, Ryan,
+- [01:23:50.800] it was very inspirational actually.
+- [01:23:54.470] His widow's name is Stephanie and she's here tonight.
+- [01:23:57.080] Stephanie, thank you very much, Stephanie.
+- [01:23:59.770] Thank you very much.
+- [01:24:18.700] Stephanie, we're going to make sure
+- [01:24:20.650] that Ryan knows his dad was a true hero,
+- [01:24:23.700] New York's finest,
+- [01:24:25.580] and we are going to get these cold-blooded killers
+- [01:24:28.360] and repeat offenders off our streets
+- [01:24:30.720] and we're going to do it fast.
+- [01:24:32.540] Got to stop it. They get out with 28 arrests,
+- [01:24:36.350] they push people into subway trains.
+- [01:24:39.240] They hit people over the head,
+- [01:24:40.810] back of the head with baseball bats.
+- [01:24:43.680] We got to get them out of here.
+- [01:24:45.680] I have already signed an executive order
+- [01:24:47.580] requiring a mandatory death penalty
+- [01:24:50.120] for anyone who murders a police officer,
+- [01:24:52.770] and tonight I'm asking Congress
+- [01:24:54.330] to pass that policy into permanent law.
+- [01:25:09.890] I'm also asking for a new crime bill
+- [01:25:13.490] getting tough on repeat offenders
+- [01:25:15.880] while enhancing protections for America's police officers
+- [01:25:20.090] so they can do their jobs without fear of their lives
+- [01:25:23.560] being totally destroyed. They don't want to be killed,
+- [01:25:27.120] we're not going to let them be killed.
+- [01:25:33.060] Joining us in the gallery tonight
+- [01:25:35.230] is a young man who truly loves our police.
+- [01:25:38.850] His name is DJ Daniel, he is 13 years old,
+- [01:25:42.130] and he has always dreamed of becoming a police officer.
+- [01:26:24.670] But in 2018, DJ was diagnosed with brain cancer.
+- [01:26:30.040] The doctors gave him five months at most to live.
+- [01:26:34.580] That was more than six years ago.
+- [01:26:58.720] Since that time, DJ and his dad have been on a quest
+- [01:27:02.550] to make his dream come true and DJ
+- [01:27:05.780] has been sworn in as an honorary law enforcement officer
+- [01:27:10.940] actually a number of times.
+- [01:27:13.210] The police love him, the police departments love him.
+- [01:27:16.530] And tonight, DJ, we're going to do you
+- [01:27:18.940] the biggest honor of them all.
+- [01:27:21.270] I am asking our new Secret Service director, Sean Curran,
+- [01:27:25.780] to officially make you
+- [01:27:27.440] an agent of the United States Secret Service.
+- [01:28:16.200] Thank you DJ.
+- [01:28:19.890] DJ's doctors believe his cancer likely came from a chemical
+- [01:28:23.930] he was exposed to when he was younger.
+- [01:28:26.760] Since 1975, rates of child cancer have increased
+- [01:28:30.950] by more than 40%.
+- [01:28:34.240] Reversing this trend is one of the top priorities
+- [01:28:37.680] for our new presidential commission
+- [01:28:39.870] to make America healthy again,
+- [01:28:42.120] chaired by our new Secretary of Health and Human Services,
+- [01:28:46.590] Robert F. Kennedy Jr.
+- [01:29:10.390] With the name Kennedy,
+- [01:29:11.650] you would've thought everybody over here
+- [01:29:13.120] would've been cheering. How quickly they forget.
+- [01:29:17.660] Our goal is to get toxins out of our environment,
+- [01:29:21.200] poisons out of our food supply,
+- [01:29:23.730] and keep our children healthy and strong.
+- [01:29:27.010] As an example, not long ago,
+- [01:29:30.830] and you can't even believe these numbers,
+- [01:29:34.310] one in 10,000 children had autism,
+- [01:29:37.720] one in 10,000. And now it's one in 36.
+- [01:29:43.050] There's something wrong, one in 36, think of that.
+- [01:29:46.580] So we're going to find out what it is,
+- [01:29:48.240] and there's nobody better than Bobby
+- [01:29:49.960] and all of the people that are working with you,
+- [01:29:52.200] you have the best to figure out what is going on.
+- [01:29:56.760] Okay, Bobby, good luck.
+- [01:29:58.010] It's a very important job, thank you.
+- [01:30:12.130] Thank you.
+- [01:30:13.350] My administration is also working to protect our children
+- [01:30:16.610] from toxic ideologies in our schools.
+- [01:30:19.740] A few years ago, January Littlejohn and her husband
+- [01:30:23.980] discovered that their daughter's school
+- [01:30:25.790] had secretly socially transitioned
+- [01:30:28.460] their 13-year-old little girl. Teachers and administrators
+- [01:30:33.090] conspired to deceive January and her husband
+- [01:30:36.530] while encouraging her daughter to use a new name and pronouns,
+- [01:30:41.730] they, them pronoun actually, all without telling January,
+- [01:30:46.710] who is here tonight and is now a courageous advocate
+- [01:30:49.930] against this form of child abuse.
+- [01:30:52.650] January, thank you. Thank you. Thank you very much.
+- [01:31:10.610] Thank you.
+- [01:31:12.490] Stories like this are why shortly after taking office,
+- [01:31:15.760] I signed an executive order banning public schools
+- [01:31:18.580] from indoctrinating our children with transgender ideology.
+- [01:31:32.230] I also signed an order to cut off all taxpayer
+- [01:31:35.560] funding to any institution that engages
+- [01:31:38.580] in the sexual mutilation of our youth.
+- [01:31:49.290] And now I want Congress to pass a bill permanently banning
+- [01:31:53.610] and criminalizing sex changes on children
+- [01:31:56.540] and forever ending the lie that any child
+- [01:31:59.380] is trapped in the wrong body. This is a big lie.
+- [01:32:09.790] And our message to every child in America
+- [01:32:13.490] is that you are perfect exactly the way God made you.
+- [01:32:31.190] We're getting wokeness out of our schools
+- [01:32:33.670] and out of our military, and it's already out,
+- [01:32:37.670] and it's out of our society, we don't want it.
+- [01:32:41.340] Wokeness is trouble. Wokeness is bad.
+- [01:32:44.750] It's gone. It's gone.
+- [01:32:47.280] And we feel so much better for it, don't we?
+- [01:32:49.870] Don't we feel better?
+- [01:32:55.240] Our service members won't be activists and ideologues,
+- [01:32:59.800] they will be fighters and warriors,
+- [01:33:01.590] they will fight for our country. And Pete, congratulations.
+- [01:33:06.300] Secretary of Defense, congratulations.
+- [01:33:18.950] And he's not big into the woke movement, I can tell you.
+- [01:33:22.660] I know him well.
+- [01:33:24.490] I am pleased to report that in January,
+- [01:33:26.520] the US army had its single best recruiting month in 15 years,
+- [01:33:31.010] and that all armed services
+- [01:33:32.700] are having among the best recruiting results
+- [01:33:35.720] ever in the history of our services.
+- [01:33:38.960] What a difference.
+- [01:33:47.350] And you know, it was just a few months ago
+- [01:33:51.600] where the results were exactly the opposite,
+- [01:33:54.300] we couldn't recruit anywhere, we couldn't recruit.
+- [01:33:58.150] Now we're having the best results
+- [01:34:01.510] just about that we've ever had. What a tremendous turnaround.
+- [01:34:05.750] It's really a beautiful thing to see people
+- [01:34:08.550] love our country again, it's very simple.
+- [01:34:10.470] They love our country
+- [01:34:11.740] and they love being in our military again,
+- [01:34:14.220] so it's a great thing, and thank you very much.
+- [01:34:16.070] Great job, thank you.
+- [01:34:25.910] We're joined tonight by a young man, Jason Hartley,
+- [01:34:30.110] who knows the weight of that call of duty.
+- [01:34:33.130] Jason's father, grandfather,
+- [01:34:35.040] and great-grandfather all wore the uniform.
+- [01:34:38.670] Jason tragically lost his dad,
+- [01:34:42.140] who was also a Los Angeles County Sheriff's
+- [01:34:44.690] deputy, when he was just a boy,
+- [01:34:46.680] and now he wants to carry on the family legacy of service.
+- [01:34:50.880] Jason soon as a senior in high school,
+- [01:34:53.410] a six-letter varsity athlete, a really good athlete,
+- [01:34:56.180] they say, a brilliant student with a 4.46, that's good, GPA,
+- [01:35:02.840] and his greatest dream is to attend
+- [01:35:04.950] the U.S. Military Academy at West Point.
+- [01:35:32.860] Jason, that's a very big deal getting in.
+- [01:35:35.700] That's a hard one to get into, but I'm pleased to inform you
+- [01:35:40.980] that your application has been accepted.
+- [01:35:43.750] You'll soon be joining the Corps of Cadets.
+- [01:36:15.950] Thank you.
+- [01:36:17.270] Jason, you're going to be on the long gray line, Jason.
+- [01:36:21.950] As Commander-in-Chief, my focus is on building
+- [01:36:24.620] the most powerful military of the future.
+- [01:36:27.570] As a first step, I'm asking Congress to fund
+- [01:36:30.770] a state-of-the-art Golden Dome missile
+- [01:36:33.360] defense shield to protect our homeland,
+- [01:36:36.730] all made in the USA.
+- [01:36:48.360] Ronald Reagan wanted to do it long ago,
+- [01:36:51.730] but the technology just wasn't there,
+- [01:36:53.860] not even close, but now we have the technology.
+- [01:36:56.240] It's incredible actually. Other places, they have it.
+- [01:37:00.480] Israel has it. Other places have it,
+- [01:37:04.150] and the United States should have it too, Tim, right?
+- [01:37:08.190] They should have it too.
+- [01:37:09.480] I want to thank you, but it's a very, very important.
+- [01:37:11.890] This is a very dangerous world. We should have it.
+- [01:37:15.330] We want to be protected,
+- [01:37:16.550] and we're going to protect our citizens like never before.
+- [01:37:20.750] To boost our defense industrial base,
+- [01:37:22.890] we are also going to resurrect
+- [01:37:25.170] the American shipbuilding industry,
+- [01:37:27.490] including commercial shipbuilding
+- [01:37:29.270] and military shipbuilding.
+- [01:37:38.050] For that purpose, I'm announcing tonight
+- [01:37:41.140] that we will create a new office of shipbuilding
+- [01:37:44.010] in the White House and offer special tax incentives
+- [01:37:47.000] to bring this industry home to America where it belongs.
+- [01:37:50.310] We used to make so many ships.
+- [01:37:52.310] We don't make them anymore very much,
+- [01:37:54.840] but we're going to make them very fast, very soon.
+- [01:37:57.980] It will have a huge impact.
+- [01:37:59.420] To further enhance our national security,
+- [01:38:02.370] my administration will be reclaiming the Panama Canal,
+- [01:38:06.910] and we've already started doing it.
+- [01:38:16.520] Just today, a large American company announced
+- [01:38:20.280] they are buying both ports around the Panama Canal,
+- [01:38:25.180] and lots of other things having to do with the Panama Canal,
+- [01:38:28.240] and a couple of other canals.
+- [01:38:30.720] The Panama Canal was built by Americans for Americans,
+- [01:38:35.110] not for others, but others could use it,
+- [01:38:38.930] but it was built at tremendous cost
+- [01:38:40.470] of American blood and treasure.
+- [01:38:42.260] 38,000 workers died building the Panama Canal.
+- [01:38:47.400] They died of malaria.
+- [01:38:48.650] They died of snake bites and mosquitoes,
+- [01:38:51.150] not a nice place to work.
+- [01:38:53.840] They paid them very highly to go there
+- [01:38:55.720] knowing there was a 25% chance that they would die,
+- [01:39:00.390] the most expensive project
+- [01:39:01.900] also that was ever built in our country's history
+- [01:39:05.400] if you bring it up to modern-day costs.
+- [01:39:08.240] It was given away by the Carter administration for $1,
+- [01:39:12.420] but that agreement has been violated very severely.
+- [01:39:15.910] We didn't give it to China, we gave it to Panama,
+- [01:39:19.660] and we're taking it back.
+- [01:39:34.240] We have Marco Rubio in charge. Good luck, Marco.
+- [01:39:39.220] Now, we know who to blame if anything goes wrong.
+- [01:39:44.030] No, Marco has been amazing and he's going to do a great job.
+- [01:39:47.390] Think of it, he got 100 votes.
+- [01:39:52.150] He was approved with, actually, 99,
+- [01:39:54.220] but the 100th was this gentleman,
+- [01:39:57.420] and I feel very certain,
+- [01:39:59.090] so let's assume he got 100 votes.
+- [01:40:01.390] I'm either very, very happy about that
+- [01:40:03.540] or I'm very concerned about it, but he's already proven.
+- [01:40:08.110] I mean, he's a great gentleman. He's respected by everybody,
+- [01:40:10.730] and we appreciate you voting for Marco.
+- [01:40:13.010] He's going to do a fantastic job.
+- [01:40:14.520] Thank you. Thank you. He's doing a great job.
+- [01:40:23.590] Great job. I also have a message tonight
+- [01:40:29.140] for the incredible people of Greenland.
+- [01:40:33.330] We strongly support your right to determine your own future,
+- [01:40:37.970] and if you choose, we welcome you
+- [01:40:39.690] into the United States of America.
+- [01:40:41.500] We need Greenland for national security
+- [01:40:44.850] and even international security.
+- [01:40:46.780] We're working with everybody involved to try and get it,
+- [01:40:50.230] but we need it really for international world security,
+- [01:40:54.260] and I think we're going to get it.
+- [01:40:56.340] One way or the other, we're going to get it.
+- [01:41:00.120] We will keep you safe, we will make you rich,
+- [01:41:03.810] and together, we will take Greenland to heights
+- [01:41:06.680] like you have never thought possible before.
+- [01:41:09.550] It's a very small population,
+- [01:41:11.820] but very, very large piece of land
+- [01:41:14.390] and very, very important for military security.
+- [01:41:17.960] America is, once again, standing strong
+- [01:41:20.020] against the forces of radical Islamic terrorism.
+- [01:41:24.660] Three and a half years ago,
+- [01:41:26.020] Isis terrorists killed 13 American service members
+- [01:41:29.660] and countless others in the Abbey Gate bombing
+- [01:41:32.890] during the disastrous and incompetent withdrawal
+- [01:41:36.240] from Afghanistan.
+- [01:41:38.120] Not that they were withdrawing, it was the way they withdrew,
+- [01:41:42.550] perhaps the most embarrassing moment
+- [01:41:44.470] in the history of our country.
+- [01:41:46.740] Tonight, I am pleased to announce
+- [01:41:48.320] that we have just apprehended
+- [01:41:50.320] the top terrorists responsible for that atrocity,
+- [01:41:54.770] and he is right now on his way here
+- [01:41:56.740] to face the swift sword of American justice.
+- [01:42:23.970] I want to thank especially the government of Pakistan
+- [01:42:27.010] for helping arrest this monster.
+- [01:42:30.460] This was a very momentous day for those 13 families
+- [01:42:33.830] who I actually got to know very well,
+- [01:42:35.860] most of them, whose children were murdered,
+- [01:42:38.870] and the many people that were so badly,
+- [01:42:42.190] over 42 people,
+- [01:42:44.110] so badly injured on that fateful day in Afghanistan.
+- [01:42:47.500] What a horrible day.
+- [01:42:50.200] Such incompetence was shown,
+- [01:42:53.680] that when Putin saw what happened,
+- [01:42:56.080] I guess he said, "Wow, maybe this is my chance."
+- [01:42:58.870] That's how bad it was.
+- [01:43:00.820] Should have never happened, grossly incompetent people.
+- [01:43:04.800] I spoke to many of the parents and loved ones,
+- [01:43:08.640] and they're all in our hearts tonight.
+- [01:43:12.840] Just spoke to them on the phone. We had a big call.
+- [01:43:16.140] Every one of them called and everybody was on the line,
+- [01:43:20.260] and they did nothing but cry with happiness.
+- [01:43:23.300] They were very happy,
+- [01:43:24.920] as happy as you can be under those circumstances.
+- [01:43:27.600] Their child, brother, sister, son, daughter
+- [01:43:33.540] was killed for no reason, whatsoever.
+- [01:43:37.900] In the Middle East,
+- [01:43:39.150] we're bringing back our hostages from Gaza.
+- [01:43:43.210] In my first term, we achieved one of the most groundbreaking
+- [01:43:46.360] peace agreements in generations, the Abraham Accords,
+- [01:44:08.570] and now we're going to build on that foundation
+- [01:44:11.400] to create a more peaceful and prosperous future
+- [01:44:14.380] for the entire region.
+- [01:44:15.580] A lot of things are happening in the Middle East.
+- [01:44:17.350] People have been talking about that so much lately
+- [01:44:20.500] with everything going on with Ukraine and Russia,
+- [01:44:23.630] but a lot of things are happening in the Middle East.
+- [01:44:26.200] Rough neighborhood, actually.
+- [01:44:28.470] I'm also working tirelessly
+- [01:44:29.960] to end the savage conflict in Ukraine.
+- [01:44:33.390] Millions of Ukrainians and Russians
+- [01:44:35.320] have been needlessly killed or wounded
+- [01:44:37.960] in this horrific and brutal conflict with no end in sight.
+- [01:44:42.980] The United States has sent hundreds of billions of dollars
+- [01:44:46.880] to support Ukraine's defense with no security,
+- [01:44:53.040] with no anything.
+- [01:45:07.680] Do you want to keep it going for another five years?
+- [01:45:11.080] Yeah, yeah. You would say Pocahontas says yes.
+- [01:45:25.860] 2, 000 people are being killed every single week.
+- [01:45:29.780] More than that, they're Russian young people,
+- [01:45:33.550] they're Ukrainian young people.
+- [01:45:35.080] They're not Americans, but I wanted to stop.
+- [01:45:38.910] Meanwhile, Europe has sadly spent more money
+- [01:45:41.510] buying Russian oil and gas
+- [01:45:43.770] than they have spent on defending Ukraine by far.
+- [01:45:47.230] Think of that.
+- [01:45:48.690] They've spent more buying Russian oil and gas
+- [01:45:51.710] than they have defending,
+- [01:45:54.210] and we've spent perhaps $350 billion,
+- [01:45:58.610] like taking candy from a baby. That's what happened.
+- [01:46:02.220] They've spent $100 billion dollars.
+- [01:46:05.180] What a difference that is.
+- [01:46:06.730] We have an notion separating us and they don't,
+- [01:46:12.130] but we're getting along very well with them
+- [01:46:14.000] and lots of good things are happening.
+- [01:46:16.750] Biden has authorized more money in this fight than Europe
+- [01:46:21.410] has spent by billions and billions of dollars.
+- [01:46:25.630] It's hard to believe that they wouldn't have stopped it
+- [01:46:27.950] and said at some point, "Come on, let's equalize.
+- [01:46:30.300] You got to be equal to us," but that didn't happen.
+- [01:46:33.650] Earlier today, I received an important letter
+- [01:46:35.910] from President Zelenskyy of Ukraine.
+- [01:46:38.980] The letter reads,
+- [01:46:40.300] "Ukraine is ready to come to the negotiating table
+- [01:46:43.480] as soon as possible to bring lasting peace closer.
+- [01:46:47.820] Nobody wants peace more than the Ukrainians."
+- [01:46:50.040] He said, " My team and I stand ready to work
+- [01:46:53.470] under President Trump's strong leadership
+- [01:46:56.740] to get a peace that lasts.
+- [01:46:59.650] We do really value how much America has done to help
+- [01:47:03.060] Ukraine maintain its sovereignty and independence.
+- [01:47:07.260] Regarding the agreement on minerals and security,
+- [01:47:09.880] Ukraine is ready to sign it at any time
+- [01:47:13.880] that is convenient for you."
+- [01:47:16.170] I appreciate that he sent this letter,
+- [01:47:18.980] just got it a little while ago.
+- [01:47:20.960] Simultaneously, we've had serious discussions with Russia
+- [01:47:25.230] and have received strong signals that they are ready for peace.
+- [01:47:28.560] Wouldn't that be beautiful? Wouldn't that be beautiful?
+- [01:47:44.340] Wouldn't that be beautiful?
+- [01:47:51.550] It's time to stop this madness. It's time to halt the killing.
+- [01:47:56.210] It's time to end the senseless war.
+- [01:47:59.090] If you want to end wars, you have to talk to both sides.
+- [01:48:02.830] Nearly four years ago, amid rising tensions,
+- [01:48:06.520] a history teacher named Marc Fogel
+- [01:48:09.080] was detained in Russia
+- [01:48:11.000] and sentenced to 14 years in a penal colony.
+- [01:48:14.910] Rough stuff. The previous administration
+- [01:48:18.980] barely lifted a finger to help him.
+- [01:48:21.030] They knew he was innocent but they had no idea where to begin.
+- [01:48:25.140] But last summer, I promised his 95-year-old mother,
+- [01:48:28.970] Malphine, that we would bring her boy safely back home.
+- [01:48:35.220] After 22 days in office, I did just that,
+- [01:48:38.650] and they are here tonight.
+- [01:49:21.510] To Mark and his great mom,
+- [01:49:23.140] we are delighted to have you safe and sound and with us.
+- [01:49:28.400] As fate would have it, Marc Fogel was born
+- [01:49:32.140] in a small rural town in Butler, Pennsylvania.
+- [01:49:36.520] Have you heard of it?
+- [01:49:37.950] Where his mother has lived for the past 78 years.
+- [01:49:43.200] I just happened to go there last July 13th for a rally,
+- [01:49:49.120] that was not pleasant,
+- [01:49:52.020] and that is where I met his beautiful mom
+- [01:49:55.850] right before I walked onto that stage.
+- [01:50:00.000] I told her I would not forget what she said about her son,
+- [01:50:04.370] and I never did, did I? Never forgot.
+- [01:50:07.940] Less than 10 minutes later, at that same rally,
+- [01:50:12.870] gunfire rang out and a sick and deranged assassin
+- [01:50:17.310] unloaded eight bullets from his sniper's perch
+- [01:50:20.620] into a crowd of many thousands of people.
+- [01:50:23.870] My life was saved by a fraction of an inch,
+- [01:50:27.300] but some were not so lucky.
+- [01:50:30.850] Corey Comparator was a firefighter,
+- [01:50:34.130] a veteran, a Christian, a husband,
+- [01:50:36.230] a devoted father, and above all, a protector.
+- [01:50:41.760] When the sound of gunshots pierced,
+- [01:50:44.250] the air was a horrible sound,
+- [01:50:46.840] Corey knew instantly what it was and what to do.
+- [01:50:51.440] He threw himself on top of his wife and daughters
+- [01:50:55.220] and shielded them from the bullets with his own body.
+- [01:51:00.350] Corey was hit really hard. You know the story from there.
+- [01:51:05.430] He sacrificed his life to save theirs.
+- [01:51:08.940] Two others, very fine people, were also seriously hit,
+- [01:51:13.720] but thankfully, with the help of two great country doctors,
+- [01:51:19.190] we thought they were gone and they were saved,
+- [01:51:21.050] so those doctors had great talent.
+- [01:51:24.440] We're joined by Corey's wife, Helen,
+- [01:51:28.280] who was his high school sweetheart,
+- [01:51:30.730] and their two beloved daughters, Allyson and Kaylee. Thank you.
+- [01:52:09.690] To Helen, Allyson, and Kaylee, Corey
+- [01:52:12.090] is looking down on his three beautiful ladies right now,
+- [01:52:16.840] and he's cheering you on. He loves you.
+- [01:52:19.780] He's cheering you on.
+- [01:52:22.130] Corey was taken from us much too soon,
+- [01:52:24.520] but his destiny was to leave us all with a shining example
+- [01:52:28.870] of the selfless devotion of a true American patriot.
+- [01:52:33.500] It was love like Corey's that built our country
+- [01:52:36.510] and it's love like Corey's that is going to make
+- [01:52:38.770] our country more majestic than ever before.
+- [01:52:43.220] I believe that my life was saved that day in Butler
+- [01:52:47.230] for a very good reason.
+- [01:52:49.270] I was saved by God to make America great again.
+- [01:52:52.190] I believe that.
+- [01:52:56.330] Thank you. Thank you.
+- [01:53:08.570] Thank you. Thank you very much.
+- [01:53:15.920] From the Patriots of Lexington and Concord,
+- [01:53:19.390] to the heroes of Gettysburg and Normandy,
+- [01:53:22.060] from the Warriors who crossed the Delaware,
+- [01:53:25.160] to the Trailblazers who climbed the Rockies,
+- [01:53:27.860] and from the legends who soared at Kitty Hawk,
+- [01:53:32.150] to the astronauts who touched the moon,
+- [01:53:34.820] Americans have always been the people who defied all odds,
+- [01:53:39.370] transcended all dangers,
+- [01:53:41.420] made the most extraordinary sacrifices,
+- [01:53:43.970] and did whatever it took to defend our children,
+- [01:53:46.840] our country, and our freedom.
+- [01:53:49.550] As we have seen in this chamber tonight,
+- [01:53:52.750] that same strength, faith, love,
+- [01:53:54.750] and spirit is still alive and thriving
+- [01:53:57.490] in the hearts of the American people.
+- [01:54:00.990] Despite the best efforts of those
+- [01:54:02.800] who would try to censor us, silence us,
+- [01:54:05.360] break us, destroy us, Americans are, today,
+- [01:54:08.620] a proud, free sovereign and independent nation
+- [01:54:12.460] that will always be free,
+- [01:54:16.100] and we will fight for it till death.
+- [01:54:19.560] We will never let anything happen to our beloved country,
+- [01:54:24.470] because we are a country of doers,
+- [01:54:26.170] dreamers, fighters, and survivors.
+- [01:54:28.910] Our ancestors crossed a vast ocean,
+- [01:54:31.740] strode into the unknown wilderness,
+- [01:54:34.020] and carved their fortunes from the rock and soil
+- [01:54:37.260] of a perilous and very dangerous frontier.
+- [01:54:42.030] They chased our destiny across a boundless continent.
+- [01:54:46.500] They built the railroads, laid the highways,
+- [01:54:48.850] and graced the world with American marvels,
+- [01:54:51.860] like the Empire State Building, the mighty Hoover Dam,
+- [01:54:56.570] and the towering Golden Gate Bridge.
+- [01:54:59.900] They lit the world with electricity,
+- [01:55:02.640] broke free of the force of gravity,
+- [01:55:05.390] fired up the engines of American industry,
+- [01:55:08.630] vanquished the communists, fascists,
+- [01:55:12.240] and Marxists all over the world,
+- [01:55:14.690] and gave us countless modern wonders
+- [01:55:17.040] sculpted out of iron, glass, and steel.
+- [01:55:20.610] We stand on the shoulders of these pioneers who won
+- [01:55:23.540] and built the modern age,
+- [01:55:26.250] these workers who poured their sweat
+- [01:55:28.460] into the skylines of our cities,
+- [01:55:31.000] these warriors who shed their blood on fields of battle
+- [01:55:34.860] and gave everything they had for our rights and for our freedom.
+- [01:55:40.100] Now, it is our time to take up the righteous cause
+- [01:55:43.070] of American liberty,
+- [01:55:44.920] and it is our turn to take America's destiny
+- [01:55:47.810] into our own hands and begin the most thrilling days
+- [01:55:52.750] in the history of our country.
+- [01:55:54.930] This will be our greatest era.
+- [01:55:57.650] With God's help, over the next four years,
+- [01:55:59.940] we are going to lead this nation even higher,
+- [01:56:03.890] and we are going to forge the freest,
+- [01:56:07.560] most advanced, most dynamic,
+- [01:56:10.140] and most dominant civilization ever to exist
+- [01:56:13.230] on the face of this earth.
+- [01:56:15.550] We are going to create the highest quality of life,
+- [01:56:18.800] build the safest, and wealthiest, and healthiest,
+- [01:56:22.310] and most vital communities anywhere in the world.
+- [01:56:26.740] We are going to conquer the vast frontiers of science,
+- [01:56:30.210] and we are going to lead humanity into space
+- [01:56:33.710] and plant the American flag on the planet Mars
+- [01:56:36.960] and even far beyond.
+- [01:56:58.570] Through it all, we are going to rediscover
+- [01:57:00.920] the unstoppable power of the American spirit,
+- [01:57:05.050] and we are going to renew unlimited promise
+- [01:57:07.860] of the American dream.
+- [01:57:09.800] Every single day, we will stand up
+- [01:57:12.380] and we will fight, fight,
+- [01:57:13.750] fight for the country our citizens believe in and
+- [01:57:16.810] for the country our people deserve.
+- [01:57:43.130] My fellow Americans, get ready for an incredible future,
+- [01:57:46.840] because the golden age of America has only just begun.
+- [01:57:52.710] It will be like nothing that has ever been seen before.
+- [01:57:57.590] Thank you. God bless you and God bless America.

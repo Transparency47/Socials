@@ -1,0 +1,858 @@
+<!-- source: https://www.youtube.com/watch?v=qAfsDtV8iLg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: qAfsDtV8iLg -->
+<!-- date_published: 2025-07-31T18:02:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:19.318597+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, July 31, 2025
+
+- [00:01.150] Karoline Leavitt: Good afternoon, everyone.
+- [00:02.540] The Press: Good afternoon.
+- [00:03.870] Karoline Leavitt: We have a lot of news today,
+- [00:05.170] and I have quite a few announcements for you.
+- [00:07.110] So let's get to it.
+- [00:08.580] First, on behalf of the President and the White House,
+- [00:11.520] we express our deepest condolences
+- [00:13.580] to the family of New York Police Officer Islam,
+- [00:16.590] who made the ultimate sacrifice
+- [00:18.210] in defense of his fellow New Yorkers.
+- [00:20.680] As the funeral services are held in New York City today,
+- [00:23.920] everyone at the White house is keeping the officer's family,
+- [00:27.360] friends, and fellow NYPD law enforcement officers
+- [00:30.920] in our thoughts and prayers.
+- [00:32.730] The President has always and will always proudly stand
+- [00:36.060] with our men and women in blue.
+- [00:38.680] May God bless Officer Islam and the other individuals
+- [00:41.530] who were tragically killed in this senseless act of violence.
+- [00:45.900] On other news, President Trump's working visit to Scotland
+- [00:48.530] was a huge success. In less than 48 hours,
+- [00:51.670] President Donald Trump brokered the biggest,
+- [00:53.790] most impactful trade deal in history.
+- [00:56.130] And prevented a war in Asia for the second time
+- [00:58.860] since he took office. We have never had a president
+- [01:01.980] who wields the full power of the United States
+- [01:04.480] to negotiate good deals for our country
+- [01:07.080] and its people like President Trump.
+- [01:09.560] This is what maximum leverage looks like.
+- [01:12.630] On the peace front, President Trump helped
+- [01:14.520] deliver an immediate and unconditional ceasefire
+- [01:17.710] between Thailand and Cambodia.
+- [01:19.960] The two countries were engaged in a deadly conflict
+- [01:22.770] that had displaced more than 300,000 people
+- [01:26.030] until President Trump stepped in to put an end to it.
+- [01:29.370] The President spoke directly on the phone
+- [01:31.190] with the acting Prime Minister of Thailand
+- [01:33.200] and the Prime Minister of Cambodia
+- [01:35.290] to inform both leaders
+- [01:36.760] that unless they brought their conflict to an end,
+- [01:39.160] there would be no trade discussions
+- [01:40.810] or agreements with the United States.
+- [01:43.630] Almost immediately afterward,
+- [01:45.270] a peace was brokered that will save thousands of lives
+- [01:48.150] and allowed for trade negotiations
+- [01:49.830] with these countries to resume, and they have.
+- [01:52.900] The President has now ended conflicts
+- [01:54.650] between Thailand and Cambodia, Israel and Iran, Rwanda
+- [01:58.730] and the Democratic Republic of the Congo, India
+- [02:01.170] and Pakistan, Serbia and Kosovo, and Egypt and Ethiopia.
+- [02:05.670] This means President Trump has brokered, on average,
+- [02:08.270] about one peace deal or ceasefire per month
+- [02:11.210] during his six months in office.
+- [02:13.690] It's well past time that President Trump
+- [02:15.660] was awarded the Nobel Peace Prize.
+- [02:18.220] I know the topic of Israel is on everyone's mind.
+- [02:21.080] I have an update from Special Envoy Steve Witkoff,
+- [02:23.880] who I got off the phone with this morning.
+- [02:26.270] Special Envoy Witkooff and Ambassador Huckabee
+- [02:28.480] had a very productive meeting with Prime Minister Netanyahu
+- [02:31.670] and other officials today in Israel
+- [02:33.530] on the topic delivering much-needed food
+- [02:36.240] and aid to Gaza.
+- [02:38.160] President Trump is a humanitarian with a big heart,
+- [02:41.350] and that's why he sent Special Envoy Witkoaff to the region
+- [02:44.910] in an effort to save lives and end this crisis.
+- [02:48.460] Tomorrow, Special Envoy Witkoff and Ambassador Huckabee
+- [02:51.530] will be traveling into Gaza
+- [02:53.590] to inspect the current distribution sites
+- [02:56.030] and secure a plan to deliver more food
+- [02:58.540] and meet with local Gazans to hear first-hand
+- [03:01.340] about this dire situation on the ground.
+- [03:03.970] The Special Envoy and the Ambassador
+- [03:05.820] will brief the President immediately after their visit
+- [03:08.400] to approve a final plan for food
+- [03:10.820] and aid distribution into the region.
+- [03:13.010] And we will provide more details for all of you
+- [03:15.030] once that plan is approved and agreed on
+- [03:17.240] by the President of the United States.
+- [03:19.430] On the trade front, the President secured
+- [03:21.210] a historic trade agreement with the European Union
+- [03:23.660] that puts America first and fundamentally strengthens
+- [03:26.870] the economic relationship
+- [03:28.480] between the two largest economies in the world.
+- [03:31.400] This deal delivers on two of President Trump's core
+- [03:34.140] promises on trade,
+- [03:35.600] supercharging America's manufacturing capacity
+- [03:38.580] and opening up foreign market access to American businesses.
+- [03:42.310] The deal guarantees that American businesses
+- [03:44.610] will have unprecedented levels of access
+- [03:47.400] to the European Union markets
+- [03:48.960] to export our American-made goods.
+- [03:52.120] Also, as part of this agreement,
+- [03:53.860] the EU will purchase $750 billion in U.S. Energy
+- [03:58.960] to strengthen our energy dominance,
+- [04:01.140] reduce European reliance on adversarial sources,
+- [04:04.290] and narrow our trade deficit with the EU.
+- [04:07.310] The EU will also make new investments of $60 billion
+- [04:11.390] in the United States.
+- [04:12.670] In addition to the more than $100 billion
+- [04:15.030] the EU companies already invest in the US every year.
+- [04:18.640] All of these massive purchases and investments
+- [04:21.100] will happen by the end of 2028.
+- [04:24.100] What we are watching is President Trump
+- [04:25.940] rebuilding the greatest economy in the history of the world
+- [04:30.130] and simultaneously
+- [04:31.330] proving the so-called economic experts wrong at every turn.
+- [04:35.730] Media pundits said a trade deal with the EU,
+- [04:38.140] this monumental and beneficial to America would be impossible.
+- [04:41.900] But President Trump made it happen.
+- [04:43.900] The so-called economic experts repeatedly said
+- [04:46.730] that the American economy would be in a recession this summer.
+- [04:49.840] Well, summer is here. It's almost over.
+- [04:52.270] And that recession does not exist.
+- [04:53.810] Yesterday, in fact, real GDP growth in the second quarter
+- [04:57.360] increased at a 3.0% annual rate
+- [05:01.450] significantly above expectations.
+- [05:04.190] President Trump's America First
+- [05:05.850] policies are driving economic growth,
+- [05:08.640] as he always said they would.
+- [05:10.440] And this growth is being driven by the private sector,
+- [05:13.310] not the government.
+- [05:14.570] Federal government spending fell for a second straight quarter,
+- [05:17.620] while real business fixed investment rose
+- [05:20.240] by nearly 2% following its first quarter surge.
+- [05:23.930] President Trump is right-sizing government spending,
+- [05:26.450] reversing the damage done by the Biden administration
+- [05:29.260] and allowing the private-sector to flourish.
+- [05:32.810] The same so-called experts
+- [05:34.260] claimed that President Trump's tariffs
+- [05:35.900] would spike inflation and hurt American consumers.
+- [05:39.070] But consumer spending growth just accelerated
+- [05:41.640] and inflation remains right on track.
+- [05:44.020] For the past five straight months,
+- [05:45.950] core inflation has come in below market expectation
+- [05:49.330] and remains in line with the Fed's 2% inflation target.
+- [05:53.640] Meanwhile, customs and tariff revenues have already totaled
+- [05:56.520] more than $150 billion
+- [05:58.780] since President Trump took office,
+- [06:00.630] leading to the first June budget surplus in nearly a decade.
+- [06:05.090] Those revenues will skyrocket even further starting tomorrow,
+- [06:08.480] when new reciprocal tariff rates take effect.
+- [06:11.470] President Trump is restoring America's economic sovereignty
+- [06:14.950] by reducing our reliance on foreign countries,
+- [06:17.840] boosting investment in the U.S.
+- [06:19.450] to the tune of trillions of dollars,
+- [06:21.720] and creating hundreds of thousands
+- [06:23.560] of high-paying jobs for the American people.
+- [06:27.450] With America finally put first on trade
+- [06:29.600] and the largest middle-class tax cuts in history
+- [06:31.910] and other pro-growth provisions of the One Big Beautiful bill
+- [06:35.370] beginning to take effect, the American economy will boom
+- [06:38.700] like never before over the course of the next three
+- [06:41.590] and a half years thanks to the President's vision.
+- [06:44.670] Finally, as you all know,
+- [06:46.200] the President signed an executive
+- [06:47.500] order earlier this year to solve the problem
+- [06:50.030] of exorbitant pharmaceutical pricing.
+- [06:52.720] According to recent data,
+- [06:53.960] the prices that Americans have been paying
+- [06:55.960] for brand-name drugs are more than three times
+- [06:58.520] the price other similarly developed nations pay.
+- [07:03.160] The president is determined to solve this problem
+- [07:05.260] and took further action today.
+- [07:07.320] He has signed 17 letters to pharmaceutical company CEOs,
+- [07:11.410] and I would like to read you one of these letters
+- [07:13.630] to the CEO of Eli Lilly.
+- [07:15.730] All of these letter will be provided
+- [07:17.270] to you following this briefing. This is to the CEO of Eli Lilly
+- [07:21.420] from the President of the United States.
+- [07:23.490] On May 12th, 2025, I signed an executive order
+- [07:27.380] delivering most favored nation prescription
+- [07:29.390] drug pricing to American patients
+- [07:31.570] to stop global fleet freeloading and guarantee
+- [07:34.130] that Americans pay the same prices enjoyed
+- [07:36.890] by other developed nations.
+- [07:38.720] Right now, brand-name drugs in the United States
+- [07:41.660] are up to three times higher on average
+- [07:44.570] than anywhere else for the identical medicines.
+- [07:47.540] This unacceptable burden on hardworking American families
+- [07:50.640] ends with my administration.
+- [07:53.260] Most proposals the Trump administration has received
+- [07:55.730] to resolve this critical issue promised more of the same,
+- [07:58.940] shifting blame in requesting policy changes
+- [08:01.650] that would result in billions of dollars in handouts to industry.
+- [08:05.610] Moving forward, the only thing I will accept from drug
+- [08:09.030] manufacturers is a commitment that provides
+- [08:11.350] American families immediate relief
+- [08:13.890] from the vastly inflated drug prices
+- [08:16.430] and an end to the free ride of American innovation by European
+- [08:20.300] and other developed nations.
+- [08:22.190] Accordingly, I am calling on Eli Lilly and company
+- [08:24.980] and every manufacturer doing business and our great country
+- [08:28.070] to take the following actions within the next 60 days.
+- [08:31.430] Extend the most favored nation pricing to Medicaid,
+- [08:34.450] guarantee most favored nation
+- [08:35.990] pricing for newly launched drugs,
+- [08:38.130] return increased revenues abroad to American patients
+- [08:41.300] and taxpayers,
+- [08:42.560] provide for direct purchasing at most favored nation.
+- [08:45.680] Pricing President's team,
+- [08:47.790] including Secretary Kennedy and Administrator Oz
+- [08:50.330] stand ready to implement these terms.
+- [08:52.550] The president expects to further engage with them immediately
+- [08:55.710] in good faith to deliver relief for American families.
+- [08:59.460] Make no mistake, a collaborative effort
+- [09:01.650] towards achieving global pricing parity
+- [09:03.980] would be the most effective path for companies,
+- [09:06.050] the government, and American patients.
+- [09:08.390] But if you refuse to step up,
+- [09:10.240] we will deploy every tool in our arsenal
+- [09:13.120] to protect American families
+- [09:14.620] from continued abusive drug pricing practices.
+- [09:18.640] Americans are demanding lower drug prices,
+- [09:20.960] and they need them today.
+- [09:22.670] Other nations have been freeloading on U.S. Innovation
+- [09:25.410] for far too long, and it time they pay their fair share.
+- [09:29.050] I look forward to your binding commitments
+- [09:30.750] to each of these goals by September 29th, 2025.
+- [09:34.370] And my team stands ready
+- [09:35.680] to assist with implementation questions.
+- [09:37.970] Thank you for your immediate attention
+- [09:39.520] to this vital national priority.
+- [09:41.730] Signed, President Donald J. Trump, again,
+- [09:44.500] to the CEO of Eli Lilly.
+- [09:46.440] This letter, in its form,
+- [09:47.880] has been designed for each of the 17 major drug
+- [09:52.230] and pharmaceutical companies in the United States,
+- [09:54.960] and we're happy to provide you the full list.
+- [09:56.990] And I believe you will see all 17 letters popping on
+- [09:59.280] Truth Social very shortly. So you can look out for those,
+- [10:02.100] and I'm happy to take any further questions.
+- [10:04.300] Before we get to questions, I do have one other announcement
+- [10:07.530] from the White House and from the President.
+- [10:09.390] We are proud to announce that the construction
+- [10:11.790] of the new White House ballroom will begin.
+- [10:14.670] For 150 years,
+- [10:16.390] Presidents, administrations, and White House staff
+- [10:18.890] have longed for a large event space
+- [10:21.080] on the White house complex
+- [10:22.500] that can hold substantially more guests than currently allowed.
+- [10:25.800] President Trump has expressed his commitment
+- [10:27.880] to solving this problem on behalf of future
+- [10:30.180] administrations and the American people.
+- [10:32.770] The White House is one of the most beautiful
+- [10:35.010] and historic buildings in the world.
+- [10:36.520] Yet the White House
+- [10:37.830] has currently unable to host major functions
+- [10:40.550] honoring world leaders and other countries
+- [10:42.910] without having to install a large and unsightly tent
+- [10:46.200] approximately 100 yards
+- [10:47.860] away from the main building's entrance.
+- [10:50.280] The White House State Ballroom will be a much-needed
+- [10:52.880] an exquisite addition of approximately 90,000 total
+- [10:56.280] square feet of innately designed and carefully crafted space
+- [11:00.350] with a seated capacity of 650 people,
+- [11:03.940] which is a significant increase
+- [11:05.400] from the 200-person seated capacity
+- [11:08.300] in the East Room of the White House.
+- [11:10.290] In recent weeks, President Trump has held several meetings
+- [11:13.160] with members of the white house staff,
+- [11:15.170] the national park service, the white house military office
+- [11:18.740] and the United State Secret Service
+- [11:20.430] to discuss design features and planning.
+- [11:23.240] President Trump has chosen McCreery Architects
+- [11:25.940] as the lead architect, which is well known
+- [11:28.230] for their classical architectural design
+- [11:30.530] and based right here in our nation's capital.
+- [11:33.290] The construction team will be headed by Clark Construction,
+- [11:36.430] and the engineering team will be led by ACOM.
+- [11:39.720] The project will begin in September 2025,
+- [11:42.890] and it is expected to be completed long
+- [11:46.090] before the end of President Trump's term.
+- [11:48.550] President Trump and other donors have generously committed
+- [11:51.530] to donating the funds necessary
+- [11:53.380] to build this approximately $200 million structure.
+- [11:57.500] The United States Secret Service will provide
+- [12:00.100] the necessary security enhancements and modifications.
+- [12:03.820] The White House ballroom will be substantially separated
+- [12:06.280] from the main building of the White House,
+- [12:08.080] but at the same time, its theme and architectural heritage
+- [12:11.610] will be almost identical.
+- [12:13.250] The site of the new ballroom, will be where the small,
+- [12:15.770] heavily changed and reconstructed East
+- [12:17.820] Wing currently sits.
+- [12:19.290] The East Wing was constructed in 1902
+- [12:21.970] and has been renovated and changed many times
+- [12:24.260] with a second story added in 1942.
+- [12:27.620] White House Chief of Staff Susie Wiles
+- [12:30.090] has provided the following statement.
+- [12:32.060] President Trump is a builder at heart
+- [12:33.870] and has an extraordinary eye for detail.
+- [12:36.250] The President and the Trump White House
+- [12:37.830] are fully committed to working
+- [12:39.440] with the appropriate organizations
+- [12:41.330] to preserve the special history of the White House
+- [12:44.010] while building a beautiful ballroom
+- [12:45.900] that can be enjoyed by future administrations
+- [12:48.720] and generations of Americans to come.
+- [12:51.030] In the White House, we will continue to provide
+- [12:53.000] the American public and all of you in the press
+- [12:56.010] with updates on this project at whitehouse.gov/visit
+- [13:00.120] and if you go there shortly you will be able to see renderings
+- [13:02.820] and visuals of what this ballroom
+- [13:04.350] will look like both the exterior and the interior.
+- [13:06.970] I have provided some photos for all of you in this room today.
+- [13:09.950] This is the interior of the ballroom space.
+- [13:12.610] It's quite beautiful.
+- [13:14.510] And then this is the exterior of the ballroom space.
+- [13:17.540] As you can see, it will come off of the executive mansion
+- [13:20.310] as it sits today,
+- [13:21.610] and the east wing will be modernized and renovated.
+- [13:24.950] We're happy to answer any further questions on that,
+- [13:26.930] Jennifer. [laughter]
+- [13:28.170] Since you're so eager, I will go to you.
+- [13:30.020] But first, as always, I want to start with our new media seat,
+- [13:33.330] Ben Weingarten. Why don't you go ahead, Ben?
+- [13:35.500] The Press: Thank you. In light of the release,
+- [13:39.110] the declassification of the annex
+- [13:41.750] to the Durham report today,
+- [13:43.790] beyond any potential prosecutions,
+- [13:46.330] the outcomes of which will likely be uncertain,
+- [13:49.380] what does the President believe justice for Russiagate
+- [13:52.410] ought to entail, might include restitution
+- [13:55.090] for those whose lives were upended
+- [13:56.610] as a consequence of Russiogate
+- [13:58.520] and perhaps a major reorganization
+- [14:00.570] of the national security apparatus?
+- [14:02.510] Karoline Leavitt: Well, I think a major organization
+- [14:04.530] of the national security apparatus,
+- [14:05.880] at least here at the White House
+- [14:07.130] within the National Security Council, has indeed taken place.
+- [14:10.180] And the President entrusts his current
+- [14:12.480] CIA Director John Ratcliffe
+- [14:14.110] and our ODNI Director Tulsi Gabbard
+- [14:16.320] to make the necessary changes
+- [14:17.710] to ensure classified intelligence,
+- [14:20.040] especially that could implement or hurt
+- [14:24.150] the national safety of our country,
+- [14:25.540] does not make its way into the hands of irresponsible actors
+- [14:28.660] who want to politicize that intelligence for their own end.
+- [14:31.440] Since you brought up the declassification report
+- [14:34.590] that was put out by Senator Grassley today,
+- [14:36.770] I'm glad you brought it up because this should be a story
+- [14:39.130] every outlet in this room should be covering.
+- [14:41.340] This is further evidence that Hillary Clinton
+- [14:43.510] approved the Russia hoax against President Trump.
+- [14:46.160] Her campaign financed it. Again, she approved it.
+- [14:49.290] And the FBI and the CIA were both weaponized to,
+- [14:52.300] as our director of CIA has said,
+- [14:54.720] accelerate this hoax against then candidate
+- [14:58.050] and former President Trump.
+- [14:59.800] To answer the heart of your question,
+- [15:01.170] the president wants to see justice serves,
+- [15:03.390] and he trusts the attorney general
+- [15:04.700] and the Department of Justice to implement that justice
+- [15:08.130] and hold these people accountable.
+- [15:09.510] The Press: One more question briefly,
+- [15:10.740] if I may, on a totally different topic.
+- [15:13.170] There's been legislation reintroduced
+- [15:15.580] in the House and Senate
+- [15:17.110] on designating the Muslim Brotherhood
+- [15:18.830] as a terrorist organization.
+- [15:20.160] The Muslim Brotherhood is considered by many
+- [15:21.560] to be the fountainhead of Sunni Islamic Supremacism,
+- [15:25.380] from which Hamas and other groups have spawned,
+- [15:27.920] with a nexus to domestic organizations as well.
+- [15:30.930] Does the President support designating Muslim Brother hood
+- [15:33.160] as a terrorists organization?
+- [15:34.430] Karoline Leavitt: Frankly, I'm not sure
+- [15:35.630] because I haven't talked to him and I would never want to get
+- [15:37.470] ahead of the National Security Council on specific designations
+- [15:40.870] it sounds like something this administration would support
+- [15:43.170] but we can get a firm answer for you.
+- [15:44.840] How's that? The Press: Thank you.
+- [15:46.100] Karoline Leavitt: Thanks for being here
+- [15:47.320] Jennifer. Go ahead
+- [15:48.930] The Press: How much of the East Swing will be torn down?
+- [15:50.510] The entire East swing or just parts of it?
+- [15:52.260] Karoline Leavitt: So the E-Swing is going to be modernized.
+- [15:54.380] The necessary construction will take place.
+- [15:56.880] And for those who are housed in the East Swing,
+- [15:59.300] including the Office of the First Lady,
+- [16:01.300] the White House Military Office,
+- [16:02.650] the White house visitors offices,
+- [16:04.330] those offices will be temporarily relocated
+- [16:06.680] while the East swing is being modernized
+- [16:08.830] The Press: And then on Israel-Gaza,
+- [16:10.650] there are some reports that negotiations
+- [16:13.330] with Hamas might not be continuing.
+- [16:16.220] Did you get any updates from Steve Witkoff on that?
+- [16:18.270] Karoline Leavitt: I did.
+- [16:19.490] Special Envoy Wyckoff is actively talking
+- [16:21.800] with our counterparts in Israel about that,
+- [16:23.980] and he wants to give some grace to the President
+- [16:26.680] so he can fully brief the President
+- [16:28.470] on what he's learning on the ground
+- [16:29.750] in both Israel and Gaza.
+- [16:31.630] But the President put out a very strong statement
+- [16:33.840] on Truth Social this morning, which I'm sure you saw,
+- [16:36.780] and he said the quickest way to end this entire conflict,
+- [16:40.250] the humanitarian crisis that we've seen,
+- [16:43.300] the crisis in Israel that of course started on October 7th
+- [16:46.280] when Hamas brutally kidnapped and raped innocent Israelis
+- [16:49.770] that that terrible terrorist attack,
+- [16:52.000] is for Hamas to surrender to release all of the hostages
+- [16:55.650] and to end this conflict
+- [16:57.130] and that's what the president wants to see.
+- [16:58.580] He's made that very clear
+- [16:59.980] but the special envoy will be in Gaza tomorrow
+- [17:02.040] as I shared with you previously. Josh.
+- [17:03.910] The Press: Can you give us a little more clarity
+- [17:05.440] on the tariff timing?
+- [17:06.650] You said that the reciprocals will take effect tomorrow.
+- [17:09.560] Does that include the new auto rates,
+- [17:11.790] for instance, on Japan, Korea, the EU?
+- [17:13.740] Is this all coming effective tomorrow?
+- [17:18.240] Karoline Leavitt: Some of the countries you just mentioned,
+- [17:19.810] Japan, South Korea,
+- [17:21.140] they have bespoke trade deals that the president cut,
+- [17:24.300] which, just to backtrack for a second, Josh,
+- [17:26.960] we promised that the President would negotiate with countries
+- [17:30.740] all around the world to cut tailor-made trade deals
+- [17:33.970] depending on those countries' challenges,
+- [17:35.880] how badly they've ripped off the United States of America
+- [17:38.660] and our manufacturing industry and our workforce in the past.
+- [17:42.830] And he has done that of the our 18 major trading partners,
+- [17:46.580] two-thirds of those trading partners have a deal.
+- [17:49.190] We've sent out 17 letters to countries around the world
+- [17:52.610] and the rest of those countries
+- [17:54.260] that either do not have a deal or have a letter,
+- [17:56.650] they will be hearing from this administration
+- [17:58.420] by the midnight deadline tonight.
+- [18:00.030] So yes tomorrow August 1st the reciprocal rates
+- [18:02.990] will be going into effect.
+- [18:04.670] If more deals are cut between now at midnight,
+- [18:07.400] I will never count out the president.
+- [18:09.040] You've seen him do it before.
+- [18:10.280] He cut three deals in one day very recently.
+- [18:13.390] So we'll see what happens.
+- [18:14.670] I do know foreign leaders are ringing his phone
+- [18:17.020] realizing this deadline is a real thing for them tomorrow
+- [18:19.600] and they're bringing offers to the table.
+- [18:21.170] The Press: We're reporting that the President
+- [18:22.860] will meet David Solomon of Goldman Sachs today.
+- [18:24.780] Can you say what they'll discuss?
+- [18:26.140] Anything in that meeting?
+- [18:27.390] Karoline Leavitt: I won't discuss
+- [18:28.630] the president's private meetings from this podium
+- [18:30.420] and it hasn't taken place yet
+- [18:31.740] unless he gives me liberty to do so.
+- [18:33.180] The Press: And finally, have you talked to the President
+- [18:35.630] about his position on the stock trading ban bill for Congress?
+- [18:39.390] He obviously had pretty loaded comments about Senator Hawley.
+- [18:42.670] There's some reporting that he's since spoken.
+- [18:44.940] What is his position about the current status of that bill?
+- [18:46.970] Karoline Leavitt: The President has spoken to Senator Hawley,
+- [18:49.090] who called him, and the President took that call.
+- [18:51.640] As the President said in the Roosevelt Room yesterday,
+- [18:53.770] conceptually, he of course supports the idea of ensuring
+- [18:57.440] that members of Congress and United States senators
+- [19:01.090] who are here for public service cannot enrich themselves.
+- [19:04.230] And the reason that this idea to put a ban on stock trading
+- [19:08.510] for members of congress is even a thing
+- [19:10.740] is because of Nancy Pelosi.
+- [19:12.840] I mean, she is rightfully criticized because she makes,
+- [19:16.280] I think $174,000 a year,
+- [19:19.610] yet she has a net worth of approximately $413 million.
+- [19:23.240] In 2024, Nancy Pelosi's stock portfolio,
+- [19:26.780] this was a fascinating statistic to me,
+- [19:29.250] grew 70% in one year in 2024.
+- [19:32.750] And her portfolio outperformed every single large hedge fund
+- [19:37.140] in that same year and even more than doubled
+- [19:39.320] the returns of Warren Buffett's Berkshire Hathaway.
+- [19:42.730] The President stands with the American people on this.
+- [19:44.670] He doesn't want to see people like Nancy Pelosi
+- [19:46.990] enriching themselves off of public service
+- [19:48.980] and ripping off their constituents in the process.
+- [19:51.180] As for the mechanics of the legislation
+- [19:52.790] and how it will move forward, the White House continues to be
+- [19:55.090] in discussions with our friends on Capitol Hill.
+- [19:57.460] Emily, in a new seat today.
+- [19:59.290] The Press: I wanted to ask about this report
+- [20:01.510] that the president wants to host a G20 meeting at Trump-Dorel.
+- [20:05.520] How is he going to do that considering all the preparations
+- [20:07.840] that have been going on in South Africa?
+- [20:09.350] And also, would that be seen as his businesses
+- [20:12.460] possibly profiting from hosting this kind of meeting?
+- [20:15.840] Karoline Leavitt: I would reject that premise entirely.
+- [20:18.480] We have announcements and details forthcoming on the G20,
+- [20:21.420] but my understanding is no firm announcement
+- [20:23.630] is ready to be made at this time.
+- [20:24.890] I did see the report,
+- [20:26.110] but we're not in a place to confirm it just yet.
+- [20:28.310] The Press: Just on the tariffs,
+- [20:30.210] what are the logistics for imposing those?
+- [20:31.720] Does the President have to sign an executive order tonight?
+- [20:33.930] What's the timing?
+- [20:35.170] Karoline Leavitt: Yes, and he will be signing
+- [20:36.430] an executive order
+- [20:37.630] at some point this afternoon or later this evening.
+- [20:39.920] And as always, we'll keep you posted when that happens
+- [20:42.020] and it will be released from our office.
+- [20:43.500] The Press: Are there some of these countries that have had,
+- [20:45.820] have they all had contact with U.S.
+- [20:47.390] Officials, or are there some countries
+- [20:48.820] that are going to get letters that have no opportunity
+- [20:50.790] to negotiate with the United States?
+- [20:52.450] Karoline Leavitt: Well, there's a lot of countries
+- [20:53.660] that I know have reached out.
+- [20:54.860] I believe it's upwards of 200 countries around the world
+- [20:57.630] have reached down to the trade and tariff team.
+- [21:00.210] Of course, as I said previously and the President said,
+- [21:02.830] we're going to prioritize our key trading partners,
+- [21:05.180] which we have done, like I said, of the 18.
+- [21:07.730] Two-thirds of those we have cut these tailor-made deals with.
+- [21:11.610] But I do know that the trade team
+- [21:13.300] has been working around the clock
+- [21:14.710] to try to be in correspondence
+- [21:17.510] with as many countries as possible.
+- [21:19.140] But if they haven't heard from us yet,
+- [21:20.720] they will in the form of a letter
+- [21:22.820] or an executive order by midnight tonight.
+- [21:25.800] We'll go to the back.
+- [21:27.050] Sure, go ahead. In the back left. Yes.
+- [21:28.660] The Press: Thank you. Thank you very much.
+- [21:30.670] I have a question to ask about the –
+- [21:32.170] Karoline Leavitt: [inaudible] you can go next.
+- [21:33.550] The Press: U. S.
+- [21:34.750] and South Korea tariff negotiations.
+- [21:37.370] At the tariff negotiation between South Korea
+- [21:40.970] and the United States, co-coordinated yesterday,
+- [21:45.040] President Trump stated on his SNS,
+- [21:48.840] true social, that he would announce
+- [21:51.780] the specific details of the investment in the United State
+- [21:57.530] at the South Korea-United States Summit in two weeks.
+- [22:02.320] My question is, is this time negotiation of final agreement
+- [22:07.630] or is further negotiation necessary?
+- [22:11.820] Karoline Leavitt: Well, yes, as you know,
+- [22:13.090] the President met with representatives
+- [22:15.810] of the Republic of South Korea
+- [22:17.200] here at the White House yesterday,
+- [22:18.880] and they did, in fact, reach a deal.
+- [22:21.070] And South Korea will pay a 15 percent tariff rate,
+- [22:23.860] including 15 percent on autos,
+- [22:26.000] while providing historic market access
+- [22:27.850] to American goods like autos and rice.
+- [22:30.490] Korea will purchase $100 billion in American energy by 2028.
+- [22:34.900] And the centerpiece of this deal
+- [22:36.440] is that South Korea has agreed to invest $350 billion
+- [22:40.890] at the President's direction to revitalize American industry.
+- [22:44.250] 90% of those profits will go to the United States government
+- [22:47.600] to help pay down our debt
+- [22:48.910] and for other matters at the president's choosing.
+- [22:50.900] So it was a very successful meeting yesterday.
+- [22:53.940] The Press: When it's set up further the U.S.-South Korea
+- [22:57.620] Summit [inaudible].
+- [22:58.820] Karoline Leavitt: I'll get you something on that.
+- [23:00.180] I don't have it at my fingertips, okay?
+- [23:01.430] Amanda.
+- [23:02.650] The Press: Thank you, Karoline.
+- [23:03.910] There are a number of congressional Republicans
+- [23:06.610] who have raised the alarm about the fact
+- [23:08.660] that roughly 80% of pharmaceuticals
+- [23:11.450] are either manufactured or their precursors
+- [23:14.290] are manufactured in either China or India.
+- [23:17.220] There are some pieces of legislation,
+- [23:19.010] some recommendations, which include either on-shoring,
+- [23:22.470] near-shoring or friend-shoring, those components of that.
+- [23:25.620] Do you know if the President intends
+- [23:27.000] to throw the weight of the executive behind that?
+- [23:29.110] Karoline Leavitt: I don't have any updates for you
+- [23:30.460] at this time.
+- [23:31.690] I do have an update on our EU trade deal.
+- [23:34.680] I stand corrected. It's not $60 billion in investments,
+- [23:37.150] it's $600 billion in investment. I want to make that very clear.
+- [23:41.470] And I personally watched the President behind closed doors
+- [23:44.230] with the European President in Scotland
+- [23:46.980] negotiating this deal.
+- [23:48.840] And he got the most juice out of that squeeze that he could,
+- [23:52.580] and he was constantly looking out for America's interests.
+- [23:55.130] So I just wanted to clarify that one point. Deanna.
+- [23:56.960] The Press: Thanks Karoline.
+- [23:58.250] For the countries that don't have a deal yet,
+- [24:00.500] should we be looking at the April 2nd chart at all,
+- [24:04.870] or is he negotiating and talking about having a set tariff rate,
+- [24:08.850] you know, 10 percent, 20 percent?
+- [24:11.920] Karoline Leavitt: Those discussions are taking place
+- [24:13.340] with the trade team today,
+- [24:14.550] and again, we'll provide further guidance
+- [24:16.480] with that executive order once it is signed,
+- [24:18.610] and the answer to that question will be in that executive
+- [24:20.510] The Press:
+- [24:21.740] Is he looking to provide any more extensions today
+- [24:24.210] after you know his phone call with Mexico's
+- [24:26.250] or any other conversations like that.
+- [24:29.160] Karoline Leavitt: I do know that other foreign leaders
+- [24:30.670] around the world have reached out,
+- [24:32.380] and if the President decides to share the conclusions
+- [24:35.430] of those calls with all of you, he will do so himself.
+- [24:38.010] But I do want to reiterate what the President said about Mexico.
+- [24:40.430] Mexico is still paying tariffs.
+- [24:42.360] They're paying a 25 percent tariff on fentanyl,
+- [24:44.870] 25 percent on cars,
+- [24:46.590] a 50 percent tariff on steel, aluminum, and copper.
+- [24:49.970] And additionally, Mexico has agreed
+- [24:52.000] to immediately terminate its non-tariff trade barriers,
+- [24:55.240] of which there are many. And as the President said,
+- [24:57.920] we will continue to talk to Mexico over the next 90 days
+- [25:01.090] with the goal of signing a larger trade deal.
+- [25:03.920] The key to this, again, is Mexico has agreed
+- [25:06.030] to terminate those non-tariff barriers
+- [25:08.710] and to continue to work with us in good faith.
+- [25:10.620] Mexico is a very unique situation
+- [25:13.110] of all the other countries around the world
+- [25:14.800] because, of course, we share our southern border with Mexico,
+- [25:17.410] which we've seen an increase in cooperation
+- [25:20.250] between Mexico's President Claudia Scheinbaum
+- [25:22.770] and our administration
+- [25:24.250] on clamping down on drug trafficking
+- [25:26.010] and human trafficking at the southern border.
+- [25:27.700] We appreciate those efforts
+- [25:29.000] and will continue to work in good faith
+- [25:30.780] and to continue to have these trade discussions as well.
+- [25:32.690] Joey.
+- [25:33.900] The Press: Yeah, thanks, Karoline.
+- [25:35.140] Just clarifying of a previous question,
+- [25:37.840] President Trump has indicated
+- [25:39.290] he's been looking at either 15 percent
+- [25:41.820] or 20 percent baseline universal tariff.
+- [25:44.180] Has he landed on one of those yet?
+- [25:45.920] Karoline Leavitt: I won't get ahead of the President
+- [25:47.260] on that baseline announcement.
+- [25:48.550] The Press: And then secondly,
+- [25:49.840] what did Treasury Secretary Beset
+- [25:52.520] mean yesterday when he called the new
+- [25:54.320] Trump accounts for newborns a quote back door to privatizing
+- [25:57.940] Social Security?
+- [25:59.210] Does the administration view this new
+- [26:01.330] Trump accounts as a way to in the long term
+- [26:04.460] perhaps privatize Social Security.
+- [26:06.690] Karoline Leavitt: What the Secretary of Treasury
+- [26:08.120] was saying, and what this administration believes,
+- [26:10.220] is that these Trump newborn accounts,
+- [26:12.050] which is an incredibly creative and great provision
+- [26:16.500] that was in the One Big Beautiful bill
+- [26:18.020] for newborn babies
+- [26:19.560] and families and future generations of Americans,
+- [26:22.160] will help supplement, not substitute, Social Security.
+- [26:25.360] The Trump administration is wholeheartedly committed
+- [26:28.270] to protecting Social Security.
+- [26:30.190] The President did it in his first term,
+- [26:31.900] he's doing it again in this term,
+- [26:33.930] but these newborn accounts are another revenue stream
+- [26:36.760] for young people
+- [26:38.000] to watch their money grow throughout their lives
+- [26:39.810] and to one day be able to access those funds
+- [26:42.220] so they can hopefully build a home
+- [26:43.700] and live the American dream. Jake.
+- [26:45.560] The Press: Just want to follow-up on the tariff fund
+- [26:47.460] and one not.
+- [26:48.680] Is the President at all considering
+- [26:50.550] extending the August 12th China deadline at all?
+- [26:53.690] Is that in consideration?
+- [26:54.950] Karoline Leavitt: So, look, on China,
+- [26:56.280] you heard from the president on Air Force One
+- [26:58.050] when we were returning from Scotland.
+- [26:59.550] You've heard from Treasury Secretary as well,
+- [27:01.430] Ambassador Jameson Greer.
+- [27:03.030] They just spent two days in Geneva
+- [27:04.870] for their third round of talks with China.
+- [27:07.270] And the current policy, the current trade program
+- [27:10.080] that we have going with China right now, as it stands,
+- [27:12.870] will decrease our deficit by $5 billion this year.
+- [27:16.620] So we are moving in the right direction
+- [27:18.790] when it comes to China,
+- [27:20.230] and Secretary Bessen and Ambassador Greer
+- [27:22.160] continue to be in direct communication
+- [27:24.430] with our Chinese counterparts.
+- [27:26.270] The Press: Is it an extension on the table,
+- [27:28.420] potentially, from the August 12th deadline as it stands?
+- [27:30.460] Karoline Leavitt: I don't think so,
+- [27:31.660] but I'll let the Secretary of Treasury speak on that
+- [27:34.160] because he's leading these negotiations.
+- [27:35.590] Reagan, go ahead.
+- [27:36.840] The Press: Thanks, Karoline. There's growing frustration
+- [27:38.920] that more of Trump's nominees haven't been confirmed.
+- [27:41.750] Why does the President [inaudible]
+- [27:43.210] Senate Republicans are so behind
+- [27:45.010] and has he had any further conversations
+- [27:46.770] with Leader Thune about it?
+- [27:48.270] Karoline Leavitt: The President has had
+- [27:49.470] many conversations with his friends
+- [27:51.440] in the United States Senate about advancing his nominees,
+- [27:55.000] his judicial nominees, through this process.
+- [27:56.850] It is critical that we get
+- [27:58.950] these good attorneys in these positions
+- [28:01.870] so that we can end the weaponization of justice,
+- [28:04.360] so we can have true law and order in our country.
+- [28:07.730] It's unfortunate the Democrats are playing political games,
+- [28:10.680] but the President has made it clear to Senate Republicans
+- [28:13.380] they need to do everything in their power
+- [28:15.060] to advance the President's nominees as well.
+- [28:18.110] Kelly, go ahead.
+- [28:19.410] The Press: Karoline, thank you.
+- [28:20.840] Two questions real quickly. Nigeria.
+- [28:24.460] Congressman Chris Smith, Republican from New Jersey,
+- [28:27.800] is calling upon the President of the United States
+- [28:29.930] to do something in terms of imposing
+- [28:32.500] perhaps sanctions on Nigeria for the persecution of Christians
+- [28:37.080] living in the northern part of Nigeria
+- [28:39.630] by radical Islamic groups.
+- [28:40.970] Has he contacted the President yet?
+- [28:43.140] And do you know if there's any action
+- [28:44.460] that the President will take?
+- [28:45.830] Karoline Leavitt: I'm not tracking a call
+- [28:47.660] between the President and the head of Nigeria.
+- [28:51.570] I know the President wholeheartedly condemns
+- [28:53.950] the persecution of Christians
+- [28:55.790] or, frankly, of people of any faith all over the world,
+- [28:58.770] but I don't have any updates for you
+- [29:00.270] in terms of sanctions in this part of the world.
+- [29:02.490] The Press: My second question, Karoline,
+- [29:04.570] deals with immigration here in America.
+- [29:06.730] As you know, a lot of deportation has been going on.
+- [29:09.100] ICE has been following after violent criminals
+- [29:11.410] that are here illegally and rightly so.
+- [29:13.560] In the midst of that,
+- [29:15.100] there are some evangelical pastors who are stating
+- [29:18.890] that it may have gone to a point of being indiscriminate
+- [29:22.200] and actually getting innocent people
+- [29:24.030] like members of the clergy.
+- [29:26.160] Has the President and has ICE looked at that
+- [29:29.620] to see how they can actually those violent criminals
+- [29:33.010] but also make sure that members of the clergy
+- [29:35.820] are still not being deported.
+- [29:38.410] Karoline Leavitt: Well, look,
+- [29:39.670] the administration has always maintained the position
+- [29:42.540] that anyone who illegally crosses our nation's borders
+- [29:46.470] is subject to deportation. That's just the law of the land,
+- [29:50.250] and we must be a nation that enforces our laws.
+- [29:52.850] But the priority from ICE, of course, is to deport,
+- [29:56.630] detain, arrest, and remove violent
+- [29:59.930] illegal aliens and criminals from our country.
+- [30:03.020] And they have been doing that at the rate of thousands
+- [30:05.640] of illegal, violent criminals every single week,
+- [30:07.950] especially in Democrat-run sanctuary cities,
+- [30:10.760] where these illegal, violent criminals
+- [30:12.530] have been given a safe haven
+- [30:14.650] and have essentially been immune from our nation's laws
+- [30:17.430] under the previous administration.
+- [30:18.830] That's not happening anymore because of this president
+- [30:21.420] and Secretary Noem in the Department of Homeland Security,
+- [30:24.610] and we are going to be a nation of laws.
+- [30:26.500] And as we've said repeatedly, if you came here illegally,
+- [30:28.960] you are subject to.
+- [30:30.700] But the priority are those public safety threats
+- [30:33.020] that we must remove from our communities.
+- [30:35.880] The Press: Thank you so much, Karoline.
+- [30:37.660] Two questions.
+- [30:38.900] So what Hamas hardness its position in Israel provides aid.
+- [30:42.250] Do you have any new information on the hostages
+- [30:45.280] that need aid too?
+- [30:47.040] And second question, we heard President Trump criticize
+- [30:49.630] President Macron and Prime Minister Stormer
+- [30:52.260] for their statement about recognizing a Palestinian state.
+- [30:55.490] What is the president's position on
+- [30:56.860] recognizing a Palestinian State, and will he recognize Israeli
+- [31:00.270] sovereignty in Jordan and Samaria?
+- [31:02.410] Karoline Leavitt: I can answer both of those questions for you.
+- [31:05.020] On the second question about a Palestinian state,
+- [31:07.240] the President expressed his displeasure
+- [31:09.080] and his disagreement with the leaders of France,
+- [31:11.830] the United Kingdom, and Canada.
+- [31:13.850] He feels as though that's rewarding Hamas
+- [31:16.010] at a time where Hamas is the true impediment to a ceasefire
+- [31:19.830] and to the release of all of the hostages.
+- [31:21.890] So to your first question,
+- [31:23.450] the president wants to see all of these hostages released.
+- [31:26.240] He cares deeply about this.
+- [31:27.670] He has met with many of the former hostages,
+- [31:30.630] many of the families of those who have loved ones
+- [31:33.460] who are still being held hostage in Gaza.
+- [31:35.770] I have met with them too. It is absolutely devastating
+- [31:38.650] what these poor people have been through.
+- [31:40.630] And the president is always thinking about them.
+- [31:42.740] And that's why he's designated his special envoy,
+- [31:45.280] Steve Witkoff, who's doing a tremendous job
+- [31:47.800] to release the hostages and to end this conflict.
+- [31:50.340] But the president has always said the last remaining hostages
+- [31:53.620] now there are 20 living hostages in Gaza
+- [31:57.060] will always be the hardest because Hamas is unfortunately
+- [31:59.820] using these innocent people as bargaining chips,
+- [32:02.270] but nevertheless we are committed to seeing
+- [32:04.600] this come to an end.
+- [32:06.060] The Press: Thanks, Karoline.
+- [32:07.730] Part of the settlement with Brown prohibits it
+- [32:10.300] from performing transgender procedures
+- [32:12.370] or prescribing hormone puberty blockers,
+- [32:14.700] that type of thing.
+- [32:15.960] Will eliminating these types of procedures
+- [32:18.020] be a priority for the Trump administration
+- [32:19.950] in negotiations with other universities?
+- [32:22.580] Karoline Leavitt: I can tell you
+- [32:23.930] that ending the chemical castration of children
+- [32:26.500] in our country is a priority of this administration.
+- [32:29.340] We've talked to many of these universities about it,
+- [32:32.120] but we've also, the President has also taken
+- [32:34.130] very strong action
+- [32:35.640] to cut off the funding for any medical institution
+- [32:38.580] in this country that provides those barbaric procedures.
+- [32:42.220] The Brown University agreement, since you brought it up,
+- [32:44.930] is yet another win to root anti-semitic behavior
+- [32:48.500] on our nation's college campuses
+- [32:50.150] and unlawful racial discrimination.
+- [32:53.030] Brown has agreed to no longer
+- [32:54.890] allow unlawful racial discrimination
+- [32:56.840] in admissions or university programming.
+- [32:59.610] They have agreed to provide access to all relevant data
+- [33:02.970] and information to rigorously assess compliance
+- [33:08.980] with its commitment to merit-based admissions
+- [33:11.530] and they will pay 50 million over 10 years
+- [33:14.050] to state workforce development organizations
+- [33:16.710] that comply with anti-discrimination laws,
+- [33:19.350] supporting regional economic growth and career opportunities.
+- [33:22.700] Brown will also adopt the definitions of male and female
+- [33:25.800] from President Trump's executive order,
+- [33:27.750] defending women in gender ideology extremism
+- [33:30.650] for women's sports, programming, facilities, and housing.
+- [33:33.870] Brown will no longer perform gender reassignment
+- [33:36.230] surgeries on minors or prescribe them puberty blockers
+- [33:39.340] or cross-sex hormones,
+- [33:41.270] and Brown will take steps to improve the campus climate
+- [33:44.040] for Jewish students in combat anti-Semitism on their campus.
+- [33:47.940] This is yet another huge win for American students,
+- [33:51.490] and for those who love our country
+- [33:53.280] and want to abide by our country's laws.
+- [33:55.190] On the topic of defending women from gender ideology extremism
+- [33:58.880] and helping women's sports, the President will be signing
+- [34:01.610] an executive order at four o'clock today
+- [34:03.310] with some very famous professional athletes,
+- [34:05.820] whom I'm sure you all know.
+- [34:07.470] And that executive order will be focused
+- [34:09.130] on strengthening athletics in our country
+- [34:11.360] and making America healthy again.
+- [34:13.110] And we are going to re-implement
+- [34:14.580] the presidential fitness test in America's schools,
+- [34:17.260] which is, I think, something all Americans can get behind.
+- [34:19.930] So you'll hear from the President in two hours,
+- [34:21.750] and we will see you all there. Thank you.

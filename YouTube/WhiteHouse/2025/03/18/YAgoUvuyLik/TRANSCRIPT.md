@@ -1,0 +1,541 @@
+<!-- source: https://www.youtube.com/watch?v=YAgoUvuyLik -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: YAgoUvuyLik -->
+<!-- date_published: 2025-03-18T13:49:40+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:45.109270+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the American Dynamism Summit
+
+- [00:00.100] Male Speaker: Ladies and gentlemen,
+- [00:01.630] the Vice President of the United States, J.D.
+- [00:04.930] Vance.
+- [00:21.370] The Vice President: Good morning, everybody.
+- [00:22.710] How we doing? It's great to be here.
+- [00:25.670] Thanks to everybody for having me today.
+- [00:28.440] In particular, Ben and Mark.
+- [00:30.360] And I just got to say hello to Ben and Catherine backstage,
+- [00:33.800] but I know apparently Mark has the flu right now.
+- [00:36.460] So Mark, wherever you are,
+- [00:37.770] I think I had the same flu a few weeks ago.
+- [00:39.790] It sucks, but I'm sure you'll get through it.
+- [00:43.310] And it's great to be with you all
+- [00:45.300] and it's great to talk about the importance of American dynamism
+- [00:50.090] and what our administration is going to do to support
+- [00:53.540] so many of the country's most groundbreaking
+- [00:55.540] and compelling companies.
+- [00:56.830] I know that you guys are working hard every single day,
+- [01:00.820] and I think it's pretty good news
+- [01:02.330] that as of a couple of months ago
+- [01:03.580] you have an administration that's working with you
+- [01:06.120] and facilitating your hard work
+- [01:07.630] instead of making it harder to innovate,
+- [01:09.430] which is I think what the last administration did.
+- [01:11.410] Though in defense of Joe Biden, he was asleep most of the time.
+- [01:15.080] I don't think he totally realized what he was doing,
+- [01:17.170] but certainly didn't make it easier,
+- [01:19.200] his administration did not for our innovators.
+- [01:21.080] Now, as some of you may have seen,
+- [01:23.160] and I talked about this with Ben backstage,
+- [01:25.040] I spoke at a conference in Paris last month
+- [01:27.800] where my message to a group of CEOs and foreign leaders
+- [01:30.580] was that we should embrace the future head-on.
+- [01:32.970] We shouldn't be afraid of artificial intelligence,
+- [01:36.250] and that particularly for those of us lucky enough
+- [01:38.630] to be Americans,
+- [01:40.280] we shouldn't be fearful of productive new technologies.
+- [01:42.920] In fact, we should seek to dominate them.
+- [01:45.570] That's certainly what this administration
+- [01:47.030] wants to accomplish.
+- [01:48.300] I suspect that most of you in this room are of like-mind.
+- [01:51.100] And if you're not, I don't know why the hell
+- [01:52.780] you're at the American Dynamism Conference,
+- [01:54.510] but I received some pushback from people
+- [01:59.030] who are worried about the disruptive effects of AI.
+- [02:01.960] One journalist suggested the speech
+- [02:03.660] highlighted the tension between the,
+- [02:06.520] "Techno-optimists and the populist
+- [02:09.180] right of President Trump's coalition,"
+- [02:11.950] and today I'd like to speak to these tensions
+- [02:14.500] as a proud member of both tribes.
+- [02:16.870] And let me put it simply,
+- [02:19.130] while this is a well-intentioned concern,
+- [02:21.110] I think it's based on a faulty premise.
+- [02:23.400] This idea that tech-forward people
+- [02:26.170] and the populists are somehow inevitably
+- [02:28.410] going to come to a loggerheads is wrong.
+- [02:31.210] I think the reality is that in any dynamic society technology
+- [02:35.110] is going to advance, of course. And speaking as a Catholic,
+- [02:39.820] I think back to Pope John Paul II's
+- [02:41.790] opening lines of the encyclical Laborem Exercens,
+- [02:49.120] "Through work man must earn his daily bread and contribute
+- [02:52.550] to the continual advance of science and technology,
+- [02:55.540] and above all to elevating unceasingly the cultural
+- [02:59.130] and moral level of the society within which he lives."
+- [03:02.730] Now, I quote the Holy Father not only
+- [03:04.430] because I'm a fan of his,
+- [03:05.730] but also because he rightly understood
+- [03:08.100] that in a healthy economy technology
+- [03:10.020] should be something that enhances
+- [03:12.530] rather than supplants the value of labor,
+- [03:14.790] and I think there's too much fear
+- [03:16.620] that AI will simply replace jobs
+- [03:19.250] rather than augmenting so many of the things that we do.
+- [03:21.950] Now in the 1970s, if you go back a little ways,
+- [03:25.940] many feared that the automated teller machine,
+- [03:28.380] what we call the ATM, would replace bank tellers.
+- [03:31.320] In reality, the advent of the ATM made bank
+- [03:34.070] tellers more productive, and you have more people today
+- [03:37.180] working in customer service in the financial sector
+- [03:39.860] than you had when the ATM was created.
+- [03:42.330] Now they're doing slightly different jobs, of course.
+- [03:44.790] Yes, they're doing more interesting tasks also,
+- [03:48.210] and importantly, they're making more money
+- [03:50.020] than they were in the 1970s.
+- [03:52.410] Now when we innovate,
+- [03:53.660] we do sometimes cause labor market disruptions.
+- [03:56.690] That happens, but the history of American innovation
+- [04:01.380] is that we tend to make people more productive
+- [04:04.400] and then we increase their wages in the process,
+- [04:06.380] and I think all of us believe that's a good thing.
+- [04:09.030] Now after all, who would claim that man was made
+- [04:11.480] less productive by the invention of the transistor or the metal
+- [04:15.040] lathe or the steam engine?
+- [04:17.180] Real innovation makes us more productive,
+- [04:19.930] but it also I think dignifies our workers.
+- [04:22.150] It boosts our standard of living.
+- [04:24.600] It strengthens our workforce and the relative value of its labor.
+- [04:28.800] And as Americans, all of us should be particularly proud
+- [04:31.650] of our extraordinary heritage.
+- [04:33.330] I think it is American heritage of inventing things
+- [04:36.700] and of our nation's status to this day
+- [04:38.500] as the world's foremost driver of research and development.
+- [04:42.510] But all of this,
+- [04:43.800] the role that technology plays in a labor market
+- [04:46.640] and whether we greet innovative breakthroughs with excitement
+- [04:50.260] or with trepidation depends on the purpose
+- [04:53.720] of our economic system in the first place.
+- [04:55.890] And I think this is where the populists
+- [04:57.730] have an important point.
+- [04:59.310] It should be no surprise that when we send
+- [05:01.130] so much of our industrial base to other countries
+- [05:04.280] we stop making interesting new things right here at home.
+- [05:07.640] Look, for example, at ship building.
+- [05:10.300] Now if you go back to World War II,
+- [05:11.690] America constructed thousands of so-called Liberty ships
+- [05:14.670] to carry troops, cargo and other things,
+- [05:17.580] building them at a pace of three ships every two days,
+- [05:21.630] three ships every two days.
+- [05:23.680] Now we build about five commercial ships
+- [05:26.100] across an entire year in the United States of America,
+- [05:29.310] and as a result,
+- [05:30.530] the United States today accounts for 0.1%,
+- [05:34.420] one-tenth of 1% of global ship building.
+- [05:38.010] China, on the other hand, now makes more commercial ships
+- [05:41.190] than the rest of the world combined.
+- [05:43.750] In fact, one of Beijing's state-owned firms
+- [05:45.710] built more commercial ships just last year
+- [05:48.550] than all of America has produced since the end of World War II.
+- [05:53.310] So while we remain the leader in technology and innovation,
+- [05:57.070] I think there are troubling signs on the horizon.
+- [06:00.210] And I raise all this to ask, does this sound like a regime,
+- [06:03.880] I'm speaking of China,
+- [06:05.270] that will pass up on the opportunity to use AI
+- [06:07.730] or any other technology to advance their own interests
+- [06:10.870] and further undermine the interests of their rivals?
+- [06:13.660] I think the answer is obvious, and that's why America,
+- [06:15.990] we've got to be tech forward.
+- [06:17.420] Yes, there are concerns. Yes, there are risks,
+- [06:19.960] but we have to be leaning into the AI future with optimism
+- [06:23.810] and hope because I think real technological innovation
+- [06:27.000] is going to make our country stronger.
+- [06:29.820] So deindustrialization
+- [06:32.240] poses risks both to our national security and our workforce.
+- [06:36.110] It's important because it affects both.
+- [06:38.670] And the net result is dispossession for many
+- [06:41.640] in this country of any part of the productive process.
+- [06:45.950] And when our factories disappear
+- [06:48.490] and the jobs in those factories go overseas,
+- [06:51.730] American workers are faced not only with financial insecurity,
+- [06:55.110] they're also faced with a profound loss
+- [06:57.150] of personal and communal identity.
+- [07:00.120] And so to come full circle on this alleged tension
+- [07:03.820] between the populists and the techno-optimists,
+- [07:07.360] I can understand a reaction of skepticism
+- [07:09.620] when we talk about the revolutionary potential
+- [07:12.500] of new invention and artificial intelligence
+- [07:14.770] and all the other incredible technologies
+- [07:17.020] that you guys are working.
+- [07:19.080] But I think that that tension is a little overstated,
+- [07:22.890] and so I'm going to come back to what's dividing
+- [07:26.970] some of the tech-optimists and the populists on our side.
+- [07:30.910] I think the populists, when they look at the future
+- [07:34.290] and when they compare it to what's happened in the past,
+- [07:36.260] I think a lot of them see alienation of workers
+- [07:39.560] from their jobs,
+- [07:40.980] from their communities, from their sense of solidarity.
+- [07:43.920] You see the alienation of people from their sense of purpose.
+- [07:47.350] And importantly, they see a leadership class
+- [07:50.010] that believes welfare can replace a job
+- [07:52.970] and an application on a phone can replace a sense of purpose.
+- [07:57.500] I remember a Silicon Valley dinner in particular back
+- [08:01.400] when I was in my tech days,
+- [08:03.490] where my wife and I were sitting around
+- [08:05.600] talking to some of the leaders
+- [08:07.110] of the important technology firms of the United States,
+- [08:10.390] and this was probably in 2016 or 2017.
+- [08:13.810] And I was talking about my real worry
+- [08:16.370] that we were heading in a direction
+- [08:17.970] where America could no longer support middle class
+- [08:20.990] families working on middle class wages.
+- [08:23.210] And importantly, that even if you had enough economic dynamism
+- [08:27.530] to provide the wealth to ensure those people could afford
+- [08:31.090] to buy a house and afford their food and so forth,
+- [08:33.840] that even if you replaced the financial element of their jobs,
+- [08:37.520] you would destroy something that was dignified
+- [08:39.920] and purposeful about work itself.
+- [08:42.570] And I remember one of the tech CEOs who was there,
+- [08:44.690] the CEO, you would know his name if I mentioned it,
+- [08:47.180] he was the CEO of a multi-billion dollar company,
+- [08:50.200] he said, "Well, I'm actually not worried
+- [08:51.780] about the loss of purpose when people lose their jobs."
+- [08:54.730] And I said, "Okay, well,
+- [08:56.460] what do you think is going to replace that sense of purpose?"
+- [08:59.040] And he said, "Digital, fully immersive gaming."
+- [09:04.650] And then my wife texted me underneath the table and said,
+- [09:08.210] "We have to get the hell out of here.
+- [09:09.740] These people are effing crazy."
+- [09:13.610] Now, I don't think that, of course,
+- [09:16.220] that CEOs views
+- [09:17.460] are representative of most people in this room,
+- [09:19.920] but when I think about a lot of the workers
+- [09:25.010] based on what they've seen in the past
+- [09:26.680] are very worried about the future
+- [09:28.310] because frankly,
+- [09:29.640] their leadership has failed to serve them.
+- [09:32.240] And then I think about this from the perspective
+- [09:33.960] of a lot of the tech optimists.
+- [09:35.280] I think a lot of the tech optimists
+- [09:37.230] they see over regulation. They see stifling innovation.
+- [09:41.670] I mean, you guys are builders. They are builders.
+- [09:44.370] And while they may sympathize with those who lost a job,
+- [09:47.490] they're much more frustrated that the government
+- [09:49.360] won't allow them to build the jobs of the future.
+- [09:52.400] And they know that as hard as it
+- [09:53.750] is to build a business in digital media,
+- [09:56.610] it's still harder to build one in robotics or life sciences
+- [10:00.480] or energy in what we call the world of atoms.
+- [10:03.390] They see a government that makes their lives harder
+- [10:06.090] and they mistrust anyone
+- [10:07.420] who looks to that government for aid.
+- [10:09.690] And what I propose is that each group,
+- [10:12.520] our workers, the populists on the one hand,
+- [10:14.800] the tech optimists on the other,
+- [10:16.570] have been failed by this government,
+- [10:18.900] not just the government of the last administration,
+- [10:21.560] but the government in some ways of the last 40 years
+- [10:25.020] because there were two conceits that our leadership class
+- [10:28.030] had when it came to globalization.
+- [10:30.700] The first is assuming that we can separate
+- [10:33.750] the making of things from the design of things.
+- [10:36.550] The idea of globalization was that rich countries
+- [10:39.540] would move further up the value chain
+- [10:41.690] while the poor countries made the simpler things.
+- [10:44.550] You would open an iPhone box
+- [10:46.580] and it would say designed in Cupertino, California.
+- [10:49.410] Now the implication, of course,
+- [10:51.400] is that it would be manufactured in Shenzhen or somewhere else.
+- [10:54.910] And yeah, some people might lose their jobs in manufacturing,
+- [10:58.040] but they could learn to design
+- [11:00.200] or to use a very popular phrase, learn to code.
+- [11:03.390] But I think we got it wrong.
+- [11:04.680] It turns out that the geographies
+- [11:06.840] that do the manufacturing get awfully good
+- [11:09.370] at the designing of things.
+- [11:11.060] There are network effects, as you all well understand.
+- [11:13.820] The firms that design products
+- [11:15.350] work with firms that manufacture.
+- [11:17.530] They share intellectual property.
+- [11:19.330] They share best practices,
+- [11:21.110] and they even sometimes share critical employees.
+- [11:24.290] Now, we assume that other nations
+- [11:25.750] would always trail us in the value chain,
+- [11:27.980] but it turns out that as they got better
+- [11:30.140] at the low end of the value chain,
+- [11:31.970] they also started catching up on the higher end.
+- [11:34.020] We were squeezed from both ends.
+- [11:36.360] Now that was the first conceit of globalization.
+- [11:38.290] I think the second is that cheap labor is fundamentally a crutch,
+- [11:43.340] it is a crutch that inhibits innovation.
+- [11:45.460] I might even say that it's a drug
+- [11:47.370] that too many American firms got addicted to.
+- [11:50.430] Now if you can make a product more cheaply,
+- [11:52.950] it's far too easy to do that rather than to innovate.
+- [11:57.050] And whether we were offshoring factories to cheap labor
+- [11:59.650] economies or importing cheap labor
+- [12:02.570] through our immigration system,
+- [12:04.430] cheap labor became the drug of Western economies.
+- [12:07.660] And I'd say that if you look in nearly every country from Canada
+- [12:11.080] to the UK that imported large amounts of cheap labor,
+- [12:14.160] you've seen productivity stagnate,
+- [12:15.960] and I don't think that's not a total happenstance.
+- [12:20.240] I think that the connection is very direct.
+- [12:23.290] Now, one of the debates you hear on the minimum wage,
+- [12:25.550] for instance, is that increases in the minimum wage
+- [12:28.320] force firms to automate.
+- [12:30.120] So a higher wage at McDonald's means more kiosks,
+- [12:32.850] and whatever your views on the wisdom of the minimum wage,
+- [12:35.610] I'm not going to comment on that here,
+- [12:37.620] companies innovating in the absence of cheap labor
+- [12:40.300] is a good thing.
+- [12:41.660] I think most of you are not worried
+- [12:43.400] about getting cheaper and cheaper labor.
+- [12:45.100] You're worried about innovating, about building new things,
+- [12:47.700] about the old formulation of technology
+- [12:50.080] is doing more with less.
+- [12:52.340] You guys are all trying to do more with less every single day.
+- [12:55.730] And so I'd ask my friends,
+- [12:57.750] both on the tech optimist side and on the populist side,
+- [13:01.340] not to see the failure of the logic of globalization
+- [13:04.670] as a failure of innovation.
+- [13:06.790] Indeed, I'd say that globalization's hunger
+- [13:09.420] for cheap labor
+- [13:11.050] is a problem precisely because it's been bad for innovation.
+- [13:15.550] Both our working people, our populists and our innovators
+- [13:19.110] gathered here today have the same enemy,
+- [13:22.250] and the solution I believe is American innovation.
+- [13:25.900] Because in the long run, it's technology
+- [13:28.400] that increases the value of labor.
+- [13:30.610] Innovations like the American system
+- [13:32.600] and the interchangeable parts revolution it sparked,
+- [13:35.490] or Ford's moving assembly line
+- [13:37.300] that skyrocketed the productivity of our workers,
+- [13:40.100] that's how American industry became the envy of the world.
+- [13:43.640] And that's what I really want to talk about today,
+- [13:46.110] why innovation is key to winning the worldwide
+- [13:48.510] manufacturing competition,
+- [13:50.730] to giving our workers a fair deal
+- [13:53.130] and to reclaiming our heritage
+- [13:54.930] via America's great industrial comeback,
+- [13:57.140] and I believe that's what we're on the cusp of,
+- [13:59.110] a great American industrial comeback.
+- [14:02.280] Because innovation is what increases wages.
+- [14:06.250] It's what protects our homelands, and I know
+- [14:08.080] we have a lot of defense technology companies here.
+- [14:11.560] It's what saves troops lives on the battlefield.
+- [14:15.190] And I know everyone here today largely agrees.
+- [14:17.860] It's why we have some of the greatest inventors
+- [14:20.550] and thinkers in energy, precision machining,
+- [14:24.580] countless critical high-value industries just in this room.
+- [14:28.720] And I think the other thing that unites all of you
+- [14:31.080] is that you're builders,
+- [14:32.330] and I use that word deliberately.
+- [14:33.970] I was very moved by Mark's manifesto
+- [14:37.000] from a few years ago about America.
+- [14:38.800] We are a nation of builders. We make things.
+- [14:40.860] We create things. Each of you came to the summit
+- [14:44.170] not because you developed some flash in the pan application,
+- [14:47.680] but because you're building something very real.
+- [14:50.670] You're raising new factories.
+- [14:52.000] You're turning profits back into R&D,
+- [14:54.470] and you're creating new good paying jobs
+- [14:56.510] for your fellow Americans.
+- [14:58.130] And this is why I'm such huge fans of yours,
+- [15:00.630] of Ben's and Mark's and of the entire endeavor.
+- [15:02.920] And that we recognize now, in our administration,
+- [15:06.470] is the time to align our work interests
+- [15:09.760] with those of all of you.
+- [15:12.490] It's time to align the interests of our technology firms
+- [15:15.850] with the interests of the United States of America writ large.
+- [15:19.190] Now, all of you in your own ways have answered that call.
+- [15:22.640] After all, there's nothing
+- [15:24.100] forcing anyone to be in the room today.
+- [15:26.800] Each one of you could have set up headquarters
+- [15:28.660] in Southeast Asia or China, I'm sure,
+- [15:31.200] and you would've done quite well for yourselves financially.
+- [15:34.250] But you're here, I hope because you love your country,
+- [15:37.380] you love its people
+- [15:38.580] and the opportunities that it's given you,
+- [15:40.410] and you recognize that building things,
+- [15:42.990] our capacity to create new innovation in the economy
+- [15:46.300] cannot be a race to the bottom.
+- [15:49.120] Now America's not going to win the future
+- [15:51.000] by ditching child labor laws
+- [15:53.080] or paying our workers less than Chinese or Vietnamese laborers.
+- [15:56.030] We don't want that, and it's not on the table.
+- [15:58.680] We can only win by doing what we always did,
+- [16:01.650] protecting our workers and supporting our innovators
+- [16:04.510] and doing both of those things at the same time.
+- [16:08.230] And so I want to talk a little specifics here.
+- [16:10.360] The Trump administration's great plan for staging
+- [16:13.430] the great American manufacturing comeback is simple.
+- [16:16.830] You're making interesting new things here in America, great.
+- [16:20.340] Then we're going to cut your taxes.
+- [16:22.030] We're going to slash regulations.
+- [16:23.560] We're going to reduce the cost of energy
+- [16:25.390] so that you can build, build, build.
+- [16:28.800] Our goal is to incentivize investment in our own borders,
+- [16:32.300] in our own businesses, our own workers,
+- [16:34.360] and our own innovation.
+- [16:35.580] We don't want people seeking cheap labor.
+- [16:37.930] We want them investing and building right here
+- [16:40.240] in the United States of America. And so if you'll allow it,
+- [16:43.020] I'd like to talk about a few ways
+- [16:44.450] that the Trump administration
+- [16:46.230] is already pursuing a pro-innovation economy
+- [16:48.900] that allows our workers to thrive
+- [16:51.330] and our companies to out-compete their foreign peers.
+- [16:54.740] In short, an economy that is vibrantly America-first
+- [16:59.050] that serves Americans from all walks of life and of every kind.
+- [17:03.480] Now first President Trump is starting with,
+- [17:05.860] and is dead serious,
+- [17:07.250] about rearranging our trade and tariff regime internationally.
+- [17:12.420] We believe that tariffs are a necessary tool
+- [17:15.640] to protect our jobs and our industries from other countries,
+- [17:19.160] as well as the labor value of our workers
+- [17:21.880] in a globalized market.
+- [17:23.540] In fact, combined with the right technology,
+- [17:25.930] they allow us to bring jobs back to the United States of America
+- [17:29.490] and create the jobs of the future.
+- [17:31.340] Just look in the past few months at the auto industry
+- [17:34.750] as an important example.
+- [17:36.630] When you erect a tariff wall around a critical industry
+- [17:39.620] like auto manufacturing,
+- [17:41.250] and you combine that with advanced robotics
+- [17:43.970] and lower energy costs and other tools
+- [17:45.890] that increase the productivity of US labor,
+- [17:48.840] you give American workers a multiplying effect.
+- [17:52.570] Now that in turn allows firms to make things here
+- [17:55.200] at a price competitive basis.
+- [17:57.420] Our President gets that, which is why last month
+- [18:00.210] we posted 9,000 new auto jobs after many,
+- [18:04.300] many years of stagnation or even decline in the auto sector.
+- [18:08.310] It's why just weeks in we already have new plant
+- [18:10.860] or production announcements from Honda,
+- [18:12.890] from Hyundai and Stellantis worth billions of dollars
+- [18:16.500] and thousands of additional jobs
+- [18:18.130] on top of the ones that were already created.
+- [18:20.520] Now this takes work.
+- [18:22.140] It took in the President's first term,
+- [18:23.810] the President ripping up NAFTA and creating a new US deal
+- [18:29.110] for American manufacturers in North America.
+- [18:32.510] But there's important work and we're going to do it.
+- [18:35.590] Now second, all of this is why the President is approaching
+- [18:39.980] the issue of illegal immigration as aggressively as he has
+- [18:43.940] because he knows that cheap labor
+- [18:45.400] cannot be used as a substitute for the productivity gains
+- [18:49.200] that come with economic innovation,
+- [18:51.330] and so we've cracked down on illegal immigration
+- [18:53.880] at the border where the results speak for themselves.
+- [18:56.900] Last month, migrant crossings were down 94%
+- [19:00.270] to their lowest number all time and that happened
+- [19:02.680] just in two months of serious border enforcement.
+- [19:06.370] Thanks to President Trump's leadership,
+- [19:08.520] last month for the first time in over a year,
+- [19:11.150] the majority of job gains went to American citizens
+- [19:14.450] born on US soil, and that's important.
+- [19:16.780] For the first time in over a year,
+- [19:19.090] the majority of job creation
+- [19:20.850] actually went to American citizens.
+- [19:23.880] The third, this administration is focused on
+- [19:26.330] reducing our input costs for our manufacturers
+- [19:29.500] and for everybody else. Achieving energy abundance,
+- [19:32.870] and I know Doug Burgum was here earlier
+- [19:34.550] and will be here later, is top of mind
+- [19:36.970] because when we look at some of the most exciting applications
+- [19:39.850] of new technologies, we realize it's going to take
+- [19:42.360] a lot of power to keep them running.
+- [19:44.580] And we're thrilled to have our friends
+- [19:46.330] from the United Arab Emirates,
+- [19:47.610] a number of the business leaders and government leaders in town
+- [19:51.850] this week for meetings with our government.
+- [19:54.180] And one of the things they consistently hammer upon
+- [19:56.590] is something that unfortunately too few of our European allies
+- [19:59.560] tend to get,
+- [20:00.790] is that if you want to lead in artificial intelligence,
+- [20:03.390] you have got to be leading in energy production,
+- [20:05.460] so we are going to set the pace there
+- [20:07.670] and we are going to lead from the front.
+- [20:09.770] Now we are already seeing, the good news is,
+- [20:11.690] signs of progress, even just a couple of months in.
+- [20:14.720] Gas and diesel prices are dropping.
+- [20:16.410] The cost of a barrel of US crude is way down.
+- [20:19.220] And last Wednesday, the administration took major steps
+- [20:22.440] to make energy even cheaper and liberate our companies
+- [20:25.980] from stifling environmental regulations.
+- [20:29.010] Now that is great, but of course there's a lot more work
+- [20:32.380] we have to do over the next four years.
+- [20:35.520] Getting a tax bill right is especially critical
+- [20:37.940] for all of you and for all of your workers.
+- [20:40.460] We know how important it is to restore 100%
+- [20:42.960] bonus depreciation for capital investments
+- [20:45.450] as well as full expensing for R&D.
+- [20:47.450] Again, we want people to invest in America,
+- [20:50.010] and we're going to make sure the tax code reflects that.
+- [20:52.880] In order to build on the success of the original tax law,
+- [20:56.110] meaning the tax law from the President's
+- [20:57.780] first administration,
+- [20:59.900] our administration is working to broaden some provisions
+- [21:03.020] that are critical to the industrial base,
+- [21:04.890] like expanding full expensing to cover factory construction.
+- [21:08.980] For business owners, including manufacturers,
+- [21:11.430] making the 2017 tax cuts permanent
+- [21:14.410] will provide further confidence and predictability
+- [21:17.730] to invest in new technology and equipment,
+- [21:20.700] hire more American workers and grow all of your businesses.
+- [21:24.710] And we have a lot more to do,
+- [21:27.030] but the country's already starting to see the payoff
+- [21:29.450] of this administration's bold economic agenda.
+- [21:33.270] For producers and consumers alike,
+- [21:35.420] inflation is finally starting to come down.
+- [21:38.270] Core CPI last week dropped to its lowest number
+- [21:41.010] since April of 2021.
+- [21:43.770] And when it comes to the labor market,
+- [21:45.190] last month's jobs report showed a massive reversal,
+- [21:48.510] 10,000 new manufacturing jobs created where the previous year
+- [21:52.610] we had lost over 100,000 manufacturing jobs.
+- [21:55.840] As you may have heard the President say,
+- [21:58.370] in less than two months since he's took office,
+- [22:00.640] he's already secured more than $1.7 trillion
+- [22:04.060] in new investments across the United States.
+- [22:06.660] That's hundreds of thousands of new jobs in manufacturing,
+- [22:10.720] AI, other hard tech sectors and more.
+- [22:14.170] So we think there's a lot to be excited about.
+- [22:16.090] There's a lot that we are excited about
+- [22:17.950] and we certainly hope that you guys are excited too.
+- [22:21.100] But the fundamental premise, the fundamental goal
+- [22:24.050] of President Trump's economic policy
+- [22:26.240] is I think to undo 40 years
+- [22:29.490] of failed economic policy in this country.
+- [22:32.250] For far too long we got addicted to cheap labor,
+- [22:35.950] both overseas and by importing it into our own country,
+- [22:39.550] and we got lazy.
+- [22:40.930] We overregulated our industries instead of supporting them.
+- [22:44.160] We overtaxed our innovators instead of making it easier
+- [22:47.660] for them to build their great companies,
+- [22:49.960] and we made it way too hard to build things
+- [22:53.280] and invest things in the United States of America.
+- [22:56.230] That stopped two months ago, and it will continue to stop
+- [23:00.020] and we'll continue to fight for American workers
+- [23:02.910] and the American businesses that hire them and that support them.
+- [23:06.780] So I want to thank you all for two things.
+- [23:08.860] Number one, I want to thank you all for doing what you do.
+- [23:10.960] Again, you could have chosen the easy path.
+- [23:14.070] Every single person in this room,
+- [23:15.650] as the President would say, you're all very high IQ.
+- [23:18.680] You're some of the most talented people
+- [23:20.680] in the United States of America.
+- [23:22.050] You chose to build a business right here
+- [23:24.540] in the United States of America. And for that, I'm grateful.
+- [23:27.700] But the second thing I want to say
+- [23:29.720] is that I think you're not just building your own business.
+- [23:32.070] I think that you were part
+- [23:33.300] of a great American industrial renaissance.
+- [23:36.310] Whether it's the war of the future, the jobs of the future,
+- [23:40.740] the economic prosperity of the future,
+- [23:43.140] we believe that we must build it right here
+- [23:46.200] in the United States of America. So thank you all for building,
+- [23:49.830] thank you all for building in America,
+- [23:51.780] and thank you all for building the kind of society
+- [23:54.300] that I want to raise my children in.
+- [23:55.630] God bless you all. Thanks for having me.

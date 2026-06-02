@@ -1,0 +1,1054 @@
+<!-- source: https://www.youtube.com/watch?v=QPid-oVSSi4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: QPid-oVSSi4 -->
+<!-- date_published: 2025-11-18T00:08:42+00:00 -->
+<!-- date_accessed: 2026-06-02T02:41:30.881315+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at McDonald's Impact Summit
+
+- [00:03.000] Announcer: -- United States, Donald J. Trump.
+- [00:06.800] ♪ ("God Bless the U.S.A." by Lee Greenwood) ♪
+- [00:43.260] The President: I actually hate to turn that beautiful song off,
+- [00:46.850] but let's get to business, right?
+- [00:49.530] And I want to congratulate you.
+- [00:51.270] You are with an incredible company
+- [00:53.990] and I'm thrilled to be here with the men
+- [00:56.010] and the women who are really the heart and soul
+- [00:58.690] of one of the greatest, most admired,
+- [01:00.490] and most successful companies in the history of the world,
+- [01:03.310] frankly, the one and only; McDonald's.
+- [01:06.990] I've gone there a couple of times.
+- [01:11.340] And I'm honored to stand before you as the very first
+- [01:15.190] former McDonald's fry cook
+- [01:17.980] ever to become president of the United States.
+- [01:22.380] And I actually was there for about 30 minutes,
+- [01:25.280] and that was 30 minutes longer than Kamala was there.
+- [01:28.970] Despite her job at McDonald's, that didn't work out too well.
+- [01:32.600] And the person at McDonald's that informed us,
+- [01:35.330] off the record, that she never worked there,
+- [01:37.640] whoever you are, we appreciate that.
+- [01:40.050] That was very nice.
+- [01:42.220] But I want to thank, as you know,
+- [01:45.240] the famous Sundar and Sergey, Sergey Brin.
+- [01:49.660] These are two guys that own and run a place called Google.
+- [01:53.840] They called me the following day
+- [01:55.960] after I did that McDonald's little skit,
+- [01:59.260] because it wasn't a commercial.
+- [02:00.790] You got it for nothing. It was a skit.
+- [02:04.160] And they told me that -- And I didn't know them.
+- [02:07.010] I said, "Who are they?" They own Google.
+- [02:09.600] I said, "That's pretty good. That's not bad."
+- [02:12.470] And that it received more hits
+- [02:14.350] than anything else in the history of Google
+- [02:17.590] and that record, it still stands.
+- [02:19.750] So congratulations on allowing us to use it,
+- [02:26.330] but you made a very good deal as usual.
+- [02:29.280] But in the old days, McDonald's and many others
+- [02:32.000] would call me to do this kind of a thing,
+- [02:34.600] come over and say some words and talk,
+- [02:37.560] and they'd pay me millions of dollars.
+- [02:41.170] Likewise, they'd do it.
+- [02:42.430] They'd call all these other superstars
+- [02:44.440] and they'd pay them millions of dollars to speak.
+- [02:46.830] And as president, I'm doing this damn thing for nothing, okay?
+- [02:52.920] And you know what?
+- [02:54.210] Because it's you, it's an honor to do it
+- [02:56.400] and it's an honor to be here.
+- [02:57.720] Really, the job that McDonald's has done is incredible
+- [03:01.350] and that you're doing.
+- [03:03.310] But as you may have heard,
+- [03:04.530] I'm also one of your all-time most loyal customers.
+- [03:09.320] I really am.
+- [03:10.820] Well, I think that's good. I'm pretty sure that's good.
+- [03:16.440] While other politicians fly around on campaign planes
+- [03:19.610] stocked with expensive catering, on Trump Force One,
+- [03:23.610] prior to ascending to Air Force One,
+- [03:26.530] which is quite a nice plane also,
+- [03:28.890] we served only McDonald's almost every time.
+- [03:31.630] On occasion, we couldn't find one,
+- [03:33.220] which is pretty hard to believe, we'd go another route,
+- [03:36.390] but we really did. You fed us very well.
+- [03:38.450] And I even got Bobby Kennedy to eat a Big Mac
+- [03:42.910] and he told me he loved it. He didn't want that publicized.
+- [03:47.330] He told me he loved it. I thought it was great.
+- [03:50.080] I want to thank McDonald's Chairman and CEO,
+- [03:52.480] Chris Kempczinski, who I just met backstage.
+- [03:56.000] I guess, gave him a little piece of my speech signed.
+- [03:59.960] I said, "Do you want to keep this?
+- [04:01.350] You can either hang it, you can give it to somebody,
+- [04:04.070] or you can throw it away. I don't care."
+- [04:06.580] But I don't stay on the speech too long anyway.
+- [04:09.630] So, usually those speeches aren't too accurate
+- [04:12.080] to what I give.
+- [04:15.480] But McDonald's USA President is here, Joe Erlinger.
+- [04:20.760] Joe, wherever you may be, thank you very much.
+- [04:23.690] Thank you. Thank you, Joe.
+- [04:25.840] Good job, along with everyone
+- [04:27.370] from the International Franchise Association,
+- [04:30.520] which does really fantastic work.
+- [04:34.660] I've heard from many people, you do a fantastic job.
+- [04:38.000] So thanks as well to two former McDonald's operators
+- [04:41.340] now serving in Congress,
+- [04:42.580] Representative Kevin Hern and Chuck Edwards.
+- [04:45.440] Are you here, fellas? Come on, fellas.
+- [04:51.910] And they're warriors, those two.
+- [04:53.360] They're warriors. Thank you very much. Great job.
+- [04:56.370] And of course, let me thank the people
+- [04:57.980] who truly keep the McDonald's magic alive;
+- [05:01.560] the incredible franchisees,
+- [05:04.190] and you got a lot of them here tonight.
+- [05:10.430] Yeah, and you're the heart and soul,
+- [05:11.940] and they would tell you that all the time.
+- [05:14.710] They tell me that.
+- [05:16.030] You carry on the commitment to what Ray Kroc said he wanted
+- [05:19.470] from every McDonald's restaurant; perfection.
+- [05:22.730] Have you heard that? Perfection. It was very strong.
+- [05:25.800] Ray liked to say that if you think small, you'll stay small.
+- [05:30.040] And that's why no one thinks bigger than McDonald's,
+- [05:33.530] not in your industry, and probably never will.
+- [05:36.020] I don't know if anybody can ever catch --
+- [05:37.640] I doubt it.
+- [05:39.000] Every single day, you feed an incredible 1 percent
+- [05:41.700] of the entire world population, 70 million meals every day.
+- [05:47.460] An amazing one in eight
+- [05:48.750] Americans works behind the counter
+- [05:50.750] of a McDonald's franchise at some point in their lives.
+- [05:54.330] Yeah, we heard about that. I heard about that.
+- [05:56.880] Wasn't true in that particular case,
+- [05:58.620] but for tens of millions of our citizens,
+- [06:02.020] the road to the American dream starts beneath
+- [06:04.450] the golden arches, beautiful golden arches.
+- [06:07.880] So, to each and every one of you,
+- [06:09.660] thank you and congratulations on 70 years of American greatness.
+- [06:14.340] Congratulations.
+- [06:19.400] And I just might add, this is also the golden age of America
+- [06:23.260] because we are doing better than we've ever done as a country.
+- [06:26.840] Prices are coming down and all of that stuff,
+- [06:29.810] and they talk about different terms for that,
+- [06:33.470] but I will tell you that nobody has done
+- [06:37.270] what we've done in terms of pricing.
+- [06:39.450] We took over a mess, we had the highest --
+- [06:42.410] Think of it, the highest inflation
+- [06:43.940] in the history of our country.
+- [06:45.180] They say 48 years, it was the history of our country,
+- [06:49.110] and now we have normal inflation,
+- [06:50.790] we're going to get it a little bit lower frankly,
+- [06:53.110] but we have normal --
+- [06:54.390] We've normalized it, we have it down to a low level,
+- [06:56.920] but we're going to get it a little bit lower.
+- [06:58.570] We want perfection.
+- [06:59.780] You always want 1 percent. I don't know if anybody knows.
+- [07:02.750] You don't want zero, zero can be bad.
+- [07:06.470] Then you start going the other route, that's no good either.
+- [07:08.950] Then you say, "What's worse, deflation or inflation?"
+- [07:12.250] But we have it almost at the sweet spot and prices
+- [07:15.460] are coming down on different things.
+- [07:18.080] One of your groups that you admire, I admire,
+- [07:21.660] Walmart came up last week
+- [07:23.830] and they announced that Thanksgiving,
+- [07:25.340] this year's 25 percent less.
+- [07:27.200] All of the accoutrements -- That Thanksgiving is 25 percent
+- [07:31.750] less than it was last year under sleepy Joe
+- [07:34.370] Biden. So, that's a big statement.
+- [07:39.290] And others have followed up by saying just about that.
+- [07:42.730] And to your leader, who when we met, I said,
+- [07:46.270] "How are you doing with prices? Prices are coming down."
+- [07:48.650] He said, "We were up 40 percent because of Biden and inflation,
+- [07:52.330] and they're coming down and they're coming down rapidly."
+- [07:54.520] So, I hope that all continues to go,
+- [07:58.490] but we're really doing well as a country.
+- [08:00.050] Most importantly, however, I will tell you, big picture,
+- [08:03.020] we have over $17 trillion
+- [08:06.130] being invested in our country in nine months.
+- [08:09.180] It's now just about ready to crack 18.
+- [08:12.020] And by the end of one year, we will have about $20
+- [08:15.750] to $21 trillion invested on our country.
+- [08:19.290] That's more, by 10 times,
+- [08:21.740] the highest amount ever invested in any country ever before.
+- [08:26.760] And it's largely because of tariffs
+- [08:29.080] and I think November 5th election,
+- [08:31.960] but it's the largest amount --
+- [08:33.600] As an example, so if we have 20 or 21 in one year,
+- [08:37.350] 21 trillion, think of what that is.
+- [08:40.050] That's car factories, it's AI, it's everything.
+- [08:43.380] They're all coming back because of the tariffs.
+- [08:45.850] They're all coming back because they don't want to pay
+- [08:48.310] 15 percent, 20 percent, 30 percent, 100 percent tariff.
+- [08:51.560] It wasn't that complicated.
+- [08:52.960] People are saying, "Trump was right.
+- [08:54.580] It really wasn't that complicated."
+- [08:56.870] But it's been amazing.
+- [08:58.080] As an example, if you take me at 20 for one year,
+- [09:01.920] sleepy Joe Biden, you know what he was?
+- [09:04.050] Less than one for four years.
+- [09:06.870] And if they got elected, they would've been at minus 10
+- [09:10.000] because people were moving out of the country in record numbers
+- [09:13.840] and welfare and other charges were increasing at levels
+- [09:18.930] that nobody has ever seen before.
+- [09:21.270] So, you would've had double and maybe 50 percent,
+- [09:25.410] maybe literally more than they've ever seen.
+- [09:28.170] Welfare was going up. Everything was going up.
+- [09:30.930] Government jobs were going up, real jobs were going down.
+- [09:34.430] So, you would've had that catastrophe.
+- [09:36.260] And on top of it, instead of 20 trillion coming in,
+- [09:39.390] you would've had 10 trillion leaving our country.
+- [09:42.910] In other words, you would've had a catastrophe.
+- [09:45.900] You probably would've had a bankrupt country.
+- [09:48.620] You are so damn lucky that I won that election, I'm telling you.
+- [09:52.400] It's true. It's true. It's actually true.
+- [09:58.390] I hope the press covers that. Some days,
+- [10:02.240] "He got up and he ranted and raved and bragged."
+- [10:05.390] I don't brag. I just give you the facts, it's true.
+- [10:08.490] But those in this room know the people of our country
+- [10:10.900] better than anybody. And before the sun rises,
+- [10:14.140] you're up serving hot coffee to construction workers,
+- [10:16.990] nurses, and police officers on the way to the job.
+- [10:20.240] In the evening, you stand ready with the fast dinner
+- [10:23.730] and a smile for busy moms
+- [10:25.480] and their children as they race from school to soccer practice.
+- [10:29.460] Really is, it's Americana. And late at night,
+- [10:32.930] your lights are often the only one still glowing
+- [10:35.480] when the long-haul trucker pulls up for a good meal
+- [10:39.460] and a best Coca-Cola in America. Best Coca-Cola.
+- [10:45.500] And I'll bet they use real sugar in your Coca-Cola.
+- [10:49.450] They didn't in the United States.
+- [10:51.010] I said to the head of Coca-Cola, "You got to go to sugar.
+- [10:54.260] They do in other countries."
+- [10:55.560] And you know what? They went to sugar.
+- [10:57.100] Isn't that nice? I said, "You got to go to sugar."
+- [10:59.660] Just like I said, "Why is the Gulf of Mexico
+- [11:03.370] called the Gulf of Mexico?"
+- [11:05.850] I said, "We're changing the name."
+- [11:08.400] And now it's the Gulf of America.
+- [11:09.890] It has nothing to do with McDonald's,
+- [11:11.430] but maybe it does because it's very nice --
+- [11:15.800] We have 92 percent of the shoreline, they have 8 percent.
+- [11:19.390] I wouldn't say I made a lot of friends in Mexico,
+- [11:21.480] but they still like me. Wasn't that a good change?
+- [11:25.780] No, seriously, wasn't that beautiful?
+- [11:29.260] And it was done in an instant.
+- [11:30.840] It's like, normally you think a thing like
+- [11:32.940] that would take years. This took, like, 10 minutes.
+- [11:36.870] I asked somebody, good lawyers in my office, I said,
+- [11:41.350] "Would I be able to change the Gulf of Mexico?
+- [11:43.950] Is that possible, to the Gulf --"
+- [11:45.780] "Sir, it's been that way for 350 years.
+- [11:48.080] They were here 100 years before us.
+- [11:50.620] We were 250, they were 350.
+- [11:52.870] It's been called the Gulf of Mexico, sir, for 350 years."
+- [11:56.980] I said, "That's not the question.
+- [11:58.390] Am I able to change it?" " Yes." "What do I do?"
+- [12:03.030] "Just give us the order. We'll do it."
+- [12:05.920] And I did and we changed it and everybody's happy.
+- [12:09.230] Well, not everybody, but most people. Most people are happy.
+- [12:12.860] But it's great prestige for our country.
+- [12:14.860] It's tremendous prestige for our country.
+- [12:16.850] And that's good for McDonald's
+- [12:18.560] and that's good for everybody else.
+- [12:19.870] As President, I want you to know that I'm fighting every day
+- [12:23.130] to support small businesses like yours
+- [12:25.470] and the citizens that we all serve.
+- [12:30.150] And together, we're fighting for an economy
+- [12:32.350] where everyone can win,
+- [12:33.640] from the cashier starting her first job to a franchisee
+- [12:37.450] opening his first location
+- [12:38.980] to the young family in a drive-through line.
+- [12:41.950] I've been on that line many times.
+- [12:43.310] Actually,
+- [12:44.550] that line was incredible in the commercial, right?
+- [12:46.850] It wasn't a commercial, it was about --
+- [12:48.740] But they had the line, the people had no idea,
+- [12:51.870] so I made the French fries.
+- [12:53.130] The guy was really good, he had a great wrist.
+- [12:54.830] He was -- He was going like, "Sir --"
+- [13:02.830] It was not that easy, but I got it sort of finally.
+- [13:06.330] Not the greatest, but get it, pouring it in,
+- [13:09.080] asking them all sorts of stupid questions.
+- [13:10.910] But it was very interesting. Amazing.
+- [13:12.510] A little thing is not -- It's a little complex, right?
+- [13:15.950] To father and son over there that own a lot.
+- [13:18.520] They're very rich people.
+- [13:20.190] But I'll tell you what? I asked, "How many do you have?"
+- [13:23.440] "Sir, I have 59." I said, "You're rich."
+- [13:27.490] But nobody knew in the line. That line was a long line.
+- [13:31.080] They had 25,000 people.
+- [13:32.540] So somebody let them know we were coming.
+- [13:34.510] It was toward the end of the campaign.
+- [13:37.050] And after I did the French fries and did some other things.
+- [13:40.060] I then stood at the window and the people would drive up.
+- [13:43.300] A little board in all fairness.
+- [13:45.720] I mean, they're waiting for a hamburger, okay?
+- [13:47.800] So they'd drive up like this, they'd look over, "Whoa."
+- [13:54.050] Every one of them.
+- [13:56.250] It was fascinating.
+- [13:58.170] Every one of them, the response was incredible.
+- [14:02.440] Almost like I knew I was going to win when I saw that.
+- [14:05.550] I knew because the response was love. It was great.
+- [14:08.000] They had a good time. But we did, I think 12 people,
+- [14:11.270] every one of them had the same response.
+- [14:13.090] They drive up. They did. They this.
+- [14:15.770] They get that, getting a little cash ready
+- [14:18.690] and they look over and it was some did a double take.
+- [14:21.220] Some went like that, "Wow."
+- [14:24.020] But it was sort of an amazing moment.
+- [14:27.890] I did a garbage truck also, right?
+- [14:30.250] And everybody, and I thought when I spoke
+- [14:32.500] with Serga and Sundar, I said,
+- [14:35.660] "Yeah, but the garbage truck was equal, wasn't it?"
+- [14:37.840] They said, "Not even a -- The Garbage truck was great.
+- [14:40.880] Not even a contest to McDonald's."
+- [14:43.420] And that's because we had the power of McDonald's.
+- [14:46.890] I mean, it was an amazing thing.
+- [14:49.340] I thought the garbage --
+- [14:50.650] Frankly, I thought the garbage truck would've won.
+- [14:53.450] And they said it was good, but it wasn't even close.
+- [14:57.220] So that's a tribute to what you've built really.
+- [14:59.980] It really is a tribute to what you built.
+- [15:01.560] But there's still a lot of work to do,
+- [15:03.850] and we're making tremendous progress.
+- [15:06.050] 1.9 million more American-born workers
+- [15:10.010] are employed today than when I took office.
+- [15:12.780] Think of that, 1.9 million more today.
+- [15:16.790] And these are American-born workers.
+- [15:19.660] Nobody thought that was possible.
+- [15:22.060] And we have the strongest borders
+- [15:23.520] in the history of our country.
+- [15:24.750] Nobody comes in unless they come in legally.
+- [15:27.880] And you see the numbers. Everyone thinks it's impossible.
+- [15:30.800] A year ago, millions of people were storming our borders.
+- [15:34.370] Today they only come in if they come in legally.
+- [15:38.230] And wages for hourly workers
+- [15:39.840] are rising at the fastest pace in 60 years.
+- [15:42.430] And sometimes you might say, was that good or bad?
+- [15:45.400] It's great for you.
+- [15:47.670] The minimum wage thing you'll have to be talking about,
+- [15:49.820] you're going to have to fight.
+- [15:51.030] We were talking about California,
+- [15:52.870] Gavin Newsom from California.
+- [15:56.570] And I knew he's laying siege on the minimum wage.
+- [16:00.510] And you people probably know
+- [16:01.850] 'cause that's a very complex subject,
+- [16:03.620] and you people probably know better
+- [16:05.750] than anybody the impact one way or the other, good or bad.
+- [16:09.720] And you're going to let your local congressmen,
+- [16:11.710] your senators know about it.
+- [16:13.570] But in nine months, we've lifted over 600,000 Americans
+- [16:17.020] off of food stamp, and that's a record.
+- [16:19.420] And in stock, 'cause we really have a strong economy.
+- [16:22.200] I mean, we're building thousands and thousands of factories
+- [16:25.980] all over this country. Wait till they open up.
+- [16:29.060] You're going to see something
+- [16:32.200] I think like we've never seen before.
+- [16:34.020] We lost our auto industry. 54 percent of our auto industry
+- [16:39.630] left for other places over the years,
+- [16:42.640] and I think we're going to get it more than all back.
+- [16:45.390] They're coming in from Mexico, from Canada, from Germany.
+- [16:48.920] They're coming in from Japan.
+- [16:50.850] We made a deal with Japan, $650 billion.
+- [16:54.200] We never got anything. We made a deal with the European Union,
+- [16:57.500] $950 billion
+- [16:59.440] and have to buy our oil and gas and many other things.
+- [17:02.910] And I want to say it's good for everybody, all that.
+- [17:04.790] We made a deal recently with China
+- [17:07.100] where they buy our soybeans,
+- [17:08.530] but it's hundreds of billions of dollars.
+- [17:11.740] And it's incredible what's taken place in our country.
+- [17:16.030] The world was laughing at us like we were stupid people.
+- [17:19.450] They're not laughing anymore. They don't laugh at us anymore.
+- [17:21.970] They respect us now again.
+- [17:23.830] And that's what we want. We want to be liked.
+- [17:26.420] We want to be respected much more so than being liked.
+- [17:29.950] And in a certain way, they like us better now, too.
+- [17:33.040] They respect us, but they like us better now,
+- [17:35.580] because the world was ripping off our country.
+- [17:38.510] Not sustainable. Not even sustainable.
+- [17:41.900] China was making $722 billion. Think of that. Not million.
+- [17:50.060] 722 million is a lot, isn't it? $722 billion.
+- [17:54.950] They built their military with the money
+- [17:56.410] that we gave them over the years.
+- [17:58.590] Then in my first term, we had a great first term,
+- [18:00.980] the most successful economy we've ever had in my first term.
+- [18:04.870] This is going to blow it away. This is blowing it away,
+- [18:07.730] to be honest with you, it blows everything away.
+- [18:10.170] There's never been a time like this,
+- [18:12.590] and you're going to see the results pretty quickly.
+- [18:16.140] But it saw contrast to the previous administration.
+- [18:18.890] 100 percent of all new jobs created in America
+- [18:22.920] under my administration
+- [18:24.790] have been created in the private sector
+- [18:28.230] because we are trimming out government jobs.
+- [18:34.060] What they do is they give you phony job numbers
+- [18:36.090] in a lot of ways, but they'd hire 100,000 people
+- [18:39.260] and all of a sudden it looks like they're doing well.
+- [18:40.980] They're not doing well
+- [18:42.300] 'cause those are jobs that are, they hurt our country.
+- [18:46.140] If those jobs can be in the private sector,
+- [18:48.390] paying taxes and all the other things,
+- [18:50.870] it's a big -- 100 percent of the jobs
+- [18:53.290] that we put in have been, think of that,
+- [18:55.570] are in the private, come from the private sector.
+- [18:57.860] My first term, we built the greatest economy
+- [19:00.680] in the history of the world, and now we're doing it again.
+- [19:03.540] But this time it really is,
+- [19:05.100] as I said, much stronger, much better.
+- [19:09.440] I think it's going to be something
+- [19:10.990] that nobody has ever seen before.
+- [19:12.830] My pledge to every family and every small business
+- [19:16.080] is that I will not rest until you are
+- [19:18.770] richer, stronger, more successful, happier,
+- [19:22.270] until you've gotten a piece of the American dream.
+- [19:24.470] Some of you in this room have really gotten a piece of it
+- [19:27.480] because you made a great decision
+- [19:29.040] to go with a great, great company years ago.
+- [19:33.170] It's really pretty amazing.
+- [19:34.540] And that begins with making America.
+- [19:37.160] We have to do the word is affordable.
+- [19:39.850] And affordable should be our word, not theirs.
+- [19:42.960] Because the Democrats get up and start going,
+- [19:44.740] "Affordability, affordability,"
+- [19:46.030] and they don't say that they had the worst inflation in history,
+- [19:49.540] the highest energy prices in history.
+- [19:52.190] Everything was the worst. What they're great at is lying.
+- [19:56.010] They say affordability.
+- [19:58.240] This stuff was all much more expensive.
+- [20:00.560] We have a couple of items like coffee,
+- [20:02.200] which is a little high. We're going to get that down.
+- [20:03.800] You saw that today. The coffee comes down.
+- [20:06.070] Remember when I first took over? Eggs.
+- [20:08.680] My third day in office, I have a news conference
+- [20:11.510] and the fake news media was screaming at me,
+- [20:14.430] Mr. Congressman about eggs, remember that?
+- [20:17.090] I'm standing there very innocent.
+- [20:19.050] "Hello. Do you have any question?"
+- [20:21.120] "What about eggs?" "What about them?"
+- [20:23.760] "They're up four times."
+- [20:25.730] I said, "Look, I just got here. I'm sorry."
+- [20:28.840] And Brooke Rollins and Department of Agriculture
+- [20:31.390] did a phenomenal job and over.
+- [20:33.240] They said, "Don't order eggs for Easter
+- [20:35.100] because you won't be able to get them."
+- [20:37.140] And they said, "We have a big Easter egg
+- [20:38.790] hunt at the White House.
+- [20:39.990] It's sort of a thing that has gone on for a hundred years."
+- [20:44.200] They said, "Could you order plastic eggs?"
+- [20:46.720] I said, "I'm not ordering plastic eggs.
+- [20:48.480] We're going to have eggs down by that time."
+- [20:50.660] And by the time we got to Easter,
+- [20:52.790] the price of eggs had fallen precipitously.
+- [20:55.390] We had all the eggs in this country you want.
+- [20:59.390] We know what we're doing.
+- [21:00.590] I mean, we know what we're doing.
+- [21:01.850] We rebuilt our military.
+- [21:03.940] We have the greatest military anywhere in the world.
+- [21:06.080] We make the greatest military equipment anywhere in the world.
+- [21:10.790] And everybody knows it. And everybody knows it.
+- [21:14.380] And you saw that with the way we took out
+- [21:16.140] the nuclear capability of Iran with those gorgeous B2 bombers.
+- [21:20.080] They flew in there and they wiped it.
+- [21:22.780] And the word was obliterated. Remember when CNN said,
+- [21:25.310] "Well, it might not have been obliteration."
+- [21:28.370] Think of the pilots. They go in there, they're under fire.
+- [21:33.340] I was watching this from The Situation Room,
+- [21:36.170] and you get to see things in The Situation
+- [21:38.410] you wouldn't believe.
+- [21:39.790] And they said, "Sir, they have entered Iran airspace."
+- [21:43.860] All of a sudden you see da-da-da-da-da much faster.
+- [21:46.880] Then you see them going down at. The whole thing was crazy.
+- [21:49.850] I actually said, "Do people really want to do that
+- [21:51.870] for a living? They're waiting for them."
+- [21:55.340] But the equipment is so good. The B2 bomber, stealth.
+- [21:59.020] They never saw them. They never saw them.
+- [22:01.580] I mean, it's the most amazing thing.
+- [22:03.690] And I honored the pilots at the White House.
+- [22:06.740] I had them brought in along with mechanics
+- [22:08.510] and a lot of other people.
+- [22:09.780] We brought them to the White House
+- [22:11.330] to give a little celebration
+- [22:12.580] 'cause they flew 37 hours flawlessly.
+- [22:16.560] Now compare that to the Jimmy Carter Iran situation
+- [22:21.340] with the helicopters crashing and the this and the,
+- [22:23.900] oh, what a horror and the hostages.
+- [22:26.630] And I said, "We can't let that happen."
+- [22:28.360] But we have a great team.
+- [22:29.600] General Raizin Caine is unbelievable.
+- [22:31.560] The whole group is unbelievable.
+- [22:33.610] And they went in and I brought them into the White House
+- [22:35.830] and I brought them then into the Oval Office,
+- [22:37.730] the pilots, and we met them. All handsome.
+- [22:42.700] They looked like Tom Cruise. They really do.
+- [22:46.120] I don't want to be a wise guy and say, "But taller."
+- [22:48.960] I'm not going to say that. No, they're perfect specimens.
+- [22:52.870] I mean, these guys are like for a movie.
+- [22:54.560] I could take everyone, put them in a movie.
+- [22:57.050] And I said to them, "So what's the story with that Ray?
+- [23:00.120] Did you expect,"
+- [23:01.430] 'cause you remember I pulled it back
+- [23:03.500] because I saw a reporting
+- [23:05.220] that we're going to be leaving at a certain time.
+- [23:08.010] And I said to the general,
+- [23:09.240] "Is that not good that they think that?"
+- [23:11.930] And they sort of got it right. They saw a lot of activity.
+- [23:14.660] Actually you know why?
+- [23:16.750] One of the things, they saw a lot of unbelievable activity
+- [23:20.430] going on at the McDonald's
+- [23:21.990] next to the base where they take off.
+- [23:24.480] The McDonald's was doing five, right? Five times.
+- [23:27.360] They were going crazy.
+- [23:29.400] So they say there's something going on over there,
+- [23:32.080] the biggest activity that McDonald's had ever had.
+- [23:35.920] And it was a nice story, how well it's doing.
+- [23:37.920] But that was not a good story for us.
+- [23:40.250] So I canceled it and then I announced we're canceling it,
+- [23:44.590] and the pilots said they were devastated.
+- [23:46.620] Then I put it back at the exact same time
+- [23:48.650] 'cause that was the only time they weren't
+- [23:50.170] thinking would happen. And we left exactly in time.
+- [23:53.230] But that was after canceling it two days before.
+- [23:56.210] And then we put it right back in the exact same slot
+- [23:59.760] and we had identical planes.
+- [24:03.040] B2s flying, four of them flying into Guam.
+- [24:06.760] And they thought that was the attack team.
+- [24:09.620] And they were watching those planes in Guam go into Guam.
+- [24:12.300] And that was not the planes that we had.
+- [24:14.720] But think of it. They flew both ways,
+- [24:16.080] 37 hours without a sputtering of a bad engine,
+- [24:20.720] without any problem.
+- [24:22.950] But they got in and they said they have entered Iran airspace.
+- [24:26.660] And the enemy's waiting for them.
+- [24:29.690] And they drop the bombs. They hit every chute.
+- [24:32.060] They have air chutes that go deep into the granite mountains.
+- [24:35.070] If you don't hit those chutes,
+- [24:36.670] the damage won't be as big as you want.
+- [24:39.840] And every bomb hit every chute.
+- [24:43.790] And then we hit them with rockets from a submarine
+- [24:47.380] that was quite a distance away, 30 of them.
+- [24:49.960] Let's put it this way.
+- [24:51.200] They got hit and it totally took out the nuclear capability.
+- [24:54.770] And I said to these guys when they came in to the office.
+- [24:58.150] I said, " Do you guys like doing this stuff?"
+- [25:03.430] They said, "Sir, it was the greatest day of our life."
+- [25:05.950] Can you believe this, Congressman?
+- [25:08.040] It was the great -- I mean, they're like heroes.
+- [25:10.350] They're like American heroes.
+- [25:12.340] Who the hell wants to sit?
+- [25:15.260] Those ships are very big, but they're very small
+- [25:17.040] when you're up way high, going very fast.
+- [25:21.100] And he said, "It was the greatest day of our life."
+- [25:23.400] And they told me something that I didn't know.
+- [25:25.570] They said that, "Sir, do you know
+- [25:27.760] we waited 22 years for this. Our predecessors and us,
+- [25:32.300] we would practice this run for 22 years."
+- [25:35.870] I didn't know that.
+- [25:37.190] "For 22 years we had to practice.
+- [25:40.040] We'd do it three times a year.
+- [25:41.870] We would practice this exact run.
+- [25:44.620] And then when you canceled it,"
+- [25:45.880] 'cause I canceled when they heard that we were coming,
+- [25:48.940] "we were devastated."
+- [25:51.690] I said, "See now, if I were a flyer and they canceled,
+- [25:53.960] I'd be extremely happy.
+- [25:55.160] Well, we're canceled, so let's forget it."
+- [25:57.910] "But we were devastated."
+- [25:59.910] So I said, "This is something you really love, right?"
+- [26:02.000] "Yes, sir. We were so honored.
+- [26:03.330] This was the greatest day of our life."
+- [26:04.740] I mean, it's really great.
+- [26:06.030] We just have incredible people in this --
+- [26:07.630] It's an amazing story.
+- [26:09.420] And they hit, and then they said "Skedaddle."
+- [26:12.740] The word skedaddle. And that plane went like this.
+- [26:16.290] When it drops a bomb, it goes down very steeply
+- [26:19.490] because that gives it a better angle
+- [26:21.690] and more speed for the bomb. Very, very heavy bombs.
+- [26:27.290] And they go, boom. And as soon as those things,
+- [26:30.420] the one pilot of the first one said, "Skedaddle."
+- [26:33.800] And that thing just turned in its side.
+- [26:37.080] And I mean, it's so unbelievable.
+- [26:40.020] And that knocked out Iran nuclear capability
+- [26:44.330] and all of the Middle East became a different place.
+- [26:47.730] And now we have peace in the Middle East
+- [26:49.690] and at the United Nations today
+- [26:52.350] they approved the board of peace,
+- [26:53.740] which is, I'm going to chair and we're picking the leaders
+- [26:57.030] or the heads of the most important nations in the world.
+- [26:59.570] I think it'll be a board like no other,
+- [27:01.970] other than perhaps the McDonald's board,
+- [27:03.700] you have a very good board.
+- [27:05.620] You actually have a very good board.
+- [27:07.620] But nobody thought a thing like that was --
+- [27:10.260] This just happened today. The board of peace,
+- [27:13.210] and it's going to be comprised of myself
+- [27:15.500] and leaders of other very important nations
+- [27:18.630] and very respected nations. And it's going to be something
+- [27:22.270] I think is going to be very important.
+- [27:23.870] It was just approved,
+- [27:25.070] it was just endorsed by the United Nations.
+- [27:28.560] It was pretty great. It's a big thing.
+- [27:30.570] I think it's one of the most important things
+- [27:32.030] the United Nations will ever do actually.
+- [27:34.590] But Joe Biden's prices and his hikes
+- [27:37.430] cost a typical American family an estimated $33,000
+- [27:42.090] and hit your workers and your customers
+- [27:44.040] and your small businesses very, very hard.
+- [27:47.130] The Biden administration started the affordability crisis,
+- [27:50.880] and my administration is ending it.
+- [27:53.350] I'm ending it. Prices are way down.
+- [27:55.150] If you just look, so we don't have,
+- [27:57.810] as I said, the inflation,
+- [28:00.530] but our energy prices are way down.
+- [28:03.280] And despite hamburgers being a big business,
+- [28:05.850] energy is one business that's bigger.
+- [28:08.050] When you get energy down, everything else is affected.
+- [28:10.620] If you start bringing the price against,
+- [28:12.210] that's like a massive tax cut.
+- [28:14.730] And they were selling, they were having gasoline
+- [28:16.890] at $4.75 a gallon and $4.50, $3.50, $3.75.
+- [28:22.420] We're very much, we're going to be able,
+- [28:24.380] it looks like we're going to be able to hit $2 a gallon
+- [28:27.010] in the not two distant future, but let's say we're $2.50,
+- [28:29.740] $2.70, other than places like California,
+- [28:32.700] that's not fair because they put so high a tax
+- [28:34.880] on that you're really paying a lot of that price is the tax
+- [28:38.550] that you're paying to government,
+- [28:40.430] which is horrible actually what they do.
+- [28:43.360] But the price of gasoline
+- [28:45.830] and the price of energy is way down.
+- [28:48.130] So when energy comes down, you make the donuts,
+- [28:51.090] you make the chicken, you make whatever you're making.
+- [28:53.920] Everything is all about energy.
+- [28:55.460] You have to deliver it, you have the trucks, you have the fuel.
+- [28:58.850] When energy comes down and it's come down fast.
+- [29:01.400] We had an expression drill baby drill,
+- [29:04.530] and I drilled baby drilled. I tell you, we drill.
+- [29:08.200] Last month it was announced, we produced more oil and gas
+- [29:12.150] than any time in the history of our country by far.
+- [29:15.580] And when you do that, everything comes down.
+- [29:17.920] You don't even have to look at the numbers.
+- [29:19.700] And it's all beautifully coming down.
+- [29:22.850] And as per your chief executive
+- [29:26.810] and your chairman and everybody else,
+- [29:28.730] they told me the prices at McDonald's are coming down.
+- [29:31.550] It's moving, it's moving down.
+- [29:34.010] Unfortunately, they were so high in the last administration
+- [29:38.230] that people aren't that happy because it was so high.
+- [29:40.570] So even though it's coming down and coming down a lot,
+- [29:44.670] they want to see where it was when I was president.
+- [29:48.440] And we'll be getting it very close to that number,
+- [29:50.540] maybe even better depending on what we do with energy.
+- [29:52.940] But the energy's coming way down.
+- [29:55.010] In the nine months since I took office,
+- [29:56.730] we've stopped inflation in the tracks since January.
+- [29:59.870] The core inflation has been the lowest
+- [30:02.370] in just about eight years. Just changed.
+- [30:06.090] It was four years, now it's eight years.
+- [30:07.940] It just changed about an hour, they just said,
+- [30:10.910] "Sir, if you want, we can rewrite the speech."
+- [30:12.950] I said, "No, I can remember it very nicely.
+- [30:14.860] Thank you. I'm not Biden."
+- [30:20.040] In the past six months,
+- [30:21.330] the price of breakfast items has fallen 14 percent.
+- [30:24.500] Bread prices are down, dairy prices are down,
+- [30:27.340] and the price of eggs has declined 86 percent since March.
+- [30:31.230] And much more than that since when I took over,
+- [30:34.330] because when I took over, it was an egg crisis as we said.
+- [30:38.750] And I want to give a very special
+- [30:40.300] thanks to McDonald's for slashing prices,
+- [30:42.540] for your most popular items, bringing back extra value meals.
+- [30:47.020] And I hear you're recommitting
+- [30:48.720] to the affordable options of Americans
+- [30:51.590] that we really know and love all of the items that we love.
+- [30:55.180] And I hear that McDonald's is playing a very big role in that.
+- [30:57.650] We're getting prices down for this country,
+- [30:59.830] and there's no better leader or advocate than McDonald's.
+- [31:03.050] And I believe the next time I'll have to be,
+- [31:05.780] maybe I'll have to be back here again next year
+- [31:07.490] if you get them down enough, okay.
+- [31:09.910] That's all you have to do for me, is get them down enough.
+- [31:12.560] We'll come back. We'll come back, Mr. chairman.
+- [31:15.980] But while Democrats wanted to give Americans
+- [31:18.260] the largest tax hike in history in July,
+- [31:21.880] I proudly gave you the largest tax cuts in American history
+- [31:25.070] and signed the One, Big Beautiful Bill.
+- [31:26.790] I caught the great big beautiful bill into law
+- [31:29.860] that includes no tax on tips, no tax on overtime,
+- [31:34.270] and no tax on social security for our great seniors.
+- [31:37.620] That is a big deal.
+- [31:44.380] So the great big beautiful bill
+- [31:46.050] is the biggest piece of legislation ever passed
+- [31:49.060] in our country's history.
+- [31:50.710] It gives expensing to you as owners where you do something,
+- [31:55.000] you could expense it,
+- [31:56.200] you can take it off one year instead of 38 or 40 years.
+- [32:00.300] It gives you so many things, and I'm not giving it to you,
+- [32:03.170] I'm giving it to the people that you're hiring.
+- [32:04.810] Because giving it for jobs.
+- [32:06.530] You're going to expand, you're going to do tremendously.
+- [32:08.560] You spend money and you can write it off quickly
+- [32:11.060] as opposed to over a period of many, many years.
+- [32:13.600] The typical waiter, waitress, or police officer
+- [32:16.600] will take home roughly $2,000 extra each year
+- [32:20.070] because of just what we've done on taxes.
+- [32:23.120] And the tax cut bill, and I call it the tax cut bill,
+- [32:25.800] is also a big boost to small businesses like yours.
+- [32:29.090] It includes permanent expensing.
+- [32:31.450] And again, the biggest thing I did in my first tax cut bill,
+- [32:35.650] and this also expanded and extended.
+- [32:38.280] That was the expensing, the 100 percent expensing.
+- [32:42.160] But now we have the expensing for a 10 year period.
+- [32:45.430] So for 10 years.
+- [32:46.710] And frankly, I sort of said, let's make it two years
+- [32:50.540] because I want the results to be immediate.
+- [32:53.130] 10 years, they can take their time.
+- [32:56.360] I had a lot of pushback, including from these guys.
+- [32:58.700] They said, "No, the right thing."
+- [33:00.370] It might've been good for us politically,
+- [33:01.950] but it would've been,
+- [33:03.150] it's better what we did ultimately for the country.
+- [33:05.350] So we have 10 year full expensing.
+- [33:08.600] Nobody thought that was possible to get.
+- [33:11.470] We also expanded tax relief for all franchisees
+- [33:15.710] and made the pass through deduction permanent.
+- [33:19.010] It's now permanent.
+- [33:20.510] And very importantly, under our tax cut bill,
+- [33:23.230] we virtually eliminated the unfair estate tax or death tax.
+- [33:26.710] So you can keep your family business in the family,
+- [33:30.220] your children, if you love your children,
+- [33:33.900] if you leave your beautiful place to your children,
+- [33:36.450] you won't have estate tax. Small business.
+- [33:39.670] Now, if you don't love your children,
+- [33:42.360] you don't really care what I'm saying right now.
+- [33:45.420] I've only had two or three people over the years
+- [33:47.850] or say I take a vote.
+- [33:49.400] Does anybody in this room dislike their children
+- [33:52.200] where you're not leaving it to your children?
+- [33:54.610] And it's always blank, blank, blank.
+- [33:56.070] Then all of a sudden, one guy about six rows back,
+- [34:00.730] and I thought he was kidding. I said, "Oh, that's so funny."
+- [34:03.300] "I'm not kidding. My kid is no good. I'm not --"
+- [34:07.730] And I said, "This is amazing."
+- [34:09.280] So he's not so happy with this, but it's all right.
+- [34:12.510] But think of it, farmers especially
+- [34:15.310] where they'd have a farm and the expression,
+- [34:18.030] the land rich, cash poor a little bit,
+- [34:20.390] but they have a great wonderful thing
+- [34:22.160] and a way of life that they wouldn't change with anybody,
+- [34:25.030] not even a franchisee.
+- [34:27.110] They don't want a McDonald's if they have a farm,
+- [34:29.790] they love their farm just like you love what you're doing.
+- [34:32.620] But the farmers were dying,
+- [34:35.430] leaving their farm to their children.
+- [34:38.000] The value of the farm was high.
+- [34:39.710] They'd go out, they'd have a tremendous estate tax
+- [34:42.860] or death tax, and it would so much,
+- [34:46.580] I mean, the percentage is crazy how high,
+- [34:49.600] they'd end up losing the farm in bankruptcy.
+- [34:51.630] They'd go out and borrow all this money to pay the tax,
+- [34:55.580] the estate tax.
+- [34:56.920] They'd put a mortgage on the farm
+- [34:58.220] and they'd end up losing the farm.
+- [35:00.150] Many of them committed suicide. They would commit suicide.
+- [35:03.190] It was such a horrible thing that was happening.
+- [35:05.750] And we've ended, think of that,
+- [35:08.380] the death tax, the estate tax on the small businesses.
+- [35:11.000] So I hope you're around for a long time,
+- [35:14.780] you don't have to think about it,
+- [35:16.390] but it's a great thing for your family
+- [35:18.280] and it's a great thing for longevity.
+- [35:20.680] You treat your franchise just like a farmer
+- [35:23.360] treats his farm. You love it.
+- [35:24.620] I know you're there early. You're cleaning it,
+- [35:26.530] a little touch your paint here or there.
+- [35:28.120] We got, there's a little spot on the ceiling.
+- [35:31.380] Drives you crazy, right?
+- [35:33.010] It's love, it's love for what you do.
+- [35:36.110] It's amazing the job you do too. I see it.
+- [35:38.280] I go, I've been in plenty of McDonald's
+- [35:40.270] that clean beautifully.
+- [35:42.470] You must have some awfully good incentives
+- [35:44.470] because they are really amazing places.
+- [35:46.900] The job that's done. But upon taking office,
+- [35:49.030] I signed an order requiring that for every new regulation,
+- [35:53.200] 10 old job-killing regulations have to be eliminated.
+- [35:57.390] So if we put in a new regulation,
+- [36:00.870] then we get rid of 10,
+- [36:03.040] otherwise you don't get the new regulation.
+- [36:05.270] And we got rid of the drip-drip water.
+- [36:07.110] We call it the drip-drip where drip-drips out of the sink.
+- [36:10.310] States with tremendous water, so much water,
+- [36:12.680] they have nothing but problems getting rid.
+- [36:15.790] They had restrictions on water.
+- [36:17.400] It comes down from heaven, right?
+- [36:19.320] They had restrictions on water.
+- [36:21.170] So you want to wash your hands or like me,
+- [36:24.200] I want to wash my hair. I lather up.
+- [36:28.400] Then I turn that and there's no water.
+- [36:30.940] The water's drip, they call it. They put a restrictor on.
+- [36:35.620] I won't mention the third item in the bathroom
+- [36:37.710] because I always get criticized.
+- [36:38.970] I used to mention that, but I don't mention it anymore
+- [36:41.440] because you know what -- I think you do.
+- [36:44.170] If you don't know what I'm talking about,
+- [36:45.600] then you shouldn't be owning a McDonald's franchise.
+- [36:49.010] You wouldn't do well even with a McDonald's franchise.
+- [36:51.610] But no, the water restrictions totally left it.
+- [36:54.260] All restrictors are gone.
+- [36:56.360] And it's interesting, your dishwashers were covered, right?
+- [37:00.200] You had no water.
+- [37:01.650] I was with some of the people that make them,
+- [37:04.850] Whirlpool and others, and they said,
+- [37:07.250] "Sir, they won't give us the water
+- [37:08.810] to use in our dishwashers or use in our washing machines.
+- [37:12.430] The washing machines have no water.
+- [37:13.960] I mean, it's like a glass of water,
+- [37:15.980] half a glass of water.
+- [37:17.770] We need water." And I said, "How bad is it?"
+- [37:20.810] He said, "Well, like the dishwasher.
+- [37:23.550] They put the dishes in and they just keep pressing the button,
+- [37:27.060] bing, bing, they end up using more water."
+- [37:30.430] So I gave them, as you know, unlimited water.
+- [37:32.430] Biden came back with a rigged election
+- [37:35.090] and he immediately restricted the water again.
+- [37:38.190] But I came back and immediately unrestricted again.
+- [37:41.170] So now you have unlimited water to clean your damn dishes. Okay?
+- [37:45.660] And other things, your hands. Didn't you hate that?
+- [37:49.080] You walk in to wash your hands. I'm a big hands guy.
+- [37:51.770] I like to wash my hands. I used to hate shaking hands.
+- [37:55.500] Now, once you run for office,
+- [37:58.430] you better like shaking hands or you got a problem.
+- [38:01.110] You ever see a politician?
+- [38:02.390] "No, I don't want to shake hands."
+- [38:03.680] Can you do that?
+- [38:04.970] I don't think you wouldn't be a politician very long.
+- [38:07.210] I actually thought that with COVID,
+- [38:08.790] that would be the end because they didn't want you to shake.
+- [38:10.640] I said, "Well."
+- [38:11.870] But then it came back a little bit slowly then eventually.
+- [38:14.670] But when you're a politician, you have to shake it.
+- [38:17.620] So I like washing my hands.
+- [38:19.560] And you'd go into the sink, new places generally,
+- [38:23.230] and you turn on the water and there's literally no water.
+- [38:26.710] And how about the places
+- [38:27.950] that think they're going to save a fortune?
+- [38:29.390] So they spend a lot of money where the water turns off there,
+- [38:32.280] you press the thing which you hate to do,
+- [38:33.980] your hands you don't like to press.
+- [38:36.700] So you get the towel and you touch,
+- [38:38.550] you press it, you wash it, and the water stops.
+- [38:41.890] So they have both a restrictor and a stopper.
+- [38:45.840] You get like four drops of water.
+- [38:47.380] Tell me, do we really get rich with that?
+- [38:49.730] Okay, do we really? This is so ridiculous.
+- [38:51.810] So I undid all of that nonsense.
+- [38:54.970] But we did much more important for you.
+- [38:56.630] We've rescinded the insane Biden energy regulations on ovens,
+- [39:00.710] cook tops, microwaves,
+- [39:02.710] and ice makers that were driving your costs through the roof.
+- [39:06.020] You have no longer restrictions in that. I hope you understand.
+- [39:09.250] But I did better than that, too, in terms of slashing.
+- [39:13.960] We slashed more than $1 trillion worth of regulations,
+- [39:17.310] burdens on the U.S. economy,
+- [39:19.990] in particular on businesses and people that employ people.
+- [39:23.670] Combining our regulatory and tax cuts,
+- [39:26.000] we've reduced the effective burden on franchisees
+- [39:29.010] by more than 37 percent.
+- [39:31.730] You're so fricking lucky. You are so lucky.
+- [39:40.340] These guys are so loaded they probably don't even know
+- [39:42.470] what I did from them. They make so much money,
+- [39:44.980] they say it is peanuts, 37 percent.
+- [39:47.960] Let me tell you, you should've suffered a little
+- [39:49.770] while through Kamala.
+- [39:52.390] The good news is she had no clue.
+- [39:55.990] You just wonder, I want to give an IQ test to Kamala and Biden.
+- [39:59.220] Who do you think wins?
+- [40:01.750] But they were destroying your businesses.
+- [40:03.540] But I have better than that, though.
+- [40:05.770] As you know, in my first time, I also stopped a mortal threat
+- [40:10.070] to the franchise business model by terminating
+- [40:13.630] Obama's infamous joint employer rule.
+- [40:21.100] Joint employer. In other words, you were screwed.
+- [40:31.250] You would've been mortally wounded, perhaps.
+- [40:34.950] I said to a couple of the people,
+- [40:37.420] "What would've happened if that --?
+- [40:39.030] "Sir, please, I'd rather not talk about you."
+- [40:41.500] They don't want to talk about -- I ended it.
+- [40:44.660] You got lucky on that one let me tell you,
+- [40:46.800] because I said, "Really?" I asked one of my guys,
+- [40:49.780] because when I was coming over I saw that in the speech.
+- [40:52.000] I said, "What does that mean?"
+- [40:54.080] He said, "That would've been death
+- [40:56.240] to businesses like yours and others."
+- [40:59.220] These people don't care.
+- [41:00.500] They didn't care, but I ended it.
+- [41:02.840] And I think that's one of the biggest things
+- [41:04.640] that you'll ever have done for yourselves.
+- [41:07.030] I think that's the biggest thing that can ever be done for you.
+- [41:10.700] We mentioned all these different items,
+- [41:12.740] but that's the biggest by far for you.
+- [41:15.180] As long as I'm president, I'll always defend your right
+- [41:17.390] to run your own small business and do it well.
+- [41:20.190] And some of your small businesses
+- [41:21.650] have become very large business.
+- [41:23.100] One of the franchise owners here today is Carlos Matios, Sr.,
+- [41:28.220] who escaped Communist Cuba when he was just six years old.
+- [41:32.840] In America, Carlos took jobs as newspaper delivery boy,
+- [41:36.730] a factory worker,
+- [41:37.980] and eventually became a New Jersey police officer.
+- [41:40.400] Then in 1998, Carlos switched careers and moved to Virginia
+- [41:45.840] where he took over his first McDonald's.
+- [41:47.600] Where's Carlos? Is he around here?
+- [41:49.830] Come on, stand up. Stand up and your son, too.
+- [41:52.850] Stand up, your son. Good-looking.
+- [41:56.780] Good-looking son. I met him backstage.
+- [41:59.050] He found he had a knack for turning
+- [42:01.370] around poorly performing restaurants.
+- [42:03.260] And today, his family owns nearly 60 McDonald's
+- [42:06.670] all along the East Coast, including at the Pentagon,
+- [42:09.160] where I've ordered numerous Big Macs.
+- [42:12.390] In fact, he served.
+- [42:13.990] When the great football team came in,
+- [42:15.700] they served, where he served McDonald's.
+- [42:18.190] And you'd have these guys walking out,
+- [42:19.760] the biggest human beings I've ever seen.
+- [42:22.110] They were the national champs. You remember the team?
+- [42:24.740] Who was the team? You remember the team?
+- [42:27.130] Male Speaker: Clemson?
+- [42:28.380] Donald J. Trump: He said Clemson, that's right.
+- [42:30.430] And these guys, I don't know, they were like 6'6".
+- [42:33.840] "What do you weigh?" "Sir, I weigh 392."
+- [42:37.490] I said, "But you reported it much."
+- [42:40.400] I said, "Yeah, that's what they say."
+- [42:42.140] And he'd have like 12, just each.
+- [42:47.010] And I thought he was bringing them back
+- [42:48.430] to the rest of the team.
+- [42:49.660] I said, that's nice, but maybe the team wants some.
+- [42:51.700] No, no. This is what I --
+- [42:53.200] I said, "Are you going to eat all of them?" "Yes, sir."
+- [42:55.420] He didn't even know what I was talking about,
+- [42:57.640] but you served it and you did a great job.
+- [42:59.550] In 2019, when we hosted that great Clemson Tigers
+- [43:03.740] at the White House, I literally brought dozens
+- [43:06.110] of quarter-pounders from McDonald's.
+- [43:08.480] We bought a whole thing. We bought the quarter-pounder.
+- [43:11.120] We bought actually just about --
+- [43:12.820] Well, he really had no choice,
+- [43:15.400] because he just took everything he had in the whole restaurant.
+- [43:18.240] We got whatever the hell --
+- [43:19.680] Probably whatever didn't sell, we got.
+- [43:22.720] But Carlos is here with Carlos, Jr., his son,
+- [43:26.260] who started as a cashier and now runs dozens of the restaurants.
+- [43:30.150] Congratulations, fellas. What a great family.
+- [43:32.550] Congratulations.
+- [43:37.550] So, in conclusion here tonight, carry on,
+- [43:40.840] and really just keep going, and inspiring that legacy
+- [43:45.210] and that pride that you have at really beyond almost all else.
+- [43:50.850] It was excellence in service,
+- [43:52.430] stretching back more than seven decades.
+- [43:56.320] And two hard-working brothers
+- [43:57.830] with a hamburger stand in California,
+- [43:59.890] partnered with a hard-driving entrepreneur from Illinois
+- [44:03.130] to revolutionize the restaurant business forever,
+- [44:06.680] like nobody had ever seen.
+- [44:08.660] Because of men and women like those in this room
+- [44:11.060] who have pride in your souls,
+- [44:12.950] loving your hearts and ketchup in your veins.
+- [44:16.280] Did you ever hear that one? 70 years later,
+- [44:19.020] McDonald's is the number one fast food restaurant
+- [44:22.290] in the entire world.
+- [44:23.550] And honestly, it's not even close.
+- [44:25.190] What a job you've done.
+- [44:26.930] And it still is really growing stronger
+- [44:28.830] with 900 new restaurants
+- [44:30.700] planned in the United States in the next two years alone.
+- [44:34.010] And I think with the Great Big Beautiful Bill,
+- [44:36.530] you might even double that number.
+- [44:37.960] I can imagine you'll double that number,
+- [44:40.280] but it's amazing to watch you grow.
+- [44:42.970] The big ones, they get a little slow,
+- [44:44.720] they get a little fat, they get a little sloppy.
+- [44:47.020] This is a company that's gone just the opposite.
+- [44:49.280] You've gotten more and more competitive.
+- [44:51.510] I look at your numbers.
+- [44:52.780] You've gotten more and more competitive over the years.
+- [44:55.500] Over the generations, your spirit, generosity,
+- [44:58.120] and devotion to your communities has really made McDonald's
+- [45:02.210] a symbol of American values, aspiration,
+- [45:05.520] and success that's recognized all over the world.
+- [45:08.930] You are recognized all over the world.
+- [45:14.790] I mean, compared to the total, not so many,
+- [45:16.820] but there's a lot of great leaders, great companies.
+- [45:20.470] But I think more than anybody,
+- [45:21.870] McDonald's is recognized all over the world
+- [45:24.590] and as widely as frankly the Stars and Stripes themselves.
+- [45:28.790] And everywhere there's a McDonald's,
+- [45:30.950] we see Stars and Stripes.
+- [45:32.550] Everywhere the American flag flies,
+- [45:35.380] you'll find the golden arches.
+- [45:36.970] And there you'll find good people
+- [45:39.110] doing honest, beautiful, hard work,
+- [45:41.150] and happy families sitting down to a really great meal.
+- [45:45.060] Because no matter who you are,
+- [45:46.570] everyone loves something at McDonald's.
+- [45:49.420] There's always something to have.
+- [45:52.390] I like the fish. I like it.
+- [45:57.610] You could do a little bit more tartar sauce,
+- [45:59.330] so please, seriously.
+- [46:02.640] I hate when I say, "Do you have any tartar sauce?"
+- [46:04.890] Do you understand that?
+- [46:06.180] Yes, he has. He understands that.
+- [46:08.350] Together with hardworking Americans like you,
+- [46:10.550] we're going to pioneer new heights, new prosperity.
+- [46:13.720] We are doing better as a country right now,
+- [46:16.400] and people are seeing it. The Wall Street guys know it.
+- [46:19.840] The stock market hit its all-time high,
+- [46:22.760] 48 times in a row in nine months.
+- [46:25.060] 48 times during the nine-month period.
+- [46:28.050] And we're just now, we're hitting the highest stock market
+- [46:31.310] we've ever had in history.
+- [46:32.610] All markets, all three.
+- [46:34.590] All markets, every one of them has hit all brand new highs.
+- [46:40.310] It's a good time to be making this speech,
+- [46:42.670] because when you make one of these speeches,
+- [46:44.930] if you're doing lousy, it's not good.
+- [46:47.260] And you know the stock market, you can say what you want,
+- [46:49.520] but it's a hell of an indicator.
+- [46:51.690] It's really a hell of an indicator
+- [46:53.330] and your stock is doing phenomenally.
+- [46:55.590] But the stock market has hit an all-time high,
+- [46:59.980] 48 times during the last nine months.
+- [47:03.330] That we're going to pioneer new heights even from that.
+- [47:07.510] These new heights of prosperity are going to be incredible.
+- [47:11.250] We're looking at affordability.
+- [47:13.000] We're going to bring it down for everybody,
+- [47:14.780] because not everybody understands the fact
+- [47:16.800] that a great stock market is great for everybody,
+- [47:20.610] including 401(k)s.
+- [47:22.070] The 401(k)s hit the highest number
+- [47:24.890] that they've ever been two days ago.
+- [47:27.450] And that's a lot of people.
+- [47:28.690] So, they understand what's going on.
+- [47:30.460] And we're going to make the American dream
+- [47:34.440] two words that you didn't have.
+- [47:36.690] You didn't have those two words. Remember when Biden said,
+- [47:39.650] "It's all about three words, the American dream."
+- [47:44.080] You don't want to ever get in that situation.
+- [47:46.310] Remember that? That was not good.
+- [47:48.400] It's all about three words, American dream.
+- [47:51.780] But possible and you're going to make it really possible
+- [47:54.310] for millions and millions of people.
+- [47:56.460] And you have an administration that's got your back.
+- [47:58.680] You don't have an administration
+- [48:00.460] that wants to put you out of business,
+- [48:01.930] that wants to take away your water,
+- [48:03.820] that wants to have you not use a microwave oven,
+- [48:07.230] that wants to do all these horrible things
+- [48:09.220] that are going to destroy you.
+- [48:10.920] They were looking to destroy you and other businesses, too.
+- [48:14.350] So, together, we're going to make America richer,
+- [48:16.340] stronger, prouder, and happier than ever before.
+- [48:19.340] And you people can be very, very proud of the job you've done.
+- [48:21.960] You're respected all over the world.
+- [48:23.690] And it's an honor to be with the McDonald's.
+- [48:25.380] Thank you very much, everybody. Thank you. Thank you.
+- [48:29.490] (applause)
+- [48:33.290] ♪ ("Y.M.C.A." by the Village People) ♪

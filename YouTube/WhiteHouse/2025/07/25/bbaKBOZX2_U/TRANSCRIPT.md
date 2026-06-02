@@ -1,0 +1,219 @@
+<!-- source: https://www.youtube.com/watch?v=bbaKBOZX2-U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bbaKBOZX2-U -->
+<!-- date_published: 2025-07-25T20:20:03+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:47.837064+00:00 -->
+
+# Transcript: President Trump Arrives Prestwick, UK and Departs En Route Turnberry, Scotland
+
+- [00:04.080] Hello everybody.
+- [00:06.879] You know our ambassador
+- [00:09.200] to Scotland and it's great to be in
+- [00:12.000] Scotland. We are going to be meeting
+- [00:14.160] with the prime minister
+- [00:16.320] I guess tomorrow a little bit tomorrow
+- [00:18.240] and the next day and uh we're going to
+- [00:21.920] do some great things. Do you have any
+- [00:24.400] questions? has been
+- [00:27.279] on Sunday to discuss the EU trade deal.
+- [00:31.199] Are you meeting with Ursula?
+- [00:34.079] >> I'll be meeting with the EU on
+- [00:37.200] uh Sunday
+- [00:39.280] and we'll be working on a deal. We'll
+- [00:41.440] see if we make a deal. Uh Ursula will be
+- [00:44.800] here. Highly respected woman. So, we
+- [00:47.680] look forward to that. That'll be good.
+- [00:49.200] Mr. Gaza will be meeting with what media
+- [00:52.399] executives are you meeting with while
+- [00:54.160] you're here. We'll have numerous
+- [00:55.680] executives that we're meeting with a lot
+- [00:57.520] of we're going to be meeting with a lot
+- [00:59.039] of people a lot of people. We'll be
+- [01:01.359] staying at Turnbury and then we're going
+- [01:03.520] to Aberdine which is the oil capital of
+- [01:06.400] Europe actually.
+- [01:07.360] >> Mr. Explain what is kind of what is
+- [01:10.320] missing in the UK deal that you have to
+- [01:12.640] work out.
+- [01:13.280] >> Nothing. We uh just I think it's more of
+- [01:16.080] a celebration than a workout. It's uh
+- [01:18.799] it's a great deal for both and uh we're
+- [01:22.159] going to have a meeting on other things
+- [01:25.040] other than the deal. The deal is
+- [01:26.880] concluded.
+- [01:28.640] >> So on Gaza um French President Emanuel
+- [01:32.079] Mun just said that France will
+- [01:33.920] officially recognize the Palestinian
+- [01:35.920] state. What's your comment on that?
+- [01:38.000] >> Well, that's what he does. I mean, you
+- [01:39.439] know, he uh that's fine if he does that.
+- [01:42.320] That's up to him. It's not up to me. I'm
+- [01:44.960] with the United States. I'm not with
+- [01:46.640] France.
+- [01:47.920] >> And about the humanitarian situation in
+- [01:50.079] Gaza gives you a very dire warning for
+- [01:52.240] that.
+- [01:52.479] >> I think it's terrible what happened with
+- [01:54.159] Hamas. They tapped everybody along and
+- [01:57.680] we'll see what happens. We'll see what
+- [02:00.320] response Israel has to that. But
+- [02:03.840] it's getting to be that time.
+- [02:05.680] >> On that deal, you said there's a 50/50
+- [02:08.720] chance of a deal. What is left or not?
+- [02:11.280] What are the final sticking points
+- [02:13.360] >> with the European Union? I think we have
+- [02:16.480] a good 50/50 chance
+- [02:19.040] >> that's a lot.
+- [02:19.840] >> What are the sticking points that you
+- [02:21.360] >> Well, I don't want to tell you what the
+- [02:22.400] sticking points are, but the sticking
+- [02:23.920] points are having to do with uh maybe 20
+- [02:27.200] different things. You don't want to
+- [02:28.720] listen to all of them. Yes.
+- [02:29.760] >> What advice are you going to have for
+- [02:30.879] our prime minister about free speech?
+- [02:33.040] It's very important to people here.
+- [02:34.640] >> Well, it is, but I like your prime
+- [02:36.239] minister. He's slightly more liberal
+- [02:38.400] than I am, as you've probably heard. But
+- [02:41.200] he's a good man. He got a trade deal
+- [02:42.800] done. And you know, they've been working
+- [02:45.599] on this deal for 12 years. He got it
+- [02:47.519] done. It's a good deal. It's a good deal
+- [02:49.840] for the UK. So, uh, no, I'll be seeing
+- [02:52.800] him tomorrow, I guess, tomorrow evening.
+- [02:55.599] And this is our wonderful ambassadors,
+- [02:58.160] you know, doing a good job. He'll be
+- [03:00.560] he's a very, very successful man. He'll
+- [03:02.400] be doing a good job.
+- [03:04.800] >> The Royal the Royal
+- [03:10.239] That is just it's not something you're
+- [03:12.319] going to ask for deployment.
+- [03:13.519] >> The best course, the best course
+- [03:15.599] anywhere in the world is Turnberry. The
+- [03:18.000] players all want to be a Turnberry.
+- [03:20.319] Everybody wants to be a Turnber. So,
+- [03:22.080] we'll see how that works out.
+- [03:23.200] >> But the infrastructure needs to be
+- [03:24.560] improved.
+- [03:26.400] >> The infrastructure in the course is
+- [03:27.920] good. In fact, the Royal and Ancient uh
+- [03:31.200] I don't know you're aware of this. They
+- [03:33.920] spent a lot of money, hundreds of
+- [03:36.319] thousands of dollars, probably into the
+- [03:39.280] millions of dollars, and they've laid
+- [03:41.360] all the wire for television and for
+- [03:43.440] electricity under the holes of Turnberry
+- [03:46.799] so that when the open gets there, they
+- [03:48.799] have it all done. They paid for that.
+- [03:50.799] >> But we're talking about roads, the
+- [03:52.080] railway station, that sort of thing.
+- [03:53.360] That seems like a big
+- [03:54.239] >> I don't know what you mean. All I can
+- [03:55.599] tell you is that it would be the best
+- [03:57.519] place anywhere in in your country to
+- [04:00.560] have there's no place like it. There's
+- [04:03.599] no place like Turnber. The best probably
+- [04:06.159] the best course in the world. And I
+- [04:07.760] would say Aberdine is right up there
+- [04:09.439] also. Aberdine's great. And while we're
+- [04:12.159] here, I'll be with my son and he's going
+- [04:14.720] to cut a ribbon for the second course at
+- [04:16.639] Aberdine, which is just about equal to
+- [04:19.600] the first. I mean, it's going to be a
+- [04:21.840] battle that, you know, it's, as you
+- [04:23.680] know, they're very highly rated
+- [04:25.600] >> and the second course is great. Sean
+- [04:27.840] Connory helped get me the permits. Uh if
+- [04:31.280] it weren't for Shan Connory, we wouldn't
+- [04:33.120] have those great courses.
+- [04:35.759] >> Were you brief on your name appearing in
+- [04:37.759] the Epste files ever?
+- [04:39.440] >> No, I was never. Never.
+- [04:41.520] >> What are you hoping? What are you hoping
+- [04:43.520] Todd Blanch interviewing Delane Maxwell?
+- [04:46.160] What are you hoping that they get out of
+- [04:47.600] that?
+- [04:48.080] >> I really have no uh really nothing to
+- [04:51.040] say about it. She is
+- [04:54.320] being talked to by a very smart man, by
+- [04:57.120] a very good man, Todd Blanch.
+- [04:59.840] And uh I don't know anything about the
+- [05:02.240] conversation. I haven't really been
+- [05:03.840] following it. Uh a lot of people are
+- [05:06.720] asking me about pardons. Obviously, this
+- [05:09.199] is no time to be talking about pardons.
+- [05:11.840] But a lot of people have asked about
+- [05:13.360] pardon. Uh this is just not a time to be
+- [05:15.840] talking about pardons. Todd will come
+- [05:18.800] back with whatever he's got. And you
+- [05:20.880] make it a very big thing over something
+- [05:22.960] that's not a big thing you should be
+- [05:25.120] talking about. If you're going to talk
+- [05:26.320] about that, talk about Clinton. Talk
+- [05:28.720] about the former president of Harvard.
+- [05:31.039] Talk about all of his friends. Talk
+- [05:33.440] about the hedge fund guys that were with
+- [05:35.680] him all the time. Don't talk about
+- [05:37.280] Trump. What you should be talking about
+- [05:39.759] is the fact that we have the greatest 6
+- [05:42.400] months in the history of a presidency
+- [05:44.639] according to a lot of people. And uh we
+- [05:48.240] had an amazing six months and this is
+- [05:51.199] sort of an example of it. Now we're
+- [05:53.360] meeting with the European Union uh
+- [05:56.080] having we're also meeting with as you
+- [05:58.720] know the head of the UK prime minister
+- [06:01.680] and I look forward to that but we're
+- [06:03.600] meeting in terms of a deal we're meeting
+- [06:05.520] with the European Union and that would
+- [06:08.479] be actually the biggest deal of them all
+- [06:10.400] if we make it.
+- [06:11.919] >> You ask Republican leaders to not move
+- [06:15.360] on the resolution at all.
+- [06:17.120] >> I was never I was never involved in
+- [06:18.960] that. I'm focused on making deals. I'm
+- [06:21.360] not focused on conspiracy theories that
+- [06:24.000] you are and I watch you people. It's
+- [06:26.880] it's so sad. You to talk about the
+- [06:29.199] success of our country instead of this
+- [06:30.960] nonsense you talk about over and over
+- [06:33.440] again.
+- [06:33.759] >> You've done an amazing job on illegal
+- [06:35.600] migration in America. A lot of people
+- [06:37.360] here are very worried about the
+- [06:38.800] situation. You've got record numbers.
+- [06:41.120] >> Well, I say I say two things to Europe.
+- [06:44.160] Stop the windmills. You're ruining your
+- [06:47.199] countries. I really mean it. It's so
+- [06:50.160] sad. You fly over and you see these
+- [06:51.919] windmills all over the place ruining
+- [06:54.080] your beautiful fields and valleys and
+- [06:56.880] killing your birds and if they're stuck
+- [06:59.199] in the ocean ruining your oceans. Uh
+- [07:02.319] stop the windmills and I also I mean
+- [07:05.360] there's a couple of things I could say
+- [07:06.880] but on immigration you better get your
+- [07:09.120] act together or you're not going to have
+- [07:11.520] Europe anymore. You got to get your act
+- [07:14.080] together. And we you know as you know
+- [07:16.319] last month we had nobody entering our
+- [07:18.639] country. Nobody. shut it down and we
+- [07:21.199] took out a lot of bad people that got
+- [07:22.960] there with Biden. Biden was a total
+- [07:25.360] stiff and what he allowed to happen. But
+- [07:28.000] you're allowing it to happen to your
+- [07:29.520] countries and you got to stop the this
+- [07:32.319] horrible invasion that's happening to
+- [07:35.039] Europe. Many countries in Europe, some
+- [07:37.280] people, some uh leaders have not let it
+- [07:41.280] happen and they're not getting the
+- [07:44.160] proper credit. They they should I could
+- [07:46.000] name them to you right now, but I'm not
+- [07:47.440] going to embarrass the other ones. But
+- [07:50.960] stop this. Immigration is killing
+- [07:53.759] Europe. And the other thing, stop the
+- [07:56.479] windmills killing the beauty of your
+- [07:58.479] countries. Thank you very much,
+- [07:59.919] everybody.

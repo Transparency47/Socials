@@ -1,0 +1,1134 @@
+<!-- source: https://www.youtube.com/watch?v=8xrI-_qo64E -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8xrI-_qo64E -->
+<!-- date_published: 2026-04-18T14:04:05+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:02.343312+00:00 -->
+
+# Transcript: President Trump Signs an Executive Order, Apr. 18, 2026
+
+- [00:02.370] The President: Hello, everybody.
+- [00:03.900] It's a little bit unusual, right?
+- [00:07.590] Bobby's a very unusual person.
+- [00:10.280] I said, "When is the news conference?"
+- [00:11.860] He said, "Saturday morning."
+- [00:13.130] I said, "I don't know, has that ever happened before?"
+- [00:17.110] Well, it's an honor, and it's very important what we're doing.
+- [00:21.320] So, as you see,
+- [00:23.510] and you know a lot of the people behind me there,
+- [00:25.650] tremendous professionals, medical professionals most,
+- [00:29.400] and some military like Marcus,
+- [00:30.830] some great military professionals too, real hero.
+- [00:34.570] Today, I'm pleased to announce historic reforms
+- [00:36.940] to dramatically accelerate access
+- [00:39.420] to new medical research and treatments
+- [00:41.780] based on psychedelic drugs.
+- [00:44.270] In many cases, these experimental treatments
+- [00:46.960] have shown life changing potential
+- [00:49.220] for those suffering from severe mental illness and depression,
+- [00:53.560] including our cherished veterans.
+- [00:55.220] Our veterans are having a tremendous hard time.
+- [00:58.050] You know the suicide rate, we have it down a little bit,
+- [01:00.430] but they are having a hard time.
+- [01:02.740] And I got a call from a number of people,
+- [01:04.750] including the great Joe Rogan, and he said,
+- [01:07.450] "We have to do something about this."
+- [01:09.240] And I looked into it.
+- [01:11.060] I called Bobby, I called Oz, I called Marty,
+- [01:14.120] and, Jay and it was really, it was uniform support.
+- [01:19.650] And I said, "So, why would we wait three or four years
+- [01:21.920] to get it done, or 10 years, frankly?
+- [01:25.980] Let's get it done immediately." And that's what happened,
+- [01:28.300] this has probably never been anything happened so quickly.
+- [01:31.040] Everybody is so strongly in favor of this,
+- [01:34.000] it's for a lot of people,
+- [01:35.230] but it's for our military in particular.
+- [01:36.940] The suicide epidemic among veterans is a national tragedy.
+- [01:40.860] Since 911, we've lost over 21 times more veteran lives
+- [01:45.680] to suicide than on the battlefield.
+- [01:48.090] So, we lose, think of that, 21 times more.
+- [01:52.020] And today we're bringing them new hope,
+- [01:54.730] I think you're going to see a big difference
+- [01:56.200] and a big reduction in that number.
+- [01:58.340] I want to thank Secretary of Health and Human Services,
+- [02:01.260] Robert F. Kennedy Jr.,
+- [02:02.520] who's a fantastic, where are you, Bobby?
+- [02:06.140] Secretary Kennedy: I'm over here.
+- [02:07.430] The President: He always makes it difficult for us.
+- [02:10.600] Come here, Bobby. He's done a great job too.
+- [02:13.460] And people love him.
+- [02:15.520] And more importantly, your wife is here someplace, Bobby.
+- [02:18.370] She's out there. Where are you? Where are you?
+- [02:20.900] Cheryl Hines: I'm here. I'm behind --
+- [02:22.250] The President: The real boss in the family.
+- [02:25.570] It's fantastic. Thank you very much for being here.
+- [02:28.260] As well as FDA Commissioner Marty Makary,
+- [02:31.470] CMS administrator, Dr. Mehmet Oz, NIH director, Dr.
+- [02:36.650] Jay Bhattacharya, see how easy that name is now.
+- [02:41.240] It used to give me a little trouble, that was a tough name.
+- [02:44.320] Congressman Morgan Luttrell, who's a friend of mine,
+- [02:47.080] and a real, he's a real war hero,
+- [02:49.940] he knows something that a lot of us will never find out about.
+- [02:55.750] Retired US Navy SEAL, Marcus Luttrell.
+- [02:59.240] The two of them, I don't know what was in the,
+- [03:01.930] what's in your blood, fellas? You guys are --
+- [03:04.240] Marcus Luttrell: (Inaudible)
+- [03:05.440] The President: Well, good mom and dad.
+- [03:06.680] Marcus Luttrell: My mom and dad.
+- [03:08.160] The President: Good somebody. Good to have you.
+- [03:11.260] Joe Rogan, who's a fantastic person,
+- [03:15.080] we did a little interview before the election,
+- [03:18.660] we had over 300 million people.
+- [03:21.500] And I said, "Oh man, I hope Kamala doesn't do it,"
+- [03:23.860] and she didn't.
+- [03:25.150] He wanted her to do it, but she didn't.
+- [03:26.790] Someday Joe's could explain why.
+- [03:29.680] I could tell you why, but along with many other,
+- [03:32.780] because she didn't want to. With many other veterans.
+- [03:35.900] And I just want to thank, the people behind me
+- [03:37.650] are outstanding, it's an amazing group.
+- [03:40.160] The executive order I'm signing,
+- [03:41.670] we're actually signing the executive order today,
+- [03:44.910] is really a moment, it directs the FDA
+- [03:49.610] to expedite their review of certain psychedelics
+- [03:53.590] already designated as breakthrough therapy drugs,
+- [03:57.120] they're very much being discussed,
+- [04:00.360] and it's one of the hottest things
+- [04:01.820] I think you're talking about, Oz right?
+- [04:03.890] It's nothing, if these turn out
+- [04:06.170] to be as good as people are saying,
+- [04:07.670] it's going to have a tremendous impact on this country
+- [04:11.270] and other countries too.
+- [04:13.320] These treatments are currently in the advanced stages
+- [04:15.810] of clinical trials to ensure that they're both safe
+- [04:18.390] and effective for the American patients,
+- [04:21.110] and the nice part is we're actually doing this early,
+- [04:24.130] but it has been going on,
+- [04:25.690] research has been going on for quite some time.
+- [04:28.900] But usually with things like this, nothing ever happens,
+- [04:32.670] no matter how the research ends up,
+- [04:34.190] but we're changing that. This order will clear away
+- [04:37.840] unnecessary bureaucratic hurdles,
+- [04:39.780] improve data sharing among the FDA
+- [04:42.450] and the Department of Veterans Affairs,
+- [04:44.160] and facilitate fast rescheduling of any psychedelic drugs
+- [04:48.740] that become FDA approved.
+- [04:50.610] And we think many of them will go very quickly.
+- [04:52.880] And I have to say the most favored nation's
+- [04:56.490] pricing that we established,
+- [04:58.110] that I established has been knocking the cost of drugs
+- [05:02.640] down by 50, 60, 70, 80%.
+- [05:05.470] And Oz, I want to thank you and Bobby
+- [05:07.070] for the great job you've done. It's incredible.
+- [05:09.830] The press refuses to write about it.
+- [05:11.510] I think it's probably as big as what we're talking about today.
+- [05:15.150] The drug costs are going down at,
+- [05:18.620] and by the way, TrumpRX,
+- [05:20.070] which is where you go to get your very low cost drugs.
+- [05:23.710] But when you think in my first term,
+- [05:28.320] for 28 years, drug prices went up
+- [05:30.410] and I got it down one quarter or one eighth of a percent.
+- [05:33.100] I was so proud of myself.
+- [05:34.330] It's the only one that in 28 years got them down.
+- [05:38.640] And I had a news conference to explain how great I was.
+- [05:41.960] I said, "I'm the greatest there ever was.
+- [05:43.560] I got it down one eighth of a percent."
+- [05:46.110] Okay. I was very proud because it only went up.
+- [05:48.490] For 28 years, it went up. Now I got it down a little bit.
+- [05:52.480] And now I got it down 50%, 60%, 70% with these guys.
+- [05:57.050] So now I am, but nobody wants to write about it,
+- [06:00.240] but it doesn't matter because the people have found out
+- [06:02.500] and they're getting, we're the highest we were,
+- [06:05.920] the highest in the world by far.
+- [06:08.950] Sometimes would be 10 times higher than other countries.
+- [06:11.840] You'd buy a drug, I call it the fat pill or the fat drug.
+- [06:16.120] You'd buy it in London, you'd buy it for $10 for a pill,
+- [06:19.720] let's say, or a pill generally.
+- [06:22.720] But actually to be specific, London, $87, New York, $1,300.
+- [06:28.400] I said, "How can that be possible?
+- [06:30.190] How can it be possible?" $87.
+- [06:33.430] And actually a friend of mine called me up and he said,
+- [06:35.800] "You know," he's a very rich guy
+- [06:38.630] and he happens to be on this Ozempic,
+- [06:41.760] I guess, at the time.
+- [06:44.400] And it was not working, by the way.
+- [06:47.230] The guy was extremely successful, but highly neurotic.
+- [06:52.660] Got a lot of problems. I will not mention his name.
+- [06:55.220] He's begging me not to mention
+- [06:56.690] because he's become quite famous.
+- [06:58.320] He's a big factor here. But he's very smart,
+- [07:01.030] very rich guy, very, very successful guy.
+- [07:03.150] And he said, "Hey, President," he used to call me
+- [07:06.300] Donny, now he calls me president, sign of respect.
+- [07:09.490] He said, "I'm in London.
+- [07:11.010] I bought this stuff for 87 bucks.
+- [07:13.540] In New York, I pay $1,300. What's going on?"
+- [07:18.020] I said, "Well, that's the way it is.
+- [07:19.370] We pay the highest prices in the world."
+- [07:21.900] And it sort of hit me that how ridiculous it is.
+- [07:24.990] Made, by the way, he checked it.
+- [07:26.890] He had a whole big research done on it
+- [07:28.540] because he couldn't believe it.
+- [07:29.950] Made in the same factory, same place.
+- [07:32.650] Everything was the same except the price.
+- [07:35.280] And now we are the lowest price. We are tied.
+- [07:38.020] In other words, whatever the lowest price in the world is,
+- [07:41.060] that's the price we pay. That's a tremendous difference.
+- [07:43.420] So we'll be paying, they go up a little bit.
+- [07:47.090] So the 87 will go like to 120
+- [07:49.190] and we'll go down from 1300 to 120.
+- [07:52.370] So we'll have these massive price cuts
+- [07:54.080] and they've already started.
+- [07:55.610] And I think it's one of the biggest things,
+- [07:57.190] but unfortunately the press doesn't like to talk about it.
+- [08:00.240] But because if I were a Democrat,
+- [08:02.630] it would be headlines all over the place.
+- [08:05.410] So I do that. That's why I like live television, actually.
+- [08:08.680] It's great because you can't do any cutting.
+- [08:11.810] But I was so honored by that,
+- [08:13.480] and that's going to have a huge impact on this
+- [08:15.490] also because the pricing, not only is it important,
+- [08:18.070] but the pricing is going good.
+- [08:20.920] And you're going to get the rescheduling done,
+- [08:22.640] right, please?
+- [08:23.840] Will you get the rescheduling done, please?
+- [08:26.550] Joe, they're slow walking me on rescheduling.
+- [08:29.690] Okay? You got to get it done, right?
+- [08:31.050] Unidentified: Absolutely.
+- [08:32.320] The President: In 2024 study from Stanford University,
+- [08:35.400] 30 special operation veterans
+- [08:38.500] with traumatic brain injuries underwent,
+- [08:41.210] it's called ibogaine treatment, ibogaine.
+- [08:46.190] Remember the name.
+- [08:47.410] Is that pronounced relatively properly, would you say?
+- [08:49.270] Unidentified: Yes.
+- [08:50.470] The President: I don't want to get it wrong.
+- [08:52.200] Ibogaine, because it's so important and experienced an 80
+- [08:55.190] to 90% reduction in symptoms of depression and anxiety
+- [08:59.680] within one month. Can I have some please?
+- [09:02.920] I'll take it. I'll take whatever it takes.
+- [09:11.540] I don't have time to be depressed.
+- [09:13.390] If you stay busy enough, maybe that works too.
+- [09:17.280] That's what I do. In Texas, Republican leaders
+- [09:20.210] have already committed $50 million
+- [09:22.520] to the ibogaine research and today,
+- [09:25.050] the federal government is making
+- [09:26.530] a $50 million research investment in its own.
+- [09:30.030] And so that was just approved just last night.
+- [09:33.140] We're also opening a pathway for ibogaine
+- [09:35.610] to be administered to desperately ill patients
+- [09:38.810] under the Right To Try law.
+- [09:41.110] That's a law that I started and I got, Right To Try.
+- [09:45.480] Very proud of. That was done in my first term.
+- [09:47.400] And I used to marvel at the fact
+- [09:49.130] that people that were terminally ill could not get a drug.
+- [09:52.340] They're terminally ill.
+- [09:53.620] They're going to die, and the FDA, right, Marty?
+- [09:56.630] Marty Makary: That's right.
+- [09:57.830] The President: And Jay?
+- [09:59.030] The FDA was protecting them from dying,
+- [10:01.280] but they're going to die.
+- [10:03.160] And so we have these incredible drugs
+- [10:04.940] and they may work and they may not work,
+- [10:07.500] but we wouldn't let anybody get them
+- [10:09.390] because they were bad for your health,
+- [10:10.770] but these are people that were going to die.
+- [10:13.020] And it never made sense to me.
+- [10:14.280] So one of the first things I did early in my term,
+- [10:16.470] and it was very tough to get, actually, hard to believe.
+- [10:18.590] It was very tough with Congress,
+- [10:19.900] but they came through, the Republicans.
+- [10:22.970] And we have something called Right To Try.
+- [10:24.910] And we've saved thousands and thousands of lives.
+- [10:28.430] If you're terminally ill or very ill,
+- [10:31.840] and there is a new drug that is not available
+- [10:34.840] because it's going through the process of the FDA,
+- [10:37.160] and Marty's cut that process down by 50%, we're down.
+- [10:41.030] It used to take 12 years
+- [10:43.340] and now we have it down to five or six years
+- [10:45.550] and it's one of the most important things
+- [10:47.730] that you can do. But if you're terminally ill
+- [10:51.880] and there's a new drug that may work or may not work,
+- [10:55.110] but it hasn't been approved yet, you sign a document
+- [10:58.480] and you're not going to hold the country liable,
+- [11:00.880] you're not going to hold the drug companies
+- [11:02.380] or the insurance companies or anybody liable
+- [11:04.970] and you have the Right to Try.
+- [11:06.530] And when it's done, and nobody wanted it.
+- [11:09.570] The insurance companies hated it.
+- [11:11.050] Even the doctors, they were all afraid of it
+- [11:12.470] because they didn't want to be sued.
+- [11:14.180] But I took all of the liability out of it.
+- [11:16.060] You sign a document, you're not going to sue the doctor,
+- [11:18.050] you're not going to sue the hospital,
+- [11:19.310] you're not going to sue anybody, including the country.
+- [11:22.340] And everybody signs it like immediately.
+- [11:24.530] And we have tens of thousands of people on this
+- [11:28.470] and we've saved thousands and thousands of lives.
+- [11:31.900] And what it has done, we never thought of it so much as,
+- [11:34.930] but what it has done is in some cases,
+- [11:36.860] these drugs are working so good,
+- [11:38.340] it literally cures people that were terminally ill.
+- [11:42.290] But it's one of the things I'm most proud,
+- [11:44.850] I'm proud of a lot of things we've done,
+- [11:46.380] but that's one of the things we're most proud of,
+- [11:49.250] Right to Try.
+- [11:51.110] But I've always believed in ensuring
+- [11:53.020] that the American patients
+- [11:54.320] have access to breakthrough treatments
+- [11:56.280] and therapies with love for our veterans.
+- [11:58.640] And I have real love for our veterans.
+- [12:00.100] I was with a group yesterday.
+- [12:01.330] It's incredible what they've gone through.
+- [12:03.520] And care for American patients today's order will ensure
+- [12:07.170] that people suffering from debilitating symptoms
+- [12:10.700] might finally have a chance to reclaim their lives
+- [12:13.600] and lead a happier life. Just lead a happier life.
+- [12:16.930] They've been through so much.
+- [12:18.200] So I'd like to ask Secretary Kennedy
+- [12:20.020] to say a few words, followed by
+- [12:22.340] Commissioner Makary, Marcus Luttrell, Joe Rogan
+- [12:27.540] and anybody in the group that would like to speak.
+- [12:30.980] You're tremendous people.
+- [12:32.530] I know many of you and you're really highly respected people.
+- [12:36.620] And the Luttrell family is well represented,
+- [12:38.830] but I don't mind having both Luttrells.
+- [12:40.850] Both Luttrells can say a few words.
+- [12:42.440] Okay? Great people.
+- [12:44.630] And so Bobby, do you want to start it off please?
+- [12:47.040] Secretary Kennedy: Thank you, Mr. President.
+- [12:48.310] The President: Thank you very much.
+- [12:49.520] Secretary Kennedy: Good morning and thanks
+- [12:50.850] to the leadership of President Trump
+- [12:52.390] for making this historic day possible.
+- [12:55.600] Under the executive order, HHS will accelerate research,
+- [12:59.930] approval and access to new mental health treatments,
+- [13:02.630] including psychedelic therapies such as ibogaine.
+- [13:07.110] For taking this decision, this decisive step to confront
+- [13:10.670] one of the most urgent public health challenges
+- [13:13.160] facing our nation, the mental health crisis,
+- [13:16.680] more than 14 million Americans
+- [13:18.600] live with serious mental illness,
+- [13:21.400] and one in four adult experiences
+- [13:24.700] a diagnostic disorder each year.
+- [13:28.780] Suicide has risen by more than 30% over the past two
+- [13:32.550] decades with another peak in recent years.
+- [13:35.820] Among veterans, more than 6,000 die
+- [13:38.490] by suicide each year since 2001.
+- [13:42.400] We have lost far more veterans to suicide than to combat.
+- [13:47.310] At the same time, millions of Americans
+- [13:49.480] living with depression, PTSD, addiction,
+- [13:52.370] and other conditions do not respond to existing treatments.
+- [13:57.170] We owe it to our war fighters and veterans
+- [13:59.990] to turn over every stone
+- [14:02.670] to alleviate the emotional and mental health
+- [14:05.100] blow back from their deployments.
+- [14:07.600] It's disturbing to me and to the President
+- [14:10.670] that hundreds, in fact, thousands of veterans
+- [14:13.290] are having to travel to Mexico or other countries
+- [14:17.140] to experiment with interventions that hold great promise,
+- [14:21.370] but for which our knowledge is still insufficient.
+- [14:26.080] This executive order will remove the legal impediments
+- [14:29.760] that block American researchers, scientists, physicians,
+- [14:33.110] and clinicians from properly studying these medicines
+- [14:37.910] and where appropriate establishing protocols
+- [14:41.270] for their safe therapeutic use.
+- [14:44.100] We're directing the FDA to prioritize therapies
+- [14:47.120] that have received breakthrough therapy designation treatments
+- [14:50.880] that early evidence suggests may improve what we have today.
+- [14:56.610] We're expanding the use of Right to Try
+- [14:59.510] so that eligible patients with treatment resistant conditions
+- [15:02.720] can access these therapies under medical supervision.
+- [15:06.900] We're also coordinating with the DEA
+- [15:08.850] and the Department of Justice to begin rescheduling reviews
+- [15:13.140] after successful phase three trials.
+- [15:16.570] When the FDA determines that therapy is safe and effective,
+- [15:19.710] patients should not face avoidable delays in access.
+- [15:24.230] At the same time, HHS will work with states,
+- [15:27.060] the Department of Veterans Affairs,
+- [15:29.450] and other federal partners to strengthen research
+- [15:32.190] and share clinical data.
+- [15:34.240] We will use that data to support faster evidence-based decisions.
+- [15:39.380] Through ARPA-HS will allocate as the president says
+- [15:43.030] at least 50 million from existing funds
+- [15:46.650] to partner with states that are advancing these therapies.
+- [15:50.450] We will support those efforts with funding,
+- [15:53.520] with technical assistance and data
+- [15:55.290] sharing consistent with applicable law.
+- [15:58.700] Researchers at Johns Hopkins, Stanford, and Harvard,
+- [16:01.580] and other leading institutions have reported meaningful
+- [16:05.520] and in some cases extraordinary clinical improvements.
+- [16:09.910] If these results continue,
+- [16:11.500] these therapies could offer longer lasting relief,
+- [16:15.080] not just symptom management,
+- [16:17.390] and reduce economic burden of mental illness,
+- [16:20.320] which costs this country
+- [16:21.640] hundreds of billions of dollars every year.
+- [16:24.600] This policy creates a strict science-based pathway
+- [16:28.170] for FDA approval and controlled medical use.
+- [16:31.790] The bottom line is progress and mental health treatment
+- [16:34.630] has not matched the scale of the problem.
+- [16:37.430] I want to thank Joe Rogan
+- [16:39.250] for helping bring national attention to innovative,
+- [16:42.250] potentially lifesaving treatments for veterans
+- [16:45.780] and others living with mental illness,
+- [16:47.640] and for pushing this conversation
+- [16:49.640] into the mainstream.
+- [16:51.450] I also want to thank Representative Morgan Luttrell
+- [16:55.590] from Texas and former Navy SEAL Marcus Luttrell
+- [16:59.440] for their leadership on this issue.
+- [17:02.310] I also want to thank the CEO of Americans for Ibogaine,
+- [17:05.480] Bryan Hubbard and the organization's ambassador,
+- [17:08.390] former Navy SEAL Henry Berkowitz,
+- [17:12.260] and former SEAL Team Six, Rob O'Neill.
+- [17:15.940] I want to thank a couple of people
+- [17:17.510] for getting this record done across the finish line.
+- [17:21.090] Calley Means and Dr. Heidi Overton.
+- [17:24.450] Thank you, Heidi, for your leadership
+- [17:26.400] and for your attention detail.
+- [17:29.050] It's often frustrating. I always write, so thank you.
+- [17:33.900] And thank you above all, Mr. President.
+- [17:37.490] The President: Thank you very much, Bobby.
+- [17:39.020] You're fantastic. Bobby's really done an amazing job.
+- [17:43.920] MAHA, it's a big deal. And I want to thank you.
+- [17:48.590] You really, you work so hard, Oz, and everybody up here.
+- [17:53.350] And I just want to thank you. Great job.
+- [17:54.880] And he's somewhat outside of the box, would you say?
+- [17:56.960] And we need outside of the box a little bit, right?
+- [17:59.420] Would you say, Oz? Marty, please.
+- [18:02.570] Marty Makrary: Great. Thank you, Mr. President.
+- [18:04.730] Next week, the FDA will issue three national priority vouchers
+- [18:08.930] for serotonin 2A agonists, also known as psychedelics.
+- [18:13.510] Under this new program in this administration,
+- [18:16.620] drugs can get approved in weeks,
+- [18:18.490] not a year or a year plus, but in weeks.
+- [18:21.550] If they are in line with our national priorities,
+- [18:23.880] we have 18 vouchers in the program.
+- [18:26.140] We'll be adding three more next week.
+- [18:28.430] This is an unmet public health need
+- [18:30.880] and there are potentially promising treatments.
+- [18:34.050] That's why there's a sense of urgency around this.
+- [18:36.490] That's why we're doing it now.
+- [18:37.950] The applications are about to come in,
+- [18:40.170] so this is the natural perfect timing for this announcement.
+- [18:45.150] For many men and women,
+- [18:47.170] they have been fighting battles on the ground,
+- [18:49.960] but even after the wars are over,
+- [18:52.010] those battles continue in their mind.
+- [18:55.370] Now, there are a lot of medications in medicine
+- [18:58.050] where we don't know exactly how it works,
+- [19:01.580] but we see profound results.
+- [19:05.010] If we actually listen to those
+- [19:07.550] who experience the therapeutic value,
+- [19:10.810] we can learn as a medical field. We just have to listen.
+- [19:15.300] The stories of those individuals with traumatic results,
+- [19:19.940] that is data.
+- [19:21.200] That is scientific data, even from a single individual.
+- [19:25.710] We also have randomized controlled trials,
+- [19:29.000] and we have to do that because we need to be able to say
+- [19:32.060] there's good support when we recommend these therapeutics.
+- [19:35.160] If you look at those trials, there's a 30% to 40%
+- [19:38.270] remission rate for conditions like PTSD.
+- [19:41.590] Otherwise, we get nothing.
+- [19:43.100] We have almost nothing for these conditions.
+- [19:46.970] And today, the FDA is also announcing the first ibogaine
+- [19:50.910] investigational new drug clearance.
+- [19:53.500] This will pave the way for the first
+- [19:55.770] and ever human trials in the United States.
+- [19:59.900] To be clear, the FDA will also have criteria and circumstances
+- [20:04.430] that have to be used to administer these drugs.
+- [20:07.600] These drugs can have side effects,
+- [20:09.730] and so it's not like you go to the pharmacy and pick it up.
+- [20:13.750] It's like medications that are administered in an ICU
+- [20:17.240] or an operating room.
+- [20:18.500] There are criteria for doing it in a controlled setting.
+- [20:23.340] Finally, given the urgency of today's mental health crisis,
+- [20:26.660] I just want to thank you, Mr. President,
+- [20:29.340] and say the FDA is proud to support this broader effort
+- [20:33.080] to evaluate new therapeutics
+- [20:35.710] for some of the greatest Americans
+- [20:37.220] we have in this country.
+- [20:38.440] The President: Thank you very much.
+- [20:39.640] Did a great job, too. Appreciate it. Marcus?
+- [20:42.530] Marcus Luttrell: Yes, sir. To start off, Mr. President,
+- [20:44.710] thank you so much for having us in here and doing this.
+- [20:46.650] You're going to save a lot of lives with it.
+- [20:48.660] I'd like to say how grateful I am to have had the opportunity
+- [20:52.070] to go through the program and receive the ibogaine.
+- [20:54.230] It absolutely changed my life for the better.
+- [20:56.350] I went through a lot of the programs
+- [20:57.690] that the veterans are going through and I always felt like
+- [20:59.550] I was a victim coming out of the program.
+- [21:02.560] When I came out of this, I felt like I had gotten my life back.
+- [21:05.450] That was five years ago.
+- [21:06.830] I literally lived the best days of my life every single day.
+- [21:10.060] I'm so thankful for everybody who's in this room
+- [21:11.980] to help out with this.
+- [21:13.180] I know this is a new frontier for us and just the fact
+- [21:16.260] that we're taking this slow, smooth, smooth as fast,
+- [21:18.900] and we're getting it in there so we can test this out
+- [21:21.130] so that we don't get ahead of ourselves,
+- [21:23.070] I think that's very impactful.
+- [21:24.700] I think there's a lot of people out there that need help,
+- [21:26.470] not only our veterans,
+- [21:27.750] but our civilian population that can benefit from this.
+- [21:30.810] And it's going to do great things for our country
+- [21:32.590] to get it back on track
+- [21:33.840] and open up a lot of doorways and pathways
+- [21:36.010] for us to be successful in the future.
+- [21:37.610] Thank you for your time.
+- [21:38.890] The President: That's fantastic. So, you've done this five years?
+- [21:41.510] Marcus Luttrell: Yes, sir.
+- [21:42.750] The President: And it's just been a whole different thing.
+- [21:44.150] Marcus Luttrell: Every single day is a better day for me.
+- [21:46.070] The President: Wow. That's amazing, really.
+- [21:47.930] Marcus Luttrell: I can vouch for that.
+- [21:51.950] The President: These guys got guts.
+- [21:53.150] Come here. These guys. Two good guys.
+- [21:56.030] I didn't realize you were involved in it already.
+- [21:58.660] It's the best test that you can have.
+- [22:00.260] There's nothing better than that.
+- [22:02.750] A man who's really respected by everybody,
+- [22:04.720] and he's a fantastic person, Joe Rogan,
+- [22:06.680] to say a few words, please, Joe.
+- [22:08.880] Joe Rogan: I want to say that I'm here
+- [22:10.230] because of the man to my left.
+- [22:11.760] Brian Hubbard and former Texas Governor
+- [22:14.030] Rick Perry came on my podcast.
+- [22:16.220] They told me how impactful this medicine is,
+- [22:21.180] and having that conversation with them,
+- [22:23.920] millions of people got a chance to hear their story,
+- [22:27.540] hear the stories of all the different people
+- [22:29.340] that have had life changing experiences from it,
+- [22:32.440] and I want Brian to be able to speak about this.
+- [22:35.850] The President: Good. Brian, please.
+- [22:37.660] Brian Hubbard: Thank you, sir.
+- [22:39.330] The President: I heard that, Joe.
+- [22:40.760] You have no trouble speaking. He's got no trouble speaking.
+- [22:46.260] Brian Hubbard: I want to assure you that my presence here
+- [22:48.880] is the most concrete affirmation
+- [22:50.640] that God has a wonderful sense of humor.
+- [22:57.430] Thank you. Thank you.
+- [23:02.460] Federal prohibition of psychedelic medicine
+- [23:06.530] in America is over.
+- [23:15.380] On the 250th year of our nation's founding,
+- [23:19.730] everyone who has fought for this day
+- [23:22.680] through decades of monumental struggle, sacrifice,
+- [23:28.100] and suffering can now declare a seminal victory
+- [23:33.260] for life, liberty, and the pursuit of happiness.
+- [23:38.100] Rights we bear as images of our eternal creator
+- [23:43.000] whose essence is almighty,
+- [23:45.640] eternal, unconditional love for each and every one of us.
+- [23:51.860] This is the end of the beginning.
+- [23:55.800] We have moved mountains, yet there are mountains to move.
+- [24:00.360] Government systems
+- [24:01.600] which have relentlessly suppressed psychedelics
+- [24:04.680] are the same systems which will now manage their emergence.
+- [24:08.760] We dare not let our guard down for one second
+- [24:11.990] and be hair-trigger ready to impose accountability
+- [24:15.440] for incompetence, obstruction, or failure.
+- [24:20.090] Credit belongs where credit is due.
+- [24:24.220] With this executive order,
+- [24:26.240] President Trump has delivered an epic victory for all humanity.
+- [24:34.690] I thank him for having the courage
+- [24:37.400] to make this happen and my mission brother,
+- [24:41.300] Joe Rogan, for having the spine to make the ask.
+- [24:47.310] To our brothers and sisters in Gabon,
+- [24:51.190] you have our deepest gratitude
+- [24:52.900] for your stewardship of the sacred tree
+- [24:55.800] grown for the healing of nations.
+- [24:59.660] I will do my best to deliver the respect and honor
+- [25:04.750] you deserve for helping heal this nation.
+- [25:10.200] It is my joy to deliver these good tidings unto the meek,
+- [25:15.120] which will hopefully bind up the brokenhearted,
+- [25:18.790] proclaim liberty to the captives
+- [25:21.740] and the opening of the prison to all who are bound.
+- [25:26.130] God bless you and God bless America.
+- [25:29.410] The President: Thank you.
+- [25:30.980] (applause)
+- [25:35.940] Joe Rogan: I want to tell everybody how this happened.
+- [25:37.960] I sent President Trump some information.
+- [25:40.690] We have a gigantic opiate problem
+- [25:42.380] in this country, obviously.
+- [25:44.400] In 2024, more than 80,000 people died of overdoses.
+- [25:48.540] It's a horrible number.
+- [25:50.480] And there's more than five million people
+- [25:53.220] that are addicted to opiates right now in this country.
+- [25:55.720] With one dose of Ibogaine,
+- [25:57.480] more than 80% of people are free of that addiction.
+- [26:00.630] With two doses, it's more than 90%.
+- [26:03.530] I sent him that information.
+- [26:05.820] The text message came back, "Sounds great.
+- [26:08.740] Do you want FDA approval? Let's do it."
+- [26:11.300] It was literally that quick. These drugs are illegal,
+- [26:16.680] not because they're harmful, they're illegal
+- [26:18.920] because of the 1970 Controlled Substances Act that was passed
+- [26:23.220] by the Richard Dixon administration.
+- [26:25.230] They did it to target the civil rights movement
+- [26:27.500] and the anti-war movement.
+- [26:29.010] It's not because these drugs harm people.
+- [26:31.300] And for 56 years, we've lived under those terrible conditions.
+- [26:38.470] We're free of that now.
+- [26:39.760] We're free of that now thanks to all these people
+- [26:42.850] that we see next to me and thanks to President Trump.
+- [26:47.000] (applause)
+- [26:55.240] The President: We all respect Joe
+- [26:56.600] and he's a little bit more liberal than I am.
+- [27:01.190] That's okay. I have a lot of friends that are liberal,
+- [27:04.690] but Joe is an amazing guy
+- [27:07.450] and he wrote me a little note about this
+- [27:09.740] and I had it checked out. I didn't just do it.
+- [27:11.750] I had it checked out. I went to Bobby and Oz.
+- [27:14.480] I went to some of the people that work for you, real pros,
+- [27:17.620] and everybody came back with the same answer.
+- [27:19.770] Normally they'll come back, because this happens a lot.
+- [27:22.220] We have a couple of them like that where they're not sure.
+- [27:25.520] It's like it goes two ways.
+- [27:27.340] This thing, everybody thought it was incredible.
+- [27:32.030] I told Bobby, I said,
+- [27:33.500] "Bobby, let's just do it and get Oz involved
+- [27:37.160] and it's going to get done so quickly."
+- [27:39.800] You guys did a great job.
+- [27:41.100] Would you like to say something else?
+- [27:43.080] Administrator Oz: Mr. President, I want to thank Matt Zorn
+- [27:44.460] who's hiding in the back there,
+- [27:45.720] who actually on Sunday wrote the draft for this.
+- [27:48.200] You already thanked Heidi and Kelly,
+- [27:49.740] but Susie Wiles makes everything run here.
+- [27:52.890] This was an unimaginable task in one week
+- [27:55.340] to be able to go from a series of connections
+- [27:58.170] and communications with Joe Rogan
+- [27:59.490] through the honey badger of them all,
+- [28:01.510] Bobby Kennedy, who said, "We're not going to stop.
+- [28:03.350] We're going to start calling everyone down."
+- [28:05.130] Stef Spear has been involved.
+- [28:06.430] Chris Klomp, who's been doing a fantastic job,
+- [28:09.310] helping run everything in great efficiency, made something.
+- [28:12.770] I just want to emphasize this, this is an entire paradigm shift
+- [28:16.100] away from a one day a pill model,
+- [28:18.420] which has failed so many.
+- [28:20.300] The many who are drug resistant that Joe just spoke to,
+- [28:24.040] this offers them a way of getting out of that rut.
+- [28:26.220] The question now is, can we study why it works
+- [28:28.490] to understand it better, to use it better?
+- [28:29.870] That's what Jay Bhattacharya is going to do NIH
+- [28:32.000] with major funding support, perhaps some ARPA as well.
+- [28:35.160] Marty's book eloquently about the FDA's
+- [28:37.340] accelerated pathway for this.
+- [28:38.830] Then when we learn more, figure out better ways
+- [28:41.520] of getting access to these products
+- [28:43.690] through our healthcare system.
+- [28:45.030] This is an extraordinarily exciting day
+- [28:46.290] and it would never happen
+- [28:47.700] if the president just would not take no for an answer.
+- [28:50.640] He called on the way Joe to the fight on Saturday.
+- [28:53.300] I think he was as determined to get this done as the men
+- [28:57.870] in those rings and women in those rings that night.
+- [29:00.700] Thank you, sir.
+- [29:02.260] (applause)
+- [29:07.870] Mary Makrary: I want to thank Professor Nolan Williams.
+- [29:10.450] When I was a professor at Stanford, I got to know him
+- [29:12.840] and he taught me about Ibogaine and all the promise
+- [29:16.200] that it has for treatment resistant depression
+- [29:18.960] and so many other conditions.
+- [29:21.700] Frankly, for me, I learned a lot.
+- [29:23.730] Unfortunately, he passed away last year.
+- [29:25.940] I want to thank this amazing team
+- [29:27.650] that just moved heaven and earth to get things done.
+- [29:30.660] I do want to emphasize this is something
+- [29:32.380] that we're still studying and we have to keep studying.
+- [29:34.570] We have to figure out the right way
+- [29:35.920] to make sure we administer it,
+- [29:37.900] that it's safe, that we don't just take it for granted,
+- [29:40.880] we already know everything, because we don't.
+- [29:43.010] For the NIH and for ARPA-H, we are absolutely committed
+- [29:46.140] to making sure that we keep studying it,
+- [29:48.140] keep getting the best gold standard science on it.
+- [29:51.320] You see here, Nora Volkow,
+- [29:53.320] who's my National Institute of Drug Abuse Director.
+- [29:57.190] She's been an absolute hero in just developing scientific,
+- [30:02.080] so the commitment for American science
+- [30:03.940] to focus on this, and in many ways,
+- [30:06.580] that scientific advance has brought us to this moment.
+- [30:08.620] So thank you. Thank you, President Trump.
+- [30:09.960] The President: But if it's good,
+- [30:11.170] we want to get it fully approved fast, right?
+- [30:12.690] Marty Makrary: For the things that have great evidence,
+- [30:13.910] and that's what they're wanting to --
+- [30:15.190] The President: Because you know, these studies,
+- [30:16.420] they're going for a long time. I think it's good.
+- [30:18.160] I mean, I have a witness right here.
+- [30:20.370] These two incredible brothers, that, to me, is a study, right?
+- [30:24.750] Marty Makrary: (Inaudible)
+- [30:26.890] said, there's stuff that we know and we can tell it works.
+- [30:31.040] We still got to figure out sometimes how it works
+- [30:32.660] or why it works.
+- [30:33.930] That we got to keep doing even as we move forward fast.
+- [30:36.540] The President: But it does work.
+- [30:37.840] Secretary Kennedy: Some of those,
+- [30:39.060] I mean, absolutely, some of those treatments
+- [30:40.510] absolutely would be important here.
+- [30:42.370] Robert O'Neill: Yes, it works.
+- [30:44.010] The President: I'm trying to get it answered it
+- [30:45.660] because it either works or it doesn't.
+- [30:47.440] I would think that there's been a lot of research already.
+- [30:51.310] Indirect research, maybe the ultimate research,
+- [30:53.170] people that have taken it,
+- [30:54.440] because I've spoken to people that have taken it.
+- [30:56.910] Aside from Lutrell, both of them,
+- [31:00.440] I've spoken to five people that --
+- [31:04.140] Robert O'Neill: Mr. President, it works.
+- [31:05.340] It's done it three times. It works.
+- [31:07.640] The President: Yeah, please.
+- [31:08.840] Robert O'Neill: It fixed my demonic relationship with --
+- [31:10.500] The President: This is Rob O'Neill,
+- [31:11.730] who is a friend of mine and a great guy. Go ahead.
+- [31:13.870] Robert O'Neill: It fixed my demonic relationship
+- [31:15.370] with alcohol.
+- [31:16.610] It saved my life and then it saved my wife.
+- [31:18.760] So every day is a blessing.
+- [31:20.320] It took about three years of, I did it three times.
+- [31:22.800] It's a different adventure every time. That's not fun.
+- [31:27.060] The President: So without it, you would have had problems.
+- [31:29.510] Robert O'Neill: I did it with, there was a Green Beret,
+- [31:31.310] 28 year sergeant major that told me when we finished,
+- [31:34.410] "Make sure you tell Amber Capone,
+- [31:35.950] the CEO of Veterans Explorer Treatment Solutions,
+- [31:38.060] that she saved my life
+- [31:39.350] because I was going to kill myself next week.
+- [31:40.860] This was my last chance."
+- [31:42.110] I had a 28-year veteran tell me that.
+- [31:44.030] This works.
+- [31:45.300] The President: Okay, good.
+- [31:46.570] Secretary Kennedy: Mr. President.
+- [31:47.830] The President: Yes?
+- [31:49.030] Secretary Kennedy: Can you ask Marcus to speak
+- [31:50.610] about his experience.
+- [31:52.180] Marcus Capone: Thank you, secretary.
+- [31:53.560] Yeah, Mr. President, what Rob O'Neill's talking about,
+- [31:56.610] my wife, Amber Capone, is the CEO of our charity vets,
+- [31:59.540] Veterans Exploring Treatment Solutions.
+- [32:01.420] We had prayed for this day to come 10 years ago
+- [32:04.400] when we started the charity.
+- [32:05.800] We've been sending veterans outside the country, Joe,
+- [32:07.980] that you've been talking about for years,
+- [32:09.610] several thousand now.
+- [32:10.830] We said the mission will end once this day happens.
+- [32:13.620] So we believe this is a huge step
+- [32:15.590] in maybe that the mission goes away
+- [32:17.060] and now we have affordable access right here in the US.
+- [32:19.290] The President: Why didn't they get it done?
+- [32:20.540] Marcus Capone: We're getting it done right.
+- [32:21.750] You're getting it done.
+- [32:23.240] The President: Why yet are the presidents
+- [32:25.560] looking at it, right? Why didn't they get it done?
+- [32:27.970] Morgan Luttrell: I think we needed you.
+- [32:29.940] That's my job. I can answer that question, sir.
+- [32:31.680] The President: Go ahead, please.
+- [32:33.390] Morgan Luttrell: There's a small group of us in the house
+- [32:36.290] that had been trying to move legislation since I showed up.
+- [32:40.990] Mr. Correa, Mr. Bergman, Mr. McCall, Mr. Crenshaw,
+- [32:44.020] every year have tried to move legislation.
+- [32:46.080] That side of the room's not going to like
+- [32:47.510] what I have to say about this.
+- [32:49.430] Every year it has all fallen short.
+- [32:52.440] Every year it has all fallen short.
+- [32:55.090] It's because of the proverbial roadblocks
+- [32:56.920] that were always in the way.
+- [32:58.310] The President: That's right.
+- [32:59.540] Morgan Luttrell: Fair assessment.
+- [33:01.870] But those members and myself
+- [33:03.080] were convicted never to give up, ever.
+- [33:07.050] With this executive order,
+- [33:08.630] I'm going to maintain composure, Mr. President.
+- [33:10.380] With this executive order,
+- [33:11.890] you have broken down those barriers and allowed us,
+- [33:16.480] I have all the faith in the world
+- [33:18.040] that this will codify and remain forever.
+- [33:20.340] So thank you very much for taking care
+- [33:21.730] of your service members and your veterans
+- [33:23.650] and giving the members that have been working on this
+- [33:25.680] for so long a chance. Thank you, sir.
+- [33:28.280] The President: Well, this one, I signed this,
+- [33:29.690] this does solve it for the three year,
+- [33:33.080] but we'll get that codified very easily.
+- [33:36.440] Once I sign it, we get them codified.
+- [33:39.740] We'll make it permanent.
+- [33:41.240] I have no doubt it's going to be working.
+- [33:43.580] Would anybody else like to say something?
+- [33:46.120] These two women are so talented.
+- [33:48.500] Unidentified: Well, I'd love an executive order that says,
+- [33:51.380] "Research, research, research,"
+- [33:53.410] because it's ultimately what guides us
+- [33:55.380] on how to ultimately do things.
+- [33:57.560] And I think that this is what hopefully will start to happen,
+- [34:02.550] and bringing up change in a system
+- [34:04.670] that has been very difficult to modify
+- [34:08.690] because of prior experiences.
+- [34:11.300] These drugs have unique characteristics
+- [34:13.720] that could actually, if we don't investigate them,
+- [34:16.400] can bring us into potential applications
+- [34:19.040] that currently we're not thinking about.
+- [34:21.210] But if we close the door to science,
+- [34:23.260] if we close the door to data,
+- [34:24.620] we'll just keep on doing the same thing again and again.
+- [34:26.480] The President: Was that door closed?
+- [34:27.720] Do you think the door was closed?
+- [34:29.040] Jay Bhattacharya: It was hard.
+- [34:30.310] It was hard to do research before.
+- [34:31.550] Unidentified: It's very, very hard.
+- [34:32.780] And it's actually just by scheduling as a one,
+- [34:34.770] it makes it very difficult --
+- [34:35.990] The President: So this is a big move then that I have --
+- [34:37.560] Unidentified: It will facilitate itself.
+- [34:38.770] The President: Bigger than just this one thing
+- [34:39.970] that we're talking about.
+- [34:41.170] Jay Bhattacharya: Yes.
+- [34:42.410] The President: That's good. That's good.
+- [34:43.880] I'm glad we didn't waste this Saturday morning on visual.
+- [34:47.090] Please.
+- [34:48.460] Unidentified: Yes.
+- [34:49.660] Mr. President, this is a much-needed,
+- [34:52.650] bold move for precision mental health
+- [34:56.280] for our veterans and others, and accelerates access
+- [35:00.330] to personalized, targeted treatments.
+- [35:04.230] As you have heard, many, many veterans
+- [35:07.070] and others experiencing mental health disorders,
+- [35:10.650] they go through up to years of trial and error,
+- [35:15.080] trying one treatment that doesn't work,
+- [35:16.760] trying another, and not knowing why.
+- [35:19.900] My work at Stanford, and with my colleagues,
+- [35:23.430] is to develop brain-based tests
+- [35:26.790] that can be measured right now in our VA and other locations,
+- [35:31.740] that help us understand why these new treatments work
+- [35:35.580] and who they'll be most effective for.
+- [35:39.070] So with your mandate, we are in a position
+- [35:42.080] to really accelerate saving lives of many more people
+- [35:45.890] and getting them well sooner.
+- [35:48.310] And I believe that with this,
+- [35:50.540] the United States will be the first country in the world
+- [35:54.450] to treat mental health like we do cancer
+- [35:58.490] and like we do many other chronic mental illnesses.
+- [36:02.300] The President: (Inaudible)
+- [36:09.310] The world is actually watching this
+- [36:10.720] because there are a lot of countries that want to do this
+- [36:13.720] and they haven't been able to.
+- [36:15.110] They're going to be following suit very, very strongly.
+- [36:18.430] Thank you very much, both. Anybody else? You guys okay?
+- [36:21.950] Let's sign it, right? You wanted to say something?
+- [36:24.640] Unidentified: Mr. President, thank you.
+- [36:26.150] This treatment saved my life as well,
+- [36:27.990] and so many fellow veterans.
+- [36:29.380] It helped me get off opiates, stop using a nerve stimulator
+- [36:32.230] I implanted, sleep for the first time in over 10 years.
+- [36:35.670] So thank you.
+- [36:37.040] The President: And you have no doubt, right?
+- [36:38.330] Unidentified: Zero.
+- [36:39.570] The President: Wow.
+- [36:40.770] To me, that's the best research of all, frankly.
+- [36:43.380] Unidentified: Absolutely.
+- [36:44.620] The President: Okay. It's my honor.
+- [36:57.770] That's a good one.
+- [36:59.100] (Inaudible)
+- [37:01.000] See that, Joe? You think Biden can do that?
+- [37:04.990] (applause)
+- [37:19.710] Do you have any questions of the folks?
+- [37:21.200] And I think we'll keep it on the subject pretty much.
+- [37:23.380] You'll have some questions on Iran, I know that,
+- [37:26.010] but this is such an important subject
+- [37:28.190] that I'd rather let this just speak for itself.
+- [37:31.780] And we'll be talking about Iran later.
+- [37:33.410] We have very good conversations going on.
+- [37:37.240] It's working out very well.
+- [37:38.470] They got a little cute, as they have been doing for 47 years.
+- [37:42.080] Nobody ever took them on. We took them on.
+- [37:44.540] They have no Navy, they have no Air Force,
+- [37:48.070] they have no leaders, they have no nothing.
+- [37:49.740] Actually, their leaders are, it is regime change.
+- [37:53.450] You call that enforced regime change.
+- [37:56.360] But we're talking to them.
+- [37:57.780] They wanted to close up the strait again,
+- [38:01.710] as they've been doing for years. They can't blackmail us.
+- [38:06.260] In fact, a lot of the ships are coming up to Texas.
+- [38:08.400] I don't know if you know, in Louisiana,
+- [38:09.940] the ships are coming up. They got used to it.
+- [38:12.440] Maybe they'll keep doing it. It's worked out pretty good.
+- [38:15.510] But it's going actually along very well, and we'll see.
+- [38:21.060] But we'll have some information by the end of the day.
+- [38:23.190] We're talking to them. We're taking a tough stand.
+- [38:26.710] They've killed a lot of people.
+- [38:28.220] A lot of our people have been killed.
+- [38:29.470] A lot of your fellow soldiers have been killed
+- [38:31.920] over the years by Iran. The roadside bomb.
+- [38:36.410] Soleimani. I killed Soleimani.
+- [38:37.740] Robert O'Neill: Thank you for that.
+- [38:39.070] He was making the explosive formed penetrators.
+- [38:40.860] They're making him in Iran bringing them to Iraq
+- [38:42.410] and blasting through the vehicles.
+- [38:44.170] The President: Well, he was the father of the roadside bomb,
+- [38:45.930] essentially, and he killed a lot of people.
+- [38:47.780] And when you see soldiers, or others,
+- [38:50.440] but soldiers generally, walking around with no legs,
+- [38:52.690] with no arms, a face that's been smashed,
+- [38:55.880] that was Soleimani. That was Iran that did that.
+- [38:58.790] So we have a much different view on it than other presidents.
+- [39:02.840] They've gotten away with murder for 47 years.
+- [39:05.330] They're not getting away with it anymore.
+- [39:07.550] Does anybody have any questions with the great professionals?
+- [39:10.340] Please.
+- [39:11.560] The Press: So I wanted to know,
+- [39:13.460] could this potentially ever be available through the VA?
+- [39:16.090] Because I was talking to Liz over here,
+- [39:19.160] you guys went down to Mexico together,
+- [39:21.000] but it's really expensive.
+- [39:22.570] And this is another drug that's expensive,
+- [39:24.350] and a lot of veterans -- a lot of veterans need this.
+- [39:27.420] The President: Boy, are you good for this question.
+- [39:29.240] We're talking about expense and availability.
+- [39:31.840] Administrator Oz: So I spoke to Doug Collins.
+- [39:33.710] Obviously both he obviously pays for the VA
+- [39:36.630] and we pay for Medicare, Medicaid,
+- [39:38.460] children's health insurance are very focused on the results
+- [39:41.360] that the NIH and FDA are going to offer us.
+- [39:44.300] We have a mechanism of creating models, CMMI.
+- [39:48.080] That might be the wise way to go
+- [39:49.600] because we can continue to study the impact.
+- [39:51.360] It is such a massive shift in how you deliver care.
+- [39:54.460] Imagine instead of taking a pill a day for your depression,
+- [39:57.360] you go through one treatment,
+- [39:58.710] but you have to have a few people watching you.
+- [40:00.200] It's a very different world. So we're working that through.
+- [40:02.950] That's why the president,
+- [40:04.390] I think this is the perfect step to get everything rolling,
+- [40:07.000] to deliver on the promise he gave you.
+- [40:08.240] The President: What's timing, would you say to that,
+- [40:09.670] before you know?
+- [40:11.010] Administrator Oz: Well, we could have a CMMI model
+- [40:13.080] that we would announce by the end of this year.
+- [40:14.660] But the reason I'm not committing to that now
+- [40:17.210] is I want to make sure that the FDA and NIH
+- [40:19.390] have time along with the great scientists
+- [40:21.230] to give us a bit more information
+- [40:22.460] about how to deliver care.
+- [40:23.660] I'll give you one concrete example.
+- [40:25.120] For things like, well, Ibogaine is a little different story,
+- [40:27.940] but you would want two people in the room during the treatment.
+- [40:30.260] That's true for many of these approaches.
+- [40:32.300] That's a very different way of delivering medicine.
+- [40:34.820] So the models that we,
+- [40:36.740] Abe Sutton runs that group for us
+- [40:38.200] and has done a great job for the president,
+- [40:40.040] that will be probably the fastest way of moving forward
+- [40:41.970] and give the VA data so they can make wiser decisions
+- [40:45.220] because Doug Collins is very focused on this.
+- [40:47.210] Calley Means: There's one thing I'd add.
+- [40:48.690] There's nothing more expensive right now
+- [40:50.970] than the mental health crisis in America.
+- [40:52.940] 21% of Americans
+- [40:54.550] have a diagnosable mental health condition.
+- [40:57.910] The leading cause, excuse me,
+- [40:59.840] the second leading cause of death
+- [41:01.610] for young adults today is suicide.
+- [41:05.050] Mr. President, antidepressants right now
+- [41:07.950] are the most prescribed class of medications in the country.
+- [41:11.450] Over 20% of women are on an antidepressant.
+- [41:13.590] The President: Is that good in terms of do they work?
+- [41:15.390] Calley Means: There's highly problematic research on the fact
+- [41:19.880] that over 20% of US women are on these drugs
+- [41:24.310] that are prescribed for life.
+- [41:25.630] We have a mental health crisis and --
+- [41:27.930] The President: Do they work?
+- [41:29.220] The Press: No. They don't. I'm on a couple of them.
+- [41:34.710] (Inaudible)
+- [41:41.190] But no, it is definitely an issue for women.
+- [41:43.970] Calley Means: Mr. President,
+- [41:45.340] what you and Secretary Kennedy unlocked
+- [41:48.270] is for the first time questioning this system
+- [41:52.100] that where we spend three times more per capita
+- [41:55.360] than any other country in the world,
+- [41:57.410] and we are living six, seven years less.
+- [41:59.650] We have the highest rates of suicide and depression
+- [42:02.280] in the developed world. The incentives of our system --
+- [42:04.600] The President: By the way, autism,
+- [42:05.820] which we're really working hard on, right Bob?
+- [42:07.490] Calley Means: We have the highest rates of pediatric --
+- [42:08.820] The President: We're coming up
+- [42:10.020] with some pretty amazing findings.
+- [42:11.840] Calley Means: Pediatric cancer is the highest rates
+- [42:13.470] in the world. We are struggling
+- [42:16.110] and we're paying more than another country.
+- [42:17.660] The power of this effective order is really representative
+- [42:21.260] and gives validation to the cries of MAHA Moms
+- [42:23.560] and the votes of MAHA Moms because of the first time
+- [42:26.130] it's taking a therapy that's one time.
+- [42:28.390] Calley Means: This is a one time,
+- [42:30.060] one time, not a lifetime drug that can change someone's life.
+- [42:33.330] That's the power. I think that's why the system.
+- [42:35.010] The President: So the antidepressants,
+- [42:36.320] although we read about it or we prescribe to our military,
+- [42:39.810] they're not very effective?
+- [42:41.260] Calley Means: So lifetime drug and --
+- [42:43.160] The President: Well, even if it's lifetime, but do they --
+- [42:45.580] Calley Means: Look at what's happened as we prescribed them
+- [42:47.370] and made them one of the most prescribed --
+- [42:49.150] The President: The numbers are not great.
+- [42:51.200] Unidentified: Perhaps I could jump in
+- [42:52.980] from the scientific side.
+- [42:54.200] Administrator Oz: Thank you, Mr. President.
+- [42:55.470] What's the timeline --
+- [42:56.710] Joe Rogan: Hang on, she wanted to say something?
+- [42:59.890] Unidentified: I think what's really important
+- [43:01.600] about your order is you include, we really want to understand
+- [43:05.390] why these rapid acting treatments work.
+- [43:08.860] We need that for every treatment in mental health illnesses.
+- [43:13.280] Standard antidepressants in research,
+- [43:15.810] they do work for some people, but certainly not everyone.
+- [43:19.670] If we think of cancer, all other conditions,
+- [43:22.750] we have a test to know which treatment is needed.
+- [43:27.740] We don't have that for mental illness.
+- [43:29.580] It's guesswork.
+- [43:30.850] The President: This is tough.
+- [43:32.080] With that, it either works or it doesn't work
+- [43:34.030] and you have the results for this, you don't know.
+- [43:35.790] Unidentified: Part of this order,
+- [43:37.040] I think it's really important
+- [43:39.680] that we're able to have the investment to understand
+- [43:43.660] who does this work for and the test to accompany that.
+- [43:48.150] So thank you for making that --
+- [43:49.440] The President: Do you think this can be a big step
+- [43:51.320] above antidepressants? What we're doing?
+- [43:54.270] Unidentified: I think it can be identifying
+- [43:55.920] who doesn't respond to an antidepressant straight away
+- [43:59.690] rather than waiting for years and being able to --
+- [44:01.840] The President: What percentage of people
+- [44:03.250] respond positively to antidepressants?
+- [44:06.260] Unidentified: 20 to 30%.
+- [44:07.570] The President: That's not great.
+- [44:08.810] Unidentified: No.
+- [44:10.020] The President: That's not great. Well, thank you very much.
+- [44:12.280] Administrator Oz: Mr. President, what's the timeline for those
+- [44:14.800] with mental health disorders, substance abuse disorders
+- [44:17.870] to readily take advantage of this treatment
+- [44:20.510] based upon the executive order that you're signing today?
+- [44:22.760] The President: So I'd like to ask maybe Marty that question.
+- [44:25.030] Marty Makary: Sure. So first of all,
+- [44:26.870] right now it's available on clinical trials.
+- [44:28.940] We have not had applications in house at the FDA.
+- [44:31.690] There was one that came in under the Biden administration.
+- [44:34.370] It was kicked out and not accepted.
+- [44:37.360] We now have three applications that are imminent
+- [44:39.650] and we'll be issuing vouchers next week.
+- [44:42.310] The fastest FDA approval was 42 days during the HIV epidemic.
+- [44:47.440] On our national priority voucher program
+- [44:49.450] under President Trump,
+- [44:50.910] we are now down to that timeframe
+- [44:52.970] on a routine basis instead of a year.
+- [44:56.200] In my opinion, we need the same level of urgency
+- [44:59.330] we had with HIV for PTSD,
+- [45:02.260] and depression, and anxiety in our mental health disorder,
+- [45:05.380] and cancer, and heart disease, and so many other conditions.
+- [45:08.140] So you're going to see decisions out from the FDA
+- [45:10.240] later this summer,
+- [45:11.500] as soon as we get the applications.
+- [45:13.570] The President: That's great. That's great.
+- [45:15.960] I liked that answer.
+- [45:20.880] I really liked that answer. Yeah, that's good.
+- [45:22.550] The Press: Thank you, Mr. President.
+- [45:23.820] And then in regards to the timing of the executive order,
+- [45:26.390] was there not enough known about this treatment a year ago
+- [45:30.630] or five years ago or eight years ago
+- [45:33.330] to sign the executive order that you signed?
+- [45:35.070] The President: So do you want to answer that question?
+- [45:36.470] Go ahead.
+- [45:37.700] Calley Means: I would just add, in 2016,
+- [45:39.560] the lead professor at Johns Hopkins
+- [45:41.930] said this was the most promising therapy
+- [45:44.590] that he's seen in his career,
+- [45:46.050] and many doctors from leading institutions said that.
+- [45:49.130] There's been a hold,
+- [45:50.550] there's been incentives against this,
+- [45:52.030] and the bravery and leadership of President Trump
+- [45:53.500] (Inaudible)
+- [45:54.700] The President: Seeing artificial barriers?
+- [45:56.250] Calley Means: Yes. And this, is to be clear,
+- [45:57.980] it's starting a fast track scientific process
+- [46:00.910] that's subject to FDA approval.
+- [46:02.940] But this has been known among leading institutions
+- [46:06.210] for many times as a very promising therapy.
+- [46:08.550] The Press: So could it not have been signed in your first term
+- [46:11.180] or there just wasn't enough information known about it?
+- [46:12.890] The President: Nobody told me about it, frankly.
+- [46:15.630] All of a sudden, I've been getting a lot of calls.
+- [46:17.870] In all fairness, I think a lot's been learned
+- [46:19.550] over the last few years.
+- [46:20.800] Jay Bhattacharya: Yes. Can I just say?
+- [46:22.020] I mean, a lot has been learned over the past few years.
+- [46:25.110] In the first term, if I was standing behind the President,
+- [46:27.320] I would have been much more uncomfortable
+- [46:28.720] than now thanks to the research that's been done.
+- [46:31.390] I mean, there's still a lot more to do.
+- [46:33.730] It's worked for so many people,
+- [46:35.080] it's really a great move to do this,
+- [46:37.420] but the research is really important
+- [46:39.320] because we're going to keep improving, keep learning,
+- [46:41.940] and make sure that the people get the treatment
+- [46:44.450] they need when they are depressed,
+- [46:45.780] when they are addicted, when they have PTSD.
+- [46:49.200] If you keep doing the research
+- [46:50.610] and also acknowledge the research that's been done,
+- [46:53.140] that's when you get good health policy.
+- [46:55.040] Administrator Oz: And Secretary Kennedy's role,
+- [46:57.440] he just doesn't stop every day,
+- [47:00.280] all day long until he gets these things done.
+- [47:02.070] This is not an easy boulder to push up the hill.
+- [47:05.620] Secretary Kennedy was undaunted,
+- [47:07.200] and he'd been talking about it for a while,
+- [47:08.860] so he had a passion anyway.
+- [47:10.420] But his mentoring gets a lot of folks to move this quickly.
+- [47:15.910] Unidentified: If I can jump in rapidly,
+- [47:17.400] because I was one of those doctors
+- [47:19.290] that was not supportive of psychedelic therapy
+- [47:22.130] because I thought it was magical thinking.
+- [47:24.760] But over the past six to 10 years,
+- [47:27.750] we have seen an emergence of data that we cannot ignore.
+- [47:31.950] These drugs have the capacity, as was mentioned before,
+- [47:34.930] with one single administration to change the behavior
+- [47:38.610] of someone towards a In animal models,
+- [47:43.300] one single administration recreates pathways
+- [47:47.920] that have been eroded because of pathology.
+- [47:50.210] So we have a tool that potentially could allow us
+- [47:54.300] to basically manipulate the ability of our own bodies
+- [47:58.940] to heal itself if we know how to properly use it.
+- [48:02.120] And that's why research, as I mentioned before,
+- [48:04.700] is opening up doors to explore what else can we do,
+- [48:09.100] how to optimally use it.
+- [48:11.130] The President: But you're just hearing
+- [48:12.390] and seeing automatic research.
+- [48:14.430] You're hearing and seeing things now
+- [48:16.820] that you wouldn't be able to have done a couple of years ago,
+- [48:22.420] I mean, it just seems to me.
+- [48:23.800] I've been hearing about it a little bit over the last year,
+- [48:26.790] over the last year.
+- [48:28.050] I never heard anything about it in the past.
+- [48:31.170] It was almost taboo. It's not taboo anymore.
+- [48:34.670] Unidentified: And there was not enough science neither.
+- [48:37.070] And I think that's where the evidence speaks for itself.
+- [48:39.840] And. Ultimately, that's why I say,
+- [48:41.430] I was one of those doctors that didn't believe in it.
+- [48:43.940] So we do data in order to change our perspective
+- [48:47.740] and to do things better.
+- [48:48.940] The President: I was surprised to hear
+- [48:50.140] about the antidepressants.
+- [48:51.460] I assumed they'd be better. That's not very good.
+- [48:53.450] So Bobby, you're going to push it very hard?
+- [48:54.890] Secretary Kennedy: Yes.
+- [48:56.110] The President: We'll get it done?
+- [48:57.310] Secretary Kennedy: (Inaudible)
+- [48:57.660] The President: Sounds good to me.
+- [48:58.860] With these two guys and this third with Rob, too,
+- [49:01.510] and with you, I mean, that to me is research, right?
+- [49:04.860] Maybe the ultimate research, right?
+- [49:06.530] Big fans. All big fans.
+- [49:09.030] Well, I want to thank everybody and that's going to be --
+- [49:13.880] (applause)
+- [49:21.960] Thank you very much, everybody.

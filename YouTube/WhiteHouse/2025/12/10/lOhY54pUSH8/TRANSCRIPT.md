@@ -1,0 +1,91 @@
+<!-- source: https://www.youtube.com/watch?v=lOhY54pUSH8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: lOhY54pUSH8 -->
+<!-- date_published: 2025-12-10T02:18:15+00:00 -->
+<!-- date_accessed: 2026-06-02T01:08:59.730878+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One, Dec. 9, 2025
+
+- [00:02.000] What are these guys? They look like
+- [00:04.080] they're saying what's happening here.
+- [00:08.480] >> What's your reaction to Jackson
+- [00:11.120] primary in Texas?
+- [00:12.480] >> Well, she's a low IQ person. I can't
+- [00:14.639] imagine she wins. Maybe she'll get the
+- [00:16.480] Democrat nomination, but I think it's a
+- [00:18.880] gift to Republicans. She's a a terrible
+- [00:21.439] representative. I watched her for the
+- [00:23.680] last two years. I can't even believe
+- [00:25.119] she's a politician, actually. Hi,
+- [00:27.039] >> Brian. Mr. Will you be holding a final
+- [00:29.039] round of interviews for Fed chair this
+- [00:30.880] week? There was some reporting you'll be
+- [00:32.239] meeting with the governor, Fed Governor
+- [00:33.840] Kevin Marsh, former Fed Governor
+- [00:35.200] Marshall Worsh Kevin Worsh.
+- [00:38.239] >> We're going to be looking at a couple of
+- [00:40.559] different people, but I have a a pretty
+- [00:42.480] good idea who I want.
+- [00:44.320] >> Are you going to have to take it easy
+- [00:45.440] with that thing? You know, it's a
+- [00:47.200] government thing, but I like to take
+- [00:48.559] care of it.
+- [00:49.280] >> Well, there
+- [00:52.399] >> interview this week.
+- [00:54.559] >> Hello.
+- [00:56.719] Somebody's in there. Come on out.
+- [00:59.605] [laughter]
+- [01:01.520] >> Mr. President, uh, Senators, uh, Cassidy
+- [01:03.840] and Crapo have introduced a bill to
+- [01:06.000] create health savings accounts to
+- [01:07.760] replace Obamacare subsidies. Do you
+- [01:09.840] support that bill?
+- [01:10.720] >> Well, I like the concept. I don't want
+- [01:12.240] to give the insurance companies any
+- [01:13.840] money. They've been ripping off the
+- [01:15.200] public for years. Obamacare is a scam
+- [01:18.320] for to make the insurance company rich,
+- [01:20.720] companies rich. And they have made I
+- [01:22.880] mean you look 14 to $1,700
+- [01:25.600] increase 100% increase over the last
+- [01:29.040] number of years. There's really few
+- [01:31.040] things that have gone up like insurance
+- [01:32.799] companies. They're getting numbers and
+- [01:34.960] and money like nobody's ever seen
+- [01:36.880] before. Uh billions and billions of
+- [01:39.920] dollars is paid directly to insurance
+- [01:41.840] companies. We're not going to do that
+- [01:43.360] anymore. I believe Obamacare was set up
+- [01:45.840] to take care of insurance companies, not
+- [01:48.000] to take care of the American public.
+- [01:50.000] Republicans to vote for that bill
+- [01:51.360] tomorrow or
+- [01:52.479] >> I love the idea of money going directly
+- [01:54.880] to the people, not to the insurance
+- [01:56.560] companies going directly to the people.
+- [01:59.040] It could be in the health savings
+- [02:00.719] account. It could be a number of
+- [02:02.479] different ways and the people go out and
+- [02:04.479] buy their own insurance which can be
+- [02:06.880] really much better health insurance,
+- [02:08.560] healthcare.
+- [02:09.200] >> Mr. Mr. President, I was with you in
+- [02:11.200] Vegas when you had no tax on tips, help
+- [02:14.000] the hospitality industry. Would you ever
+- [02:16.239] consider no tax on gambling winnings? Uh
+- [02:19.920] considering that might be another stage
+- [02:21.680] to save American uh taxes.
+- [02:24.239] >> I haven't been asked that question in a
+- [02:26.160] long time. Uh no tax on gambling
+- [02:28.800] winnings. I don't know. We have no tax
+- [02:30.319] on tips. We have no tax on social
+- [02:32.640] security or we have no tax on overtime.
+- [02:35.680] Uh no tax on gambling winnings. I don't
+- [02:37.840] know about that. I'm going to have to
+- [02:38.879] think about that.
+- [02:40.239] >> I think it's better to go up and uh
+- [02:42.560] maybe take our seats. It's a pretty
+- [02:44.080] rough light. Bye everybody.
+- [02:47.920] >> But I hope to see you again. I better
+- [02:50.239] get out of here.

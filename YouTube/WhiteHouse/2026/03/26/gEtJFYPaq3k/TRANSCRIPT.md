@@ -1,0 +1,336 @@
+<!-- source: https://www.youtube.com/watch?v=gEtJFYPaq3k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: gEtJFYPaq3k -->
+<!-- date_published: 2026-03-26T20:42:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:35:59.220697+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Greek Independence Day Celebration
+
+- [00:01.500] ♪ (Hail to the Chief) ♪
+- [00:21.060] The President: Well, thank you very much.
+- [00:22.770] This is a great honor. I wouldn't miss it.
+- [00:24.860] I'm supposed to be someplace at 5:00,
+- [00:27.160] and I said, there's no way I'm missing this one.
+- [00:30.710] Nobody would have the courage to do that.
+- [00:34.060] But I'm delighted to stand before you today
+- [00:37.340] with a truly respected man of faith
+- [00:39.510] and a pillar of the Greek American community,
+- [00:43.340] Archbishop Elpidophoros, who is a highly respected man
+- [00:51.810] and, Your Eminence, it's a great --
+- [00:53.590] great pleasure to have you thank you very much for coming.
+- [00:55.550] Archbishop Elpidophoros: Thank you, Mr. President.
+- [00:56.770] The President: It's so nice.
+- [00:58.000] We meet once a year and I wouldn't miss it.
+- [01:02.220] And to all of the Greek American patriots here this afternoon,
+- [01:04.980] let me begin by wishing you a very happy
+- [01:07.850] Greek Independence Day, a big deal.
+- [01:13.610] We're pleased to be joined by many of the proud,
+- [01:16.330] hardworking Greek Americans
+- [01:17.800] serving in the Trump administration.
+- [01:19.440] I want as many as I can get.
+- [01:23.290] We have the Director of Office of Science and Technology
+- [01:26.710] Policy, Michael Kratsios. Where is Michael? Michael.
+- [01:32.830] Thank you, Michael. Great job, doing a good job.
+- [01:35.140] Our Deputy Secretary of state, Mike Rigas.
+- [01:40.110] Thank you, Mike.
+- [01:42.610] Along with the Greek Americans on the White House staff,
+- [01:45.280] including director of the White House Visitor Office,
+- [01:48.080] and she does a great job, Alexandra Veletsis.
+- [01:53.060] Veletsis. Where are you, Alexandra?
+- [01:57.120] Thank you. Hello. You're in the corner.
+- [02:00.180] And Senior Associate Staff Secretary Venetia
+- [02:04.400] Resciniti. That's right, with great parents, too.
+- [02:10.250] And she's -- you did a good job with your daughter.
+- [02:13.470] She's been incredible.
+- [02:15.030] We can't forget our Greek American members
+- [02:16.950] of Congress Representatives, Gus Bilirakis.
+- [02:21.930] Hi, Gus. Great guy. Mike Haridopolos. Mike.
+- [02:28.730] These are seriously Greek people, just --
+- [02:32.060] Nicole Malliotakis and Jimmy Patronis.
+- [02:41.090] Thanks as well to a great friend of mine
+- [02:43.160] and a man who did a fantastic job
+- [02:45.180] as chief of staff in the last administration,
+- [02:48.170] Reince Priebus, right? Did a great job.
+- [02:52.940] And the chairman of Greeks for Trump, Christos Marafatsos.
+- [03:00.890] I'm glad that's over with. The rest is easy.
+- [03:05.630] No, they're great -- they're great people.
+- [03:07.340] They've been with me, many from the beginning, right?
+- [03:09.500] Right from the beginning.
+- [03:11.530] When America declared our independence 250 years ago,
+- [03:15.050] our founding fathers drew profound inspiration
+- [03:18.010] from the example of ancient Greece.
+- [03:20.540] And when the modern Greeks declared their own independence
+- [03:23.270] from a foreign empire a generation later,
+- [03:26.260] in 1821, a long time,
+- [03:28.810] they in turn looked to a place called America, nice place.
+- [03:33.980] Ever since, the United States and the Hellenic Republic
+- [03:37.710] have stood side by side as two proud and thriving nations
+- [03:41.680] upholding the Western traditions born in Greece
+- [03:44.290] more than 2,000 years ago, tremendous culture.
+- [03:48.870] In recognition of this cherished bond,
+- [03:50.890] we are pleased to welcome the Greek Ambassador
+- [03:53.560] to the United States, Mr. Antonis Alexandridis.
+- [04:00.860] What names.
+- [04:03.560] As well as the Ambassador from Cyprus, Evangelos Savva.
+- [04:10.900] I like that name. And someone we know very well,
+- [04:14.680] the US ambassador to the Hellenic Republic,
+- [04:19.250] person I know very, very well.
+- [04:21.000] She's an inspiration to a lot of people,
+- [04:24.330] especially if you happen to be Greek, Kimberly.
+- [04:27.860] Kimberly Guilfoyle. Kimberly.
+- [04:31.540] No, Kimberly Guilfoyle has been my friend for a long time.
+- [04:34.600] I love calling her Kimberly.
+- [04:37.110] That's my little pet name, right?
+- [04:38.420] But you are the greatest,
+- [04:39.640] and I heard they love you over there.
+- [04:41.110] I hope you come back here in 12 years
+- [04:43.900] or whenever the term ends.
+- [04:48.470] Come on up here, Kim, stay alongside of us.
+- [04:51.690] The debt that America and all of Western --
+- [04:54.170] and by the way, where is my friend
+- [04:57.390] who's the most powerful man in all of politics?
+- [05:00.670] Where is John? He owns ABC. Where is he?
+- [05:04.840] John, where are you?
+- [05:06.050] Come on up here, John, get up here.
+- [05:07.410] He loves publicity, this guy. Come on up here, John.
+- [05:12.980] He's got more things -- he owns food stores, networks --
+- [05:17.330] come on up. You want to bring your wife up?
+- [05:18.960] You can. She's really the boss, we know that.
+- [05:25.210] Come on up, John.
+- [05:27.860] Boy, oh, boy, if they didn't have his name marked down,
+- [05:29.770] I would have been in big trouble.
+- [05:32.670] I think it is marked down a little further back.
+- [05:34.500] I'm not putting him in the back, right, John?
+- [05:36.300] We've known each other too long.
+- [05:38.160] John Catsimatidis: A long time. The President: Come here.
+- [05:39.630] John Catsimatidis: We used to compete with each other.
+- [05:40.870] The President: We used to, but never --
+- [05:42.070] John Catsimatidis: But you won.
+- [05:45.370] The President: The debt that America
+- [05:46.640] and all of Western civilization
+- [05:48.720] owes to the Greeks is ancient and eternal.
+- [05:52.090] And to this day, American soldiers plunge into combat,
+- [05:54.970] strengthened by the legends of Spartan warriors.
+- [05:58.880] American students still learn
+- [06:00.620] from the immortal wisdom of Socrates,
+- [06:03.330] the father of philosophy, he truly is,
+- [06:06.070] and Aristotle, the inventor of science.
+- [06:09.620] That's very good -- it's good genetics you people have, right?
+- [06:13.540] And under the Trump administration,
+- [06:15.170] we're reaffirming a sacred Greek principle
+- [06:17.570] that goes all the way back to a rocky hillside
+- [06:20.720] in the heart of ancient Athens
+- [06:22.690] that only citizens can vote in our elections.
+- [06:26.430] See, they do it right. Oh, I love that.
+- [06:32.880] Michael, we're going to have to use that phrase
+- [06:34.530] a little bit more powerfully.
+- [06:36.620] But in Greece, that's what they believe.
+- [06:39.170] They've believed it for a long time, it makes a little sense --
+- [06:41.820] called common sense, isn't it really?
+- [06:44.340] Like so many Americans before us,
+- [06:46.240] the Trump administration is also drawing inspiration
+- [06:49.720] from the renowned Greek builders and engineers
+- [06:53.010] whose works have stood the test of time, incredibly, too.
+- [06:56.760] Instead of ugly boxes of brutal concrete,
+- [07:00.130] we're bringing back marble columns
+- [07:02.320] and restoring classical architecture
+- [07:04.780] to our nation's capital
+- [07:06.130] to make America beautiful again.
+- [07:08.390] We're doing something outside that the Greeks
+- [07:11.030] would be very proud of,
+- [07:12.280] we're building one of the most beautiful ballrooms
+- [07:14.400] anywhere in the world, and we have beautiful columns,
+- [07:17.420] and we have beautiful sculpture, and we have beautiful --
+- [07:21.100] And they said it couldn't be done in this modern day
+- [07:23.830] but we have very talented people.
+- [07:26.440] I call it latent talent.
+- [07:27.810] We have some really incredible talents.
+- [07:29.670] And they've been wanting a ballroom for 150 years.
+- [07:33.600] This is their ballroom, it's a very small room.
+- [07:36.070] This will serve for cocktails now
+- [07:37.810] and we'll be able to do it right.
+- [07:39.860] But, you know, we used to -- when a dignitary came like
+- [07:42.830] His Eminence, they'd have a tent on the lawn.
+- [07:46.190] And when it rained, you were in deep trouble
+- [07:47.730] because the water would gather under the tent
+- [07:49.390] and it was not pretty
+- [07:50.680] when you would see the president of a major country
+- [07:53.800] or prime minister, or somebody of great religious faith,
+- [07:57.850] where you had thousands of people
+- [08:00.070] and the water was over their shoes.
+- [08:02.600] It didn't -- well, it didn't play well for the women.
+- [08:05.010] It was not a good situation so we're taking --
+- [08:07.600] and by the way, see that beautiful gold curtain?
+- [08:10.260] Behind that is a knockout panel
+- [08:12.740] and when we do knock out that panel,
+- [08:14.480] it'll be opened in about a year and a half,
+- [08:17.330] maybe less, a magnificent -- I build on time, on budget.
+- [08:22.050] I build actually faster than time and under budget,
+- [08:26.310] unlike the Federal Reserve.
+- [08:31.280] And right there is going to be the entrance, it'll be
+- [08:35.910] a beautiful, magnificent tunnel to the building,
+- [08:39.620] and it's going to be something that they've wanted for --
+- [08:42.170] other presidents have wanted this for literally 150 years.
+- [08:45.440] We never had it in the White House.
+- [08:47.560] As all of you are aware,
+- [08:48.900] I spent my life as a builder in New York.
+- [08:51.040] And from my earliest days in that city,
+- [08:53.910] I've known and loved this incredible
+- [08:56.450] Greek American community and Greek architecture.
+- [08:59.770] I love Greek architecture.
+- [09:03.260] I actually like the community more than the architecture;
+- [09:05.360] I think that I can say.
+- [09:06.560] But I do love the architecture but I love that community.
+- [09:10.060] From Astoria -- oh, I like --
+- [09:12.880] I know more about Astoria than you want to know.
+- [09:16.690] In Queens, to the famous Greek diners
+- [09:19.250] that are staples of every neighborhood,
+- [09:20.940] there's nobody has diners like the Greeks.
+- [09:23.650] Nobody does it like, I don't know what it is,
+- [09:27.210] but New York would not be the same without the grit
+- [09:29.700] and the spirit of Greeks.
+- [09:32.330] 25 years ago, on September 11, 2001,
+- [09:35.140] the Greek community lost a storied institution
+- [09:38.440] in the 9/11 attacks,
+- [09:39.930] the Saint Nicholas Greek Orthodox Church,
+- [09:42.980] which all of you remember, I do.
+- [09:45.140] That sanctuary had stood for a long time,
+- [09:48.440] 155 Cedar Street, over 100 years,
+- [09:52.470] and yet the South Tower fell.
+- [09:54.670] It was totally destroyed.
+- [09:56.090] But thanks to the men and women of New York's Greek community,
+- [09:59.020] the old church was rebuilt even bigger and better
+- [10:02.820] and more magnificent than the one before it.
+- [10:05.630] And this time using marble taken from the same quarry
+- [10:08.320] used to construct the Parthenon.
+- [10:12.080] The church now stands as a house of prayer
+- [10:15.580] and national shrine for all of the visitors
+- [10:18.420] that sacred soil and Ground Zero.
+- [10:21.200] Boy, oh, boy, what a day that was, right?
+- [10:23.750] What a terrible day that was.
+- [10:26.040] We're pleased to be joined by one of the Greek titans
+- [10:29.120] who helped to rebuild this thing.
+- [10:32.890] I've got to introduce him again now,
+- [10:34.530] John Catsimatidis and Margeaux, much more importantly, Margeaux.
+- [10:41.730] I want to thank you.
+- [10:44.690] No, he's really a friend of mine.
+- [10:46.210] The guy's great, he's a great guy, very successful.
+- [10:49.890] And he's a nice person; a lot of people don't think so,
+- [10:52.300] but I know so, OK. We're going to train them.
+- [10:55.950] We're going to train them, John.
+- [10:58.160] And he's above all, a great patriot, you really are, too.
+- [11:02.080] We appreciate it. As America celebrates -- good.
+- [11:07.550] As America celebrates our 250th anniversary this year.
+- [11:11.030] Very exciting. We also have the Olympics coming
+- [11:13.520] and we also have the World Cup coming.
+- [11:15.960] We remember that without the victory at Marathon,
+- [11:19.520] we might never have the victory at Yorktown.
+- [11:23.350] Without Athens, we might never have had the Philadelphia.
+- [11:28.660] Today we remember our ancient heritage,
+- [11:30.930] we honor the origins of our Republic.
+- [11:33.320] We celebrate our cherished friendship with the Greeks,
+- [11:36.310] and we salute our Greek American patriots
+- [11:38.500] who are helping to make America great again.
+- [11:46.010] So, it's an honor to be again with the Archbishop
+- [11:50.380] and I'd like to ask him to say a few extremely short words,
+- [11:56.360] because I am so late, you have no idea, I am.
+- [12:00.370] But that's OK, Archbishop, we don't need a long speech.
+- [12:04.690] Thank you.
+- [12:10.210] Archbishop Elpidophoros: Thank you,
+- [12:11.420] Mr. President. I will be brief, I promise.
+- [12:15.990] Greeks like to be brief in the words.
+- [12:18.360] So, today, Mr. President,
+- [12:21.260] once again, you bestow a superlative honor
+- [12:24.850] upon the Greek American community
+- [12:27.450] by your recognition of Greek Independence Day, March 25th.
+- [12:32.560] The annual celebration here at the White House,
+- [12:35.830] now in its 40th year, Mr. President,
+- [12:39.020] is not only prestigious,
+- [12:41.490] but binds America and Greece together in a strategic alliance
+- [12:47.270] that goes beyond deep friendship and mutual respect,
+- [12:51.740] which deepens in the critical sectors
+- [12:54.790] of defense, energy and shipping,
+- [12:59.370] especially in this most significant year of 2026,
+- [13:03.650] when America observes its 250th anniversary,
+- [13:07.560] as you said, of the Declaration of Independence,
+- [13:11.220] and Greece commemorates its 205th year
+- [13:15.710] since its own assertion of liberty and justice for all.
+- [13:20.310] So, this year, all Americans are rejoicing
+- [13:24.300] over this noble experiment in self-governance.
+- [13:28.370] Or, Mr. President, as your most esteemed predecessor,
+- [13:32.340] Abraham Lincoln, stated in his Gettysburg Address,
+- [13:37.590] government of the people, by the people, for the people.
+- [13:43.030] So, from the world's first democracy,
+- [13:46.770] Greece, to the world's greatest democracy, America.
+- [13:57.670] Moreover, Mr. President,
+- [13:59.880] you have personally been the global champion
+- [14:03.690] for the cause of freedom of religion,
+- [14:06.690] the first freedom enshrined in the First Amendment
+- [14:10.700] of our nation's Bill of Rights.
+- [14:12.950] And for this, we are ever grateful to you.
+- [14:17.620] As children of the Ecumenical Patriarchate,
+- [14:20.840] under the longest serving leader in its history,
+- [14:24.070] whom you received here in the Oval Office last September,
+- [14:27.980] we thank you, Mr. President,
+- [14:30.220] for your unwavering support for the spiritual mission
+- [14:34.080] of our Patriarchate and his own holiness, our --
+- [14:38.090] Patriarch Bartholomew, and, of course,
+- [14:41.960] the ongoing effort to reopen the theological school of Halki.
+- [14:52.380] And, of course, thank you for discussing this issue
+- [14:55.660] with President Erdogan last October.
+- [14:58.440] The President: And he treated you well, right?
+- [14:59.740] Archbishop Elpidophoros: Very well.
+- [15:00.970] And he respected what you requested.
+- [15:02.380] The President: Thank you.
+- [15:03.640] Archbishop Elpidophoros: Thank you.
+- [15:04.940] Mr. President, we are very grateful
+- [15:07.940] to you for your support of Greece and your support
+- [15:12.580] to the cause of justice in Cyprus.
+- [15:15.900] You recognize -- you recognize the fact
+- [15:23.430] that Greece stands as a beacon of stability and prosperity
+- [15:28.660] in the region. We pray.
+- [15:31.360] We pray that God will always bless you, Mr. President,
+- [15:35.490] for in every parish,
+- [15:37.290] during every service in our Archdiocese,
+- [15:40.800] we pray for our country, the president,
+- [15:44.590] all those in public service and our armed forces everywhere.
+- [15:54.530] May you, the first lady,
+- [15:57.400] your family, your administration,
+- [16:00.370] and our nation's armed forces enjoy the best health,
+- [16:05.250] long life, grace and strength. Finally, you see, I'm brief.
+- [16:12.790] Finally, everybody is wondering, Mr. President,
+- [16:17.210] what am I going to offer to you this year
+- [16:20.120] after the cross that I offered you last year.
+- [16:23.240] And here I go, what I can offer to you this year.
+- [16:27.930] Allow me to close with a special prayer
+- [16:31.650] we offer the Orthodox Christians during this season,
+- [16:36.000] every Sunday before Easter. We pray for you, Mr. President,
+- [16:42.130] for you are the leader of the superpower of the world.
+- [16:47.600] And with this prayer, the prayer of Saint Basil the Great,
+- [16:51.770] we say the following,
+- [16:53.800] and I ask all of you to pray with me.
+- [16:57.170] Remember, O Lord, our pious and faithful president,
+- [17:02.630] whom you have allowed to govern on earth
+- [17:06.260] and all those in public service.
+- [17:08.970] Equip him with the armor of truth
+- [17:12.080] and with the shield of your good pleasure.
+- [17:15.520] Protect him in times of war, like now.
+- [17:19.370] Strengthen his arm and exalt his right hand.
+- [17:23.800] Make his presidency strong
+- [17:26.860] and subdue all hostile nations that thirst for war.
+- [17:32.530] Grant him profound and lasting peace.
+- [17:36.040] Whisper in his heart good things about your church
+- [17:39.740] and all your people,
+- [17:41.620] so that he may perform his duties in tranquility,
+- [17:45.560] and we may live a serene and peaceful life
+- [17:49.610] in all piety and modesty.
+- [17:52.920] Remember, O Lord, our brothers and sisters in government,
+- [17:57.120] and all civil servants and the armed forces.
+- [18:01.830] Preserve in your goodness those who are good
+- [18:04.930] and your kindness make good those who are evil,
+- [18:09.500] for you are the source of life and goodness
+- [18:12.160] and to you we ascribe all glory. A-men.
+- [18:15.250] Archbishop Elpidophoros: (speaking Greek)
+- [18:18.520] God bless America.
+- [18:21.560] (applause)

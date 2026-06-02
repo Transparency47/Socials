@@ -1,0 +1,394 @@
+<!-- source: https://www.youtube.com/watch?v=pCOsgfINdKg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pCOsgfINdKg -->
+<!-- date_published: 2025-02-14T14:02:03+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:46.787618+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks at the Munich Security Conference
+
+- [00:00.210] Male Speaker: --of the United States, Mr. J.D. Vance,
+- [00:03.450] who was here last year as senator.
+- [00:06.910] And we are very happy that he has come back to Munich,
+- [00:10.640] and we are very much looking forward to his speech.
+- [00:14.730] Please welcome Vice President J.D. Vance.
+- [00:28.820] The Vice President: Well, thank you and thanks
+- [00:30.510] to all the gathered delegates and luminaries
+- [00:33.840] and media professionals, and thanks especially
+- [00:37.440] to the host of the Munich Security Conference
+- [00:39.960] for being able to put on such an incredible event.
+- [00:42.520] We're, of course, thrilled to be here.
+- [00:44.470] We're happy to be here.
+- [00:46.070] And one of the things that I wanted to talk about today
+- [00:51.230] is, of course, our shared values.
+- [00:53.160] And it's great to be back in Germany.
+- [00:55.480] As you heard earlier,
+- [00:56.980] I was here last year as United States Senator.
+- [00:59.380] I saw a foreign minister, excuse me,
+- [01:01.470] foreign secretary David Lamian
+- [01:02.760] and joked that both of us last year
+- [01:04.090] had different jobs than we have now.
+- [01:06.040] But now it's time for all of our countries,
+- [01:08.380] for all of us who have been fortunate enough
+- [01:11.620] to be given political power by our respective peoples
+- [01:15.090] to use it wisely to improve their lives.
+- [01:17.650] And I want to say that I was fortunate in my time here
+- [01:21.980] to spend some time outside the halls of this conference
+- [01:24.430] over the last 24 hours.
+- [01:26.550] And I've been so impressed by the hospitality of the people,
+- [01:31.100] even of course, as they're reeling
+- [01:33.060] from yesterday's horrendous attack.
+- [01:35.530] And the first time I was ever in Munich
+- [01:38.130] was with my wife actually who's here with me today
+- [01:41.330] on a personal trip.
+- [01:42.570] And I've always loved the city of Munich
+- [01:44.470] and I've always loved its people.
+- [01:46.370] And I just want to say that we're very moved
+- [01:48.110] and our thoughts and prayers are with Munich
+- [01:50.650] and everybody affected by the evil
+- [01:52.760] inflicted on this beautiful community.
+- [01:54.610] We're thinking about you. We're praying for you
+- [01:57.350] and we will certainly be rooting for you
+- [01:59.480] in the days and weeks to come.
+- [02:02.020] Now, I hope that's not the last bit of applause that I get,
+- [02:10.580] but we gather at this conference, of course,
+- [02:14.780] to discuss security.
+- [02:17.330] And normally we mean threats to our external security.
+- [02:21.180] I see many great military leaders gathered here today.
+- [02:25.140] But while the Trump administration
+- [02:26.690] is very concerned with European security
+- [02:30.150] and believes that we can come to a reasonable settlement
+- [02:33.920] between Russia and Ukraine,
+- [02:35.890] and we also believe that it's important
+- [02:37.630] in the coming years for Europe
+- [02:39.220] to step up in a big way to provide for its own defense,
+- [02:43.290] the threat that I worry the most about
+- [02:45.540] vis-a-vis Europe is not Russia,
+- [02:47.800] it's not China, it's not any other external actor.
+- [02:51.620] And what I worry about is the threat from within.
+- [02:55.270] The retreat of Europe from some of its most fundamental values,
+- [02:59.780] values shared with the United States of America.
+- [03:03.510] Now, I was struck that a former European commissioner
+- [03:06.560] went on television recently and sounded delighted
+- [03:10.790] that the Romanian government
+- [03:11.990] had just annulled an entire election.
+- [03:15.180] He warned that if things don't go to plan,
+- [03:18.640] the very same thing could happen in Germany too.
+- [03:22.760] Now, these cavalier statements are shocking to American ears.
+- [03:26.410] For years we've been told that everything we fund and support
+- [03:30.650] is in the name of our shared democratic values.
+- [03:35.060] Everything from our Ukraine policy to digital censorship
+- [03:38.840] is billed as a defense of democracy.
+- [03:43.820] But when we see European courts canceling elections
+- [03:47.100] and senior officials threatening to cancel others,
+- [03:50.630] we ought to ask whether we're holding ourselves
+- [03:53.080] to an appropriately high standard.
+- [03:55.230] And I say ourselves because I fundamentally believe
+- [03:57.780] that we are on the same team.
+- [03:59.770] We must do more than talk about democratic values.
+- [04:03.020] We must live them.
+- [04:05.790] Now within living memory of many of you in this room,
+- [04:09.030] the Cold War positioned defenders of democracy
+- [04:12.380] against much more tyrannical forces on this continent.
+- [04:16.440] And consider the side in that fight that censored dissidents,
+- [04:21.300] that closed churches, that canceled elections.
+- [04:25.610] Were they the good guys? Certainly not.
+- [04:28.530] And thank God they lost the Cold War.
+- [04:31.450] They lost because they neither valued nor respected
+- [04:34.910] all of the extraordinary blessings of liberty,
+- [04:37.810] the freedom to surprise, to make mistakes,
+- [04:41.080] to invent, to build.
+- [04:43.720] As it turns out, you can't mandate innovation or creativity
+- [04:47.830] just as you can't force people what to think,
+- [04:50.620] what to feel or what to believe.
+- [04:52.650] And we believe those things are certainly connected.
+- [04:56.120] And unfortunately, when I look at Europe today,
+- [04:58.800] it's sometimes not so clear
+- [05:00.880] what happened to some of the Cold War's winners.
+- [05:04.970] I look to Brussels, where EU commissars warn citizens
+- [05:09.270] that they intend to shut down social media
+- [05:11.730] during times of civil unrest,
+- [05:14.020] the moment they spot what they've judged to be
+- [05:17.710] "hateful content,"
+- [05:19.950] or to this very country where police have carried out raids
+- [05:23.300] against citizens suspected
+- [05:24.660] of posting anti-feminist comments online
+- [05:27.670] as part of "combating misogyny on the internet,
+- [05:31.880] a day of action."
+- [05:33.850] I look to Sweden where two weeks ago
+- [05:35.980] the government convicted a Christian activist
+- [05:38.850] for participating in Quran burnings
+- [05:41.390] that resulted in his friend's murder.
+- [05:44.680] And as the judge in his case, chillingly noted,
+- [05:47.840] "Sweden's laws to supposedly protect
+- [05:50.370] free expression do not in fact grant,"
+- [05:53.700] and I'm quoting, "a free pass to do or say anything
+- [05:58.480] without risking offending the group that holds that belief."
+- [06:03.410] And perhaps most concerningly, I look to our very dear friends,
+- [06:06.930] the United Kingdom,
+- [06:08.560] where the back slide away from conscience rights
+- [06:10.550] has placed the basic liberties of religious Britons
+- [06:13.080] in particular in the crosshairs. A little over two years ago,
+- [06:17.720] the British government charged Adam Smith Connor,
+- [06:20.530] a 51-year-old physiotherapist, and an army veteran,
+- [06:24.190] with the heinous crime of standing 50 meters
+- [06:28.970] from an abortion clinic
+- [06:30.700] and silently praying for three minutes.
+- [06:33.980] Not obstructing anyone, not interacting with anyone,
+- [06:37.330] just silently praying on his own.
+- [06:38.890] And after British law enforcement spotted him
+- [06:42.280] and demanded to know what he was praying for,
+- [06:44.970] Adam replied simply it was on behalf of the unborn son
+- [06:49.250] he and his former girlfriend had aborted years before.
+- [06:53.710] Now the officers were not moved. Adam was found guilty
+- [06:57.230] of breaking the government's new buffer zones law,
+- [07:00.300] which criminalizes silent prayer and other actions
+- [07:02.800] that could influence a person's decision
+- [07:05.470] within 200 meters of an abortion facility.
+- [07:08.530] He was sentenced to pay thousands of pounds
+- [07:10.760] in legal costs to the prosecution.
+- [07:13.700] Now, I wish I could say that this was a fluke,
+- [07:15.540] a one-off crazy example of a badly written law
+- [07:18.570] being enacted against a single person.
+- [07:21.680] But no, this last October, just a few months ago,
+- [07:24.840] the Scottish government began distributing letters to citizens
+- [07:28.100] whose houses lay within so-called safe access zones,
+- [07:32.220] warning them that even private prayer within their own homes
+- [07:36.420] may amount to breaking the law.
+- [07:39.460] Naturally, the government urged readers to report
+- [07:41.940] any fellow citizen suspected guilty of thought crime.
+- [07:46.110] In Britain and across Europe,
+- [07:48.800] free speech I fear is in retreat.
+- [07:52.400] And in the interest of comedy, my friends,
+- [07:54.570] but also in the interest of truth,
+- [07:56.690] I will admit that sometimes the loudest voices for censorship
+- [08:00.590] have come not from within Europe,
+- [08:02.730] but from within my own country,
+- [08:05.080] where the prior administration threatened
+- [08:06.960] and bullied social media companies to censor
+- [08:09.380] so-called misinformation.
+- [08:11.930] Misinformation, like for example,
+- [08:13.780] the idea that Coronavirus had likely leaked
+- [08:17.680] from a laboratory in China,
+- [08:19.590] our own government encouraged private companies
+- [08:23.230] to silence people who dared to utter
+- [08:25.900] what turned out to be an obvious truth.
+- [08:29.430] So I come here today, not just with an observation,
+- [08:32.160] but with an offer.
+- [08:34.090] And just as the Biden administration seemed
+- [08:35.940] desperate to silence people for speaking their minds,
+- [08:39.000] so the Trump administration will do precisely the opposite,
+- [08:43.510] and I hope that we can work together on that.
+- [08:46.280] And Washington, there is a new sheriff in town.
+- [08:49.580] And under Donald Trump's leadership,
+- [08:51.440] we may disagree with your views,
+- [08:53.530] but we will fight to defend your right
+- [08:55.400] to offer it in the public square.
+- [08:57.250] Agree or disagree.
+- [09:05.140] Now, we're at the point of course
+- [09:06.620] that the situation has gotten so bad that this December,
+- [09:11.160] Romania straight up canceled
+- [09:12.740] the results of a presidential election
+- [09:15.320] based on the flimsy suspicions of an intelligence agency
+- [09:19.460] and enormous from its continental neighbors.
+- [09:22.220] Now, as I understand it,
+- [09:24.420] the argument was that Russian disinformation
+- [09:27.450] had infected the Romanian elections,
+- [09:31.030] but I'd ask my European friends to have some perspective.
+- [09:35.050] You can believe it's wrong for Russia
+- [09:37.470] to buy social media advertisements
+- [09:39.170] to influence your elections. We certainly do.
+- [09:42.140] You can condemn it on the world stage even.
+- [09:44.720] But if your democracy can be destroyed
+- [09:46.880] with a few hundred thousand dollars of digital
+- [09:49.190] advertising from a foreign country,
+- [09:51.470] then it wasn't very strong to begin with.
+- [09:58.490] Now, the good news is that I happen to think your democracies
+- [10:01.710] are substantially less brittle
+- [10:03.850] than many people apparently fear.
+- [10:06.160] And I really do believe that allowing our citizens
+- [10:08.970] to speak their mind will make them stronger still,
+- [10:12.940] which of course brings us back to Munich,
+- [10:16.320] where the organizers of this very conference have banned
+- [10:19.300] lawmakers representing populist parties on both the left
+- [10:22.350] and the right from participating in these conversations.
+- [10:25.480] Now, again, we don't have to agree
+- [10:28.070] with everything or anything that people say,
+- [10:31.680] but when people represent, when political leaders represent
+- [10:35.430] an important constituency, it is incumbent upon us
+- [10:38.770] to at least participate in dialogue with them.
+- [10:42.900] Now to many of us on the other side of the Atlantic,
+- [10:45.320] it looks more and more like old entrenched interests
+- [10:49.080] hiding behind ugly Soviet era words like misinformation
+- [10:53.220] and disinformation who simply don't like the idea
+- [10:56.700] that somebody with an alternative viewpoint
+- [10:58.980] might express a different opinion,
+- [11:01.110] or God forbid, vote a different way
+- [11:04.480] or even worse win an election.
+- [11:09.190] Now this is a security conference,
+- [11:10.780] and I'm sure you all came here prepared to talk about
+- [11:13.470] how exactly you intend to increase defense
+- [11:16.050] spending over the next few years in line with some new target.
+- [11:20.280] And that's great because as President Trump
+- [11:22.620] has made abundantly clear,
+- [11:24.660] he believes that our European friends
+- [11:26.540] must play a bigger role in the future of this continent.
+- [11:30.630] We don't think you hear this term burden sharing,
+- [11:34.040] but we think it's an important part
+- [11:35.340] of being in a shared alliance together
+- [11:37.420] that the Europeans step up
+- [11:38.920] while America focuses on areas of the world
+- [11:42.410] that are in great danger.
+- [11:44.500] But let me also ask you, how will you even begin to think
+- [11:48.490] through the kinds of budgeting questions
+- [11:50.850] if we don't know what it is
+- [11:53.250] that we are defending in the first place?
+- [11:56.350] I've heard a lot already in my conversations,
+- [11:59.130] and I've had many, many great conversations with many people
+- [12:01.730] gathered here in this room.
+- [12:03.630] I've heard a lot about what you need to defend yourselves from,
+- [12:06.920] and of course that's important,
+- [12:08.810] but what has seemed a little bit less clear to me
+- [12:11.760] and certainly I think to many of the citizens of Europe
+- [12:14.960] is what exactly it is that you're defending yourselves for.
+- [12:18.820] What is the positive vision
+- [12:21.020] that animates this shared security compact
+- [12:24.130] that we all believe is so important?
+- [12:26.710] And I believe deeply that there is no security
+- [12:31.790] if you are afraid of the voices, the opinions,
+- [12:35.030] and the conscience that guide your very own people.
+- [12:39.200] Europe faces many challenges,
+- [12:41.860] but the crisis this continent faces right now,
+- [12:43.970] the crisis I believe we all face together
+- [12:47.370] is one of our own making.
+- [12:51.140] If you're running in fear of your own voters,
+- [12:53.860] there is nothing America can do for you nor for that matter
+- [12:57.900] is there anything that you can do for the American people
+- [13:00.990] who elected me and elected President Trump.
+- [13:04.370] You need democratic mandates to accomplish anything of value
+- [13:07.500] in the coming years.
+- [13:08.870] Have we learned nothing that thin mandates
+- [13:12.110] produce unstable results, but there is so much of value
+- [13:16.840] that can be accomplished with the kind of democratic mandate
+- [13:20.460] that I think will come from being more responsive
+- [13:23.200] to the voices of your citizens.
+- [13:26.050] If you're going to enjoy competitive economies,
+- [13:28.640] if you're going to enjoy affordable energy
+- [13:31.540] and secure supply chains, then you need mandates to govern,
+- [13:36.860] because you have to make difficult choices
+- [13:39.040] to enjoy all of these things.
+- [13:40.530] And of course, we know that very well in America.
+- [13:43.410] You cannot win a democratic mandate
+- [13:44.970] by censoring your opponents or putting them in jail,
+- [13:48.370] whether that's the leader of the opposition,
+- [13:50.870] a humble Christian praying in her own home,
+- [13:53.360] or a journalist trying to report the news,
+- [13:56.610] nor can you win one
+- [13:57.820] by disregarding your basic electorate on questions
+- [14:01.300] like who gets to be a part of our shared society?
+- [14:05.170] And of all the pressing challenges
+- [14:07.160] that the nations represented here face,
+- [14:09.620] I believe there is nothing more urgent than mass migration.
+- [14:15.530] Today almost one in five people living in this country
+- [14:19.040] moved here from abroad.
+- [14:20.370] That is, of course, an all time high.
+- [14:22.440] It's a similar number by the way,
+- [14:23.700] in the United States, also an all time high.
+- [14:26.430] The number of immigrants who entered the EU
+- [14:28.600] from non-EU countries doubled between 2021 and 2022 alone.
+- [14:34.440] And of course, it's gotten much higher since.
+- [14:36.860] And we know the situation,
+- [14:38.430] it didn't materialize in a vacuum.
+- [14:41.450] It's a result of a series of conscious decisions
+- [14:45.230] made by politicians all over the continent
+- [14:48.430] and others across the world over the span of a decade.
+- [14:53.670] We saw the horrors wrought by these decisions
+- [14:55.600] yesterday in this very city.
+- [14:59.050] And of course, I can't bring it up again
+- [15:01.300] without thinking about the terrible victims
+- [15:04.390] who had a beautiful winter day in Munich ruined.
+- [15:08.240] Our thoughts and prayers are with them
+- [15:10.570] and will remain with them.
+- [15:12.230] But why did this happen in the first place?
+- [15:14.930] It's a terrible story,
+- [15:16.230] but it's one we've heard way too many times in Europe,
+- [15:18.890] and unfortunately too many times in the United States as well,
+- [15:22.960] an asylum seeker,
+- [15:24.310] often a young man in his mid-twenties
+- [15:27.050] already known to police,
+- [15:28.870] rams a car into a crowd and shatters a community.
+- [15:32.990] How many times must we suffer these appalling setbacks
+- [15:37.310] before we change course
+- [15:38.920] and take our shared civilization in a new direction?
+- [15:44.370] No voter on this continent went to the ballot box
+- [15:47.580] to open the floodgates to millions of unvetted immigrants.
+- [15:52.390] But you know what they did vote for?
+- [15:54.610] In England they voted for Brexit.
+- [15:56.560] And agree or disagree, they voted for it.
+- [15:59.440] And more and more all over Europe,
+- [16:00.920] they're voting for political leaders
+- [16:02.440] who promised to put an end to out-of-control migration.
+- [16:06.860] Now, I happen to agree with a lot of these concerns,
+- [16:09.180] but you don't have to agree with me.
+- [16:11.070] I just think that people care about their homes,
+- [16:14.680] they care about their dreams, they care about their safety
+- [16:17.690] and their capacity to provide for themselves
+- [16:20.040] and their children, and they're smart.
+- [16:23.420] I think this is one of the most important things I've learned
+- [16:25.900] in my brief time in politics, contrary to what you might hear
+- [16:30.440] a couple mountains over in Davos,
+- [16:32.570] the citizens of all of our nations
+- [16:34.230] don't generally think of themselves as educated animals
+- [16:37.920] or as interchangeable cogs of a global economy.
+- [16:41.580] And it's hardly surprising that they don't want to be shuffled
+- [16:44.470] about or relentlessly ignored by their leaders.
+- [16:48.120] Then it is the business of democracy to adjudicate
+- [16:51.460] these big questions at the ballot box.
+- [16:54.220] I believe that dismissing people,
+- [16:56.540] dismissing their concerns or worse yet,
+- [16:59.300] shutting down media,
+- [17:00.540] shutting down elections or shutting people
+- [17:03.940] out of the political process protects nothing.
+- [17:08.090] In fact, it is the most surefire way to destroy democracy.
+- [17:13.620] And speaking up and expressing opinions
+- [17:15.960] isn't election interference.
+- [17:18.130] Even when people express views outside your own country,
+- [17:21.930] and even when those people are very influential.
+- [17:25.610] And trust me, I say this with all humor,
+- [17:28.170] if American democracy can survive
+- [17:30.320] 10 years of Greta Thunberg scolding,
+- [17:33.240] you guys can survive a few months of Elon Musk.
+- [17:37.810] But what German democracy, what no democracy,
+- [17:41.480] American, German, or European will survive,
+- [17:44.850] is telling millions of voters
+- [17:46.370] that their thoughts and concerns,
+- [17:47.870] their aspirations, their pleas for relief
+- [17:51.060] are invalid or unworthy of even being considered.
+- [17:56.060] Democracy rests on the sacred principle
+- [17:58.980] that the voice of the people matters.
+- [18:02.040] There's no room for firewalls.
+- [18:05.290] You either uphold the principle or you don't.
+- [18:09.530] Europeans, the people have a voice.
+- [18:13.220] European leaders have a choice. And my strong belief
+- [18:18.010] is that we do not need to be afraid of the future.
+- [18:21.940] You can embrace what your people tell you,
+- [18:24.110] even when it's surprising, even when you don't agree.
+- [18:28.230] And if you do so, you can face the future
+- [18:30.180] with certainty and with confidence
+- [18:31.960] knowing that the nation stands behind each of you.
+- [18:35.680] And that to me is the great magic of democracy.
+- [18:39.180] It's not in these stone buildings or beautiful hotels.
+- [18:42.690] It's not even in the great institutions
+- [18:44.670] that we have built together as a shared society.
+- [18:48.840] To believe in democracy is to understand
+- [18:51.690] that each of our citizens has wisdom and has a voice.
+- [18:56.790] And if we refuse to listen to that voice,
+- [18:59.060] even our most successful fights will secure very little.
+- [19:04.370] As Pope John Paul II, in my view,
+- [19:06.940] one of the most extraordinary champions of democracy
+- [19:10.030] on this continent or any other once said, "Do not be afraid."
+- [19:15.250] We shouldn't be afraid of our people
+- [19:17.560] even when they express views
+- [19:19.750] that disagree with their leadership.
+- [19:21.770] Thank you all. Good luck to all of you.
+- [19:24.100] God bless you.

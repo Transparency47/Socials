@@ -1,0 +1,626 @@
+<!-- source: https://www.youtube.com/watch?v=hLKD2ulnBF4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: hLKD2ulnBF4 -->
+<!-- date_published: 2026-03-16T01:59:48+00:00 -->
+<!-- date_accessed: 2026-06-02T01:03:40.403026+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Joint Base Andrews, Mar. 15, 2026
+
+- [00:00.680] Hello everybody.
+- [00:02.360] So we have uh
+- [00:04.960] a lot of things
+- [00:06.960] to talk about, but there's not much I
+- [00:08.520] can say to you about it. So one of those
+- [00:10.760] little
+- [00:11.600] problems in life that we had some very
+- [00:13.840] good results today as you probably heard
+- [00:16.080] in Iran.
+- [00:17.840] Uh very strong results militarily.
+- [00:20.120] Results.
+- [00:21.320] We're talking to countries about
+- [00:23.320] policing the streets because they are
+- [00:26.760] the ones you know, we don't get oil very
+- [00:28.520] little, 1% 2%.
+- [00:30.800] Uh China as an example gets about 90% of
+- [00:33.400] its oil from the
+- [00:34.880] Hormuz Strait. And uh
+- [00:38.360] it'd be nice to have other countries
+- [00:40.640] police that with us. And we'll help,
+- [00:42.960] we'll work with them. Militarily we've
+- [00:45.160] As far as I'm concerned, we've
+- [00:46.440] essentially defeated Iran.
+- [00:49.200] I guess they can have a little bit of
+- [00:50.960] fight back, but not much. Not much.
+- [00:53.280] We've taken out their air forces, you
+- [00:55.000] know, we've taken out their navy.
+- [00:57.160] We've taken out their air defenses. No
+- [00:59.440] air defense whatsoever.
+- [01:01.760] Uh we've taken out their leadership
+- [01:03.040] times two or three. Might be three. Find
+- [01:05.480] out soon.
+- [01:06.720] But uh
+- [01:08.400] militarily it's been amazing.
+- [01:10.600] Uh we attacked Kharg Island.
+- [01:14.080] And we left just the one little area
+- [01:17.440] standing. And the standing part is where
+- [01:19.280] they have the pipes Well, the oil pipes
+- [01:21.120] come in.
+- [01:22.320] And we can do that on 5 minutes notice.
+- [01:24.640] We have it all locked and loaded and
+- [01:26.200] ready to go if we want to do it. But we
+- [01:28.400] chose not to do it. I chose not to do it
+- [01:30.280] yet. See what happens.
+- [01:32.720] They want to negotiate. They want to
+- [01:34.480] negotiate badly. I don't think they're
+- [01:36.120] ready.
+- [01:37.400] Just heard one of hearing. They want to
+- [01:39.240] negotiate
+- [01:40.680] badly.
+- [01:41.800] As they should.
+- [01:43.240] But I don't think they're ready to do
+- [01:45.080] what they have to do.
+- [01:46.600] Uh but I think they will be ready at
+- [01:48.680] some point. But we're doing very well
+- [01:50.920] with respect to
+- [01:52.600] that whole situation in Iran.
+- [01:54.800] We are talking to other countries about
+- [01:57.600] working with us on the policing of
+- [02:00.600] the straight.
+- [02:02.480] And I think we're getting a good
+- [02:03.600] response. If we do, that's great. And if
+- [02:05.560] we don't, that's great, too.
+- [02:07.240] Remember,
+- [02:08.560] like as an example, many cases in NATO
+- [02:10.840] countries,
+- [02:12.120] we're always there for NATO.
+- [02:14.240] We're helping them with Ukraine. It's
+- [02:17.160] many It's It's got an ocean in between
+- [02:19.240] us.
+- [02:20.000] Doesn't affect us, but we've helped
+- [02:21.520] them.
+- [02:22.520] It'd be interesting to see what country
+- [02:24.800] would help us with a very small
+- [02:27.200] endeavor, which is just keeping the
+- [02:29.360] straight open. That by comparison
+- [02:31.880] uh is a small It's small because Iran
+- [02:34.600] has very little firepower left.
+- [02:37.040] Uh their missiles are down to a low
+- [02:38.800] number. You see, they they're shooting
+- [02:40.680] very few of them. You know why? Because
+- [02:42.680] there aren't very many of them.
+- [02:44.520] And because we've decimated their
+- [02:46.120] manufacturing capability.
+- [02:48.560] Likewise, the drones are way down.
+- [02:50.240] They're down to about 20% of what they
+- [02:52.160] had. They still have some.
+- [02:53.720] Uh and they you know, they're pretty
+- [02:56.000] But the drones are down and we're
+- [02:58.040] hitting we're starting hitting as of
+- [03:00.239] yesterday, we're hitting places where
+- [03:02.360] they manufacture the drones. We think
+- [03:04.680] most of which we know where they are.
+- [03:07.200] So, it's a very strong military
+- [03:08.959] operation just as it was in Venezuela.
+- [03:12.040] We have the strongest military anywhere
+- [03:13.800] in the world by far. Not even a contest.
+- [03:16.760] And I think people understand that.
+- [03:18.920] And we will
+- [03:21.480] finish the job. Mr. President, which
+- [03:23.720] countries have said that they will help
+- [03:25.760] you? Well, I can't say yet. I literally
+- [03:28.160] contacted them today and last night.
+- [03:31.040] Uh but we've had some positive response.
+- [03:33.959] We had a few that would rather not get
+- [03:36.160] involved. Is China one of them?
+- [03:38.680] I don't want to tell you about that. I
+- [03:39.920] mean, I I can't really say for sure, but
+- [03:43.480] China's an interesting case study.
+- [03:46.200] They get
+- [03:47.640] most of their oil, as you know, by
+- [03:50.040] by far. They get a lot, about 90% of the
+- [03:53.080] straight.
+- [03:54.400] So, I said, "Would you like to come in
+- [03:56.640] and we'll find out?" Maybe they will,
+- [03:58.200] maybe they won't.
+- [03:59.440] You know, there's some other deeper
+- [04:01.480] reasons why they may not
+- [04:03.480] They should come in, in my opinion.
+- [04:05.600] It never made sense for years. If you go
+- [04:07.480] back and look at what I was saying years
+- [04:09.040] ago, I said,
+- [04:10.280] "Why aren't we maintaining the Strait of
+- [04:12.600] Hormuz
+- [04:14.720] when it's really there for China and
+- [04:16.799] many other countries? Why aren't they
+- [04:18.320] doing it?"
+- [04:19.600] And that's because we had
+- [04:21.600] weak leadership, to be honest with you.
+- [04:23.360] But, I'm bringing it up now
+- [04:25.280] because I think you will look to it. I
+- [04:26.680] think it's something that
+- [04:28.280] other countries should help us. How many
+- [04:30.120] other countries, Mr. President? And And
+- [04:31.960] again, remember this about seven. We
+- [04:33.840] talked about seven months ago.
+- [04:37.040] Just Just remember that
+- [04:39.000] it's something that we don't need, and
+- [04:42.320] these countries do.
+- [04:44.000] And yet, for years, it's like
+- [04:46.560] For years, we've been
+- [04:48.280] maintaining it, doing a great job.
+- [04:51.000] And now that the war is Now that they've
+- [04:53.560] been diminished in terms of
+- [04:55.840] military there, military has been
+- [04:58.280] greatly diminished,
+- [04:59.840] I think it's a good
+- [05:01.280] thing for other countries to come in.
+- [05:03.320] Now, it would have been nice, as I said
+- [05:04.880] to the Prime Minister of the UK,
+- [05:07.480] who sort of was reluctant to put his two
+- [05:09.520] aircraft carriers
+- [05:11.360] into harm's way. That would be 2 weeks
+- [05:14.320] ago.
+- [05:15.400] And as soon as we demolished
+- [05:16.760] essentially, pretty much demolished
+- [05:18.480] them. It's not over yet, but pretty much
+- [05:20.760] we're in great shape, let's put it that
+- [05:22.120] way. Everybody knows.
+- [05:24.120] He said, "We'd like to send our aircraft
+- [05:25.840] carriers." I said, "I don't want them
+- [05:28.040] after we win the war. I want them before
+- [05:30.520] we start the war." So,
+- [05:32.360] whether it's
+- [05:33.600] whether we get support or not, but I can
+- [05:36.640] say this, and I said it to them,
+- [05:39.000] we will remember.
+- [05:42.000] How soon How soon
+- [05:43.680] will this begin? Well, they'll start
+- [05:45.760] immediately, but it will take a little
+- [05:47.720] time to get here. Some of the countries
+- [05:50.000] have mine sweepers, that's good. Some of
+- [05:52.320] the countries have a certain type of
+- [05:53.840] boat that could help us.
+- [05:56.560] Some of the countries would be a little
+- [05:58.040] helpful. Remember, it only takes a
+- [06:00.680] couple of people
+- [06:02.360] to screw up the strait, a couple of
+- [06:04.040] terrorists. You don't need their their
+- [06:06.000] military is defeated, but all you need
+- [06:08.560] is a few people dropping mines here and
+- [06:10.560] there, and you know, you
+- [06:12.120] you'll mess it up. So,
+- [06:14.000] we need
+- [06:15.520] I I would really have demanding that
+- [06:17.720] these countries come in and protect
+- [06:19.840] their own territory because it is their
+- [06:21.640] territory. It's It's the place from
+- [06:24.480] which they get their energy,
+- [06:27.440] and they should come and they should
+- [06:29.360] help us protect it. You could make the
+- [06:32.040] case that
+- [06:33.240] maybe we shouldn't even be there at all
+- [06:35.080] because we don't need it. We have a lot
+- [06:36.560] of oil. We're the number one producer
+- [06:39.080] anywhere in the world times two,
+- [06:41.160] by double, at least double. Now, I think
+- [06:42.880] it's much higher than that.
+- [06:45.080] But, we do it.
+- [06:46.880] It's almost like we do it for a habit,
+- [06:49.400] but we also do it for some very good
+- [06:51.160] allies that we have in the Middle East.
+- [06:53.120] Sir, you mentioned that Iran wants to
+- [06:55.400] make a deal. However, earlier today, we
+- [06:57.680] heard their foreign minister say they
+- [06:59.880] never said they wanted to make a deal,
+- [07:01.680] but they'll do whatever they can to
+- [07:03.440] defend themselves. What they tell you
+- [07:06.040] and what they tell the public, you know,
+- [07:08.040] I just put out a truth about their
+- [07:10.080] disinformation. I assume most of you
+- [07:11.880] have seen it.
+- [07:12.960] But, they used AI.
+- [07:15.080] They said they attacked the USS Abraham
+- [07:17.800] Lincoln, one of the largest ships in the
+- [07:19.520] world, an aircraft carrier,
+- [07:21.520] and they showed pictures of it burning.
+- [07:23.160] It was never attacked. It was never
+- [07:24.640] burning. The Wall Street Journal put out
+- [07:26.880] a false story that five of our big,
+- [07:29.240] beautiful tankers that we feed the
+- [07:31.200] planes with, they
+- [07:32.640] they give the planes the gas, jet fuel,
+- [07:37.280] hundreds of thousands of gallons of
+- [07:39.840] gasoline that they were all essentially
+- [07:42.480] destroyed.
+- [07:43.880] They weren't destroyed at all. In fact,
+- [07:46.720] four of them weren't
+- [07:48.680] not even I mean literally were not
+- [07:51.080] damaged. And one of them has slight
+- [07:53.480] damage and will be back in the air soon.
+- [07:56.040] But they you if you if you read the Wall
+- [07:57.520] Street Journal, it's like they were
+- [07:58.600] totally decimated and destroyed like
+- [08:01.920] Iran has been.
+- [08:03.480] So,
+- [08:04.520] they put out photo photo series, the
+- [08:06.120] kamikaze boats. The kamikaze boats don't
+- [08:09.160] exist.
+- [08:10.640] They're fake. And you can almost see
+- [08:12.680] that when you look at them. It looks
+- [08:14.160] fake. Yeah, because if they did exist,
+- [08:16.520] we'd hit them just like we hit other
+- [08:18.240] boats all over the place.
+- [08:19.960] But they don't exist. In fact, some of
+- [08:21.600] the people say, "Where are the boats?"
+- [08:23.560] What how come nobody see the boats? You
+- [08:25.440] know why? Cuz it's AI generated. It's
+- [08:28.160] fake. And I found I didn't realize this
+- [08:30.240] before we started,
+- [08:32.159] but Iran is known for
+- [08:34.320] a lot of fake news. And they deal with
+- [08:36.880] our fake news. And I actually think it's
+- [08:40.000] pretty criminal because our media
+- [08:42.640] companies, who have no credibility
+- [08:44.320] whatsoever,
+- [08:45.760] are putting out information that they
+- [08:48.200] know is false.
+- [08:50.200] And it's a very dangerous thing for the
+- [08:51.839] country. I think it's I think they could
+- [08:53.640] be in
+- [08:54.680] serious jeopardy, frankly. Mr.
+- [08:56.000] President, your PAC put out a
+- [08:57.760] fundraising email a couple of days ago
+- [08:59.800] and it's being criticized for using
+- [09:01.520] official White House photos of you at
+- [09:03.400] the dignified transfer. And the PAC is
+- [09:05.760] also promising access to
+- [09:08.000] Well, I was at the dignified transfer,
+- [09:10.040] like a lot of other people. Is that an
+- [09:11.600] appropriate email to send? Your critics
+- [09:13.240] are saying that your fundraising email I
+- [09:14.720] didn't see it. I mean, somebody sent it.
+- [09:16.320] We have a lot of people working, of
+- [09:17.480] course, but there's nobody that's better
+- [09:19.800] than the to the military than me. And
+- [09:21.720] all you have to do is look at the
+- [09:22.800] election. Look at the election results.
+- [09:26.040] Uh look at the kind of votes that we
+- [09:28.520] get. Look at the poll numbers.
+- [09:30.560] There's nobody that's ever been higher
+- [09:32.480] as a president than me with the
+- [09:34.320] military. Can you comment on the the six
+- [09:36.360] dead soldiers?
+- [09:37.720] ABC News.
+- [09:39.360] What what are the odds worst, most fake,
+- [09:41.440] most corrupt
+- [09:42.320] >> us a moment on the desk? You know what,
+- [09:43.400] ABC News? I think it's maybe the most
+- [09:45.960] corrupt news organizations on the
+- [09:48.520] planet. I think they're terrible. Okay,
+- [09:50.520] I don't want any more from ABC News.
+- [09:53.120] What what do you have to say to that?
+- [09:54.440] Thank you, sir. Uh what what's Israel
+- [09:56.000] doing to help secure the Strait of
+- [09:57.680] Hormuz? What are they doing? They're
+- [09:58.840] working with us. The relationship with
+- [10:00.680] Israel, that was other fake news. They
+- [10:02.600] were saying, "Oh, did I have an argument
+- [10:04.160] with Bibi?" No, we really get along
+- [10:05.920] well.
+- [10:07.080] And uh
+- [10:08.920] he would tell you we're leading the
+- [10:10.320] whole thing. And I don't They can say it
+- [10:12.920] or not say it, it doesn't matter. The
+- [10:14.360] main thing is to get it done, but
+- [10:16.480] my relationship with Bibi Netanyahu is
+- [10:19.320] I would say extraordinary, actually. Mr.
+- [10:21.880] President, um if I may if I may ask a
+- [10:23.360] question. Yeah, go ahead. Um when when
+- [10:25.280] you called for the people of Iran to
+- [10:27.640] rise up against their government, what
+- [10:29.760] what's going on there? They they haven't
+- [10:31.120] done that in the way you expected them
+- [10:32.640] You're dealing with thugs.
+- [10:34.680] You're dealing with horrible people.
+- [10:37.280] Uh you're dealing with people that are
+- [10:38.880] violent and vicious.
+- [10:41.120] And that's the leadership and the people
+- [10:43.640] right under them, their military or
+- [10:45.680] their police.
+- [10:47.240] And they've notified everybody and they
+- [10:49.600] put out statements that if you protest,
+- [10:52.080] you're going to be shot and killed.
+- [10:54.920] The protesters have no guns. And I know
+- [10:57.720] you're a brave person, but I don't think
+- [10:59.320] you'd be protesting. And
+- [11:01.160] so I think it's very hard for them to
+- [11:03.160] protest. I fully understand it. They
+- [11:05.320] said, "If you protest, you will be
+- [11:06.920] killed."
+- [11:08.120] A week ago and 2 weeks ago, they killed
+- [11:10.280] 32,000 protesters. At least we think the
+- [11:13.160] number is much higher than that.
+- [11:15.120] They shot and killed
+- [11:16.960] 32,000 protesters
+- [11:19.400] who were greatly enthusiastic and wanted
+- [11:21.839] to see a change because they've
+- [11:23.960] destroyed the country. The people that
+- [11:25.520] are running it destroyed the country.
+- [11:27.440] But think of it, they shot and killed
+- [11:29.680] much more than 32,000 people. Now they
+- [11:32.600] put out a notice 2 days ago that we're
+- [11:34.520] going to kill
+- [11:36.480] They're shooting and killing any
+- [11:37.800] protester.
+- [11:39.600] And they don't have guns.
+- [11:41.520] Meaning the protesters, they have no
+- [11:43.240] guns.
+- [11:44.400] So, I can fully understand why they're
+- [11:46.040] not doing it. Oh, one other thing that
+- [11:47.680] was
+- [11:48.680] uh AI generated, they showed about
+- [11:51.160] 250,000 people in the square saying how
+- [11:54.280] much they love Khomeini.
+- [11:56.360] Uh totally AI generated. It never took
+- [11:59.600] place. The media knew it didn't take
+- [12:01.800] place, but they built it up like they
+- [12:03.840] have great support. They don't have
+- [12:05.040] support at
+- [12:06.520] that whole rally that they had 3 days
+- [12:09.200] ago, 4 days ago that they said was fake.
+- [12:12.600] It was AI generated. AI can be very
+- [12:15.280] dangerous. We have to be very careful
+- [12:16.960] with it, but the rally cuz I was
+- [12:18.960] actually surprised to see cuz I don't
+- [12:20.400] know how much they they're the people
+- [12:22.440] hate this leadership. This leadership
+- [12:24.800] has destroyed the country.
+- [12:26.760] The rally that everybody including ABC
+- [12:29.560] fake your your your network is the
+- [12:31.520] worst.
+- [12:32.520] But, everybody
+- [12:34.880] put that rally on
+- [12:36.960] like, "Oh." And even I was surprised. I
+- [12:39.280] looked
+- [12:40.360] uh it turned out I found out today it
+- [12:42.480] was a totally AI generated fake news
+- [12:45.839] story put out by news organizations in
+- [12:49.480] the US and elsewhere.
+- [12:51.520] And
+- [12:52.680] honestly, they you they really shouldn't
+- [12:54.120] be allowed to do it. Mr. President, are
+- [12:56.200] there are there any diplomatic talks
+- [12:58.400] going on between the US and Iran at all
+- [13:00.320] right now?
+- [13:01.760] We we we're talking to What are the
+- [13:03.440] chances But, I don't think they're
+- [13:04.280] ready.
+- [13:05.520] But, they're getting pretty close.
+- [13:09.760] I don't know that I want to make a deal
+- [13:11.520] because, you know what? First of all,
+- [13:14.120] nobody even knows who you're dealing
+- [13:15.400] with because most of their leadership
+- [13:17.600] has been killed, as you know, right?
+- [13:19.640] So, I don't even know that we want to
+- [13:20.920] make a deal.
+- [13:23.640] But, they want to make a deal badly,
+- [13:25.040] yes. Mr. President, you mentioned that
+- [13:26.400] Iran's military has been decimated
+- [13:28.920] economically and other ways. Are you
+- [13:31.680] ready to officially declare victory? No,
+- [13:34.800] I don't want to do that. There's no
+- [13:35.920] reason to. I
+- [13:37.240] I think I'd just say they're decimated,
+- [13:40.040] but
+- [13:40.920] I wouldn't do that.
+- [13:42.080] I think that we've done damage to them
+- [13:44.680] right now.
+- [13:46.120] If we left right now, it would take them
+- [13:48.720] 10 years and more to rebuild.
+- [13:51.600] But, I'm still not declaring it over.
+- [13:54.360] Our military is incredible. The job
+- [13:56.600] they've done is just incredible. And the
+- [13:59.080] problem is
+- [14:00.760] the problem is that when you look at
+- [14:04.120] fake stories written by you people,
+- [14:07.600] written by
+- [14:09.040] and generated by AI
+- [14:13.000] it's incredible. And I just wonder, like
+- [14:15.000] Jeff, did you know that these are fake
+- [14:16.720] stories? Did you know that the rally of
+- [14:19.400] 250,000 people, the supposed rally, was
+- [14:22.240] fake? Did you know that? We saw the
+- [14:23.760] reporting on it. Did you wrote about it?
+- [14:26.360] I talked about it.
+- [14:28.120] You know it was fake. It was AI
+- [14:29.760] generated.
+- [14:30.320] >> No, I didn't know that. I said did you
+- [14:31.720] know it? You know it. Sir, have you
+- [14:33.200] talked about it?
+- [14:33.760] >> Anybody anybody that knew the country
+- [14:35.600] knew there's not 250,000 people willing
+- [14:38.560] to stand in a circle and say how great
+- [14:41.080] Khomeini is. Okay. So, are you unhappy
+- [14:43.240] that You talked about the military
+- [14:45.520] objectives. What about political
+- [14:47.839] leadership in Iran? What type of
+- [14:51.040] leadership do you
+- [14:51.880] >> people some are dead.
+- [14:54.400] But, we have some people that we think
+- [14:56.040] would be good and we will see about
+- [14:58.040] that. He said Uh
+- [14:59.880] it's something we talk about. See what
+- [15:01.800] happens. Sir, have you talked about
+- [15:03.560] selling oil futures
+- [15:06.280] Yeah,
+- [15:07.080] very obnoxious person. Go ahead. What
+- [15:08.960] were you going to say? I I I wanted to
+- [15:10.280] ask if you'd talked about capping about
+- [15:12.320] selling oil futures as a way of capping
+- [15:14.560] prices, keeping prices down at the pump.
+- [15:16.560] >> The prices are going to come tumbling
+- [15:18.000] down as soon as it's over and it's going
+- [15:19.560] to be over pretty quickly. Are you
+- [15:21.520] concerned about the political impacts of
+- [15:24.560] this? I mean, I have to do what's right.
+- [15:26.600] You know, politically I'm sure everybody
+- [15:28.120] has concern. I have to do what's right.
+- [15:31.400] I can't say that, you know, gee, I I
+- [15:34.000] don't want to have any impact on oil
+- [15:36.240] prices for 3 or 4 weeks or 2 months and
+- [15:39.720] we're going to let Iran have a nuclear
+- [15:41.760] weapon and blow up the entire Middle
+- [15:43.480] East and beyond, right? Because you
+- [15:45.600] know, they they were going to blow up
+- [15:47.040] the Middle East. If I didn't terminate
+- [15:49.160] the Obama horrible deal, the Iran
+- [15:51.560] nuclear deal it's called, if I didn't
+- [15:53.360] terminate that in my first term, they
+- [15:55.880] would have already had a nuclear weapon
+- [15:57.720] and they would have used it immediately
+- [15:59.560] upon getting it.
+- [16:01.440] And if I didn't send in the B-2 bombers
+- [16:03.560] to bomb the hell out of it and
+- [16:05.080] obliterate, and that's what it was, we
+- [16:07.480] obliterated that site and stopped all
+- [16:09.960] their potential nuclear. If I didn't do
+- [16:12.040] that,
+- [16:13.360] you would have had Israel
+- [16:15.600] and the Middle East hit by nuclear
+- [16:18.640] weapons.
+- [16:20.000] And you we wouldn't be talking about
+- [16:21.960] this right now.
+- [16:24.080] What I did in terminating the Iran
+- [16:25.920] nuclear deal and what I did in sending
+- [16:28.800] in the B-2 bombers who were It was one
+- [16:30.920] of the most incredible attacks anyone's
+- [16:33.400] ever seen. Late at night, dark, no moon,
+- [16:36.920] and every single bomb went right down
+- [16:39.080] those shoots and blew the whole place
+- [16:40.920] apart. If I didn't do that, you'd have
+- [16:43.880] you would have had nuclear warfare in
+- [16:45.360] the Middle East and I think Israel would
+- [16:47.800] have been obliterated. I think lots of
+- [16:49.760] them at least would have been. And you
+- [16:51.200] saw that when they sent thousands of
+- [16:54.480] missiles to countries that didn't expect
+- [16:56.960] anything. They didn't think they were
+- [16:58.160] going to be involved.
+- [16:59.600] And yet you look at what happened with
+- [17:01.640] Kuwait, UAE, Saudi Arabia,
+- [17:05.400] Qatar. You take a look at Qatar.
+- [17:08.120] I mean, they they
+- [17:09.439] sort of got along and all of a sudden
+- [17:11.240] they're being barraged by missiles.
+- [17:14.199] These people would have used nuclear on
+- [17:16.800] the entire Middle East.
+- [17:19.560] And that was their plan, take over the
+- [17:21.240] whole Middle East. And it failed with
+- [17:23.280] the nuclear.
+- [17:24.600] And then they had thousands of missiles.
+- [17:26.600] And for the most part, largely, we've
+- [17:29.000] now destroyed those missiles. Thank you
+- [17:31.160] very much, everybody. Mr. President, can
+- [17:32.960] you tell us about Cuba? You're You're
+- [17:34.800] talking to Cuba. What do you want to
+- [17:36.280] hear from them? And what is that risk
+- [17:37.720] there?
+- [17:38.360] >> I am holding Cuba. Cuba is a failed
+- [17:40.720] nation.
+- [17:41.920] Cuba
+- [17:43.320] also wants to make a deal.
+- [17:45.360] And I think we will pretty soon either
+- [17:47.560] make a deal or do whatever we have to
+- [17:49.280] do.
+- [17:50.240] Uh we have a lot of great people that
+- [17:52.000] happen to vote for Trump. Not that that
+- [17:53.560] matters, but we have a lot of great
+- [17:55.320] people from Cuba that were
+- [17:57.520] violently and viciously thrown out of
+- [17:59.480] the country and worse. Their families
+- [18:01.360] were killed.
+- [18:02.720] And so we're talking to Cuba, but we're
+- [18:05.480] going to do Iran before Cuba. And what
+- [18:07.920] What is that risk there?
+- [18:09.480] >> have been waiting 50 years to hear this
+- [18:11.280] story with Cuba. When I left Palm Beach
+- [18:13.800] today,
+- [18:14.800] there were thousands of people in the
+- [18:16.200] road. I'm sure you saw them. And they
+- [18:18.120] were from Cuba and from Venezuela. All
+- [18:20.200] friendly. All friendly. Waving the flag
+- [18:23.280] and waving the American flag.
+- [18:25.680] They've been waiting 50 years for what's
+- [18:27.480] happening with Cuba. So, I think
+- [18:29.200] something will happen with Cuba pretty
+- [18:31.160] quickly. Do you think we'll hear when
+- [18:32.720] Iran's missile strike is it looking more
+- [18:34.320] likely that it was the US's fault maybe
+- [18:37.160] that Iran's missile strike that happened
+- [18:39.440] on the first day of the war? We don't
+- [18:40.640] know. That's under investigation. Mr.
+- [18:42.200] President, what What do you want to see
+- [18:43.320] in a
+- [18:43.960] a deal with Iran? To end the war and how
+- [18:46.920] does that differ from Israel's
+- [18:48.520] objectives?
+- [18:50.480] Um
+- [18:51.520] I I I
+- [18:52.160] think you know, I think we have similar
+- [18:54.480] objectives, really, but could be a
+- [18:56.480] little bit different. You know, they're
+- [18:57.640] there and we're very far away.
+- [19:00.080] But I think we probably have pretty
+- [19:01.600] similar with Israel.
+- [19:03.320] Uh the relationship has been very good.
+- [19:05.160] The militaries are very well
+- [19:07.240] coordinated. Ours is the strongest by
+- [19:09.880] far in the world. And they have a real
+- [19:12.080] good military. Yeah, really good. They
+- [19:14.640] have a lot of our weapons. They have our
+- [19:16.080] planes. They have our missiles. They
+- [19:17.960] have our Patriots. They have a lot of
+- [19:20.280] our
+- [19:21.280] our weapons. We have the best We make
+- [19:23.480] the best weapons in the world. And now
+- [19:25.200] what we're doing is, you probably saw,
+- [19:27.320] we have the Raytheon and all of the
+- [19:30.080] Lockheed, all of these companies are now
+- [19:32.720] building plants because we don't want to
+- [19:34.400] wait. We make the best weapons, but we
+- [19:36.920] don't like to have to wait for them.
+- [19:38.680] What we do have though is that very high
+- [19:40.400] level, we have unlimited weapons at a
+- [19:43.640] medium to high level. And
+- [19:47.080] they're really doing the trick, and
+- [19:48.440] we're not using the They call it the
+- [19:50.240] elite weapons
+- [19:51.680] because frankly they haven't Outside of
+- [19:53.600] the original attack, they haven't been
+- [19:55.920] necessary. But these these companies
+- [19:58.800] These companies are building facilities,
+- [20:01.680] and they've already started all over the
+- [20:04.000] Many of them are building many buildings
+- [20:05.960] right now to make so
+- [20:08.320] that we wait 2 weeks instead of 2 years
+- [20:10.640] for weapons. And what what do you think
+- [20:12.080] about that? What do you think about
+- [20:13.160] that?
+- [20:14.160] What do you think about that?
+- [20:16.720] I don't talk to people like you about
+- [20:18.360] that. I mean, why would I tell you I'm
+- [20:20.240] sending or not sending? I don't talk
+- [20:22.080] about uh military strategy. Who would
+- [20:24.600] talk about I mean, who would answer a
+- [20:26.360] question like that? Do you have a
+- [20:27.640] comment on the six service members who
+- [20:29.440] passed last week? Who else died?
+- [20:31.840] What do you want to see the deal because
+- [20:32.960] earlier you said according to the Well,
+- [20:35.400] you start off with there will be no
+- [20:37.400] nuclear weapons. That's where it starts.
+- [20:40.000] And then on top of that, there's plenty
+- [20:41.840] of things that we're going to get. Thank
+- [20:43.160] you very much, everybody. Thank you,
+- [20:44.320] everybody.

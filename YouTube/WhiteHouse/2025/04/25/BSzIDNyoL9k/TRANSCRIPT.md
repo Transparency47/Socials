@@ -1,0 +1,302 @@
+<!-- source: https://www.youtube.com/watch?v=BSzIDNyoL9k -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: BSzIDNyoL9k -->
+<!-- date_published: 2025-04-25T19:09:22+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:12.202191+00:00 -->
+
+# Transcript: President Trump Gaggles on Air Force One, Apr  25, 2025
+
+- [01:30.620] The President: It's pretty surprising, the ceremony.
+- [01:33.910] The Press: You've said that you've spoken
+- [01:35.210] to President Xi multiple times.
+- [01:37.810] Is that since taking office, sir?
+- [01:40.100] The President: I don't want to discuss that.
+- [01:42.730] Speaking to a lot of people from China,
+- [01:45.900] speaking to people from all over the world about the tariffs
+- [01:48.960] and we're making very good deals.
+- [01:51.090] Very good deals.
+- [01:52.400] We're going to be making our very country rich.
+- [01:54.480] We're not going to be ripped off
+- [01:55.720] like we have been for the last literally fifty years.
+- [02:00.170] The Press: There was a car bomb in Moscow
+- [02:02.290] this morning that killed a Russian general.
+- [02:04.710] Do have a reaction to that and the impact
+- [02:06.300] [inaudible].
+- [02:07.500] The President: A car bomb? Well, no I just heard,
+- [02:13.250] you're just telling me that for the first time.
+- [02:15.690] Where did this take place?
+- [02:17.280] The Press: It took place in Moscow,
+- [02:18.570] it was a Russian general
+- [02:21.280] The President: That's really close to home.
+- [02:23.740] That's a big one.
+- [02:25.410] I look at it, if I hear anything I'll let you know.
+- [02:27.680] The Press: So when you see these leaders
+- [02:31.020] it's more of like a mix and mingle at the funeral
+- [02:33.480] or are you having individual one on ones?
+- [02:36.900] The President: That's a little tough
+- [02:38.130] because we don't have much time, and we're arriving at 11:30
+- [02:43.500] and we have some people meeting us already
+- [02:46.650] and then I'm taking pictures from the military tonight
+- [02:49.630] before we get to the house at twelve o'clock at the embassy.
+- [02:54.450] So we don't really have much time,
+- [02:56.060] and as you know tomorrow morning we start leaving early.
+- [03:01.620] We're going to try to see a couple people
+- [03:03.480] that are important to what we're doing.
+- [03:07.080] The Press: Why did you feel it was important to go
+- [03:08.970] to the Pope's funeral?
+- [03:10.820] The President: I just thought it was out of respect here,
+- [03:12.560] I won the Catholic vote,
+- [03:14.870] and I think that's the first time that ever happened
+- [03:16.740] where a Republican won the vote and I won it by a lot.
+- [03:21.120] You know I have a great relationship to the Catholics.
+- [03:26.900] I won the Catholic vote.
+- [03:28.220] I got fifty-six percent of the vote,
+- [03:30.570] I don't know why we didn't get more,
+- [03:33.940] but we did well with the Catholic vote,
+- [03:36.080] and my relationship is very good
+- [03:39.280] so therefore I think is appropriate
+- [03:42.360] [inaudible].
+- [03:45.030] The Press: Secretary Bessent said
+- [03:46.380] that you wouldn't drop tariffs on China unilaterally,
+- [03:50.850] that you would need to see some kind of movement.
+- [03:52.910] What do you want to see from China?
+- [03:54.530] The President: Well I'm not going to drop them
+- [03:57.040] unless they give us something substantial,
+- [03:59.770] otherwise I'm not going to drop them.
+- [04:01.940] It'll all work out, those things always work out.
+- [04:04.960] You know we're working on a lot of projects right now.
+- [04:07.770] The wall is on, the boarder is the most secure it's ever been.
+- [04:13.380] We're having a very hard time with judges,
+- [04:17.670] because they don't want people to be moved out of the country.
+- [04:22.440] Shockingly, nobody's ever had this before, no other President,
+- [04:25.930] there's never been a time where this has ever become an issue.
+- [04:29.160] When they talk about due process,
+- [04:30.590] when you have millions of people that you're moving out,
+- [04:34.960] that are really bad people, very dangerous people,
+- [04:37.850] and you have a judge who wants every single one of them
+- [04:39.970] to have a trial.
+- [04:41.440] So they want to set millions of trials,
+- [04:43.330] therefore, and how long does the trial take? Weeks?
+- [04:46.510] The trial cold take weeks. That's not what it's about,
+- [04:51.710] that's not what our country is about,
+- [04:53.550] and that's not why I got elected.
+- [04:55.970] And these are judges, they just want to show
+- [04:59.780] how big and important they are. They are local, Federal judges,
+- [05:04.410] and they shouldn't be allowed to do it.
+- [05:08.000] We have hundreds of thousands of people
+- [05:10.200] who want to get out of the country,
+- [05:12.570] and the courts are holding us back.
+- [05:18.430] It's very dangerous for our country.
+- [05:21.000] You want to see a country that'll have crime?
+- [05:23.580] Let that happen, because it's really dangerous for our country
+- [05:27.090] and I can't believe the Supreme Court would let that stand.
+- [05:31.550] The Press: What do you consider substantial from China?
+- [05:36.950] The President: Well, free up China.
+- [05:39.190] Let us go in and work China
+- [05:42.080] because frankly that's what we wanted last time
+- [05:45.170] we almost got it and then they backed out of that deal.
+- [05:49.130] But we had it to go into China
+- [05:52.160] and to sell our product, sell our wares.
+- [05:57.420] In other words it's called to open China.
+- [05:59.450] That would be great. That would be a big win.
+- [06:02.420] But I'm not even sure I'm going to ask for it
+- [06:04.020] because they don't want it open. They don't want it open.
+- [06:08.310] The Press: On the immigration front think, of the tariffs.
+- [06:11.700] The President: But because of tariffs
+- [06:12.990] I could possibly get that.
+- [06:15.070] What do you think opening up China would be a big win.
+- [06:17.470] Right?
+- [06:18.840] The problem is no matter how big the win is,
+- [06:20.950] the press will not give me credit for it.
+- [06:23.060] If I got the greatest win in history, if I got --,
+- [06:27.130] they'll pay us trillions and trillions of dollars.
+- [06:30.630] They'll give us anything we want.
+- [06:32.370] The press will say Trump, he just had a terrible defeat.
+- [06:37.430] He suffered a terrible defeat. But the people know.
+- [06:42.070] Now I think we're going to have a lot of big wins.
+- [06:44.300] I don't know if it's going to be covered
+- [06:45.850] that way by the fake news,
+- [06:47.080] but the wins are going to be very substantial.
+- [06:49.770] We were losing, with Biden 5 billion a day.
+- [06:57.200] Think of that, 5 billion a day. I've got that number way down
+- [07:01.270] and soon it's going to be very, very positive.
+- [07:03.210] We're going to make, we'll be making 5 billion a day,
+- [07:07.370] but we have a little ways to go yet, a little less.
+- [07:13.100] The Press: Can I ask you about the Texas Senate primary,
+- [07:16.210] the Texas Senate primary with John Cornyn and Ken Paxton.
+- [07:18.530] You going to get involved?
+- [07:19.760] Have you talked to the candidates?
+- [07:21.000] The President: Well, they're both friends of mine.
+- [07:22.210] I like them both.
+- [07:24.770] In a way I wish they weren't running against each other.
+- [07:27.220] But I like Paxton. I like Cornyn.
+- [07:29.750] They're both good people.
+- [07:31.030] So I'll make a decision somewhere along the lines.
+- [07:33.630] But you have two very good men.
+- [07:36.620] The Press: I have a question on your immigration agenda.
+- [07:39.010] Yesterday a judge in San Francisco,
+- [07:41.840] put a nationwide injunction on you guys
+- [07:43.860] taking money away from sanctuary cities.
+- [07:46.590] Your reaction to that?
+- [07:47.870] Then I have a question about the markets.
+- [07:49.260] The President: That's Unbelievable.
+- [07:50.840] When you hear a judge in San Francisco
+- [07:52.910] or a judge in San Diego,
+- [07:55.120] does nationwide injunctions having to do
+- [07:57.870] with a whole country sitting behind a bench,
+- [08:01.290] a local bench, even though in some cases,
+- [08:04.360] in many cases they're a federal judge,
+- [08:06.270] but a judge can close down.
+- [08:09.040] We should close down sanctuary cities.
+- [08:10.960] We shouldn't have sanctuary cities
+- [08:13.600] and we'll see how that turns out.
+- [08:15.380] But sanctuary cities are sanctuary for criminals.
+- [08:19.440] That's what they are. They're sanctuary for criminals.
+- [08:21.520] They protect criminals and we should close them down
+- [08:25.020] if we want a safe country,
+- [08:26.340] you have to get rid of sanctuary cities,
+- [08:29.990] The Press: India and Pakistan.
+- [08:31.590] There are tensions after the attack in Kashmir.
+- [08:34.050] You got any message for them?
+- [08:35.700] Are you going to be talking to their leaders?
+- [08:37.940] The President: India and I'm very close to Pakistan
+- [08:39.460] as you know,
+- [08:40.660] and they've had that fight for a thousand years in Kashmir.
+- [08:44.880] Kashmir has been going on for a thousand years,
+- [08:47.240] probably longer than that and it was a bad one yesterday though.
+- [08:52.890] That was a bad one. Over 30 people.
+- [08:55.290] The Press: Are you concerned that there's now tensions
+- [08:57.630] on the border between them? Are you concerned about,
+- [08:59.890] how are you concerned about that?
+- [09:01.760] The President: There are tensions on that border
+- [09:03.090] for 1,500 years. So it's the same as it's been,
+- [09:11.200] but they'll get it figured out one way or the other.
+- [09:13.450] I'm sure that is. I know both leaders,
+- [09:18.340] there's great tension between Pakistan and India,
+- [09:21.550] but there always has been.
+- [09:23.190] The Press: So you've done the one ninety-day pause
+- [09:25.790] on some of the tariffs.
+- [09:27.760] Is it possible you'll have to do another -- or another extension?
+- [09:31.520] The President: Of the pause? Think I know pretty much.
+- [09:33.730] And again, we'll have deals made,
+- [09:36.320] but we'll also make deals.
+- [09:38.230] Otherwise we'll just set the tariff
+- [09:39.800] and we'll be reasonable.
+- [09:42.100] -- very reasonable and that'll be the end.
+- [09:45.450] It's the deal.
+- [09:46.850] We set the price they want to come in now
+- [09:49.030] they set the price for their country,
+- [09:50.780] but everybody wants to come into ours.
+- [09:53.380] They don't want to come into theirs.
+- [09:55.280] Most people don't want to come into theirs.
+- [09:57.250] The Press: Do you think the markets are adjusting
+- [09:59.180] to your tariff policy?
+- [10:00.870] The President: So when you look at what's happening?
+- [10:02.300] I think so. I said there'd be a transition.
+- [10:05.960] People haven't understood it.
+- [10:07.170] Now they're starting to understand.
+- [10:09.280] Look, think of it this way.
+- [10:11.840] We've lost billions of dollars a day for years on trade.
+- [10:16.660] Millions. Not going to happen.
+- [10:18.590] We're going to make billions of dollars a day.
+- [10:21.900] That's not sustainable.
+- [10:23.740] The Press: Can you commit that nobody on your financial team
+- [10:27.010] was giving any type of tips to Wall Street
+- [10:29.260] executives about deals with India?
+- [10:31.630] There was some reporting yesterday
+- [10:32.900] that people had heads up on Wall Street
+- [10:34.850] possibly to make money.
+- [10:36.090] Can you commit that? That did not happen.
+- [10:37.510] The President: I can commit to myself.
+- [10:38.780] That's all I can commit.
+- [10:39.990] I have thousands of people that work for me,
+- [10:42.490] but I can't imagine anybody doing it.
+- [10:45.630] I have very honorable people that I can say
+- [10:47.920] so I can't even imagine it,
+- [10:49.210] but no, I haven't even heard that actually.
+- [10:52.230] The Press: Sir. There have been some concerns
+- [10:55.200] about access to food medicine coming into Gaza.
+- [10:58.940] When you spoke to Prime Minister Netanyahu the other day,
+- [11:01.990] did that come up at all about access and humanitarian aid
+- [11:04.420] going into the Strip?
+- [11:05.730] The President: No. Gaza came up and I said,
+- [11:07.650] we've got to be good to Gaza.
+- [11:11.590] Those people are suffering. We've got to be good to Gaza.
+- [11:13.930] We're going to take care of that.
+- [11:15.910] There's a very big need for medicine,
+- [11:18.850] -- food and Medicine -- and we're taking care of it.
+- [11:22.060] The Press: In terms of opening up more access points or.
+- [11:24.170] The President: We are --
+- [11:25.490] The Press: Mostly the Israelis?
+- [11:26.720] Are you going to open up more access points?
+- [11:29.940] The President: To get food and medicine into Gaza.
+- [11:33.150] The Press: How did the Prime Minister respond to that?
+- [11:35.000] The President: Well he felt well about it.
+- [11:38.690] The Press: You've got these Iran technical talks tomorrow
+- [11:43.560] in Omaha. What do you do you think-
+- [11:46.160] The President: The Iran situation's
+- [11:47.620] coming out very well.
+- [11:49.450] We've had a lot of talks with them
+- [11:51.010] and I think we're going to have a deal.
+- [11:52.280] I'd much rather have a deal than the other alternative.
+- [11:55.790] That'd be good for humanity.
+- [11:57.730] The Press: You can start with an interim deal of some sort
+- [12:00.940] or how is it going to work?
+- [12:02.190] The President: I think it's going to be pretty much --.
+- [12:04.480] We're not looking to do lots of long-term.
+- [12:07.690] It's very simple deal.
+- [12:09.810] One thing they just can't have a nuclear weapon.
+- [12:11.770] I'm saving them a lot of money just on that.
+- [12:14.040] Having a nuclear weapon is really expensive
+- [12:17.230] but it's also very dangerous
+- [12:19.110] and they can't have a nuclear weapon and just that --
+- [12:23.470] I'm saving them billions and billions of dollars,
+- [12:26.510] what it would cost. Now with that being said,
+- [12:28.980] the Iran deal is coming along very well.
+- [12:32.000] We are dealing at the highest levels of Iran
+- [12:34.140] and I think they want to make a deal
+- [12:36.200] and we want to make a deal.
+- [12:37.780] There are some people that want to make
+- [12:39.320] a different kind of a deal, a much nastier deal
+- [12:42.410] and I don't want that to happen to Iran,
+- [12:44.400] if we can avoid it. Thank you very much everybody.
+- [12:46.690] The Press: Thank you sir.
+- [12:47.950] The Press: What's on tap for Melania's birthday?
+- [12:50.530] The President: Oh, she's going to have a great birthday.
+- [12:54.380] She's got a working birthday. She's up front.
+- [12:57.070] I should send her back.
+- [12:58.670] You want to have somebody answer a question?
+- [13:00.800] I'll send her back into the lion's bed.
+- [13:04.680] Susie, let's send Melania back to the lion's bed. That's funny.
+- [13:08.830] The Press: Are you taking her to dinner, Mr. President?
+- [13:10.470] The President: By the way, they would love that one.
+- [13:11.820] Whether-
+- [13:13.050] The Press: Are you going to be taking her to dinner?
+- [13:14.360] The Press: We see your office up there sometime, this weekend.
+- [13:19.110] The President: You can come up.
+- [13:20.620] We'll let them come up a little bit later.
+- [13:22.540] Okay, we'll do it.
+- [13:23.740] The Press: Are you taking Melania to dinner?
+- [13:25.220] The Press: Or have you had time to get her a present?
+- [13:28.090] You've been very busy.
+- [13:29.420] The President: I'll take her for dinner on the Boeing.
+- [13:34.110] I'll take her for dinner on Air Force One.
+- [13:36.630] Haven't had much time due to my presidency.
+- [13:39.860] We've been pretty busy, but it's working out.
+- [13:42.450] Things are working out very well and people
+- [13:44.230] are starting to understand how good tariffs are for us
+- [13:48.860] and tariffs have been used against us for 50 years now.
+- [13:54.170] I never understood it as a private person,
+- [13:56.670] why we allowed that to happen.
+- [13:58.760] It goes back a long time, but I never understood it.
+- [14:01.000] Why did we allow that to happen where we couldn't go into China
+- [14:04.900] but they could come here.
+- [14:06.110] We couldn't go into Europe, but they could come here.
+- [14:09.160] So many, every place.
+- [14:10.470] We couldn't go into India, they could come here.
+- [14:14.540] I never understood why they allowed that
+- [14:17.650] and I don't blame the countries.
+- [14:18.990] I blame the presidents for allowing it to happen.
+- [14:21.990] But you have a different kind of a president now,
+- [14:24.010] so thank you very much.

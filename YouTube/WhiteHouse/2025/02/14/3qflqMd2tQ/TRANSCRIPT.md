@@ -1,0 +1,379 @@
+<!-- source: https://www.youtube.com/watch?v=-3qflqMd2tQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: -3qflqMd2tQ -->
+<!-- date_published: 2025-02-14T14:23:38+00:00 -->
+<!-- date_accessed: 2026-06-02T01:29:52.511146+00:00 -->
+
+# Transcript: President Trump Participates in Swearing in Ceremony for the Secretary of Health and Human Services
+
+- [00:00.199] good thank you very much and thank you
+- [00:02.879] all for being here on this very exciting
+- [00:05.200] it is a very exciting day for we just
+- [00:07.319] had a big tariff meeting uh reciprocal
+- [00:11.960] tariffs should have been done 40 years
+- [00:14.320] ago wasn't but it is now was a big
+- [00:16.760] moment actually and this is a tremendous
+- [00:18.760] moment right now and uh it's going to be
+- [00:23.119] a real honor for me to introduce Robert
+- [00:25.039] F Kennedy Jr take the oath of office and
+- [00:28.000] officially become our Secretary of
+- [00:30.640] Health and Human Services just as I
+- [00:33.040] promised last year Bobby is going to
+- [00:35.640] lead a great National mission to make
+- [00:38.200] America healthy again and he's going to
+- [00:40.440] do it I think he's going to do things
+- [00:43.000] that uh will really make us very proud
+- [00:45.440] of this day like his father Senator
+- [00:48.280] Robert F Kennedy and his uncle President
+- [00:51.879] John F Kennedy Bobby has devoted much of
+- [00:55.239] his life to serving his fellow Americans
+- [00:57.280] in his campaign for president and he was
+- [00:59.600] a very tough competitor I did not like
+- [01:01.559] it at all I said let's get him on my
+- [01:04.720] side but in his campaign for president
+- [01:07.400] in 20124 Bobby brought together a
+- [01:10.680] coalition of supporters across uh party
+- [01:13.159] lines and he really worked very hard and
+- [01:15.400] he got he had tremendous support
+- [01:17.280] unbelievable support and I think a lot
+- [01:19.960] of that support came my way when we
+- [01:22.799] decided to do a little merger and uh it
+- [01:27.119] was really great and and it was very
+- [01:28.840] loyal very loyal incredible people they
+- [01:31.119] believe in him so strongly because he's
+- [01:33.799] a fierce advocate for the health of our
+- [01:36.000] children and for the values of free
+- [01:37.920] speech democracy and
+- [01:39.960] peace and people are going to be very
+- [01:42.680] impressed I have no doubt I've known him
+- [01:44.520] a long time he's been a friend of mine a
+- [01:46.439] long time perhaps most importantly
+- [01:48.640] though Bobby created a nationwide
+- [01:50.880] movement made up of millions and
+- [01:52.439] millions of mothers and fathers and
+- [01:54.360] young people and concerned citizen of
+- [01:57.000] every background who want to end and
+- [01:59.399] this this horrible chronic disease
+- [02:02.159] crisis that exists exists in America
+- [02:05.759] he's absolutely committed to getting
+- [02:07.479] dangerous chemicals out of our
+- [02:09.239] environment and out of our food supply
+- [02:11.400] and getting the American people the
+- [02:13.440] facts and the answers that we deserve
+- [02:16.000] after years in which our public health
+- [02:18.319] system has squandered the trust of our
+- [02:20.560] citizens and they really have they
+- [02:22.200] didn't they don't trust us they don't
+- [02:24.239] trust anybody frankly they've gone
+- [02:26.519] through hell there's no better person to
+- [02:28.959] lead our campaign of historic reforms
+- [02:31.440] and restore Faith in American healthc
+- [02:34.319] care and bobb's going to do it the
+- [02:36.239] United States spends more money in
+- [02:38.120] health than any other country on Earth
+- [02:40.280] but we're growing sicker every year
+- [02:42.280] we're not as healthy as countries that
+- [02:44.000] spend just a fraction of what we spend
+- [02:46.519] so there's something wrong he's going to
+- [02:48.080] figure it out in recent decades we've
+- [02:50.480] seen staggering increases in cancer
+- [02:52.640] rates across all age demographics
+- [02:55.680] including more than 40% increase in
+- [02:58.519] Childhood Cancer since 1975 who can
+- [03:01.400] believe that and an explosion in other
+- [03:04.080] chronic childhood illnesses not long ago
+- [03:07.000] one in
+- [03:08.200] 10,000 people children had autism now
+- [03:11.680] it's 1 in 36 think of that one in
+- [03:15.400] 10,000 one in 10,000 now it's 1 in
+- [03:20.239] 36 who can believe that there's
+- [03:23.200] something wrong there something wrong
+- [03:25.519] and I think it's some it's something
+- [03:26.959] that can be found out in 202 22 more
+- [03:30.319] than 40% of children had at least one
+- [03:33.120] chronic health condition and today
+- [03:35.040] nearly 80% of young adults do not
+- [03:38.000] qualify for military service in large
+- [03:41.080] part for health reasons we're uh think
+- [03:44.680] of that
+- [03:45.680] 80% something is wrong and that's why
+- [03:48.840] immediately after Bobby has sworn in I
+- [03:51.239] will be signing an executive order
+- [03:53.079] establishing the president's commission
+- [03:54.840] to make America healthy again we have
+- [03:57.120] some great people on that commission
+- [03:59.400] chair by our new secretary this ground
+- [04:02.159] break breaking commission will be
+- [04:04.319] charged with investigating what is
+- [04:06.400] causing the decade long increase in
+- [04:09.040] chronic illness reporting its findings
+- [04:11.000] and delivering an action plan to the
+- [04:13.599] American people and it's going to be a
+- [04:15.239] plan that people are really waiting to
+- [04:17.280] hear Bobby uh I want to thank you you've
+- [04:20.239] gone through a lot it's taken great
+- [04:22.440] courage you've been amazing actually I'd
+- [04:24.800] call him i' say you're going to be okay
+- [04:27.120] and he said I know I really do he's
+- [04:29.759] really uh been supported amazingly by
+- [04:32.720] Cheryl and his family and it was a very
+- [04:36.199] tough it was a very nasty group of
+- [04:38.280] people that were after him but he was
+- [04:40.720] tougher and he was smarter than they are
+- [04:43.840] and that's why he's here today there are
+- [04:45.320] very few people that could have
+- [04:46.600] withstood the uh the assault but he was
+- [04:50.039] able to so I just want to congratulate
+- [04:52.280] you and we have a very special person uh
+- [04:56.880] here to swear you in a very a man that I
+- [04:59.160] I think has son just uh I think he's
+- [05:01.000] just a an amazing man uh as you know his
+- [05:05.639] name happens to be Gorsuch and he's uh a
+- [05:09.320] member of the Supreme Court in extremely
+- [05:11.639] good standing he's highly respected by
+- [05:14.120] everybody and I didn't know are you two
+- [05:15.880] friends or something or did this just
+- [05:17.639] happen to be the Justice did this just
+- [05:20.039] happen to be the luck of the draw what
+- [05:21.720] happened out did you reach out well you
+- [05:24.240] reached out to a very good man so please
+- [05:26.680] if you would thank you very much
+- [05:30.460] [Applause]
+- [05:41.319] to
+- [05:43.560] be going to make this a good one
+- [05:53.479] right okay it's good so far pupp
+- [05:57.560] good it's a 10
+- [06:00.380] [Applause]
+- [06:19.319] ready am
+- [06:25.000] I go in there get the kids in there go
+- [06:27.720] in there
+- [06:37.560] over here
+- [06:45.040] [Applause]
+- [06:52.880] please would all the family like to
+- [06:57.400] join right all
+- [07:00.680] right please place your left hand in the
+- [07:03.000] Bible and raise your
+- [07:04.479] right for
+- [07:06.319] me I Robert F Kennedy Jr I Robert F
+- [07:10.360] Kennedy Jr do solemnly swear do solemnly
+- [07:13.199] swear that I will support and defend
+- [07:15.680] that I will support and defend the
+- [07:18.000] Constitution of the United States the
+- [07:20.080] Constitution of the United States
+- [07:22.280] against all enemies against all enemies
+- [07:25.280] foreign and domestic foreign and
+- [07:26.879] domestic that I will bear true faith in
+- [07:29.560] allegiance to the sa that I will bear
+- [07:31.879] truth faith and allegiance to the sa
+- [07:34.639] that I take this obligation freely I
+- [07:37.240] take this obligation freely without any
+- [07:40.440] without any mental reservation without
+- [07:42.840] any mental reservation or purpose of
+- [07:45.199] evasion or purpose of evasion and that I
+- [07:47.960] will well and Faithfully discharge and
+- [07:50.360] that I will well and Faithfully
+- [07:52.000] discharge the duties of the office the
+- [07:54.560] duties of the office on which I am about
+- [07:56.759] to enter on which I'm about to enter so
+- [07:59.520] help me God so help me God
+- [08:01.280] congratulations Mr
+- [08:04.990] [Applause]
+- [08:15.000] secretary I like the
+- [08:22.400] liard I want to begin by thanking
+- [08:25.720] president Trump for giving me this
+- [08:27.639] extraordinary opportunity and I want to
+- [08:30.080] introduce my family and thank them for
+- [08:31.800] being
+- [08:32.760] here um my wife Cheryl my cousin Anthony
+- [08:36.880] Shriver my daughter kick my other
+- [08:40.000] daughter Kira
+- [08:41.599] katalina Catalina Shriver Joey Shriver
+- [08:45.480] Jackson Hines and emiris Kennedy oh and
+- [08:49.360] I want to thank all of you for your
+- [08:51.160] support and uh throughout this whole two
+- [08:54.800] and a half year
+- [08:57.160] Journey um I
+- [09:00.760] I I my first time in this hoval office
+- [09:03.240] was in
+- [09:05.320] 1961 and I came here to meet my or
+- [09:10.079] 1962 I came here and I had a meeting
+- [09:12.600] with my uncle who was president then
+- [09:16.200] where we talked about the environment he
+- [09:18.680] was involved deeply as we all know in
+- [09:22.560] restoring physical fitness in this
+- [09:24.760] country um he challenged at one point
+- [09:27.640] during his administration and he
+- [09:29.920] challenged Americans to do a 50-mile
+- [09:32.279] walk which I ultimately did but I
+- [09:34.720] remember the day that my father
+- [09:36.920] completed his walk we were staying at um
+- [09:40.959] at
+- [09:42.079] uh up at um Camp David and my father
+- [09:46.760] came in after 18 hours walking on the C
+- [09:50.519] toe paths with his feet bleeding and
+- [09:53.079] blisters on them um my father had a one
+- [09:57.240] of his best friends was Al leny
+- [09:59.880] and Al Owen Cena ult ultimately was a
+- [10:02.079] congressman from New York who was
+- [10:03.480] assassinated himself in 1980 but Al Owen
+- [10:06.800] Cena started the dump Johnson movement
+- [10:09.640] to get rid of President Johnson and and
+- [10:11.760] end the Vietnam War and at the time that
+- [10:13.560] he started it people just thought it was
+- [10:15.360] a Fool's errand and ultimately he asked
+- [10:19.120] my father to run for president against
+- [10:21.959] Johnson my father wouldn't do it at that
+- [10:24.000] time and he asked jeene McCarthy
+- [10:26.079] McCarthy did it and he joined that
+- [10:28.079] campaign and my father ultimately ran
+- [10:31.360] and Johnson then dropped out so alen
+- [10:35.000] succeeded and although alen was on the
+- [10:37.800] other side now running against my father
+- [10:40.240] with Jee McCarthy my father wrote him a
+- [10:43.079] note a quote from Emerson where he said
+- [10:46.279] if a single man plant himself firmly on
+- [10:50.040] his own ideal and there abide the whole
+- [10:53.680] wide world will come around to him
+- [10:56.639] for 20 years I've got up every morning
+- [11:00.519] on my knees and prayed that God would
+- [11:03.600] put me in a position where I can end the
+- [11:05.519] childhood chronic disease epidemic in
+- [11:07.720] this country on August 23d of last
+- [11:12.680] year God sent me president
+- [11:15.560] Trump and he gave
+- [11:23.360] me he's now given me he's kept every
+- [11:26.600] promise that he's made to me he's kept
+- [11:29.720] his word in every account and gone Way
+- [11:31.800] Beyond it I'm so grateful to you Mr
+- [11:34.839] President a lot of people told me that I
+- [11:37.399] couldn't trust president Trump that I
+- [11:38.959] better get it in writing and we did a
+- [11:41.800] handshake and everything that he told me
+- [11:43.920] he was going to do he has done and I I'm
+- [11:48.120] so grateful to him and I've told you
+- [11:50.639] before I genuinely believe that you are
+- [11:53.680] a pivotal historical figure and you are
+- [11:57.120] going to transform this country at a
+- [11:59.480] time when we see all of the indish of
+- [12:02.880] democracy now in tatters in our country
+- [12:06.200] we see the rise of the military
+- [12:07.800] industrial complex the rise of
+- [12:10.519] totalitarianism these attacks on our
+- [12:12.480] Constitution and this breathtaking
+- [12:15.000] epidemic that is disabling our people
+- [12:17.800] president Trump has promised to restore
+- [12:20.800] the American dream in this country a
+- [12:23.560] healthy person has a Thousand Dreams a
+- [12:26.320] sick person only has one 60% of our
+- [12:29.600] population has only one dream that they
+- [12:32.440] get better president Trump has promised
+- [12:35.399] that he's going to restore America's
+- [12:37.399] strength but we can't be a strong Nation
+- [12:40.839] if we have a weak
+- [12:42.240] citizenry if people are sick 60% of our
+- [12:46.199] our people are sick
+- [12:48.079] 77% as president Trump mentioned of our
+- [12:50.560] children cannot qualify for military
+- [12:53.040] service and we need a man on a white
+- [12:56.240] horse now we need somebody who who is
+- [13:00.040] willing to come in and has the spine and
+- [13:03.560] the guts and the strength to challenge
+- [13:06.800] orthodoxies to stand in the way of
+- [13:09.040] vested interests and to break
+- [13:11.839] institutions that have turned against
+- [13:13.920] our democracy president Trump has shown
+- [13:16.920] again and again that he is that hero and
+- [13:21.120] most recently I G greatly appreciate and
+- [13:23.639] I called you the day that you announced
+- [13:26.279] the termination of
+- [13:27.800] usaid my Uncle started
+- [13:30.839] usaid in
+- [13:32.680] 1961 for humanitarian purposes to put
+- [13:35.680] our country on the side of the poor it
+- [13:38.160] has been captured by the
+- [13:39.279] military-industrial conflict it has
+- [13:41.839] become a Sinister propagator of
+- [13:44.399] totalitarianism across and War across
+- [13:47.880] the globe and very few people understand
+- [13:51.279] how Sinister this agency really is and
+- [13:54.600] president Trump saw that and he stood up
+- [13:57.440] to it with a master stroke
+- [13:59.759] and we want to do the same thing with
+- [14:02.519] the institutions that are stealing the
+- [14:05.040] health of our children we need a
+- [14:07.480] revolutionary figure and you are that
+- [14:09.639] figure and I'm very grateful for you for
+- [14:11.680] giving me this
+- [14:12.920] opportunity I want
+- [14:16.440] to I just I want to recognize some of
+- [14:20.120] the the Allies that I've had in this
+- [14:22.759] battle for a long time Senator ran Paul
+- [14:25.560] Senator Ron Johnson Senator Roger
+- [14:27.600] Marshall margerie Taylor
+- [14:29.600] and and Buddy Carter who've all been
+- [14:32.040] champions of the maaha agenda before I
+- [14:34.600] even came along I'm very grateful for
+- [14:37.279] you for standing strong thank you very
+- [14:39.279] much president
+- [14:40.690] [Applause]
+- [14:55.160] Trump Mr secretary I'd like to ask what
+- [14:57.720] plans do you have immediately
+- [14:59.600] at HHS now that you're sworn in s he's
+- [15:02.079] going to be running it he's going to do
+- [15:03.519] a great job what would you
+- [15:05.680] like find out a lot of secrets that have
+- [15:08.120] been maybe kept from us but he's going
+- [15:10.480] to come up with some solutions to some
+- [15:13.120] big big problems health problems I think
+- [15:15.639] he's going to go down in the record
+- [15:16.959] books I really have confidence this
+- [15:18.480] group has great even Rand has
+- [15:21.560] confidence doesn't
+- [15:25.420] [Applause]
+- [15:29.920] I ask you Mr secretary do you plan to
+- [15:31.680] fire anyone immediately or what are your
+- [15:33.519] plans on day one which I guess is today
+- [15:36.120] our plans are radical transparency and
+- [15:38.480] returning gold standard science nihd FDA
+- [15:42.639] and CDC end ending the corruption ending
+- [15:46.480] the corporate capture of those agencies
+- [15:48.199] getting rid of the people on those
+- [15:49.519] panels that have conflicts of
+- [15:51.480] interest we can do unored and unimpeded
+- [15:54.600] science rather than uh uh uh the kind of
+- [15:59.040] product that is coming out of those
+- [16:00.399] agencies
+- [16:01.680] today Mr secretary may I ask um how do
+- [16:05.319] you address concerns that um some
+- [16:07.399] Americans may have stance on
+- [16:11.120] vaccines and if when people actually
+- [16:14.279] hear what I think about vaccines which
+- [16:17.279] is common sense which is vaccines should
+- [16:19.519] be tested they should be safe everybody
+- [16:22.600] should have informed
+- [16:24.079] consent people people are reacting
+- [16:27.199] because they hear things about that
+- [16:29.240] aren't true they hear characterizations
+- [16:32.000] of things that I've said that are simply
+- [16:33.600] not true when they hear what I have to
+- [16:35.759] say actually about vacines everybody
+- [16:37.839] supports
+- [16:38.920] it Mr Kennedy car over from Lindell TV
+- [16:43.160] what's your message to Democrats in the
+- [16:45.160] Senate that fought so hard to keep you
+- [16:46.800] from taking this position and
+- [16:48.279] congratulations by the way president
+- [16:50.920] Trump has promised be the president for
+- [16:53.440] all Americans and he has said to me that
+- [16:56.680] he understands that there's no such
+- [16:58.519] thing is Republican children or
+- [17:00.079] Democratic children all of our children
+- [17:02.600] need to be protected and whether you're
+- [17:04.319] in a blue state or red state I'm going
+- [17:07.039] to do everything I can to work with you
+- [17:09.959] whether your democrat or republican
+- [17:12.439] restore child's health in this country
+- [17:14.959] Mr secretary great job great job thank
+- [17:17.120] you all very much
+- [17:18.930] [Applause]

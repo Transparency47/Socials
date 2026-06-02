@@ -1,0 +1,432 @@
+<!-- source: https://www.youtube.com/watch?v=iZbNjqRt7SQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iZbNjqRt7SQ -->
+<!-- date_published: 2025-04-21T18:16:41+00:00 -->
+<!-- date_accessed: 2026-06-02T01:27:27.853159+00:00 -->
+
+# Transcript: President Trump and The First Lady Participate in the 2025 White House Easter Egg Roll
+
+- [00:02.180] [Music]
+- [00:10.639] Ladies and gentlemen, the President of
+- [00:13.200] the United States and First Lady Melania
+- [00:15.920] Trump accompanied by the Easter Bunny.
+- [00:19.810] [Music]
+- [00:39.440] Master Gunnery Sergeant Kevin Baneer,
+- [00:41.840] accompanied by the President's Own
+- [00:43.840] United States Marine Band, will now
+- [00:46.079] honor America with the singing of our
+- [00:48.000] national anthem.
+- [00:51.440] Oh, say can you see by the dawn's early
+- [00:58.440] light, what so proudly we
+- [01:02.680] hailed at the twilight last
+- [01:06.920] gleaming. Cruise proud stripes and
+- [01:10.000] bright stars through the
+- [01:13.560] perilous
+- [01:15.080] fight. Or the ramparts we
+- [01:19.320] watched were so
+- [01:21.960] gallently
+- [01:23.960] streaming. And the rockets red glare.
+- [01:29.280] The bombs
+- [01:30.600] bursting in
+- [01:32.680] air gave proof through the
+- [01:36.920] night that our flag was still there.
+- [01:42.560] Oh, say does that star
+- [01:46.600] spangled bad yet
+- [01:51.130] [Music]
+- [01:52.280] wave for the
+- [01:55.320] land of the
+- [01:58.759] free and the
+- [02:01.320] home of the brave.
+- [02:06.910] [Applause]
+- [02:21.920] Well, thank you very much everybody and
+- [02:23.840] a very happy Easter to
+- [02:26.120] everyone. It was a beautiful day
+- [02:28.400] yesterday and it's a beautiful day
+- [02:30.160] today. We don't have to worry about
+- [02:32.160] sunburn, but we uh looks like it's not
+- [02:34.640] going to be raining. It's going to be uh
+- [02:36.400] really something special. 40,000 42,000
+- [02:39.360] people are expected all throughout the
+- [02:41.599] day and it's an honor to have you. Uh I
+- [02:44.080] just signed an executive order putting
+- [02:46.640] the flags of our country, all of them,
+- [02:49.599] all federal flags and state flags uh at
+- [02:52.959] half mass in honor of Pope Francis. So
+- [02:55.920] he was a good man, worked hard, he uh he
+- [03:00.239] loved the world and uh it's an honor to
+- [03:02.400] do that. I want to thank everybody for
+- [03:05.200] being here. This is some band. I've
+- [03:08.159] heard this band actually indirectly for
+- [03:11.200] four years and very directly now for
+- [03:13.440] four and a half. And I like the direct
+- [03:15.840] method even better. But the Marine Corps
+- [03:18.640] band is very, very special. Thank you
+- [03:20.480] very much. What a great job. Thank
+- [03:23.879] you. Thank you. I also want to thank the
+- [03:27.519] National Park Service. The job they do
+- [03:29.680] and making everything so beautiful and
+- [03:31.920] spiffy and I'm very difficult when it
+- [03:34.159] comes to that. I will tell you are very
+- [03:35.840] very difficult that I say they have done
+- [03:38.159] an incredible job. You just have to look
+- [03:40.000] around and see. And I just uh want to
+- [03:43.040] give a special thank you to our great
+- [03:45.280] first lady who organized this entire
+- [03:47.760] event. She worked very very hard on
+- [03:52.200] it. She worked very hard. I said, "What
+- [03:54.959] are you doing?" She said, "I'm working
+- [03:56.400] on the egg roll." I said, "That sounds
+- [03:58.319] like a lot of fun, and we're going to
+- [04:00.159] have a lot of fun in just a couple of
+- [04:01.840] minutes." But again, uh our country is
+- [04:04.560] doing very well. Our uh we had the
+- [04:07.439] highest number of recruits, enlistments
+- [04:10.480] that we've had in I think 28 or 29
+- [04:13.760] years, and I'm sure we're going to
+- [04:15.280] actually beat that number. It's all
+- [04:16.720] happened since November 5th. It's all
+- [04:19.040] happened. uh enrollment in the military
+- [04:21.440] is at a record and enrollment in the
+- [04:24.160] police force, fire forces, and all of
+- [04:26.479] the different uh law enforcement groups.
+- [04:29.120] We have uh we we're setting records and
+- [04:31.919] six months ago we couldn't get anybody
+- [04:34.479] and now we're setting records. That's a
+- [04:36.560] sort of testament to what's happening in
+- [04:38.320] terms of the spirit of our country. We
+- [04:41.440] love our country and it's been something
+- [04:44.080] very very
+- [04:45.360] [Applause]
+- [04:47.800] special. And uh speaking of special,
+- [04:50.560] Easter is special and it's one of our
+- [04:53.280] favorite days. It's one of our favorite
+- [04:55.120] periods of time. We're honoring Jesus
+- [04:58.320] Christ and uh we're going to honor Jesus
+- [05:00.639] Christ very powerfully throughout our
+- [05:02.880] lives. All throughout our lives, not
+- [05:05.199] just now, all throughout our lives.
+- [05:07.360] We're bringing religion back in America.
+- [05:09.680] We're bringing a lot of things back, but
+- [05:11.759] religion is coming back to America.
+- [05:13.840] That's why you see the kind of numbers
+- [05:15.680] that you're seeing, the spirit and the
+- [05:17.520] kind of numbers that you're seeing. So,
+- [05:19.520] we're going to come down and join you
+- [05:20.960] right now. But I just want to wish
+- [05:23.520] everybody once again happy Easter and
+- [05:26.880] enjoy your lives. We're going to have a
+- [05:28.800] great four years. Thank you very much
+- [05:30.960] everybody. Thank you.
+- [05:33.130] [Music]
+- [05:52.520] Heat. Heat.
+- [05:56.110] [Music]
+- [06:10.720] Heat.
+- [06:12.780] [Music]
+- [06:19.479] Heat.
+- [06:21.490] [Music]
+- [06:36.520] Heat.
+- [06:38.030] [Music]
+- [06:42.840] Heat.
+- [06:44.540] [Music]
+- [06:58.680] Heat.
+- [07:00.680] [Music]
+- [07:05.639] Heat. Heat. Heat.
+- [07:08.370] [Music]
+- [07:29.230] [Applause]
+- [07:29.970] [Music]
+- [07:47.120] Thank you.
+- [07:53.440] [Music]
+- [08:15.840] Heat. Heat.
+- [08:30.740] [Music]
+- [08:41.519] having a hard time. So, obviously you
+- [08:43.360] see what the end, but he was a good man.
+- [08:48.080] He worked very hard. He he loved the
+- [08:51.040] world. He really did. He loved the
+- [08:52.800] world. So, uh, it's an honor to mention.
+- [08:56.080] It's an honor for flags of the country,
+- [08:58.240] as you know, have been taken back and
+- [09:00.640] they'll be that way for about four days.
+- [09:02.880] Do you have
+- [09:03.720] any favorites and the American pope that
+- [09:06.640] you would like to? Well, I I met two of
+- [09:09.279] them and look, these are these are great
+- [09:12.399] gentlemen. They're great. If they
+- [09:14.160] weren't, they wouldn't be Pope.
+- [09:15.600] President President Trump, do you remain
+- [09:17.120] do you remain confident? Do you remain
+- [09:19.120] confident in these steps? Oh, totally.
+- [09:21.120] President Trump, why why do you even ask
+- [09:23.440] a question like that? We have
+- [09:25.120] recruitments at that's at an alltime
+- [09:27.120] high. The spirit in the armed forces is
+- [09:29.760] fantastic. Great conference. Mr.
+- [09:31.760] President, can you explain why you're
+- [09:33.200] comfortable with Secretary Heget using
+- [09:35.360] Signal to discuss those military plans?
+- [09:38.240] Are you bringing up Signal again? I
+- [09:39.920] thought they gave that up two weeks ago.
+- [09:41.519] There was a new report this weekend that
+- [09:43.040] he used in a separate chat that included
+- [09:45.120] some family members, a personal lawyer.
+- [09:47.600] It's all
+- [09:48.600] uh just the same old stuff on the video.
+- [09:51.839] Just that's an old one. Try finding
+- [09:54.000] something there. Your message to
+- [09:56.240] Catholics, sir. Who want to pop Francis?
+- [09:58.320] Your message to Catholics, sir. Uh we
+- [10:00.800] love you all. We're with you all. They
+- [10:03.279] were with me during the election as you
+- [10:04.959] know very strongly and uh it's just an
+- [10:08.000] honor to uh to have the support of the
+- [10:10.399] Catholics and uh I feel very badly for
+- [10:12.640] them because they love the pope. Mr.
+- [10:14.320] President, do you feel no matter who the
+- [10:16.560] pope get elected, whatever that may be,
+- [10:18.800] what relationship you hope to have with
+- [10:20.720] the incoming,
+- [10:22.560] Mr. President, do you feel that I
+- [10:25.450] [Music]
+- [10:29.000] think you think Russia will break even?
+- [10:35.760] Are you happy with how the European
+- [10:37.360] Union is handling the tariffs right now?
+- [10:39.519] Are you happy with Europe right now?
+- [10:40.800] They've been fine.
+- [10:42.880] We end up having a deal, sir. We're
+- [10:45.360] going to ultimately have a deal with
+- [10:46.720] anyone. If we don't, we're going to make
+- [10:48.160] it anyway, but we're going to ultimately
+- [10:49.839] have The economy is very good. We don't
+- [10:52.160] have inflation. Energyy's down at the
+- [10:54.560] lowest it's been in years. Uh we
+- [10:57.519] actually $1.98
+- [10:59.760] uh recently in a couple of states. I
+- [11:02.399] think we're doing really well. We're all
+- [11:03.920] set. There's a little transition and
+- [11:05.920] that's going to happen, but ultimately
+- [11:07.920] we're going to be the strongest that
+- [11:09.440] we've ever been as a nation. Mr.
+- [11:10.800] President, Mr. President, do you feel
+- [11:12.160] like
+- [11:14.280] [Music]
+- [11:28.460] [Music]
+- [11:30.079] All right, everyone. I don't know what
+- [11:31.440] the shot looked like from pool three.
+- [11:33.680] President Trump just did a quick gaggle
+- [11:36.000] with press in the headon pen. Um, he is
+- [11:39.360] now moving on to the egg roll station.
+- [11:41.279] His back is to us. Um, I have cell phone
+- [11:44.320] video in addition to what we were able
+- [11:46.079] to get on pool break. We'll send out
+- [11:47.760] those notes very, very shortly. He says
+- [11:49.760] he still has confidence in Secretary
+- [11:52.440] Hexa and he said not signal again.
+- [11:55.680] Essentially, he
+- [11:57.399] he either chose to ignore the news that
+- [12:01.120] or
+- [12:07.300] [Music]
+- [12:50.079] Heat. Hey, heat. Hey, heat. Heat. Heat.
+- [12:53.250] [Music]
+- [13:01.070] [Music]
+- [13:26.990] [Music]
+- [13:30.720] Heat. Heat.
+- [13:33.540] [Music]
+- [13:49.600] Heat. Heat.
+- [13:50.860] [Music]
+- [14:01.300] [Music]
+- [14:14.639] Happy
+- [14:16.070] [Music]
+- [14:22.839] birthday.
+- [14:27.390] [Music]
+- [14:36.920] Heat.
+- [14:40.090] [Music]
+- [14:44.760] Heat. Heat.
+- [14:51.080] [Music]
+- [15:06.279] Heat. Heat. Heat.
+- [15:10.440] [Music]
+- [15:50.600] Hey,
+- [15:54.120] hey, hey.
+- [15:57.790] [Music]
+- [16:14.360] Heat.
+- [16:18.470] [Music]
+- [16:20.440] Heat.
+- [16:21.880] [Music]
+- [16:40.920] Heat. Hey, heat. Hey,
+- [16:45.560] heat.
+- [16:47.920] [Music]
+- [17:02.839] Heat. Heat.
+- [17:07.220] [Music]
+- [17:28.440] First, First up, first
+- [17:35.370] [Music]
+- [17:50.210] [Music]
+- [18:44.960] Heat. Heat.
+- [18:46.470] [Music]
+- [19:14.919] Hey. Hey. Hey. Heat. Heat.
+- [19:18.120] [Music]
+- [19:36.430] [Music]
+- [19:51.440] Heat. Heat.
+- [19:52.350] [Music]
+- [19:59.799] N. Heat. Heat.
+- [20:03.780] [Music]
+- [20:27.520] Heat.
+- [20:33.080] Heat.
+- [20:35.100] [Music]
+- [20:47.480] Heat. Hey, Heat.
+- [20:52.760] [Music]
+- [20:53.600] [Applause]
+- [20:58.360] [Music]
+- [21:18.200] Hey, hey, hey.
+- [21:26.700] [Music]
+- [21:43.919] Heat. Heat.
+- [21:49.130] [Music]
+- [22:11.630] [Music]
+- [22:13.640] Hey, hey, hey.
+- [22:17.080] [Music]
+- [22:39.600] Oh yeah.
+- [22:43.440] [Music]
+- [22:57.580] [Music]
+- [23:03.679] This is the end.
+- [23:08.860] [Music]
+- [23:26.840] Heat. Heat.
+- [23:30.210] [Music]
+- [23:53.440] How
+- [23:56.530] [Music]
+- [24:04.280] long?
+- [24:05.820] [Music]
+- [24:18.840] Heat. Heat.
+- [24:22.050] [Music]
+- [24:47.440] Heat. Heat. N.
+- [24:48.750] [Music]
+- [25:10.480] Heat. Heat.
+- [25:16.540] [Music]
+- [25:36.159] Heat. Hey, heat. Hey, heat.
+- [25:38.080] [Music]
+- [26:09.840] Heat.
+- [26:31.720] Heat. Heat.
+- [26:34.410] [Music]
+- [26:52.919] Heat. Heat. Heat.
+- [26:57.500] [Music]
+- [27:40.360] Hey, hey, hey.
+- [27:45.020] [Music]
+- [28:07.279] 1.
+- [28:09.270] [Music]
+- [28:38.320] Hey. Hey.
+- [28:40.440] Hey. Heat. Heat.
+- [28:44.830] [Music]
+- [29:18.300] [Music]
+- [29:25.240] [Music]
+- [29:31.120] I'm holding
+- [29:35.600] a lot of money already. Uh 25% on cars
+- [29:39.760] and aluminum and steel taking in a lot
+- [29:42.880] of
+- [29:43.799] money that this country and that's just
+- [29:46.880] the beginning. Are you going to
+- [29:48.840] go? I don't know yet. We're going to be
+- [29:51.440] briefed on it right
+- [29:54.120] now. Would you like to go? I don't know.
+- [29:56.640] I just have to look at the timing.
+- [30:00.919] just on these Ukraine talks over the
+- [30:04.520] weekend. These are a proposal from the
+- [30:07.039] United States that Ukraine recognized
+- [30:09.840] Crimea as part of Russia. So I will be
+- [30:14.080] giving you full detail over the next
+- [30:15.679] three days and we have very good
+- [30:17.039] meetings on Ukraine and Russia. We have
+- [30:19.919] very good meetings actually on Iran too.
+- [30:21.760] We'll see how that goes. Without that,
+- [30:23.919] too, what's the next step here? Next
+- [30:26.240] step is we need a little time. We had
+- [30:28.559] very good meetings around here. We had
+- [30:30.080] very good and the tariffs are going very
+- [30:32.000] well. As you know, everybody wants to
+- [30:37.000] remember a very good man who left the
+- [30:40.200] world. He especially loved people that
+- [30:42.799] were having a hard time and that's good
+- [30:45.279] with me. So, he preached tolerance for
+- [30:47.279] it for migraine. He preached tolerance
+- [30:48.720] for migrants. Do you agree with that or
+- [30:51.679] I do, Mr.
+- [30:56.120] President? I mean, I hear they're doing
+- [30:58.159] that whole thing again. Here we go
+- [31:00.720] again. Just a waste of time. He is doing
+- [31:04.159] He is doing a great job. Why do you
+- [31:05.760] still have confidence? Because he's
+- [31:06.960] doing a great job. Have you spoken
+- [31:08.840] with Ask Ask the Hoodies how he's doing?
+- [31:12.399] There there's a hearing today on the
+- [31:14.320] Alien Enemies Act in the DC district
+- [31:16.480] court. Your thoughts on that, Mr.
+- [31:17.840] President? Well, we were elected to
+- [31:21.120] clean up the mess of this country. And
+- [31:23.520] we had millions and millions of people
+- [31:25.200] come in who are criminals, who are
+- [31:26.640] murderers, who are everything you can
+- [31:28.720] imagine, drug lords, drug dealers. They
+- [31:30.960] came in from prisons and from mental
+- [31:33.120] institutions. And I was elected to move
+- [31:36.159] them out among many other things. And
+- [31:38.320] that's what we're doing. Mr.
+- [31:45.240] President whose dysfunction is not doing
+- [31:50.240] a great job. Everybody's happy with him.
+- [31:52.880] We have the highest recruit recruitment
+- [31:54.880] numbers I think we've had in 28 years.
+- [31:57.679] Uh no, he's doing a great job. It's just
+- [32:00.399] fake news. They just bring up stories. I
+- [32:02.320] guess it's sounds like disgruntled
+- [32:04.240] employees. you know, he was split there
+- [32:05.760] to get rid of a lot of bad people and
+- [32:07.919] that's what he's doing. So, you don't
+- [32:10.080] always have friends with the app.
+- [32:14.559] I'm going to
+- [32:16.519] be I hope to be
+- [32:20.720] We're opening a fantastic project and I
+- [32:24.000] hope I'm going to get to see him. It's
+- [32:26.559] going to be great. Thank you.
+- [32:28.880] Will you comply with city courts really?
+- [32:32.960] I comply with
+- [32:34.600] everything immigrants. You you've
+- [32:36.799] ordered a lot of them to leave the
+- [32:38.640] country, but their travel to Haiti is is
+- [32:40.880] almost nearly impossible because flight
+- [32:42.320] has been suspended. What do you make of
+- [32:43.840] that? Well, I make of the fact that we
+- [32:46.000] have to have a safe country. If people
+- [32:48.080] are in our country illegally and people
+- [32:50.320] are they have records that are very bad
+- [32:52.640] in particular, we have to get them out.
+- [32:55.200] I was, as you know, elected on the basis
+- [32:57.399] that we would have very little primary
+- [33:00.640] content. They don't want illegal
+- [33:02.000] immigrants. We've closed up the border.
+- [33:03.600] The border is now the strongest border
+- [33:05.600] we've ever had. These are Haitians who
+- [33:06.880] came legally through that Biden era
+- [33:08.720] program who their communities even in
+- [33:10.880] Texas conservative voters saying they
+- [33:12.880] these people should not be forced to
+- [33:14.640] leave. Well, if they came legally, then
+- [33:16.159] they're going to be in good shape. So,
+- [33:17.600] you're not getting them. There's no
+- [33:19.039] Thursday deadline. Mr.
+- [33:24.360] [Music]
+- [33:33.190] [Music]
+- [33:34.679] Trump's office.
+- [33:38.640] President Trump, are you concerned about
+- [33:41.200] the handling of sensitive information?
+- [33:43.200] Hi there. Thank you. How you doing, sir?
+- [33:45.360] How are you doing? All
+- [33:46.519] right. Nice to meet you, sir. You know,
+- [33:48.640] you know, good to see you, sir. How are
+- [33:50.480] you? This is my beautiful fiance. You're
+- [33:52.559] getting married in two weeks. Any advice
+- [33:54.320] for the for the new uh make sure you
+- [33:56.480] like each other, you know, real quickly,
+- [34:00.559] man. You talked about Jesus in your
+- [34:02.480] opening state. How important is this
+- [34:04.240] country right now? It brings the country
+- [34:07.079] together. It's so important that we can
+- [34:09.280] do that religion. I said bring religion
+- [34:12.440] back together. Such a
+- [34:15.800] great Do you plan on
+- [34:31.120] [Music]
+- [34:34.919] chaos? Thank you everybody. Thank you.

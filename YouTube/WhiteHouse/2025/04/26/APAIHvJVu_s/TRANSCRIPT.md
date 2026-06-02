@@ -1,0 +1,1649 @@
+<!-- source: https://www.youtube.com/watch?v=APAIHvJVu_s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: APAIHvJVu_s -->
+<!-- date_published: 2025-04-26T10:25:07+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:25.719261+00:00 -->
+
+# Transcript: President Trump and the First Lady Attend the Funeral Mass for the Roman Pontiff Francis
+
+- [00:04.960] humanity had been strick stricken by the
+- [00:08.000] unknown plague.
+- [00:10.480] The final years of Pope Francis's
+- [00:13.759] pontificate were marked with numerous
+- [00:15.519] appeals for peace against
+- [00:18.160] the third world war that he called that
+- [00:21.119] was being fought in peacemail he said as
+- [00:24.160] well as uh unfolding very dramatically
+- [00:28.480] in various countries especially Ukraine
+- [00:30.720] as well as in Palestine, Israel, Lebanon
+- [00:33.280] and Myanmar.
+- [00:35.160] [Music]
+- [00:54.079] And as we know then after um his
+- [00:56.320] hospitalization from the 4th of July
+- [00:59.440] July 4th 2021 lasting 10 days for
+- [01:02.559] surgery at the Augustino Ji poly clinic.
+- [01:05.760] Pope Francis on 14th February 2025
+- [01:08.479] returned to the same hospital for a 38
+- [01:10.799] day stay due to bilateral pneumonia.
+- [01:14.640] And back in the Vatican, he spent his
+- [01:16.560] final weeks at Kaza Santa Marta
+- [01:18.960] dedicating himself to the end with the
+- [01:21.600] same passion to his patron ministry.
+- [01:25.360] The honored food recovered. We know we
+- [01:28.080] saw him on Easter Sunday
+- [01:30.880] on 20th April 20th 2025. For one last
+- [01:34.079] time he appeared on the lodge of St.
+- [01:36.000] Peter's basilica to impart the solemn
+- [01:39.439] urbi at Orby blessing
+- [01:42.880] and then he drove around on the papal
+- [01:44.720] mobile and greeted the faithful had
+- [01:47.439] gathered at St. Peters
+- [01:50.320] and then he left us the following
+- [01:51.840] morning.
+- [01:53.520] We see these beautiful images coming
+- [01:56.880] live from the basilica the cardinals and
+- [02:00.240] the bishops.
+- [02:03.119] beginning the procession which would
+- [02:05.360] lead us to the beginning of this solemn
+- [02:07.680] celebration of the Eucharist.
+- [02:21.280] The deed that was placed in Pope
+- [02:22.879] Francis's coffin as we await the
+- [02:25.920] beginning of this reququum mass
+- [02:29.599] recalls that his doctrinal magisterium
+- [02:32.480] was extremely rich. It recalls that he
+- [02:37.519] often offered a witness to a sober and
+- [02:40.640] humble lifestyle founded on missionary
+- [02:43.840] openness, apostolic courage and mercy
+- [02:46.720] and attentive to the to avoiding the
+- [02:49.680] pitfalls of self-reerentiality and
+- [02:52.000] spiritual worldliness of the church.
+- [02:55.920] Pope Francis we know set out his
+- [02:58.879] apostolic program for his papacy that
+- [03:01.120] lasted just over 12 years with his
+- [03:05.280] apostolic exhortation Evangeli Gaudium
+- [03:07.840] in November 20h 2013
+- [03:11.519] and he released four encyclicals through
+- [03:14.000] the year the such as lumen feday in 2013
+- [03:19.440] laatoi in May of 2015
+- [03:23.280] which became the church, the first papal
+- [03:26.640] encyclical dedicated to ecology and on
+- [03:29.519] care for our common home.
+- [03:32.720] Later in October of 2020,
+- [03:36.640] the Pope released his encyclical
+- [03:38.480] fatelliti
+- [03:40.000] on human fraternity and social
+- [03:41.760] friendship. And then just last year in
+- [03:44.720] October 2024, he released dlexit on
+- [03:48.000] devotion to the most sacred heart of
+- [03:49.760] Jesus.
+- [03:51.360] [Music]
+- [03:56.640] The Holy Father also
+- [04:00.080] famously was elected de in 2013 for
+- [04:05.760] as
+- [04:07.360] an the cardinals recognized the need to
+- [04:10.640] begin reform of the Roman cyia, the
+- [04:15.200] governing body of the church, the
+- [04:16.959] central governing body that assists the
+- [04:20.639] bishops throughout the world in their
+- [04:23.520] ministry and seeks to help the church be
+- [04:27.360] united. And he did that famously through
+- [04:31.040] reorganizing the Roman Kiraa and
+- [04:35.520] setting this um reorganization to which
+- [04:39.680] he was asked by the cardinals
+- [04:42.479] in
+- [04:44.560] into
+- [04:46.720] a solid document with the apostolic
+- [04:48.720] constitution predicate evangelium preach
+- [04:51.600] the gospel which was his focus. And now
+- [04:55.600] we see and still in the silence of a
+- [04:58.960] quiet St. Peter's Basilica and St.
+- [05:00.639] Peter's Square, the coffin of Pope
+- [05:03.360] Francis has been raised upon the
+- [05:05.360] shoulders of the pawbearers
+- [05:10.080] to bring the late Pope Francis
+- [05:14.160] his mortal remains to
+- [05:18.639] the steps of St. Peter's Basilica.
+- [05:27.840] And uh we then want to prepare ourselves
+- [05:31.520] and solemnly participate in this uh very
+- [05:35.360] moving celebration.
+- [05:40.080] We will join the procession very
+- [05:42.240] symbolically
+- [05:44.880] with the casket carrying the remains of
+- [05:47.840] Pope Francis.
+- [05:49.919] We participate as pilgrims of hope. Um,
+- [05:52.479] a thing which was very particular and
+- [05:54.720] important to Pope Francis
+- [05:58.479] and then we journey forward as people of
+- [06:00.560] hope knowing as Pope Francis taught and
+- [06:04.000] preached
+- [06:05.759] that death is not the end.
+- [06:11.120] We remember in one of his uh audiences
+- [06:16.319] in November 27th, 2013,
+- [06:19.360] he says, "Our life is a journey." He
+- [06:21.199] said, "If we look at the most painful
+- [06:23.199] moments of our lives, when we have lost
+- [06:25.600] a loved one, our parents, a brother, a
+- [06:27.680] sister, a spouse, a child, a friend, we
+- [06:30.560] realize that even amid the tragedy of
+- [06:32.880] loss, even when torn by separation, the
+- [06:35.840] conviction arises in the heart that
+- [06:38.080] everything cannot be over. That the good
+- [06:40.880] given and received has not been
+- [06:43.039] pointless. There is a powerful instinct
+- [06:45.680] within us which tells us that our lives
+- [06:48.240] do not end with death. The thirst for
+- [06:51.199] life found its true and reliable answer
+- [06:53.680] in the resurrection of Jesus Christ.
+- [06:56.560] Jesus's resurrection does not only give
+- [06:58.479] us the certainty of life after death. It
+- [07:01.199] also illumines the very um mystery of
+- [07:04.720] the death of each one of us.
+- [07:08.880] And that's our prayer today for for Pope
+- [07:11.039] Francis
+- [07:14.080] as we join
+- [07:16.639] silently
+- [07:19.280] the procession towards St. um Peter
+- [07:23.280] Square.
+- [07:41.130] [Music]
+- [07:58.400] Oh mighty. I
+- [08:06.080] for
+- [08:11.270] [Music]
+- [08:41.599] most.
+- [08:45.160] [Music]
+- [08:47.440] [Applause]
+- [08:48.600] [Music]
+- [08:58.880] Happy
+- [09:00.550] [Music]
+- [09:26.720] Lord. My heart
+- [09:30.680] [Music]
+- [09:38.970] [Music]
+- [09:56.480] As the Paulbears bring the late Pope
+- [09:59.760] Francis's coffin
+- [10:02.080] to the front of St. Peter Square, we
+- [10:05.600] hear the entrance antifon
+- [10:08.480] eternal rest. Grant unto him, O Lord,
+- [10:10.880] and let perpetual light shine upon him.
+- [10:14.680] [Music]
+- [10:21.920] All
+- [10:29.519] royal.
+- [10:33.540] [Music]
+- [10:48.560] Glory
+- [10:50.860] [Music]
+- [11:07.920] to God.
+- [11:11.340] [Music]
+- [11:23.120] And if you have just joined us this
+- [11:25.680] morning, we coming to you live from St.
+- [11:28.079] Peter's Square
+- [11:30.880] where thousands have gathered to bid
+- [11:33.920] farewell to Pope Francis as we celebrate
+- [11:36.320] his life. We currently seeing the
+- [11:39.040] procession,
+- [11:40.959] the cardinals processing to to begin
+- [11:44.320] this celebration.
+- [11:46.320] And of course, the procession symbolizes
+- [11:47.920] our journey towards God and the heavenly
+- [11:50.640] sanctuary. It reminds us that our life
+- [11:52.959] is a pilgrimage. We're moving from the
+- [11:55.920] temporal world towards the towards
+- [11:59.360] eternal life.
+- [12:01.440] And as the procession moves forward, it
+- [12:03.279] evokes our journey towards heaven guided
+- [12:06.639] by the light of Christ.
+- [12:09.920] And the symbol of the go, the book of
+- [12:11.839] the gospel has just been placed on the
+- [12:15.040] coffin of Pope Francis
+- [12:18.880] reminding us as well that he lived his
+- [12:21.040] life guided by the gospel. He preached
+- [12:24.320] the gospel.
+- [12:31.290] [Music]
+- [12:42.560] All mighty
+- [12:57.839] and lose
+- [12:59.880] [Music]
+- [13:11.600] a hymn that is accompanying us
+- [13:13.680] accompanying the bishops and cardinals
+- [13:16.160] who are filing into St. Peter Square in
+- [13:18.959] procession.
+- [13:21.360] It recalls, "Praise is due to you in
+- [13:24.959] Zion, oh God. To you we pay our vows in
+- [13:28.480] Jerusalem.
+- [13:30.160] To you who hear our prayer. To you all
+- [13:33.680] flesh will come. Our evil deeds are too
+- [13:36.959] heavy for us. But only you can pardon
+- [13:39.760] our transgressions.
+- [13:41.839] Blessed the one whom you choose and call
+- [13:44.320] to dwell in your courts. We are filled
+- [13:47.519] with the good things of your house of
+- [13:50.000] your holy temple.
+- [13:52.560] This hymn is taken from the Psalm 64.
+- [14:01.150] [Music]
+- [14:07.540] [Music]
+- [14:19.360] Oh my
+- [14:23.700] [Music]
+- [14:27.519] Oh
+- [14:31.350] [Music]
+- [14:35.839] god.
+- [14:37.440] [Music]
+- [14:37.950] [Applause]
+- [14:47.540] [Music]
+- [15:11.270] [Applause]
+- [15:13.150] [Music]
+- [15:19.120] Let us see.
+- [15:24.959] Let us see.
+- [15:28.680] [Music]
+- [15:31.279] Let us
+- [15:43.040] Glory
+- [15:46.530] [Music]
+- [15:50.880] is
+- [15:54.680] [Music]
+- [16:07.920] true.
+- [16:11.360] How glorever.
+- [16:13.240] [Music]
+- [16:24.740] [Music]
+- [16:34.500] [Music]
+- [16:39.920] Heaven
+- [16:46.959] might
+- [16:48.020] [Music]
+- [17:06.959] Oh sh.
+- [17:12.599] [Music]
+- [17:51.600] Let him all rest. Grant unto him, our
+- [17:53.440] Lord, and let perpetual light shine upon
+- [17:55.679] him. That's how the choir is leading us
+- [17:58.080] to the beginning of this celebration.
+- [18:01.200] Cardinal Javani Batista
+- [18:03.919] will be the celebrant, the main
+- [18:05.440] celebrant leading us during the
+- [18:07.520] celebration. He's the dinner of the
+- [18:10.160] cardinals
+- [18:12.640] and he's currently insensing the altar,
+- [18:19.360] the image of our blessed mother.
+- [18:26.350] [Music]
+- [18:45.840] And of course, we know that the rising
+- [18:47.840] smoke of incense symbolizes the prayer
+- [18:49.600] of the faithful ascending to heaven as
+- [18:51.600] mentioned in Psalm 141. Let my prayer be
+- [18:54.799] directed as incense to thy sight, O
+- [18:57.679] Lord.
+- [18:59.600] We then prepare ourselves to begin
+- [19:02.720] together as the Cardinal leads us in
+- [19:05.120] this celebration.
+- [19:09.070] [Music]
+- [19:20.880] Oh,
+- [19:22.250] [Music]
+- [19:39.200] sweet.
+- [19:51.370] [Music]
+- [19:53.600] Brethren, let us admit it to our sins
+- [19:55.280] and prepare ourselves to celebrate these
+- [19:57.600] sacred mysteries.
+- [20:00.020] [Music]
+- [20:07.520] and sisters that I have greatly sinned
+- [20:10.480] in my thoughts and in my words, in what
+- [20:12.799] I have done and in what I have failed to
+- [20:14.799] do. Through my fault, through my fault,
+- [20:18.320] through my most grievous fault.
+- [20:20.640] Therefore, I ask blessed Mary, ever
+- [20:22.559] virgin, all the angels and saints, and
+- [20:25.280] you my brothers and sisters, pray for me
+- [20:27.600] to the Lord our God.
+- [20:30.960] May almighty God have mercy on us,
+- [20:32.720] forgive us our sins, and bring us to
+- [20:34.640] everlasting life. Amen. Heat.
+- [20:52.000] Heat.
+- [20:59.440] Yeah.
+- [21:00.790] [Music]
+- [21:08.720] Heat.
+- [21:19.050] [Music]
+- [21:21.039] Sonat.
+- [21:22.880] [Music]
+- [21:48.480] Jesus
+- [21:57.679] Christ.
+- [21:58.920] [Music]
+- [22:08.799] Heat. Heat.
+- [22:16.510] [Music]
+- [22:19.120] Thank you.
+- [22:26.740] [Music]
+- [22:46.159] Heat.
+- [22:47.990] [Music]
+- [22:57.919] Heat.
+- [23:00.340] [Music]
+- [23:06.880] Heat. Heat.
+- [23:10.800] [Music]
+- [23:18.860] [Applause]
+- [23:22.559] song.
+- [23:25.360] [Music]
+- [23:30.230] [Applause]
+- [23:34.250] [Music]
+- [23:44.720] Our
+- [23:46.460] [Music]
+- [23:49.120] immortality.
+- [23:59.760] Oh God, immortal shepherd of souls, look
+- [24:02.720] on your people's prayers and grant that
+- [24:05.440] your servant Pope Francis who presided
+- [24:08.559] over your church in charity may with a
+- [24:11.360] flock entrusted to his care receive from
+- [24:14.400] your mercy the reward of a faithful
+- [24:16.320] steward through our Lord Jesus Christ,
+- [24:18.559] your son, who lives and reigns with you
+- [24:20.080] in the unity of the Holy Spirit, God
+- [24:22.559] forever and ever.
+- [24:25.600] Amen.
+- [24:32.480] The first reading is from the Acts of
+- [24:35.360] the Apostles and will be read in
+- [24:36.799] English.
+- [24:53.919] A reading from the acts of the apostles.
+- [24:57.919] In those days,
+- [24:59.679] Peter Peter opened his mouth and said,
+- [25:02.640] "Truly truly I understand that God shows
+- [25:06.240] no partiality."
+- [25:08.480] But in every nation, anyone anyone who
+- [25:11.120] fears him and does what is right is
+- [25:13.679] acceptable to him.
+- [25:16.159] As for the word that sent Israel,
+- [25:18.720] preaching the good news of peace through
+- [25:20.960] Jesus Christ, he lord of all,
+- [25:24.640] you yourselves know what happened
+- [25:27.039] throughout Judea,
+- [25:28.880] beginning in Galilee after the baptism
+- [25:31.039] that John proclaimed,
+- [25:33.360] how God anointed Jesus of Nazareth with
+- [25:36.159] the Holy Spirit and with power.
+- [25:40.240] He went good and healing all who were
+- [25:43.520] oppressed by the devil. For God God was
+- [25:46.320] with him.
+- [25:47.600] And we are we are witnesses of all that
+- [25:49.520] he did
+- [25:50.720] both the country of the Jews and
+- [25:53.679] Jerusalem.
+- [25:55.279] They put him to death by hanging on a
+- [25:57.919] tree. But God raised him on the third
+- [26:00.880] day and caused him to appear,
+- [26:03.760] not to all people, but to us who had had
+- [26:07.760] chosen by God's witnesses who ate at dr
+- [26:12.159] he dead.
+- [26:14.559] And he commanded us preach to the people
+- [26:17.120] and to testify that he is the oneointed
+- [26:20.080] by by God to be judge of the living and
+- [26:22.880] the dead.
+- [26:24.720] To him all the prosper bear witness that
+- [26:28.799] everyone who believes in him receives
+- [26:31.440] the forgiveness of sins through his
+- [26:34.159] name.
+- [26:39.240] [Music]
+- [26:53.200] The responsorial psalm will be sung in
+- [26:55.200] Latin. The Lord is my shepherd. There is
+- [26:57.679] nothing I shall want.
+- [27:07.290] [Music]
+- [27:21.919] Fresh and green are the pastures where
+- [27:24.799] he gives me repose.
+- [27:27.230] [Music]
+- [27:43.200] Near restful waters he leads me. He
+- [27:45.919] revives my soul.
+- [27:48.840] [Music]
+- [28:06.799] He guides me along the right path for
+- [28:09.360] the sake of his name.
+- [28:11.350] [Music]
+- [28:30.120] [Music]
+- [28:34.159] Though I should walk in the valley of
+- [28:35.760] the shadow of death, no evil would I
+- [28:37.919] fear, for you are with me. Your crook
+- [28:40.559] and your staff will give me comfort.
+- [28:45.880] [Music]
+- [28:52.000] You have prepared a table before me in
+- [28:54.480] the sight of my foes.
+- [28:57.490] [Music]
+- [29:16.080] My head you have anointed with oil. My
+- [29:18.640] cup overflows.
+- [29:20.260] [Music]
+- [29:39.440] Surely goodness and mercy will follow me
+- [29:42.399] all the days of my life.
+- [29:45.690] [Music]
+- [29:52.360] [Music]
+- [30:04.159] In the Lord's own house shall I dwell
+- [30:06.799] for the length of days unending.
+- [30:09.260] [Music]
+- [30:15.270] [Music]
+- [30:29.279] The second reading will be read in
+- [30:31.360] Spanish from the letter of St. Paul to
+- [30:34.240] the Philippians.
+- [30:52.320] Brothers and sisters, our citizenship is
+- [30:55.200] in heaven and from it we await the
+- [30:57.919] savior, the Lord Jesus Christ,
+- [31:01.600] who will transform our lowly body to be
+- [31:04.559] like, his glorious body by the power
+- [31:08.000] that enables him even to subject all to
+- [31:12.159] himself.
+- [31:13.919] Therefore, my brothers and sisters
+- [31:16.799] and long for joy and crown, stand firm
+- [31:21.360] thus in the Lord, my beloved.
+- [31:25.040] [Music]
+- [31:42.880] Hallelujah.
+- [31:45.440] Hallelujah.
+- [31:49.039] Hallelu.
+- [31:50.520] [Music]
+- [31:53.760] Hallelujah.
+- [31:56.240] Halleluah.
+- [31:59.600] Hallelu.
+- [32:01.679] Oh,
+- [32:10.670] [Music]
+- [32:16.880] gladness.
+- [32:35.030] [Music]
+- [32:38.640] All is
+- [32:43.060] [Music]
+- [32:52.050] [Applause]
+- [32:57.340] [Music]
+- [33:16.480] As the deacon receives,
+- [33:19.120] as the deacon who will proclaim the
+- [33:22.320] gospel receives the blessing from the
+- [33:24.320] presider,
+- [33:26.080] we hear the choir sing, "This is the
+- [33:29.200] will of my father, says the Lord.
+- [33:31.919] Everyone who believes in the Son should
+- [33:34.159] have eternal life, and I will raise him
+- [33:37.120] up on the last day.
+- [33:46.000] Hallelujah.
+- [33:52.080] Hallelu
+- [33:56.120] [Music]
+- [34:26.879] Heat.
+- [34:40.650] [Music]
+- [34:50.800] school.
+- [34:52.720] Let us
+- [34:58.160] give him
+- [35:01.040] your name
+- [35:05.440] on the earth.
+- [35:07.620] [Music]
+- [35:10.240] It is a reading from the Holy Gospel
+- [35:12.000] according to John.
+- [35:30.040] [Music]
+- [35:32.800] Abraham,
+- [35:36.010] [Music]
+- [35:42.720] the religious
+- [35:44.660] [Music]
+- [36:08.960] When Jesus had revealed himself to his
+- [36:10.960] disciples and they had finished
+- [36:13.119] breakfast, Jesus said to Simon Peter,
+- [36:16.880] "Simon, son of John, do you love me more
+- [36:19.599] than these?"
+- [36:22.079] He said to him, "Yes, Lord, you know
+- [36:24.079] that I love you."
+- [36:26.240] He said to him, "Feed my lambs."
+- [36:30.560] He said to him a second time, "Simon,
+- [36:32.400] son of John, do you love me?" He said to
+- [36:35.920] him, "Yes, Lord, you know that I love
+- [36:39.119] you." He said to him, "Tend my sheep."
+- [36:45.920] He said to him the third time, "Simon,
+- [36:48.720] son of John, do you love me?"
+- [36:51.920] Peter was grieved because he said to him
+- [36:54.079] the third time, "Do you love me?" And he
+- [36:57.119] said to him,
+- [36:59.760] "Lord, you know everything. You know
+- [37:02.960] that I love you."
+- [37:06.960] Jesus said to him, "Feed my sheep."
+- [37:10.560] Amen.
+- [37:14.810] [Music]
+- [37:16.000] Truly, truly I say to you, when you were
+- [37:19.040] young, you used to dress yourself and
+- [37:21.760] walk whenever you wanted.
+- [37:25.440] But when you are old, you would stretch
+- [37:27.440] out your hands. And another will dress
+- [37:30.240] you and carry you where you do not want
+- [37:32.320] to go.
+- [37:37.440] At least he said to show how by what
+- [37:39.920] kind of death he was to glorify God.
+- [37:45.520] And after saying this, he said to him,
+- [37:47.599] "Follow me."
+- [37:49.920] said, "Get
+- [38:02.450] [Music]
+- [38:44.200] [Music]
+- [38:50.640] The deacon now carries the book of the
+- [38:53.359] gospel.
+- [39:12.160] In this majestic St. Peter Square where
+- [39:14.400] Pope Francis celebrated the Eucharist so
+- [39:17.200] many times and presided over great
+- [39:19.200] gatherings over the past 12 years. We
+- [39:22.160] are gathered with sed hearts in prayer
+- [39:24.240] around his mortal remains. Yet we are
+- [39:27.119] sustained by the certainty of faith
+- [39:29.280] which assures us that human existence
+- [39:32.000] does not end in the tomb but in the
+- [39:34.560] father's house
+- [39:36.720] in a life of happiness that will know no
+- [39:39.680] endless
+- [39:42.720] [Music]
+- [39:49.119] on behalf of the college of cardinals
+- [39:52.880] I cordally thank all of you for your
+- [39:54.800] presence.
+- [39:57.839] emotion. I extend expected greetings and
+- [40:01.280] heartfelt thanks to the heads of state,
+- [40:04.560] heads of government and official
+- [40:06.079] delegations
+- [40:08.079] who have come from many countries to
+- [40:11.280] express their affection,
+- [40:13.440] veneration and esteem for our late holy
+- [40:16.640] father.
+- [40:24.240] The outpouring of affection that we have
+- [40:26.400] witnessed in recent days following his
+- [40:29.280] passing from this earth into eternity
+- [40:32.400] tells us how much the profound
+- [40:35.599] pontificate of Pope Francis
+- [40:38.400] touched minds and hearts.
+- [40:51.170] [Music]
+- [40:55.440] The final image we have of him which
+- [40:58.319] will remain etched in our memory is that
+- [41:01.440] of last Sunday Easter Sunday when Pope
+- [41:05.520] Francis despite his serious health
+- [41:08.480] problems wanted to give us his blessing
+- [41:12.000] on the balcony of St. Peter's Basilica.
+- [41:15.520] He then came down to this square to
+- [41:19.040] greet the large crowd,
+- [41:22.880] gathered for the Easter mass
+- [41:26.240] while riding in the open top Pope
+- [41:29.200] mobile.
+- [41:34.800] With our prayers, we now entrust the
+- [41:37.680] soul of our beloved
+- [41:39.920] to God
+- [41:42.000] that he may grant
+- [41:45.680] the bright and glorious gaze of his
+- [41:49.040] immense love.
+- [41:57.760] We are enlightened and guided by the
+- [42:00.319] passage of the gospel
+- [42:02.480] in which the voice the very voice of
+- [42:04.640] Christ resounded asking the first of the
+- [42:07.599] apostles,
+- [42:09.119] "Peter, do you love me more than these?
+- [42:15.470] [Music]
+- [42:17.839] Peter's answer was prompt and sincere.
+- [42:23.040] Lord, you know everything. You know that
+- [42:26.319] I love you.
+- [42:29.520] Jesus then entrusted him with a great
+- [42:31.920] mission.
+- [42:34.079] Feed my sheep.
+- [42:40.160] This will be the constant task of Peter
+- [42:42.800] and his successors
+- [42:46.319] service of love in the footsteps of
+- [42:48.880] Christ
+- [42:51.040] our master and lord
+- [43:03.200] despite his frailty and suffering
+- [43:04.960] towards the end
+- [43:07.280] chose to followed this path of
+- [43:08.960] self-giving
+- [43:10.640] until the last day of his life. He
+- [43:14.000] followed in the footsteps of his lord,
+- [43:15.920] the good shepherd, who loved his sheep
+- [43:19.920] to the point of giving his life for
+- [43:21.599] them.
+- [43:26.079] And he did so with strength and
+- [43:27.839] serenity, close to his flock, the church
+- [43:31.200] of God.
+- [43:37.080] [Music]
+- [43:44.640] When Cardinal Begolio was elected by the
+- [43:47.200] conclave on March 13th, 2013
+- [43:50.960] to succeed Pope Benedict the 16th, he
+- [43:54.079] already had many years of experience in
+- [43:56.800] religious life in the society of Jesus
+- [44:00.640] and above all was enriched by 21 years
+- [44:04.480] of pastoral ministry
+- [44:07.119] in the arch dasces of Buenos first as
+- [44:10.240] auxiliary and then as co-judtor and
+- [44:13.680] above all as archbishop
+- [44:18.400] the decision to take the name Francis
+- [44:23.839] immediately appeared to indicate
+- [44:26.800] the pastoral plan and style on which he
+- [44:30.960] wanted to base his pontificate
+- [44:34.480] seeking Inspiration from the spirit
+- [44:38.240] of St. Francis of Aisi.
+- [44:46.400] He maintained his temperament and form
+- [44:48.800] of pastoral leadership and through his
+- [44:51.839] resolute personality
+- [44:53.920] immediately made his mark on the
+- [44:56.880] governance of the church.
+- [44:59.839] He established direct contact with
+- [45:02.560] individuals and peoples,
+- [45:05.839] eager to be close to everyone.
+- [45:11.520] A marked attention to those in
+- [45:14.240] difficulty.
+- [45:15.839] Giving
+- [45:17.599] without measure,
+- [45:20.480] especially
+- [45:22.079] to the marginalized.
+- [45:28.319] He was a pope
+- [45:32.079] with an open heart towards everyone.
+- [45:36.160] He was also a pope attentive to the
+- [45:38.880] signs of the times
+- [45:41.280] and what the Holy Spirit was awakening
+- [45:45.920] in the church
+- [45:54.880] with his characteristic vocabulary and
+- [45:57.440] language rich in images and metaphors.
+- [46:02.240] He always sought to shed light on the
+- [46:04.640] problems of our times
+- [46:07.359] with the wisdom of the gospel.
+- [46:10.800] He did so by offering a response guided
+- [46:13.760] by the light of faith and encouraging us
+- [46:16.640] to live as Christians
+- [46:19.040] the challenges and contradictions in
+- [46:21.359] recent years
+- [46:23.440] which he loved to describe as anal.
+- [46:31.200] He had a great spontaneity and an
+- [46:33.760] informal way of addressing everyone
+- [46:37.040] even those far from the church
+- [46:42.280] [Music]
+- [46:48.640] in human warmth and deeply sensitive to
+- [46:50.800] today's challenges.
+- [46:53.520] France truly shared the anxieties,
+- [46:56.240] sufferings and hopes of this time of
+- [46:58.640] globalization.
+- [47:02.640] He gave of himself by comforting and
+- [47:05.359] encouraging us with a message
+- [47:09.280] capable of reaching people's hearts
+- [47:12.560] in a in a direct and immediate way.
+- [47:19.440] His charisma of welcome and listening
+- [47:23.599] combined with a manner of
+- [47:26.240] in keeping with today's sensitivities
+- [47:29.440] touched hearts and sought to reawaken
+- [47:33.680] moral and spiritual sensibilities.
+- [47:45.359] Evangelization was the guiding principle
+- [47:48.240] of his pontification.
+- [47:50.640] With a clear missionary vision,
+- [47:55.040] he spread the joy of the gospel which
+- [47:58.960] was the title of his first apostolic
+- [48:01.680] exhortation.
+- [48:06.079] It is a joy that fills the hearts of
+- [48:08.319] those who entrust themselves to God.
+- [48:12.079] with confidence and hope.
+- [48:14.800] The guiding thread of his mission was
+- [48:16.880] also the conviction that the church is a
+- [48:19.920] home
+- [48:21.440] for all
+- [48:23.359] home with its doors always open.
+- [48:29.760] He often used the image of the church as
+- [48:32.720] a field hospital
+- [48:36.720] after a battle
+- [48:38.450] [Music]
+- [48:39.920] in which
+- [48:41.359] Many had been wounded.
+- [48:47.119] Determined to take care of the problems,
+- [48:53.119] people
+- [48:55.920] anxieties
+- [48:57.760] that tear the contemporary world apart.
+- [49:02.240] A church capable of bending down
+- [49:07.440] to every person
+- [49:09.520] regardless of their beliefs or
+- [49:11.200] conditions
+- [49:12.720] and healing their wounds.
+- [49:19.680] His gestures and exhortations in favor
+- [49:22.000] of refugees and displaced persons are
+- [49:26.079] countless.
+- [49:27.680] His insistence on working on behalf of
+- [49:31.760] the poor was constant
+- [49:36.000] significant that Pope Francis's first
+- [49:38.960] journey was to Lampaduza,
+- [49:41.280] an island, it symbolizes the tragedy of
+- [49:45.359] immigration
+- [49:48.079] with thousands of people drowning at
+- [49:53.680] sea.
+- [49:55.680] In the same vein with this trip to
+- [49:58.960] Lesbos
+- [50:00.559] together
+- [50:02.160] ecumenical patriarch archbishop of
+- [50:05.359] Athens
+- [50:07.280] as well as the celebration of a mass on
+- [50:09.839] the border between Mexico and the United
+- [50:12.800] States during his journey to Mexico
+- [50:21.520] of his 47 arduous apostolic journeys.
+- [50:27.280] The one
+- [50:28.960] two Iraq in 2021 defying every risk will
+- [50:37.520] remain particularly memorable.
+- [50:41.920] Difficult apostolic journey was a balm
+- [50:44.240] on the open wounds.
+- [50:48.400] Iraqi people who had suffered so much
+- [50:52.720] from the inhuman actions of ISIS.
+- [50:58.240] It was also an important trip for
+- [51:02.400] interreligious dialogue.
+- [51:04.880] another significant dimension of his
+- [51:07.920] pastoral
+- [51:13.760] with his apostolic
+- [51:16.240] 2024 apostolic journey to four countries
+- [51:20.160] in Asia and Oceania
+- [51:24.960] reached the most peripheral
+- [51:28.480] periphery
+- [51:30.240] of the world.
+- [51:36.319] Pope Francis always placed the gospel of
+- [51:38.960] mercy at the center repeatedly
+- [51:42.240] emphasizing
+- [51:43.839] that God never tires of forgiving us.
+- [51:47.599] He always forgives. Whatever the
+- [51:50.079] situation might be
+- [51:52.319] the person who asks for forgiveness and
+- [51:55.520] returns to the right path.
+- [51:59.839] He called for the extraordinary degree
+- [52:01.760] of mercy in order to highlight the messy
+- [52:06.319] is the heart of the gospel.
+- [52:15.920] Mercy and the joy of the gospel are two
+- [52:18.240] key words for Pope Francis
+- [52:21.920] in contrast
+- [52:23.920] in contrast to what he called the
+- [52:25.920] culture of waste.
+- [52:30.480] He spoke of the culture. He spoke of the
+- [52:33.359] culture of encounter and solidarity.
+- [52:43.500] [Music]
+- [52:48.000] The theme of fraternity ran through his
+- [52:51.040] entire pontificate
+- [52:55.839] in his encyclical
+- [52:59.440] letter.
+- [53:02.000] He wanted to revive a worldwide
+- [53:03.760] aspiration to fraternity.
+- [53:07.359] We are all children of the same father
+- [53:09.440] who is in heaven.
+- [53:15.119] He often forcefully reminded us that
+- [53:19.040] we all belong to the same human family
+- [53:25.440] and that no one is saved alone
+- [53:35.839] in 2019 during his trip to the United
+- [53:38.559] Arab Emirates.
+- [53:40.880] Pope Francis signed a document on human
+- [53:43.280] fraternity
+- [53:45.119] for world peace and living together
+- [53:49.290] [Music]
+- [53:52.319] commonhood of God
+- [53:59.600] [Music]
+- [54:02.960] addressing men and women throughout the
+- [54:04.880] world. In his encyclical letter,
+- [54:08.960] he drew attention to the duties and
+- [54:12.319] shared responsibility
+- [54:15.119] for our common home,
+- [54:18.000] stating
+- [54:19.680] that no one is saved alone.
+- [54:23.599] They are raing wars of recent years
+- [54:29.200] with their inhuman horrors and countless
+- [54:33.760] deaths and destruction.
+- [54:36.720] Pope Francis
+- [54:38.640] incessantly raised
+- [54:42.880] voice
+- [54:44.880] imploring peace and calling
+- [54:57.040] calling for reason
+- [55:00.880] and inviting honest negotiation to find
+- [55:05.200] possible solutions.
+- [55:09.119] This war, as he said,
+- [55:12.800] results in the death of
+- [55:16.640] the destruction
+- [55:18.559] of hospitals and schools.
+- [55:23.200] The war always the world
+- [55:30.559] was
+- [55:34.960] It is always
+- [55:37.440] a painful and tragic defeat for
+- [55:41.359] everyone.
+- [55:50.319] Build bridges not walls
+- [55:53.359] was an exhortation he repeated many
+- [55:56.000] times
+- [55:57.839] and his service of faith as successor of
+- [56:01.760] the apostle Peter
+- [56:05.359] always linked to the service of humanity
+- [56:07.839] in all its dimensions.
+- [56:17.200] spiritually united with all of
+- [56:18.960] Christianity.
+- [56:20.640] We are here in large numbers to pray for
+- [56:24.160] Pope
+- [56:26.480] that God may welcome him into the
+- [56:29.119] immensity of his love.
+- [56:34.319] Pope Francis used to conclude his
+- [56:36.400] speeches and meetings by saying,
+- [56:43.280] "Do not forget to pray for me.
+- [56:53.200] Now, dear Pope Francis,
+- [56:56.000] we now ask you
+- [56:58.559] to pray for us.
+- [57:05.520] We ask you
+- [57:11.200] from heaven, may you bless the church.
+- [57:16.480] May you bless Rome and bless the whole
+- [57:19.040] world
+- [57:20.640] as you did last Sunday
+- [57:24.079] from the balcony of this basilica in a
+- [57:29.040] final embrace with all the people of
+- [57:32.480] God,
+- [57:34.319] but also
+- [57:36.720] embrace humanity
+- [57:39.200] that seeks the truth with a sincere
+- [57:41.839] heart
+- [57:43.520] and holds high the torture of hope.
+- [57:55.920] That was the homaly delivered by
+- [57:58.319] Cardinal Javanni Batista, the dean of
+- [58:01.200] the college of cardinals who is
+- [58:02.799] presiding at this reququum mass for the
+- [58:06.880] repose of the soul of Pope Francis.
+- [58:12.559] As we transition from the liturgy of the
+- [58:15.040] word to the liturgy
+- [58:17.119] of the eukarist shortly we
+- [58:20.880] recall and we reflect
+- [58:24.880] on
+- [58:26.799] Christ's presence in all of our lives
+- [58:30.720] the constant reminder of Pope Francis
+- [58:34.400] that we have only to turn to him in
+- [58:38.240] order to be re receive forgiveness and
+- [58:41.359] to be welcomed come back into the loving
+- [58:44.480] arms of God our Father.
+- [59:07.839] And now we will
+- [59:11.040] pray.
+- [59:28.319] to commemorate the of his only begotten
+- [59:31.359] son as we celebrate.
+- [59:36.559] May he welcome him into his peace and
+- [59:38.480] bestow every blessing upon the church
+- [59:40.480] and the whole world.
+- [01:00:01.359] for the late Pope Francis that the chief
+- [01:00:03.680] shepherd who eternally lives to
+- [01:00:05.920] intercede for us may welcome him into
+- [01:00:09.599] his kingdom of light and peace.
+- [01:00:13.380] [Music]
+- [01:00:29.839] before the holy church of God that
+- [01:00:32.480] infidelity to her mandate she may be in
+- [01:00:36.319] Christ a leaven of renewal in our human
+- [01:00:39.200] Finally.
+- [01:00:41.940] [Music]
+- [01:00:58.400] for all peoples and nations that by
+- [01:01:00.880] their tireless pursuit of justice they
+- [01:01:03.280] may be ever united in paternal love and
+- [01:01:06.400] persevere in seeking the paths of peace
+- [01:01:10.750] [Music]
+- [01:01:18.400] does not matter what appears
+- [01:01:21.280] for the souls of the deceased Roman
+- [01:01:23.119] pontists and of all those who in the
+- [01:01:25.839] church proclaim the gospel and exercise
+- [01:01:29.280] the priestly ministry that they may come
+- [01:01:32.559] to share in the heavenly liturgy
+- [01:01:44.480] for all the faithful departed that they
+- [01:01:46.799] may be granted entrance into the
+- [01:01:48.720] kingdom. of heaven.
+- [01:01:51.830] [Music]
+- [01:02:05.920] For us gathered here that having
+- [01:02:08.000] celebrated the sacred mysteries, we may
+- [01:02:10.559] one day be called by Christ to enter his
+- [01:02:13.119] glorious kingdom.
+- [01:02:15.890] [Music]
+- [01:02:24.720] salvation.
+- [01:02:29.020] [Music]
+- [01:02:32.880] God our salvation
+- [01:02:35.119] assembly in union with the blessed
+- [01:02:37.440] virgin.
+- [01:02:40.880] Welcome into the assembly of your
+- [01:02:42.400] leaders the servant and our pope Francis
+- [01:02:47.520] put his trust in the prayer of the
+- [01:02:49.520] church through Christ our Lord.
+- [01:02:57.700] [Music]
+- [01:03:04.040] [Music]
+- [01:03:15.520] And uh we move now to the liturgy of the
+- [01:03:19.520] Eucharist as we see the procession of
+- [01:03:21.680] the gifts, the gifts of bread and wine
+- [01:03:25.359] to be offered during this celebration on
+- [01:03:28.559] the altar. The choir will be leading us.
+- [01:03:31.440] Um give light into my eyes lest I fall
+- [01:03:35.039] asleep in death. Lest my enemy say I
+- [01:03:38.240] have prevailed over him.
+- [01:03:41.119] So the words of Psalm Psalm 12
+- [01:03:46.650] [Music]
+- [01:03:53.119] and of course the offering of gifts
+- [01:03:57.440] of the offer is a moment when the
+- [01:03:59.440] faithful present bread and wine which
+- [01:04:01.200] will be consecrated into the body and
+- [01:04:02.960] blood of Christ.
+- [01:04:08.640] In today's context during the
+- [01:04:10.319] celebration at this requis
+- [01:04:13.690] [Music]
+- [01:04:14.960] takes on additional meaning as we also
+- [01:04:17.760] symbolically offer his life to God.
+- [01:04:20.880] It is a gesture of surrender and trust
+- [01:04:23.440] acknowledging that Pope Francis is now
+- [01:04:25.119] in God's care.
+- [01:04:27.520] And as you know Pope Francis once said,
+- [01:04:29.280] "Our lives do not end with death. The
+- [01:04:32.000] test for life found its true and
+- [01:04:34.160] reliable answer in the resurrection of
+- [01:04:35.760] Jesus Christ.
+- [01:04:40.770] [Music]
+- [01:04:49.119] We are
+- [01:04:55.760] glory.
+- [01:04:57.990] [Music]
+- [01:05:06.230] [Applause]
+- [01:05:07.690] [Music]
+- [01:05:18.720] May
+- [01:05:22.130] [Music]
+- [01:05:37.359] Hallelujah.
+- [01:05:39.840] [Music]
+- [01:06:01.280] John Batista
+- [01:06:03.920] incense the gifts
+- [01:06:08.000] on the altar the gifts of bread and wine
+- [01:06:14.640] and the choir currently leading us with
+- [01:06:17.119] song chanting the words of Psalm 12.
+- [01:06:21.280] Give light to my eyes, lest I fall
+- [01:06:23.039] asleep in death. Lest my enemy say I
+- [01:06:25.839] have prevailed over him.
+- [01:06:28.290] [Music]
+- [01:06:44.000] And of course, the bread and wine
+- [01:06:45.280] offered during the offer represents not
+- [01:06:47.680] only the gift of creation, but also our
+- [01:06:49.680] own lives and sacrifices.
+- [01:06:54.079] And therefore, in this require mass, we
+- [01:06:55.839] are united. We unite our grief, our
+- [01:06:58.480] prayers and hopes with the sacrifice of
+- [01:07:00.400] Christ who conquered death and opened
+- [01:07:03.039] the way to eternal life.
+- [01:07:06.319] Pope Francis dedicated his life to
+- [01:07:08.079] serving Christ in his church and this
+- [01:07:10.400] moment reflects his lifelong commitment
+- [01:07:12.240] to following Jesus.
+- [01:07:25.650] [Music]
+- [01:07:56.000] Pray brethren that my sacrifice and
+- [01:07:57.760] yours may be acceptable. able to God the
+- [01:07:59.760] Almighty Father.
+- [01:08:04.079] May the Lord accept the sacrifice at
+- [01:08:05.920] your hands for the praise and glory of
+- [01:08:07.760] his name, for our good and the good of
+- [01:08:09.839] all his holy church.
+- [01:08:13.660] [Music]
+- [01:08:21.120] Look with favor we pray, O Lord, on the
+- [01:08:24.000] peaceful offering of your people, with
+- [01:08:26.880] which we confidently commit to your
+- [01:08:28.719] mercy the soul of your servant Pope
+- [01:08:30.480] Francis. And grant we pray that having
+- [01:08:33.679] been in the midst of the human family,
+- [01:08:37.040] an instrument of your charity and peace,
+- [01:08:40.400] he may merit to delight in the same
+- [01:08:43.600] forever with your saints. through Christ
+- [01:08:45.759] our Lord.
+- [01:08:53.069] [Music]
+- [01:09:04.960] It is truly right and just, our duty and
+- [01:09:07.359] our salvation always and everywhere to
+- [01:09:10.159] give you thanks.
+- [01:09:12.000] Lord, Holy Father, Almighty and eternal
+- [01:09:14.239] God, through Christ our Lord.
+- [01:09:19.199] In him the hope of blessed resurrection
+- [01:09:21.120] is dawn.
+- [01:09:23.120] That those saddened by the certainty of
+- [01:09:25.759] dying
+- [01:09:27.279] might be consoled by the promise of
+- [01:09:29.040] immortality to come.
+- [01:09:33.600] Indeed, for your faithful Lord, life is
+- [01:09:36.319] changed, not ended.
+- [01:09:39.040] And when this earthly dwelling turns to
+- [01:09:40.719] dust,
+- [01:09:42.480] an eternal dwelling is made ready for
+- [01:09:44.480] them in heaven.
+- [01:09:48.239] And so with angels and archangels, with
+- [01:09:50.319] thrones and dominions,
+- [01:09:52.960] with all the host and powers of heaven,
+- [01:09:56.159] We sing the hym of your glory as without
+- [01:09:58.400] end we acclaim.
+- [01:10:04.870] [Music]
+- [01:10:14.560] Oh,
+- [01:10:16.320] praise
+- [01:10:17.860] [Music]
+- [01:10:20.400] for you.
+- [01:10:24.010] [Music]
+- [01:10:33.360] Heat.
+- [01:10:36.400] Heat.
+- [01:10:42.290] [Music]
+- [01:10:46.640] Oh,
+- [01:10:58.719] you
+- [01:11:02.320] Oh,
+- [01:11:06.159] praise God.
+- [01:11:08.940] [Music]
+- [01:11:45.679] We are here to do our surface.
+- [01:11:49.590] [Music]
+- [01:11:59.760] disease.
+- [01:12:03.410] [Music]
+- [01:12:09.679] Super
+- [01:12:23.580] [Music]
+- [01:12:33.260] [Music]
+- [01:12:40.640] Benedictions
+- [01:12:47.040] achieve.
+- [01:12:53.800] [Music]
+- [01:12:56.239] What?
+- [01:13:00.100] [Music]
+- [01:13:23.250] [Music]
+- [01:13:27.440] succeed.
+- [01:13:42.159] Testament
+- [01:13:52.800] on him.
+- [01:14:10.239] Myster,
+- [01:14:14.610] [Music]
+- [01:14:27.199] O Lord, and profess your resurrection
+- [01:14:29.760] until you come
+- [01:14:34.150] [Music]
+- [01:14:36.880] May God
+- [01:14:52.030] [Music]
+- [01:14:56.239] of
+- [01:15:00.400] rest.
+- [01:15:22.100] [Music]
+- [01:15:37.840] Maria,
+- [01:15:44.880] glorios,
+- [01:15:46.630] [Music]
+- [01:15:53.440] Take advantage.
+- [01:16:00.400] Your name is
+- [01:16:02.730] [Music]
+- [01:16:25.040] Vote
+- [01:16:31.250] [Music]
+- [01:16:36.900] [Music]
+- [01:16:39.920] family.
+- [01:16:55.679] resurrections
+- [01:16:58.320] when social
+- [01:17:06.800] configurator.
+- [01:17:23.920] before
+- [01:17:35.679] we Security
+- [01:17:39.120] relentless
+- [01:17:41.840] animal.
+- [01:17:53.900] [Music]
+- [01:18:01.600] Glor.
+- [01:18:04.760] [Music]
+- [01:18:26.880] Hallelujah.
+- [01:18:38.320] At the Savior's command and for
+- [01:18:40.719] teaching, we dare to say,
+- [01:18:47.810] [Music]
+- [01:18:53.600] Hallelu
+- [01:19:02.720] [Music]
+- [01:19:06.960] I
+- [01:19:08.480] for
+- [01:19:18.239] single
+- [01:19:19.320] [Music]
+- [01:19:29.920] earth.
+- [01:19:31.780] [Music]
+- [01:19:38.239] us.
+- [01:19:47.440] Deliver us, Lord, we pray from every
+- [01:19:49.360] evil
+- [01:19:51.520] in our days.
+- [01:19:53.760] mercy always free from sin and safe from
+- [01:19:57.040] all distress as we await the blessed
+- [01:19:59.840] hope and the coming of our savior Jesus
+- [01:20:02.480] Christ.
+- [01:20:04.350] [Music]
+- [01:20:24.239] may Lord Jesus Christ who said to your
+- [01:20:27.280] apostles peace I give you my peace I
+- [01:20:30.400] give you look not on our sins but on the
+- [01:20:33.280] faith of your church and graciously
+- [01:20:35.679] grant her peace and unity in accordance
+- [01:20:38.400] with your will and live and reign
+- [01:20:39.920] forever and ever.
+- [01:20:44.110] [Music]
+- [01:20:49.199] and the peace of the Lord.
+- [01:20:51.390] [Music]
+- [01:20:57.920] And now the faithful and we amongst
+- [01:21:00.719] ourselves
+- [01:21:02.640] share a sign of the Lord's peace to
+- [01:21:06.000] prepare ourselves to receive
+- [01:21:09.840] our Lord in the Eucharist.
+- [01:21:27.360] We only
+- [01:21:29.910] [Music]
+- [01:21:41.440] spit.
+- [01:21:42.590] [Music]
+- [01:21:53.600] We always say our
+- [01:22:01.430] [Music]
+- [01:22:16.940] [Music]
+- [01:22:18.639] Lord, I am not worthy that you should
+- [01:22:20.400] enter under my roof, but only say the
+- [01:22:22.560] word and my soul shall
+- [01:22:26.270] [Music]
+- [01:22:33.740] [Music]
+- [01:22:49.040] who is to
+- [01:22:55.360] we
+- [01:22:56.410] [Music]
+- [01:23:05.360] of
+- [01:23:07.440] peace.
+- [01:23:09.840] [Music]
+- [01:23:23.360] As priests distribute throughout St.
+- [01:23:27.120] Peter's Square,
+- [01:23:29.440] distribute communion, we the choir
+- [01:23:33.280] assisting chapel choir chant the words
+- [01:23:36.400] of Psalm 129 in the Vatican numbering.
+- [01:23:40.880] Let perpetual light shine upon him with
+- [01:23:44.159] your saints forever. For you are
+- [01:23:47.360] merciful.
+- [01:23:48.440] [Music]
+- [01:23:59.120] Father,
+- [01:24:05.790] [Music]
+- [01:24:09.679] Sorry.
+- [01:24:12.460] [Music]
+- [01:24:17.740] [Music]
+- [01:24:24.880] for us.
+- [01:24:31.270] [Music]
+- [01:24:37.440] I see.
+- [01:24:41.330] [Music]
+- [01:25:04.480] is
+- [01:25:09.600] we are
+- [01:25:19.600] we The power is
+- [01:25:24.159] the power.
+- [01:25:30.400] We are all
+- [01:25:33.620] [Music]
+- [01:25:55.490] [Applause]
+- [01:25:58.639] together. I
+- [01:26:01.910] [Music]
+- [01:26:07.600] might
+- [01:26:08.850] [Music]
+- [01:26:18.960] Heat. Heat.
+- [01:26:21.400] [Music]
+- [01:26:44.000] shall
+- [01:26:52.920] [Music]
+- [01:27:05.600] out of the depths I cry to you, oh Lord.
+- [01:27:09.199] Lord, hear my voice.
+- [01:27:12.560] Let your ears be attentive to the sound
+- [01:27:15.840] of my pleadings.
+- [01:27:19.280] If you, oh Lord, should mark iniquities,
+- [01:27:23.040] Lord, who could stand?
+- [01:27:28.080] But with you is found forgiveness,
+- [01:27:31.360] that you will be revealed.
+- [01:27:37.050] [Music]
+- [01:27:47.040] Glorious.
+- [01:27:50.570] [Music]
+- [01:28:01.120] was
+- [01:28:03.130] [Music]
+- [01:28:10.520] [Music]
+- [01:28:27.199] we
+- [01:28:28.380] [Music]
+- [01:28:34.320] We are
+- [01:28:38.400] all
+- [01:28:40.040] [Music]
+- [01:28:48.639] we are
+- [01:28:54.560] Glory to God.
+- [01:28:58.310] [Music]
+- [01:29:18.800] Oh,
+- [01:29:19.840] [Music]
+- [01:29:29.850] [Applause]
+- [01:29:40.180] [Music]
+- [01:29:48.239] Oh sh.
+- [01:30:00.860] [Music]
+- [01:30:18.000] See there
+- [01:30:20.340] [Applause]
+- [01:30:21.220] [Music]
+- [01:30:31.520] might
+- [01:30:38.320] He is
+- [01:30:41.470] [Music]
+- [01:30:44.639] glory.
+- [01:30:47.940] [Music]
+- [01:31:21.360] Hosan
+- [01:31:24.900] [Music]
+- [01:31:31.280] is
+- [01:31:36.480] we
+- [01:31:43.970] [Music]
+- [01:31:49.679] I long for you, O Lord. My soul, my soul
+- [01:31:53.600] longs for his word. My soul awaits the
+- [01:31:57.360] Lord more than watchmen for daybreak.
+- [01:32:02.000] More than watchmen for daybreak. Let
+- [01:32:04.880] Israel hope for the Lord.
+- [01:32:08.639] For with the Lord there is mercy, in him
+- [01:32:12.800] is plentiful redemption.
+- [01:32:16.320] It is he who will redeem Israel from all
+- [01:32:20.400] of its iniquities.
+- [01:32:22.450] [Music]
+- [01:32:29.440] Christ.
+- [01:32:30.460] [Music]
+- [01:32:38.900] [Music]
+- [01:32:51.330] [Music]
+- [01:33:07.760] We are
+- [01:33:09.310] [Music]
+- [01:33:22.320] the
+- [01:33:24.800] son. Heat. Heat.
+- [01:33:26.690] [Music]
+- [01:33:35.440] Heat. Heat.
+- [01:33:42.100] [Music]
+- [01:33:50.639] We
+- [01:33:52.880] are
+- [01:33:54.850] [Music]
+- [01:34:12.239] shall
+- [01:34:17.840] is
+- [01:34:23.040] we are
+- [01:34:26.000] [Music]
+- [01:34:33.280] glory.
+- [01:34:34.870] [Music]
+- [01:34:39.760] We
+- [01:34:42.800] are
+- [01:34:44.670] [Music]
+- [01:34:48.960] Jesus
+- [01:35:01.280] Glor.
+- [01:35:02.430] [Music]
+- [01:35:46.080] Whoever
+- [01:35:50.320] shall
+- [01:36:01.120] We are
+- [01:36:03.620] [Music]
+- [01:36:20.800] speech.
+- [01:36:28.080] As communion continues to be distributed
+- [01:36:31.120] here in St. Peter's Square.
+- [01:36:33.840] We join ourselves spiritually with all
+- [01:36:36.719] of those gathered here in Rome to
+- [01:36:39.520] celebrate the life and memory of Pope
+- [01:36:41.920] Francis and pray together a prayer for
+- [01:36:45.760] spiritual communion
+- [01:36:48.000] since we cannot sacramentally receive
+- [01:36:51.119] the body and blood blood of our Lord
+- [01:36:53.119] Jesus Christ in this moment.
+- [01:36:57.280] My Jesus, I believe that you are present
+- [01:36:59.840] in the most holy sacrament. I love you
+- [01:37:02.719] above all things and I desire to receive
+- [01:37:08.720] [Music]
+- [01:37:17.760] As we come to the table of your eternal
+- [01:37:20.000] bread, we humbly beg your mercy, Lord,
+- [01:37:22.480] for the soul of your departed,
+- [01:37:26.080] that they may rejoice at last in
+- [01:37:28.080] possession of the truth in which he
+- [01:37:30.159] faithfully confirmed your people through
+- [01:37:33.440] Christ our Lord. Amen.
+- [01:37:44.000] And now we move to the commenatio at
+- [01:37:47.440] validio which be the would be the final
+- [01:37:50.159] commendation
+- [01:37:51.679] and blessing of the coffin of Pope
+- [01:37:53.440] Francis.
+- [01:37:59.960] [Music]
+- [01:38:06.400] brothers and sisters
+- [01:38:10.239] to God's
+- [01:38:16.000] people
+- [01:38:17.679] who confirmed his brothers
+- [01:38:20.400] in the faith of the resurrection.
+- [01:38:24.400] Let us pray to God our father in Jesus
+- [01:38:26.800] Christ and in the Holy Spirit.
+- [01:38:29.760] May he deliver him from death. Welcome
+- [01:38:32.239] him to eternal peace and raise up
+- [01:38:36.719] on the last day
+- [01:38:40.239] through the intercession of the blessed
+- [01:38:41.679] virgin Mary
+- [01:38:47.119] people
+- [01:38:51.520] of his beloved
+- [01:38:53.760] consult
+- [01:38:55.440] with the light of the resurrection.
+- [01:39:05.760] [Music]
+- [01:39:07.440] And now we will pray the litany of the
+- [01:39:10.480] saints.
+- [01:39:15.110] [Music]
+- [01:39:24.400] for
+- [01:39:27.520] such
+- [01:39:28.850] [Music]
+- [01:39:31.600] foral.
+- [01:39:34.720] [Music]
+- [01:39:40.880] Hallelujah.
+- [01:39:48.000] Hallelujah.
+- [01:39:51.230] [Music]
+- [01:40:04.400] Oh sh
+- [01:40:13.370] [Music]
+- [01:40:30.480] forever. Hallelujah.
+- [01:40:34.880] Oh
+- [01:40:36.860] [Music]
+- [01:40:40.080] my
+- [01:40:41.800] [Music]
+- [01:40:48.080] forever
+- [01:40:51.190] [Music]
+- [01:40:59.199] forever. Hallelujah.
+- [01:41:02.420] [Music]
+- [01:41:21.679] Helia.
+- [01:41:24.830] [Music]
+- [01:41:48.480] Forever
+- [01:41:50.610] [Music]
+- [01:41:57.360] Sun
+- [01:42:06.960] are
+- [01:42:08.960] Some she
+- [01:42:11.500] [Music]
+- [01:42:15.040] may
+- [01:42:17.520] forever. Hallelujah.
+- [01:42:23.119] Forever
+- [01:42:25.090] [Music]
+- [01:42:41.679] forever.
+- [01:42:46.000] Glory.
+- [01:42:50.500] [Music]
+- [01:43:16.400] Forever. Everl
+- [01:43:23.270] [Music]
+- [01:43:42.880] Something
+- [01:43:53.199] glory
+- [01:43:55.770] [Music]
+- [01:44:07.040] forever
+- [01:44:10.239] They are
+- [01:44:12.800] for
+- [01:44:16.480] us
+- [01:44:19.119] for
+- [01:44:21.760] son
+- [01:44:26.470] [Music]
+- [01:44:38.560] forever.
+- [01:44:41.679] might
+- [01:44:47.710] [Music]
+- [01:44:56.320] forever.
+- [01:44:59.199] Holy sh
+- [01:45:07.040] [Music]
+- [01:45:16.320] All I am
+- [01:45:22.719] forever.
+- [01:45:26.070] [Music]
+- [01:45:38.320] Forever
+- [01:45:45.920] forever.
+- [01:45:48.860] [Music]
+- [01:45:59.840] All
+- [01:46:02.960] Something
+- [01:46:07.670] [Music]
+- [01:46:30.880] we share.
+- [01:46:37.840] Sunday
+- [01:46:41.640] [Music]
+- [01:46:48.560] forever.
+- [01:46:51.440] Someday even
+- [01:46:54.400] for
+- [01:46:57.440] Something
+- [01:47:00.159] for
+- [01:47:02.880] some
+- [01:47:13.040] Lord,
+- [01:47:15.840] son, mother of Jesus,
+- [01:47:23.280] son of our
+- [01:47:25.540] [Music]
+- [01:47:29.119] son,
+- [01:47:32.480] Holy
+- [01:47:36.480] shel.
+- [01:47:45.119] Christ.
+- [01:47:46.140] [Music]
+- [01:48:05.119] And now the victor general of the
+- [01:48:07.199] dascese of Rome, Cardinal Aldasar
+- [01:48:11.600] will lead the valid the
+- [01:48:22.800] God of souls. Granted,
+- [01:48:27.679] Pope Francis
+- [01:48:29.679] made of Peter and shepherd of your
+- [01:48:32.080] church.
+- [01:48:34.560] May he enjoy forever in heaven the
+- [01:48:38.239] mysteries of your grace and passion
+- [01:48:41.520] which faith ministers on earth
+- [01:48:45.280] our Lord.
+- [01:48:53.760] And now the a delegation from the
+- [01:48:58.480] eastern rights of the Catholic Church
+- [01:49:02.639] will lead the supriatio ecclesia
+- [01:49:05.920] oriental.
+- [01:49:08.159] This comes prayer from the eastern
+- [01:49:11.040] prayer of the eastern churches from the
+- [01:49:12.880] funeral office of the Byzantine liturgy
+- [01:49:15.199] and it will be prayed chanted in Greek.
+- [01:49:57.040] These are the patriarchs, major
+- [01:49:59.920] archbishops and metropolitans of the
+- [01:50:02.800] metropolitan churches that are Suiuris
+- [01:50:06.880] oriental Catholic Churches.
+- [01:50:11.199] was the son
+- [01:50:13.240] [Music]
+- [01:50:22.239] the
+- [01:50:29.520] Lord
+- [01:50:31.040] mighty.
+- [01:50:33.510] [Music]
+- [01:50:43.840] is
+- [01:50:48.719] so
+- [01:50:51.440] high.
+- [01:50:55.270] [Music]
+- [01:51:00.480] There is no
+- [01:51:02.880] son
+- [01:51:04.320] [Applause]
+- [01:51:07.520] ever.
+- [01:51:08.790] [Music]
+- [01:51:10.480] Lord,
+- [01:51:16.880] the
+- [01:51:21.440] heart of his
+- [01:51:25.600] son.
+- [01:51:29.600] [Applause]
+- [01:51:30.060] [Music]
+- [01:51:38.639] Glory
+- [01:51:40.480] [Music]
+- [01:51:41.679] might
+- [01:51:45.220] [Music]
+- [01:51:54.760] [Applause]
+- [01:51:56.320] be
+- [01:52:02.880] the God
+- [01:52:11.040] [Music]
+- [01:52:13.040] Christ arise from the dead and
+- [01:52:15.920] destroying death.
+- [01:52:19.470] [Music]
+- [01:52:27.599] So,
+- [01:52:28.810] [Music]
+- [01:52:47.350] [Music]
+- [01:52:51.360] have mercy on us, oh God. In your great
+- [01:52:53.360] kindness, we beseech you. hear us and be
+- [01:52:56.400] merciful.
+- [01:52:59.599] Lord have mercy.
+- [01:53:08.639] Again, let us pray for the cause of the
+- [01:53:10.639] soul of this departed servant of God.
+- [01:53:15.119] He may be forgiven his sins.
+- [01:53:18.360] [Music]
+- [01:53:27.570] [Music]
+- [01:53:41.599] May the Lord God lead his soul into the
+- [01:53:44.000] resting place of the righteous.
+- [01:53:47.280] Let us ask Christ our immortal king and
+- [01:53:49.840] God to bestow on him the divine mercy,
+- [01:53:53.440] the kingdom of heaven and the
+- [01:53:55.119] forgiveness of his sins.
+- [01:54:05.040] [Music]
+- [01:54:09.360] you
+- [01:54:11.720] [Music]
+- [01:54:27.040] souls and of all flesh
+- [01:54:30.400] who trampled death underfoot,
+- [01:54:33.360] vanquished the devil and gave life to
+- [01:54:35.599] the world.
+- [01:54:37.360] Grant repose to the soul of your
+- [01:54:39.119] departed servant Francis Bishop in a
+- [01:54:42.800] place of light and joy, a verdant place,
+- [01:54:47.040] a place of blessedness
+- [01:54:51.520] where suffering, pain and sorrow are
+- [01:54:53.520] normal.
+- [01:55:04.150] [Music]
+- [01:55:16.080] forgive every sin he committed in
+- [01:55:18.239] thought, word, or deed. For you are a
+- [01:55:21.360] gracious God and a friend to mankind.
+- [01:55:26.480] No one who lives is without sin. You
+- [01:55:29.599] alone are sinless. Your righteousness is
+- [01:55:32.239] eternal and your word is true.
+- [01:55:49.679] For you, Christ our God are the
+- [01:55:51.599] resurrection, the life and the repose of
+- [01:55:53.760] your St. Francis bishop who has fallen
+- [01:55:56.480] asleep. We give you glory with your
+- [01:55:59.440] eternal father and your holy spirit who
+- [01:56:02.560] is gracious and the giver of life now
+- [01:56:05.440] and forever.
+- [01:56:07.240] [Music]
+- [01:56:23.130] [Music]
+- [01:56:37.050] [Music]
+- [01:56:40.400] May your remembrance be eternal, dear
+- [01:56:43.199] brother, worthy of blessedness, never to
+- [01:56:45.840] be forgotten.
+- [01:56:48.719] in the
+- [01:56:52.400] world.
+- [01:56:55.620] [Music]
+- [01:56:57.599] More
+- [01:56:58.600] [Music]
+- [01:57:08.510] [Music]
+- [01:57:16.719] Christmas.
+- [01:57:18.560] There is
+- [01:57:24.639] more.
+- [01:57:29.840] [Music]
+- [01:57:45.920] A simple tree.
+- [01:57:49.430] [Music]
+- [01:57:57.400] [Music]
+- [01:58:09.440] And now the cbrant
+- [01:58:12.480] will
+- [01:58:15.520] esperse the body, the coffin
+- [01:58:20.480] with holy water and incense it.
+- [01:58:24.650] [Music]
+- [01:58:42.480] The choir chants, I know that my
+- [01:58:44.639] redeemer lives. On the last day, I shall
+- [01:58:47.599] rise again,
+- [01:58:49.440] and in my flesh, I shall see God, my
+- [01:58:52.880] savior.
+- [01:58:54.290] [Music]
+- [01:58:57.040] Heat. Heat.
+- [01:59:00.950] [Music]
+- [01:59:10.100] [Music]
+- [01:59:18.159] Take the
+- [01:59:26.990] [Music]
+- [01:59:30.000] Sus.
+- [01:59:32.810] [Music]
+- [01:59:45.040] He said
+- [01:59:51.520] for
+- [01:59:54.730] [Music]
+- [02:00:09.199] we
+- [02:00:12.300] [Music]
+- [02:00:28.400] I shall see him myself face to face and
+- [02:00:32.080] my own eyes shall behold him and in my
+- [02:00:35.920] flesh I shall see God my savior
+- [02:00:40.159] within my heart. This hope I cherish
+- [02:00:43.520] that in my flesh I shall see God my
+- [02:00:47.440] savior.
+- [02:00:51.790] [Music]
+- [02:01:16.400] Miss
+- [02:01:20.090] [Music]
+- [02:01:21.760] Francisco.
+- [02:01:28.480] precious. Father, we commend to your
+- [02:01:30.480] mercy our Francis whom you made of and
+- [02:01:35.040] shepherd of your church, a fearless
+- [02:01:37.440] preacher of your word and a faithful
+- [02:01:39.760] minister of the divine mysteries.
+- [02:01:43.040] Welcome him, we pray, into your heavenly
+- [02:01:44.880] dwelling place to enjoy eternal glory
+- [02:01:48.400] with all your chosen ones.
+- [02:01:50.960] We give you thanks Lord for all the
+- [02:01:52.960] blessings that in your goodness you
+- [02:01:55.199] bestowed upon them for the good of your
+- [02:01:57.920] people.
+- [02:02:06.880] Grant us the comfort of faith and the
+- [02:02:09.360] strength of hope.
+- [02:02:11.840] To you, Father, source of life
+- [02:02:14.719] through Christ the conqueror of
+- [02:02:18.719] the lifegiving,
+- [02:02:22.000] honor, and glory forever and ever.
+- [02:02:27.100] [Music]
+- [02:02:38.000] choir conclude to this.
+- [02:02:45.440] May the angels lead you into paradise.
+- [02:02:48.480] May the martyrs come and welcome you and
+- [02:02:51.040] take you to the holy city, the new and
+- [02:02:54.320] eternal Jerusalem.
+- [02:02:57.360] May choirs of angels welcome you. and
+- [02:03:00.159] with Lazarus who is poor no longer you
+- [02:03:03.840] have eternal rest.
+- [02:03:07.490] [Music]
+- [02:03:17.520] Jesus
+- [02:03:21.360] Christ.
+- [02:03:28.560] [Music]
+- [02:03:37.520] Hallelujah.
+- [02:03:40.200] [Music]
+- [02:04:00.780] [Music]
+- [02:04:10.239] With that, the pawbearers ers
+- [02:04:14.800] come forth for forward to take the
+- [02:04:18.960] coffin of Pope Francis
+- [02:04:23.440] into the Basilica of St. Peter.
+- [02:04:31.920] [Music]
+- [02:04:40.270] [Music]
+- [02:04:49.460] [Music]
+- [02:04:58.350] [Music]
+- [02:05:15.040] Heat.
+- [02:05:27.920] Heat.
+- [02:05:33.680] [Music]
+- [02:05:51.040] We we see the cardinals and bishops and
+- [02:05:54.159] archbishops and patriarchs
+- [02:05:57.679] begin the procession from their seats
+- [02:06:01.760] into
+- [02:06:04.239] the Vatican Basilica.
+- [02:06:12.120] [Music]
+- [02:06:48.390] [Music]
+- [02:06:56.400] So we uh it's the conclusion of this
+- [02:06:58.400] celebration as you know it is the con um
+- [02:07:00.880] the celebration concluded with the final
+- [02:07:03.440] commendation
+- [02:07:05.440] uh which reminded us uh serves as an
+- [02:07:08.960] emotional reminder of our faith in the
+- [02:07:10.880] resurrection and the eternal life
+- [02:07:13.440] promised by Christ.
+- [02:07:16.880] It's not just a moment of goodbye. It is
+- [02:07:19.119] a sacred act of entrusting our beloved
+- [02:07:20.880] Pope Francis into the merciful hands of
+- [02:07:23.679] God.
+- [02:07:27.040] So, Cardinal
+- [02:07:29.280] Rea will led the prayer interest in Pope
+- [02:07:32.480] Francis to God's care and um asking for
+- [02:07:36.560] eternal rest and peace.
+- [02:07:39.360] Uh we sang the litany of the saints and
+- [02:07:42.079] we invoked the intercessions of the
+- [02:07:44.079] saints
+- [02:07:45.840] and we now begin the procession to the
+- [02:07:48.480] basilica and then from there the the
+- [02:07:51.280] body the rem the remains of Pope Francis
+- [02:07:53.679] will be taken to
+- [02:07:55.920] his burial place at Maria Major.
+- [02:08:00.310] [Music]
+- [02:08:28.000] And of course the prayer which was
+- [02:08:30.159] repeated a number of times during the
+- [02:08:32.079] celebration.
+- [02:08:33.760] We pray for eternal rest and we pray
+- [02:08:35.520] that may the perpetual light shine upon
+- [02:08:37.679] him and this encapsulates our deepest
+- [02:08:40.800] hope for for the deceased Pope Francis.
+- [02:08:43.920] And we ask God to grant him eternal
+- [02:08:46.480] peace and to let him his light guide him
+- [02:08:50.000] into his presence as we see the pbearers
+- [02:08:54.079] ready to process
+- [02:08:56.960] out of the square into the basilica.
+- [02:09:00.639] And we join the choir as they sing the
+- [02:09:02.880] Magnificat.
+- [02:09:05.520] Magnificat
+- [02:09:06.750] [Music]
+- [02:09:08.239] my soul purifies the God. Words from
+- [02:09:10.960] Luke chapter 1.
+- [02:09:20.440] [Music]
+- [02:09:26.960] Oh,
+- [02:09:31.199] heat, heat.
+- [02:09:35.630] [Music]
+- [02:09:41.199] Heat. Heat.
+- [02:09:51.199] Heat. Heat.
+- [02:09:52.820] [Music]
+- [02:10:01.440] Oh yeah.
+- [02:10:03.380] [Music]
+- [02:10:12.239] Oh,
+- [02:10:14.910] [Music]
+- [02:10:19.679] we are
+- [02:10:26.790] [Music]
+- [02:10:40.960] All the
+- [02:10:51.750] [Music]
+- [02:10:58.450] [Applause]
+- [02:11:02.480] soul glorifies the Lord and my spirit
+- [02:11:05.599] rejoices in God my savior. For he has
+- [02:11:08.639] looked on the humble estate of his
+- [02:11:10.320] servant. For behold, from now on all
+- [02:11:14.159] generations will call me blessing.
+- [02:11:17.199] For he who is mighty has done great
+- [02:11:19.280] things for me, and holy is his name.
+- [02:11:23.920] And his mercy is for those who fear him
+- [02:11:26.239] from generation to generation.
+- [02:11:29.360] He has shown strength with his arm. He
+- [02:11:32.400] has scattered the proud in the thoughts
+- [02:11:34.079] of their hearts.
+- [02:11:36.400] He has brought down the mighty from
+- [02:11:38.000] their thrones and exalted those of
+- [02:11:40.880] humble estate.
+- [02:11:43.280] He has filled the hungry with good
+- [02:11:45.119] things and the rich he has sent away
+- [02:11:48.000] empty.
+- [02:11:50.079] He has helped his servant Israel in
+- [02:11:52.560] remembrance of his mercy. As he spoke to
+- [02:11:55.679] our fathers, to Abraham and his
+- [02:11:58.079] offspring forever.
+- [02:12:02.060] [Music]
+- [02:12:13.170] [Music]
+- [02:12:15.760] With
+- [02:12:18.000] a crowd of nearly over 250,000 people
+- [02:12:22.480] estimated by hotel authorities,
+- [02:12:25.360] we hear applause erupt as the coffin of
+- [02:12:28.320] Pope Francis enters St. Peter's
+- [02:12:31.199] Basilica.
+- [02:12:32.560] For the last time
+- [02:12:35.590] [Music]
+- [02:12:54.400] you
+- [02:13:00.000] King.
+- [02:13:05.280] [Music]
+- [02:13:29.440] Jesus
+- [02:13:34.930] [Music]
+- [02:13:55.599] Christ.
+- [02:13:59.400] [Music]
+- [02:14:22.880] Oh,
+- [02:14:25.620] [Music]
+- [02:14:35.760] and as the reququum mass concludes
+- [02:14:41.040] uh for Pope Francis, we transition to
+- [02:14:44.480] this second part of this live broadcast
+- [02:14:47.599] coming to you from St. Peter's Square
+- [02:14:49.920] Basilica.
+- [02:14:52.320] coffin of Pope Francis will now be
+- [02:14:55.040] transferred to St. Mary Major's
+- [02:14:58.320] Basilica. We thank our guests who's
+- [02:15:00.880] joined us today. My name is Deon
+- [02:15:02.320] Watkins, Father Bonga Majola,
+- [02:15:05.920] and it's been a great joy for being with
+- [02:15:08.480] you today and thank you for having
+- [02:15:10.239] prayed with us. And we will continue
+- [02:15:13.679] then our prayer. Thank you.
+- [02:15:20.639] Heat. Heat.
+- [02:15:23.810] [Music]
+- [02:15:45.280] Heat. Heat.
+- [02:15:56.270] [Music]
+- [02:16:42.000] Heat. Heat.
+- [02:16:49.200] Heat. Heat.

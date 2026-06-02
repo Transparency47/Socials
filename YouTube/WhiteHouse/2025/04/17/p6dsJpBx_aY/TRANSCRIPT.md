@@ -1,0 +1,677 @@
+<!-- source: https://www.youtube.com/watch?v=p6dsJpBx_aY -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: p6dsJpBx_aY -->
+<!-- date_published: 2025-04-17T18:19:51+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:43.897811+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Prime Minister of Italy, Apr. 17, 2025
+
+- [00:55.750] President Trump: And she's become a friend,
+- [00:58.120] and we really have a great relationship
+- [01:02.090] between Italy and ourselves.
+- [01:03.750] And, we talked about trade, we talked about many,
+- [01:06.920] many things during our luncheon.
+- [01:09.570] And, she'll be saying a few words,
+- [01:12.790] but she's a very special person,
+- [01:14.390] and it's nice to have you with us.
+- [01:15.790] Thank you very much.
+- [01:17.280] Prime Minister Meloni: Thank you very much.
+- [01:18.480] Mr. President. Thank you for the warm welcome.
+- [01:22.120] Thank you for this occasion, which is-
+- [01:28.860] You know today is April 17th,
+- [01:31.530] and April 17th marks the anniversary of the agreement
+- [01:36.620] that allowed Christopher Colombus, who made his trip.
+- [01:40.300] And I say to remember how our tensions are, our ties,
+- [01:44.800] but also to remind us that we both shared another fight,
+- [01:49.220] which is the fight against the war
+- [01:52.090] and DEI ideology that would like to erase our history.
+- [01:57.640] And as I know that we share lots of things
+- [02:01.540] on tackling illegal migration,
+- [02:05.010] on fighting against synthetic drugs.
+- [02:08.130] You know Italy has been one of the nations
+- [02:10.690] that made a plan against fentanyl, for example.
+- [02:14.640] But we have been talking about many bilateral topics
+- [02:20.090] and things that we can do together.
+- [02:22.410] About defense, about economy, about space, about energy.
+- [02:32.730] Italy will have to increase its LNG imports
+- [02:38.960] and also nuclear that we are trying to develop.
+- [02:41.710] I think there can be ways to work together
+- [02:45.410] and the Italian enterprises will invest
+- [02:51.090] as they've been doing for many years,
+- [02:53.580] as you know, in the next years, I think around 10 billions.
+- [02:58.270] That shows how interconnected our economies are.
+- [03:01.840] And that's very important, Mr. president.
+- [03:03.650] It's not only about Italy, it's about the entire Europe.
+- [03:08.090] The exchange between us is a very big one.
+- [03:14.340] Investments trade.
+- [03:17.680] It's a topic that we are discussing here this week.
+- [03:20.990] But at the end of the day, look, somebody calls me,
+- [03:23.350] I was saying it before, such a Western nationalism,
+- [03:26.720] I don't know if it is the right word,
+- [03:28.410] but I know that when I speak about west,
+- [03:31.650] mainly I don't speak about geographical space.
+- [03:34.620] I speak about civilization and I want to make
+- [03:39.340] [inaudible].
+- [03:47.850] Try to sit [inaudible]
+- [03:53.360] For having accepted an invitation
+- [03:55.660] to pay an official visit to Rome in the near future,
+- [03:59.300] and consider the possibility on that occasion to meet
+- [04:02.930] also with Europe.
+- [04:04.920] The goal for me is to make the West great again.
+- [04:08.410] And I think we can do it together.
+- [04:10.080] President Trump: We can
+- [04:11.860] Prime Minister Meloni: And we will keep on work on that.
+- [04:15.020] I am going to close.
+- [04:16.330] I want to say only I'm proud of sitting here
+- [04:19.280] [inaudible].
+- [04:23.930] Very good, as a very good situation,
+- [04:26.680] despite the difficulties, a stable country,
+- [04:29.160] reliable country,
+- [04:30.690] 1 million more jobs in the last two years and half.
+- [04:34.530] President Trump: Great.
+- [04:35.740] Prime Minister Meloni: Inflation is going down.
+- [04:37.120] So you forgive me if I promote a bit my country,
+- [04:41.100] but you're a businessman and you understand me.
+- [04:43.910] So migration flows going down 60%.
+- [04:47.390] [inaudible].
+- [04:51.650] Ukraine, I'll close,
+- [04:53.260] together we've been defending the freedom of you Ukraine.
+- [04:55.310] Together we can build trust and lasting peace.
+- [04:57.430] We support your efforts.
+- [05:00.100] President Trump: Thank you very much.
+- [05:01.440] And I think we're doing well in that effort,
+- [05:04.020] but we want to get it done and we'll see if we can.
+- [05:07.200] We want to save… On average, think of it, every week,
+- [05:10.310] 2,500 people are being killed.
+- [05:12.740] Mostly soldiers, Russian and Ukrainian soldiers.
+- [05:16.010] And if we can save those lives, that'd be a very good thing.
+- [05:19.300] So we'll see what we can do. I think we're getting close,
+- [05:22.020] but we'll let you know very soon.
+- [05:24.400] And you've been very helpful. I appreciate it.
+- [05:26.520] Thank you. Any questions?
+- [05:27.890] The Press: Mr. President, on Jerome Powell… Mr. President-
+- [05:31.670] How much longer does Vladimir Putin
+- [05:34.440] have to respond to your ceasefire proposal
+- [05:37.630] before you put secondary tariffs or sanctions on Russia?
+- [05:42.120] President Trump: We'll see what that will be.
+- [05:43.500] We're going to be hearing from them this week.
+- [05:48.110] Very shortly actually, and we'll see.
+- [05:50.710] But we want it to stop.
+- [05:52.000] We want the death and the killing to stop.
+- [05:55.250] The Press: Mr. President, on Jerome Powell,
+- [05:57.850] you said that the termination of Jerome Powell
+- [05:59.680] cannot come fast enough.
+- [06:01.350] He says he won't leave even if you ask him to.
+- [06:03.180] Do you believe you have-
+- [06:04.500] President Trump: If I ask him to,
+- [06:05.740] he'll be out there, but-
+- [06:06.970] The Press: Do you believe you have the power to remove him
+- [06:08.520] and are you trying to do that?
+- [06:09.820] President Trump: I don't think he's doing the job.
+- [06:11.730] He's too late, always too late, really slow.
+- [06:15.960] And I'm not happy with him. I let him know it.
+- [06:20.460] And if I want him out, he'll be out of there real fast.
+- [06:24.180] Believe me.
+- [06:25.410] The Press: Will you remove him? Are you trying to remove him?
+- [06:27.970] President Trump: Question?
+- [06:29.220] The Press: Are you trying to remove him, Mr. President?
+- [06:30.680] President Trump: Do you have a question?
+- [06:32.060] The Press: Today Judge Boasberg,
+- [06:34.990] in a case against your administration.
+- [06:37.470] So the Constitution does not tolerate willful disobedience
+- [06:40.350] of judicial order.
+- [06:41.620] Do you agree with that statement?
+- [06:42.920] President Trump: Well, you're going to have to speak
+- [06:44.210] to the lawyers. We have great lawyers.
+- [06:46.530] I can tell you this, we're doing a fantastic job
+- [06:49.120] of getting criminals out of this country
+- [06:50.910] who Biden allowed into the country.
+- [06:53.810] Hundreds of thousands of criminals, murderers,
+- [06:56.660] and drug dealers.
+- [06:58.950] And I was elected because of the fact,
+- [07:02.190] I would say maybe that was the number one factor.
+- [07:04.170] A lot of reasons, the economy, a lot of things.
+- [07:06.240] But one of the primary reasons I was elected
+- [07:08.950] is because I said I'm going to get the criminals
+- [07:11.480] that he allowed.
+- [07:12.770] [inaudible]
+- [07:15.990] I'm going to get them out. And I got a lot of votes.
+- [07:20.340] Record-setting numbers of votes. As you know, we won everything,
+- [07:23.390] the popular vote, all seven swing states.
+- [07:25.890] We won everything.
+- [07:27.140] And that's what the public wanted.
+- [07:29.730] That's what I'm doing.
+- [07:31.120] But you have to speak to the lawyers because it's up to them.
+- [07:36.940] The Press: What do you think of the proposal from France
+- [07:38.550] and UK of a peace mission in Ukraine with soldiers,
+- [07:43.100] and do you think that Italy should take part into it?
+- [07:46.720] President Trump: I think Italy will have to make
+- [07:47.930] that determination,
+- [07:49.130] but peace missions are always good with me.
+- [07:51.560] I'm okay with peace missions. Yes?
+- [07:53.130] The Press: Mr. President, What areas of cooperation
+- [07:56.450] have you discussed with the Prime Minister
+- [07:59.280] vis-a-vis Italy and the United States,
+- [08:00.710] and Europe and the United States,
+- [08:02.320] and on China-
+- [08:03.530] President Trump: We discussed it very briefly.
+- [08:04.990] No, we're doing very well with negotiations,
+- [08:07.540] I think with all countries.
+- [08:09.130] The Press: Do you have a timing?
+- [08:10.510] President Trump: Scott could tell you a little bit,
+- [08:12.890] but we are doing very well.
+- [08:14.130] We have a lot of countries that want to make a deal.
+- [08:17.260] Frankly, they want to make deals more than I do.
+- [08:19.510] Go ahead, Scott, would you say something?
+- [08:21.310] Mr. Bessent: Yeah, we've got a process in place.
+- [08:22.980] We're working on the big 15 economies first.
+- [08:26.860] We had a fantastic meeting with Japan yesterday.
+- [08:30.650] I believe there've been calls with the EU already.
+- [08:33.840] And then we have a South Korea coming in next week.
+- [08:36.760] And I believe India is also talking.
+- [08:41.320] That's moving very quickly.
+- [08:43.470] The Press: Mr. President. Mr. President Mr. President.
+- [08:46.240] On Ukraine's President Zelensky has said he has evidence
+- [08:49.390] that China is supplying weaponry or ammunition to Russia.
+- [08:53.950] Do you have any evidence along those lines?
+- [08:55.770] And also he said we could see a minerals deal signed this week.
+- [08:58.070] Is that-
+- [08:59.280] President Trump: We have a minerals deal,
+- [09:00.540] which I guess is going to be signed on Thursday, Scott?
+- [09:02.350] Next Thursday.
+- [09:03.640] Mr. Bessent: Yes.
+- [09:04.840] President Trump: Soon? Mr. Bessent: Yes.
+- [09:06.060] President Trump: And I assume they're going to live up
+- [09:07.640] to the deal, so we'll see. But we have a deal on that.
+- [09:12.640] No, I have no comment on that. I have no idea.
+- [09:15.110] That's his statement, not mine.
+- [09:17.300] The Press: Mr. President,
+- [09:18.540] there are reports you waved off an Israeli attack
+- [09:21.220] on Iranian nuclear facilities.
+- [09:22.980] Can you comment on that, is that accurate?
+- [09:25.890] President Trump: And they say the attack is what?
+- [09:27.540] The Press: That you waved off an Israeli plan to attack
+- [09:30.490] Iranian nuclear facilities recently.
+- [09:32.420] President Trump: I wouldn't say waved off.
+- [09:33.770] I'm not in a rush to do it,
+- [09:35.600] because I think that Iran has a chance to have a great country.
+- [09:39.710] And to live happily without death, and I'd like to see that.
+- [09:44.370] That's my first option. If there's a second option,
+- [09:48.790] I think it would be very bad for Iran.
+- [09:52.420] And I think Iran is wanting to talk.
+- [09:56.710] I hope they're wanting to talk.
+- [09:57.920] It's going to be very good for them if they do.
+- [09:59.870] And I'd like to see Iran thrive in the future,
+- [10:03.210] do fantastically well.
+- [10:05.820] I know the Iranian people, they're incredible people.
+- [10:08.760] Always have been very --
+- [11:02.100] allow us to do anything.
+- [11:03.400] Once they terminated, you know what the deal was,
+- [11:05.370] it was a terrible deal, really.
+- [11:07.820] One of many terrible deals made by the US.
+- [11:11.320] But no, I'd like to see Iran thrive
+- [11:15.880] and they can do that I think very easily.
+- [11:18.580] Or they can do it the other way,
+- [11:20.850] and the other way is not going to be good for them.
+- [11:22.870] Can be really bad for them.
+- [11:24.750] The Press: [inaudible]
+- [11:28.950] … CEO going to China and met with trade officials there.
+- [11:32.330] President Trump: Well, Jensen's an amazing guy.
+- [11:34.090] He is become a friend of mine. And I don't know, he's a person
+- [11:38.790] that's very proud of our country.
+- [11:40.020] He loves our country. I'm not worried about Jensen at all.
+- [11:42.930] The Press: [inaudible]
+- [11:47.770] Will you take steps to return Kilmar Abrego Garcia
+- [11:51.090] to the United States and put him in front of a judge?
+- [11:53.790] President Trump: Well, I'm not involved in it.
+- [11:55.140] I'm going to respond by saying
+- [11:57.300] you'll have to speak to the lawyers, the DOJ.
+- [12:01.030] I've heard many things about him
+- [12:03.280] and we'll have to find out what the truth is.
+- [12:08.200] But I will say this.
+- [12:11.840] We were inundated by millions of people,
+- [12:14.260] many millions of people during the Biden administration.
+- [12:16.820] They say 21 million
+- [12:19.160] and a big percentage of those are criminals.
+- [12:22.570] Serious criminals. I'm not saying just criminals,
+- [12:24.850] because they came into the border illegally.
+- [12:27.530] I'm saying they're criminals at the highest level, murderers.
+- [12:31.600] Many of those people murdered more than one person
+- [12:34.500] and they're on the loose.
+- [12:36.680] And I was elected to get rid of those criminals,
+- [12:39.060] to get them out of our country or to put them away,
+- [12:42.020] but to get them out of our country.
+- [12:44.520] And I don't see how judges can take
+- [12:46.890] that authority away from a president.
+- [12:48.850] We've done an amazing job, Tom Homan, Kristi Noem.
+- [12:53.150] We have done an amazing job.
+- [12:54.530] Nobody can believe the job we've done.
+- [12:56.830] Far greater than what I said.
+- [12:58.190] I mean, I got elected on that, but we've done much better.
+- [13:00.460] We have right now 99% border. It's a 99%.
+- [13:04.790] Nobody thought that would even be…
+- [13:06.190] Nobody's coming through our border practically.
+- [13:09.820] Two weeks ago, we had nine people come through,
+- [13:11.650] all for medical reasons.
+- [13:12.950] We allowed them. We brought them through,
+- [13:14.480] because one had a heart attack, one had something else.
+- [13:18.420] And all for medical reasons. We have a great border.
+- [13:21.800] We had a great border four years ago,
+- [13:24.410] but we have a border now that's even tighter.
+- [13:26.890] And we did that in a matter of weeks.
+- [13:29.640] And now we need to get murderers and drug dealers,
+- [13:36.050] and people that were in jail for horrible…
+- [13:39.400] They released jails, Georgia,
+- [13:42.640] from all over the world and released them…
+- [13:45.250] Not just South America, all over the world, the Congo and Africa.
+- [13:49.260] Many, many people come from the Congo.
+- [13:50.890] I don't know what that is.
+- [13:52.170] But they came from the Congo and all over the world.
+- [13:55.710] They came in, opened their jails, Venezuela,
+- [13:59.220] practically all of their prisoners
+- [14:00.620] released into our country.
+- [14:01.870] And we took them, because we had an incompetent administration
+- [14:05.900] called the Biden administration
+- [14:08.780] and to think what they've done to our country.
+- [14:12.180] And I was elected to straighten that out and I'm doing that.
+- [14:16.850] But we have activist judges that don't want murderers
+- [14:20.270] to be sent out of our country.
+- [14:21.990] They don't want killers and drug dealers,
+- [14:24.410] and drug lords, and people from mental institutions.
+- [14:27.760] They want them to stay in our country, I guess.
+- [14:29.850] I don't know, maybe that's the liberal way
+- [14:32.480] or as they call it nowadays, the progressive way.
+- [14:35.790] But I don't think it's the way that our country believes.
+- [14:38.080] And that's why I won in a landslide.
+- [14:40.350] The Press: [inaudible]
+- [14:44.070] Mr. President, you did say
+- [14:45.580] that you are confident these deals will be done,
+- [14:47.440] but you also said that you're in no rush.
+- [14:49.140] Americans are seeing prices rise.
+- [14:50.800] They're seeing it on their bills.
+- [14:52.200] How long can they expect that pain to last?
+- [14:55.930] President Trump: So they've already seen it get much better,
+- [14:59.730] because if you were truthful, which you're not,
+- [15:02.130] I know you very well,
+- [15:04.710] you have gasoline that hit a $1.98 yesterday
+- [15:08.970] in a couple of states. You have gasoline's way down.
+- [15:11.980] The price of oil has dropped substantially.
+- [15:16.000] The price of groceries are substantially down.
+- [15:20.840] The price of eggs, when I came in,
+- [15:22.870] they hit me with eggs. I just got there.
+- [15:25.520] I was here for one week and they started screaming at me,
+- [15:27.850] "Eggs have gone through the roof."
+- [15:29.440] I said, "I just got here."
+- [15:31.230] I was there for seven days.
+- [15:32.480] And I hear that eggs have gone through the roof
+- [15:35.060] before I got there. And they were screaming at me,
+- [15:37.770] the press, the fake news like you, you're fake.
+- [15:40.680] And the fake news is screaming at me about eggs.
+- [15:44.370] I said, "I've only been here, this is my seventh day."
+- [15:47.830] And they were right.
+- [15:49.040] They went up 87% and you couldn't get them.
+- [15:51.520] They said, "You won't have eggs for Easter."
+- [15:53.640] Which is coming up. Happy Easter, everybody.
+- [15:56.200] "You won't have eggs for Easter."
+- [15:58.370] And we did an unbelievable job,
+- [15:59.860] and now eggs are all over the place
+- [16:01.880] and the price went down 92%.
+- [16:04.970] And our Commissioner of Agriculture, Brooke,
+- [16:08.460] has done a fantastic job, really done a fantastic job.
+- [16:12.880] So prices haven't gone up.
+- [16:14.180] The only thing that's gone up actually is interest rates,
+- [16:17.460] because we have a Federal Reserve Chairman
+- [16:19.530] that is playing politics.
+- [16:22.590] Somebody that I've never been very fond of actually.
+- [16:25.710] But he's playing politics.
+- [16:28.260] Interest rates should be down now.
+- [16:29.830] They should be coming down.
+- [16:31.920] In Europe, as you know, they reduced them,
+- [16:34.700] I guess seven times.
+- [16:35.900] It looks like they're going to reduce him
+- [16:37.320] again and again and again. But our guy wants to play cute.
+- [16:41.490] But interest rates are pretty much even,
+- [16:45.270] maybe they went up just a slight bit.
+- [16:46.820] But that's the only thing.
+- [16:48.110] But that's because of the Federal Reserve,
+- [16:50.880] because they're not very smart people.
+- [16:56.050] Go ahead. Yes sir. Please go ahead, please.
+- [16:58.860] The Press: Do you regret nominating him, Jerome Powell?
+- [17:03.210] President Trump: Look, in the first four years
+- [17:05.450] we had the greatest economy in the history of our country.
+- [17:07.820] Stock market went up 88 points.
+- [17:10.830] I think he's terrible, but I can't complain,
+- [17:13.690] because we had the most successful administration
+- [17:15.940] economically in the history of our country.
+- [17:19.090] I think we're going to do even better this time,
+- [17:21.010] because you will see that the numbers
+- [17:24.020] that we're taking in are astronomical.
+- [17:25.950] We're taking in tremendous amounts of money
+- [17:27.990] with the tariffs.
+- [17:29.390] We were treated very unfairly on trade.
+- [17:32.090] And countries are having a hard time getting used
+- [17:35.650] to the fact that they can't do that to us anymore,
+- [17:37.600] because we have a real president.
+- [17:39.610] We have a president that understands
+- [17:42.170] a what it's all about.
+- [17:43.470] We had presidents that in some cases were smart,
+- [17:47.720] but they didn't understand business
+- [17:49.460] or they didn't like business, or it wasn't like a priority.
+- [17:53.280] And then you had the last administration,
+- [17:55.230] the only thing they were good at was cheating at elections.
+- [17:57.640] That's about all they could do. They couldn't do anything.
+- [17:59.570] They were useless. They were incompetent.
+- [18:01.270] Worst administration in the history of our country,
+- [18:04.610] worse than Jimmy Carter. Jimmy Carter died a happy man.
+- [18:07.950] You know why? Because he wasn't the worst president.
+- [18:11.750] Joe Biden was.
+- [18:13.810] So I think you're going to see some fantastic numbers
+- [18:17.690] when this all happens.
+- [18:18.960] It's happening now. Everybody wants to make a deal,
+- [18:21.580] and if they don't want to make a deal,
+- [18:23.190] we'll make the deal for them,
+- [18:24.800] because that's what's going to happen.
+- [18:26.150] We'll just say, "This is what it is."
+- [18:27.840] But we want to listen to everybody.
+- [18:29.070] [inaudible].
+- [18:30.270] And I think I can say for Scott
+- [18:36.550] and the other people that are working on it,
+- [18:38.940] that we're listening and we're going to be very fair to people.
+- [18:43.490] But we are the one that really sets the deal,
+- [18:46.090] and that's what we'll be doing.
+- [18:50.130] Go ahead, please.
+- [18:51.830] The Press: [inaudible]
+- [18:53.030] Question, today our prime minister-
+- [18:54.490] President Trump: Oh, you have a great
+- [18:55.730] The Press: Italian.
+- [18:56.040] President Trump: … great Prime Minister.
+- [18:57.290] You're so lucky. Yes? The Press: Italiano?
+- [18:58.840] President Trump: Yes, yes.
+- [19:00.070] The Press: Okay.
+- [19:01.310] Prime Minister Meloni: I'm not sure that
+- [19:29.490] would be…
+- [19:32.600] The Press: [foreign language]
+- [20:00.185] Prime Minister Meloni: [foreign language]
+- [20:27.470] President Trump: I mean, it sounded great.
+- [20:29.020] The Press: It was about --
+- [20:30.350] President Trump: It was beautifully presented but…
+- [20:34.030] Maybe I could hear what she said.
+- [20:37.190] Go ahead.
+- [20:38.400] The Press: It was about asking…
+- [20:40.130] President Trump: Hold it, hold it.
+- [20:41.480] The Press: Guys, have some respect, please.
+- [20:43.290] President Trump: Thank you. No, no, wait. Go ahead.
+- [20:46.040] I want to hear what she said. Go ahead.
+- [20:51.690] The Press: Prime Minister Meloni was asked
+- [20:53.610] what she thinks about the fact that President Trump
+- [20:56.550] holds Zelensky responsible for the war in Ukraine,
+- [21:02.070] and Prime Minister Meloni answered,
+- [21:04.540] "Well, actually, we have a…"
+- [21:11.280] No… And also if you talked about the military spending
+- [21:16.710] and the raising of the military spending,
+- [21:19.340] and the first thing Prime Minister Meloni said,
+- [21:23.290] "No, actually, we didn't talk
+- [21:25.690] about the raise and military spending.
+- [21:27.340] Of course, Italy will keep its commitments with 2%
+- [21:31.260] and then we will see,
+- [21:32.510] because we are absolutely aware of the fact
+- [21:34.750] that it's very important to…"
+- [21:38.270] Prime Minister Meloni: Well, I will do that.
+- [21:39.680] Wait, I will do that.
+- [21:40.890] They've been asking if we decided
+- [21:43.540] another defense percentage
+- [21:45.260] about the defense spending, and I said…
+- [21:49.400] Yes, NATO. And I said that Italy is reaching the 2%
+- [21:53.400] as it was already decided.
+- [21:55.890] We didn't speak about specific other percentage,
+- [21:59.930] but we are aware of the fact
+- [22:01.390] that defense is important for the future
+- [22:04.960] and we see what also the work
+- [22:06.740] that we are trying to do at the European level.
+- [22:10.230] President Trump: And I don't hold Zelensky responsible,
+- [22:14.240] but I'm not exactly thrilled with the fact
+- [22:18.110] that that war started.
+- [22:19.390] That was a war that we would've never started
+- [22:21.920] if I were president.
+- [22:23.160] You'd have millions of people living right now that are dead.
+- [22:26.430] You'd have cities that would be open and thriving
+- [22:28.640] and they'd have their beautiful terraces.
+- [22:30.440] Those terraces are the most beautiful in the world,
+- [22:33.390] but they're not with us any longer.
+- [22:34.870] They're smashed to smithereens,
+- [22:37.570] laying on the ground in a million pieces,
+- [22:40.220] getting hit by rockets, bombs, and bullets.
+- [22:43.530] And so I'm not happy with him
+- [22:46.920] and I'm not happy with anybody involved.
+- [22:49.010] I think it's a war. I know it's a war.
+- [22:51.260] It didn't happen for four years.
+- [22:52.670] It was never close to happening. It was never even a thought.
+- [22:56.060] And I spoke to President Putin about it a lot.
+- [22:58.260] It was the apple of his eye, but there's no way
+- [23:00.120] he would've ever gone in if I were president.
+- [23:02.760] Now I'm trying to get him to stop,
+- [23:05.460] because as you know, Russia's a lot bigger.
+- [23:10.070] It's a bigger military force,
+- [23:12.670] and if you're smart, you don't go involved
+- [23:16.320] and get involved in wars that you can blame.
+- [23:20.080] The man that was sitting in this seat, Biden,
+- [23:22.620] he didn't know what the hell was going on.
+- [23:24.420] But I can guarantee you that,
+- [23:26.440] and everybody agrees to it, if I were president,
+- [23:28.580] that war would've never taken place.
+- [23:30.260] I'm not blaming him, but what I am saying is that…
+- [23:34.520] I wouldn't say he's done the greatest job, okay.
+- [23:37.630] I'm not a big fan. I really am not a big fan.
+- [23:46.020] Go ahead. Go ahead.
+- [23:48.240] The Press: [foreign language]
+- [23:55.260] Mr. President, are you sure about the definition
+- [23:59.230] of parasite or European,
+- [24:01.400] would you say again that Europeans are parasites?
+- [24:03.550] Prime Minister Meloni: He never said.
+- [24:04.840] The Press: Would you say again that Europeans are parasites?
+- [24:06.410] Giorgia Meloni (23:09):
+- [24:07.670] Have you ever said that Europeans are parasites?
+- [24:09.100] The Press: Yeah.
+- [24:09.310] Prime Minister Meloni: Have you said it?
+- [24:10.510] President Trump: No, I didn't say.
+- [24:11.750] I don't know what you…
+- [24:12.660] Prime Minister Meloni: He didn't say it.
+- [24:13.880] President Trump: I don't even know what you're talking about.
+- [24:16.000] Go ahead, please. Go ahead.
+- [24:19.810] No, no. Wait, wait. Next, next, next. Go.
+- [24:23.180] The Press: Thank you. Prime Minister Meloni just said,
+- [24:26.110] "We want to make Europe great again
+- [24:28.700] and we want to do it together, together
+- [24:30.250] [inaudible 00:23:34] west."
+- [24:31.580] President Trump: Sure.
+- [24:32.840] The Press: I guess, that's what she said.
+- [24:34.690] Mr. Prime Minister, how are you going to do that?
+- [24:37.350] And are you looking to do it to counter China
+- [24:40.870] who is really trying to gather influence
+- [24:44.690] against the United States with the help of other
+- [24:46.850] [inaudible 00:23:51].
+- [24:48.170] President Trump: I hope that Europe is going
+- [24:49.380] to be great again.
+- [24:50.590] Europe is going through a lot of problems.
+- [24:52.180] And a lot of it's having to do with immigration.
+- [24:55.260] And I'm not a big fan of Europe
+- [24:57.250] and what they've done with immigration at all.
+- [25:00.170] And I think they got to get smart,
+- [25:02.640] because Europe is being very badly hurt
+- [25:05.290] by what they've done with immigration.
+- [25:07.030] Now, I'll say this, that the Prime Minister
+- [25:09.290] has taken a very tough stand on immigration,
+- [25:13.590] and I commented to her before.
+- [25:15.380] I said, "I wish more people would be like you having to do
+- [25:18.100] with that subject, but they're not."
+- [25:21.690] Europe is very important to me.
+- [25:23.510] Europe is very important to the world.
+- [25:25.300] I want Europe to do very well.
+- [25:27.130] I think they have to get a lot smarter on immigration.
+- [25:30.540] Prime Minister Meloni: But we are beginning to do it.
+- [25:32.860] You've all seen now the policies of the European Union
+- [25:36.620] in the last two and a half years have been changing.
+- [25:40.070] Okay, at the beginning, we were talking
+- [25:41.960] only about how we were redistributing
+- [25:45.300] illegal migrants coming to Italy.
+- [25:46.920] Now we are talking mainly about how to stop illegal migration,
+- [25:51.530] work with the countries of origin,
+- [25:53.690] and transit and to return people.
+- [25:56.660] The European Commission just did the new rules
+- [25:59.950] about repatriations and things like that.
+- [26:02.940] So things are changing, thanks also to the example
+- [26:06.860] that Italy brought in lowering the rates of illegal migration.
+- [26:12.170] So we are working now together. So I'm optimistic on that.
+- [26:17.140] President Trump: Go ahead. I hope so.
+- [26:20.090] Go ahead, please. Go ahead.
+- [26:21.460] The Press: I'd like to ask.
+- [26:22.700] I would like to ask President Meloni,
+- [26:26.360] if you have discussed the option of a Starlink
+- [26:29.100] [foreign language] direct communications?
+- [26:31.240] And President Trump,
+- [26:33.330] if you want to see the Google company growing up?
+- [26:36.800] President Trump: The Google what?
+- [26:38.070] The Press: The Google company.
+- [26:39.300] President Trump: What about it? The Press: Google business?
+- [26:40.620] President Trump: Yeah.
+- [26:41.910] The Press: [Inaudible]
+- [26:43.130] President Trump: Go ahead, please.
+- [26:44.420] Prime Minister Meloni: Oh, well, we didn't discuss
+- [26:46.130] about Starlink.
+- [26:48.200] We've been discussing about defense, space,
+- [26:51.380] where we will work together, also in the Mars missions.
+- [26:56.240] So there are big, big things to do together,
+- [26:59.220] but we didn't discuss it.
+- [27:00.550] The Press: [inaudible]
+- [27:01.760] the Prime Minister that changed your mind
+- [27:07.300] potentially about tariffs
+- [27:08.540] and what you plan to do, going forward?
+- [27:09.810] President Trump: No.
+- [27:11.040] The Press: Is there anything the Prime Minister said to you
+- [27:12.580] that changed your perspective?
+- [27:13.870] President Trump: No. Tariffs are making us rich.
+- [27:15.400] We were losing a lot of money under Biden.
+- [27:19.830] Trillions of dollars, trillions on trade.
+- [27:23.550] And now that whole tide has turned.
+- [27:26.520] We're making a lot of money. We're taking in a lot of money.
+- [27:29.230] Don't forget, we're taking in 25% on cars,
+- [27:32.310] 25% on steel, 25% on aluminum, 10% baseline.
+- [27:38.310] We put penalties on China for sending us fentanyl.
+- [27:41.570] We put penalties on Mexico and Canada, 25%,
+- [27:46.100] for allowing fentanyl,
+- [27:49.030] and allowing the borders to be weak.
+- [27:52.340] Now we're taking in billions and billions of dollars
+- [27:54.640] while I sit here and talk to you.
+- [27:57.980] And, we didn't take in anything before,
+- [28:00.750] other than the tariffs that I put on previous to Biden,
+- [28:03.900] which were the tariffs I put on China
+- [28:05.560] where we took in up until this point, probably $700 billion.
+- [28:10.650] They were Trump tariffs. He tried to weaken them.
+- [28:13.950] He did everything he could. He got paid money by China.
+- [28:16.910] The family got paid money, he did.
+- [28:19.750] And so I don't know, maybe that was the reason,
+- [28:22.650] or maybe it wasn't. But, he tried to weaken them,
+- [28:25.310] but he couldn't because it was so much money that his budgets,
+- [28:29.110] they couldn't stand not doing it.
+- [28:31.960] But I took in the, up until this point, my tariffs on China,
+- [28:38.290] nobody ever took in 10 cents from China.
+- [28:40.530] No other President took in 10 cents.
+- [28:42.170] I took in more than $700 billion from China.
+- [28:45.650] So, we're doing very well. Our country's doing very well.
+- [28:50.900] They had a bad report today
+- [28:53.170] from one of the healthcare companies
+- [28:56.110] that had an impact on the stock market.
+- [28:57.970] But, this isn't about that,
+- [28:59.670] this is really, we're building a base.
+- [29:01.500] We're building a country like no other.
+- [29:03.950] And again, I had the strongest economy
+- [29:06.160] in the history of our country by far.
+- [29:08.310] History of any country, probably,
+- [29:09.810] but the history of our country in four years.
+- [29:12.770] And I think this has a chance to be much better.
+- [29:17.680] The Press: Can you just clarify on the mineral field,
+- [29:20.060] will that be signed here
+- [29:21.330] at the White House with Ukraine on Thursday?
+- [29:23.350] Will President Zelenskyy be coming here for that?
+- [29:25.080] President Trump: I don't know exactly,
+- [29:26.280] I'm going to leave that to Scott.
+- [29:27.600] What do you think? Where would it be signed and when?
+- [29:30.420] Mr. Bessent: We're still working on the details,
+- [29:31.870] we're shooting for around April 26th.
+- [29:33.690] The Press: Is there any more detail
+- [29:35.060] that you could tell us about what's in that deal
+- [29:36.510] and how it came together?
+- [29:38.730] Mr. Bessent: It is substantially what we'd agreed on previously,
+- [29:42.460] but the President was here,
+- [29:44.820] we had a memorandum of understanding.
+- [29:47.030] We went straight to the big deal.
+- [29:49.440] And, I think it's an 80-page agreement,
+- [29:52.010] and that's what will be signed.
+- [29:53.670] The Press: President Trump, on rate cuts.
+- [29:57.960] Can he clarify on rate cuts,
+- [29:59.680] do you intend to seek Powell's firing
+- [30:02.390] if he doesn't change his stance on rate cuts,
+- [30:05.260] or is that not on the table or is that-
+- [30:07.020] President Trump: Well, I think he should do the rate cuts
+- [30:08.880] because I think if Europe has done it puts us
+- [30:12.520] at a disadvantage to Europe. He plays right into their hands.
+- [30:16.980] So I think he should do the rate cuts.
+- [30:18.510] We don't have really inflation now.
+- [30:20.630] I just said the major things are going down.
+- [30:23.710] Oil is great. Oil is way ahead of schedule,
+- [30:27.780] and that's because of our policies.
+- [30:29.770] But oil is down into the $60, $65 range now per barrel.
+- [30:36.240] And I told you in certain states
+- [30:38.110] we have less than $2 for gasoline.
+- [30:41.120] And food is down, groceries, as we call it, are down.
+- [30:48.470] Other than interest rates, everything's down.
+- [30:50.250] Interest rates are pretty flat. It's not that they're up,
+- [30:53.840] but we should be better than flat.
+- [30:56.000] If he would lower the interest rate,
+- [30:57.550] I think it would have a good impact on that too.
+- [31:00.100] But, the costs are down. We have very little inflation.
+- [31:03.470] I would say we have essentially no inflation.
+- [31:05.380] Hard to have inflation when oil goes down, and oil goes down.
+- [31:09.330] When Biden came in, oil went through the roof,
+- [31:12.330] that's what caused our problem. That and is very dumb spending.
+- [31:17.010] But, when the oil prices go down,
+- [31:19.460] and they have gone down a lot,
+- [31:20.890] we've gotten it down really good.
+- [31:23.050] We've opened it up and we've gotten them down.
+- [31:25.600] And that means that people driving cars
+- [31:27.830] are going to be paying $2 and $2.50 instead of $4.50.
+- [31:33.020] And even at the end,
+- [31:35.540] they tried just for the purpose of the election to get it down,
+- [31:38.940] but they had really lost that sucker. It was not good.
+- [31:44.190] But if they had won,
+- [31:46.750] oil right now would be at $7 or $8 because of their policy,
+- [31:51.550] and we're going to be at about $2.
+- [31:54.230] Could be even a little bit less than that.
+- [31:56.050] And you're starting to see it.
+- [31:57.580] So, I don't know how you can have inflation
+- [31:59.480] when oil has come down quite a bit.
+- [32:03.350] And, I would say the Fed really owes it
+- [32:07.190] to the American people to get interest rates down.
+- [32:09.440] That's the only thing he's good for.
+- [32:11.570] And he would have an effect on that if he lowered them.
+- [32:14.730] And, I think at some point he will.
+- [32:17.740] He's going to have a lot of political pressure.
+- [32:19.670] They are political, also.
+- [32:22.760] And I think there's a lot of political pressure for him
+- [32:24.830] to lower interest rates. Yeah, go ahead.
+- [32:31.380] The Press: Sorry. President Trump: Please.
+- [32:32.750] The Press: Do you think that Italy
+- [32:33.950] can be your best ally in Europe?
+- [32:35.630] And also, do you ever notice when you walk,
+- [32:37.450] if you step on ants?
+- [32:38.840] President Trump: Only if the Prime Minister remains,
+- [32:41.610] The Prime Minister can it be our best.
+- [32:44.890] She's doing, no, she's doing a great job.
+- [32:46.890] And yeah, certainly one of our great allies,
+- [32:50.210] not just in Europe, anywhere.
+- [32:52.500] She's a fantastic person, and doing a great job,
+- [32:56.250] and our relationship is great.
+- [32:58.960] And we have a lot of Italians in this country, I tell you.
+- [33:02.220] And they like Trump, and they voted for Trump.
+- [33:05.740] Anyway, thank you very much, everybody.

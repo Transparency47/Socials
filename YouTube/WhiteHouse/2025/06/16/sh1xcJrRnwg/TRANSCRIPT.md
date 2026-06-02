@@ -1,0 +1,103 @@
+<!-- source: https://www.youtube.com/watch?v=sh1xcJrRnwg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: sh1xcJrRnwg -->
+<!-- date_published: 2025-06-16T17:12:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:48:22.243604+00:00 -->
+
+# Transcript: President Trump Participates in Session I
+
+- [00:02.240] Okay, good morning everyone. Bonjour.
+- [00:05.920] Welcome to Canonascis uh and the 2025 G7
+- [00:10.719] Leaders Summit. I'm pleased all leaders
+- [00:13.440] are here, honored by your presence. Uh
+- [00:15.839] in my home province, uh Alberta, um in
+- [00:19.439] the heart of the Canadian Rockies, I'd
+- [00:21.359] note that uh we are also meeting on
+- [00:23.519] Treaty 7 territory. These are the
+- [00:25.600] traditional lands of the Blackfoot
+- [00:28.000] Confederacy, the Stony Nakota Nations,
+- [00:30.640] and the Sutina uh First Nations. Um, and
+- [00:34.960] we're gathering at one of those turning
+- [00:37.600] points in history. Uh, I think we all
+- [00:39.760] recognize that uh turning point where
+- [00:41.920] the world looks to uh this table for
+- [00:44.320] leadership. uh 50 years ago uh in France
+- [00:49.200] uh group of leading industrial nations
+- [00:52.719] uh got together uh in the face of global
+- [00:56.719] economic and financial crisis, the end
+- [00:58.559] of the international monetary system as
+- [01:00.480] known um uh stagflation threatening
+- [01:05.040] uh challenges in the Middle East,
+- [01:07.200] geopolitical challenges in the Middle
+- [01:08.720] East. Um and it was the frank and formal
+- [01:11.600] discussions around that table in Rambo
+- [01:14.640] uh that uh led to a long period of
+- [01:17.280] decisions um and prosperity uh at that
+- [01:20.479] time. Uh hello
+- [01:24.400] we are fortunate enough to have here
+- [01:27.439] president mro as the eldest member
+- [01:29.600] representing that state. seven gathered
+- [01:31.840] um to integrate those countries that um
+- [01:35.119] had been uh behind the iron curtain of
+- [01:37.360] uh communism and to accelerate uh the
+- [01:40.479] flow of capital and trade to the
+- [01:42.400] developing world. 23 years ago uh the G7
+- [01:46.640] met here in Cananascus. We were just
+- [01:48.320] talking about it. Um and that was when
+- [01:50.479] the world was still reeling from the
+- [01:52.479] aftershocks of 9/11, another turning
+- [01:54.720] point uh in history. Um and amongst the
+- [01:57.600] many decisions taken were uh control of
+- [02:00.640] the spread of weapons of mass
+- [02:02.479] destruction, a subject that we'll be
+- [02:04.799] coming back to. Um so as I said, we're
+- [02:07.360] meeting at one of those hinge moments,
+- [02:08.959] those turning points in history. Uh the
+- [02:10.959] world's more divided and dangerous. Uh
+- [02:13.280] hostile states and terrorists have
+- [02:15.120] expanded their capabilities and their
+- [02:16.720] reach, uh threatening global security in
+- [02:19.200] our local communities. uh global
+- [02:21.599] commerce, energy systems, even
+- [02:23.120] intelligence uh are all being uh rewired
+- [02:27.200] on as G7 member states, we have the
+- [02:30.720] opportunity to to shape tomorrow's
+- [02:32.879] world, a world that is more safe, more
+- [02:35.440] prosperous, more fair, and more free.
+- [02:39.440] However, the G7 must adapt in order to
+- [02:43.680] fulfill its mission.
+- [02:46.000] a strategy. We have to change uh with
+- [02:48.959] the times uh and to build a better
+- [02:50.800] world. And some of you such as you, Mr.
+- [02:53.040] President, have anticipated these
+- [02:55.040] massive changes and are taking bold uh
+- [02:57.440] measures uh to address them. All of us
+- [03:00.000] around this table are reinforcing our
+- [03:02.480] militaries and security uh services for
+- [03:05.280] the new world. Uh but we all know that
+- [03:07.680] there can be no security without
+- [03:09.360] economic prosperity. Um and no
+- [03:12.560] prosperity without resilience. And in a
+- [03:15.120] world where shocks flow across the
+- [03:16.720] borders, that resilience comes from
+- [03:19.040] cooperation. Cooperation uh around that
+- [03:21.920] starts around this table. Uh cooperation
+- [03:24.319] that can lead to a new era of
+- [03:26.640] prosperity, energy security and critical
+- [03:29.360] minerals, artificial intelligence,
+- [03:31.200] quantum uh combating human smuggling um
+- [03:34.959] and transnational uh repression. So we
+- [03:37.920] will have open frank discussions over
+- [03:39.680] the course of uh the next two days. Uh
+- [03:42.319] we might not agree on absolutely every
+- [03:44.080] issue uh but where we will cooperate we
+- [03:46.640] will make an enormous difference uh for
+- [03:50.080] our citizens um and for the world um and
+- [03:54.560] bring the next era of prosperity I hope
+- [03:57.760] uh to the benefit of those we serve.
+- [04:02.640] With that being said I would like to
+- [04:04.720] thank the media very much indeed. Some
+- [04:06.560] work to do uh which we'll begin in a
+- [04:08.799] moment. Thank you very much. Thank you
+- [04:10.159] very much.

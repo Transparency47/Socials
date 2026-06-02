@@ -1,0 +1,846 @@
+<!-- source: https://www.youtube.com/watch?v=HxcWFL67nf8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HxcWFL67nf8 -->
+<!-- date_published: 2026-01-15T18:52:30+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:08.373205+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Jan. 15, 2026
+
+- [00:10.390] Karoline Leavitt: Okay, good afternoon, everybody.
+- [00:12.760] A packed room today. Thank you all for coming.
+- [00:15.440] President Trump is making America affordable again
+- [00:18.760] through his proven economic formula of powerful tariffs,
+- [00:22.710] fair trade deals, massive middle class
+- [00:25.490] tax cuts, energy dominance and aggressive deregulation.
+- [00:30.170] The overwhelmingly positive economic data
+- [00:32.950] released this week underscores the significant progress
+- [00:36.500] the President has already delivered.
+- [00:39.020] Tuesday's CPI report marked the latest confirmation
+- [00:42.760] that President Trump has defeated
+- [00:44.800] Joe Biden's inflation crisis.
+- [00:47.180] Since President Trump took office, core
+- [00:49.300] CPI has increased at just a 2.4 percent annualized rate,
+- [00:54.590] substantially lower than the 3.3 percent annual rate
+- [00:58.070] inherited from the Biden administration last January.
+- [01:01.980] Importantly, as inflation cools, American's wages are rising,
+- [01:06.760] giving the American people more purchasing power.
+- [01:10.020] And with what is likely recorded --
+- [01:11.650] or likely going to be a record breaking tax
+- [01:14.510] refund season in the next couple of weeks,
+- [01:17.330] the American people will be reaping
+- [01:19.350] the rewards of the massive tax cuts
+- [01:21.500] that were signed into law by the President.
+- [01:24.670] Thanks to President Trump's signing of no tax on tips,
+- [01:28.020] overtime, Social Security,
+- [01:30.010] boosting the child tax credit and locking in the 2017
+- [01:33.500] Trump tax cuts, independent estimates project
+- [01:36.690] the average American tax filer could expect up
+- [01:40.000] to an extra $1,000 bump to their tax refund next year.
+- [01:44.960] This is going to be a helpful boost
+- [01:47.120] to working families who are making ends meet.
+- [01:50.000] On the energy front,
+- [01:51.210] the national average price for a gallon of regular gas
+- [01:53.880] this week fell to its lowest level in five years
+- [01:57.900] thanks to President Trump's drill baby drill agenda.
+- [02:01.280] According to GasBuddy,
+- [02:02.500] the average price for regular gas on Monday
+- [02:05.220] was below $3.00 per gallon in 43 states,
+- [02:08.660] below $2.75 per gallon in 30 states
+- [02:11.600] and at or below $2.50 per gallon in 17 states.
+- [02:15.530] In fact, gas prices were below $2.00 a gallon at stations
+- [02:19.960] in at least 19 states. Don't forget this was unheard
+- [02:23.560] of just a couple of short years ago.
+- [02:26.300] Overall, drivers are projected to spend $11 billion
+- [02:30.060] less at the gas pump this year than they did last year,
+- [02:34.150] resulting in hundreds of dollars in critical savings
+- [02:37.370] for the average American family.
+- [02:39.590] We're also seeing the housing market rebound as borrowing
+- [02:42.250] costs ease and income growth outpaces home price gains.
+- [02:46.590] According to a new report also released this week
+- [02:49.980] from the National Association of Realtors,
+- [02:52.070] existing home sales in December rose
+- [02:54.810] to their fastest pace in three years.
+- [02:57.590] To further improve housing affordability,
+- [02:59.910] President Trump has recently announced
+- [03:01.710] and directed Fannie and Freddie
+- [03:03.380] to purchase $200 billion worth of mortgage bonds.
+- [03:07.580] As a result of these actions,
+- [03:09.190] mortgage rates have fallen to their lowest level in years.
+- [03:12.720] As of last Friday, rates for the average 30 year
+- [03:15.180] mortgage are down more than one full percentage point.
+- [03:18.560] Because of these significant declines,
+- [03:20.250] monthly housing payments
+- [03:21.510] are now at their lowest level in two years,
+- [03:24.480] and we expect this decrease to continue.
+- [03:27.030] As someone who was enormously successful in real estate,
+- [03:30.170] President Trump understands that owning a home
+- [03:33.030] is about more than just having a physical asset.
+- [03:36.070] It's about empowering young people
+- [03:37.820] to stake their claim in the American dream.
+- [03:40.480] It's about giving newlyweds a place
+- [03:42.250] to make their own and start a family.
+- [03:44.490] It's about promoting the spirit of hard work, determination
+- [03:47.940] and, yes, the rugged individualism
+- [03:50.430] that has made America
+- [03:52.220] the greatest country in the history of the world.
+- [03:55.210] President Trump knows America is strongest
+- [03:57.380] when it's a nation of owners, not renters,
+- [04:00.020] and he is determined to unlock that opportunity
+- [04:02.570] for as many Americans as possible.
+- [04:05.030] That's why he will outline additional housing initiatives
+- [04:07.520] during his major speech in Davos next week.
+- [04:10.420] And we look forward to seeing many of you there.
+- [04:12.770] Finally, this morning President Trump unveiled
+- [04:15.150] a health care plan for America
+- [04:16.800] called the great health care plan in a video message
+- [04:20.060] detailing his solutions to lower costs for all Americans
+- [04:23.620] and significantly improve our health care system.
+- [04:26.920] The great health care plan will accomplish this
+- [04:29.320] through four common sense pillars.
+- [04:31.850] Number one, permanently lowering prescription drug prices.
+- [04:36.180] Congress can get this done by codifying
+- [04:38.350] President Trump's historic most favored nation
+- [04:41.040] initiatives into law to guarantee Americans
+- [04:43.820] the same low prices for prescription drugs
+- [04:46.650] that people in other countries around the world pay;
+- [04:49.890] additionally, by increasing consumer choice
+- [04:52.300] by making more verified safe pharmaceutical drugs
+- [04:55.630] available for over-the-counter purchases.
+- [04:58.750] Number two, the great health care plan will stop
+- [05:01.410] sending big insurance companies billions in extra taxpayer
+- [05:05.040] funded subsidy payments
+- [05:06.330] and instead send that money directly to eligible Americans
+- [05:10.080] to allow them to buy the health insurance of their choice;
+- [05:13.440] additionally, by funding a cost sharing reduction program
+- [05:16.350] for health care plans
+- [05:17.610] and ending kickbacks from pharmacy benefit managers
+- [05:20.670] to large brokerage middlemen.
+- [05:23.230] Number three, the great health care plan
+- [05:25.480] will maximize price transparency
+- [05:27.820] by requiring any health care provider or insurer
+- [05:31.100] who accepts either Medicare or Medicaid
+- [05:33.790] to publicly and prominently post their pricing and fees
+- [05:37.640] to avoid surprise medical bills.
+- [05:39.830] This is an incredibly popular policy
+- [05:42.230] that has been bipartisan for many years,
+- [05:44.020] and President Trump is officially and firmly
+- [05:46.010] calling on Congress to get it done.
+- [05:48.340] And number four, hold big insurance companies accountable
+- [05:51.890] by requiring them to publish rate and coverage comparisons
+- [05:55.240] up front on their websites in plain English
+- [05:58.350] so consumers and everyday Americans
+- [06:00.430] can make the best purchasing decisions for them
+- [06:03.640] and their families. These are common sense actions
+- [06:06.370] that make up President Trump's great health care plan,
+- [06:09.060] and they represent the most comprehensive and bold agenda
+- [06:12.290] to lower health care costs to have ever been
+- [06:14.800] considered by the federal government.
+- [06:16.960] Congress should immediately take up President Trump's plan
+- [06:20.140] and pass it into law. For Americans watching at home,
+- [06:23.480] you can visit greathealthcare.gov
+- [06:26.020] right now for more information on the great healthcare plan.
+- [06:29.860] And with that, we will open it up to questions.
+- [06:32.180] In our new media seat today,
+- [06:33.440] we have a familiar face, Riley Gaines.
+- [06:35.880] I'm surprised it took us a year to get you here,
+- [06:37.620] but I'm very happy to see you. I know you have a new podcast,
+- [06:40.600] The Riley Gaines Show. And so, thank you.
+- [06:42.650] And you brought a beautiful baby and your lovely husband too.
+- [06:45.220] So, thank you so much for joining.
+- [06:47.020] And why don't you kick us off?
+- [06:48.430] The Press: Absolutely. Well, thank you.
+- [06:50.270] First and foremost, congratulations to you.
+- [06:53.010] Being a girl mom will change your life
+- [06:55.180] in the best way possible,
+- [06:56.430] so excited you get to shop all the pink
+- [06:58.030] and the frilly and the bows. I was in Washington DC
+- [07:01.820] earlier this week for the Supreme Court case.
+- [07:04.900] There were two arguments that were heard surrounding sex
+- [07:08.670] based rights
+- [07:09.980] and if it's constitutional for states to pass laws
+- [07:13.020] that ultimately protect those rights for women.
+- [07:15.600] If the Supreme Court rules as anticipated in favor
+- [07:18.960] of maintaining these sex-based rights,
+- [07:21.220] is the administration prepared to take action
+- [07:23.330] against the states --
+- [07:24.630] I believe at this point it's 23 states
+- [07:26.860] that don't have those protections for women.
+- [07:29.270] Karoline Leavitt: Absolutely. And as you know, Riley,
+- [07:31.750] the administration already has done so.
+- [07:33.800] We've taken action in a number of fronts
+- [07:35.700] against these states who are failing to uphold
+- [07:38.530] the President's executive orders and this administration's policy
+- [07:42.310] of simply protecting women in women's sports
+- [07:45.100] and in women's private spaces.
+- [07:47.190] We've gone to the mat with large universities in this country
+- [07:50.540] as well to try to fight for what's fair
+- [07:52.560] and what's just for women and girls across the country
+- [07:55.210] so I know you were at the arguments.
+- [07:57.120] I listened to them myself, as a woman
+- [07:58.860] and as a former athlete.
+- [08:00.360] And I think the President speaks on common sense on this issue,
+- [08:04.150] that women's sports and private spaces should be protected
+- [08:08.170] and that there are two genders, there are two sexes.
+- [08:10.820] That is not something we should be afraid
+- [08:12.390] to say in this country. And I think, frankly,
+- [08:14.570] it was quite alarming to not only hear a couple of
+- [08:17.160] Justices gravel over that basic fundamental biological fact,
+- [08:21.890] that men and women are different but inherently equal.
+- [08:24.320] But we are certainly different and women deserve such rights.
+- [08:27.160] We hope and expect
+- [08:28.570] that the Supreme Court will rule in the right way on this matter.
+- [08:31.570] Thank you. Gabe.
+- [08:32.890] The Press: Karoline, thank you very much.
+- [08:34.150] A lot to talk about.
+- [08:35.400] Karoline Leavitt: Sure.
+- [08:37.000] Isn't there always a lot to talk about?
+- [08:38.470] The Press: Always a lot to talk about.
+- [08:39.680] What can you share about the President's meeting
+- [08:41.390] with Maria Corina Machado? Is it underway?
+- [08:44.590] Karoline Leavitt: I can.
+- [08:45.790] The Press: What can you share about that?
+- [08:47.060] And then also, the President said yesterday
+- [08:48.550] that Delcy Rodriguez was, quote, "a terrific person".
+- [08:51.520] Does the President trust the remaining members
+- [08:54.600] of the Maduro regime?
+- [08:55.960] Karoline Leavitt: I will say, to your first question,
+- [08:58.050] the meeting was about to begin as
+- [08:59.860] I was stepping out of the Oval Office moments ago.
+- [09:02.000] So my understanding is that it's underway right now.
+- [09:04.800] I know the President was looking forward to this meeting
+- [09:06.750] and he was expecting it to be a good
+- [09:08.930] and positive discussion with Ms. Machado,
+- [09:11.280] who is really a remarkable and brave voice
+- [09:14.070] for many of the people of Venezuela.
+- [09:15.930] So the President looks forward to, obviously, talking to her
+- [09:18.980] about the realities on the ground in the country
+- [09:21.550] and what is taking place. As for Ms. Rodriguez,
+- [09:24.350] the President did speak with her directly this week, as you know.
+- [09:27.160] He revealed that to all of you yesterday.
+- [09:29.430] And Secretary Rubio and the administration
+- [09:31.440] have been in constant communication with Ms. Rodriguez
+- [09:35.370] and other members of the interim government in Venezuela.
+- [09:38.960] They have been extremely cooperative.
+- [09:41.710] They have thus far met all of the demands
+- [09:43.960] and requests of the United States and of the President.
+- [09:47.080] And I think you have all seen that play out.
+- [09:49.010] We obviously had a $500 million energy deal
+- [09:52.210] that was struck in large part
+- [09:53.480] because of the cooperation from Ms. Rodriguez.
+- [09:56.110] Venezuela and Ms. Rodriguez have also confirmed
+- [09:59.870] that they will be releasing political prisoners
+- [10:01.600] from Venezuela.
+- [10:02.820] There were five Americans
+- [10:04.180] who were recently released this week as well.
+- [10:05.970] So the President likes what he's seeing
+- [10:08.080] and we'll expect that cooperation to continue.
+- [10:10.480] The Press: And regarding the investigation into the leak
+- [10:13.640] that the President referenced yesterday,
+- [10:16.020] what is the administration's position
+- [10:17.660] on The Washington Post Reporter?
+- [10:19.450] The Post has reported that she was told
+- [10:22.440] that she is not a target of the investigation.
+- [10:24.660] Does the administration believe she did anything wrong?
+- [10:26.930] And then also, what is the administration's position
+- [10:29.630] on the Pentagon Papers case from the 1970s
+- [10:33.440] that affirmed reporters right to publish
+- [10:35.800] classified information under certain circumstances?
+- [10:38.310] Karoline Leavitt: Well, since this is
+- [10:39.520] an active investigation, I don't want to comment on it
+- [10:42.170] much more than what we did yesterday,
+- [10:44.530] to obviously confirm the investigation.
+- [10:46.560] And I can confirm what the attorney general stated
+- [10:49.190] and the President as well, which is that the individual,
+- [10:52.190] unfortunately a contractor at the Pentagon,
+- [10:54.440] chose to unlawfully leak classified
+- [10:57.800] and very serious information
+- [11:00.170] to this Washington Post reporter.
+- [11:02.350] Hence, why the reporter's home was looked into
+- [11:05.940] by the FBI, rightfully so.
+- [11:07.940] And the administration is not going to tolerate leaks,
+- [11:11.520] especially from within the national security apparatus
+- [11:14.200] of the United States government that put our nation's integrity
+- [11:18.130] and our national security at risk, full stop.
+- [11:21.300] The president will not support that.
+- [11:23.230] I know the secretary of war will not support that
+- [11:25.700] and it will not stand.
+- [11:27.010] And legal action will be taken against anyone,
+- [11:29.930] whether it's a member of the press
+- [11:32.000] or whether it's an employee for a federal agency,
+- [11:34.540] who breaks the law. If you break the law
+- [11:37.290] and if you endanger our men and women in uniform,
+- [11:39.910] you are going to be held accountable, period, full stop.
+- [11:43.050] Jackie.
+- [11:44.340] The Press: Does this administration believe
+- [11:46.100] that this reporter, or any reporter,
+- [11:47.950] has a right to publish classified information
+- [11:50.600] under certain circumstances?
+- [11:52.250] Karoline Leavitt: Look, I think that we do not believe
+- [11:55.070] that individuals who have been given the privilege
+- [11:57.820] of holding a top-secret clearance
+- [12:00.020] should be illegally leaking that classified information.
+- [12:02.440] And I know the American people agree with that.
+- [12:04.390] And I think it's a basic tenet of journalistic integrity
+- [12:08.430] not to publish information that could directly endanger
+- [12:12.710] the operational security or the brave men and women
+- [12:15.220] who are serving this country in uniform
+- [12:16.900] and putting themselves in harm's way,
+- [12:18.760] to protect not just the people of this administration,
+- [12:21.590] but all of you in the press
+- [12:22.890] and all of their fellow Americans as well. Jackie.
+- [12:24.960] The Press: Thank you, Karoline.
+- [12:26.190] I wanted to get the White House reaction
+- [12:28.030] to Iranian state TV broadcasting an implicit threat
+- [12:32.140] to the President's life.
+- [12:33.670] It was images of the assassination attempt
+- [12:36.150] in Butler, Pennsylvania,
+- [12:37.620] according to reports, with the message,
+- [12:39.210] this time it will not go wrong.
+- [12:42.090] Karoline Leavitt: I have not seen that,
+- [12:43.310] to be honest with you, Jackie.
+- [12:44.600] We'll take a look and I'll let the President
+- [12:46.590] and his national security team examine
+- [12:48.260] that footage to ensure its legitimacy.
+- [12:50.110] Again, I haven't seen it, so I can't comment on it.
+- [12:52.530] What I will say with respect to Iran
+- [12:55.000] is that the President and his team
+- [12:56.800] have communicated to the Iranian regime that the --
+- [12:59.370] if the killing continues,
+- [13:00.860] there will be grave consequences.
+- [13:02.470] And the President received a message,
+- [13:03.830] as he revealed to all of you and the whole world yesterday,
+- [13:06.780] that the killing and the executions will stop.
+- [13:09.230] And the President understands today
+- [13:10.990] that 800 executions that were scheduled
+- [13:14.510] and supposed to take place yesterday were halted.
+- [13:18.180] And so the President and his team
+- [13:19.680] are closely monitoring this situation
+- [13:22.320] and all options remain on the table for the President.
+- [13:24.210] The Press: (inaudible)
+- [13:25.410] Netanyahu encouraged him against strikes?
+- [13:28.830] Karoline Leavitt: Look, it's true that president
+- [13:30.430] spoke with Prime Minister Netanyahu,
+- [13:31.930] but I would never detail details about their conversation
+- [13:35.440] without giving the expressed approval
+- [13:37.130] by the President himself. Weijia.
+- [13:39.260] The Press: Thank you, Karoline.
+- [13:40.730] Is it still the President's assessment
+- [13:42.830] that it would be very hard for Ms. Machado
+- [13:45.520] to leave Venezuela, because he says
+- [13:47.890] she lacks the respect and support in that country?
+- [13:51.560] And will he raise that with her today?
+- [13:53.490] Karoline Leavitt: I think the President's assessment
+- [13:55.600] that you just pointed out
+- [13:56.860] was based on realities on the ground.
+- [13:58.570] It was a realistic assessment
+- [14:00.920] based on what the President was reading
+- [14:03.920] and hearing from his advisors and national security team.
+- [14:06.850] And at this moment in time,
+- [14:08.150] his opinion on that matter has not changed.
+- [14:10.500] The Press: He has also said that he would like there
+- [14:12.420] to be elections in Venezuela when the time is right.
+- [14:15.080] Karoline Leavitt: That's right.
+- [14:16.330] The Press: Do you have any update on
+- [14:17.530] when that might be?
+- [14:18.770] And is he committed to a transition
+- [14:20.620] to democracy for Venezuela?
+- [14:22.610] Karoline Leavitt: Yes, and he is also committed
+- [14:24.070] to hopefully seeing elections in Venezuela one day,
+- [14:26.560] but I don't have an updated timetable for you today.
+- [14:28.970] Reagan, in the back.
+- [14:30.230] The Press: Thanks, Karoline.
+- [14:31.450] A question for you on Minnesota and then also Venezuela.
+- [14:34.250] Karoline Leavitt: Sure.
+- [14:35.460] The Press: President Trump threatened
+- [14:36.680] invoking the Insurrection Act today
+- [14:38.100] in a Truth Social post.
+- [14:39.510] I'm wondering what his tipping point is,
+- [14:41.120] like what would it take for him to invoke the Insurrection Act?
+- [14:44.180] Karoline Leavitt: Look, that's only a question,
+- [14:45.930] frankly, Reagan, the President can answer.
+- [14:48.200] But the Insurrection Act is a tool
+- [14:49.850] at the President's disposal.
+- [14:51.180] As you know, it has been used sparingly,
+- [14:53.980] but it has been used by previous presidents in American history.
+- [14:57.930] And I think the President's Truth Social
+- [14:59.740] post spoke very loud and clear to Democrats
+- [15:03.020] across this country,
+- [15:04.310] elected officials who are using their platforms
+- [15:08.170] to encourage violence
+- [15:10.420] against federal law enforcement officers,
+- [15:12.200] who are encouraging left-wing agitators
+- [15:16.140] to unlawfully obstruct
+- [15:18.490] legitimate law enforcement operations.
+- [15:21.300] And if you talk to any law enforcement officer,
+- [15:23.970] no matter what level they work at,
+- [15:25.900] they want to be working with their counterparts,
+- [15:28.740] whether that's at the federal level --
+- [15:30.410] or the federal authorities wanting to work
+- [15:32.980] with their counterparts at the state and local level.
+- [15:35.060] And it's truly shameful that now for more than a year,
+- [15:38.970] you've had elected Democrat governors and mayors
+- [15:43.010] who have basically held their state
+- [15:45.200] and local law enforcement hostage and told them,
+- [15:47.410] you cannot cooperate with federal law enforcement.
+- [15:50.160] Why? They cooperated under the Biden administration.
+- [15:53.350] It's because these Democrats are deranged in their hatred
+- [15:56.270] for President Trump and they are holding their state
+- [15:58.880] and local law enforcement hostage as a result.
+- [16:01.110] And these Democrat mayors and governors
+- [16:03.370] are doing this over what, over the --
+- [16:05.810] over the lawful and legitimate law enforcement operations
+- [16:09.410] to remove violent criminals from the streets of Minnesota,
+- [16:13.580] from the streets of California, from the streets of New York
+- [16:16.780] and from the streets of every state.
+- [16:18.600] Across this country. And you don't see these riots
+- [16:23.440] and this vandalism taking place in states like Florida.
+- [16:27.950] Why? Because you have a governor in that state
+- [16:30.010] who has empowered federal and local authorities
+- [16:32.810] to work together and it's despicable.
+- [16:34.700] What we're seeing from these Democrat politicians,
+- [16:37.430] especially in sanctuary states and cities across the country.
+- [16:40.970] Go ahead. John.
+- [16:42.350] The Press: Oh, thank you so much.
+- [16:43.570] Karoline Leavitt: You're welcome.
+- [16:44.830] The Press: My question is, President Trump has talked
+- [16:46.460] twice in recent days, once at the Kennedy Center
+- [16:48.230] and then to Reuters again last night,
+- [16:49.740] about canceling the election. Why is he talking about this?
+- [16:52.990] Karoline Leavitt: I believe you're referring
+- [16:54.300] to the President's interview at Reuters last night.
+- [16:56.920] I was in that interview. It was a closed door interview.
+- [16:58.930] Obviously, there was not audio or video.
+- [17:01.900] The president was simply joking.
+- [17:03.620] He was saying, we're doing such a great job,
+- [17:05.570] we're doing everything the American people thought,
+- [17:07.740] maybe we should just keep rolling,
+- [17:09.090] but he was speaking facetiously.
+- [17:10.610] The Press: And one more on the Labor secretary.
+- [17:13.010] She's under investigation. Has he spoken to her about this?
+- [17:16.030] Karoline Leavitt: I don't know if the President
+- [17:17.260] has spoken directly to the secretary.
+- [17:18.870] If they have, I'm unfamiliar with that conversation,
+- [17:21.070] but I have spoken to the President
+- [17:23.080] about that report regarding the secretary.
+- [17:24.920] He's aware of the internal investigation
+- [17:27.430] and he stands by the secretary
+- [17:28.800] and he thinks that she's doing a tremendous job
+- [17:31.020] at the Department of Labor on behalf of American workers.
+- [17:34.010] PBS, go ahead.
+- [17:35.210] The Press: You were mentioning a moment ago
+- [17:36.520] about working federal, state and local officials in Minneapolis.
+- [17:39.890] Governor Walz's office is saying today
+- [17:41.660] that he's trying to get ahold directly with the President.
+- [17:45.030] Have they spoken?
+- [17:46.310] And if they haven't, why haven't they spoken
+- [17:48.940] if there's a desire from Walz, as they're saying,
+- [17:52.840] to de-escalate what's happening there?
+- [17:54.700] Karoline Leavitt: I'm not sure if that's a genuine offer
+- [17:57.020] to speak with the President.
+- [17:58.400] I was with the President about 30 minutes ago,
+- [18:00.400] and they hadn't spoken at that point.
+- [18:01.960] Look, the President is --
+- [18:03.220] is always willing to answer the phone
+- [18:04.600] when people pick up and call.
+- [18:05.820] When there was another tragic shooting many months ago
+- [18:08.040] and Governor Walz's state,
+- [18:09.300] he spoke directly with the governor.
+- [18:11.060] But I would ask that the governor stops
+- [18:12.850] inciting the harassment and illegal obstruction
+- [18:15.860] of law enforcement in his state.
+- [18:17.930] All ICE and federal law enforcement are trying to do
+- [18:20.980] are remove people like this off of the streets
+- [18:24.530] of Governor Walz's city in Minneapolis
+- [18:26.760] and of his state in Minnesota.
+- [18:28.620] If you look at some of the individuals in this photo,
+- [18:30.820] these are all illegal alien criminals
+- [18:33.640] who came into our country under the previous administration.
+- [18:36.790] This is some of the most disturbing crimes
+- [18:38.640] you will ever read about,
+- [18:39.860] and there's only a few reporters in this room
+- [18:41.740] who will actually talk about these individuals.
+- [18:44.790] This is all ICE is trying to do.
+- [18:46.960] They are trying to remove people like this
+- [18:49.090] from Governor Walz's state.
+- [18:50.380] And so, yes, he should pick up the phone
+- [18:52.300] and he should say that he will cooperate with this president
+- [18:54.860] and with the federal government in making Minnesota safer,
+- [18:57.220] because that's all President Trump
+- [18:58.980] and his administration want to do. Mary?
+- [19:01.020] The Press: Thanks, Karoline.
+- [19:02.290] The president says he wants money
+- [19:03.840] to go directly to Americans
+- [19:05.440] so they can buy their own insurance.
+- [19:07.880] How exactly would this work?
+- [19:09.480] And can the President assure Americans
+- [19:11.460] that this will be enough to cover their health care costs?
+- [19:14.090] Karoline Leavitt: So, this is the second principle
+- [19:16.520] in the President's health care plan,
+- [19:18.260] lowering insurance premiums specifically,
+- [19:21.310] and ensuring that that money is going directly back
+- [19:23.500] to the American people
+- [19:24.740] and cutting the kickbacks that then raise those premiums.
+- [19:27.630] So, this plan, once put into legislative text
+- [19:31.060] and passed by Congress and sent to the President's desk,
+- [19:33.690] will stop sending big insurance companies
+- [19:35.970] billions of extra taxpayer funded subsidy payments,
+- [19:39.340] and instead send that money directly to eligible Americans
+- [19:42.600] to allow them to buy the health insurance
+- [19:44.760] of their choice through --
+- [19:46.100] you may have heard it be referred to
+- [19:47.490] as health savings accounts.
+- [19:49.120] Whether that ends up being the actual name of such accounts,
+- [19:51.110] we'll have to see.
+- [19:52.370] Again, Congress and the White House
+- [19:53.690] are going to work together to put this plan into action.
+- [19:56.280] And then secondly, the great health care plan
+- [19:58.300] will fund a cost sharing reduction program
+- [20:01.010] for health care plans,
+- [20:02.250] which will save taxpayers at least $36 billion
+- [20:05.960] and reduce the most common Obamacare
+- [20:08.230] plan premiums by over 10 percent.
+- [20:10.300] And that's according to the Congressional Budget Office.
+- [20:12.470] The Press: But 20 million Americans in recent weeks
+- [20:14.280] have seen their health care costs soar.
+- [20:16.500] Can he assure them that, if this plan is put in place,
+- [20:19.060] that they will be able to cover those costs?
+- [20:20.960] Karoline Leavitt: If this plan is put in place,
+- [20:23.030] every single American who has health care in the United States
+- [20:26.380] will see lower costs as a result.
+- [20:28.150] They will see more transparency.
+- [20:30.180] All of these proposals that are within the great health care
+- [20:32.620] plan are incredibly popular with the American people.
+- [20:35.900] And they will impact everyone, not just a small fraction
+- [20:39.220] of those who are within the health care marketplace,
+- [20:41.380] but every single American will continue
+- [20:43.450] to see their costs go down.
+- [20:44.840] And I will note that they already are and --
+- [20:46.660] with respect to prescription drug prices when you look
+- [20:49.260] at what the President has done with most favored nations.
+- [20:51.910] You've seen these big pharmaceutical companies
+- [20:54.660] in the Oval Office
+- [20:55.910] saying that this president and his team
+- [20:57.860] were nonstop around the clock pressuring us
+- [21:00.620] and negotiating with us to lower the cost
+- [21:03.080] of prescription drugs for Americans.
+- [21:04.740] And we are already seeing that to the tune, in some cases,
+- [21:07.370] of more than 500 percent.
+- [21:09.360] And that TrumpRx website is something
+- [21:11.250] that the administration will be formally launching very soon
+- [21:14.870] so Americans will have access to those lower costs of drugs.
+- [21:18.570] Josh? The Press: Thank you.
+- [21:19.780] The president has called on credit card companies to lower
+- [21:22.150] or cap rates than 10 percent effective the 20th, next week.
+- [21:26.120] If they don't do that, what's his -- what'll he do?
+- [21:30.510] What's the threat?
+- [21:31.720] Karoline Leavitt: Well, tariffs? No, I'm just kidding.
+- [21:34.480] The president certainly has an expectation, Josh,
+- [21:37.200] that the credit card companies will do this,
+- [21:39.080] just as he did with the pharmaceutical companies,
+- [21:41.460] that they will lower costs for American consumers.
+- [21:44.680] I don't have a specific consequence to outline for you.
+- [21:47.130] But certainly, this is an expectation
+- [21:48.750] and, frankly, a demand that the President has made.
+- [21:51.540] The Press: Can you give us an update on the Fed?
+- [21:54.550] Sorry. There was some reporting
+- [21:56.120] from I think Fox Business that Rick Rieder
+- [21:57.730] had an interview this week scheduled.
+- [22:00.480] The president's indicated he's already made a selection,
+- [22:03.060] or at least some kind -- he's settling on someone.
+- [22:06.770] Where is he in that process,
+- [22:08.100] and when can we expect an announcement?
+- [22:09.390] Is he still doing interviews? Karoline Leavitt: Look,
+- [22:10.740] the President is in the same place,
+- [22:12.980] as you all have been asking about this for many, many weeks.
+- [22:16.400] He's in a decision making phase.
+- [22:18.280] There are a few people who he likes very much for this job,
+- [22:22.490] maybe less than that.
+- [22:23.780] The truth is, like with all decisions,
+- [22:25.490] it's a decision for the President to make.
+- [22:27.470] And he said to Reuters in that interview last night
+- [22:29.690] that he thinks he'll be finally making that decision
+- [22:31.290] in the next couple of weeks.
+- [22:32.490] So, we will see.
+- [22:33.690] The Press: And very quickly, there's been some criticism
+- [22:35.890] from other governments about Grok
+- [22:37.840] and xAI, the Twitter AI bot,
+- [22:40.230] and things it's been doing to manipulate images,
+- [22:42.430] including whether that would violate the Take It Down Act
+- [22:44.990] that the first lady has supported.
+- [22:46.210] We've not heard from this administration on it.
+- [22:48.300] Elon Musk says that they've disabled that,
+- [22:50.020] but I wanted to ask you
+- [22:51.230] whether the administration has a position
+- [22:53.300] and whether that's something that you will be pursuing
+- [22:55.560] or whether the President has talked to Mr. Musk about that.
+- [22:57.610] Karoline Leavitt: Yes.
+- [22:58.840] I will talk to the Office of Science and Technology
+- [23:00.980] and we will get you a firm statement and answer
+- [23:02.850] on exactly where the administration stands.
+- [23:05.090] I don't want to speak on that
+- [23:06.580] without speaking with the experts on it.
+- [23:09.260] Yes.
+- [23:10.530] The Press: Just to follow up on the health care plan,
+- [23:12.750] one of the things in the Affordable Care Act
+- [23:14.330] was coverage of preexisting conditions.
+- [23:16.600] Is there any discussion or inclusion
+- [23:18.800] on that issue in the President's plan?
+- [23:21.080] Karoline Leavitt: The president's plan
+- [23:22.280] that he outlined today
+- [23:23.480] will have no impact on individuals
+- [23:25.150] in this country with preexisting conditions.
+- [23:27.190] Obviously, that's a continued conversation
+- [23:29.010] that the White House will have with Congress,
+- [23:30.660] but that's not the President's intention
+- [23:32.510] with the great health care plan. Go ahead.
+- [23:35.830] The Press: Thanks, Karoline.
+- [23:37.080] Two questions on Minneapolis and --
+- [23:38.280] Karoline Leavitt: And then -- go ahead.
+- [23:39.640] The Press: Thanks. Two questions on Minneapolis.
+- [23:41.030] One, on the ICE agent and the other on the rioting.
+- [23:43.480] I believe last night there were protesters or rioters
+- [23:47.620] that rifled through an FBI car, took weapons.
+- [23:50.470] We had a reporter embedded with ICE
+- [23:52.120] who said that she saw constant harassment all evening.
+- [23:55.670] Can you speak to the rhetoric
+- [23:57.190] we're hearing from Democrat politicians,
+- [23:59.710] whether they are causing violence against ICE,
+- [24:02.040] as well as some of the headlines we've seen
+- [24:03.950] not including the full story?
+- [24:05.150] Karoline Leavitt: Yeah.
+- [24:06.370] I mean, to your first point, I think I've addressed that,
+- [24:09.020] that these Democrat governors and mayors in not just Minnesota
+- [24:12.270] but in states across the country are essentially --
+- [24:15.010] you know, they've referred to ICE agents --
+- [24:16.950] who, again, are brave men and women.
+- [24:18.590] And I would encourage everyone in this room,
+- [24:20.190] and I would encourage Governor Walz and other Democrats
+- [24:22.860] who are demeaning law enforcement,
+- [24:24.660] to sit down and have a cup of coffee
+- [24:26.680] with an ICE agent or a Border Patrol agent.
+- [24:28.900] These are great patriotic men and women who have families,
+- [24:32.910] who put on the uniform every day
+- [24:34.770] and are following our nation's immigration laws
+- [24:37.590] at the direction of their bosses and --
+- [24:40.220] and, again, at the direction of the law.
+- [24:42.160] They are simply trying to enforce the law.
+- [24:44.530] And the Democrat Party has demeaned these individuals.
+- [24:46.930] They -- they've even referred to them as Nazis
+- [24:49.600] and as the Gestapo, and that is absolutely leading
+- [24:52.360] to the violence we're seeing in the streets.
+- [24:54.100] If you look at some of the images
+- [24:55.320] out of Minneapolis last night, look at this vehicle.
+- [24:58.170] Look at what it says. It says F ICE.
+- [25:00.550] You have these individuals who are putting their middle finger,
+- [25:04.200] proudly so, at the camera.
+- [25:05.990] Another ICE individual --
+- [25:07.610] a vehicle that was vandalized last night
+- [25:09.590] by these left wing agitators.
+- [25:11.450] People don't do this without encouragement
+- [25:13.720] from people in power, who make them feel like it's ok.
+- [25:17.120] Here's another one.
+- [25:18.450] And I'm pretty sure this car, you can't see it,
+- [25:20.390] said the best agent is a dead agent,
+- [25:23.050] or something to that effect.
+- [25:24.870] This is despicable rhetoric that we're seeing,
+- [25:27.650] and the media is absolutely complicit in this violence
+- [25:30.360] because, if you look at the headline from CNN,
+- [25:32.660] protests erupt after federal agent shoots man in Minneapolis.
+- [25:36.740] That is not the story. That is not the truth.
+- [25:39.320] If you actually want to know the truth,
+- [25:40.790] you can look at what the Department of Homeland Security
+- [25:42.690] released, which is that this ICE agent was executing
+- [25:46.710] a targeted operation against a Venezuelan
+- [25:49.250] illegal alien who was unlawfully present in the country
+- [25:55.440] and when this ICE agent tried to detain the individual,
+- [25:58.300] three more of his comrades came rushing out of a house
+- [26:02.880] and started ambushing and attacking the ICE agent.
+- [26:05.700] They used a shovel or a broom to smash his face in.
+- [26:09.080] And so, yes, that agent had to use self-defense
+- [26:11.800] and take up his weapon to protect his own life.
+- [26:14.450] That is what's happening on the streets of Minneapolis.
+- [26:16.530] That's what's happening on the streets, unfortunately,
+- [26:18.790] of these Democrat run cities and states,
+- [26:20.660] where you have elected officials
+- [26:22.430] who are encouraging such violence
+- [26:24.770] against our brave men and women in law enforcement.
+- [26:27.290] Andrew?
+- [26:28.530] The Press: Thank you, Karoline. Two questions.
+- [26:30.410] First, to follow up on one of my colleagues
+- [26:32.930] who asked you about the President's interview
+- [26:34.500] with Reuters,
+- [26:35.760] you said that he was joking about canceling the elections,
+- [26:41.040] but Americans for generations have fought and died
+- [26:44.430] for democracy, for this democracy.
+- [26:46.990] Are you saying that the President
+- [26:48.410] finds the idea of canceling elections funny?
+- [26:51.510] Karoline Leavitt: Andrew, were you in the room?
+- [26:53.160] No, you weren't. I was in the room.
+- [26:54.420] I heard the conversation.
+- [26:55.950] And only someone like you would take that
+- [26:57.840] so seriously and pose it -- the question in that way.
+- [26:59.560] The Press: And then second, Karoline --
+- [27:00.770] Karoline Leavitt: Phillip, go ahead.
+- [27:02.010] The Press: Thank you, Karoline. Senator Elizabeth Warren said
+- [27:04.670] that the President called her earlier this week
+- [27:06.820] to discuss caps on credit card interest rates.
+- [27:10.190] I'm curious, would the President work with her
+- [27:13.070] and other Democrats in Congress
+- [27:14.490] on a legislative fix to this issue?
+- [27:16.870] Karoline Leavitt: I think the President would work
+- [27:18.080] in good faith with anyone in Congress
+- [27:20.320] for a good legislative fix
+- [27:21.650] that would benefit the American people.
+- [27:23.330] And that's precisely why he called Senator Warren
+- [27:26.130] earlier this week on that matter.
+- [27:28.380] The Press: Thanks, Karoline.
+- [27:29.900] Earlier, you were just defending ICE agents generally.
+- [27:33.290] And earlier on, Secretary Noem spoke to the media
+- [27:36.310] and she said, among other things,
+- [27:37.900] that they are doing everything correctly.
+- [27:40.980] 32 people died in ICE custody last year.
+- [27:44.230] 170 US citizens were detained by ICE.
+- [27:47.760] And Renee Good was shot in the head
+- [27:49.820] and killed by an ICE agent.
+- [27:52.410] How does that equate to them doing everything correctly.
+- [27:54.860] Karoline Leavitt: Why -- how was Renee Goode
+- [27:56.380] unfortunately and tragically killed?
+- [27:58.170] The Press: Are you asking me my opinion?
+- [27:59.440] Karoline Leavitt: Yeah. Mm-hmm.
+- [28:00.660] The Press: Because an ICE agent acted recklessly
+- [28:02.130] and killed her unjustifiably.
+- [28:03.330] Karoline Leavitt: Oh, okay, so you're a biased reporter
+- [28:04.550] with a left-wing opinion.
+- [28:05.760] The Press: You asked me my opinion.
+- [28:07.030] What do you want me to do?
+- [28:08.240] Karoline Leavitt: Yeah, because you're a left-wing hack.
+- [28:09.570] You're not a reporter.
+- [28:10.810] You're posing in this room as a journalist,
+- [28:12.610] and it's so clear by the premise of your question.
+- [28:15.110] And you and the people in the media
+- [28:17.070] who have such biases but fake like you're a journalist,
+- [28:20.040] you shouldn't even be sitting in that seat.
+- [28:22.110] But you're pretending like you're a journalist,
+- [28:23.820] but you're a left-wing activist.
+- [28:25.330] And the question that you just raised
+- [28:26.820] and your answer proves your bias.
+- [28:29.050] You should be reporting on the facts.
+- [28:31.100] You should be reporting on the cases.
+- [28:32.570] Do you have the numbers of how many American citizens
+- [28:35.290] were killed at the hands of illegal aliens
+- [28:37.150] who ICE is trying to remove from this country?
+- [28:39.090] I bet you don't.
+- [28:40.320] I bet you didn't even read up on those stories.
+- [28:42.360] I bet you never even read about Laken Riley
+- [28:44.380] or Jocelyn Nungaray or all of the innocent Americans
+- [28:47.070] who were killed at the hands of illegal aliens in this country.
+- [28:50.030] And the brave men and women of ICE
+- [28:51.490] are doing everything in their power
+- [28:53.160] to remove those heinous individuals
+- [28:55.680] and make our communities safer.
+- [28:57.320] And shame on people like you in the media
+- [28:59.730] who have a crooked view and have a biased view
+- [29:03.820] and pretend like you're a real, honest journalist.
+- [29:06.970] Kelly?
+- [29:08.380] The Press: Two quick questions on Iran.
+- [29:09.810] I wanted to ask first,
+- [29:11.020] just if you can say how close was the President
+- [29:14.130] to potentially launching strikes last night
+- [29:16.350] and was it the Gulf states that convinced him
+- [29:18.640] not to do that as some in the region there have said?
+- [29:21.010] Karoline Leavitt: Well, look, Kelly,
+- [29:22.220] I know there's been a lot of speculation in the media
+- [29:24.720] about what the President is going to do
+- [29:26.190] at any given moment or any given night.
+- [29:28.890] And I would say, a lot of these stories,
+- [29:30.490] to be honest with you, I've been reading them
+- [29:32.600] and they have been based on anonymous sources
+- [29:34.650] who are pretending or guessing
+- [29:36.260] to know the President's thinking.
+- [29:38.110] The truth is only President Trump knows
+- [29:39.750] what he's going to do
+- [29:40.950] and a very, very small team of advisers
+- [29:43.980] are read into his thinking on that.
+- [29:45.470] And as I just told you, he continues to closely monitor
+- [29:48.480] the situation on the ground in Iran.
+- [29:50.430] And as we saw yesterday, he had heard that the killings
+- [29:53.510] and executions would stop and we have seen 800 people,
+- [29:56.940] their lives have been spared as a result of that.
+- [29:58.830] The President continues to closely monitor,
+- [30:01.010] but also keep all of his options on the table.
+- [30:03.560] Fran.
+- [30:04.920] The Press: Karoline, two separate questions.
+- [30:06.800] On the Machado meeting first, what is it that the President
+- [30:09.710] feels that he needs to hear from her,
+- [30:12.340] or from the opposition party,
+- [30:14.020] that he hadn't heard prior to today,
+- [30:16.360] or he wanted to hear in the meeting,
+- [30:18.420] to be able to convince him to commit
+- [30:20.490] to some sort of a timeline for elections?
+- [30:22.770] Karoline Leavitt: I'm not sure the President
+- [30:24.050] is going into such --
+- [30:25.560] the meeting with expectations like you just laid out, Fran.
+- [30:28.050] I don't think he needs to hear anything from Ms. Machado.
+- [30:31.390] I think, generally, this is a meeting
+- [30:34.010] that the President was willing to take and willing to accept,
+- [30:36.290] to meet Ms. Machado in person
+- [30:38.110] and to just have a frank and positive discussion
+- [30:40.610] about what's taking place in Venezuela.
+- [30:42.140] That's all.
+- [30:43.340] The Press: On the subject of Greenland, Jeff Landry,
+- [30:45.830] the President's special envoy for Greenland
+- [30:47.720] wasn't in the White House meeting yesterday.
+- [30:50.160] Can you say why that was and what exactly the role
+- [30:53.390] he is playing in these conversations
+- [30:55.350] about acquiring Greenland?
+- [30:56.600] Karoline Leavitt: Well, the vice president
+- [30:57.830] and the Secretary of State were present for that meeting.
+- [31:00.590] And the meeting, it was a productive meeting.
+- [31:02.950] It was a good meeting.
+- [31:04.150] And in that meeting, the two sides agreed
+- [31:06.570] to really establish a working group of individuals
+- [31:10.120] who will continue to have technical talks
+- [31:11.810] on the acquisition of Greenland.
+- [31:13.650] Those talks will take place, I'm told,
+- [31:15.380] every two to three weeks.
+- [31:16.660] So this is a conversation the administration
+- [31:19.110] intends to keep having with the Danes
+- [31:21.770] and with the respected delegation from Greenland.
+- [31:24.670] But the President has made his priority quite clear,
+- [31:27.370] he wants the United States to acquire Greenland.
+- [31:29.340] He thinks it's in our best national security to do that.
+- [31:31.890] Dina.
+- [31:33.320] The Press: There have been multiple instances
+- [31:35.050] of American citizens being detained by ICE,
+- [31:38.260] and I'm wondering what the administration
+- [31:40.240] is asking the agency to do
+- [31:41.720] or what steps is the administration asking the agency
+- [31:45.420] to take to ensure that Americans are not wrongly arrested?
+- [31:49.490] Karoline Leavitt: Obviously, ICE is focused
+- [31:51.490] on detaining individuals
+- [31:53.690] who are unlawfully present in the country
+- [31:56.410] and there have been hundreds of thousands of illegal aliens
+- [32:00.230] who have been arrested and detained
+- [32:02.960] and deported from this country by ICE
+- [32:04.670] over the course of the last year.
+- [32:06.530] And that's their intention and that is their goal.
+- [32:09.140] Elizabeth?
+- [32:10.350] The Press: Thank you, Karoline,
+- [32:11.580] what about Greenland reportedly sent troops over there,
+- [32:14.690] does that change at all what the President is doing on this?
+- [32:17.220] And then a second question,
+- [32:18.800] yesterday in a Senate Help hearing,
+- [32:21.360] Senator Josh Hawley repeatedly asked a doctor
+- [32:25.010] if men can get pregnant and she did not directly answer that.
+- [32:27.720] What are your thoughts on that?
+- [32:29.460] Karoline Leavitt: Well, to your first question on Greenland,
+- [32:31.300] I don't think troops in Europe
+- [32:33.130] impact the President's decision-making process
+- [32:35.900] nor does it impact
+- [32:37.600] his goal of the acquisition of Greenland at all.
+- [32:40.490] To your second question, I mean, anyone in their right mind,
+- [32:43.920] with common sense, who's speaking honestly
+- [32:45.820] and candidly will say that men cannot get pregnant
+- [32:48.740] and I think I can attest to that myself.
+- [32:51.640] So thank you all very much.

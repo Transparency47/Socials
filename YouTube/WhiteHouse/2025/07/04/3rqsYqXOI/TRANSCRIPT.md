@@ -1,0 +1,538 @@
+<!-- source: https://www.youtube.com/watch?v=_-3rqsYqXOI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _-3rqsYqXOI -->
+<!-- date_published: 2025-07-04T21:53:27+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:28.801522+00:00 -->
+
+# Transcript: President Trump and the First Lady Participate in the Military Family Picnic, July 04, 2025
+
+- [00:01.730] Announcer: Ladies and gentlemen,
+- [00:03.250] the President of the United States and First Lady Melania Trump.
+- [00:09.170] ♪ (Hail to the Chief) ♪
+- [00:30.830] (audience cheers)
+- [01:28.990] Announcer: Ladies and gentlemen,
+- [01:30.330] Mastery Gunner Seargent, Kevin Veneer,
+- [01:32.460] accompanied by the President's own United States Marine Band
+- [01:36.000] will know honor America
+- [01:37.310] with the singing of our national anthem,
+- [01:39.180] followed by a flyover consisting of a B2 Spirit Bomber
+- [01:42.670] from Whiteman Air Force base escorted by two F35
+- [01:46.200] fighters in honor of all our military personnel
+- [01:48.870] who participated in Operation Midnight Hammer
+- [01:51.370] and who are currently serving both home and abroad
+- [01:53.450] protecting our nation's freedom.
+- [01:58.440] ♪ (Star Spangled Banner) ♪
+- [03:25.330] (cheers and applause)
+- [05:01.720] Announcer: Ladies and gentlemen,
+- [05:03.000] the President of the United States
+- [05:05.040] and First Lady Melania Trump.
+- [05:08.250] (cheers and applause)
+- [05:14.850] The President: Well, thank you very much.
+- [05:16.130] And that is some sight,
+- [05:18.200] especially after what happened just a week ago,
+- [05:21.930] when you look at that big, beautiful plane
+- [05:23.940] and the other ones were something.
+- [05:26.470] It was an incredible mission.
+- [05:29.150] And I think I can say very proudly,
+- [05:32.100] and I don't have to quote the polls,
+- [05:33.660] that our country is more proud right now
+- [05:36.220] than it's been in many, many years.
+- [05:38.630] We have pride. We have dignity.
+- [05:41.050] We have something that's happened miraculously so fast.
+- [05:46.390] You know that our military now is the most sought-after job
+- [05:50.690] there has ever been, being -- serving in our military.
+- [05:53.520] One year ago, people didn't want to join our military.
+- [05:57.250] They didn't want to join our police, our firefighters.
+- [06:00.630] They didn't want to join anything
+- [06:01.930] having to do with our country. And now, as you probably know,
+- [06:05.510] the enlistment is at an all-time record.
+- [06:08.680] We're packed. We're full.
+- [06:13.210] And I just think that's so important
+- [06:15.010] because that was so sad.
+- [06:17.290] One year ago, when I heard those statistics,
+- [06:20.340] we had a different President, but nobody wanted to join.
+- [06:24.310] And now, we're at a record.
+- [06:26.620] And I will say that I just left
+- [06:28.670] NATO, where we had a tremendous experience.
+- [06:31.440] They've agreed to put up over a trillion dollars a year.
+- [06:33.790] They went from less than 2 percent to 5 percent,
+- [06:36.640] and nobody thought that was possible.
+- [06:39.430] And they told me very strongly --
+- [06:41.720] the leaders of a big part of the world,
+- [06:44.440] very respected people all -- they told me that, you know,
+- [06:48.840] one year ago, your country was dead.
+- [06:51.770] And now, you have the hottest country anywhere in the world.
+- [06:55.630] So that's the way it is, and that's the way we like it.
+- [06:58.790] And it's only going to get hotter. I promise you that.
+- [07:02.810] After that spectacular display of American power,
+- [07:05.930] let me just say that God bless the United States military,
+- [07:10.470] and God bless the USA. God bless the USA.
+- [07:16.300] And to all Americans,
+- [07:18.230] I want to wish you a very happy Independence Day.
+- [07:20.770] A very happy Fourth of July.
+- [07:23.740] This is going to be something special.
+- [07:25.400] There's spirit in this country.
+- [07:26.990] We haven't seen anything like it in many, many years --
+- [07:29.730] in decades.
+- [07:31.820] Let me also express our gratitude
+- [07:33.610] to our magnificent First Ladies.
+- [07:35.910] You worked very hard to make this all work.
+- [07:42.340] And we have a fireworks display about 9 o'clock tonight.
+- [07:45.480] I hope you're all going to be around and watch it.
+- [07:47.860] I know our congressmen and our senators
+- [07:49.520] who are standing right here --
+- [07:50.840] so many of them -- they did such a great job.
+- [07:52.760] They're going to be here. I guarantee you.
+- [07:54.760] They're not leaving. They're not leaving.
+- [07:57.980] Thanks as well to the National Park Service,
+- [08:00.820] the USO, and countless friends and distinguished guests.
+- [08:04.050] We have so many people in the audience
+- [08:05.660] that have so much to do with the success of our country.
+- [08:09.130] We've, I think, had probably the most successful
+- [08:12.190] almost six months
+- [08:14.190] as the President and the Presidency.
+- [08:17.580] I think they're saying it was the best six months,
+- [08:19.770] and I know for a fact they're saying the last two weeks
+- [08:22.300] there has never been anything like it as far as winning,
+- [08:25.290] winning, winning.
+- [08:30.220] So, as you know, two weeks ago, our incredible Air Force pilots
+- [08:33.730] conducted one of the most successful military
+- [08:36.150] strikes in all of history -- Operation Midnight Hammer.
+- [08:42.060] And that's exactly what it was. It was a hammer.
+- [08:45.270] This evening, we're honored to be joined by 150 airmen
+- [08:49.730] and their families from Whiteman Air Force Base in Missouri,
+- [08:55.010] home of the B-2 bomber.
+- [09:02.850] And we've kept them a little bit on guard.
+- [09:06.500] We kept them a little bit --
+- [09:07.920] let's be a little bit quiet about it.
+- [09:10.110] But if you want to raise your hand very quickly,
+- [09:12.220] raise your hand, because you people are just incredible.
+- [09:18.480] They don't want to be in disguise, you know.
+- [09:20.410] They say, "We don't have to do that."
+- [09:22.800] They're looking at us like we're a bunch of babies.
+- [09:25.130] "We don't have to be in disguise."
+- [09:27.120] We saw all those hands go up.
+- [09:28.610] Thank you very much. We owe you everything.
+- [09:31.700] Great job. Incredible. Just flawless.
+- [09:34.360] One of the most flawless military campaigns
+- [09:36.960] in the history of our country.
+- [09:39.120] If you remember, years ago,
+- [09:40.890] they had helicopters crashing into each other.
+- [09:43.170] It was a disaster. The hostages in Iraq.
+- [09:46.710] And we had just the opposite. We didn't have any crashes.
+- [09:49.650] We didn't lose any planes. We didn't lose anybody.
+- [09:53.100] Those beautiful planes that you saw were totally stealth.
+- [09:56.620] They flew right over the center of a very hostile country,
+- [10:00.110] and they never even saw it coming.
+- [10:02.370] And then they said, "Skedaddle."
+- [10:04.380] They dropped the bombs. They said, "Skedaddle."
+- [10:07.220] And that big sucker turned over like this on its side
+- [10:10.210] and it got out of there.
+- [10:11.570] Well, I'll tell you what.
+- [10:12.900] I don't know how they do that, but they can do it.
+- [10:15.470] I asked our great General Caine, how do they do that?
+- [10:20.750] Do they really love doing that?
+- [10:22.110] Look at them. They're all laughing.
+- [10:23.860] And they said, "Do they really like doing it, sir?"
+- [10:26.100] "They can't wait."
+- [10:27.950] Better you than me. That's all I can say.
+- [10:30.730] It was a flawless mission.
+- [10:33.020] Every single bomb hit, and it was total obliteration.
+- [10:37.220] Total obliteration.
+- [10:38.510] And now even the fake news is admitting that.
+- [10:41.430] They hated to admit it, but they had no choice.
+- [10:44.790] That was an incredible thing.
+- [10:46.810] And these heroic pilots showed our enemies
+- [10:49.970] what it means to fly, fight,
+- [10:52.070] and win, to every service member who supported that mission.
+- [10:56.000] And we have many of them here. We've made you very -- really,
+- [11:01.100] we've made you proud by supporting,
+- [11:03.110] but you've made us even prouder by having the courage
+- [11:06.320] to get in those gorgeous machines
+- [11:08.380] and fly through the roughest airspace anywhere in the world.
+- [11:12.750] And we salute you, and we honor you.
+- [11:15.590] Thank you very much for being here. Thank you.
+- [11:22.370] And we're also honored and delighted to be joined
+- [11:25.810] by hundreds of service members and military families.
+- [11:28.980] Those families are the best we have,
+- [11:31.480] from all across the U.S. Armed Forces, Army,
+- [11:35.380] Navy, Air Force, Space Force. I love the Space Force.
+- [11:38.470] You know why? Because we're the ones that did it.
+- [11:41.740] It turned out to be a very invaluable force, actually.
+- [11:45.310] The Coast Guard and the Marines are incredible people.
+- [11:47.780] On behalf of our entire nation, this Fourth of July,
+- [11:51.200] we thank you for keeping America safe,
+- [11:53.350] strong, sovereign, and free.
+- [11:55.600] Thank you very much for being here.
+- [11:57.250] Great honor. And stick around for the fireworks.
+- [12:02.420] And our country has had so much to celebrate
+- [12:04.860] this Independence Day.
+- [12:06.760] As we enter our 249th year, America is winning, winning,
+- [12:12.020] winning like never before.
+- [12:13.610] We're not -- I'll tell you, we're in a category now
+- [12:16.080] that's where we've wanted to be for a long time.
+- [12:19.470] We suffered with four horrible years of embarrassment.
+- [12:24.350] Afghanistan -- maybe the most embarrassing moment
+- [12:26.960] in the history of our country.
+- [12:28.190] We're never going to let a thing like that happen again.
+- [12:31.010] Trillions of dollars are pouring into the United States
+- [12:33.750] for investment purposes. Almost $15 trillion.
+- [12:37.390] There's never been anything like it.
+- [12:39.240] There's never been anything even close.
+- [12:41.560] The stock market is at an all-time high.
+- [12:43.730] Jobs are at an all-time high.
+- [12:46.290] Everything is at an all-time high.
+- [12:48.890] And we're going to keep it that way.
+- [12:50.360] We have the greatest country in the world.
+- [12:51.870] And we're back.
+- [12:53.100] We're back like nobody thought possible this quickly.
+- [12:55.710] I thought it would take maybe a year, maybe two years,
+- [12:58.830] maybe even three.
+- [13:00.840] And we did it in less than six months.
+- [13:03.140] We are back and strong.
+- [13:05.290] We've restored American strength and deterrence
+- [13:08.720] on the world stage. We're respected again.
+- [13:11.420] The world is respecting us again.
+- [13:13.210] When we did NATO, those leaders came up to me and they said,
+- [13:16.640] "You know what? We're going to go to a new level of spending
+- [13:19.720] because you're requesting it, sir."
+- [13:21.990] They didn't talk to you last, President,
+- [13:23.860] like that, I can tell you.
+- [13:25.470] They didn't spend any money. They didn't spend anything.
+- [13:27.890] And in a few moments,
+- [13:29.600] we're going to make official the greatest victory yet.
+- [13:32.440] When I signed the one big, beautiful bill.
+- [13:38.750] And before I start, I want to tell you
+- [13:41.790] that I've never seen people
+- [13:44.700] so happy in our country because of that.
+- [13:47.220] Because so many different groups of people
+- [13:49.260] are being taken care of the military,
+- [13:51.990] civilians of all types, jobs of all types.
+- [13:55.770] We're adding things like the biggest tax
+- [13:58.930] cut in the history of our country,
+- [14:01.450] a child tax credits. So many things are being added
+- [14:05.380] that you we wouldn't even have time
+- [14:06.910] to discuss them when we were doing it.
+- [14:09.790] John Thune and Mike Johnson, right there.
+- [14:12.880] I see Mike. What a job they've done.
+- [14:15.250] What a job they've done.
+- [14:18.610] But, you know, it was supposed to be in three,
+- [14:20.850] four, five, six or seven different bills.
+- [14:24.150] And I was in one of the fake news shows
+- [14:26.340] and I said, let's do it in one beautiful, big, one beautiful.
+- [14:31.700] We want one big, beautiful bill. I said that to this newscaster.
+- [14:36.610] And I think a lot of the congressmen
+- [14:38.030] and senators were watching. And they said,
+- [14:39.720] let's name the bill that one big, beautiful bill.
+- [14:43.110] And that's what we did.
+- [14:44.340] And what we've done is put everything into one bill.
+- [14:48.270] It's never happened before.
+- [14:49.830] It's the biggest bill of its type in history.
+- [14:52.920] We've never had anything like that before.
+- [14:54.580] Nothing like that they thought would be possible to get passed.
+- [14:58.220] And actually, I liked it because we had so much in there
+- [15:01.730] that no matter who you are, there was something in that bill
+- [15:04.940] that would make your congressman or your senator
+- [15:07.620] or your congresswoman,
+- [15:08.820] much more importantly, raise their hand in support.
+- [15:12.340] Right, Lisa? So, that was something.
+- [15:15.930] And it was really something special.
+- [15:18.080] So, the American people gave us a historic mandate in November.
+- [15:22.350] We won everything. We won the swing states.
+- [15:25.440] All seven swing states, we won every one.
+- [15:27.460] That rarely happens. We won the popular vote.
+- [15:31.240] We won the districts, 2,750 to 505.
+- [15:36.890] That's why, when you look at a map,
+- [15:38.230] it's all red, a little blue on each end.
+- [15:40.870] But it's all red.
+- [15:42.520] And, by the way, red means Republican, just in case.
+- [15:47.760] But we made promises, and it's really promises made,
+- [15:52.080] promises kept, and we've kept them.
+- [15:54.280] This is a triumph of democracy on the birthday of democracy.
+- [15:58.620] And I have to say that the people are happy.
+- [16:01.520] They're happy.
+- [16:02.800] And I listened to a broadcast, and I read a couple of articles.
+- [16:06.090] They have the Democrats. They should have voted for it.
+- [16:09.370] They didn't vote for tax cuts.
+- [16:10.850] They didn't vote for taking care of people.
+- [16:13.160] They didn't vote. Not one vote.
+- [16:14.830] And we knew that because their hatred
+- [16:17.090] of either the country or me or both is so great.
+- [16:20.580] They didn't vote at all. And it's terrible.
+- [16:23.090] But I just have to say, they have a routine.
+- [16:26.940] It's terrible, they say. Terrible, terrible.
+- [16:29.170] You saw that guy standing up for hours yesterday.
+- [16:31.470] He didn't know what he was even doing there.
+- [16:33.930] I say, once he's sitting down,
+- [16:35.160] he had a towel, he's wiping his face.
+- [16:37.510] That's not too elegant.
+- [16:39.120] But what is he -- I said, what is he doing for so long?
+- [16:42.690] And he couldn't criticize the bill.
+- [16:44.430] He was criticizing everyone else and everything else.
+- [16:47.180] So they've developed --
+- [16:48.440] and this is according to the news media --
+- [16:51.590] they've developed a standard line,
+- [16:53.220] and we can't let them get away with it.
+- [16:55.020] Oh, it's dangerous.
+- [16:56.310] Oh, everybody is going to die. It's actually just the opposite.
+- [17:00.630] Everybody is going to live. This is just the opposite.
+- [17:03.920] And I just want you to know, if you see anything negative
+- [17:06.310] put out by Democrats, it's all a con job.
+- [17:09.380] And they said -- and they compared it
+- [17:11.210] to just like the con job of Russia,
+- [17:13.500] Russia, Russia, and all of the other things they did.
+- [17:16.960] The 51 intelligence agents said,
+- [17:20.350] and the laptop from hell, it was --
+- [17:23.520] it came from Russia, they said. No, it didn't come --
+- [17:25.580] a lot of things come from Russia.
+- [17:26.880] That didn't come from Russia.
+- [17:28.750] And it was all proven out to be a fake job,
+- [17:30.930] and that's what they're doing with this.
+- [17:32.520] So we just have to look forward, fellas.
+- [17:35.980] Look forward and just say what it is,
+- [17:38.050] because it's the most popular bill
+- [17:40.580] ever signed in the history of our country.
+- [17:43.480] Whether you're military or anybody else,
+- [17:45.780] this is the most single, most popular bill ever signed.
+- [17:51.560] And it includes the largest tax cut in American history,
+- [17:55.140] the largest spending cut -- $1.7 trillion.
+- [17:59.300] And yet, you won't even notice.
+- [18:00.770] It just wastes fraud and abuse in American history.
+- [18:04.420] So you have the biggest tax cut, the biggest spending cut,
+- [18:07.140] the largest border security investment in American history.
+- [18:10.500] We want to have strong borders.
+- [18:12.410] And the only thing is, we want to have great elections, too.
+- [18:15.160] You need strong borders and elections.
+- [18:17.110] And my people have promised me
+- [18:19.220] that we're going to go into elections
+- [18:20.710] and we're going to make sure they're not rigged,
+- [18:22.770] that they're not sullied.
+- [18:24.380] We're going to make sure that the elections
+- [18:26.320] are going to be fair. You need two things.
+- [18:28.130] You need strong borders and you need fair elections.
+- [18:31.110] And we're going to make sure on the elections also.
+- [18:33.180] And our armed forces are one of
+- [18:36.080] the most vital military modernizations of all time.
+- [18:39.240] It will take place.
+- [18:40.730] So we rebuilt our military in our first term,
+- [18:43.830] and now we're going to modernize and remodernize our military,
+- [18:46.980] including building a great Golden Dome all over our land
+- [18:51.360] so that if they get nasty with us,
+- [18:53.810] it's going to be knocked down.
+- [18:55.180] It's going to make any of the Golden Domes --
+- [18:57.090] they call them the Iron Domes.
+- [18:58.430] We're calling ours the Golden Dome
+- [19:00.560] because we did the Iron Domes,
+- [19:02.110] and we do sort of everything, if you want to know the truth.
+- [19:04.900] But this blows it away. We're going to keep you safe.
+- [19:07.640] I want to thank every member of the House and Senate
+- [19:09.960] who worked to get this bill on my desk.
+- [19:12.470] And many of them are here.
+- [19:13.670] And I'm not going to mention all their names
+- [19:15.220] because we'll be standing here, but I have to mention a few.
+- [19:18.600] And especially, I want to thank Vice President
+- [19:21.700] J.D. Vance, who has been fantastic.
+- [19:26.690] Secretary of State Marco Rubio, who has been incredible.
+- [19:32.510] We have somebody that is -- he just -- it was a passion.
+- [19:36.190] I think he actually loved it. It wasn't easy, but he loved it.
+- [19:39.610] Speaker of the House, Mike Johnson, who's right here.
+- [19:43.860] Speaker, thank you very much. What a job.
+- [19:48.310] And he worked so closely with the Senate Majority
+- [19:50.760] Leader, John Thune, who's a fantastic guy.
+- [19:53.830] And those two are a team
+- [19:55.140] that is not going to be beat when you look at them
+- [19:57.430] and you look at their counterparts on the other side,
+- [20:00.190] it's not even close.
+- [20:01.390] I want to thank both of you people
+- [20:02.720] for doing an incredible job.
+- [20:04.140] Thank you very much, John and Mike.
+- [20:07.280] House Majority Leader Steve Scalise, a brave man.
+- [20:10.760] Steve. You know, he suffered a tragedy a number of years ago.
+- [20:15.420] I was at his hospital bedside that night with Melania,
+- [20:18.860] with our First Lady, and he had no chance.
+- [20:21.780] The doctor said he has very little chance.
+- [20:23.560] And you look better today than you did then.
+- [20:26.920] You didn't look particularly good that night, I will say.
+- [20:30.140] But I learned one thing. His beautiful wife loved him.
+- [20:32.380] She was a disaster. Right?
+- [20:33.850] I told him, I said, Steve, I can only tell you one thing.
+- [20:37.770] I was with your family and I was with your wife,
+- [20:39.940] and your wife was devastated. She loves you.
+- [20:43.270] I've seen a lot of wives that, you know, they don't seem to be
+- [20:46.500] so concerned in those situations.
+- [20:48.870] That's the kind of wife you don't want.
+- [20:51.360] But you have a great, beautiful wife
+- [20:53.200] who was really there. And you really have done.
+- [20:55.360] You're a very brave guy. And Mike and John
+- [20:57.900] and everybody that's standing with you knows that.
+- [21:00.660] Thank you very much. I really appreciate it.
+- [21:02.560] House Majority Whip. This is a guy who is great.
+- [21:05.680] When I have a problem, I call him up
+- [21:07.480] and he gets it done. He's a tough cookie.
+- [21:10.070] I don't know why he's not the governor of Minnesota.
+- [21:12.620] He comes from Minnesota. He's like, look, he goes,
+- [21:15.940] no, no, I don't want to run for governor.
+- [21:17.690] You know, you don't come to think of it.
+- [21:19.280] I think that's a good idea. You would win so easily.
+- [21:21.540] The guy is terrible. You would win.
+- [21:24.950] You just have to take a look at that handsome face of yours,
+- [21:27.110] and you'd win.
+- [21:28.340] Tom Emmer, everybody. He did a great job.
+- [21:32.930] I think you should consider that,
+- [21:34.730] although we don't want to lose him, do we?
+- [21:36.700] We don't want to lose him. Stay where you are.
+- [21:38.220] I think stay where you are. What a job you did.
+- [21:40.610] And Senate Majority Whip John Barrasso, who's incredible.
+- [21:45.780] Senate Finance Chairman Mike Crapo.
+- [21:48.400] Thank you, Mike. What a job. What a job.
+- [21:51.390] He knows that tax stuff.
+- [21:53.790] Him and Jason, they really know their stuff.
+- [21:55.910] Senate Budget Committee Chairman Lindsey Graham.
+- [21:59.110] What a good man he is. I see a poll.
+- [22:02.150] He's running, and I see a poll. He's 24 points up.
+- [22:04.840] That's not bad, Lindsey. That's not bad.
+- [22:07.420] Twenty-four points up in the great state of South Carolina.
+- [22:11.230] House Ways and Means Chairman Jason Smith.
+- [22:14.460] What a job. Thank you, Jason. Thank you.
+- [22:17.420] These people are great.
+- [22:18.690] These are great patriots. I have to call them out.
+- [22:20.880] House Budget Committee Chairman Jody Arrington.
+- [22:26.760] Jody, thank you
+- [22:49.300] So, this bill will fuel massive economic growth
+- [22:51.690] and lift up the hardworking citizens
+- [22:53.630] who make this country run --
+- [22:55.650] the factory workers, farmers, mechanics, waiters,
+- [22:58.670] waitresses, police officers, firefighters, coal miners.
+- [23:02.680] Coal is back. Beautiful.
+- [23:04.190] I said you can't use the word coal
+- [23:06.940] unless you precede it by saying clean, beautiful coal.
+- [23:11.470] It's what -- you know, China is right now building
+- [23:13.430] 68 coal-generating plants, and we're putting up wind. Wind.
+- [23:19.790] It doesn't work, I will tell you.
+- [23:21.770] Aside from ruining our fields and our valleys,
+- [23:24.780] and killing all the birds, and having very --
+- [23:27.680] being very weak and very expensive --
+- [23:29.310] all made in China. You know, I noticed something,
+- [23:31.880] that with all of the windmills that China sends us,
+- [23:35.290] where we waste our money because it's the most expensive energy,
+- [23:38.520] I see that --
+- [23:39.740] you know, they make about 95 percent of them,
+- [23:42.310] the wind turbines.
+- [23:43.870] I have never seen a wind farm in China.
+- [23:47.490] Why is that? Somebody check that out.
+- [23:49.300] Tom Emmer, would you please check that out?
+- [23:52.050] But all the coal miners we love and the truck drivers --
+- [23:54.590] in this act,
+- [23:55.840] we have officially made the Trump tax cuts permanent.
+- [23:59.490] That's the largest tax cut in the history of our country,
+- [24:04.170] added to substantial other cuts, which is going to --
+- [24:07.280] you're going to see like a rocket ship.
+- [24:09.090] You know, we're setting all sorts of economic records
+- [24:11.260] right now, and that's before this kicks in.
+- [24:13.530] After this kicks in,
+- [24:14.960] our country is going to be a rocket ship economically.
+- [24:19.180] And we've delivered no tax on tips, no tax on overtime,
+- [24:23.630] and no tax on Social Security for our great seniors.
+- [24:28.710] And that's why, when you hear things like that,
+- [24:30.540] this is the most pop --
+- [24:32.390] it's the biggest bill of its kind ever done, by far.
+- [24:36.700] But it's -- we are going to have a situation.
+- [24:39.670] We are going to have something where people are going
+- [24:41.710] to realize the level of success and popularity of this bill.
+- [24:45.860] And sort of to close it out,
+- [24:48.110] it makes the child tax credit permanent
+- [24:50.700] for 40 million American families.
+- [24:53.180] And to increase the car affordability,
+- [24:55.840] it makes interest on a new car payment.
+- [24:58.300] So this had never happened before.
+- [25:00.330] You buy a car, you borrow money,
+- [25:02.320] you're allowed to deduct for income tax purposes.
+- [25:05.530] Your payment of interest, you're allowed to deduct it.
+- [25:08.360] It's never happened before. So run out and buy a car.
+- [25:11.380] But I have to tell you, it's only good, Mike,
+- [25:14.520] if it's made in America.
+- [25:16.270] If it's made in another country, you don't get it.
+- [25:19.660] And to protect 2 million family farms
+- [25:21.900] and other small businesses, we're eliminating the estate tax
+- [25:26.250] or the death tax. Now, if you want to leave --
+- [25:29.610] if you want to leave your farm or your small business,
+- [25:32.990] but the farms are really --
+- [25:34.190] they have been devastated to your children --
+- [25:36.560] if you love your children --
+- [25:37.900] by the way, if you don't love your children,
+- [25:39.280] don't even listen to what I'm saying.
+- [25:40.590] It doesn't matter.
+- [25:42.220] But if you love -- would you live -- yes,
+- [25:43.910] I think you love your child. This one loves Barron.
+- [25:47.660] So I don't know if we're a small business.
+- [25:49.950] I think we're not. I'm not sure. I'm not sure that we qualify.
+- [25:52.730] I'm sorry, darling.
+- [25:54.460] But, you know, it was devastating.
+- [25:57.730] Farmers had to go out and borrow money.
+- [26:00.580] And, by the way, is that Pam Bondi?
+- [26:02.090] Pam Bondi, raise your hand. Thank you, Pam, for being here.
+- [26:06.040] Attorney General, she's done an incredible job.
+- [26:09.030] So there won't be any -- think of this --
+- [26:11.450] there won't be any death tax.
+- [26:12.980] You're not going to have to go borrow money.
+- [26:14.500] Your parents pass away
+- [26:15.730] and the farm goes into the bank's hands
+- [26:17.490] and gets foreclosed. That's not going to happen.
+- [26:20.060] And with 100 percent expensing for new investments,
+- [26:23.530] we're cutting taxes for every manufacturer
+- [26:25.700] who builds, expands.
+- [26:27.010] And we have expansion at the highest level
+- [26:29.460] that we've ever had.
+- [26:30.840] And we have hundreds of factories,
+- [26:32.460] including car plants and AI.
+- [26:35.390] It's coming into our country at levels that we've never seen.
+- [26:39.240] And to conclude,
+- [26:40.720] not only will we have the strongest economy on Earth,
+- [26:43.760] we're also going to have the strongest borders on Earth.
+- [26:46.380] And last month -- did you see the number?
+- [26:49.250] Zero people crossed our border. Zero illegal people.
+- [26:55.940] And that's after Joe Biden let 21 million people --
+- [26:59.120] many of them people from gangs and prisons and drug lords
+- [27:03.900] and people that were mentally unbalanced.
+- [27:08.310] They let them into our country.
+- [27:09.530] We're getting them out at record numbers.
+- [27:11.640] And we have an obligation to, and we're doing it.
+- [27:13.950] So, as we approach the 250th anniversary
+- [27:16.770] of America's founding,
+- [27:18.060] exactly one year from now, we are creating an economy
+- [27:21.740] that delivers wealth for the middle class,
+- [27:24.630] a border that is sovereign and secure,
+- [27:26.790] and a military that is unmatched,
+- [27:28.770] unequaled anywhere in the world. And you saw that.
+- [27:31.680] And what a beautiful sight that was,
+- [27:33.330] especially after watching what they did just a short while ago.
+- [27:37.270] The golden age of America is upon us.
+- [27:39.880] We are in the golden age.
+- [27:41.720] It's going to be a period of time
+- [27:43.380] the likes of which I don't think
+- [27:44.850] this country has ever experienced before.
+- [27:47.280] We're going to make America great again,
+- [27:49.220] and it's happening very fast. We love you.
+- [27:51.930] We thank you for being here. Enjoy the fireworks tonight.
+- [27:55.200] And, First Lady, I want to thank you.
+- [27:56.650] You have been unbelievable.
+- [27:58.030] It's very -- you think it's easy being First Lady?
+- [28:00.300] It's not. Thank you all very much.
+- [28:03.860] Happy Fourth of July. God bless you all.
+- [28:06.830] Thank you very much, everybody.
+- [28:08.850] (cheers and applause)
+- [28:14.807] ♪ (patriotic music playing) ♪
+- [30:25.763] (applause)
+- [30:45.220] Speaker Johnson: Mr. President, this the gavel we used to enact
+- [30:47.550] the Big, Beautiful Bill and I want you to have this.
+- [30:51.040] (applause)
+- [30:58.545] (gavel pounding)
+- [31:01.050] (applause)
+- [31:10.555] (background conversation)
+- [31:44.610] The President: Thank you very much, everybody.
+- [31:46.070] And I want to thank the people up here.
+- [31:47.880] They're unbelievable people.
+- [31:59.030] Thank you very much everybody. Have a good time.
+- [32:01.160] Happy 4th of July.
+- [32:03.500] (applause)

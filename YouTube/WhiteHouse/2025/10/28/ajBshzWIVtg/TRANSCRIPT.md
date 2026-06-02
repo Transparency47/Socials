@@ -1,0 +1,1099 @@
+<!-- source: https://www.youtube.com/watch?v=ajBshzWIVtg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ajBshzWIVtg -->
+<!-- date_published: 2025-10-28T08:17:10+00:00 -->
+<!-- date_accessed: 2026-06-02T02:42:38.745674+00:00 -->
+
+# Transcript: President Trump Participates in a Troop Visit and Remarks on the USS George Washington
+
+- [00:29.090] Announcer: Ladies and gentlemen,
+- [00:30.350] the President of the United States,
+- [00:32.500] Donald J. Trump.
+- [00:34.140] ♪ ("God bless the USA" by Lee Greenwood) ♪
+- [03:20.030] The President: What a group, what a group, all champions.
+- [03:25.110] (audience chanting "USA")
+- [03:31.790] The President: Well, thank you very much. A big hello.
+- [03:33.930] This is a special group of Patriots, champions, winners.
+- [03:38.110] You are winners, I'd love to have your job.
+- [03:41.630] I'd love to have your job.
+- [03:44.470] And a very special hello to the greatest sailors
+- [03:47.270] anywhere in the seas,
+- [03:48.590] the incredible men and women of the United States Navy.
+- [03:52.320] Very special people, thank you very much.
+- [03:54.750] It's a great honor. Great honor to be here.
+- [03:59.360] But I'm thrilled to be here among thousands of proud
+- [04:02.240] American Patriots aboard the 100,000 tons.
+- [04:06.560] That's a lot of tonnage. Forward deployed,
+- [04:10.730] symbol of American might power and prestige,
+- [04:13.860] the legendary USS George Washington.
+- [04:17.220] This is some ship.
+- [04:18.980] They don't make them this way anymore,
+- [04:20.600] but we're not supposed to say that, but they really don't.
+- [04:24.360] This is great stuff.
+- [04:25.660] This is really an incredible GW, they call it
+- [04:29.390] GW, right?
+- [04:33.970] And we've come this afternoon to celebrate the strength
+- [04:36.970] and the skill and service of everyone on this ship.
+- [04:40.130] So, we're going to all relax. We're going to have a good time.
+- [04:42.420] We're not going anywhere. If you go back to Washington,
+- [04:45.300] it's like two o'clock in the morning.
+- [04:47.490] But I want to just tell you that you are special people,
+- [04:50.070] and we're going to have a little fun.
+- [04:51.740] And I'm going to tell you how great our country is
+- [04:53.640] and how well we're doing. Because a year and a half ago
+- [04:56.420] we had a different country than we do right now.
+- [04:58.400] Now we're the most respected country in the world.
+- [05:00.570] We're the hottest country anywhere in the world,
+- [05:03.300] and it hasn't taken too long. But I had no doubt,
+- [05:07.150] I just didn't know we were going to do it this fast.
+- [05:08.960] We've done it fast because of people like you.
+- [05:10.930] So, I want to thank you very much
+- [05:12.350] and I want to recognize a man that you all know well.
+- [05:15.980] And he's a tough cookie.
+- [05:17.810] Was formerly our Secretary of Defense,
+- [05:20.100] but now he's proudly known as our Secretary of War,
+- [05:24.260] Pete Hegseth.
+- [05:31.320] And you know why I pay this, he gave up a hell of a job.
+- [05:36.160] They were going to pay millions of dollars.
+- [05:38.030] They didn't want him to leave,
+- [05:39.360] that crazy fox didn't want him to leave, but he wanted.
+- [05:43.640] Every time he'd go on that show,
+- [05:45.770] all he wanted to talk about is the military.
+- [05:48.550] And I said, "If I ever do this,
+- [05:50.040] I'm going to bring this guy along with me.
+- [05:51.540] He knew more about it than anybody.
+- [05:53.040] He didn't want to be doing the other stuff."
+- [05:54.780] And he had a chance.
+- [05:56.500] He could have so much money he wouldn't have known.
+- [05:58.750] He didn't want that.
+- [05:59.950] This is what you wanted, Pete. He's so happy now.
+- [06:03.060] Those drug ships aren't coming in anymore.
+- [06:05.010] We can't find a ship.
+- [06:06.680] There's no ships coming in with drugs.
+- [06:08.870] It's like he's been incredible. So thank you very much, Pete.
+- [06:12.750] You gave up a lot. We appreciate it. Thank you.
+- [06:17.230] And unlike past administrations
+- [06:20.520] we will not be politically correct.
+- [06:22.940] You don't mind that, do you?
+- [06:24.500] When it comes to defending the United States,
+- [06:26.700] we're no longer politically correct.
+- [06:29.380] We're going to defend our country any way we have to.
+- [06:32.620] And that's usually not the politically correct way.
+- [06:35.890] From now on, if we're in a war, we're going to win the war.
+- [06:39.400] We're going to win it like nobody ever before.
+- [06:41.700] We'd go in, we'd blast the hell out of countries.
+- [06:44.030] Shouldn't have gone in.
+- [06:45.250] By the way, if you don't go in, that's even better.
+- [06:48.300] We don't have to go in, peace through strength.
+- [06:50.090] But we'd go in, we'd win, and then we'd leave.
+- [06:54.110] They used to say, "To the victor belong to spoils."
+- [06:57.030] Well, we'd be the victor that would leave,
+- [06:58.870] because we had people that didn't know
+- [07:00.380] what the hell they were doing.
+- [07:02.340] But we're also very honored to be joined
+- [07:04.400] by hundreds of our incredible Japanese partners.
+- [07:07.910] And they are incredible. Thank you very much.
+- [07:26.310] This woman. That's right. This woman is a winner.
+- [07:34.420] So, we've become very close friends all of a sudden,
+- [07:37.210] because their stock market today
+- [07:39.730] and our stock market today hit an all time high.
+- [07:45.020] That means we're doing something right.
+- [07:48.130] But the cherished alliance
+- [07:49.760] between the United States and Japan
+- [07:51.700] is one of the most remarkable relationships
+- [07:54.470] in the entire world.
+- [07:55.800] Really, there's never been anything like it.
+- [07:57.390] Born out of the ashes of a terrible war,
+- [08:00.510] our bond has grown over eight decades
+- [08:02.900] into the beautiful friendship that we have.
+- [08:05.330] It's a foundation of peace and security in the Pacific.
+- [08:08.460] You see it?
+- [08:09.690] So, on behalf of all American sailors
+- [08:12.060] stationed in this beautiful country,
+- [08:13.830] let's hear it for our allies
+- [08:15.810] and the Japanese self-defense forces
+- [08:18.650] and all of the Japanese people that we love and respect.
+- [08:22.400] And I have such respect for Japan and the country.
+- [08:25.240] And now I have a really great respect
+- [08:27.360] for the new and incredible prime minister.
+- [08:30.780] And I have to say this,
+- [08:32.340] the first female prime minister in the history of Japan,
+- [08:38.030] Madam Prime Minister, please, say a few words.
+- [08:47.260] Madam Prime Minister: Thank you, Mr. President,
+- [08:49.010] and thank you all.
+- [09:13.080] This year marks the.
+- [09:14.310] U.S. Navy's semi-queen centennial anniversary.
+- [09:18.210] As we celebrate the important milestone,
+- [09:21.190] I'm truly honored to have this opportunity
+- [09:23.880] to deliver remarks with President Trump
+- [09:26.410] aboard the aircraft carrier USS George Washington,
+- [09:29.820] a symbol of protecting freedom and peace in this region.
+- [09:51.030] First and foremost, I would like to express my deep respect
+- [09:55.890] and sincere gratitude to all the men and women in uniform.
+- [10:00.170] From Japan's Self-Defense forces
+- [10:02.590] and the U.S. forces Japan for your dedication
+- [10:06.190] and commitment to safeguard peace
+- [10:08.500] and security of our nation and the region, day and night.
+- [10:40.110] Six years ago, at this same place here in Yokosuka City,
+- [10:45.590] the late Prime Minister Shinzo Abe and President Trump
+- [10:49.190] stood side by side
+- [10:50.970] and demonstrated their resolve that Japan
+- [10:54.360] and the United States would join hands
+- [10:57.090] to ensure peace and security in this region.
+- [11:20.500] Now, as the two Commanders-in-Chief of Japan
+- [11:24.850] and the United States stand together once again,
+- [11:28.640] I have renewed my determination to carry forward that resolve,
+- [11:33.510] and to make the Indo-Pacific free and open
+- [11:37.120] so that it will serve as the foundation of peace
+- [11:40.360] and prosperity for the entire region.
+- [11:55.610] Now we are facing an unprecedented severe
+- [11:59.280] security environment.
+- [12:01.410] Peace cannot be preserved by words alone.
+- [12:05.520] It can be protected only when there is
+- [12:08.350] an unwavering determination and action.
+- [12:46.150] From where we stand,
+- [12:48.170] we can see Maritime Self-Defense Forces Mogami and Maya.
+- [12:53.530] Vessels of Japan's Maritime Self-Defense force
+- [12:56.820] and USS George Washington
+- [12:59.280] have conducted numerous joint exercises.
+- [13:03.010] Just as importantly, there are so many Japanese
+- [13:07.280] and American personnel working for logistics
+- [13:11.090] and maintenance here in Yokosuka.
+- [13:14.120] And there's also a strong sense of bond
+- [13:17.240] with the local community here.
+- [13:20.060] Those are what have been supporting the activities
+- [13:23.040] of the U.S. Navy over the years.
+- [13:25.820] There's no doubt that such multi-layered Japan-
+- [13:30.090] U.S. cooperation is what makes this possible for us
+- [13:34.220] to ensure the credibility of our two nations' deterrence
+- [13:38.560] and response capabilities.
+- [13:53.920] Let me reiterate my unwavering determination here.
+- [13:58.350] Japan is committed to fundamentally reinforce
+- [14:01.950] its defense capabilities, and Japan is ready to contribute
+- [14:06.830] even more proactively to peace and stability of the region.
+- [14:23.050] Through these efforts together with President Trump,
+- [14:27.090] I am determined to elevate the Japan-U. S.
+- [14:30.220] Alliance, which has already become the greatest alliance
+- [14:34.130] in the world to even greater, greater heights.
+- [14:55.190] Japan and the United States will advance together
+- [14:59.370] with our sails raised high across a free and open sea.
+- [15:04.840] And I am very confident that the sea route from Yokosuka
+- [15:08.910] will make our bond even stronger and stronger,
+- [15:12.910] and bring our two nations on the path to a shining future.
+- [15:18.400] Thank you.
+- [15:20.380] (applause)
+- [15:48.110] The President: Thank you very much.
+- [15:49.870] And we will have a long, good relationship,
+- [15:53.210] and we'll have fun doing it. You have to have fun,
+- [15:56.140] although sometimes it's never fun.
+- [15:57.650] She's tough to negotiate with, I want to tell you.
+- [16:01.320] But I'm delighted to report that I've just approved
+- [16:04.020] the first batch of missiles.
+- [16:06.440] You saw a couple of them coming down with me.
+- [16:08.320] I hugged them. We need them. They're the best in the world.
+- [16:11.450] Nobody has them like we have them.
+- [16:13.300] They all want our missiles. That's the problem.
+- [16:15.160] Everybody wants them, but it's the first batch of missiles
+- [16:18.520] to be delivered to the Japanese
+- [16:20.270] Self-Defense Forces for Japan's F-35s,
+- [16:23.900] and they're coming this week, so they're ahead of schedule.
+- [16:26.770] I just want to tell Madam Prime Minister,
+- [16:29.350] they've been waiting for those missiles
+- [16:31.510] and we got them here right away, as soon as I heard about it.
+- [16:33.980] I want to thank Former Senator, a great gentleman, by the way.
+- [16:38.860] He was so popular, but I took him out
+- [16:41.240] and I made him Secretary of State.
+- [16:42.980] I think he was born for it, Marco Rubio.
+- [16:44.970] Thank you very much, Marco. Where are you, Marco?
+- [16:48.750] Great job. Great job. He was born for it.
+- [16:55.660] Ambassador George Glass. Thank you very much, George.
+- [16:59.000] Good job you're doing. Thank you.
+- [17:03.060] And many of our outstanding uniform leaders with us today,
+- [17:06.230] including the head of the Indo-Pacific Command,
+- [17:08.690] Admiral Samuel Paparo. Where is Samuel?
+- [17:11.610] Hello. Good, but he's a good-looking people.
+- [17:14.990] You could make a movie with these guys.
+- [17:17.030] They're like central -- Look at this group of people.
+- [17:20.000] Commander of the U.S. Forces, Japan General Stephen Jost.
+- [17:23.800] Thank you, Stephen. Thank you very much.
+- [17:29.080] The commander of the seventh -- Oh, that's a big deal.
+- [17:33.290] Do you want to switch jobs for one week?
+- [17:35.440] Only for one week. All right.
+- [17:37.370] Seventh Fleet, big stuff, Vice Admiral Fred Kacher.
+- [17:41.150] Fred, thank you very much. Thanks Greg.
+- [17:46.050] And the commander of Carrier Strike Group
+- [17:49.390] Five, Rear Admiral, Eric "Pappy" Anduze.
+- [17:54.510] Hello Pappy. That's great. Good. Thank you very much.
+- [18:00.840] And of course, we can't forget about your command triad
+- [18:03.660] aboard the George Washington. There's nothing like this one.
+- [18:06.870] This is a beauty and I hear your commanding officer's
+- [18:09.920] a big Alabama football fan.
+- [18:11.630] I love Alabama. I love Alabama. Captain Timothy
+- [18:17.670] Waits and let me just say roll tide.
+- [18:20.940] I love Alabama. Roll tide.
+- [18:24.150] Where's Timothy? Where's Timothy?
+- [18:26.000] That was a hell of a game this week.
+- [18:30.320] I don't know how hell you pull that one out.
+- [18:33.610] If you didn't win, I wouldn't have mentioned it.
+- [18:35.220] I would've just introduced you. But you came back from oblivion.
+- [18:40.090] Isn't it nice coming back? Coming back is good.
+- [18:42.780] Thanks as well to your Exo Captain Patrick
+- [18:46.800] Blind. Where is he?
+- [18:48.840] Patrick. Patrick, thank you. Highly respected person.
+- [18:54.820] All of these people are the best.
+- [18:56.230] Look at them.
+- [18:57.430] You look at them, they could have any job they wanted.
+- [19:00.290] They could walk down to Wall Street, make a fortune.
+- [19:02.350] They wouldn't do that. They like what they're doing
+- [19:04.810] and nobody does it better as well as really
+- [19:07.620] one of the most important people on the ship.
+- [19:10.150] Have you ever heard of Command Master Chief
+- [19:12.830] Tony Roberts? Have you ever heard of him?
+- [19:19.500] Wherever you are. Where's Tony? Thank you.
+- [19:25.010] Thank you, Tony. He's a popular guy.
+- [19:28.290] And as many of you know, this month we're celebrating
+- [19:30.570] a truly momentous anniversary,
+- [19:33.270] 250 years of courage and pride, honor and victory
+- [19:36.870] by the United States Navy. 250 years, can you imagine?
+- [19:46.420] And three weeks ago,
+- [19:47.710] Melania and I flew to Naval Station, Norfolk,
+- [19:50.910] I think many of you probably know that,
+- [19:52.910] and witnessed an unforgettable display
+- [19:55.020] of pure American dominance, I'd say.
+- [19:58.420] It was incredible to watch. They gave us some --
+- [20:01.130] Then I said, "Slow it down. It costs a lot of money.
+- [20:03.090] Let's save it. Let's relax a little bit."
+- [20:06.780] They gave us some great display
+- [20:08.520] from the thunderous roar of the guided missile, destroyers.
+- [20:12.970] Never saw anything like it to the spectacular side
+- [20:15.580] of nuclear submarines all over the place,
+- [20:17.640] to the unstoppable force
+- [20:19.080] of another great American aircraft carrier.
+- [20:21.940] One thing was clear that no enemy
+- [20:24.850] will ever even dream of threatening America's Navy.
+- [20:27.770] There's no Navy even close, not even close.
+- [20:31.160] You hear about some of them doing ships,
+- [20:33.490] but nobody can do what we do.
+- [20:35.670] Nobody has what we have and we also have the best equipment
+- [20:39.890] that rides along in those ships.
+- [20:42.170] You see that? Nobody makes equipment like we do.
+- [20:45.240] Nobody makes the ammunition, the weapons,
+- [20:47.880] the missiles, the planes, none of it.
+- [20:49.890] And if they do,
+- [20:51.120] the American sailor stands ready to crush them
+- [20:54.010] and sink them and wreck them and blast them into oblivion.
+- [21:07.510] And that's a terrible statement for me to make.
+- [21:09.590] That's the end of it because everybody said
+- [21:12.070] that I should immediately get the Nobel Peace Award.
+- [21:15.820] With that statement, that takes me out of the running,
+- [21:17.730] but that's the way it is.
+- [21:21.270] United States is blessed with the strongest
+- [21:24.320] and most powerful military in the history of the world.
+- [21:27.020] There's no military like our military, not even close.
+- [21:29.620] Nobody has our weapons and it'll be stronger
+- [21:32.310] and more powerful than ever before very soon.
+- [21:34.520] We just approved the biggest budget in the history,
+- [21:37.340] over a trillion dollars, over a trillion dollars.
+- [21:40.660] We have the best ships, the best airplanes,
+- [21:42.670] the best submarines, the best technology,
+- [21:45.390] but above all, we have America's military, it's the best people.
+- [21:49.240] It's all about the people, ultimately.
+- [21:50.830] You have to work all of that fancy stuff
+- [21:53.270] that we make better than anybody else.
+- [21:55.000] The fact is, we do make best weapons,
+- [21:57.860] but if you don't have the right people to operate those weapons,
+- [22:01.200] they don't mean much.
+- [22:02.580] Despite that, as commander-in-chief,
+- [22:05.200] I never forget that our ultimate strength
+- [22:07.720] does not come from equipment,
+- [22:09.740] it comes from the men and women of the rank and file.
+- [22:13.540] That's true. It comes from you people, incredible people,
+- [22:16.700] good-looking people, too many good-looking people.
+- [22:18.920] I don't like good-looking people.
+- [22:21.100] I never liked good-looking people,
+- [22:22.880] I'll be honest with you.
+- [22:24.710] I've never admitted that before. But see, I'm allowed to --
+- [22:28.590] See, we wanted the Supreme Court to think based on merit.
+- [22:31.670] You know about that, right? Merit.
+- [22:34.140] Everything now in our country is based on merit
+- [22:37.530] and that's why I look at you and I see nothing but merit.
+- [22:41.090] It's great to have a country back
+- [22:42.630] where we can go by merit now, we don't go by anything else
+- [22:46.460] except for talent and work and hard work
+- [22:50.640] and it's such a big win.
+- [22:51.930] That was such one of the most important wins
+- [22:54.040] and the will, patriotism and spirit in your hearts
+- [22:57.520] is our single greatest weapon.
+- [22:59.060] The strength that you have is unbelievable.
+- [23:01.040] That's why as we make a record investment in our military,
+- [23:04.680] we've never spent so much and we've never spent it more wisely
+- [23:07.810] because now we watch it, we spend it properly.
+- [23:11.060] I'm also supporting an across the board pay raise
+- [23:13.790] for every sailor and service member
+- [23:15.470] in the United States Armed forces.
+- [23:27.000] Now, if you don't want it,
+- [23:28.600] you want to give back to your country,
+- [23:30.790] just let us know, we won't give it to you.
+- [23:32.570] Is there anybody in that category?
+- [23:35.980] But now all we really have to do is get the Democrats
+- [23:40.780] to approve it, but they'll come along.
+- [23:43.420] They always do. They always do.
+- [23:46.060] And because they heard that the sailors on the George Washington
+- [23:49.390] took a hit to your family separation pay.
+- [23:53.270] You know what I'm talking about, right?
+- [23:54.620] You took a little hit to be here.
+- [23:57.540] By returning to the port,
+- [23:58.860] you returned early for this event.
+- [24:00.920] I am delighted to announce that as your --
+- [24:03.690] It's not a boss.
+- [24:05.000] I don't feel like your boss, but I guess I am.
+- [24:07.620] At least you'll be happy about this one, my direction,
+- [24:10.220] we're going to make sure that you received the full amount
+- [24:12.830] that you were owed for the deployment.
+- [24:15.330] And we're not going to deduct anything
+- [24:16.930] because you came in to listen to your commander.
+- [24:20.580] I'd like to be an admiral.
+- [24:21.890] I always wanted to be an admiral, to be honest.
+- [24:24.930] Don't tell the people that I love so much.
+- [24:29.670] They sit around the table,
+- [24:30.880] they have all those beautiful stars and stripes.
+- [24:33.360] But I'll tell you what I love, I always love the admirals.
+- [24:36.060] I love those uniforms and I look at these guys.
+- [24:38.770] I don't think I would've done very well
+- [24:40.390] if I had to compete with these people, they're too good.
+- [24:43.080] But I always felt that the Navy
+- [24:45.590] is a very special group of people
+- [24:47.560] and I see it when I see you, I see it.
+- [24:49.520] Over the past 11 months, the spirit of our military
+- [24:52.900] has been soaring like never before you, you know that.
+- [24:55.210] The spirit of our country has been soaring.
+- [24:57.440] After years of recruiting shortages and we had bad ones,
+- [25:01.780] it was embarrassing frankly.
+- [25:03.360] During my campaign, before the election,
+- [25:05.920] November 5th, after that, it all changed.
+- [25:07.990] After we won, it all changed.
+- [25:09.380] And now we have waiting lists with record numbers,
+- [25:13.220] trying to join the U.S. Navy.
+- [25:14.620] In all of the Armed Forces we have literal waiting lists,
+- [25:17.940] and I'm pleased to report that 2025
+- [25:21.120] was the Navy's single best recruiting year
+- [25:24.110] in many generations. That's pretty good, isn't it?
+- [25:37.540] But think of it, it seems like I've been up here so long
+- [25:41.120] and it seems like I've been doing this for a long time
+- [25:43.910] and we had a great first term,
+- [25:47.570] but nothing like what's happening now.
+- [25:50.950] We have the greatest economy in the history of our country.
+- [25:53.420] I rebuilt the military in the first term
+- [25:55.840] and then they gave a lot of it away to Afghanistan,
+- [25:57.950] but it was really just a tiny speck.
+- [25:59.740] But it was the concept of what it was.
+- [26:01.880] But we rebuilt the military
+- [26:04.870] and we did so many things in the first term,
+- [26:07.050] but we're blowing it away right now.
+- [26:09.570] But think of it, just one year ago
+- [26:12.460] I was in the middle of a campaign.
+- [26:14.060] Can you believe that? It doesn't feel that way.
+- [26:16.510] I said, you're right, it's not November 5th yet.
+- [26:19.670] We have another week or so to go.
+- [26:22.290] I was campaigning one year ago
+- [26:24.900] and look at all the things that we've done
+- [26:26.690] since this unbelievable day, November 5th.
+- [26:30.770] That's when it all changed.
+- [26:32.080] When we won on November 5th, it all changed.
+- [26:35.060] And we went from a country that wasn't respected
+- [26:38.300] and a lot of people that had no spirit,
+- [26:40.010] that includes joining the police,
+- [26:41.790] the fire departments, they didn't want to join.
+- [26:44.240] After that, they started joining.
+- [26:46.560] And it seems like 10 years ago, not less than a year.
+- [26:51.190] Think of it, less than a year ago
+- [26:52.710] I was campaigning. We won the second election by a lot,
+- [26:57.070] so we had to just prove it
+- [26:58.380] by winning the third by too big to rig, I called it.
+- [27:01.860] It was too big to rig. And it was an amazing victory.
+- [27:06.530] And thank goodness we won because we were in big trouble.
+- [27:10.860] We were in big, big trouble.
+- [27:12.340] But the new recruits, every sailor aboard this ship
+- [27:15.370] has answered a sacred call of duty to cross any ocean,
+- [27:19.420] fight any battle, and defend America
+- [27:21.470] and its allies with unwavering resolve.
+- [27:26.000] As you know, the George Washington
+- [27:27.770] is the only aircraft carrier on earth
+- [27:30.190] that is permanently stationed overseas. It's permanent.
+- [27:33.670] Now, if you'd like to take a trip back to America --
+- [27:36.770] Let's do it one time. I'll join you.
+- [27:39.020] I'd love to join you. When I landed on this,
+- [27:41.890] it doesn't feel like a ship, it's solid.
+- [27:44.040] This is a solid piece of stuff.
+- [27:47.040] These 4.5 acres of power and steel
+- [27:49.660] are the front line of American freedom in the Pacific.
+- [27:53.020] Every day you're taking risk to keep our country safe
+- [27:56.540] and to defend peace and security
+- [27:58.560] in this incredible part of the world,
+- [28:01.100] working with Japan, working with other nations.
+- [28:04.480] I just left Malaysia.
+- [28:06.790] We stopped a big war with -- You know that.
+- [28:09.960] We stopped eight wars. Can you imagine?
+- [28:11.870] In eight months I stopped eight wars.
+- [28:15.420] I stopped a war month.
+- [28:16.700] Think of that. That's pretty good.
+- [28:19.070] But I just left Malaysia to thank them
+- [28:21.280] because they helped us very much with one of them.
+- [28:24.270] And actually for even a second, they're great people.
+- [28:26.660] And they send their regards.
+- [28:27.980] I spent a day there with the Prime Minister
+- [28:29.930] and we had a good time.
+- [28:31.460] But you carry out your mission bravely.
+- [28:34.100] You carry it out brilliantly and on behalf of all Americans,
+- [28:36.990] I just want to say, and I came over to say it loud and clear,
+- [28:40.300] thank you very much. Thank you. Thank you.
+- [28:46.900] Incredible people. You are incredible people.
+- [28:56.290] They actually have the best location.
+- [28:58.750] Because if they're really good- looking,
+- [29:00.310] they end up in Hollywood. You have a great look,
+- [29:02.770] but you're not going to end in Hollywood.
+- [29:04.390] They can just see the back of your head.
+- [29:06.070] All the media, look at all the fake news back there.
+- [29:11.410] But two years ago, Naval Air Crewman 3rd Class,
+- [29:14.830] James McCall was just a few months
+- [29:17.800] into his first fleet tour with the Golden
+- [29:21.480] Falcons Helicopter Squadron
+- [29:23.840] when he and his crew were called on a search-and-rescue mission
+- [29:27.030] to find three missing navy divers.
+- [29:29.920] Incredible, brave guys the divers.
+- [29:33.330] But they were stranded at sea
+- [29:35.050] and right off the Japanese coast,
+- [29:37.360] they were exhausted and assuming they were going to die.
+- [29:39.880] They assumed they were going to die.
+- [29:42.420] But with unbelievable focus and skill,
+- [29:44.950] Crewman McCall was able to find and help rescue
+- [29:48.480] all three divers in the water below saving his fellow sailors.
+- [29:53.350] And James is with us today as a shipmate on this carrier,
+- [29:56.860] Crewman McCall.
+- [29:58.220] Thank you very much for your incredible bravery
+- [30:01.180] and we salute you. Where is James?
+- [30:03.600] Where are you James? Whoa. Come up James.
+- [30:08.120] Get up here, James. Come here. Come up here.
+- [30:18.140] Look at this guy. He's a good-looking guy.
+- [30:20.820] Get out of here, James, I don't want you up here.
+- [30:22.950] No, come here, James.
+- [30:25.030] James McCall: Nice to meet you.
+- [30:26.390] The President: You want to say something? Come on.
+- [30:37.590] James McCall: I just want to say I appreciate
+- [30:39.450] all my fellow shipmates. What I did back then in Iwakuni,
+- [30:43.610] it was heartbreaking for losing those loved ones down there.
+- [30:47.030] But we brought some back whenever we went down there.
+- [30:50.350] And just God bless America and all my fellow shipmates.
+- [30:54.070] Appreciate it. And stay a bad, Larry.
+- [31:07.250] The President: I was wondering maybe --
+- [31:08.790] He almost stayed up --
+- [31:10.040] He could have been up here for a while.
+- [31:11.570] You did that very well.
+- [31:12.780] He's going to be running for office next week, you watch.
+- [31:16.290] Great job, James. A lot of bravery too.
+- [31:18.230] But as James' story reminds us, the Navy is a family and a team,
+- [31:22.300] and each of you has a vital role to play.
+- [31:25.060] Gathered here this afternoon are some of those whose toil
+- [31:29.280] and sweat gets our magnificent planes in the air
+- [31:32.610] and brings them safely back home.
+- [31:34.370] And we have the shooters and the gear dogs
+- [31:38.160] and the paddles and the white shirts,
+- [31:40.390] and of course the blue shirts, the yellow shirts,
+- [31:43.240] the red shirts on the flight deck,
+- [31:47.560] and all over the hangar bay, I want to thank you all.
+- [31:49.960] Your incredible people. I saw some of you there.
+- [31:53.060] We're rushing to get down here
+- [31:54.420] and they want to take pictures up there.
+- [31:56.460] They're very aggressive people, "Sir, can I have a picture?"
+- [31:59.770] They're -- you're supposed to be standing in attention.
+- [32:01.620] "Sir, could I have a picture, sir?"
+- [32:03.870] Yeah. You know what I'm talking about, right?
+- [32:09.000] Very aggressive, but I think they're great.
+- [32:12.660] We also have a real geniuses. And these people are incredible,
+- [32:18.190] who maintain the largest and most complex machine ever built,
+- [32:22.150] our amazing mechanics and engineers on the --
+- [32:31.150] And I asked you, Captain.
+- [32:32.820] I'm building the aircraft, I'm building a lot of things,
+- [32:35.340] but I said, "Captain, you're going to tell me something.
+- [32:37.960] I know a lot about these ships,
+- [32:39.210] I know a lot about these things building, I want to know,
+- [32:42.310] catapults, which is better, the electric or the steam?"
+- [32:45.090] Audience: Steam.
+- [32:47.070] The President: Okay, ready?
+- [32:48.440] You guys, that's what you do, right?
+- [32:50.100] This is so much better.
+- [32:51.370] They go out hire a consultant for millions of dollars
+- [32:53.780] that was never on an aircraft carrier before,
+- [32:56.710] so they switched to electric.
+- [32:57.980] I disagree with it, but it's all right.
+- [32:59.590] Let me ask you.
+- [33:01.310] We're going to go steam first and then electric.
+- [33:03.380] Catapults, which is better, electric, or steam?
+- [33:11.650] Audience: Steam.
+- [33:15.280] The President: I'm going to put in an order.
+- [33:16.620] Seriously, they're spending billions of dollars
+- [33:19.610] to build stupid electric.
+- [33:22.770] And the problem when it breaks, you have to send up to MIT,
+- [33:25.340] get the most brilliant people in the world, fly them out.
+- [33:27.710] That's ridiculous. The steam, they say they can fix it
+- [33:30.580] with a hammer and a blowtorch,
+- [33:33.820] and it works just as well, if not better.
+- [33:35.630] And I love the sight of that beautiful steam
+- [33:37.610] pouring off that deck.
+- [33:38.890] With the electric, you don't have that.
+- [33:41.240] So we did the Ford in electric,
+- [33:43.030] the cost overruns, everything else,
+- [33:45.160] but I hope it's going to be okay, but I like steam.
+- [33:47.800] We're going to go back to steam.
+- [33:49.420] They changed just for the sake of changing.
+- [33:51.800] I said to the architect,
+- [33:53.130] "Have you ever designed a ship before?
+- [33:54.880] You only did the biggest ship in the world, right, the Ford?
+- [33:59.660] But we're going to go back."
+- [34:01.260] Now, let me ask you the second question,
+- [34:03.750] hydraulic for your elevators, or magnets?
+- [34:07.190] The new thing is magnets. So instead of using hydraulic,
+- [34:11.290] you can be hit by lightning and it's fine.
+- [34:14.430] You take a little glass of water and you drop it on magnets,
+- [34:16.680] I don't know what's going to happen.
+- [34:18.030] So the elevators come up in the new carriers.
+- [34:22.490] I think I'm going to change it, by the way.
+- [34:24.240] They have magnets.
+- [34:26.090] Every tractor has hydraulic, every excavator,
+- [34:30.520] every excavating machine, if any kind has hydraulic,
+- [34:35.170] but somebody decided to use magnets for your --
+- [34:37.770] But maybe they're good.
+- [34:39.200] Which is better, hydraulic, or magnets?
+- [34:47.060] What the hell is wrong with these people?
+- [34:50.030] Can I ask you, the top ranking gentleman right here?
+- [34:53.940] Seriously, I'm putting out an order.
+- [34:55.910] I'm going to sign an executive order.
+- [34:57.360] When we build aircraft carriers, it's steam for the catapults
+- [35:01.510] and it's hydraulic for the elevators.
+- [35:04.330] We'll never have a problem, okay?
+- [35:05.600] Male Speaker: Aye aye, sir.
+- [35:06.830] The President: Do you agree?
+- [35:08.190] He agrees, everybody agrees, but these people in Washington,
+- [35:12.350] all right, we're going to do that.
+- [35:13.820] I'm serious about it. It bothered me so much.
+- [35:16.780] I see the costs come in, they spend 900 --
+- [35:20.520] This is not on my watch.
+- [35:21.760] So if it was on my watch, I would be very quiet about it.
+- [35:24.980] I wouldn't be talking about it. They spent $993 million
+- [35:31.640] on the catapults trying to get them to work,
+- [35:34.860] and they had steam, which works so beautifully
+- [35:37.160] and it has for 50 years, right? So we're going to go back.
+- [35:40.460] Seriously fellas, I want to make that change.
+- [35:42.090] I'm going to do an executive order.
+- [35:43.430] I'm not going to let them continue to do this now.
+- [35:45.830] They're trying to make it work.
+- [35:47.400] They're trying so hard and they have something that's perfect.
+- [35:50.850] So we're going to go back on that and the magnets,
+- [35:53.510] thank you very much.
+- [35:54.790] And, of course, we cannot forget the daredevils
+- [35:57.060] and the pilots of the famed Carrier Air
+- [36:00.260] Wing Five known as Team Badmen. What the hell is that all about?
+- [36:05.170] Who are they? They're bad.
+- [36:08.630] The elite air units aboard
+- [36:10.230] this vessel are storied squadrons like the Royal Maces,
+- [36:15.250] the Diamondback, the Argonauts, the Chippies,
+- [36:21.180] the Titans, the Tiger Tails,
+- [36:25.900] the Shadowhawks and the Saberhawks.
+- [36:31.400] All great brave people. They're all incredible.
+- [36:34.930] You're all incredible people.
+- [36:36.390] Do you know, they say, and I love it, I love aviation.
+- [36:41.510] I actually had a brother who was a pilot.
+- [36:44.130] And see, Biden used to say he was a pilot.
+- [36:46.430] He was a pilot, he was a truck driver,
+- [36:48.150] whatever, whoever walked in. He wasn't a pilot.
+- [36:50.380] He wasn't much of a precedent either,
+- [36:53.030] to be honest with you, that I can tell you.
+- [36:56.340] That we all know.
+- [36:58.040] But they say the hardest thing to do
+- [37:01.120] is landing a plane on an aircraft carrier.
+- [37:03.430] You ever hear that?
+- [37:04.820] And great pilots can do everything.
+- [37:07.030] They're great pilots, but they can't do that.
+- [37:08.520] It's a very special talent.
+- [37:10.540] So the people that do that, that are in this room,
+- [37:14.170] you're a very small group of people.
+- [37:16.590] Tremendously talented pilots cannot do it
+- [37:19.440] for a lot of reasons.
+- [37:20.680] There are a lot of reasons, a lot of it is right up here.
+- [37:23.590] So I have great respect.
+- [37:24.820] The hardest thing you can do is a pilot is land.
+- [37:27.700] This ship is so big,
+- [37:29.750] but when you're up there in the Pacific with the Atlantic
+- [37:32.130] and the waves are crashing and it's getting dark
+- [37:34.310] or it is dark,
+- [37:35.670] which is even worse, getting dark is better.
+- [37:38.770] But when you're up there they say it looks like
+- [37:40.510] a little needle in the ocean.
+- [37:42.720] It's just a very little thing and you're landing on top.
+- [37:46.910] So I have great respect when I see them land.
+- [37:49.660] Three weeks, ago they were landing
+- [37:51.140] and doing it beautifully.
+- [37:52.750] They had very, very, talented people
+- [37:55.370] and nobody embodies skill and nerve and swagger
+- [37:59.100] and the attitude like a US naval aviator,
+- [38:03.380] so I have great respect for you all.
+- [38:04.900] Thank you very much. It's one of the reasons I'm here.
+- [38:10.970] That's why I'm here, not someone else.
+- [38:12.940] I didn't need this.
+- [38:14.990] I didn't need the whole damn job.
+- [38:17.010] I could have been doing. I could've had a nice --
+- [38:18.980] I had such a beautiful life. But you know what?
+- [38:22.960] We're making America greater than ever before
+- [38:25.570] and that's why I'm doing it.
+- [38:26.880] And we are doing numbers that nobody's ever seen.
+- [38:30.650] Nobody ever even thought possibly before.
+- [38:33.010] Think of it, a year ago, we were a dead country.
+- [38:36.040] We're like a dead country
+- [38:37.250] and now we have the hottest country anywhere in the world.
+- [38:40.360] There's nobody even close.
+- [38:41.640] It's pretty amazing, I'll tell you.
+- [38:43.610] None of it would be possible.
+- [38:45.330] All of these things that we're doing,
+- [38:46.970] all of the respect that we have,
+- [38:49.210] it's really because of people like yourself
+- [38:51.330] and the armed forces generally.
+- [38:52.870] It's amazing the job that you all do.
+- [38:56.090] None of it would've been possible.
+- [38:57.900] And all of those important missions in the Navy,
+- [39:01.090] the devoted members of the food service division
+- [39:04.080] serving up to 14,000 meals every single day.
+- [39:08.240] How's the food, good? They say it's good. Is it good?
+- [39:12.390] I hope it's good. It's probably my kind of food.
+- [39:15.510] I like that kind of food,
+- [39:17.700] but they don't get the credit they deserve.
+- [39:19.500] I want to just thank them very much and congratulate,
+- [39:22.270] 14,000 meals.
+- [39:23.650] Let's also hear it for all the sailors
+- [39:26.180] holding the American flag high at CFAY
+- [39:29.720] as well as the crews from the ferocious,
+- [39:32.610] DESRON 15. DESRON 15.
+- [39:40.840] But together, the sailors here today
+- [39:43.000] give your very best to our nation.
+- [39:45.850] And as your Commander-in-Chief, I'm fighting every single day
+- [39:49.560] to ensure that we give you our very best also.
+- [39:52.970] We do. We're giving you everything.
+- [39:54.470] We're giving you more than anybody's ever given.
+- [39:56.340] We're bringing it up
+- [39:57.660] to a standard that nobody's ever seen before.
+- [39:59.880] We're starting to make ships also.
+- [40:01.360] Part of our deal with the trade is we're starting to make ships.
+- [40:04.520] We used to be number one at making ships
+- [40:06.280] and then we lost our way,
+- [40:08.270] but now we're starting to make ships again
+- [40:10.800] and we'll do it very soon.
+- [40:12.590] It's not going to take that long.
+- [40:13.970] But it's a process. It's not like making a bullet.
+- [40:17.860] It's that big long process.
+- [40:19.500] We've got it going though, I think, in the right direction.
+- [40:21.680] I think within a short period of time,
+- [40:24.520] the Philadelphia yards as an example,
+- [40:26.900] is now owned by a group
+- [40:28.690] that's going to be making a lot of ships,
+- [40:30.680] a good group of people.
+- [40:32.300] And we're going to be working also with Japan on making ships.
+- [40:36.020] We're going to make a lot of ships again.
+- [40:37.760] We used to make -- Think of it, we were number one.
+- [40:40.170] And then over the years, they just lost their way.
+- [40:42.070] They started making other things,
+- [40:43.480] they stopped making ships.
+- [40:44.680] We're going to be making ships again.
+- [40:47.040] We've more than, think of this, $17 trillion, trillion with a T,
+- [40:52.210] pouring into the United States of America
+- [40:54.370] from all over the world.
+- [40:55.660] And that's the biggest number in the history of any country.
+- [40:59.750] And this is in eight months, really.
+- [41:03.070] We're here nine, but this is in eight months, over $17 trillion.
+- [41:07.640] As an example, the last administration did less
+- [41:10.620] than a trillion in four years.
+- [41:12.200] We did 17, more than 17 trillion in eight months.
+- [41:15.850] And I think by the time we finish up our first year,
+- [41:18.550] we're going to be over $20
+- [41:19.900] or $21 trillion of money coming into our country.
+- [41:22.940] And I want to thank Japan, because Japan is making
+- [41:25.910] big investments into the United States.
+- [41:27.930] And they're very happy because the stock market
+- [41:29.790] has gone up very nicely. We've made Japan a lot of money.
+- [41:33.400] That's okay, but they're a big investor in our country
+- [41:36.230] and we like that.
+- [41:37.750] But think of those numbers we weren't doing anywhere near.
+- [41:40.790] We were laughed at,
+- [41:42.740] and now they're all saying they've never seen anything
+- [41:46.040] like what's happened in such a short period of time.
+- [41:48.850] And I was just told by the prime minister that Toyota is going
+- [41:53.060] to be putting auto plants all over the United States
+- [41:56.130] to the tune of over $10 billion.
+- [42:00.060] So that's Toyota. So go out and buy a Toyota.
+- [42:06.750] And that's a lot to do with,
+- [42:08.650] because right now, we have all the AI plants.
+- [42:10.960] We have so many things happening in the United States,
+- [42:13.180] and it's because of November 5th election day,
+- [42:15.270] but it's also because of tariffs.
+- [42:17.440] The tariffs have been so good.
+- [42:18.960] We're taken in trillions and trillions of dollars.
+- [42:21.980] I heard them before I came up, I heard --
+- [42:24.240] You're all on television now.
+- [42:25.480] They're talking all the networks,
+- [42:27.090] everybody is covering it.
+- [42:28.360] Look at these characters back. Look at all of them.
+- [42:30.800] And they were talking about the tariffs.
+- [42:33.640] The tariffs have --
+- [42:35.100] Nobody understood tariffs like I understood tariffs.
+- [42:37.790] And the tariffs are having people go into our country
+- [42:41.120] and spend tremendous numbers like we've never seen.
+- [42:44.880] And that brings jobs with it.
+- [42:46.360] It brings jobs, it brings importance,
+- [42:49.220] it brings everything. It brings a strong military.
+- [42:52.530] It brings a lot of things to other countries.
+- [42:54.780] I mean, if you look at some of the deals that we did,
+- [42:57.460] if India is going to go to war with Pakistan,
+- [43:02.350] and as you go to war, we're not going to do any trade.
+- [43:05.480] I was going to put big tariffs on both countries.
+- [43:07.690] And they said, "Well, I guess we're not going to go to war."
+- [43:10.210] Two nuclear powers, we stopped it,
+- [43:11.850] but we stopped a lot of wars. Without tariffs,
+- [43:16.000] we wouldn't have national security like we have,
+- [43:18.460] but we've never had national security
+- [43:20.430] like we have it right now. And literally a year ago,
+- [43:23.410] you had very little national security.
+- [43:25.720] You had people that didn't have a clue.
+- [43:28.610] American strength is roaring back like never before.
+- [43:31.740] And with your help, America is respected once more
+- [43:35.140] and it is respected at levels that we haven't seen before.
+- [43:39.280] On my first day back in the White House,
+- [43:41.270] I deployed the men and women of the United States
+- [43:44.240] military to stop the invasion on our Southern border.
+- [43:48.190] It was an invasion losing hundreds of thousands of people
+- [43:51.950] to fentanyl, into drugs.
+- [43:53.390] And now, we have the most secure border in American history.
+- [43:56.810] For five months, they said zero,
+- [44:00.180] no people came into our country illegally.
+- [44:03.050] They came in through a legal process,
+- [44:05.440] but nobody came in through the Southern border.
+- [44:07.320] Can you imagine? Even I can't. It's hard to believe that.
+- [44:11.170] And we do have it tight as a drum,
+- [44:12.810] but that's what we have to have. If you don't have borders,
+- [44:15.870] if you don't have a fair media, you need certain things.
+- [44:19.740] You need a good fair media. They're getting better.
+- [44:22.490] They're not there yet, that I can tell you,
+- [44:24.610] but they're getting better.
+- [44:25.960] But you need borders, you got to have borders in a country
+- [44:28.510] or you don't have a country. And now we have a border
+- [44:31.400] the likes of which this country has never seen before.
+- [44:35.270] And people respect us for it.
+- [44:37.180] With the help of our warfighters,
+- [44:38.890] we're decimating the savage drug cartels that poison our people.
+- [44:44.330] 200,000 people, maybe more than that, died last year
+- [44:47.270] because of what came into our country
+- [44:49.750] through an open border policy
+- [44:51.490] where 25 million people poured into our country.
+- [44:55.360] Totally unvetted, totally unchecked.
+- [44:57.990] They came from prisons.
+- [45:00.310] They came from mental institutions and insane asylum.
+- [45:04.000] They were drug dealers. They were bad people.
+- [45:07.450] 11,388 were murderers,
+- [45:12.350] half of which committed more than one murder.
+- [45:14.630] They let them into our country. We're getting them the hell out.
+- [45:17.330] We're getting them out. We're getting them out fast.
+- [45:19.640] Is that okay with you? Yes, right? I have no doubt.
+- [45:23.250] Got to get them out. Just an unforced era.
+- [45:30.130] And we're also straightening out our cities.
+- [45:32.150] Washington D.C., our beautiful capitol was a killing mess.
+- [45:37.250] People getting killed all the time.
+- [45:39.020] It was very high crime.
+- [45:41.300] And we sent in our National Guard, again, great people.
+- [45:46.760] I don't say that we're totally politically correct,
+- [45:50.320] that's okay. And now, it's very safe.
+- [45:53.110] Now, it's considered a very safe.
+- [45:55.150] It took 12 days, we got 1,700 people, career criminals,
+- [46:00.950] many of which came in through Biden's open border,
+- [46:04.460] and they infiltrated our nation's capital
+- [46:08.910] and we had a very unsafe capital.
+- [46:10.570] But for years before that, it was very unsafe.
+- [46:13.340] Now, it's as safe as there is anywhere in the country.
+- [46:15.800] You can have your daughter, your girlfriend,
+- [46:19.180] your wife, your boyfriend,
+- [46:20.660] walk right in through the middle,
+- [46:22.070] nobody's going to touch him.
+- [46:23.780] The crime is down to almost nothing.
+- [46:26.260] It's a whole different ballgame. It took literally 12 days,
+- [46:29.980] but let's give us a month to do it, really.
+- [46:31.780] We had it drum tight and it's a beautiful thing.
+- [46:35.480] And our people in the service and --
+- [46:38.630] People don't care. If we send in our military,
+- [46:41.000] if we send in our National Guard,
+- [46:43.580] if we send in Space Command,
+- [46:46.040] they don't care who the hell it is,
+- [46:47.480] they just want to be safe.
+- [46:49.380] And we have safe cities. Now, we're starting in Memphis.
+- [46:52.290] And Memphis was a disaster. They've been there for two weeks
+- [46:56.070] and it's a whole different series.
+- [46:57.550] Crime is less than half,
+- [46:58.760] and within a month it'll be gone.
+- [47:00.430] Getting rid of all the bad ones there.
+- [47:01.990] We're going to go into Chicago,
+- [47:03.220] we're going to go into our cities,
+- [47:04.440] we're going to clean them out,
+- [47:05.680] we're going to straighten them out,
+- [47:06.980] and we're going to have safe cities,
+- [47:08.920] because you want to protect safe cities.
+- [47:10.800] We're going to have beautiful safe cities.
+- [47:13.600] And it's happening very quickly and very easily, actually.
+- [47:17.230] It's easy for us, it's hard for them.
+- [47:20.120] And we have to have a little more help.
+- [47:22.190] It doesn't matter really. We could do as we want to do,
+- [47:25.260] but it would be nice to have more help
+- [47:27.200] from some of the Democrat governors
+- [47:29.480] that don't mind in Chicago.
+- [47:33.410] Two weeks ago, four people murdered.
+- [47:36.250] 11 people shot. This weekend, it was terrible.
+- [47:40.340] Much worse than that.
+- [47:41.850] And then we have a governor that stands up and says,
+- [47:43.830] "Oh, it's wonderful." It's not wonderful.
+- [47:45.500] And what we're doing is we're going to make it totally safe.
+- [47:47.780] It'll be very safe very soon,
+- [47:49.730] and we're doing that with all of our cities that are troubled.
+- [47:52.670] We have cities that are troubled.
+- [47:53.950] We can't have cities that are troubled
+- [47:55.980] and we're sending in our National Guard.
+- [47:58.670] And if we need more than the National Guard.
+- [48:00.690] We'll send more than the National Guard
+- [48:02.100] because we're going to have safe cities.
+- [48:04.030] We're not going to have people killed in our cities.
+- [48:06.410] And whether people like that or not, that's what we're doing.
+- [48:10.520] And you've been watching what our missiles do to boats
+- [48:14.070] and ships and submarines. How about the submarine?
+- [48:17.220] They said no, that was just fishing.
+- [48:18.970] The radical left Democrats said,
+- [48:21.400] "Well, it was a submarine, but they were just fishing."
+- [48:24.310] Submarines don't go fishing, do they?
+- [48:26.140] You know more about submarines than I do;
+- [48:28.300] you have a beauty parked outside, actually.
+- [48:30.730] This is a submarine. And you know what?
+- [48:32.300] It was designed for transporting drugs, and it got hit.
+- [48:36.660] But each one of those vessels that we hit kill, on average,
+- [48:41.100] 25,000 people, American people, every single year they kill --
+- [48:47.030] Each one of them kill 25,000 people.
+- [48:50.290] So we have to stop it, and we have stopped it.
+- [48:52.430] And I want to thank Pete for having the courage to do it.
+- [48:55.930] And believe me, people are very honored that you do it.
+- [48:59.070] 25,000 people for each boat.
+- [49:01.870] For many years, the drug cartels have waged war in America,
+- [49:04.920] and at long last, we're finally waging war on the cartels.
+- [49:08.540] We're waging war like they've never seen before.
+- [49:11.180] And we're going to win that battle.
+- [49:12.620] We're winning it already.
+- [49:13.930] The sea -- I mean, the only problem
+- [49:15.310] is nobody wants to go into the sea anymore.
+- [49:17.100] Even the fishing boats, they say, "Let's take a pass."
+- [49:20.140] But they don't want that.
+- [49:21.360] But we're knocking them out one by one,
+- [49:23.570] and very importantly,
+- [49:25.560] we've almost stopped completely the drugs coming in by sea,
+- [49:29.950] and now we'll stop the drugs coming in by land.
+- [49:32.310] That's going to be very easy.
+- [49:34.070] More importantly, we're ending wars;
+- [49:36.640] we're ending wars all over this planet.
+- [49:39.610] And as you know, as I said before,
+- [49:41.380] I ended eight wars in eight months.
+- [49:43.250] The most of any president in history,
+- [49:45.400] no president that we know has ever ended any war.
+- [49:48.110] A lot of them go into wars,
+- [49:50.560] but this includes Kosovo and Serbia,
+- [49:53.410] the Congo and Rwanda, Pakistan and India,
+- [49:58.390] Israel and Iran. You saw that. How about those B-2 bombers?
+- [50:01.560] They went in there, they took out that nuclear capability.
+- [50:04.910] Iran would've had a nuclear weapon within two months,
+- [50:08.020] not anymore. Egypt and Ethiopia,
+- [50:11.720] Armenia and Azerbaijan--that was going on for 35 years.
+- [50:16.300] Big, horrible war. And just this month
+- [50:19.580] we ended the war in Gaza in the Middle East.
+- [50:22.050] We ended the war in the Middle East;
+- [50:23.330] nobody thought it was possible.
+- [50:25.440] And we also just signed a deal in Malaysia
+- [50:29.870] between a war that was just starting.
+- [50:32.460] Cambodia and Thailand.
+- [50:34.700] So we saved millions and millions of lives,
+- [50:37.150] and I did it mostly verbally;
+- [50:39.860] we didn't have to get you involved.
+- [50:41.610] When we don't get you involved, that's a good thing.
+- [50:44.080] We don't want you to get involved.
+- [50:45.570] If I can avoid you getting involved,
+- [50:47.250] if I have an ability to do things
+- [50:48.970] that maybe other people don't, or we see things,
+- [50:51.540] but we stopped a lot of those wars
+- [50:53.760] based on trade and tariffs and penalties,
+- [50:57.570] and they're getting all ready to fight, and then we tell them,
+- [51:01.600] "No more trading with the United States.
+- [51:03.490] We're putting tariffs on your nation, et cetera, et cetera."
+- [51:05.880] It's called national security for us,
+- [51:07.870] but it's really national security for the whole world.
+- [51:10.050] And everywhere we go, America is actually making peace,
+- [51:13.830] and it's peace through strength. When they look at this,
+- [51:16.050] when they look at you people, they say,
+- [51:17.470] "We're not going to mess around with them."
+- [51:19.320] So it's very important.
+- [51:20.560] After years of crippling inflation.
+- [51:23.810] Back home, we had the worst inflation
+- [51:25.550] in the history of our country; energy costs are down.
+- [51:28.430] You know, energy costs are way down,
+- [51:30.590] gasoline prices are way down, grocery prices are way down.
+- [51:35.750] We have a little problem with beef;
+- [51:37.190] we're going to get that down very quickly.
+- [51:38.880] But the prices are way down. Mortgage rates are down
+- [51:41.610] despite having an incompetent head of the Fed.
+- [51:45.510] I call him too late. He's always too late.
+- [51:48.250] He's too late in lowering interest rates.
+- [51:50.030] I call him Jerome Too Late Powell.
+- [51:53.040] But despite having a totally grossly incompetent guy --
+- [51:57.060] We just blow through it because we're doing so well.
+- [52:01.800] Inflation has been defeated, and workers' wages are rising
+- [52:05.650] at the fastest pace in 60 years. And that includes your wages.
+- [52:09.380] They're rising at the fastest pace.
+- [52:11.800] The workers--I'm not talking about the rich people.
+- [52:13.880] Rich people -- Everyone is doing well.
+- [52:15.960] Everyone in our country is now doing well.
+- [52:17.740] My first term, we built the greatest economy
+- [52:20.340] in the history of the world.
+- [52:21.690] We had an economy like nobody has seen before.
+- [52:23.920] Now we are doing it again, but this time actually
+- [52:27.360] it's going to be much bigger and much stronger.
+- [52:29.300] I told you $17 trillion,
+- [52:31.230] but it's going to be $20, $21 trillion.
+- [52:33.730] And that's numbers that have never been heard of before.
+- [52:36.550] Much bigger than any other country in the world
+- [52:39.630] by literally $15, $16 trillion. It's amazing.
+- [52:45.050] The sailors and the ship sacrifice so much
+- [52:47.370] for our country and the president.
+- [52:48.860] And I will tell you,
+- [52:50.120] the president standing right up here loves you.
+- [52:52.320] I respect you, and I love you. And I'm giving everything.
+- [52:55.500] I have to make sure that when you get home,
+- [52:58.170] you find an America that is safe and proud
+- [53:00.730] and sovereign and free.
+- [53:03.030] One service member who reminds us
+- [53:05.090] that we're working for you and for everybody
+- [53:09.040] and for our country
+- [53:10.260] is Chief Warrant Officer Will Hightower,
+- [53:13.830] who serves on the George Washington
+- [53:15.960] in the all-important deck department.
+- [53:18.850] Do you know what the deck department is?
+- [53:20.320] I have no idea, but they do.
+- [53:25.850] In April 2024, Will sailed away from Norfolk,
+- [53:29.600] leaving behind his wonderful wife,
+- [53:31.510] Megan, their precious six-year-old daughter,
+- [53:34.150] and their one-year-old son. In the past 12 months,
+- [53:37.760] he has only been home for three weeks total.
+- [53:40.520] Three weeks, an enormous sacrifice,
+- [53:43.020] very tough on the family,
+- [53:44.340] but an experience everyone on the ship really knows very well.
+- [53:48.000] In February Will's tour will come to an end,
+- [53:50.270] and he will finally be going home
+- [53:52.870] just in time for his daughter's birthday.
+- [53:56.260] So Will, I want to thank you together
+- [53:57.960] with all of those people that go through the same thing.
+- [54:00.590] I want to really thank -- Where is Will?
+- [54:02.250] Is Will around here? Where is Will?
+- [54:05.270] Wow, look at him. These are good-looking people here.
+- [54:08.720] That's great, Will. How does it feel? Good.
+- [54:10.240] Will Hightower: It feels amazing, Mr. President.
+- [54:12.060] The President: That's great. It feels amazing.
+- [54:13.290] That's fantastic. That's fantastic.
+- [54:16.020] See, in the old days I'd say, "Does your wife still love you?"
+- [54:18.810] But I don't do that anymore. "Does your wife still love you?"
+- [54:21.300] Yes. Will Hightower: Yes.
+- [54:22.570] The President: Do you still love your wife?
+- [54:23.800] Will Hightower: Every day.
+- [54:25.030] The President: Every day. That's good.
+- [54:26.300] Okay, that's good. So that's good. Beautiful.
+- [54:31.240] And say hello to your daughter, right, and your wife.
+- [54:35.430] And just in conclusion, every sailor here today
+- [54:38.290] inherits a legacy of valor and grit and glory
+- [54:41.660] unmatched in the long history of mankind's voyage on the seas.
+- [54:45.490] It's a voyage like nobody's ever had, like you have.
+- [54:49.170] For two and a half centuries, America's navy has preserved
+- [54:52.350] the vision of our first commander in chief,
+- [54:55.650] who gave this ship its storied name,
+- [54:57.630] its righteous soul, and its timeless motto.
+- [55:01.690] "First in war, first in peace."
+- [55:03.720] Very famous phrase, George Washington.
+- [55:07.650] After 250 years, that is exactly what our country is today.
+- [55:11.770] It's first in war, first in peace,
+- [55:14.860] first in wealth, first in power, first in science,
+- [55:18.710] first in spirit, and first in freedom.
+- [55:20.940] And we went through four bad years,
+- [55:23.300] but now America will always be first again.
+- [55:26.640] If you have the right person up here,
+- [55:28.340] if you have somebody that understands
+- [55:30.200] a lot of different subjects,
+- [55:31.920] we're going to be bigger, better, stronger,
+- [55:35.580] and more important, really frankly, to the world.
+- [55:38.010] Japan respects us.
+- [55:39.340] If you see what's going on all over the world,
+- [55:42.070] they're respecting us again.
+- [55:43.310] They respect us like never before.
+- [55:45.650] The treatment they give me all over
+- [55:47.490] as I go around to different countries is great,
+- [55:49.790] but it's really a respect for me.
+- [55:52.460] But it's a bigger respect for our country;
+- [55:54.350] they respect our country again.
+- [55:56.210] They didn't respect our country just a few years ago.
+- [56:00.460] From Boston Harbor to Hampton Roads
+- [56:03.120] and from the Caribbean Sea to the Red Sea,
+- [56:06.510] from the Atlantic to the Pacific and from the Persian Gulf
+- [56:09.880] to what is now known as the Gulf of America.
+- [56:16.260] Isn't it nice they say it now routinely?
+- [56:18.140] I heard the news today:
+- [56:19.740] "The Gulf of America weather is wonderful."
+- [56:21.830] They don't say it with a smile; it's called the Gulf of America.
+- [56:25.080] How did that happen, right? For many years, I said, "
+- [56:30.190] Why is it called the Gulf of Mexico
+- [56:31.950] when we seem to have the shore?"
+- [56:33.960] Well, we do. We have 92% of the shoreline.
+- [56:37.390] So I said, "You know, when we make it back --"
+- [56:40.070] Not if, when, too big to rig; we made it too big to rig.
+- [56:42.970] I said, "Get out and vote too big to rig."
+- [56:45.650] Make it that way. I said, "I'm going to change it."
+- [56:48.720] And one of the first things I did is I changed it;
+- [56:50.960] nobody could even fight it.
+- [56:52.400] They tried, we got sued all over the place.
+- [56:54.230] We won every suit, and it's now officially the Gulf of America.
+- [56:58.260] Isn't that nice?
+- [56:59.600] But our sailors have written honor, greatness,
+- [57:03.480] and triumph into the pages of history.
+- [57:05.770] What you're doing is incredible,
+- [57:07.320] and it's an incredible time for our country.
+- [57:09.100] On gun decks and flight decks and torpedo rooms and cockpits,
+- [57:13.480] the men and women of the navy
+- [57:15.560] have poured out their blood and sweat and tears
+- [57:18.250] to defend the land of the free and the home of the brave.
+- [57:23.110] They've crossed icy channels, leapt from burning records,
+- [57:26.550] stormed into frigid waters, soared into deadly skies,
+- [57:29.800] and laid down their lives to ensure the survival of liberty.
+- [57:35.740] Now all of us here today carry on that noble mission.
+- [57:39.640] And no matter what challenge comes our way,
+- [57:41.760] no matter what danger we face,
+- [57:43.970] we hoist our great American flag very, very high.
+- [57:48.130] We race into the waves,
+- [57:49.580] and we rally to that immortal battle cry
+- [57:52.310] of the American sailor.
+- [57:55.090] "Damn the torpedoes, full speed ahead," right?
+- [57:59.500] Together with our incredible Japanese allies
+- [58:02.400] and all of our allies all over the world.
+- [58:04.570] We stand strong, we stand proud,
+- [58:07.170] we will stand taller than we've ever stood before,
+- [58:11.760] and we will be freer and braver
+- [58:13.900] and more brilliant than ever before.
+- [58:16.530] And we will fight, fight, fight. And we will win, win, win.
+- [58:20.010] And I want to thank everybody at the USS George Washington
+- [58:24.280] and the U.S. Forces Japan.
+- [58:27.190] God bless our military. God bless Japan.
+- [58:29.880] God bless the United States of America,
+- [58:32.970] and God bless our navy. Thank you, everybody. Thank you.
+- [58:37.580] (cheers and applause)
+- [58:41.005] ♪ ("YMCA" by the Village People) ♪

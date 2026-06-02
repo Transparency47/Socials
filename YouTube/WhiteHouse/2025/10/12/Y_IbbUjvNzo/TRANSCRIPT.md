@@ -1,0 +1,597 @@
+<!-- source: https://www.youtube.com/watch?v=Y_IbbUjvNzo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Y_IbbUjvNzo -->
+<!-- date_published: 2025-10-12T22:56:04+00:00 -->
+<!-- date_accessed: 2026-06-02T01:13:20.886702+00:00 -->
+
+# Transcript: President Trump Gaggles with the Press on Air Force One, Oct. 12, 2025
+
+- [00:00.490] The Press: Hello, Mr. President.
+- [00:01.790] The President: This is a little bit more comfortable.
+- [00:05.500] A little wet out there. Hello. Go ahead.
+- [00:10.080] The Press: So, President Trump, what's harder,
+- [00:12.170] peace in the Middle East or ending a government shutdown?
+- [00:16.610] The President: Well, I think the hardest is this.
+- [00:18.070] This has been going on for 3,000 years.
+- [00:20.030] The shutdown has only been for 10 days.
+- [00:23.620] So I think, the shutdown, it's gotten to be almost customary.
+- [00:27.950] But we're taking care of it.
+- [00:30.170] We've got the military paid in full.
+- [00:32.800] And we're doing a lot of things.
+- [00:34.830] We're ending some programs that we don't want.
+- [00:36.760] They happen to be Democrat-sponsored programs.
+- [00:39.660] But we are ending some programs that we never wanted.
+- [00:43.850] And we're probably not going to allow them to come back.
+- [00:46.200] I think they made a mistake. I think I made a big mistake.
+- [00:49.140] This is really a Schumer shutdown
+- [00:50.640] because he's become sort of irrelevant,
+- [00:54.950] and he wants to make himself relevant again.
+- [00:56.910] The Press: In terms of the politics
+- [00:58.460] of this historic peace deal
+- [01:00.160] that we're on the way to go sign right now,
+- [01:02.720] you would think it's good for everybody,
+- [01:04.560] but at a rally this weekend, they were cheering for you
+- [01:07.830] and they were booing Netenyahu. What's up with that?
+- [01:10.870] The President: I don't know,
+- [01:12.180] but we're going to make everybody happy.
+- [01:14.930] The one thing I can tell you is everybody is happy,
+- [01:18.470] whether it's Jewish or Muslim or the Arab countries.
+- [01:22.560] Every country is dancing in the streets,
+- [01:24.530] and it's a point in time I don't think you'd ever see it again.
+- [01:28.030] They've never seen it for 3,000 years.
+- [01:30.770] If you like one group, you don't like the other group.
+- [01:33.050] And if you like the others group,
+- [01:34.390] you don't like the first group.
+- [01:36.090] And this is the first time they've ever seen
+- [01:37.970] where everybody is unified,
+- [01:39.340] because, as you know, we're going to.
+- [01:41.140] Egypt after Israel, and we're going to meet all of the leaders
+- [01:45.460] of the very powerful and big countries
+- [01:48.490] and very rich countries and others,
+- [01:51.520] and they're all into this deal, everybody's into it.
+- [01:55.110] It's never happened before.
+- [01:56.830] So I would say this is a lot tougher,
+- [01:59.760] but we'll see how it all works out.
+- [02:01.500] The Press: President Benjamin Netanyahu,
+- [02:02.710] the prime minister,
+- [02:03.960] has not gone so far as to say the war is over.
+- [02:06.170] In your view, is the war between Israel and Hamas over?
+- [02:08.470] The President: The war is over.
+- [02:10.040] The war's over, okay? You understand that?
+- [02:13.230] The Press: Is the ceasefire going to hold?
+- [02:15.510] Are you confident the cease fire will hold?
+- [02:18.270] Are you confidence that the cease-fire is going to hold?
+- [02:20.820] The President: I think so. I think it's going to hold.
+- [02:23.310] I think people are -- a lot of reasons why it's going to hold.
+- [02:28.360] But I think that people are tired of it.
+- [02:30.550] It's been -- it's been centuries, okay?
+- [02:33.660] Not just recent. It's just been centuries.
+- [02:35.480] I think the people are just tired of it.
+- [02:37.040] Yeah, the ceasefire is going to hold, and
+- [02:39.290] (inaudible) also.
+- [02:42.700] The Press: The International Stabilization Force
+- [02:44.760] that's part of the --
+- [02:46.010] The President: It's good, strong force.
+- [02:48.510] I don't think it's going to have a big impact
+- [02:50.430] because I think barely we're going to have to use it.
+- [02:53.500] I think people are going to behave.
+- [02:55.510] Everybody knows their place.
+- [02:57.020] It's going to be great for everybody.
+- [02:59.370] It is going to great for the surrounding countries,
+- [03:02.670] Arab, Muslim, all of them.
+- [03:04.110] It will be great. Everybody is happy.
+- [03:07.260] And I think it is going to stay that way.
+- [03:09.860] The Press: If the ceasefire does hold,
+- [03:12.530] how long until we get to the part
+- [03:14.400] of the 20-point peace plan where developers can go in
+- [03:18.580] and make Gaza the Riviera of the Middle East?
+- [03:21.510] The President: I don't know about the Riviera for a while
+- [03:23.870] because you take a look at what you have.
+- [03:25.710] You have to get people taken care of first.
+- [03:27.480] But it's going to start really essentially immediately.
+- [03:30.140] I mean they're going to have to start
+- [03:31.620] by removing a lot of structures
+- [03:35.010] that you see that are down to the ground.
+- [03:36.970] I'm it's a very -- it's blasted This is like a demolition site,
+- [03:40.960] almost the entire site is -- so you have to --
+- [03:44.420] you have to get rid of what you have there.
+- [03:46.500] You have structures that are very dangerous.
+- [03:48.210] They're falling down. If they haven't fallen,
+- [03:50.430] they're going to fall down of their own volition.
+- [03:53.210] So that process, Peter,
+- [03:55.070] is going to start pretty much immediately in that way.
+- [03:56.920] The Press: (inaudible)
+- [03:58.120] look like a year from now in your view.
+- [03:59.810] The President: A year? That's very quick,
+- [04:01.010] but over the years, it'll look very good.
+- [04:02.850] It'll be -- it's got the first chance
+- [04:05.700] it's had in centuries of being peaceful.
+- [04:08.790] It's always been a very, very strange area.
+- [04:13.330] It has always been loaded up with problems --
+- [04:16.150] religious problems,
+- [04:18.230] problems like no other place probably in the world.
+- [04:21.360] And I think it's going to now -- it is going to normalize.
+- [04:24.240] All you can say, if it normalizes,
+- [04:25.820] that would be fantastic.
+- [04:27.060] The Press: (inaudible)
+- [04:28.260] structure, sir, that you have set up in that peace plan?
+- [04:30.830] How soon will that new governing body be in place?
+- [04:33.970] The President: Very quickly.
+- [04:35.270] And everybody wants to be a part of it.
+- [04:37.430] You're talking about the Board of Peace?
+- [04:38.880] The Press: That's right. Tony Blair, yourself.
+- [04:41.080] The President: Everybody wants to be a part of it.
+- [04:43.300] I've had calls from all of the leaders,
+- [04:46.140] the leaders of countries, they all want to be a part.
+- [04:48.190] I mean, the leaders themselves,
+- [04:49.540] they're not going to send somebody.
+- [04:50.870] They want to part of that.
+- [04:52.110] The Press: Do you know who's going to be a part of it yet?
+- [04:53.430] The President: I do, I do.
+- [04:54.680] The Press: Can you share?
+- [04:55.910] The President: No, not yet. It's a little early.
+- [04:58.330] The Press: Have you spoken to Tony Blair
+- [05:00.330] about it since the --.
+- [05:01.580] The President: You have to take your ear things out.
+- [05:03.660] The Press: Have you, have you spoken to Tony Blair about it?
+- [05:06.300] The President: I have.
+- [05:07.500] You know, first I want to find out
+- [05:09.550] that Tony would be popular with all
+- [05:11.210] because I just don't know that.
+- [05:13.100] And I like Tony, I've always liked Tony,
+- [05:14.900] but I want to find that he's an acceptable choice
+- [05:17.310] to everybody.
+- [05:19.850] The Press: What guarantees have you been able
+- [05:21.900] to give to both the Israelis and the Arab countries?
+- [05:25.700] The President: A lot of guarantees.
+- [05:26.980] And we have a lot of verbal guarantees, too.
+- [05:30.170] And I don't think they're going to want to disappoint me.
+- [05:32.760] I have a lot verbal guarantees.
+- [05:34.340] Guarantees that aren't down in writing,
+- [05:35.760] but they were given to me.
+- [05:37.010] And I believe they're going to be held very strongly.
+- [05:40.010] That's why I think it's going to be successful.
+- [05:44.560] Katie, let me shake your hand.
+- [05:48.630] The Press: I'm sure you've seen reports of Hamas re-arming,
+- [05:51.890] instituting themselves as a Palestinian police force,
+- [05:56.090] shooting -- shooting rivals. What is your message to Hamas?
+- [05:58.490] The President: (inaudible)
+- [05:59.690] because they do want to stop the problems.
+- [06:02.130] And they've been open about it,
+- [06:03.430] and we gave them approval for a period of time.
+- [06:07.860] You have to understand, they've lost probably 60,000 people.
+- [06:13.330] That's a lot of retribution. They've lost 60, 000 people.
+- [06:17.980] And the ones that are living right now,
+- [06:20.070] we're, in many cases, very young when this all started.
+- [06:24.090] And we are having them watch that there's not going to be
+- [06:27.320] big crime or some of the problems that you have.
+- [06:29.760] When you have areas like this
+- [06:31.040] that have been literally demolished.
+- [06:33.500] You know, you have two million people,
+- [06:34.950] and probably it'll be less than that,
+- [06:36.430] but you have close to two million people
+- [06:38.740] going back to buildings that have demolished,
+- [06:42.690] and a lot of bad things can happen.
+- [06:44.140] So we want it to be safe. I think it's going to be fine.
+- [06:49.040] Who knows for sure, Katie,
+- [06:51.170] but I think it's going to be fine.
+- [06:55.820] The Press: Hi, what is the latest
+- [06:57.950] that you've heard about hostages when they will be released,
+- [07:00.530] do you expect to meet with any of them?
+- [07:01.910] The President: Well, I hear that hostages
+- [07:03.180] might be even a little early, but I don't want to say that.
+- [07:06.190] So they have the hostages. I understand all 20,
+- [07:10.740] and we may get them out a little bit early.
+- [07:14.840] Getting them was amazing, actually,
+- [07:18.340] because we were involved,
+- [07:20.570] and they were in places that you don't wanna know about.
+- [07:24.130] Deep, deep, deep.
+- [07:26.940] The Press: Some of the top Biden administration folks
+- [07:30.100] who were there, like Antony Blinken,
+- [07:31.880] seem to want some credit for the peace deal.
+- [07:34.290] Blinken says it's good that President Trump adopted
+- [07:37.740] and built on the plan
+- [07:39.060] that the Biden administration developed.
+- [07:42.200] What do you think about that?
+- [07:43.440] The President: Everybody knows that's a joke.
+- [07:44.800] Look, they didn't do it. They did such a bad job.
+- [07:47.480] This should have never happened
+- [07:48.970] This wouldn't have even happened.
+- [07:50.330] That was weak leadership terrible with --
+- [07:52.720] and the same thing with Russia, Russia, Ukraine
+- [07:56.500] If they just -- a decent president,
+- [07:59.240] not a great president like me. Not a great present.
+- [08:03.530] If a decent President was in you wouldn't had the Russia Ukraine.
+- [08:07.300] And this is I would say even more so.
+- [08:09.580] This was bad policy by Biden and by Obama.
+- [08:14.390] Remember when Bibi came and he begged
+- [08:16.320] that you not do what they were doing with Iran?
+- [08:18.680] You remember that, right?
+- [08:19.980] Begged them, and they wouldn't even listen to him.
+- [08:22.650] Everything they did was the opposite
+- [08:24.620] of what you should have done.
+- [08:26.280] And it's nice that they try and take a little credit.
+- [08:28.710] That was years ago, and the mistakes were made years ago.
+- [08:32.500] And it was both by Biden and Obama.
+- [08:35.450] The Press: So what did you do so differently?
+- [08:39.000] Because a lot, I know a lot of it was behind the scenes.
+- [08:41.500] So what do you do so much
+- [08:42.720] differently than Joe Biden to end the war?
+- [08:46.940] The President: I resonated with the Arab leaders,
+- [08:49.640] the Muslim leaders, and the Jewish leaders,
+- [08:52.620] for whatever reason. You tell me why. You know?
+- [08:55.900] He said that in my first news conference,
+- [08:58.770] I answered more questions of him than Biden did in four years.
+- [09:02.600] And I think that's pretty close to being true.
+- [09:04.890] The Press: There were no Pinocchios in the fact check.
+- [09:08.440] The President: That's right.
+- [09:09.900] The President: Your relationship with Prime Minister Netanyahu
+- [09:12.000] has been through some ups and downs.
+- [09:13.410] You had to get a little tough on him.
+- [09:15.360] Where is that relationship now? And can you tell us about --
+- [09:17.510] The President: Very good.
+- [09:18.940] He just put me up for the Nobel Prize.
+- [09:21.870] So, you know, I don't know what (inaudible) for the Nobel Prize,
+- [09:24.340] but he put me up yesterday for the Nobel Prize
+- [09:28.640] that I should get it.
+- [09:30.540] But, I mean, I think it's very good.
+- [09:32.960] The Press: (inaudible)
+- [09:34.190] to you personally about moving forward
+- [09:36.420] to the next phase of peace?
+- [09:38.090] The President: Look, let me tell you.
+- [09:39.660] He's a wartime president. He did a very good job.
+- [09:43.380] I had some disputes with him,
+- [09:44.910] and they were quickly settled, I can tell you that.
+- [09:48.640] But as far as I'm concerned, I think he's done a great job.
+- [09:53.040] I think he was the right person at this time.
+- [09:55.590] You know, look, it's been this way for centuries.
+- [09:59.470] You know we're not talking about for 10 years, for five.
+- [10:02.200] It's been his way for centuries.
+- [10:04.160] And he did a great job and working with me,
+- [10:06.310] he was fantastic. Working with Biden, no good.
+- [10:11.120] They didn't get along, and they had the opposite,
+- [10:13.430] because Biden and Obama backed Iran.
+- [10:16.530] And just so, when you talk about a thing like that,
+- [10:18.590] if you think they were backing Iran,
+- [10:21.100] when you back Iran, this wouldn't have worked.
+- [10:22.770] And had we not taken out the Iran nuclear facility
+- [10:26.470] and we made the same deal,
+- [10:28.610] it would have a really dark cloud over it,
+- [10:31.250] and you wouldn't have people dancing in the streets, Katie.
+- [10:34.080] You would have people saying, oh,
+- [10:35.920] you know, you're making a deal, but we have a guy over there
+- [10:38.550] with nuclear weapons all over the place.
+- [10:40.470] He's going to knock the hell out of us.
+- [10:42.670] If we didn't take out the Iran nuclear when we did,
+- [10:45.510] because in two months,
+- [10:47.000] they would have had a nuclear weapon.
+- [10:48.870] This deal, even if it were done the exact same way,
+- [10:52.240] would have a dark cloud over it. And now, there's no dark clouds.
+- [10:57.120] There's nobody they have to worry about.
+- [10:58.720] Kaite.
+- [10:59.940] The Press: You talked to the Qataris
+- [11:01.540] about their changing behavior in your first term.
+- [11:03.540] You talked about how they were funding terrorism
+- [11:05.180] (inaudible)
+- [11:06.380] do differently in your eyes to make sure they're not funding --
+- [11:09.750] The President: The Qataris really helped us with this deal.
+- [11:13.040] And the Amir is an amazing man who really helped this.
+- [11:16.540] You have to understand,
+- [11:18.600] his country is right in the middle of everything.
+- [11:21.050] More so than any other country. More so than UAE,
+- [11:24.480] where you have to fly an hour and a half to get there.
+- [11:26.960] More so then Saudi Arabia, where you had to fly
+- [11:29.300] an hour-and-a-half to get to there.
+- [11:31.140] His country, you walk across a line and you're there.
+- [11:34.220] So he's in the middle of this unbelievable hostile territory.
+- [11:39.310] People on all different sides of the, you know,
+- [11:42.130] of the opinion and the question, they were a tremendous help.
+- [11:46.900] Qatar was a tremendous help to getting this done.
+- [11:50.360] I hope people can realize that.
+- [11:53.180] It was very tough and very dangerous for Qatar.
+- [11:57.830] They were very brave, and their leader,
+- [11:59.690] the Amir, was very, very brave.
+- [12:02.240] And Qatar should start getting some credit.
+- [12:05.170] And you have to understand,
+- [12:06.490] they lived in the middle of everything.
+- [12:09.460] So they can't just be like, you couldn't do it.
+- [12:13.160] Nobody, nobody could do it. Say what?
+- [12:15.780] The Press: Have they changed their behavior from 2017
+- [12:18.300] when you accused them of funding terrorism?
+- [12:20.710] The President: I don't know.
+- [12:21.960] In 2017, I didn't really know them very well.
+- [12:25.180] You know 2017, that was at the very beginning of my term.
+- [12:30.750] As I got to know them, I got understand them,
+- [12:33.070] and I got realize that they're in the middle of --
+- [12:35.620] they are right in the middle everything.
+- [12:37.910] Other countries are there, but they're an hour
+- [12:40.580] and an hour-and-a-half away. A big difference.
+- [12:43.230] They're literally, you walk over from Iran to Qatar.
+- [12:46.390] You can walk it in one second.
+- [12:48.520] You go boom-boom and now you're in Qatar.
+- [12:51.230] That's tough territory.
+- [12:53.020] I think Qatar was amazing the way they helped us.
+- [12:58.280] The Press: President, another world leader --
+- [13:00.150] The Press: There was a ceasefire
+- [13:02.020] that collapsed in March this year.
+- [13:05.470] There was an a cease fire earlier this year
+- [13:07.500] that collapsed in March.
+- [13:09.380] Do you think this could have been done then?
+- [13:11.340] This took a lot of pressure on both sides --
+- [13:13.030] The President: Sometimes --
+- [13:14.300] I see it and I see with Russia, Russia, Russia, too.
+- [13:19.140] Sometimes you have to go through some pain before it all happens.
+- [13:22.970] I saw it with Turkey.
+- [13:24.190] And by the way, Turkey was fantastic, too.
+- [13:27.360] President Erdogan was fantastic.
+- [13:29.310] He really helped a lot because he's very respected.
+- [13:32.510] He's got a very powerful nation.
+- [13:34.350] He's a very, very powerful military, and he helped a lot.
+- [13:37.960] President Erdoğan. UAE was great.
+- [13:42.010] You know, we mentioned Qatar, Saudi Arabia,
+- [13:44.340] the king, they were great.
+- [13:46.300] Indonesia was great. We had tremendous help.
+- [13:50.950] Jordan, the King, they were great.
+- [13:53.840] This is an amazing thing.
+- [13:55.280] Countries that, very diverse countries,
+- [13:57.760] some got along, some didn't.
+- [13:59.280] But for the most part, nobody got along with anybody,
+- [14:02.420] and they all came together.
+- [14:04.310] And they're all dancing in the streets, just like Israel.
+- [14:08.300] It's a unique point in time.
+- [14:10.400] You were talking about the ceasefire.
+- [14:12.070] That wouldn't have had that help.
+- [14:14.000] That wouldn't have happened back then.
+- [14:16.230] The Press: I know both of your elections,
+- [14:19.320] the biggest issues were the economy and immigration.
+- [14:22.520] Now you're getting credit from Democrats and Republicans
+- [14:24.800] for this Middle East peace deal. Where does it fit?
+- [14:27.690] Where do you think it fits into your legacy?
+- [14:31.070] The President: Well, look, I solved --
+- [14:32.570] this will be my eighth war that I've solved.
+- [14:37.040] And I hear there's a war now going between
+- [14:38.790] Pakistan and Afghanistan.
+- [14:41.290] I said, I'll have to wait until I get back.
+- [14:43.330] I'm doing another one because I'm good at solving wars.
+- [14:47.610] I'm great at making peace. And it's an honor to do it.
+- [14:51.390] I saved millions of lives. Millions of lives.
+- [14:54.060] Now, in all fairness to the Nobel Committee, I was --
+- [14:58.050] it was for 19 -- it for 2024. This was picked for 2024.
+- [15:05.500] But there are those that say you could make an exception
+- [15:07.660] because a lot of things happened during '25
+- [15:10.690] that are done and complete and great.
+- [15:14.970] But I did this not for Nobel. I did this for saving lives.
+- [15:19.590] I mean, we've saved millions of lives.
+- [15:21.250] Think about India, Pakistan.
+- [15:22.730] Think about some of the wars that were going on for years.
+- [15:26.280] We had one going for 31,
+- [15:27.960] one going to 32, one going for 37 years.
+- [15:31.400] With millions of people being killed in every country.
+- [15:34.180] And I got every one of those done,
+- [15:36.390] for the most part, within a day. It's pretty good.
+- [15:41.280] The Press: What do you think you can take from these negotiations
+- [15:45.270] and this peace process into Moscow
+- [15:49.320] and try to end the Russian, Ukraine war?
+- [15:51.580] The President: Well, I think what you can take
+- [15:52.920] is that never give up. Just never give it up.
+- [15:55.570] You know, last week they killed over 7,000 soldiers.
+- [15:58.850] Mostly soldiers. And a little bit more, frankly,
+- [16:02.920] Russian soldiers than Ukraine soldiers last week.
+- [16:06.460] But think of it, every week they're losing from five to 7,
+- [16:09.480] 000 soldiers. It's ridiculous.
+- [16:11.930] And I thought that would be one of my easier ones.
+- [16:15.130] I mean, when you settle something
+- [16:16.660] that's been going on for 31 and 32 years,
+- [16:20.130] that's in theory, a lot harder than setting,
+- [16:23.550] you know, something that's been going on for three years.
+- [16:26.450] But this is a war going on for three year
+- [16:28.140] should have never started.
+- [16:29.960] Frankly, I give Ukraine credit for doing so well.
+- [16:35.040] I mean, they're good fighters.
+- [16:36.660] They're very good fighters, I think that
+- [16:39.600] --I really think that President Putin
+- [16:41.370] would look great if he got this settled.
+- [16:43.140] And I think he's going to settle it,
+- [16:44.630] but we're going to see, and if he doesn't,
+- [16:47.330] it's not going to be good for him.
+- [16:48.740] The Press: (inaudible)
+- [16:49.940] China, you've been truthing about another world leader.
+- [16:52.130] You said not to worry about China,
+- [16:53.930] but he's been putting out some tough statements
+- [16:56.420] in regards to your tariffs, sir.
+- [16:58.280] Are you planning to speak with him?
+- [16:59.550] When's the last time you spoke?
+- [17:00.940] The President: (inaudible)
+- [17:02.180] because we are taking in hundreds of billions of dollars,
+- [17:05.100] not only from China, from other countries.
+- [17:07.120] We've become a wealthy country again,
+- [17:09.400] and the tariffs have given us a diplomatic strength.
+- [17:12.780] They've given us negotiating strength.
+- [17:15.040] I settled a few of the wars just based on tariffs.
+- [17:17.390] I said, as an example, with India and with Pakistan,
+- [17:20.700] I said if you guys want to fight a war
+- [17:22.230] and you have nuclear weapons,
+- [17:23.800] I'm going to put big tariffs on you both,
+- [17:25.580] like 100 percent, 150, and 200 percent.
+- [17:28.960] No, no, no., Don't do that. I said, I'm putting tariffs.
+- [17:31.840] I had that thing settled in 24 hours.
+- [17:33.770] If I didn't have tariffs,
+- [17:35.050] you could have never settled that war.
+- [17:37.200] You do that better than anybody, McGee?
+- [17:39.990] The Press: (inaudible) more tariffs on China,
+- [17:41.310] are you considering walking that back?
+- [17:42.810] The President: You ask a lot of questions. Who are you with?
+- [17:44.950] The Press: Politico, Dasha Burns, sir.
+- [17:46.780] The President: Oh, my gosh, your Politico.
+- [17:49.100] Politico has gone bad.
+- [17:50.860] They've been so wrong about everything.
+- [17:52.580] Politico -- no, no, Politico,
+- [17:54.450] it's been so wrong about every thing.
+- [17:56.660] Let's get somebody else to ask some questions.
+- [17:58.950] Do you mind? Is that all right? Because Politico is fake news.
+- [18:02.150] The Press: (inaudible)
+- [18:03.470] Xi now when you go to Asia in a couple of weeks.
+- [18:05.920] The President: You saw the statement I put out
+- [18:07.370] that he had a bad day.
+- [18:08.930] And I think we're going to be fine with China.
+- [18:11.530] Look, I have a great relationship with President Xi.
+- [18:14.430] He's a very tough man. He's very smart man.
+- [18:17.700] He's great leader for their country.
+- [18:19.600] He's a great leader.
+- [18:21.070] And I have great relationship with him.
+- [18:22.720] I think we'll get it said. I know what happened.
+- [18:26.070] I really understand what happened,
+- [18:27.700] and I'm not even saying he's wrong.
+- [18:30.210] But then we met him with something much tougher
+- [18:32.420] than what he did to us.
+- [18:33.820] Again, because of the tariffs it's much tougher.
+- [18:38.050] The Press: Would you ever visit Gaza?
+- [18:39.540] The President: What?
+- [18:40.750] The Press: Would you ever visit Gaza?
+- [18:42.170] The President: I would, yeah, I would.
+- [18:43.390] I'd be proud to. I see it.
+- [18:45.890] I mean, I know it so well without visiting,
+- [18:47.990] but I do see it.
+- [18:50.270] Yeah, I would actually. I would like to do it.
+- [18:52.170] I'd like to put my feet on it at least,
+- [18:55.760] but i think it's going to be a great miracle over the --
+- [18:58.740] over the coming decades.
+- [19:00.240] And you know, if you go too fast,
+- [19:01.510] that's not going to be good.
+- [19:02.780] You have to go at the right speed.
+- [19:05.280] You can't go too fast. Who are you with?
+- [19:08.800] The Press: BBC, Tom Bateman, BBC, with the Radio Call.
+- [19:12.710] The President: Nice accent.
+- [19:13.990] The Press: Thank you.
+- [19:15.860] When Steve Witkoff was in Hostages Square last night,
+- [19:18.740] he mentioned Prime Minister Netanyahu and the crowd booed.
+- [19:22.580] I wondered if you saw that and what you made of that.
+- [19:25.500] The President: I also saw the crowd cheer
+- [19:27.980] when he mentioned Trump.
+- [19:30.000] Like, really cheer. It is an honor.
+- [19:32.850] No, as I said, I think Bibi did a great job.
+- [19:35.690] I had some words with him a couple of times
+- [19:38.830] where I didn't agree, and he was always --
+- [19:42.210] he was the right guy at the right time.
+- [19:44.020] The Press: (inaudible)
+- [19:45.240] because many Palestinians will be concerned that
+- [19:47.530] after the hostages are handed over,
+- [19:50.520] that Israel might restart the war for some reason,
+- [19:52.290] are you --
+- [19:53.570] The President: I'm not worried about anything.
+- [19:54.820] I think we have a great deal,
+- [19:56.850] and it's a great deal for everybody.
+- [19:59.050] You know, a great is a deal where everybody's happy.
+- [20:02.950] In every country, they're dancing in the streets.
+- [20:05.700] That's a good deal. It's a unique period in time.
+- [20:12.070] The Press: November 1st, 100 percent tariffs on China
+- [20:14.110] is what you said. Is that still the plan?
+- [20:16.530] The President: Yeah, right now it is, yeah.
+- [20:17.900] Let's see what happens.
+- [20:20.160] You know, for me, you know what November 1st is?
+- [20:22.850] An eternity. November 1st is an eternity for me.
+- [20:27.090] For somebody else, it's right around the corner.
+- [20:28.890] For me, when I hear November 1, it is an eternity. Go ahead.
+- [20:33.460] The Press: You had talked a couple weeks ago,
+- [20:34.960] you were doing an interview and you talked about
+- [20:36.460] how you hope to end the war in Ukraine
+- [20:38.280] because it might help you get into heaven.
+- [20:41.710] How does this help? Does this help?"
+- [20:44.280] The President: You know, I'm being a little cute.
+- [20:47.740] I don't think there's anything going to get me in heaven.
+- [20:49.740] Okay? I really don't.
+- [20:51.110] I think I'm not maybe heaven-bound.
+- [20:54.380] I may be in heaven right now as we fly an Air Force One.
+- [20:57.250] I'm sure I'm going to be able to make heaven.
+- [21:00.040] But I've made life a lot better for a lot of people.
+- [21:02.360] And, you know, as an example,
+- [21:03.840] had the election of 2020 not been rigged,
+- [21:07.370] you would have millions of people living just in Russia,
+- [21:11.030] Ukraine alone. That would have never happened.
+- [21:13.400] And it didn't happen for four years.
+- [21:16.100] And I knew Putin very well. It was the apple of his eye.
+- [21:18.900] And all the things I've said would have never happened,
+- [21:21.980] we had an incompetent administration.
+- [21:24.430] We had an incompetent president.
+- [21:26.440] And because of a crooked election,
+- [21:28.470] millions of people are dead. And, by the way,
+- [21:31.100] the Israeli thing was much harder to get settled
+- [21:34.010] because of the past administration.
+- [21:37.320] Rest, enjoy yourselves, say hello to your boss.
+- [21:41.640] And I'll see you guys, right? Good.
+- [21:43.010] The Press: Sir, before you go,
+- [21:44.240] could you tell us about your conversations
+- [21:45.910] with President Zelensky?
+- [21:47.140] Did you talk about long range missiles --
+- [21:48.350] The President: We had a very good conversation
+- [21:49.620] this morning and yesterday. And he basically would like to,
+- [21:55.550] as you know, we are not sending any weapons.
+- [21:58.460] We're sending them to NATO and NATO is paying,
+- [22:01.030] which is a big difference between Biden and Trump
+- [22:04.110] because Biden gave him $350 billion and we didn't.
+- [22:08.880] We gave them -- we gave them nothing
+- [22:12.550] but we gave them respect and some other things frankly.
+- [22:16.940] So we talked about weapons,
+- [22:18.750] and the weapons are sent to NATO,
+- [22:20.820] and NATO then sends us a check.
+- [22:22.470] They pay us more in full and they would need more weapons,
+- [22:26.740] and we're looking into doing that.
+- [22:28.670] We hope we're going to be able to provide them.
+- [22:31.040] You know, our country needs weapons, too.
+- [22:34.090] We can't give so many weapons that we don't have weapons.
+- [22:36.470] You never know what's going to happen.
+- [22:38.020] Who knows what's going to happen?
+- [22:40.180] But NATO pays us 100 percent for the weapons,
+- [22:44.110] and then they send them into Ukraine.
+- [22:46.390] And we talked about the weapons they need,
+- [22:48.610] what kind of weapons. They need patriots very badly.
+- [22:52.420] They'd like to have tomahawks. That's a step up.
+- [22:57.050] They'd to have to have tomahawks.
+- [22:58.250] We talked about that. And so --.
+- [22:59.890] The Press: Would you send tomahawks?
+- [23:01.130] The President: So we'll see.
+- [23:02.330] Well, I don't know. I might have to speak to Russia,
+- [23:05.300] to be honest with you, about tomahawk.
+- [23:07.670] Do they want to have tomahawks going in their direction?
+- [23:10.200] I don't think so.
+- [23:11.420] I think I might speak to Russia about that, in all fairness.
+- [23:14.660] I told that to the President Zelensky,
+- [23:16.880] because tomahawks are a new step of aggression, right?
+- [23:22.710] You understand that very well.
+- [23:25.060] The Press: Are you saying that you will speak
+- [23:26.480] to Putin first about tomahawk?
+- [23:29.170] The President: I might say, look,
+- [23:30.630] if this war is not going to get settled,
+- [23:32.220] I'm going to send them tomahawks.
+- [23:33.620] I may say that.
+- [23:35.100] The tomahawk is an incredible weapon,
+- [23:37.910] very offensive weapon.
+- [23:40.320] And honestly, Russia does not need that.
+- [23:42.270] They don't need that.
+- [23:43.610] Yeah, I might tell them that if the war is not settled,
+- [23:47.600] that we may very well do it, we may not, but we may do it.
+- [23:52.000] I think it's appropriate to bring up, yeah.
+- [23:54.090] I want to see the war settled.
+- [23:56.000] Thank you very much. Tell them to be honest.
+- [23:57.530] They're not honest (inaudible).
+- [23:58.780] The Press: Okay, sir, talk to Karoline,
+- [24:00.870] she'll vouch for them.
+- [24:02.320] The President: Okay. The Press: Thank you.
+- [24:03.540] The Press: Thanks, President. My first time on the plane.
+- [24:05.810] The President: Oh, really? Wow. What do you fly?
+- [24:08.370] He flies private. He's doing pretty well, huh?
+- [24:11.770] So who's going to be the head anchor at CBS?
+- [24:17.100] Not Norah O'Donnell, I don't believe it. I don't believe it.
+- [24:19.810] You know, there's a story that they're going to --
+- [24:21.420] I don't know.
+- [24:22.650] The Press: What do you think of Mary Weiss?
+- [24:23.880] The President: I'll tell you what, Larry Ellison is great,
+- [24:25.520] and his son David is great. They're friends of mine.
+- [24:27.610] Big -- they're big supporters of mine.
+- [24:30.230] And they'll do the right thing.
+- [24:31.660] They're going to make CBS, hopefully they'll, you know,
+- [24:34.310] they called it the Tiffany Network.
+- [24:36.640] And it's got great potential.
+- [24:39.400] CBS has great potential, thank you all.
+- [24:41.850] Thank you.

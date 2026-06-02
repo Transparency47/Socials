@@ -1,0 +1,1259 @@
+<!-- source: https://www.youtube.com/watch?v=XkgLela6l6o -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: XkgLela6l6o -->
+<!-- date_published: 2025-06-27T16:48:16+00:00 -->
+<!-- date_accessed: 2026-06-02T02:47:50.664451+00:00 -->
+
+# Transcript: President Trump Holds a Press Briefing, June 27, 2025
+
+- [19:44.480] The President: Well, this was a big one, wasn't it?
+- [19:46.950] This was a big decision, an amazing decision,
+- [19:51.200] one that we're very happy about.
+- [19:53.290] This morning, the Supreme Court has delivered
+- [19:55.720] a monumental victory for the Constitution,
+- [19:59.040] the separation of powers, and the rule of law.
+- [20:02.750] In striking down the excessive use of nationwide
+- [20:05.260] injunctions to interfere with the normal
+- [20:07.660] functioning of the executive branch,
+- [20:10.210] the Supreme Court has stopped the presidency itself.
+- [20:13.570] That's what they've done.
+- [20:15.320] And really, it's been an amazing period of time, this last hour.
+- [20:22.720] There are people elated all over the country.
+- [20:24.730] I've seen such happiness and spirit.
+- [20:28.080] Sometimes you don't see that, but this case is very important.
+- [20:31.140] I was elected on a historic mandate,
+- [20:34.130] but in recent months, we've seen a handful of radical left judges
+- [20:38.040] effectively try to overrule the rightful powers of the president
+- [20:42.260] to stop the American people from getting the policies
+- [20:45.340] that they voted for in record numbers.
+- [20:48.140] It was a grave threat to democracy, frankly,
+- [20:50.890] and instead of merely ruling on the immediate cases before them,
+- [20:55.270] these judges have attempted to dictate the law
+- [20:57.560] for the entire nation.
+- [21:00.190] In practice, this meant that if any one of the nearly 700
+- [21:03.710] federal judges disagreed with the policy
+- [21:05.990] of a duly elected president of the United States,
+- [21:09.950] he or she could block that policy from going into effect
+- [21:13.730] or at least delay it for many years,
+- [21:16.170] tie it up in the court system.
+- [21:18.340] This was a colossal abuse of power
+- [21:20.220] which never occurred in American history prior to recent decades,
+- [21:24.790] and we've been hit with more nationwide injunctions
+- [21:27.670] than were issued in the entire 20th century together.
+- [21:31.850] Think of it more than the entire 20th century, me.
+- [21:36.350] I'm grateful to the Supreme Court for stepping in
+- [21:39.510] and solving this very, very big and complex problem,
+- [21:43.780] and they've made it very simple. I want to thank Justice Barrett,
+- [21:47.980] who wrote the opinion brilliantly,
+- [21:49.700] as well as Chief Justice Roberts and Justices Alito,
+- [21:53.680] Gorsuch, Kavanaugh, and Thomas, great people.
+- [21:58.040] And for this decision, and thanks to this decision,
+- [22:03.010] we can now promptly file to proceed with numerous policies
+- [22:06.510] that have been wrongly enjoined on a nationwide basis.
+- [22:10.430] And some of the cases we're talking about
+- [22:12.700] would be ending birthright citizenship,
+- [22:16.330] which now comes to the fore.
+- [22:18.190] That was meant for the babies of slaves.
+- [22:20.280] It wasn't meant for people trying to scam the system
+- [22:22.660] and come into the country on a vacation.
+- [22:26.080] This was, in fact, it was the same date,
+- [22:28.130] the exact same date, the end of the Civil War.
+- [22:30.300] It was meant for the babies of slaves,
+- [22:32.080] and it's so clean and so obvious.
+- [22:34.160] But this lets us go there and finally win that case
+- [22:37.110] because hundreds of thousands of people
+- [22:39.320] are pouring into our country under birthright citizenship,
+- [22:42.780] and it wasn't meant for that reason.
+- [22:44.250] It was meant for the babies of slaves.
+- [22:47.620] So thanks to this decision, we can now promptly file
+- [22:51.220] to proceed with these numerous policies,
+- [22:54.870] those that have been wrongly enjoined on a nationwide basis,
+- [22:57.900] including birthright citizenship,
+- [23:00.090] ending sanctuary city funding, suspending refugee resettlement,
+- [23:04.890] freezing unnecessary funding, stopping federal taxpayers
+- [23:08.230] from paying for transgender surgeries,
+- [23:11.160] and numerous other priorities of the American people.
+- [23:15.320] We have so many of them. I have a whole list.
+- [23:17.100] I'm not going to bore you, and I'm going to have Pam get up
+- [23:20.160] and say a few words,
+- [23:21.800] but there's really, she can talk as long as she wants
+- [23:24.020] because this is a very important decision.
+- [23:25.650] This is a decision that covers a tremendous amount of territory.
+- [23:30.270] But I want to just thank,
+- [23:31.580] again, the Supreme Court for this ruling.
+- [23:33.550] It's a giant, it's a giant, and they should be very proud,
+- [23:38.260] and our country should be very proud
+- [23:39.970] of the Supreme Court today. And with that,
+- [23:42.020] I'd like you to listen to the words of Pam Bondi.
+- [23:46.540] She's an incredible attorney general.
+- [23:48.090] We're very proud of her.
+- [23:49.720] And as you know, Todd Blanch is with us,
+- [23:52.560] and we have so many others
+- [23:54.590] that worked on this case and other cases,
+- [23:57.480] and I think they're doing a great job.
+- [23:58.920] Pam, please say a few words.
+- [24:03.910] Attorney General Bondi: Thank you,
+- [24:05.170] President Trump.
+- [24:07.250] Thank you for fighting for all Americans.
+- [24:10.080] Americans are finally getting what they voted for.
+- [24:13.280] No longer will we have rogue judges striking down
+- [24:17.170] President Trump's policies across the entire nation.
+- [24:21.380] No longer.
+- [24:22.660] Today, in the 6-3 opinion, Justice Barrett correctly holds
+- [24:26.300] that the district court lacks authority
+- [24:28.690] to enter nationwide or universal injunctions.
+- [24:32.480] These lawless injunctions gave relief to everyone in the world
+- [24:37.220] instead of the parties before the court.
+- [24:40.350] In the Supreme Court held today,
+- [24:42.790] they turned district courts into the imperial judiciary.
+- [24:47.770] Active liberal justices,
+- [24:50.470] judges have used these injunctions
+- [24:52.400] to block virtually all of President Trump's policies.
+- [24:56.550] To put this in perspective,
+- [24:58.930] there are 94 federal judicial districts.
+- [25:04.170] Five of those districts throughout this country
+- [25:07.820] held 35 of the nationwide injunctions. Think about that.
+- [25:12.460] Ninety-four districts and 35 out of the 40 opinions
+- [25:17.140] with nationwide injunctions
+- [25:18.470] came from five liberal districts in this country.
+- [25:22.820] No longer. No longer.
+- [25:25.830] These injunctions have blocked our policies
+- [25:28.040] from tariffs to military readiness
+- [25:29.900] to immigration to foreign affairs,
+- [25:31.710] fraud, abuse, and many other issues.
+- [25:35.300] The judges have tried to seize the executive branch's power
+- [25:39.510] and they cannot do that. No longer. No longer.
+- [25:43.300] And on immigration, on a side note,
+- [25:45.470] today marks 2,711 arrests
+- [25:50.160] on these terrorists and these gangs.
+- [25:53.760] Total arrests today with HSI investigations.
+- [25:57.810] And thank you, Stephen Miller. Thank you to Homeland Security.
+- [26:01.760] Thank you to everyone working hand-in-hand with the FBI
+- [26:05.730] on all of these transnational gangs.
+- [26:08.320] TDA has been a huge terror to our country,
+- [26:11.220] as well as MS-13, as well as Sinaloa cartels.
+- [26:14.890] No longer. No longer.
+- [26:17.680] These injunctions have allowed district court judges
+- [26:20.700] to be emperors.
+- [26:22.140] They vetoed all of President Trump's power
+- [26:25.940] and they cannot do that.
+- [26:27.720] This has been a bipartisan problem
+- [26:30.330] that has lasted five presidential terms.
+- [26:34.350] Five different presidents. And it has ended today.
+- [26:38.680] We will continue to fight for President Trump's policies.
+- [26:41.920] I want to thank the Office of White House Counsel,
+- [26:44.650] Dave Warrington, you and your staff have been incredible.
+- [26:47.460] Our Solicitor General's Office, John Sowers, Sarah Harris,
+- [26:51.500] and Todd Blanche and Emil Bovey. That's going to say a few words
+- [26:54.970] because we've had another major ruling today
+- [26:58.090] on transgender books and some other great wins that we've had.
+- [27:02.150] But no longer will they have this power in our country.
+- [27:05.410] It is the President's authority under his executive branch
+- [27:09.630] to do everything to fight for the American people
+- [27:12.160] and he will continue to do that.
+- [27:13.990] That's why he was overwhelmingly elected.
+- [27:16.720] Thank you. Thank you. Thank you.
+- [27:20.510] Todd Blanche: Today's a great day for the rule of law.
+- [27:23.880] It's a great day for the Justice Department.
+- [27:25.980] And it's one that's been a long time coming
+- [27:28.560] and one that every American should have been
+- [27:30.900] waiting for with bated breath.
+- [27:32.840] And so I echo what the President said and Attorney General Bondi
+- [27:36.710] that the Supreme Court did a great thing today,
+- [27:39.210] not only for this administration,
+- [27:41.510] but for every American in this country.
+- [27:45.000] If not for the injunctions case, we would be here talking about
+- [27:48.080] another great decision that came down today,
+- [27:49.890] the trans books case, which restores parents' rights
+- [27:53.030] to decide their child's education.
+- [27:55.090] Seems like a basic idea, but it took the Supreme Court
+- [27:59.110] to set the record straight and we thank them for that.
+- [28:01.580] And now that ruling allows parents
+- [28:03.510] to opt out of dangerous trans ideology
+- [28:07.160] and make the decisions for their children
+- [28:09.290] that they believe is correct.
+- [28:10.490] And so we thank the Supreme Court for that.
+- [28:12.290] There's been multiple decisions over the past several weeks
+- [28:16.080] that just show why this injunction,
+- [28:18.700] why this nationwide injunction ban had to happen.
+- [28:21.710] For example, what I mean by that is local district court judges
+- [28:25.840] issuing decisions that are clearly contrary to law
+- [28:28.590] just because they don't like the policy of President Trump.
+- [28:31.550] And when it gets to the Supreme Court,
+- [28:32.960] the Supreme Court has to correct it.
+- [28:34.730] But that takes time.
+- [28:36.460] The Attorney General thanked our lawyers
+- [28:38.650] and I'll do it again.
+- [28:40.080] Our lawyers are working 24 hours a day,
+- [28:42.430] seven days a week to fight these injunctions
+- [28:45.250] and do emergency appeals,
+- [28:46.810] emergency stays, going back to the district court judge,
+- [28:49.030] asking them to change their view.
+- [28:50.830] And so their hard work is really paying off today,
+- [28:54.280] but over the past few weeks,
+- [28:55.640] we had a stay of an order that prevented DHS
+- [28:58.400] from moving aliens to a third country.
+- [29:00.520] We had a stay of an order
+- [29:01.750] that stopped the Department of Defense
+- [29:03.280] from implementing military readiness,
+- [29:05.920] the EO that President Trump signed.
+- [29:07.910] We had another stay of an order forcing reinstatement of fired
+- [29:11.110] Executive Branch employees entirely within the President
+- [29:14.270] and Article 2, his right to do.
+- [29:16.350] We had a stay of, as you all know, of numerous DOJ cases.
+- [29:19.960] And again, every one of those stays requires a tremendous
+- [29:23.760] amount of work and effort
+- [29:25.580] by the lawyers and parties involved,
+- [29:27.590] and they should be doing other work.
+- [29:29.090] They should be doing the work that the President
+- [29:31.490] and this administration are doing,
+- [29:36.500] these local judges who don't make decisions based on the law.
+- [29:41.020] They make decisions because they just simply don't agree
+- [29:43.410] with the administration's decision about policy,
+- [29:45.880] and that's wrong. Thank you.
+- [29:50.100] Any questions? Yes, for Pam, please. Go ahead.
+- [29:57.070] The Press: Thank you, Madam Attorney General.
+- [29:59.570] So, as you know, the Supreme Court did not rule
+- [30:02.150] on the underlying constitutionality
+- [30:04.850] of the President's Birthright Citizenship Order.
+- [30:07.670] So, what is the plan now?
+- [30:10.000] Are you going to try to implement
+- [30:11.630] the EO just in states where there isn't a legal challenge?
+- [30:15.720] AG Bondi: So, Birthright Citizenship
+- [30:17.460] will be decided
+- [30:18.780] in October in the next session by the Supreme Court,
+- [30:21.270] unless it comes down in the next few minutes.
+- [30:23.920] I guess it could come down. There's still…
+- [30:25.900] I think they're still deliberating right now
+- [30:27.390] on some cases.
+- [30:28.620] As you heard, we just got transgender books,
+- [30:30.440] which is a huge win.
+- [30:31.900] But most likely, that will be decided in October
+- [30:34.880] in the next session.
+- [30:36.190] However, it indirectly impacts us because,
+- [30:39.010] as you correctly pointed out,
+- [30:40.550] if there's a Birthright Citizenship case in Oregon,
+- [30:43.520] it will only affect the plaintiff in Oregon,
+- [30:46.220] not the entire country.
+- [30:48.010] So, yes, it's indirectly, but that's pending litigation,
+- [30:50.750] and we're waiting on that in the next term.
+- [30:52.490] The Press: And how concerned are you that the Supreme Court
+- [30:54.270] will come back and determine
+- [30:56.030] that the executive order is unconstitutional?
+- [30:57.660] AG Bondi: Oh, we're very confident
+- [30:58.940] in the Supreme Court.
+- [31:00.180] But again, it's pending litigation,
+- [31:01.940] and that will directly be determined in October,
+- [31:04.760] but it indirectly impacts every case in this country,
+- [31:07.600] and we're thrilled with their decision today.
+- [31:09.250] Peter?
+- [31:10.520] The Press: Madam Attorney General,
+- [31:11.750] thank you for being here to take our questions.
+- [31:13.140] A couple questions to the both of you.
+- [31:14.530] The EO goes…
+- [31:16.030] Had a 30-day grace period before it goes into effect.
+- [31:19.190] Is there any thought about trying to make it
+- [31:21.140] effective immediately, within that period of time?
+- [31:23.680] AG Bondi: We're going to follow the law.
+- [31:25.040] We're going to make those decisions,
+- [31:26.620] and we're going to do what's right.
+- [31:27.830] The Press: And then the DOJ didn't ask the justices
+- [31:30.540] to rule on the merits of the birthright citizenship ban,
+- [31:34.470] just for explanation purposes, why?
+- [31:36.190] AG Bondi: Sure, because that's going to come down in October.
+- [31:40.370] This was huge, because it's indirectly impacted today.
+- [31:43.880] As I said, now it's case by case. Let me reiterate.
+- [31:48.050] Of the 35, of the 40 nationwide injunctions
+- [31:52.160] filed against this President, against his executive authority
+- [31:55.920] as President of the United States,
+- [31:58.120] 35 of them came from Maryland, D.C.,
+- [32:01.070] Massachusetts, California, Washington.
+- [32:04.580] I mean, that's crazy. These five districts.
+- [32:07.450] So yes, it indirectly impacts us.
+- [32:09.470] It will be a separate decision in October.
+- [32:11.230] Next question.
+- [32:12.450] The Press: Thank you, Mr. President.
+- [32:14.030] A question for you, sir.
+- [32:15.250] Do you believe this ends the power of the lower court
+- [32:17.970] judges to stop your agenda?
+- [32:19.720] Do you see this as a full green light
+- [32:21.310] for your agenda going forward?
+- [32:22.570] The President: Well, you'd have to really speak
+- [32:23.810] to the lawyers about that,
+- [32:25.050] but this is really also a decision based on common sense.
+- [32:28.420] It didn't work the other way.
+- [32:29.810] It was a disaster where somebody from a certain location
+- [32:33.830] in a very liberal state or a liberal judge
+- [32:36.840] or a liberal group of judges
+- [32:38.290] could tie up a whole country for years,
+- [32:40.650] because their decision
+- [32:42.340] would sometimes take years to overturn.
+- [32:44.130] We've overturned many of the decisions,
+- [32:46.720] but it would take years to do it.
+- [32:48.020] And we have to act quickly when it comes to illegal immigration.
+- [32:51.830] We have murderers, killers. We have drug dealers.
+- [32:55.790] We have what they've allowed to come into our country
+- [32:58.680] should never be forgotten. It should never be forgotten
+- [33:01.290] what they've done to our country.
+- [33:02.830] And we have to be able to act very quickly.
+- [33:05.130] And we're going to do that. Thank you.
+- [33:08.410] The Press: I know that you praised
+- [33:09.640] her and her opinion here in this case.
+- [33:12.100] She has taken some heat, though,
+- [33:13.560] from some of your supporters who have labeled her weak,
+- [33:16.070] a squishy, a rattled law professor.
+- [33:18.080] What is your take on that?
+- [33:19.340] The President: I don't know about that.
+- [33:20.550] I just have great respect for her.
+- [33:22.160] I always have.
+- [33:23.460] And her decision was brilliantly written today from all accounts.
+- [33:29.410] The Press: Mr. President, what would you say to Americans
+- [33:32.850] who fear that this is more and more concentration of power
+- [33:36.970] in the White House
+- [33:38.280] and in this way brings back the Constitution?
+- [33:41.060] The President: This is what it's all about.
+- [33:42.360] And this is really the opposite of that.
+- [33:44.050] I mean, the question is fine, but it's the opposite.
+- [33:46.400] The Constitution has been brought back.
+- [33:49.820] Thank you so much.
+- [33:51.580] Thank you so much, President Trump,
+- [33:53.230] the legal problems in the border are zero now, zero.
+- [33:57.130] Does everyone hear that? Trump 2028.
+- [34:02.650] I like him. I like him. He's working the cameras.
+- [34:11.750] New reality. President Trump in the border.
+- [34:19.400] I do that anyway. I do that.
+- [34:24.380] I need to have a professional presence.
+- [34:29.130] The President: For example, as an example,
+- [34:31.690] not South America, but NATO over the weekend,
+- [34:34.860] they have great respect for our country.
+- [34:36.370] Now they did things that nobody thought was possible.
+- [34:39.230] They took funding from 2 percent to 5 percent.
+- [34:41.320] Nobody thought they'd ever pay the 2 percent.
+- [34:43.210] And now they're paying the 5 percent.
+- [34:45.230] It's over a trillion dollars more a year.
+- [34:47.520] Think of that, a trillion dollars.
+- [34:50.190] Nobody thought that could happen.
+- [34:51.400] That's a different group of people, different countries.
+- [34:54.240] But we get along with a lot of countries.
+- [34:56.690] We are respected again.
+- [34:58.070] Our country, the U.S., is respected again.
+- [35:01.110] Was not respected six months ago, I can tell you that.
+- [35:07.340] The Press: Mr. President, you have a deadline
+- [35:08.970] coming up on trade in a few weeks.
+- [35:10.890] Which country is on trade on tariffs?
+- [35:14.340] Which countries, if any, are close to agreements
+- [35:16.050] with the administration?
+- [35:17.250] The President: Well, that's an interesting question.
+- [35:19.240] We've made a deal with China. We've made a deal
+- [35:21.270] with probably four or five different countries.
+- [35:24.570] With the U.K., it was a great deal for both.
+- [35:28.180] And we're in the process of making some others.
+- [35:30.160] But ultimately, in fact, Scott is here and Howard Lutnick.
+- [35:33.530] These two guys have been doing an incredible job,
+- [35:35.510] and the people that work with them
+- [35:36.710] have been doing an incredible job.
+- [35:38.910] But, you know, we have 200 countries,
+- [35:40.990] you could say 200 countries plus.
+- [35:42.630] We can't do that.
+- [35:43.860] So at a certain point over the next week and a half or so,
+- [35:46.900] or maybe before, we're going to send out a letter.
+- [35:49.340] We've talked to many of the countries,
+- [35:51.260] and we're just going to tell them what they have to pay
+- [35:53.420] to do business in the United States.
+- [35:55.660] And it's going to go very quickly.
+- [35:57.740] But some of the bigger countries, so India,
+- [36:00.260] I think we're going to reach a deal
+- [36:01.940] where we have the right to go in and trade.
+- [36:03.930] Right now, it's restricted. You can't walk in there.
+- [36:05.980] You can't even think about it.
+- [36:07.230] We're looking to get a full trade barrier dropping,
+- [36:12.450] which is unthinkable.
+- [36:14.480] And I'm not sure that that's going to happen.
+- [36:16.050] But as of this moment, we've agreed to go into Indian trade.
+- [36:19.000] We're going to be trading in China.
+- [36:20.760] That's going to come a little bit down the road,
+- [36:22.320] but we're going to be trading in China.
+- [36:24.000] We have a lot of great things going,
+- [36:25.470] and we're getting along with countries,
+- [36:26.920] but some will be disappointed
+- [36:28.940] because they're going to have to pay tariffs.
+- [36:30.590] And we've taken in already hundreds of billions
+- [36:34.180] of dollars in tariffs. No inflation.
+- [36:37.070] The only problem we have is we have a Fed guy
+- [36:38.840] that doesn't understand what's happening.
+- [36:40.570] And it would be great if it lowered the rate
+- [36:42.480] because we'd be able to borrow a lot cheaper.
+- [36:49.930] Why don't we keep it on this subject?
+- [36:51.650] This is such a big subject.
+- [36:53.420] You know what? Trade is so big. But I don't know.
+- [36:56.290] In a certain way, this might be bigger than trade.
+- [37:00.370] I think this is bigger than trade.
+- [37:01.750] Yes, please. Go ahead.
+- [37:04.140] The Press: Sir, on the China's gender ruling,
+- [37:05.850] the Supreme Court ruling
+- [37:07.610] that parents with religious objections
+- [37:09.710] can pull their kids out of public school lessons
+- [37:11.940] that use LGBTQ materials. Pam brought it up.
+- [37:15.350] Your reaction to that ruling today?
+- [37:16.770] The President: I think the ruling was a great ruling,
+- [37:18.740] and I -- I think it's a great ruling for parents.
+- [37:21.310] It's really a ruling for parents.
+- [37:23.610] They lost control of the schools.
+- [37:25.330] They lost control of their child.
+- [37:27.610] And this is a tremendous victory for parents.
+- [37:30.460] And I'm not surprised by it.
+- [37:32.150] But I am surprised that it went this far.
+- [37:35.540] It took us to bring life back to normal.
+- [37:37.740] So it's wonderful. It's parental.
+- [37:39.870] And I kept saying, we will give you back your parental rights.
+- [37:43.390] They were taken away.
+- [37:44.600] And this is a tremendous victory for parents.
+- [37:47.050] The Press: Mr. President, if you look back at the last week,
+- [37:49.990] it's been extraordinary in terms of the action
+- [37:52.640] in the Middle East. You were at the Hague.
+- [37:54.840] Another week, hasn't it? I'm wondering now, sir,
+- [37:59.510] if you believe that Iran has given up
+- [38:01.620] its long history of ambitions with nuclear weapons,
+- [38:06.050] or what you would like to see from them to prove that they do.
+- [38:09.860] And what type of meetings is your administration
+- [38:11.840] looking for next week with Iran?
+- [38:14.320] The President: So Iran wants to meet.
+- [38:16.150] As you know, their sites were obliterated.
+- [38:18.290] They're very evil nuclear sites. They were now has been proven.
+- [38:21.520] We had some fake news for a little while.
+- [38:23.790] The same people that covered
+- [38:25.390] the Hunter Biden laptop was from Russia.
+- [38:28.470] The same people that did three or four other Russia,
+- [38:31.410] Russia, Russia hoax. No, no. Wait, wait. Just listen.
+- [38:35.580] They came up with something that delayed the credit
+- [38:38.860] that our great pilots and these great America.
+- [38:40.830] I mean, they want talent. That was.
+- [38:42.910] And they hit it right down in the spot.
+- [38:45.190] Fifty two thousand feet. Think of this dark.
+- [38:47.690] No moon. You couldn't see a thing.
+- [38:49.920] And they hit the refrigerator door, as they say.
+- [38:52.300] That's the size of a target.
+- [38:55.130] And overwhelmingly. And it's amazing what was done.
+- [38:59.690] We're the only ones that could have done it.
+- [39:01.170] And we took out the two of the other sites also.
+- [39:04.420] In addition to that, we finished them off.
+- [39:06.700] That was very evil intention. I believe that.
+- [39:10.410] And again, time will tell. But I don't believe
+- [39:13.790] that they're going to go back into nuclear anytime soon.
+- [39:17.600] They spent over a trillion dollars on nuclear
+- [39:19.800] and they never got it together.
+- [39:22.120] And nothing was moved from the site, by the way,
+- [39:23.890] to do that is very dangerous. It's very, very heavy material.
+- [39:27.580] Those cars were most likely the cars of masons
+- [39:30.200] because they were pouring concrete at the top
+- [39:32.850] at the hatch,
+- [39:34.100] as you know, the hatch going into the nuclear site.
+- [39:36.960] They wanted to reinforce it.
+- [39:38.360] And they had some masons there pouring concrete.
+- [39:41.650] By the way, that concrete was obliterated.
+- [39:44.080] It hit exactly at the concrete.
+- [39:46.170] It was I don't think it had a chance to dry.
+- [39:49.120] But everything's down there it's under millions of tons of rock.
+- [39:58.900] The Press: Your administration has said that El Salvador
+- [40:00.870] is one of the basic countries in the hemisphere.
+- [40:03.320] So why haven't you yet canceled temporary protective status
+- [40:05.890] to that country? Was it part of the deal?
+- [40:07.430] The President: Well we'll take a look.
+- [40:08.640] We've had a great relationship with El Salvador.
+- [40:10.850] They have a fantastic leader.
+- [40:12.700] They built a massive prison system.
+- [40:16.330] And I don't know exactly why but it's a hell of a system.
+- [40:20.040] And we bring people there
+- [40:21.340] and when they go there they don't get out.
+- [40:24.170] And frankly when they hear they have to go there
+- [40:25.900] they become very nice people. They become very nice people.
+- [40:29.300] It's a tough system but it's a brilliant system.
+- [40:31.630] And it's a system done by a very very good leader.
+- [40:35.400] And we'll talk about El Salvador.
+- [40:36.860] A lot of respect. Thank you.
+- [40:40.390] The Press: A question for you
+- [40:41.680] and then a question for the Attorney General.
+- [40:43.890] As you go into negotiations and talks with Iran
+- [40:47.040] are you demanding not only
+- [40:48.430] that there would be no uranium production inside of Iran
+- [40:51.960] but also that Iran would turn over
+- [40:53.960] all existing stockpiles of uranium?
+- [40:56.350] The President: Well you know we're a little early for that
+- [40:58.150] but something like that.
+- [40:59.370] Yeah we'll do something like that.
+- [41:01.120] Let me say that I've been saying for 25 years
+- [41:05.060] even as a civilian you cannot let them have a nuclear weapon.
+- [41:09.860] And that's what happened. It's been obliterated.
+- [41:11.910] It would be years before they could ever get going.
+- [41:14.070] And I really think it's probably the last thing
+- [41:16.340] they have to recover from a hell of a tough war.
+- [41:19.520] The Press: Would you also be demanding
+- [41:20.790] that the IAEA have full rights to inspect in Iran?
+- [41:24.270] The President: Or somebody. Yeah.
+- [41:25.540] Or somebody that we respect. Including ourselves.
+- [41:28.370] The Press: And a question for both the President
+- [41:30.000] and the Attorney General.
+- [41:31.460] Under birthright citizenship if this is implemented,
+- [41:34.330] who would be tasked with actually vetting citizenship?
+- [41:37.610] And would this be a situation
+- [41:39.090] where you have nurses and doctors
+- [41:41.070] checking for citizenship for parents?
+- [41:44.690] AD Bondi: This is all pending litigation.
+- [41:46.170] It's going to be decided in October by the Supreme Court
+- [41:50.570] and we'll discuss that after the litigation.
+- [41:52.460] The Press: If you have an undocumented baby,
+- [41:54.440] would that baby then be an enforcement priority?
+- [41:58.050] AD Bondi: The violent criminals in our country are the priority.
+- [42:02.460] Now let me put it in perspective.
+- [42:04.620] Today marks the 2,711th arrest in our country of TDA members.
+- [42:11.900] Just TDA.
+- [42:13.270] Everyone in this room agrees they are one of the most
+- [42:15.700] violent criminal organizations in the world.
+- [42:19.610] And the Biden administration let them walk into our country,
+- [42:22.920] walk into our country for the last four years.
+- [42:26.080] 2,711 of them today have been arrested in our country.
+- [42:31.440] That is a priority of Donald Trump.
+- [42:33.100] That is a priority of this country,
+- [42:34.840] of Homeland Security, of all of our lawyers, of FBI.
+- [42:38.540] That's the priority. That will be discussed in October
+- [42:41.660] when the Supreme Court hopefully rules in our favor
+- [42:44.350] and we're very confident of that.
+- [42:46.040] But you should all feel safer now
+- [42:48.110] that President Trump can deport all of these,
+- [42:50.860] all of these gangs and not one district court judge
+- [42:54.740] can think they're an emperor over this administration
+- [42:57.940] and his executive powers
+- [42:59.140] and why the people of the United States elected him.
+- [43:04.560] The President: I just might add one thing
+- [43:06.260] and, you know, they used birthright citizenship,
+- [43:09.200] some of the worst people, some of the cartels,
+- [43:11.110] to get people into our country, just so you know.
+- [43:13.580] And again, I say, if you look at the end of the Civil War,
+- [43:16.370] the 1800s, it was a very turbulent time.
+- [43:19.590] If you take the end day, was it 1869 or whatever,
+- [43:23.410] but you take that exact day, that's when the case was filed
+- [43:26.840] and the case ended shortly thereafter.
+- [43:28.640] This has to do with the babies of slaves, very, very obviously.
+- [43:33.540] And I think we're going to win. People didn't,
+- [43:35.900] I don't think they went about discussing it right.
+- [43:38.020] I came along and we, we looked and we said,
+- [43:40.620] wait a minute, this is wrong.
+- [43:42.040] We've been looking at birthright citizenship wrong for years,
+- [43:45.020] but they've used it.
+- [43:46.230] The cartels have used birthright citizenship
+- [43:48.370] to get very bad people in and what Pam's doing
+- [43:50.660] and what Todd and everybody else,
+- [43:52.430] what they're doing at DOJ and all over FBI,
+- [43:55.360] ICE, Border Patrol. These are incredible people.
+- [43:59.740] They're trying to keep our country safe
+- [44:01.620] and they don't want to have people come in.
+- [44:03.250] This is just another way that they get illegal immigrants
+- [44:06.610] into our, into our country.
+- [44:08.080] And in some cases, very, very bad ones. Go ahead.
+- [44:10.850] The Press: Thank you, Mr. President.
+- [44:12.120] On the tax bill, if I could for a moment,
+- [44:14.600] senators are racing to rewrite parts of it right now
+- [44:17.710] after the Senate parliamentarian ruled
+- [44:19.860] that sections of it were outside of the process
+- [44:23.030] that they're using to get this through.
+- [44:24.870] Do you think that senators should respect
+- [44:27.490] the decisions of the parliamentarian?
+- [44:29.450] And what have you personally done in the last 48 hours
+- [44:32.740] to try and get Republican senators
+- [44:34.610] who are against the bill to a yes?
+- [44:36.470] The President: Well, look, it's a great bill.
+- [44:38.450] It's a massive tax cut.
+- [44:40.480] If it's not approved, your taxes will go up by 68 percent.
+- [44:44.350] Think of that, 68, a record, the highest in the history.
+- [44:47.490] The Democrats won't approve it only
+- [44:49.220] because politically it's so good for the Republicans.
+- [44:52.030] The Democrats aren't approving it.
+- [44:53.780] But think of what they're not approving.
+- [44:55.200] They're not approving border security.
+- [44:57.230] We've done a great job at the border,
+- [44:58.700] but we have to add some wall.
+- [45:00.560] We have to do, you know, various things.
+- [45:03.000] We have no money for that. We have no money for the border.
+- [45:05.460] We have no money for so many things.
+- [45:08.140] But if the Democrats, it'd be interesting to see
+- [45:10.480] if we get any Democrat votes. We should.
+- [45:12.640] If I were a Democrat, I would absolutely, maybe Fetterman
+- [45:15.200] because he seems to be the most sensible one lately.
+- [45:18.500] If I were a Democrat, I would vote for this bill all day long
+- [45:21.100] because it's tax cuts
+- [45:22.420] and so many other things that are common sense.
+- [45:25.210] They're basic things. I think they're doing fine.
+- [45:29.290] The parliamentarian has been a little difficult.
+- [45:32.660] And I would say --
+- [46:12.480] The Press: Mr. President, a leading global economist
+- [46:14.500] just did a one eighty anyd says your tariff plan,
+- [46:17.370] you may have outsmarted everybody with it.
+- [46:19.850] What is your message?
+- [46:21.470] The President: I love this.
+- [46:22.720] I love this question. This is the favorite.
+- [46:24.480] This is the best question I've ever been asked
+- [46:26.190] because I've been going through abuse for years on this.
+- [46:29.130] Because as you know,
+- [46:30.330] we're taking in hundreds of billions of dollars,
+- [46:34.430] no inflation whatsoever.
+- [46:37.210] The Press: Mr. President, what is your message to critics
+- [46:39.330] who think your tariff plan calls a recession?
+- [46:41.770] The President: I think they should go back
+- [46:43.050] to business school.
+- [46:44.510] It's so obvious. It's so obvious.
+- [46:46.360] I mean, we're taking in billions
+- [46:48.440] and billions of dollars from China
+- [46:50.440] and a lot of other countries.
+- [46:52.560] We took in I had a call from somebody
+- [46:55.310] in the house and high official.
+- [46:58.710] Sir, we have a problem. We don't know what to do.
+- [47:00.620] The books are a mess.
+- [47:01.830] I said, what do you mean by the books?
+- [47:03.170] The books, the money, the money coming in is so terrible.
+- [47:06.140] I figured, oh boy, what's this?
+- [47:08.370] I don't like this question. I said, so what?
+- [47:11.550] There's so much money coming in
+- [47:13.130] and there must be some kind of an accounting mistake
+- [47:15.450] because we have hundreds of billions of dollars
+- [47:18.360] more money than we thought. I said, do me a favor.
+- [47:20.670] Go check the call me back. You have to call me back.
+- [47:23.880] Check the tariff column. Calls me back two hours later.
+- [47:28.390] You're right. We took in 88 billion in tariffs.
+- [47:32.090] They have so much money coming in,
+- [47:34.190] but more important than the money coming in.
+- [47:36.270] We have companies coming in,
+- [47:37.800] factories coming in, auto plants being built.
+- [47:40.360] AI is being built here
+- [47:42.110] instead of being built all over Europe and Asia.
+- [47:44.660] We have all of it.
+- [47:46.020] We have over 15 trillion dollars, just about, Scott.
+- [47:49.480] I think we're right about that number.
+- [47:51.440] We went to Saudi Arabia.
+- [47:53.420] We went to Qatar. We went to UAE.
+- [47:55.770] Very smart people, very smart leaders, great leaders.
+- [47:58.650] And we took in 5.1 trillion dollars
+- [48:00.720] just there without the tariffs.
+- [48:02.700] I mean, they also like the thing called November 5th,
+- [48:05.980] November 6th and November 7th.
+- [48:07.650] That was a very good little period of time.
+- [48:09.460] It's called the presidential election.
+- [48:11.250] You know, you used to have one day election.
+- [48:12.750] Now you have it over.
+- [48:14.010] But even if you just took that little period
+- [48:15.770] because it was pretty obvious it was going to be a landslide.
+- [48:18.640] But and they like that. But they love the tariffs.
+- [48:22.210] I had Texas Instruments come in the other day.
+- [48:24.500] Big company.
+- [48:25.870] And he said, we're putting in 60 billion dollars
+- [48:28.770] into new plants and new equipment, new everything.
+- [48:31.440] Sir, you're going to keep the tariffs, aren't you?
+- [48:33.210] Because whoever took the tariffs off
+- [48:35.510] and we are going to absolutely keep it.
+- [48:37.540] And they're worried that somebody that like
+- [48:39.890] this communist from New York someday gets elected.
+- [48:42.530] I can't believe that's happening.
+- [48:43.780] That's a terrible thing for our country, by the way.
+- [48:46.480] He's a communist. We're going to go to a communist.
+- [48:49.620] It's so bad for New York.
+- [48:51.270] But the rest of the country is revolting against it.
+- [48:53.550] But if somebody got elected,
+- [48:55.990] they're afraid that this was taken off.
+- [48:57.760] Well, we're going to guarantee
+- [48:59.640] it's never going to be taken off.
+- [49:01.240] And again, we're taking in hundreds.
+- [49:02.800] Think of this hundreds of billions of dollars.
+- [49:06.550] And they were all confused
+- [49:07.860] because they've never seen this before.
+- [49:09.380] You know, it's always the other way.
+- [49:10.660] We don't have enough money.
+- [49:12.120] So much money is coming in at levels that nobody's ever seen.
+- [49:15.970] But most importantly, we have factories being built,
+- [49:19.030] car plants being built,
+- [49:20.660] companies moving to our country like never before.
+- [49:23.390] If you look at 15 trillion, and that's only in a few months.
+- [49:26.420] You know, I haven't been here that long.
+- [49:29.020] The president's like the last one was a disaster.
+- [49:31.600] One of the he's the worst president
+- [49:32.910] in the history of our country, by the way.
+- [49:34.760] What he did on our border can never, ever be forgotten.
+- [49:37.540] To me, that's the worst of all the things.
+- [49:39.200] And he's done some terrible things, grossly incompetent.
+- [49:42.260] Nobody knew it was him because I don't think it was him.
+- [49:44.590] I think it was whoever was controlling the auto pen
+- [49:47.490] but our country is doing great and those leaders
+- [49:50.720] and other leaders I just left as you know a large group
+- [49:54.490] of the most highly respected people
+- [49:57.150] and that includes big countries you know big countries.
+- [50:00.140] When you look at Germany and France and Spain,
+- [50:02.690] although Spain didn't come through
+- [50:03.900] but they will by the way guaranteed they will --
+- [50:06.550] there was the only country that sort of tried to hold back
+- [50:09.300] on putting up their mind, but just so you know
+- [50:11.730] they said it's unbelievable what's happened to the USA,
+- [50:16.190] you were a dead country, we didn't respect the country,
+- [50:20.610] the leader you were dead as as a doornail.
+- [50:25.450] One said to me you weren't from being a dead country,
+- [50:28.520] you are right now the hottest country anywhere in the world.
+- [50:32.050] The whole world is talking about the USA
+- [50:34.650] and everybody wants a part of it,
+- [50:36.700] and they're pouring into our country
+- [50:38.130] and you're going to see those numbers thank you
+- [50:39.660] for that question.
+- [50:46.590] The Press: Thank you Mr. President.
+- [50:48.030] I have a question about trade Secretary Bessent
+- [50:50.130] has said that he hopes tariff deals with major partners
+- [50:53.470] will be done by Labor Day.
+- [50:55.660] So if some deals are not done by your July 9th deadline
+- [50:59.660] will some countries tariffs go back up
+- [51:01.460] or will they stay where they are?
+- [51:02.920] The President: There's some countries that are used
+- [51:04.240] to ripping us off to be honest with you
+- [51:06.720] and I don't want to name them but you sort of can name them
+- [51:11.010] and they're so used to just you know
+- [51:13.720] getting taking it billions and billions of --
+- [51:16.330] look we had a trade deficit of more than a trillion dollars,
+- [51:20.600] a trillion a trade deficit
+- [51:22.980] that's because nobody cared nobody we cared a lot.
+- [51:26.450] When I took in hundreds of billions of dollars in tariff
+- [51:29.930] we had the greatest economy in history up until now.
+- [51:32.620] I think we're going to blow it away
+- [51:34.620] but during my time and especially prior to COVID
+- [51:37.550] we had the greatest economy in the history of our country.
+- [51:40.280] I think we're going to blow it away now
+- [51:41.690] based on the kind of numbers that we're seeing,
+- [51:44.430] but some countries are very angry
+- [51:46.540] because they've been ripping us off for years,
+- [51:48.990] they've been making billions and billions of dollars.
+- [51:51.260] There was nobody to negotiate with they could do
+- [51:53.230] whatever they want they charge us tariffs.
+- [51:55.040] By the way at numbers that we've never seen before
+- [51:58.850] and we ended up losing much more than a trillion dollars a year,
+- [52:02.190] a trillion dollars a year to on trade.
+- [52:05.760] And now they're being met with a force
+- [52:08.230] that's far greater than them
+- [52:10.200] and they don't like it so they're upset
+- [52:12.220] because instead of making you know five billion dollars.
+- [52:16.210] They're going to break even or they'll make a little bit.
+- [52:19.120] I want to be nice to make a little bit
+- [52:20.530] or we'll make a little bit, it's a big difference.
+- [52:23.300] Teah please.
+- [52:29.320] The Press: Is there any more information
+- [52:30.570] on the social prosecutor
+- [52:32.100] so many Americans have questions about the 2020 election
+- [52:34.890] and speaking of rogue judges
+- [52:36.590] or would you consider appointing somebody at DOJ
+- [52:39.210] maybe to investigate the judges that allowed
+- [52:41.710] for the political persecution of you,
+- [52:43.300] your family, your supporters during the Biden administration.
+- [52:46.470] I love you who are you --
+- [52:49.890] The President: Well that's a very nice question
+- [52:52.630] and it's not a setup.
+- [52:53.880] I have no idea who you are but I appreciate that question
+- [52:57.370] all I can say is we're not here for that, I hope.
+- [52:59.930] So I hope they're doing thing
+- [53:02.050] because that election was rigged and stolen
+- [53:04.440] and we can't allow that to happen you know
+- [53:06.090] a lot of people tell me, sir
+- [53:07.780] you just won the greatest election
+- [53:09.380] in the history of our country.
+- [53:10.610] You wanted numbers that won all seven swing states
+- [53:14.030] won the popular vote, won everything.
+- [53:17.810] Sir go on with your life and the many people
+- [53:21.770] who say that good people friends of mine,
+- [53:23.930] then you have people that say
+- [53:25.610] that same thing go on with your life but…
+- [53:27.140] You have to find out what happened
+- [53:28.540] because you can't let that happen again.
+- [53:31.840] Look at what this lunatic did. Look at what he did.
+- [53:35.330] He opened our borders to people that were murderers.
+- [53:38.030] Eleven thousand eight hundred and eighty-eight
+- [53:40.360] to be exact murderers,
+- [53:42.140] and we've captured many of those murderers
+- [53:44.760] and we're bringing them back
+- [53:46.040] where some of them are so dangerous
+- [53:47.470] that we don't even want to bring them back.
+- [53:49.050] We're afraid they're going to try and come back in.
+- [53:51.490] But he allowed people to come into this country.
+- [53:54.420] People from mental institutions, insane asylums.
+- [53:57.460] That's a mental institution on steroids.
+- [53:59.820] People from mental institutions, gang members,
+- [54:03.640] drug dealers, people.
+- [54:06.530] Jails being emptied out into our country.
+- [54:09.340] Venezuela emptied out almost its entire prison population
+- [54:13.370] into our country. But I don't want to blame them.
+- [54:15.970] Many countries have done that. The Congo.
+- [54:18.830] You know, we have a great press conference coming up later
+- [54:21.960] and it's the Congo and Rwanda.
+- [54:25.940] You know, they were fighting for years and it was machetes.
+- [54:30.560] It was vicious. It was as vicious.
+- [54:32.590] People's heads being chopped off.
+- [54:35.160] And I have a man who's very good in that part of the world,
+- [54:37.370] very smart, and put them together
+- [54:40.130] and we're signing a peace treaty today.
+- [54:41.720] First time in many years they're going to have peace
+- [54:44.360] and it's a big deal.
+- [54:46.270] You know, we talked about Russia and we're going to work.
+- [54:48.400] We're working that one. That President Putin called up
+- [54:51.240] and he said, “I'd love to help you with Iran.”
+- [54:54.610] I said, “Do me a favor, I'll handle Iran.
+- [54:57.760] Help me with Russia.” We got to get that one settled
+- [55:00.530] and I think something's going to happen there.
+- [55:02.780] But we did some great work.
+- [55:05.530] India and Pakistan, that was going to be maybe nuclear.
+- [55:08.750] We did that. We did a lot of work.
+- [55:10.670] I don't know if there's ever been a president
+- [55:12.350] that's done much more.
+- [55:14.270] Serbia Kosovo is going to go at it.
+- [55:16.870] Going to be a big war. I said, “You go at it,
+- [55:19.240] there's no trade with the United States.”
+- [55:21.820] They said, “Well, maybe we won't go at it.”
+- [55:24.300] That's what happened with India and Pakistan.
+- [55:27.800] I was negotiating with both of them and I said to Scott,
+- [55:31.040] I said to Howard,
+- [55:32.540] “Cancel all deals with India and Pakistan.
+- [55:35.160] They're not trading with us because they're in a war.”
+- [55:37.310] They call back. “What do we do?”
+- [55:39.280] I said, “Look, you want to have trade with the United States?
+- [55:43.090] It's great. But you want to go
+- [55:44.690] and start using nuclear weapons on each other?
+- [55:46.970] We're not going to allow that.” And they both agreed.
+- [55:49.600] Both have great leaders. They both agreed not to do it.
+- [55:52.130] So we did a lot, but I appreciate that question.
+- [56:02.980] The Press: Thank you, Mr. President.
+- [56:04.650] I was just speaking with Senator Ron Johnson
+- [56:06.880] on the one big beautiful bill
+- [56:08.240] and he says he really wants to get to yes for you
+- [56:10.820] and get this accomplished. He does. He's a good man.
+- [56:13.170] But he also said that he needs more time
+- [56:15.090] and he is not certain that the July 4th deadline is possible.
+- [56:17.320] The President: Well, then he's not such a good man.
+- [56:19.590] He's a good man and Ron Johnson's doing a good job.
+- [56:21.890] He's very committed.
+- [56:23.300] Every Republican Senator is committed and you know,
+- [56:27.180] you could have a couple of grandstanders.
+- [56:29.240] In all fairness, you could have somebody else
+- [56:31.210] and it's very dangerous because our country would go
+- [56:34.210] from being the most successful country in the world
+- [56:36.280] to who knows what happens with a 68 percent.
+- [56:39.180] Think of it, 68 percent tax increase
+- [56:41.850] that was given by the Democrats because they like high taxes.
+- [56:45.200] I don't know what happened.
+- [56:46.400] You know, all my life I'd grow up
+- [56:48.420] and I'd watch politicians talking and say,
+- [56:51.090] “Oh, that's fun,” and they were always saying,
+- [56:52.960] “We will cut your taxes. We will cut your taxes.”
+- [56:55.520] I never heard it. They say, “We will raise your taxes,”
+- [56:59.310] and the elect people like this guy in New York
+- [57:01.620] that maybe has a chance.
+- [57:02.910] I find it hard to believe, but he maybe has a chance.
+- [57:05.790] They want to raise your taxes.
+- [57:07.130] So they want to see a 68 percent tax increase.
+- [57:10.840] That's more money than anybody could afford.
+- [57:12.750] You'd go into a depression if that ever happened.
+- [57:15.350] So I think there's a lot of pressure to get that approved.
+- [57:20.810] The Press: How important is the July 4th deadline to you?
+- [57:23.690] The President: It's important. It's not the end all.
+- [57:25.640] It can go longer, but we'd like to get it done
+- [57:27.920] by that time if possible.
+- [57:29.550] Look, we have a lot of very committed people
+- [57:31.320] and they feel very strongly about a subject,
+- [57:34.010] subjects that you're not even thinking about
+- [57:35.990] that are important to Republicans.
+- [57:38.500] The problem we have is that it's a great bill.
+- [57:42.380] It's a popular bill, but we'll get no Democrats
+- [57:45.110] only because they don't want to vote for Trump.
+- [57:48.140] If that bill was their bill, oh, they would be so happy.
+- [57:51.160] It's so great for our military.
+- [57:53.080] It's great for everything and they would normally vote.
+- [57:57.330] But because their hatred of Trump,
+- [57:58.880] they have Trump derangement syndrome
+- [58:01.200] at levels never seen before,
+- [58:03.160] and instead of voting for a tax cut,
+- [58:06.880] they're voting for a tax increase of 68 percent.
+- [58:09.610] They're voting to destroy Social Security,
+- [58:12.550] destroy Medicare, and destroy Medicaid,
+- [58:15.750] and we're voting to make them perfect
+- [58:17.470] and to make them better, make them stronger and better.
+- [58:20.820] They're going to destroy Medicaid
+- [58:22.250] and they're going to destroy Medicare
+- [58:23.930] and Social Security will follow. If you vote for the Democrats,
+- [58:27.870] you're dead on those three things.
+- [58:32.410] The Press: Thank you, Mr. President.
+- [58:33.630] On a related subject, many Democrats have said
+- [58:36.060] that they are not going to support crypto bills in Congress
+- [58:39.710] only because of you and your family's
+- [58:41.820] personal crypto ventures,
+- [58:44.090] and these votes are in some cases needed to pass.
+- [58:46.450] Are you open to the idea of pulling away
+- [58:49.000] from your personal crypto ventures
+- [58:50.750] just for the next few years
+- [58:52.040] if that helps get these crypto bills
+- [58:53.510] passed in the next few months?
+- [58:54.980] The President: Well, it's a very funny thing, crypto.
+- [58:56.520] So I became a fan of crypto and to me it's an industry.
+- [59:00.260] I view it as an industry and I'm president,
+- [59:02.610] and if we didn't have it, China would,
+- [59:03.990] or somebody else would, but most likely China.
+- [59:05.980] China would love to, and we've dominated that industry.
+- [59:09.150] It's a big industry, by the way.
+- [59:10.370] In fact, when the stock market went down recently,
+- [59:12.620] crypto and Bitcoin and all of that went down much less
+- [59:15.550] than anybody else as a group,
+- [59:18.430] and we've created a very powerful industry,
+- [59:20.450] and that's much more important than anything that we invest in.
+- [59:24.370] We invest in it, but really that was an industry
+- [59:27.090] that wasn't doing particularly well.
+- [59:28.720] I got involved with it a couple of years ago
+- [59:31.320] and before this whole, before the second term,
+- [59:34.380] I got involved before I decided to run.
+- [59:37.470] I only decided to run because I saw what was happening
+- [59:39.850] and Biden was incompetent and the administration
+- [59:42.120] was crooked and incompetent, and I was in Bitcoin then,
+- [59:46.700] not knowing if I was going to do it a third time.
+- [59:50.330] So it's become amazing.
+- [59:52.920] I mean, it's the jobs that it produces.
+- [59:55.120] And I notice more and more you're paying Bitcoin.
+- [59:57.360] I mean, people are saying
+- [59:58.580] it takes a lot of pressure off the dollar.
+- [01:00:01.700] And it's a great thing for our country.
+- [01:00:03.130] So I don't care about investing. You know, I have my, I have kids
+- [01:00:07.910] and they invest in different things.
+- [01:00:09.200] They do believe in it. But I'm president.
+- [01:00:11.980] And what I did do there
+- [01:00:13.280] is build an industry that's very important.
+- [01:00:15.510] And, you know, if we didn't have a China would.
+- [01:00:24.320] The Press: So are you going to cut funds
+- [01:00:26.650] in the sanctuary states like, for instance, California
+- [01:00:29.310] to keep supporting illegal immigration?
+- [01:00:31.590] And then these people work.
+- [01:00:32.870] The President: Yeah, we're giving them a hard time.
+- [01:00:34.400] And also important policy questions.
+- [01:00:37.620] They don't have a governor in California.
+- [01:00:39.550] They have a man that wants to give away
+- [01:00:40.970] everything to people that nobody's seen before.
+- [01:00:45.310] If we didn't go into Los Angeles with the military,
+- [01:00:48.970] which did a fantastic job.
+- [01:00:50.560] But if we didn't go into Los Angeles,
+- [01:00:52.510] bringing in the National Guard,
+- [01:00:53.890] I would have brought the military
+- [01:00:55.130] if it was necessary, because you have to.
+- [01:00:57.450] We have the right to.
+- [01:00:58.730] That was another thing upheld by the Supreme Court.
+- [01:01:01.300] But if we didn't go in with the National Guard
+- [01:01:03.990] and be strong and tough,
+- [01:01:06.630] you wouldn't maybe have a Los Angeles.
+- [01:01:08.390] It would be like the rest of California,
+- [01:01:10.230] the rest of Los Angeles.
+- [01:01:11.690] They lost 25,000 houses in a fire.
+- [01:01:14.440] They should have lost none. You know, I sent the water down.
+- [01:01:17.800] I had to break into their water supplies
+- [01:01:20.020] because they just refused to do it.
+- [01:01:21.330] They're crazy.
+- [01:02:14.860] The Press: President Trump. Anthony from Lebanon.
+- [01:02:17.770] I want to ask you regarding the threats
+- [01:02:19.690] posed by Iran's allies and proxies operating in the U.S.
+- [01:02:23.290] They were threatening your life. So what do you say about that?
+- [01:02:26.080] And regarding the Lebanon,
+- [01:02:27.640] because Hezbollah is part of Iran's allies.
+- [01:02:30.710] Is there any time frame in Lebanon
+- [01:02:33.330] regarding Hezbollah in Lebanon?
+- [01:02:35.560] The President: Yeah.
+- [01:02:36.820] Lebanon is a great place with brilliant people.
+- [01:02:39.990] You know, it was known for the professors and doctors
+- [01:02:42.620] and had an incredible history.
+- [01:02:44.490] And hopefully we can bring it back again.
+- [01:02:46.180] I just appointed a friend of mine who's Lebanese,
+- [01:02:49.780] and I didn't know he was Lebanese.
+- [01:02:51.170] I've known him for 20 years. Very, very successful man.
+- [01:02:54.520] And I just appointed him.
+- [01:02:57.480] And I said, why would you want that?
+- [01:02:59.260] He said, because I was born there.
+- [01:03:00.740] I was raised there. I love it. I love it so much.
+- [01:03:03.650] I said, you know, it's very dangerous
+- [01:03:04.950] going to Lebanon as ambassador.
+- [01:03:07.710] And he said, that's what they say.
+- [01:03:09.650] But I don't care about danger.
+- [01:03:11.270] I mean, this is a guy that is just a very big business guy.
+- [01:03:14.410] He wants to give up his whole life to go to Lebanon
+- [01:03:16.770] because he believes in it so much.
+- [01:03:19.120] We're with Lebanon all the way. We'll try and straighten it out.
+- [01:03:22.490] Threaten their life. Threaten my life.
+- [01:03:25.410] Yeah, they have threatened.
+- [01:03:26.700] I get that throbbing feeling every once in a while.
+- [01:03:29.120] Get that throbbing feeling.
+- [01:03:30.450] But you know what? That's OK. This is a dangerous business.
+- [01:03:34.830] What I do is a dangerous business.
+- [01:03:36.480] You know, I tell the story of the car companies
+- [01:03:38.640] and different people in different professions.
+- [01:03:41.010] You have race car drivers, as an example.
+- [01:03:43.950] One tenth of one percent die.
+- [01:03:47.760] Bull riders, one tenth of one percent.
+- [01:03:50.910] That's not a lot, but it's people die.
+- [01:03:54.320] When you're president, it's about five percent.
+- [01:03:57.100] If somebody would have told me that, maybe I wouldn't have run.
+- [01:04:02.550] This is a very dangerous profession.
+- [01:04:10.370] Should, by the way, so many questions.
+- [01:04:11.680] Should we keep this going? This is the opposite of Biden.
+- [01:04:19.880] Biden would take a half a question
+- [01:04:21.470] and he'd leave without answering it.
+- [01:04:23.110] Go ahead. You tell me when it gets boring.
+- [01:04:32.320] Are you from Iran?
+- [01:04:33.570] The Press: No, I'm not from Iran. I'm from the UK.
+- [01:04:35.730] But if the intelligence reports conclude
+- [01:04:39.390] that Iran can enrich uranium to a level that concerns you,
+- [01:04:44.400] would you consider bombing the country again?
+- [01:04:46.350] The President: Without question.
+- [01:04:47.560] Absolutely. It has to be unbelievable.
+- [01:04:52.030] But, you know, our incredible flyers and our.
+- [01:04:56.600] I call them the shots. These guys are unbelievable.
+- [01:04:58.740] Think from fifty two thousand feet.
+- [01:05:00.990] They hit the equivalent of a refrigerator door.
+- [01:05:03.660] They actually hit it right in the center.
+- [01:05:05.070] So it's much smaller than that.
+- [01:05:07.250] And just bomb after bomb going deeper, deeper, blowing up.
+- [01:05:11.090] Incredible, incredible thing.
+- [01:05:12.310] I don't know if you heard the general.
+- [01:05:13.610] He was very impressive. Raising game.
+- [01:05:15.670] You know, he's the one that beat ISIS for me.
+- [01:05:18.960] And he did it in a matter of weeks.
+- [01:05:21.450] And I was told it was going to take four or five years.
+- [01:05:24.200] And when I got this job, I always said,
+- [01:05:25.700] if I get this job, I'm going to put that guy
+- [01:05:27.470] as the head of the Joint Chiefs of Staff and Dan Kane.
+- [01:05:30.960] And he when I heard his name was Raisin,
+- [01:05:33.800] his nickname is Raisin, Raisin Kane.
+- [01:05:35.550] I said, you got to be kidding.
+- [01:05:36.810] So I liked him right from the beginning.
+- [01:05:38.160] But he knocked out ISIS in a time
+- [01:05:40.330] that nobody ever thought possible.
+- [01:05:42.720] And when this attack was completed and so successful,
+- [01:05:45.310] I said, now I know how you knocked out ISIS so quickly.
+- [01:05:49.130] But we have the best people.
+- [01:05:50.540] We have the best equipment in the world.
+- [01:05:52.340] And I rebuilt the military during my four years
+- [01:05:55.730] during my other term.
+- [01:05:56.960] We have the best equipment in the world.
+- [01:05:58.360] The problem is we gave away, you know, a lot of it,
+- [01:06:01.320] but small. Relatively speaking,
+- [01:06:02.790] we gave a lot of a lot of it away to Afghanistan.
+- [01:06:05.090] Shouldn't happen.
+- [01:06:06.320] That just shows how incompetent they were.
+- [01:06:07.850] They gave all that equipment away.
+- [01:06:09.100] Billions and billions of dollars worth shouldn't happen.
+- [01:06:11.870] But that was small compared to what we have now.
+- [01:06:14.900] We have a great, great military with great people.
+- [01:06:21.960] The Press: Congratulations.
+- [01:06:23.160] A couple of very different questions.
+- [01:06:24.890] One is Rwanda in 1994. As you grew up in New York,
+- [01:06:28.460] we all knew how horrific those attacks were.
+- [01:06:31.050] Congratulations on that treaty.
+- [01:06:32.780] The President: There are talks that perhaps
+- [01:06:34.040] that's going to take place today
+- [01:06:35.250] at three o'clock in the Oval Office.
+- [01:06:36.680] We're going to have a signing with Rwanda and the Congo.
+- [01:06:40.490] So I'm a little out of my league in that one
+- [01:06:42.840] because I didn't know too much about it.
+- [01:06:44.280] I knew one thing.
+- [01:06:45.530] They were going at it for many years and with machetes.
+- [01:06:49.530] It is one of the worst,
+- [01:06:51.450] one of the worst wars that anyone's ever seen.
+- [01:06:54.580] And I just happened to have somebody
+- [01:06:56.120] that was able to get it settled. I mean, just a brilliant person
+- [01:06:59.580] who is very comfortable in that part of the world.
+- [01:07:02.320] It's a very dangerous part of the world.
+- [01:07:03.740] I said, are you uncomfortable there?
+- [01:07:05.670] People are being killed.
+- [01:07:07.200] Schoolchildren are being raided and killed.
+- [01:07:10.440] And I don't even want to say how,
+- [01:07:11.670] but as viciously as I've ever heard.
+- [01:07:14.050] Are you uncomfortable?
+- [01:07:15.270] No, that's the part of the world that I know.
+- [01:07:17.660] Very comfortable.
+- [01:07:19.080] We were able to get them together and sell it.
+- [01:07:21.150] And not only that, we're getting for the United States
+- [01:07:24.480] a lot of the mineral rights from the Congo as part of it.
+- [01:07:26.960] They're so honored to be here.
+- [01:07:28.700] They never thought they'd be coming.
+- [01:07:30.100] Look, this is a very tough part of the world.
+- [01:07:33.000] They never thought, they were just telling me,
+- [01:07:34.670] they never thought they'd ever be coming to the White House.
+- [01:07:37.430] And they're so honored.
+- [01:07:38.750] And so we're going to give them a great big reception.
+- [01:07:40.610] But that's after many years of fighting. It's a great thing.
+- [01:07:43.020] That's at three o'clock, I believe.
+- [01:07:48.650] The Press: Sir, are you concerned at all
+- [01:07:50.050] about secret nuclear sites in Iran?
+- [01:07:52.310] You talk about maybe just secret nuclear sites?
+- [01:07:54.520] The President: Yes, there might be some. Not really.
+- [01:07:56.500] Can I tell you, they're exhausted.
+- [01:07:59.970] And Israel's exhausted, too. And I dealt with both of them.
+- [01:08:05.150] And they both wanted it settled, both of them.
+- [01:08:08.630] And we did a great job, but they're exhausted.
+- [01:08:11.120] The last thing they're thinking about right now is nuclear.
+- [01:08:13.820] You know what they're thinking of?
+- [01:08:15.240] They're thinking about tomorrow, trying to live.
+- [01:08:18.030] It's such a mess. It's such a mess.
+- [01:08:19.730] The place was bombed to hell.
+- [01:08:22.190] And no, I'm not worried about it at all.
+- [01:08:25.610] And I'm putting out a little statement.
+- [01:08:27.650] I'm going to respond to the Ayatollah's statement
+- [01:08:31.440] yesterday that we won the war. We won the war.
+- [01:08:36.490] And I said, look, you're a man of great faith,
+- [01:08:38.660] a man who's highly respected in this country.
+- [01:08:41.400] You have to tell the truth. You got beat to hell.
+- [01:08:45.070] And Israel was beat up, too. They were both beat up.
+- [01:08:49.420] And it was a great time to end it.
+- [01:08:51.020] It was quick. They got the hate out.
+- [01:08:54.090] There's a lot of hate. A lot of hate.
+- [01:08:55.580] It would be great if they didn't have that hate.
+- [01:08:57.250] But the last thing they're thinking about
+- [01:09:00.090] is nuclear weapons right now.
+- [01:09:07.080] The Press: Thank you, Mr. President.
+- [01:09:08.360] I'm Aris Tal with NTD
+- [01:09:09.560] Reciprocial Media with The Ad Hoc Times.
+- [01:09:11.130] Thank you so much for doing this.
+- [01:09:12.330] It's very refreshing for all of us here.
+- [01:09:13.750] The President: It's a good group.
+- [01:09:15.630] It's refreshing. Very refreshing.
+- [01:09:17.750] Yes. We have to have it.
+- [01:09:18.990] And, you know, I understand what you mean.
+- [01:09:21.760] So thank you so much for coming out here.
+- [01:09:23.170] Other than Karoline's done a great job.
+- [01:09:25.730] She's here to refer to the past administration, not to Karoline.
+- [01:09:28.970] The Press: Yes.
+- [01:09:30.170] Back to the ruling today, if you don't mind.
+- [01:09:32.040] So you have only talked about winning for the American people.
+- [01:09:35.460] How do you think today's ruling
+- [01:09:36.910] will enable you to further deliver
+- [01:09:38.840] for American families and workers across the country,
+- [01:09:41.300] not only when it comes to immigration,
+- [01:09:42.840] but also when it comes to trade, energy, what actions are most.
+- [01:09:46.690] The President: Well, I think taking power away
+- [01:09:48.160] from these absolutely crazy radical left judges
+- [01:09:53.240] is a tremendous, this is such a big day,
+- [01:09:56.790] this is such a big day, it's like, it's sort of sad
+- [01:10:00.620] because we're doing the signing at three o'clock
+- [01:10:02.720] and this may very well dominate the signing of a big war
+- [01:10:06.380] that was going on and really affecting the continent
+- [01:10:09.640] of, think of it, the entire continent of Africa
+- [01:10:12.230] was being affected and we're settling that war today
+- [01:10:15.730] and this will probably be a headline,
+- [01:10:18.270] but this is a very big moment
+- [01:10:20.020] and it gives power back to people that should have it,
+- [01:10:24.150] including Congress, including the presidency,
+- [01:10:27.410] and it only takes bad power away from judges,
+- [01:10:30.420] it really doesn't take, it takes bad power,
+- [01:10:32.380] sick power, and unfair power, and it's really going to be,
+- [01:10:36.990] this is a very monumental decision.
+- [01:10:38.270] Yeah, please.
+- [01:10:39.480] The Press: Mr. President, thank you very much,
+- [01:10:41.180] on July 9th,
+- [01:10:43.190] is that July 9th date set for tariffs to a snapback
+- [01:10:47.150] or could they, could there be a…
+- [01:10:48.580] The President: We can do whatever we want,
+- [01:10:49.820] we could extend it, we could make it shorter,
+- [01:10:51.810] I'd like to make it shorter,
+- [01:10:53.090] I'd like to just send letters out
+- [01:10:54.430] to everybody, congratulations, you're paying 25 percent.
+- [01:10:59.910] He's a much nicer person than I am.
+- [01:11:04.830] Go ahead, can you finish it up?
+- [01:11:06.350] The Press: Are you considering for the Federal Reserve then,
+- [01:11:08.760] and are you speeding up that process?
+- [01:11:10.540] The President: Oh, he's terrible,
+- [01:11:11.780] he's terrible, I mean, I have a list of things,
+- [01:11:14.300] we're like 38 on the list,
+- [01:11:16.260] we pay, you know, Cameroon and different places
+- [01:11:20.240] are paying the same as us,
+- [01:11:22.850] because, you know, you have somebody sets their rate
+- [01:11:24.660] at 4 percent or 4.5 percent,
+- [01:11:26.520] it's hard to go out and say, we should be paying 1 percent
+- [01:11:29.590] when you have your so-called experts doing it,
+- [01:11:32.740] and the sad part is, you know, as per the question
+- [01:11:35.080] that you asked about tariffs, we've had the tariffs,
+- [01:11:40.170] and we have less inflation than we had before.
+- [01:11:42.820] What we have is a hell of a lot more money,
+- [01:11:44.990] a hell of a lot more income,
+- [01:11:46.850] and we shouldn't be paying a rate like that,
+- [01:11:48.580] in other words, when we pay a rate,
+- [01:11:50.510] I'll tell you, each point is the equivalent
+- [01:11:52.290] of 300 billion dollars.
+- [01:11:55.680] So if we had it down 3 points,
+- [01:11:57.480] because I think we should be at 1,
+- [01:11:59.970] you have Switzerland is at .25,
+- [01:12:03.200] in other words, 25 percent of 1 percent,
+- [01:12:06.530] and they're the number one right now,
+- [01:12:08.870] but we should be the number one,
+- [01:12:10.740] and soon you're going to have, I believe,
+- [01:12:12.230] I think, you're going to have where the people will pay,
+- [01:12:15.080] you know, will pay, like we had a few years ago,
+- [01:12:18.460] where you put up money, you loan money,
+- [01:12:21.620] and I mean, you actually, instead of paying, you get paid,
+- [01:12:24.660] I love that. I don't know if it's any good,
+- [01:12:27.510] but I love it, where you put up money,
+- [01:12:29.740] and you get paid, but we should be in a category,
+- [01:12:32.550] so we should be at the top of the list,
+- [01:12:33.970] not toward the bottom of the list,
+- [01:12:35.850] but we have a man who's not a smart man,
+- [01:12:38.330] and he probably has Trump derangement syndrome,
+- [01:12:41.360] and he's just not a smart person.
+- [01:12:43.490] What he's doing though, he's hurting us for years to come,
+- [01:12:46.240] because if we borrow money at 2 points higher
+- [01:12:49.140] than we should be paying, that's 600 billion dollars,
+- [01:12:54.370] wouldn't you say those numbers are about right,
+- [01:12:56.540] so 2 points would be about 600, actually more than that,
+- [01:12:59.560] but about 600 billion dollars,
+- [01:13:01.260] all because the guy doesn't want to lower the rates,
+- [01:13:03.390] he's doing the service,
+- [01:13:05.370] and then he goes up and talks about,
+- [01:13:06.910] I'd like to see costs come down, you know, he gets up
+- [01:13:09.090] and he does his little thing for 5 minutes,
+- [01:13:10.690] and he goes out and he goes back to the beach, he goes,
+- [01:13:13.200] I'd like to see costs come down.
+- [01:13:14.900] Well, he could lower the interest costs
+- [01:13:16.370] by 900 billion dollars a year,
+- [01:13:19.990] all he has to do is lower rates, and everybody's saying,
+- [01:13:22.550] I was watching some of the business shows today,
+- [01:13:24.480] and they're saying, you know,
+- [01:13:25.800] Trump's right, he should really be cutting,
+- [01:13:28.580] the country's doing well, we have no inflation,
+- [01:13:31.440] now despite him, we're doing great,
+- [01:13:34.280] but if we got the rates down, we would be a rocket ship,
+- [01:13:37.390] so I think that'll be it,
+- [01:13:38.660] and I just want to thank everybody,
+- [01:13:41.030] this is a really big day, we've had a big week.
+- [01:13:44.850] You know, we've had a big week,
+- [01:13:46.260] we've had a lot of victories this week,
+- [01:13:48.260] NATO was a tremendous victory, the war was a tremendous.
+- [01:13:52.440] Look, we were talking about this for 30 years,
+- [01:13:55.190] about Iran being nuclear,
+- [01:13:58.250] and all I said is, it will not be nuclear,
+- [01:14:00.500] and it's not going to be nuclear,
+- [01:14:02.650] and then I want to give credit to a lot of people,
+- [01:14:06.000] and most importantly to our great military, boy,
+- [01:14:08.040] they put out that fire.
+- [01:14:09.910] Once that happened, once those bombs got dropped,
+- [01:14:12.430] that war was over, that war was over,
+- [01:14:15.090] but I just want to compliment them, incredible,
+- [01:14:17.130] the general and all of his generals.
+- [01:14:20.520] Pete Hegseth was great, they were all,
+- [01:14:22.790] and now I want to compliment Pam,
+- [01:14:25.330] a lot of genius went into this.
+- [01:14:27.420] You know, people, if you don't say it exactly right,
+- [01:14:30.130] if the Supreme Court doesn't get it,
+- [01:14:31.830] because it's incorrectly spoken about,
+- [01:14:35.200] and that happens, a lot of cases are lost
+- [01:14:37.390] because they don't, they don't say the right words,
+- [01:14:39.970] but I want to, she's going to go down
+- [01:14:41.610] as a great attorney general.
+- [01:14:43.450] I may change my mind about that, I don't know, maybe someday
+- [01:14:46.440] I'll set the course, I was only kidding.
+- [01:14:48.830] She's going to go down as a great attorney general,
+- [01:14:50.730] this was a tremendous win, and we've had tremendous wins,
+- [01:14:53.190] but this was a tremendous win today,
+- [01:14:55.210] so I just want to congratulate you
+- [01:14:56.890] and Todd and your whole staff, very brilliant people.
+- [01:15:00.450] And we can't forget John Sauer, who is with,
+- [01:15:04.320] there's a medical emergency within his family,
+- [01:15:06.410] so he's taking care of that. And we said absolutely,
+- [01:15:09.380] so I just want to thank everybody very much, thank you.

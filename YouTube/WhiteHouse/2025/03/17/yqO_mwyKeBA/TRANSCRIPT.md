@@ -1,0 +1,812 @@
+<!-- source: https://www.youtube.com/watch?v=yqO-mwyKeBA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: yqO-mwyKeBA -->
+<!-- date_published: 2025-03-17T17:50:09+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:48.336819+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Mar. 17, 2025
+
+- [00:03.070] Ms. Leavitt: Hello, everybody.
+- [00:05.240] Good afternoon. Happy Monday. Happy St. Patrick's Day.
+- [00:09.480] I see a lot of us are very festive in our green,
+- [00:12.030] Peter Doocy, I like it.
+- [00:14.540] First, today, I want to address the devastating tornadoes
+- [00:17.520] and storms that have impacted many states
+- [00:20.130] throughout the south and the Midwest.
+- [00:22.950] As of this morning, more than 40 innocent lives have been lost,
+- [00:26.940] and many communities have been totally destroyed.
+- [00:30.020] The president has been actively monitoring the situation.
+- [00:33.210] And the Trump administration is engaged with governors
+- [00:35.990] and local officials to restore affected communities
+- [00:39.780] and livelihoods.
+- [00:41.230] Everyone impacted is in our prayers.
+- [00:43.790] And President Trump is fully prepared to assist state
+- [00:46.570] and local officials as they recover
+- [00:48.920] from the horrific damage.
+- [00:51.410] The president has had a very busy weekend,
+- [00:53.930] making our country and the world a much safer place.
+- [00:58.190] President Trump ordered decisive military action
+- [01:00.910] against the Houthi terrorists in Yemen.
+- [01:03.460] These Houthi terrorists have engaged in piracy,
+- [01:06.710] violence, and terrorism against American ships for years,
+- [01:10.860] under the Biden administration, costing billions of dollars,
+- [01:14.740] and putting innocent lives at risk.
+- [01:17.190] Joe Biden's pathetic weakness
+- [01:19.270] invited these unacceptable attacks.
+- [01:21.900] But there's a new sheriff in town,
+- [01:23.650] and his name is Donald Trump,
+- [01:25.620] and the world is officially on notice.
+- [01:28.330] America has a commander in chief
+- [01:30.040] whose peace through strength approach is unwavering,
+- [01:32.950] and should not be tested.
+- [01:35.150] As the president said, no terrorist force
+- [01:37.890] will stop American commercial and naval vessels
+- [01:40.540] from freely sailing throughout the world.
+- [01:43.310] Houthi terrorists and their Iranian backers
+- [01:46.150] should not cross President Trump again.
+- [01:48.660] And the president has made that clear today.
+- [01:51.420] On another important matter,
+- [01:53.120] President Trump signed a proclamation
+- [01:54.890] invoking the Alien Enemies Act,
+- [01:57.160] regarding the invasion of the United States
+- [01:59.440] by the foreign terrorist organization, Tren de Aragua.
+- [02:03.570] At the president's direction,
+- [02:05.140] the Department of Homeland Security
+- [02:06.740] carried out a counter-terrorism operation
+- [02:09.320] deporting nearly 200 violent Tren de Aragua terrorists,
+- [02:13.210] which will save countless American lives.
+- [02:16.390] Thanks to the great work of the Department of State,
+- [02:18.840] these heinous monsters were extracted
+- [02:21.050] and removed to El Salvador,
+- [02:22.680] where they will no longer be able
+- [02:24.090] to pose any threats to the American public.
+- [02:28.540] Tren de Aragua is one of the most ruthless terrorist gangs
+- [02:33.000] in the world.
+- [02:34.280] And they are responsible for some of the most heinous crimes
+- [02:37.100] that have occurred in our nation's history
+- [02:39.580] in recent years, including the savage murders
+- [02:42.800] of beautiful Laken Riley and Jocelyn Nungaray.
+- [02:46.560] President Trump promised Laken and Jocelyn's families
+- [02:49.820] during his campaign
+- [02:51.250] that he would demand justice for their beautiful girls.
+- [02:55.330] And that's exactly what he did.
+- [02:57.730] As the president acknowledged during his inaugural address
+- [03:00.500] on January 20th, he pledged to invoke this act.
+- [03:04.630] And he has no higher responsibility
+- [03:06.890] than to defend our country from threats and invasions.
+- [03:11.060] President Trump will continue his historic efforts
+- [03:13.560] to seal the border,
+- [03:14.760] and prevent these illegal invaders
+- [03:16.400] from coming here in the first place.
+- [03:18.660] As the New York Times acknowledged over the weekend,
+- [03:22.010] President Trump's policies are working.
+- [03:24.820] Here's how the Times summed it up.
+- [03:26.950] "Illegal crossings at the US-Mexico border
+- [03:29.560] are down to their lowest level in decades.
+- [03:33.300] Once crowded migrant shelters are empty.
+- [03:36.220] Instead of heading north, people stranded in Mexico
+- [03:39.060] are starting to return home in bigger numbers.
+- [03:42.140] The border is almost unrecognizable
+- [03:44.280] from just a couple of years ago
+- [03:46.130] when hundreds of thousands of people from around the world
+- [03:48.630] were crossing into the United States
+- [03:50.130] every month in scenes of chaos and upheaval.
+- [03:53.920] This is the Trump effect in action."
+- [03:56.000] And, again, those are the words from the New York Times.
+- [03:58.480] We didn't need a border security bill,
+- [04:00.550] we just needed President Trump.
+- [04:02.600] All of these actions taken together
+- [04:04.490] are contributing to a wave of optimism
+- [04:06.550] about the direction of our great country.
+- [04:09.340] According to brand new polling from NBC News,
+- [04:12.290] more registered voters say the United States is heading
+- [04:14.960] in the right direction than at any point since early 2004.
+- [04:20.390] Americans support President Trump's common sense approach
+- [04:23.280] that's getting our country back on track in record time.
+- [04:26.980] Meanwhile, the president's critics can't say the same.
+- [04:30.550] That same new NBC poll also found that the Democrat Party
+- [04:34.420] has reached an all time low in popularity.
+- [04:38.300] It turns out when you let your hatred of President Trump
+- [04:41.010] get in the way of doing what is best for America,
+- [04:44.170] the people reject you. Who would have thought?
+- [04:47.790] Joining us today in our new media seat is Kellie Meyer.
+- [04:50.580] She is a White House correspondent with NewsNation.
+- [04:53.570] NewsNation started in 2021,
+- [04:55.550] and is one of America's fastest growing cable news networks,
+- [04:58.390] with a focus on news for all of America.
+- [05:01.450] It's part of a larger ecosystem, Nexstar,
+- [05:04.570] which is home to NewsNation, the political website,
+- [05:07.220] The Hill, the broadcast network,
+- [05:08.920] The CW, and local Nexstar stations.
+- [05:11.630] With that, kick us off please, Kellie.
+- [05:13.920] The Press: Thank you. Karoline.
+- [05:15.530] What do you say to Americans who want safe streets,
+- [05:19.050] but are concerned due process is being violated?
+- [05:22.740] Ms. Leavitt: The president is using
+- [05:24.100] every lever of his executive authority
+- [05:27.140] and his constitutional authority
+- [05:28.860] within the bounds of the immigration laws of our country
+- [05:31.890] to ensure that our streets are safer
+- [05:34.050] for law-abiding American citizens.
+- [05:36.120] And this administration is focused on detaining, arresting,
+- [05:39.130] and deporting illegal criminal aliens.
+- [05:42.080] And as you saw this past weekend,
+- [05:43.460] the president used his authority under the Alien Enemies Act
+- [05:47.370] to deport foreign terrorists. Tren de Aragua
+- [05:50.210] is now a designated foreign terrorist organization.
+- [05:54.060] And as I said, there were nearly 200 Tren de Aragua members
+- [05:57.850] who were sent to El Salvador this weekend.
+- [06:00.130] Countless lives will be saved because of this action.
+- [06:03.350] And if you talk to the families, the Angel Families,
+- [06:06.130] as I mentioned, Laken Riley and Jocelyn Nungaray,
+- [06:08.740] they understand the grave cost of life
+- [06:12.180] at the hands of these illegal terrorists.
+- [06:15.080] And the president is proud to deliver
+- [06:17.090] on that promise for them.
+- [06:18.300] The Press: And just to follow up on that,
+- [06:19.530] this will be challenged later today in the courts.
+- [06:22.330] Does the president,
+- [06:25.000] does this allow him to defy the court order
+- [06:27.870] without having the checks and balances
+- [06:30.150] in the separation of power?
+- [06:32.170] Ms. Leavitt: No. In fact, this administration
+- [06:34.070] acted within the confines of the law, again,
+- [06:36.290] within the president's constitutional authority,
+- [06:38.890] and under the authority granted to him
+- [06:41.010] under the Alien Enemies Act.
+- [06:42.450] We are quite confident in that, and we are wholly confident
+- [06:45.470] that we are going to win this case in court.
+- [06:47.130] Peter?
+- [06:48.390] The Press: Thank you, Karoline.
+- [06:49.610] If you guys can't send 200 Tren de Aragua
+- [06:52.640] terrorists at a time to El Salvador,
+- [06:55.590] where are you going to send them instead?
+- [06:57.240] Ms. Leavitt: It's a very good question.
+- [06:58.890] You'd have to ask the courts, and the people on the left
+- [07:01.300] who are trying to fight this administration
+- [07:03.440] for doing the business that this president sought out to do,
+- [07:07.130] which is to deport these foreign terrorists.
+- [07:09.800] And we're very grateful to President Bukele,
+- [07:11.980] and to El Salvador,
+- [07:13.190] for accepting these heinous monsters
+- [07:15.530] where they will face justice.
+- [07:16.780] The Press: And if these guys are terrorists at war
+- [07:20.410] with the United States, is President Trump
+- [07:22.370] considering anything more lethal to address them
+- [07:25.780] than just sticking them on a plane somewhere else?
+- [07:27.600] Ms. Leavitt: Well, it sounded like you
+- [07:28.840] had a little bit of curiosity
+- [07:30.240] in the premise of your question, so I want to address it.
+- [07:32.820] These are designated foreign terrorists.
+- [07:35.540] The president signed a proclamation
+- [07:38.010] on February 20th 2025,
+- [07:40.410] designating TDA as a foreign terrorist organization.
+- [07:44.260] That was in consultation with the Attorney General
+- [07:46.720] and the Secretary of Treasury.
+- [07:48.550] That was pursuant to 8 US Code 1189.
+- [07:51.930] The president has the right to do that.
+- [07:53.810] And I think nobody would argue that Tren de Aragua
+- [07:56.950] should be designated a foreign terrorist organization.
+- [07:59.460] If you want to have that argument, I'm happy to do it.
+- [08:01.780] These are heinous monsters, rapists, murderers,
+- [08:05.310] kidnappers, sexual assaulters,
+- [08:07.440] predators who have no right to be in this country,
+- [08:10.120] and they must be held accountable.
+- [08:11.560] The Press: And something different.
+- [08:13.290] There is now a member of the European Parliament from France
+- [08:16.790] who does not think the US represents the values
+- [08:18.930] of the Statue of Liberty anymore.
+- [08:20.940] They want the Statue of Liberty back.
+- [08:23.320] So is President Trump going to send
+- [08:26.420] the Statue of Liberty back to France?
+- [08:28.680] Ms. Leavitt: Absolutely not. And my advice to that unnamed,
+- [08:33.150] low-level French politician would be to remind them
+- [08:36.810] that it's only because of the United States of America
+- [08:39.320] that the French are not speaking German right now.
+- [08:42.130] So they should be very grateful to our great country.
+- [08:45.070] Kelly.
+- [08:46.400] The Press: Is the administration prepared to give the court
+- [08:49.480] what it wants in terms of the time of the flights
+- [08:52.140] that departed that went to El Salvador
+- [08:54.720] and some of those details that the judge is asking for
+- [08:57.640] in trying to determine the timing.
+- [08:59.820] Clearly the five named individuals
+- [09:01.690] were not deported in compliance.
+- [09:02.970] Ms. Leavitt: That's right.
+- [09:04.180] The Press: But looking more broadly,
+- [09:05.570] wanting to know about the timing of flights and so forth
+- [09:09.000] because the verbal order did say turn around the flights
+- [09:11.470] if there's an issue. So is the administration
+- [09:13.320] prepared to provide that information?
+- [09:15.260] Ms. Leavitt: I'm prepared to provide it right now.
+- [09:17.120] All of the planes that were subject to the judge's
+- [09:20.720] written order took off
+- [09:22.820] before the order was entered in the courtroom on Saturday.
+- [09:26.340] And the administration will of course
+- [09:27.890] be happily answering all of those questions
+- [09:30.500] that the judge poses in court later today.
+- [09:32.770] The Press: And for people who have due process questions
+- [09:35.730] about making certain that there wasn't anyone who was swept up
+- [09:39.460] who did not meet the criteria that you laid out,
+- [09:41.780] is there a way for the administration
+- [09:43.800] to provide more detail about how that was determined?
+- [09:47.400] Who the individuals were that met this deportation order?
+- [09:52.230] Ms. Leavitt: Yes, I can assure the American people
+- [09:54.220] that Customs and Border Patrol and ICE
+- [09:56.590] and the Department of Homeland Security
+- [09:58.390] are sure about the identities of the individuals
+- [10:01.330] who were on these planes and the threat
+- [10:03.480] that they pose to our homeland.
+- [10:05.020] They take this incredibly seriously.
+- [10:07.480] They are putting their lives on the line
+- [10:09.740] to deport these designated terrorists from our country
+- [10:12.980] and they should be trusted to do that.
+- [10:14.520] And that's exactly what the American people
+- [10:16.230] elected this president to do. Go ahead.
+- [10:18.090] The Press: Thanks, Karoline. Just to follow up on that then,
+- [10:20.110] so you're saying definitively that the administration
+- [10:22.770] can prove everyone that was put on those flights to El Salvador,
+- [10:26.560] who's either remember Tren de Aragua,
+- [10:27.980] MS-13, or some other entity?
+- [10:30.630] Ms. Leavitt: Yeah, we've already provided the breakdown
+- [10:32.810] in the effort of transparency
+- [10:34.220] about the 261 illegal aliens who were deported.
+- [10:38.060] 137 of those were deported under the Alien Enemies Act.
+- [10:41.840] 101 of those were Venezuelans removed via Title 8,
+- [10:45.810] as you know, are just regular immigration proceedings.
+- [10:48.610] And 23 of them were MS-13 Salvadorian gang members.
+- [10:52.650] There were also two MS-13 ring leaders
+- [10:55.530] as part of that group of 23 who President Bukele
+- [10:58.720] particularly expressed his gratitude for their return
+- [11:01.640] so he can demand justice in his home country.
+- [11:03.680] Jennifer.
+- [11:04.940] The Press: Just a follow what criteria
+- [11:06.340] though other than say tattoos
+- [11:09.630] or maybe being in the wrong place at the wrong time,
+- [11:13.290] are they using to determine that someone is actually a member
+- [11:16.930] of one of these organizations?
+- [11:18.500] Ms. Leavitt: Intelligence and the men and women on the ground
+- [11:21.150] in the interior of our country
+- [11:23.320] who are finally being allowed to do their jobs,
+- [11:25.570] their hands were tied under the previous administration
+- [11:28.370] and as I said, they take their jobs very seriously.
+- [11:31.190] They should be trusted and respected
+- [11:33.390] by the American public with this operation.
+- [11:36.280] And of course, as I said to Kelly,
+- [11:38.330] the administration will provide all details
+- [11:41.310] to the questions that the court poses.
+- [11:42.710] Jennifer.
+- [11:43.940] The Press: One more follow up on that.
+- [11:45.180] Can you say how much the US is paying El Salvador
+- [11:48.330] to imprison these Venezuelans?
+- [11:51.310] And then a different question on Russia.
+- [11:53.240] I was wondering if you could give us an update
+- [11:54.800] on the ceasefire negotiations
+- [11:56.380] and is there anything you can share on the list
+- [11:59.160] that Putin passed along to President Trump
+- [12:01.550] for the things he's requesting?
+- [12:03.200] Ms. Leavitt: Sure. To your first question,
+- [12:04.580] it was approximately $6 million to El Salvador
+- [12:08.830] for the detention of these foreign terrorists.
+- [12:11.530] And I would point out that is pennies on the dollar
+- [12:13.870] in comparison to the cost of life
+- [12:17.330] and the cost it would impose on the American taxpayer
+- [12:19.980] to house these terrorists in maximum security prisons
+- [12:23.070] here in the United States of America.
+- [12:25.040] And I would echo the message of our Secretary of State,
+- [12:27.340] Marco Rubio,
+- [12:28.660] who expressed his gratitude to President Bukele
+- [12:31.950] and El Salvador's government for their cooperation in this deal.
+- [12:35.850] As for Russia, as you know,
+- [12:37.380] the president announced last night on Air Force One
+- [12:39.640] on his return from his very busy weekend in Florida
+- [12:43.720] that he will be speaking to President Putin tomorrow.
+- [12:46.240] I won't get ahead of those negotiations,
+- [12:48.250] but I can say we are on the 10th yard line of peace
+- [12:51.610] and we've never been closer to a peace deal
+- [12:53.550] than we are in this moment.
+- [12:55.060] And the President, as you know, is determined to get one done.
+- [12:59.570] Sure. Caitlin.
+- [13:00.930] The Press: I have two questions for you, one on the flights,
+- [13:02.410] but first on the President's post overnight
+- [13:04.750] saying that he is…
+- [13:05.950] the pardons that were issued by President Biden
+- [13:08.930] preemptively to members of the January 6th committee
+- [13:12.260] that they're now null and void.
+- [13:14.210] Have attorneys here at the White House told President Trump
+- [13:16.440] that he has the legal authority to undo a pardon
+- [13:19.730] simply because it was signed by autopen, as he said?
+- [13:23.020] Ms. Leavitt: The President was begging the question
+- [13:25.460] that I think a lot of journalists in this room
+- [13:27.270] should be asking about whether or not the former
+- [13:29.810] President of the United States
+- [13:31.580] who I think we can all finally agree was cognitively impaired.
+- [13:34.780] I know it took people some time to finally admit that,
+- [13:37.680] but we all know that to be true as evidenced
+- [13:40.120] by his disastrous debate performance
+- [13:42.460] against President Trump during the campaign.
+- [13:44.460] I digress on that.
+- [13:46.010] But the President was raising the point
+- [13:47.620] that did the president even know about these pardons?
+- [13:51.620] Was his illegal signature
+- [13:53.570] used without his consent or knowledge?
+- [13:56.170] And that's not just the president or me
+- [13:58.370] raising those questions, Caitlin,
+- [13:59.880] according to the New York Post,
+- [14:01.490] there are Biden officials from the previous White House
+- [14:04.080] who raised those questions and wondered if the president
+- [14:07.000] was even consulted about his legally binding signature
+- [14:10.310] being signed onto documents.
+- [14:11.850] So I think it's a question that everybody of this room
+- [14:14.750] should be looking into
+- [14:16.180] because certainly that would propose
+- [14:19.370] perhaps criminal or illegal behavior
+- [14:21.390] if staff members were signing the President
+- [14:23.420] of the United States autograph without his consent.
+- [14:25.200] The Press: But President Biden is on the record
+- [14:26.480] talking about issuing preemptive pardons to these people.
+- [14:30.180] Ms. Leavitt: But was he aware of his signature
+- [14:32.270] being used on every single pardon?
+- [14:33.950] That's a question you should ask the Biden White House.
+- [14:35.670] The Press: Is there any evidence on that
+- [14:37.160] that he wasn't aware of it?
+- [14:38.440] Ms. Leavitt: You're a reporter, you should find out. Sean.
+- [14:41.140] The Press: I have a question on the timeline of the flights.
+- [14:43.150] You keep talking about the judge's written order
+- [14:44.990] which hit the docket Saturday night at about 7:26 PM
+- [14:48.470] but he issued a verbal order
+- [14:49.940] before that at about 6:45 and 6:48.
+- [14:52.800] PM the court hearing, a verbal order from the bench.
+- [14:57.510] Does the White House feel the need to comply
+- [14:59.350] with a verbal order from this judge?
+- [15:01.090] Ms. Leavitt: Again, as I said, all of the planes subject
+- [15:04.700] to the written order of this judge
+- [15:06.830] departed US soil,
+- [15:08.800] US territory before the judge's written order.
+- [15:11.680] The Press: But what about the verbal order,
+- [15:12.880] which of course carries the same legal weight as a written order
+- [15:15.800] and said for the planes to turn around if they were in the air?
+- [15:18.110] Ms. Leavitt: Well, there's actually questions
+- [15:19.370] about whether a verbal order carries the same weight
+- [15:21.650] as a legal order, as a written order,
+- [15:23.680] and our lawyers are determined to ask
+- [15:27.030] and answer those questions in court.
+- [15:28.520] Sean. The Press: Hey.
+- [15:29.740] So on Friday, the president suggested at length
+- [15:32.580] that it should be illegal to criticize judges,
+- [15:35.210] but he has repeatedly criticized judges who rule against him.
+- [15:38.140] And Elon Musk is calling for impeachment of judges
+- [15:41.640] who have opposed the administration.
+- [15:43.060] So how are those two things not in conflict?
+- [15:45.510] Ms. Leavitt: I have not heard the President
+- [15:46.830] talk about impeaching judges.
+- [15:48.310] I know you mentioned Mr. Musk's tweet,
+- [15:50.020] but I have not heard the President of the United States
+- [15:52.570] ask that. Mary.
+- [15:53.970] The Press: Hey, thanks Karoline. I wanted to ask about this video
+- [15:56.490] I saw this morning set to the tune of,
+- [15:58.690] I believe closing time
+- [16:00.070] about deportations of illegal migrants.
+- [16:03.060] What's the strategy behind the White House's videos
+- [16:05.160] they've been putting out on this?
+- [16:06.460] And can you kind of talk us
+- [16:07.710] through the thinking on these videos?
+- [16:09.120] Ms. Leavitt: Sure.
+- [16:10.320] I think the White House and our entire government
+- [16:13.570] clearly is leaning into the message of this president,
+- [16:16.470] and we are unafraid to double down
+- [16:18.720] and to take responsibility and ownership
+- [16:21.000] of the serious decisions that are being made.
+- [16:23.620] The president was elected with an overwhelming mandate
+- [16:26.800] to launch the largest mass deportation campaign
+- [16:30.070] in American history,
+- [16:31.290] and that's exactly what he is doing.
+- [16:33.080] And to this very day, we are now,
+- [16:34.840] I think, 56 or seven days into the administration, by my count.
+- [16:39.560] The president still receives an overwhelming public support
+- [16:43.800] for the policies that he's enacting.
+- [16:45.560] So we are unafraid to message effectively what the president
+- [16:50.290] is doing on a daily basis to make our community safer.
+- [16:53.710] And the specific video you referenced,
+- [16:55.430] I think it sums up our immigration policy pretty well.
+- [16:58.060] You don't have to go home, but you can't stay here.
+- [17:00.510] Go ahead.
+- [17:01.760] The Press: Thanks, Karoline. I have two questions.
+- [17:03.500] First, will President Trump put sanctions on Russia
+- [17:06.310] if the talks on Tuesday don't go as hoped?
+- [17:08.830] And secondly, have any illegal immigrants
+- [17:10.700] self-deported through CBP Home yet?
+- [17:12.890] Ms. Leavitt: To your first question,
+- [17:14.120] it's something the president has floated,
+- [17:15.900] and certainly he's willing to do if necessary.
+- [17:18.250] I don't have anything to read out,
+- [17:19.650] and I would never get ahead of the president
+- [17:21.470] on such a serious decision.
+- [17:23.110] To your second question about the CBP Home app,
+- [17:25.440] I would have to check in
+- [17:26.690] with the Department of Homeland Security,
+- [17:29.170] but it's a great question,
+- [17:30.550] and we're very proud to repurpose this app,
+- [17:32.720] which the Biden administration abused to facilitate
+- [17:35.990] the mass illegal entry of illegal immigrants
+- [17:37.990] into our country.
+- [17:39.250] It was like a fast pass at Disneyland;
+- [17:41.550] that's not happening under this administration.
+- [17:43.430] We are encouraging illegal immigrants
+- [17:45.530] to actively self-deport to maybe save themselves
+- [17:49.270] from being in one of these fun videos.
+- [17:50.810] The Press: Karoline.
+- [17:52.010] Ms. Leavitt: Sure. John, good to see you.
+- [17:53.800] The Press: Thank you. After President Trump strafe-bombed
+- [17:57.350] the Houthis yesterday, he said that if they retaliate,
+- [18:01.570] he was going to personally hold Iran accountable for that.
+- [18:05.580] Holding them accountable, what would that look like?
+- [18:09.580] Ms. Leavitt: Well, I would defer you to what the president
+- [18:11.320] put out this morning, John,
+- [18:12.590] where he said very clearly, I will read it.
+- [18:14.830] "Let nobody be fooled;
+- [18:16.200] the hundreds of attacks being made by Houthi,
+- [18:18.490] the sinister mobsters and thugs based in Yemen,
+- [18:21.280] who are hated by the Yemeni people,
+- [18:23.540] are all created by Iran.
+- [18:25.660] Any further attack or retaliation
+- [18:27.660] by the Houthis will be met with great force,
+- [18:30.000] and there is no guarantee that the force will stop there.
+- [18:32.840] Iran has played the innocent victim of rogue
+- [18:35.520] terrorists from which they've lost control,
+- [18:37.760] but they haven't lost control; they are dictating every move,
+- [18:40.920] giving them the weapons, supplying them with money
+- [18:43.620] and highly sophisticated military equipment,
+- [18:46.130] and even so-called intelligence. Every shot fired by the Houthis
+- [18:50.020] will be looked upon from this point forward
+- [18:52.080] as being a shot fired from the weapons and leadership of Iran.
+- [18:56.140] And Iran will be held responsible
+- [18:58.000] and suffer the consequences,
+- [18:59.570] and those consequences will be dire."
+- [19:01.650] That is a statement from the President of the United States
+- [19:03.810] just moments ago.
+- [19:05.030] I have nothing additional to share,
+- [19:06.720] but our message to Iran is,
+- [19:08.480] you better take this president seriously.
+- [19:10.780] And I think the Houthis learned
+- [19:12.000] that the hard way this past weekend.
+- [19:13.830] As I said in my opening remarks, there's a new sheriff in town,
+- [19:16.800] and this president is not just going to sit on his hands
+- [19:19.680] and allow terrorists to launch attacks on commercial vessels
+- [19:23.920] and US naval ships.
+- [19:25.440] Those actions will not be tolerated.
+- [19:26.690] The Press: Karoline.
+- [19:27.920] Ms. Leavitt: Sure. Edward.
+- [19:29.140] The Press: Yeah, thanks. Karoline, on the economy.
+- [19:30.980] So, after mostly a down week last week in the economy,
+- [19:35.750] you've been very vocal as well as other cabinet members
+- [19:37.940] about how we're in a transition and about how…
+- [19:41.610] This economic transition, there's a plan,
+- [19:43.520] a long-term plan for tariffs on this.
+- [19:45.870] How concerned is the president that the markets and Americans,
+- [19:48.130] for lack of a better term,
+- [19:49.400] will freak out over these tariffs
+- [19:51.120] and be concerned about a long-term plan?
+- [19:53.070] Ms. Leavitt: Sure. I think I've been asked this question
+- [19:55.280] and answered this question respectfully, Edward.
+- [19:58.200] We are in a period of transition.
+- [19:59.940] The president has made that clear.
+- [20:01.660] He also has made his belief in tariffs
+- [20:03.980] and what they will do for our great country clear.
+- [20:06.420] Restoring wealth back to our country,
+- [20:08.000] and if you look at the president's
+- [20:09.390] first-term economic formula, massive deregulation, tax cuts,
+- [20:13.840] lowering the cost of living with an energy boom,
+- [20:16.390] which the American people can expect soon.
+- [20:19.250] Wall Street and Main Street should both be assured
+- [20:22.140] by what President Trump did in his first term.
+- [20:24.050] It's the exact same formula.
+- [20:25.720] In fact, I would argue it's even better this time around.
+- [20:28.050] And if you look at some of the economic indicators
+- [20:30.290] in the last week,
+- [20:31.490] the latest CPI report last week beat expectations.
+- [20:34.280] Inflation is cooling; core inflation dropped
+- [20:36.640] for the first time in four months,
+- [20:38.800] the national average of the price of gas
+- [20:40.700] is down 42 cents from one year ago.
+- [20:43.370] And there was also a new report out this morning
+- [20:45.260] about wholesale egg prices; they continue to fall.
+- [20:48.980] A dozen eggs are now $3.10 cheaper since January 1st;
+- [20:54.370] that's a 47% decrease overall.
+- [20:56.930] So, I think the American people do have great reason
+- [20:59.750] to be optimistic about this economy.
+- [21:01.390] And as I've said repeatedly, it continues to be true.
+- [21:04.020] The administration has a whole-of-government effort
+- [21:06.890] to fix the economic mess created by Biden.
+- [21:08.880] The Press: So the president has pointed
+- [21:10.110] to that April 2nd tariff deadline, so to speak.
+- [21:14.050] Is the tariff back and forth done now?
+- [21:17.340] We're just all looking towards April 2nd.
+- [21:19.330] Ms. Leavitt: Well, I think the president would tell you
+- [21:21.010] that all options are always on the table,
+- [21:23.800] and he's always ready to respond if he feels the United States
+- [21:27.320] is being unfairly treated by our allies
+- [21:29.610] and also our competitors around the world.
+- [21:31.970] But yes, the April 2nd day is a big day for the country,
+- [21:36.130] as the president has said.
+- [21:37.620] Reciprocal tariffs will go into effect.
+- [21:39.610] We'll have more details on that as the date nears,
+- [21:41.960] but our entire trade team,
+- [21:44.100] Secretary Lutnick, Secretary Bessent,
+- [21:46.580] the vice president, has been quite involved in these talks
+- [21:49.400] and discussions as well about what that will look like.
+- [21:52.100] And the president, as you always do,
+- [21:54.480] you'll hear from him directly on it.
+- [21:56.640] Debra Saunders, how are you?
+- [21:58.130] The Press: Fine. How are you doing?
+- [21:59.350] Ms. Leavitt: Good, thanks.
+- [22:00.560] The Press: The former pardon attorney Elizabeth Oyer believes
+- [22:03.650] she was fired for refusing to sign off
+- [22:06.660] on a move to restore gun rights to actor Mel Gibson.
+- [22:10.250] DOJ's Todd Blanche says, "No." But I want to know,
+- [22:14.180] is the administration dedicated to restoring gun rights
+- [22:17.470] to felons that have served their time?
+- [22:19.040] I ask this because I've talked to people who were pardoned.
+- [22:21.400] They felt that was important.
+- [22:23.380] Of course, this isn't necessarily for a pardon.
+- [22:25.950] What is the president's thinking on this issue?
+- [22:28.050] After you've served your sentence,
+- [22:29.480] should you have gun rights?
+- [22:30.690] Ms. Leavitt: It's an important question.
+- [22:32.210] It is one I have not spoken to the president
+- [22:34.220] about with, on his views,
+- [22:35.770] but I will take it to him this afternoon.
+- [22:37.630] I will tell him you asked, and we will get you an answer.
+- [22:39.710] The Press: [inaudible].
+- [22:41.020] Ms. Leavitt: You're welcome. Jonathan.
+- [22:42.250] The Press: Thanks a lot, Karoline.
+- [22:43.480] A question for you regarding the administration
+- [22:46.540] complying with judges' orders.
+- [22:49.140] I want to ask about an administration spokesperson,
+- [22:52.950] who's the border czar, Tom Homan. He was on Fox News.
+- [22:56.190] Ms. Leavitt: We love Tom Homan.
+- [22:57.400] The Press: And he was talking about the deportations,
+- [22:59.980] and he said the following: he said, "We're not stopping.
+- [23:02.900] I don't care what the judges think."
+- [23:05.490] Which seems to me, just reading that,
+- [23:08.430] that you don't care what orders come from the federal bench.
+- [23:13.190] Is that the case? Can you clarify that, please?
+- [23:15.630] Ms. Leavitt: Well, I think since you just quoted Tom,
+- [23:17.390] I'll quote Tom; he said,
+- [23:18.640] "I don't care what the judges think,
+- [23:20.680] but I can assure you that the administration
+- [23:22.750] is complying with the court order."
+- [23:24.410] And as I've said repeatedly from this podium,
+- [23:27.130] all of the flights that were subject to the judge's
+- [23:29.660] written order departed before the written order.
+- [23:32.150] And we are prepared to make that case in court later
+- [23:36.200] this afternoon. Reagan.
+- [23:37.490] The Press: And then, if I could,
+- [23:38.720] on Russia, the president, as you pointed out,
+- [23:40.690] Karoline made some remarks on Air Force
+- [23:42.550] One coming back from Florida,
+- [23:44.340] and he seemed to indicate that the conversation tomorrow
+- [23:47.490] concerns essentially dividing up assets,
+- [23:50.530] dividing up territory associated with the war in Ukraine.
+- [23:55.170] Has President Zelenskyy given President Trump that authority?
+- [23:59.070] Is
+- [24:00.330] The Press: Is that what is going to take place tomorrow?
+- [24:02.520] Ms. Leavitt: Well, as you know, the president
+- [24:04.110] and his entire national security team
+- [24:06.140] have been engaged directly with President Zelensky
+- [24:08.980] and the Ukrainian team,
+- [24:11.670] and that has been part of the discussion
+- [24:13.480] between the president's team and the Ukrainians.
+- [24:16.540] As for where those lines will be drawn or any specifics,
+- [24:19.690] I am not going to get into that from this podium.
+- [24:21.750] It would be unwise for me to get ahead of the President's call
+- [24:25.340] with President Putin tomorrow.
+- [24:26.610] But again, I can assure you in the effort of transparency,
+- [24:30.110] as this president always does,
+- [24:31.550] you will hear from him or one of us
+- [24:33.610] directly after that phone call tomorrow. Reagan.
+- [24:36.340] The Press: Thank you, Caroline.
+- [24:37.610] There's a lot of focus on the judicial branch right now.
+- [24:39.720] The president has about 40 judicial appointments
+- [24:42.570] that he could make at this moment.
+- [24:44.520] Do you have an update on what the timeline would look like
+- [24:47.610] for those judicial appointments and does the president
+- [24:49.950] have a list of potential nominees
+- [24:51.420] that he's [inaudible 00:24:52]?
+- [24:52.760] Ms. Leavitt: I do not have an update on a timeline,
+- [24:54.370] nor do I have a list,
+- [24:55.570] but I can certainly have our team
+- [24:56.990] gather that for you and provide it.
+- [24:58.260] The Press: Thank you.
+- [24:59.480] Ms. Leavitt: You're welcome. Sure. Go ahead.
+- [25:02.590] The Press: Thank you, Caroline.
+- [25:04.030] Ms. Leavitt: Sure. The Press: Thank you, Caroline.
+- [25:05.270] The president is visiting the Kennedy Center
+- [25:07.290] this afternoon to attend-
+- [25:08.580] Ms. Leavitt: He is. The Press: … a board meeting.
+- [25:10.650] A question about what happened a few weeks ago,
+- [25:12.690] the Kennedy Center got bomb threats targeting a performance
+- [25:15.680] by Shen Yun Performing Arts, which is an American company
+- [25:18.790] showcasing China before communism.
+- [25:20.980] This company has been targeted, unfortunately,
+- [25:23.190] by the CCP for years.
+- [25:25.230] I'm wondering if this administration
+- [25:27.550] has a response to this
+- [25:29.130] and also as the president is putting an emphasis on arts
+- [25:32.630] and culture, what's administration's message
+- [25:35.020] should potentially foreign state actors
+- [25:36.980] who are trying to disrupt that in the US?
+- [25:39.270] Ms. Leavitt: Don't disrupt it.
+- [25:40.650] This administration, we'll take that very seriously
+- [25:42.530] and hold you accountable.
+- [25:43.770] We obviously condemn any violence
+- [25:46.230] or threats of violence against American institutions.
+- [25:49.220] And the president will be traveling to the Kennedy Center
+- [25:51.410] later this afternoon,
+- [25:52.740] I look forward to going with him.
+- [25:54.410] As you know, he's now the chairman
+- [25:55.830] of the board of the Kennedy Center
+- [25:57.460] where he hopes to restore arts and culture
+- [26:01.140] that embrace American tradition, don't disparage it,
+- [26:04.250] as we have unfortunately seen over the past several years.
+- [26:07.270] The president will be doing a tour of the center,
+- [26:10.500] and his business developer mind
+- [26:12.230] I'm sure he will make some recommendations
+- [26:13.870] on how the center itself can be improved,
+- [26:16.160] but also will be discussing perhaps some future plays
+- [26:20.340] and musicals and theatrical programs
+- [26:23.860] that the center will be hosting under his new leadership
+- [26:26.850] and the board's new leadership. Daniel.
+- [26:29.000] The Press: Karoline-
+- [26:30.290] The Press: Will the President be discussing
+- [26:33.060] with Putin tomorrow the future of Vladimir Zelensky,
+- [26:36.230] a follow-up to John's question?
+- [26:37.710] Ms. Leavitt: Again, I've been asked and answered
+- [26:39.120] this question now. I'm not going to get ahead
+- [26:40.640] of the president's discussion tomorrow,
+- [26:42.130] but after the phone call takes place,
+- [26:43.810] I can certainly provide a readout.
+- [26:45.180] Daniel.
+- [26:46.390] The Press: Karoline, thank you so much.
+- [26:47.590] You mentioned earlier in the briefing
+- [26:49.140] that you guys are at the 10-yard line of peace.
+- [26:51.460] Given the amount of progress that you've made
+- [26:53.200] in such a short amount of time, is that an indictment
+- [26:56.350] of the previous administration's foreign policy stance
+- [26:58.800] and is it just more proof
+- [27:00.040] that you need to talk to people to get things done?
+- [27:01.870] Ms. Leavitt: I think so.
+- [27:03.140] I think the previous administration
+- [27:04.930] is the reason this war began. As President Trump often says,
+- [27:08.170] this war would have never started
+- [27:09.770] if he were still in office.
+- [27:11.040] It only started because of the incompetence
+- [27:13.450] and the weakness of the previous administration.
+- [27:16.060] And President Trump is very proud of the progress
+- [27:18.210] that he and his team have made in such a short amount of time,
+- [27:21.320] and hopefully tomorrow that progress will move forward.
+- [27:23.840] Sure.
+- [27:25.100] The Press: Thanks.
+- [27:26.570] There have been some media reports
+- [27:27.960] just in the last few hours that the administration
+- [27:30.530] has decided to withdraw from the International Center
+- [27:33.720] for the Prosecution of the Crime of Aggression against Ukraine,
+- [27:37.770] which is designed to hold Putin accountable for war crimes.
+- [27:43.180] Are you able to confirm that and if that has occurred,
+- [27:45.470] why has that occurred?
+- [27:46.670] Ms. Leavitt: I'm not able to confirm
+- [27:47.900] it because I have not heard that.
+- [27:49.300] I will caution, I know there have been many inaccurate
+- [27:52.260] and misleading reports from Reuters lately,
+- [27:54.350] so I would caution anybody taking that seriously,
+- [27:57.460] but I can check in and get back to you. Rachel.
+- [27:59.570] The Press: Thanks, Caroline.
+- [28:00.770] Is it the president's belief that the Justice Department
+- [28:02.830] should be investigating members
+- [28:04.240] of the January 6 elect committee?
+- [28:05.770] Is he directing the DOJ to do that?
+- [28:07.590] Ms. Leavitt: As the president made it very clear
+- [28:08.970] in his address on Friday,
+- [28:10.200] I believe some of you were there.
+- [28:11.410] I was there. He made his vision for what he would like
+- [28:14.790] to see of the Department of Justice, very clear,
+- [28:17.810] but he said that he has appointed great people
+- [28:19.800] and Attorney General, Pam Bondi
+- [28:21.560] and also in our FBI director, Kash Patel,
+- [28:24.560] to do what they think is best for our justice system
+- [28:27.420] and to stop the weaponization of justice
+- [28:29.300] that we saw under the previous administration
+- [28:31.660] against not just President Trump but his supporters as well.
+- [28:34.560] We want to restore the Department of Justice
+- [28:36.340] to an institution that focuses on fighting law and order
+- [28:39.700] and crime and putting real criminals behind bars,
+- [28:42.650] not targeting Americans because of their religion
+- [28:45.070] or their political speech.
+- [28:46.390] We saw that under the previous administration
+- [28:48.540] and it's unacceptable to this president.
+- [28:50.230] The Press: And just to follow up really quickly on
+- [28:51.800] just Homan's comments from earlier,
+- [28:53.240] a few weeks ago in the Oval Office,
+- [28:54.630] the President said he will always abide by the courts.
+- [28:56.870] We heard what Tom Homan said earlier today,
+- [28:59.010] so I'm only asking just to be clear for the American people,
+- [29:01.960] it is the administration's belief that you feel like you
+- [29:04.960] are bound to comply by the judge's orders?
+- [29:06.840] Ms. Leavitt: We are complying with the judge's orders.
+- [29:08.160] The Press: A question on the storms.
+- [29:09.370] Ms. Leavitt: Sure.
+- [29:10.570] The Press: What role does the presidency for FEMA
+- [29:11.780] with these storms?
+- [29:13.010] He's talking about getting rid of FEMA,
+- [29:14.240] states handling their own disasters.
+- [29:16.010] Does he plan to change how the federal government
+- [29:17.700] responds to these storms?
+- [29:19.140] Ms. Leavitt: There hasn't been a change yet.
+- [29:20.550] That doesn't mean there couldn't be in the future,
+- [29:22.970] but as of right now, the president,
+- [29:24.480] the entire administration are actively monitoring the storms.
+- [29:27.390] As I said, in fact, before I came down here,
+- [29:29.600] there was an email note in my inbox
+- [29:31.370] from the Department of Homeland Security
+- [29:33.200] on what they're actually doing state by state across the board.
+- [29:36.350] Rest assured, Secretary Noem and her team is on it,
+- [29:38.690] and I would defer you to the Department of Homeland Security
+- [29:40.660] for any further details.
+- [29:41.890] The Press: One more question.
+- [29:43.120] The president referenced power plants
+- [29:44.560] with a conversation with Vladimir Putin.
+- [29:46.520] What is he referring to with power plants?
+- [29:48.120] What is that comment?
+- [29:49.510] Ms. Leavitt: There's a power plant
+- [29:50.750] that is on the border of Russia and Ukraine
+- [29:52.940] that was up for discussion with the Ukrainians,
+- [29:54.870] and he will address it in his call with Putin tomorrow.
+- [29:56.600] The Press: The nuclear plant?
+- [29:57.820] Ms. Leavitt: Correct. Yes. The Press: Caroline.
+- [29:59.750] Ms. Leavitt: Do you have a question?
+- [30:00.960] The Press: Yes. Ms. Leavitt: Okay.
+- [30:02.170] The Press: I wanted to ask you
+- [30:04.690] if you would be releasing more granular data
+- [30:07.020] about the people who were sent to El Salvador this week
+- [30:11.050] particularly, will you be releasing their names?
+- [30:13.890] Ms. Leavitt: I don't believe so because
+- [30:15.250] of the privacy concerns at this point in time.
+- [30:17.520] That doesn't mean we won't eventually.
+- [30:19.350] I would defer you to the Department of Homeland Security
+- [30:21.550] for more details on the individuals on the flights,
+- [30:24.210] but we have been incredibly transparent
+- [30:25.970] in giving you the breakdown of the numbers
+- [30:27.990] and also some of the crimes
+- [30:29.190] committed by these heinous criminals and individuals,
+- [30:31.960] kidnapping, sexual abuse of a child, robbery,
+- [30:35.250] aggravated assault on a police officer.
+- [30:37.610] I would remind everybody in this room
+- [30:39.320] that Tren de Aragua is a foreign terrorist organization
+- [30:42.530] operating within the United States of America
+- [30:44.680] because the previous administration
+- [30:46.550] allowed them to invade our country.
+- [30:48.530] These are monsters who tortured,
+- [30:50.130] raped and murdered a 12-year-old Jocelyn Nungre.
+- [30:52.870] They murdered 22-year-old nursing student, Laken Riley.
+- [30:56.250] They led a multi-state sex trafficking operation
+- [30:59.620] involving smuggling women into the United States,
+- [31:02.610] holding them in stash houses in Louisiana,
+- [31:04.870] Florida, New Jersey, Texas and Virginia,
+- [31:07.190] and forcing them into prostitution.
+- [31:09.270] And they kidnapped and murdered a 33-year-old woman in Texas.
+- [31:12.640] They sexually and physically assaulted a woman
+- [31:14.700] and her daughter in Wisconsin.
+- [31:16.470] They conducted a mass shooting in Illinois.
+- [31:18.920] They peddled untraceable ghost guns across New York City,
+- [31:22.320] took over an Aurora, Colorado apartment complex
+- [31:25.140] where they kidnapped and tortured victims.
+- [31:26.900] And by the way, many of you in the mainstream media
+- [31:29.180] said that didn't happen, it turned out that it did.
+- [31:31.850] And because of the effective immigration policies
+- [31:34.100] of this administration,
+- [31:35.490] those foreign terrorists were detained
+- [31:37.900] and they are no longer operating on American soil,
+- [31:40.090] and we have President Trump to thank for that.
+- [31:41.970] We'll see you guys later at the Kennedy Center.
+- [31:43.600] Thanks so much.

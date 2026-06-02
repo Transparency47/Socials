@@ -1,0 +1,105 @@
+<!-- source: https://www.youtube.com/watch?v=DdUrSNj_k0g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DdUrSNj_k0g -->
+<!-- date_published: 2026-05-03T01:02:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:00:34.574859+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure from Palm Beach, FL, May 2, 2026
+
+- [00:00.000] Hello, everybody.
+- [00:02.320] So, I think we can do this right here
+- [00:03.960] instead of
+- [00:05.120] at your house. We're going to your house
+- [00:06.800] and a lot of you are traveling with me.
+- [00:09.560] Doing very well with regard to just
+- [00:11.400] about everything, but doing very well
+- [00:13.320] with regard to Iran.
+- [00:16.000] Again, they want to make a deal. They're
+- [00:17.800] decimated, but they're having a hard
+- [00:20.000] time figuring out who their leader is.
+- [00:22.320] Uh they don't know who their leader is
+- [00:24.160] cuz their leader is gone. Leader that
+- [00:26.680] their former leader commanded.
+- [00:28.640] But, uh we'll see. Any questions, you'll
+- [00:30.960] pass.
+- [00:34.120] Which?
+- [00:37.520] No, I haven't. I haven't. I I'm looking
+- [00:39.440] at it up here.
+- [00:41.640] I'll let you know about it later, but uh
+- [00:47.800] Well, I wouldn't have to. I didn't say
+- [00:49.520] that. I said that if we left right now,
+- [00:52.360] it would take them 20 years to rebuild.
+- [00:54.960] But, we're not leaving right now. We're
+- [00:56.240] going to do it so nobody has to go back
+- [00:57.920] in 2 years or 5 years.
+- [01:02.640] They told me about the concept of the
+- [01:04.360] deal. They're going to give me the exact
+- [01:06.160] wording now. Yeah.
+- [01:14.800] Correct.
+- [01:19.120] Well, I'd like to eliminate it. Yeah,
+- [01:21.000] I'd like to. It'll be a start for them
+- [01:23.080] to build up again. And yeah, I would
+- [01:25.280] like to eliminate it. Sir.
+- [01:27.760] Sir, under what circumstances would you
+- [01:29.440] restart military strikes on target in
+- [01:31.680] Iran? Well, I don't want to say that. I
+- [01:32.880] mean, I can't tell that to a reporter.
+- [01:35.160] If they misbehave, if they do something
+- [01:37.680] bad, but
+- [01:38.920] uh right now
+- [01:41.040] we'll see, but
+- [01:43.480] it's a possibility that could happen,
+- [01:45.120] sir.
+- [01:45.720] >> Mr. President, Mr. President, in your
+- [01:47.360] letter to Congress, you said the
+- [01:49.280] hostilities in Iran that started have
+- [01:51.240] been terminated.
+- [01:52.880] How can you say that given that the
+- [01:54.320] naval blockade is still being militarily
+- [01:56.320] enforced?
+- [01:57.080] >> Well, it's very friendly blockade.
+- [01:58.520] Nobody's even challenging it. Nobody at
+- [02:00.720] all is challenging it. Just so you
+- [02:02.120] understand,
+- [02:04.320] many presidents have been involved in
+- [02:06.280] things that are very big. They never had
+- [02:09.200] to go through anything with respect to
+- [02:10.759] Congress. They considered it to be
+- [02:12.680] totally unconstitutional.
+- [02:14.840] And the Democrats in Congress that
+- [02:17.120] pushed this and probably a couple of
+- [02:19.160] Republicans, they're hurting our
+- [02:21.000] negotiating ability, which is infinite
+- [02:23.880] right now. And they shouldn't be doing
+- [02:25.959] it. It's never happened before. No other
+- [02:28.360] president's done it, and I'm not going
+- [02:30.640] to be the first. Thank you very much.
+- [02:34.080] Right.
+- [02:34.959] >> Thank you, Mr. President. Do you
+- [02:35.920] envision a future where American energy
+- [02:37.920] companies are operating inside of Iran
+- [02:40.080] much like Venezuela?
+- [02:41.800] >> It could be. I'll tell you what, we have
+- [02:43.200] a lot of ships coming up to Texas and
+- [02:45.320] Louisiana.
+- [02:46.760] It's a line of ships. You saw it the
+- [02:48.480] satellite.
+- [02:49.760] We have a line of ships, big ones. 2
+- [02:52.160] million
+- [02:53.360] 2 million barrels.
+- [02:55.280] And they're coming up.
+- [02:57.280] I mean, literally hundreds of ships are
+- [02:59.360] online to go to Texas. I mean, they're
+- [03:00.840] already started.
+- [03:02.519] But we're selling a lot of a lot of oil.
+- [03:05.680] A lot of oil.
+- [03:06.519] >> Mr. President, why is the US removing
+- [03:08.280] troops from Germany?
+- [03:10.680] Why is the US removing troops from
+- [03:12.239] Germany?
+- [03:13.959] >> Uh
+- [03:14.680] we're going to cut way down, and we're
+- [03:16.120] cutting a lot further than 5,000. Thank
+- [03:18.519] you very much.
+- [03:18.959] >> next step with Iran?

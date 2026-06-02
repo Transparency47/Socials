@@ -1,0 +1,849 @@
+<!-- source: https://www.youtube.com/watch?v=Vl-_9pOiAl0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Vl-_9pOiAl0 -->
+<!-- date_published: 2025-02-25T18:55:37+00:00 -->
+<!-- date_accessed: 2026-06-02T02:53:28.708002+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 25, 2025
+
+- [00:07.210] Ms. Leavitt: Good afternoon everybody.
+- [00:08.630] The Press: Good afternoon. Ms. Leavitt: How are we today?
+- [00:10.070] The Press: Great.
+- [00:11.270] Ms. Leavitt: Good.
+- [00:12.480] During his inaugural address, President Trump promised
+- [00:15.440] that America would be a manufacturing nation
+- [00:18.160] once again and liberal pundits, mocked him for it,
+- [00:21.500] but those critics were proven wrong once again.
+- [00:24.590] On the heels of President Trump's Oval Office
+- [00:26.710] meeting with Apple CEO, Tim Cook last week,
+- [00:29.660] Apple just announced its largest ever commitment
+- [00:32.680] to American jobs and industry with plans to spend
+- [00:35.890] and invest more than $500 billion in America
+- [00:39.830] over the next four years. Over the course of the current
+- [00:42.940] Trump administration, Apple plans to hire around
+- [00:45.820] 20,000 new workers
+- [00:47.960] creating high paying jobs right here in America.
+- [00:51.840] And the investment isn't limited
+- [00:53.360] to one specific region of our country.
+- [00:56.030] Apple teams and facilities will expand all over our country
+- [00:59.660] in Arizona, California, Iowa, Nevada,
+- [01:03.140] North Carolina, Michigan, Oregon, Texas, and Washington.
+- [01:07.640] With President Trump in Charge America is open for business.
+- [01:12.020] Apple CEO, Tim Cook,
+- [01:13.310] said it best in the company's announcement,
+- [01:15.640] "We are bullish on the future of American innovation."
+- [01:19.920] On top of this incredible Apple announcement,
+- [01:22.170] President Trump already announced more than $1 trillion
+- [01:25.460] in pledged investments into the United States.
+- [01:28.440] And on another important note
+- [01:29.890] that the American people in entrusted President Trump
+- [01:32.220] to fulfill this administration's efforts to seal the border
+- [01:35.440] continue to prove extraordinarily successful.
+- [01:39.370] In President Trump's first month back in office alone,
+- [01:42.410] illegal border crossings hit lows not seen in decades,
+- [01:45.980] down 94% over the past year,
+- [01:49.460] while interior arrests are up 134%.
+- [01:53.960] And this past Saturday, this is a significant statistic
+- [01:57.270] that I wanted to share with all of you,
+- [01:59.060] there were only 220 illegal border crossings on Saturday.
+- [02:03.930] This is a 15-year low. Think about that in comparison
+- [02:08.760] to the amount of illegal border crossings
+- [02:11.200] we saw under the previous administration.
+- [02:14.130] Fox recently reported that a San Diego
+- [02:16.390] migrant shelter is closing its doors
+- [02:18.380] after saying they have not received new asylum
+- [02:20.680] seeking families or individuals since January 20th.
+- [02:24.600] We all know what happened on January 20th, don't we?
+- [02:27.490] And yesterday, New York City Mayor Eric Adams
+- [02:29.840] announced that the massive Roosevelt Hotel
+- [02:31.850] migrant shelter in Manhattan
+- [02:33.380] will shut down in the next few months.
+- [02:36.330] We're also seeing a reverse migration effect.
+- [02:39.840] There are now verified reports from the Associated Press
+- [02:43.450] of migrants abandoning their journey to the United States
+- [02:46.280] and heading back home.
+- [02:47.960] This is the first time the Border Patrol
+- [02:49.850] has received these reports since 2020
+- [02:52.620] during President Trump's first term.
+- [02:55.330] The returning migrants claimed in interviews
+- [02:57.380] that the new heavy security posture adopted
+- [02:59.860] by the Trump administration
+- [03:01.460] was a significant reason for their decision
+- [03:03.460] to return to the countries of their origin.
+- [03:07.000] Overall, the American people continue to overwhelmingly
+- [03:10.360] give President Trump very positive remarks.
+- [03:13.870] Nearly every one of President Trump's policy
+- [03:16.490] initiatives are receiving strong majority support.
+- [03:20.250] And I have noted that in every briefing since Inauguration Day.
+- [03:23.810] 81% of Americans support deporting illegal
+- [03:27.670] migrant criminals from our nation's interior.
+- [03:30.850] 76% of Americans support the DOGE-led efforts
+- [03:35.090] of a full-scale investigation to find and eliminate fraud
+- [03:39.410] in waste in government expenditures.
+- [03:41.900] Again, this is from a Harvard-Harris poll,
+- [03:43.760] a very legitimate pollster.
+- [03:45.610] 76% of Americans support closing the border.
+- [03:49.190] 69% of Americans support President Trump's commonsense
+- [03:52.930] efforts to ban men from women's sports.
+- [03:55.200] As you all know, we celebrated that executive order
+- [03:57.910] at the White House a couple of weeks ago.
+- [04:00.180] 65% of Americans support the President's efforts
+- [04:03.290] to eliminate all preferences by race in the hiring
+- [04:06.240] and awarding of government contracts,
+- [04:08.870] which is another pledge that DOGE is working hard to fulfill.
+- [04:12.350] And 61% of Americans, vast majority,
+- [04:15.360] support the President's plan for reciprocal tariffs
+- [04:18.310] to ensure that other countries are treating us
+- [04:21.060] the way we have always been treated.
+- [04:23.420] Despite what many Democrats and media members
+- [04:25.670] want you to believe that Trump agenda is not only necessary,
+- [04:29.470] but it is overwhelmingly popular.
+- [04:32.600] Why? Because it's driven by common sense.
+- [04:36.690] And finally, as you all saw yesterday,
+- [04:39.180] a federal judge denied
+- [04:40.550] the Associated Press's emergency motion
+- [04:43.280] for a temporary restraining order against myself,
+- [04:46.620] our Deputy Chief of Staff, Taylor Budowich,
+- [04:49.260] and our Chief of Staff, Susie Wiles,
+- [04:51.450] for our decision to remove the associated press
+- [04:54.280] from the White House press pool for certain and special events.
+- [04:58.160] The judge's ruling upholding our decision
+- [05:00.640] to deny the Associated Press
+- [05:02.250] such privileged access reinforces the truth.
+- [05:06.280] And it reiterates what I said from this podium last week
+- [05:09.590] when that suit was filed,
+- [05:11.430] asking the President of the United States questions
+- [05:14.810] in limited spaces such as the Oval Office and Air Force
+- [05:17.840] One is a privilege
+- [05:19.950] that unfortunately has only been granted to a few,
+- [05:23.010] it is not a legal right for all.
+- [05:26.760] The Trump administration has already proven
+- [05:28.690] to be the most transparent ever,
+- [05:31.150] and this President, the most accessible in history.
+- [05:34.520] This is evidenced by President Trump's
+- [05:36.290] daily press conferences in the Oval Office,
+- [05:38.880] where he takes many questions from the journalists
+- [05:40.980] who have the honor and privilege of standing
+- [05:43.030] before the beautiful Resolute desk.
+- [05:46.010] The President and this entire White House
+- [05:48.600] are committed to ensuring the American people
+- [05:51.870] continue to receive this same level of historic transparency,
+- [05:56.740] access, and visibility. In fact, we want to double down
+- [06:01.100] and give even greater access to the American people.
+- [06:04.930] We want more outlets and new outlets
+- [06:07.830] to have a chance to take part in the press pool
+- [06:10.990] to cover this administration's unprecedented achievements
+- [06:13.920] up close, front and center.
+- [06:16.490] As you all know, for decades, a group of DC-based journalists,
+- [06:20.350] the White House Correspondents Association,
+- [06:22.770] has long dictated which journalists
+- [06:24.670] get to ask questions of the President of the United States
+- [06:27.950] in these most intimate spaces, not anymore.
+- [06:32.550] I am proud to announce that we are going to give
+- [06:34.720] the power back to the people who read your papers,
+- [06:37.680] who watch your television shows,
+- [06:39.280] and who listen to your radio stations.
+- [06:41.900] Moving forward the White House press pool
+- [06:44.100] will be determined by the White House press team.
+- [06:46.990] Legacy outlets who have participated in the press pool
+- [06:49.990] for decades will still be allowed to join.
+- [06:52.890] Fear not, but we'll also be offering the privilege
+- [06:55.780] to well-deserving outlets who have never been allowed
+- [06:59.030] to share in this awesome responsibility.
+- [07:02.700] Just like we added a new media seat in this briefing room,
+- [07:05.950] legacy media outlets who have been here for years
+- [07:08.350] will still participate in the pool,
+- [07:10.750] but new voices are going to be welcomed in as well.
+- [07:14.440] As part of these changes, we will continue the rotation
+- [07:17.260] amongst the five major television networks
+- [07:19.730] to ensure the President's remarks
+- [07:21.270] are heard far and wide around this world.
+- [07:24.320] We will add additional streaming services
+- [07:26.520] which reach different audiences
+- [07:28.210] than traditional cable and broadcast.
+- [07:30.640] This is the ever-changing landscape of the media
+- [07:33.120] in the United States today.
+- [07:35.130] We will continue to rotate a print pooler
+- [07:37.560] who has the great responsibility of quickly
+- [07:40.010] transcribing the President's remarks
+- [07:41.860] in disseminating them to the rest of the world.
+- [07:44.650] And we will add outlets to the print pool rotation
+- [07:46.840] who have long been denied the privilege
+- [07:49.280] to partake in this experience,
+- [07:50.940] but are committed to covering this White House feed.
+- [07:54.680] We will continue to rotate a radio pooler
+- [07:57.050] and add other radio hosts who have been denied access,
+- [08:00.010] especially local radio hosts
+- [08:01.550] who serve as the heartbeat of our country.
+- [08:04.810] And we will add additional outlets and reporters
+- [08:06.920] who are well-suited to cover the news of the day
+- [08:09.080] and ask substantive questions
+- [08:11.010] of the President of the United States,
+- [08:12.690] depending on the news he is making on that given day.
+- [08:16.540] This administration is shaking up Washington
+- [08:18.800] in more ways than one.
+- [08:20.250] That's what we were elected to do.
+- [08:22.390] As I have said, since the first day behind this podium,
+- [08:25.080] it's beyond time that the White House press operation
+- [08:27.730] reflects the media habits of the American people in 2025,
+- [08:32.080] not 1925.
+- [08:34.170] A select group of DC-based journalists
+- [08:36.240] should no longer have a monopoly
+- [08:38.050] over the privilege of press access at the White House.
+- [08:41.400] All journalists, outlets,
+- [08:42.780] and voices deserve a seat at this highly coveted table,
+- [08:47.460] so by deciding which outlets make up the limited press pool
+- [08:50.450] on a day-to-day basis,
+- [08:51.950] the White House will be restoring power back
+- [08:54.230] to the American people
+- [08:55.710] who President Trump was elected to serve.
+- [08:58.670] In that note, in our new media seat today,
+- [09:00.850] we have Shelby Talcott,
+- [09:02.280] who is a White House reporter for Semafor.
+- [09:05.140] In 2022, Semafor launched as a global digital news platform
+- [09:08.900] with the aim of bringing meaningful innovations
+- [09:11.090] to the news industry.
+- [09:12.670] Today they have nearly 1 million newsletter
+- [09:15.120] subscribers spanning 11 separate editions.
+- [09:19.440] With that Shelby, I will take your questions.
+- [09:22.010] The Press: Thanks, Karoline. I've got two for you.
+- [09:23.560] One on foreign policy. Over the weekend,
+- [09:25.880] the president's special missions envoy,
+- [09:27.730] Rick Grinnell was talking about Venezuela
+- [09:30.400] and he said that the president
+- [09:31.640] isn't someone who wants regime change.
+- [09:33.830] Other administration officials have made clear
+- [09:35.620] that they don't seem Maduro as the rightful leader.
+- [09:38.460] What is this administration's policy
+- [09:41.320] on a new government in Venezuela?
+- [09:42.980] Ms. Leavitt: I think the president
+- [09:44.220] has made his position on Venezuela quite clear.
+- [09:46.560] He stands in opposition to the Maduro regime.
+- [09:49.370] And Secretary Rubio has spoken on this extensively as well.
+- [09:52.180] The Press: And then on DOGE.
+- [09:53.720] Last night, Elon Musk said that a failure
+- [09:55.780] to respond a second time will result in termination.
+- [09:59.530] Will there be additional rounds of the,
+- [10:02.190] "What did you do this week"
+- [10:03.490] email from DOGE to federal workers?
+- [10:05.970] And what's the guidance on the federal workers
+- [10:09.970] who have been instructed by their agencies not to reply?
+- [10:14.110] Ms. Leavitt: So a couple of things on this.
+- [10:15.460] First of all, let's just take a step back
+- [10:17.200] and talk about this idea.
+- [10:19.300] The president sent out a Truth last weekend to Elon Musk
+- [10:22.540] saying he loves everything Elon is doing
+- [10:24.660] and he wants him to be even more aggressive,
+- [10:26.990] because DOGE thus far has proven incredibly successful
+- [10:30.050] in making our government more efficient.
+- [10:33.040] Elon and DOGE came up with this idea.
+- [10:35.390] Elon has implemented this at his private companies.
+- [10:37.690] It has proven successful,
+- [10:39.290] and it's a very simple idea when you think about it.
+- [10:41.870] All the Office of Personnel Management is asking,
+- [10:44.290] all this administration is asking,
+- [10:45.840] President Trump is asking is for federal workers
+- [10:49.180] who live off of the American taxpayers dime,
+- [10:52.280] to send five bullet points of what they have done
+- [10:54.910] in the previous week. That is all we are asking for.
+- [10:58.000] And so the Office of Personnel and Management
+- [10:59.780] sent out additional guidance last night.
+- [11:02.210] Those responses should be directed to agency leadership
+- [11:05.490] and the president defers to his cabinet secretaries,
+- [11:08.070] who he's obviously entrusted to pursue the guidance relative
+- [11:12.160] to their specific workforce.
+- [11:13.940] And for some of the agencies that you've seen who have said,
+- [11:16.330] please don't send these emails,
+- [11:17.560] it's in their best interest for that specific agency,
+- [11:20.200] and the president supports that.
+- [11:21.780] And let me be very clear, the president and Elon,
+- [11:24.620] as his entire cabinet are working as one unified team
+- [11:28.410] and they're implementing these very common sense solutions.
+- [11:31.570] You're welcome. Jackie.
+- [11:32.950] The Press: Thank you.
+- [11:34.150] One follow up on question about the deadline.
+- [11:36.770] Alina Habba said that you have until tonight.
+- [11:40.480] Elon Musk said a failure to respond a second time
+- [11:42.930] would result in termination. Is that a real deadline?
+- [11:47.240] Should federal workers be looking to that guidance
+- [11:50.680] or should they be looking to the agency heads?
+- [11:53.850] What is the actual deadline?
+- [11:55.670] Ms. Leavitt: So again, the agency heads will determine
+- [11:58.610] the best practices for their employees
+- [12:01.180] at their specific agencies.
+- [12:02.610] Again, this was an idea that Elon come up with.
+- [12:05.850] DOGE worked with OPM to actually implement the idea,
+- [12:08.660] and the secretaries are responsible
+- [12:10.390] for their specific workforce. And this is true of the hirings
+- [12:13.430] and the firings that have taken place.
+- [12:15.860] And we advise federal workers,
+- [12:18.080] unless your agency has dictated you not to,
+- [12:21.090] to respond to this email. In fact, I can announce
+- [12:23.720] that we've had more than 1 million workers
+- [12:26.170] who have chosen to participate in this very simple task of,
+- [12:29.670] again, sending five bullet points
+- [12:31.920] to your direct supervisor or manager, CCing OPM.
+- [12:35.400] I actually participated it in myself.
+- [12:37.880] It took me about a minute
+- [12:39.210] and a half to think of five things I did last week.
+- [12:41.360] I do five things in about 10 minutes,
+- [12:42.860] and all federal workers should be working at the same pace
+- [12:45.570] that President Trump is working and moving.
+- [12:47.880] We have a country to save and we want this federal government
+- [12:50.740] to be responsive to the needs of the American people
+- [12:53.040] who re-elected this president to have historic massive reform.
+- [12:56.730] And that's what the intention of this idea is.
+- [12:58.530] The Press: Can you clarify one thing though,
+- [12:59.850] because Elon Musk also said that a reason
+- [13:02.040] that they wanted this five things email
+- [13:03.540] was just to see if people are actually alive,
+- [13:06.320] citing that there are some federal workers
+- [13:07.730] who might not even be alive.
+- [13:10.790] Meantime, NBC is reporting that these responses
+- [13:12.900] are going to go into an AI generator to evaluate
+- [13:15.360] whether these jobs are necessary.
+- [13:17.590] So is it just to see if people are actually working
+- [13:21.130] or is it an effort to maybe cut some of those jobs?
+- [13:23.980] Ms. Leavitt: I have not seen that NBC News report,
+- [13:26.110] and I haven't heard that from DOGE or from Elon himself.
+- [13:29.430] Again, this is to ensure that federal workers
+- [13:32.010] are not ripping off American taxpayers,
+- [13:34.180] that they're showing up to the office
+- [13:36.030] and that they are doing their jobs.
+- [13:37.510] That's what the American people expect,
+- [13:39.330] and it's a very simple task to complete.
+- [13:41.210] I did it myself and I was more than happy to do it
+- [13:43.230] because I'm very grateful that I'm serving the American people
+- [13:46.320] on the American taxpayers' dime.
+- [13:48.180] The Press: Do you think DOGE should hire a spokesperson
+- [13:50.000] just so that Elon Musk doesn't put out tweets
+- [13:52.040] that then confuse federal workers?
+- [13:53.410] Ms. Leavitt: Are my press briefings
+- [13:54.640] not good enough for you, Jackie? John.
+- [13:56.800] The Press: Karoline, thank you.
+- [13:58.010] In the ruling by Judge McFadden yesterday,
+- [14:02.100] who dismissed the lawsuit that AP brought against yourself
+- [14:07.710] and your team members here, President Trump, in there,
+- [14:11.130] he said, why not just do away
+- [14:14.000] with the entire White House Correspondence Association
+- [14:17.890] along with it?
+- [14:19.120] Because essentially they have no authority.
+- [14:21.520] They just usurped it. What is your reaction to that?
+- [14:24.800] Ms. Leavitt: Well, first of all, John, it's great to see you,
+- [14:26.850] and you are one of those individuals who has…
+- [14:30.550] You're on a streaming platform
+- [14:31.840] that hundreds of thousands of people tune into every day,
+- [14:34.520] so it's great to see you in the briefing room.
+- [14:36.720] I did address that actually in my opening remarks
+- [14:39.160] by announcing that the White House Press team
+- [14:41.730] in this administration will determine who gets to enjoy
+- [14:45.590] the very privileged and limited access
+- [14:47.610] in spaces such as Air Force One and the Oval Office.
+- [14:50.500] There are, as you know, look at this room,
+- [14:52.660] hundreds of journalists
+- [14:54.280] who show up to this building every single day
+- [14:56.260] and are not granted that luxury of flying on Air Force One
+- [14:59.350] and asking the President of the United States questions.
+- [15:01.490] And so we want to ensure, again,
+- [15:03.050] everyone has a seat at that highly coveted table,
+- [15:05.300] but alas, the legacy media outlets
+- [15:07.510] who have been doing this for quite some time
+- [15:09.410] and have invested resources into covering the White House,
+- [15:11.950] their spots will remain,
+- [15:13.150] just like they have in this briefing room as well.
+- [15:15.090] Sure. Steve.
+- [15:16.330] The Press: Could you give us an update
+- [15:17.530] on the negotiations around Ukraine minerals deal
+- [15:20.250] and when is President Zelensky going to come visit?
+- [15:23.150] Ms. Leavitt: So the president talked at length
+- [15:24.720] about this yesterday,
+- [15:25.970] the critical minerals deal with President Macron,
+- [15:28.990] and in the more than hour long press conference
+- [15:31.320] he gave all of you in the Oval Office himself.
+- [15:33.840] There hasn't been significant updates
+- [15:35.570] since the President's remarks last night,
+- [15:37.220] but I will just reiterate his position.
+- [15:39.650] It's critical that this deal is signed.
+- [15:42.080] He expects President Zelensky to sign a deal.
+- [15:44.960] This is to recoup American tax dollars
+- [15:48.050] that have been funding Ukraine's national defense.
+- [15:50.590] And it's also great for the Ukrainian people
+- [15:52.510] who have been put through hell because of this war,
+- [15:54.860] and it will create a lasting economic partnership as Ukraine
+- [15:58.390] will need to rebuild their country
+- [15:59.910] because of this brutal war.
+- [16:01.110] The Press: Just to follow up,
+- [16:02.330] has Steve Witkoff delayed his trip to the Middle East
+- [16:04.640] so he can concentrate on this minerals deal?
+- [16:07.180] Ms. Leavitt: I don't want to comment
+- [16:08.510] on Mr. Witkoff's travel plans
+- [16:10.360] or read anything out just for obvious reasons,
+- [16:13.180] but he remains very much working.
+- [16:15.830] That man is working around the clock
+- [16:17.210] to secure this deal with Russia and Ukraine
+- [16:19.950] alongside Secretary Rubio and Secretary Bessent,
+- [16:22.440] General Keith Kellogg. He's also working very hard
+- [16:25.100] to secure a peace deal in the Middle East as well.
+- [16:27.410] So God bless him, and he's working alongside the President
+- [16:30.670] every single day. Sure.
+- [16:32.180] The Press: Thanks Karoline. The President's executive order
+- [16:35.560] creating DOGE called for the naming of a DOGE administrator.
+- [16:40.330] Who is the DOGE administrator?
+- [16:41.980] Ms. Leavitt: So the president tasked Elon Musk
+- [16:44.360] to oversee the DOGE effort. There are career officials
+- [16:48.040] and there are political appointees
+- [16:49.700] who are helping run DOGE on a day-to-day basis.
+- [16:53.380] There are also individuals who have onboarded
+- [16:56.030] as political appointees at every agency across the board
+- [16:59.360] to work alongside President Trump's cabinet
+- [17:01.880] to find and identify waste, fraud and abuse.
+- [17:04.700] And they are working on that effort every day.
+- [17:06.220] The Press: So is Elon Musk the administrator?
+- [17:07.550] Ms. Leavitt: Reagan.
+- [17:08.760] The Press: Thanks Karoline. I have two for you today.
+- [17:10.990] One on the border wall and one on the DHS investigation.
+- [17:13.370] Ms. Leavitt: Sure.
+- [17:14.740] The Press: First, on the border wall.
+- [17:17.040] Border wall construction has restarted
+- [17:19.200] in Texas and California
+- [17:20.730] under contracts awarded under Trump's first term.
+- [17:24.220] Is the president looking to secure new contracts
+- [17:26.650] and how is he defining success in terms of border wall
+- [17:30.060] construction this administration?
+- [17:32.270] Ms. Leavitt: The border wall is a signature promise
+- [17:34.250] of President Trump's campaign.
+- [17:36.110] He talked about it way back in 2015 and 2016
+- [17:39.910] and people laughed at him for bringing up this idea.
+- [17:42.610] It's proven to be not only an idea
+- [17:44.980] that he delivered on in his first term
+- [17:46.980] and continues to deliver on in the second term,
+- [17:49.260] but it's also proven to be highly effective.
+- [17:52.170] In fact, we know where there were parts
+- [17:54.390] of President Trump's border wall
+- [17:55.810] built and standing under the previous administration,
+- [17:58.680] illegal border crossings dropped 87%
+- [18:01.890] where there was a border wall.
+- [18:03.210] So the wall is an incredible deterrent factor
+- [18:06.030] for illegal migrant caravans.
+- [18:07.640] The President is committed to the continuation
+- [18:10.090] of the construction of the wall,
+- [18:12.190] and the previous administration actually sold off the resources
+- [18:16.340] that the Trump administration secured to build the wall,
+- [18:19.550] and that's an egregious misuse
+- [18:21.150] of the American taxpayers' money.
+- [18:22.580] They just let those resources rot on the southern border,
+- [18:25.130] they actually sold them for pennies on the dollar.
+- [18:27.430] So this administration, DHS, and ICE,
+- [18:31.470] and Customs and Border Patrol, and Tom Homan,
+- [18:33.770] and all of the great people you know
+- [18:35.300] who are working on this effort
+- [18:36.510] are committed to continuing the construction
+- [18:38.390] of President Trump's border wall.
+- [18:39.830] The Press: On the DHS investigation into people
+- [18:42.500] who might be leaking within the administration,
+- [18:45.000] will the White House release the names of the individuals
+- [18:47.570] that DHS Secretary Noem
+- [18:49.090] said were caught leaking details of the ICE raid
+- [18:52.040] and can you share how many leakers have been caught so far
+- [18:54.660] and what agency they were a part of?
+- [18:56.820] Ms. Leavitt: I would defer you to DHS on the leakers
+- [18:59.430] that they have identified, but I know the President
+- [19:01.720] and this White House commend Secretary Noem
+- [19:04.270] for launching an internal investigation
+- [19:06.180] to identify those leakers
+- [19:08.150] because it's unacceptable for career bureaucrats
+- [19:11.140] who are standing in the way of the will of the American people
+- [19:14.160] and enacting President Trump's agenda.
+- [19:17.010] If they don't want to adhere to the will
+- [19:19.480] of the 77 million Americans who reelected President Trump,
+- [19:22.550] then they should go find another job,
+- [19:24.230] and if they continue to leak information,
+- [19:26.050] especially information that is critical
+- [19:28.370] to protecting border patrol agents
+- [19:30.130] and ICE agents who are out there doing jobs
+- [19:32.880] that not many people are willing to do,
+- [19:35.050] putting their lives on the line
+- [19:36.280] to protect our national security,
+- [19:38.020] then those individuals absolutely should be fired
+- [19:41.570] and this administration is committed to finding them.
+- [19:44.210] The Press: Karoline, right here.
+- [19:45.450] Ms. Leavitt: Sure.
+- [19:46.670] The Press: Karoline, two questions for you,
+- [19:47.920] one related to Guantanamo Bay,
+- [19:49.260] the other to the White House Correspondents' dinner.
+- [19:51.420] I wanted to get your response to some Washington Post
+- [19:53.470] reporting of the migrants who stayed over
+- [19:56.030] at Guantanamo Bay for the last two weeks.
+- [19:57.940] They told The Post they were rarely let outside,
+- [20:00.600] they were shackled and placed in what they described as cages,
+- [20:03.860] and alleged that they were not treated as human beings.
+- [20:06.260] Does the White House have any response to those conditions?
+- [20:08.690] Ms. Leavitt: At Guantanamo Bay?
+- [20:10.640] It's a promise the President campaigned on,
+- [20:13.260] that if you invade our nation's borders,
+- [20:15.510] if you break our country's laws,
+- [20:17.330] and if, then, you further commit heinous,
+- [20:19.680] brutal crimes in the interior of our country,
+- [20:22.410] like raping and murdering innocent law-abiding women
+- [20:25.720] and girls and committing heinous acts of violence,
+- [20:29.010] then you are going to be deported from this country
+- [20:31.270] and you may be held at Guantanamo Bay.
+- [20:34.160] These are criminals we are talking about.
+- [20:35.730] Don't forget that. Sure.
+- [20:37.070] The Press: Oh, we're good.
+- [20:38.290] The Press: Thank you. So US consumer confidence
+- [20:40.980] fell this month the most since August of 2021.
+- [20:44.210] What is your message for Americans
+- [20:45.960] who are concerned about the impact of things
+- [20:48.360] such as tariffs on prices?
+- [20:49.960] Ms. Leavitt: Yeah, sure.
+- [20:51.310] Well thank you for that question.
+- [20:52.520] It's obviously an important one.
+- [20:53.910] The President campaigned on reigniting the Trump economy
+- [20:57.470] and fixing the mess that was created
+- [20:59.760] by the previous administration. We know they created an economic
+- [21:03.090] and an inflation nightmare for the American people,
+- [21:05.730] and I'm not going to stand up here
+- [21:06.940] and lie to you like my predecessor
+- [21:08.560] did about the state of our economy.
+- [21:10.550] We understand there are people that are hurting
+- [21:12.990] and this administration
+- [21:14.300] is wholeheartedly committed to ensuring
+- [21:16.850] that those individuals see relief in price reductions,
+- [21:20.420] in tax cuts, and in less regulations
+- [21:23.460] that are burdensome on their household and their businesses,
+- [21:27.220] and the President and this entire administration
+- [21:29.080] are focused on that every day.
+- [21:30.590] I can go through the very long list of economic actions
+- [21:33.740] this President has taken. I know you work for Bloomberg,
+- [21:35.730] so I'm sure you're well aware of them,
+- [21:36.970] but I can assure the American people
+- [21:38.860] that the President is very much focused
+- [21:41.330] on bringing down the cost of living crisis in this country
+- [21:44.090] that was created by the previous administration.
+- [21:46.120] The Press: Thanks, I just have a quick follow up.
+- [21:47.620] Ms. Leavitt: Sure.
+- [21:48.880] The Press: Is the President planning on whipping any votes
+- [21:51.810] for support for the House budget vote,
+- [21:55.000] and if so, to whom is he making calls?
+- [21:57.350] Ms. Leavitt: I'm not aware of any calls that he has made.
+- [21:59.520] I did talk to the President about his position on this
+- [22:02.600] just before coming down here
+- [22:04.590] and he said that he's made it very clear to the Hill
+- [22:09.010] what his priorities for a budget are.
+- [22:11.210] He said it to the Speaker of the House,
+- [22:13.630] he said it to leader Thune.
+- [22:15.920] The Senate and the House know what President Trump want
+- [22:18.580] and know what the American people want.
+- [22:20.450] And so he expects Congress to get it done.
+- [22:22.480] He's looking at the proposal from the House.
+- [22:24.850] He will also be looking at the proposal
+- [22:26.480] that I believe the Senate is drafting up as well.
+- [22:28.850] The Press: Karoline.
+- [22:30.050] Ms. Leavitt: Sure.
+- [22:31.510] The Press: Thank you, Karoline. I have two patients.
+- [22:35.210] Does the United States … Sorry.
+- [22:44.190] Ms. Leavitt: Well, why don't you identify your question
+- [22:46.080] and I'll come back to you.
+- [22:47.320] The Press: Karoline, can I follow up on the …
+- [22:48.550] The Press: In the back. Ms. Leavitt: Sure, go ahead.
+- [22:49.860] The Press: Thank you.
+- [22:51.160] What guarantee that Israel will withdraw from Lebanon soil
+- [22:54.790] after two weeks as the ceasefire terms indicates?
+- [23:00.150] Ms. Leavitt: I'm not sure about the guarantee
+- [23:01.740] that you're referring to.
+- [23:02.960] I can tell you that this administration remains
+- [23:05.700] very much engaged. We know that the deadline
+- [23:08.100] for the phase one ceasefire is imminent.
+- [23:10.840] So Steve Woodcock, whom I mentioned earlier,
+- [23:13.650] and the President's administration and his team
+- [23:15.610] and the President himself remain very much engaged.
+- [23:17.970] We want to see the ceasefire continue
+- [23:19.350] and the President has made it very clear
+- [23:21.130] he wants to see all of the hostages
+- [23:23.220] who have been held in captivity and Gaza returned home.
+- [23:25.710] Jeff?
+- [23:27.000] The Press: Karoline, I was wondering,
+- [23:28.430] is Elon Musk going to attend
+- [23:29.760] the President's first cabinet meeting tomorrow?
+- [23:31.810] Ms. Leavitt: He is, as a matter of fact.
+- [23:33.280] I spoke to the President about that before coming down here
+- [23:35.550] as well and Elon,
+- [23:37.260] considering he's working alongside the President
+- [23:39.470] and our cabinet secretaries,
+- [23:41.920] this entire administration, will be in attendance tomorrow
+- [23:45.560] just to talk about DOGE's efforts
+- [23:47.260] and how all of the cabinet secretaries are identifying
+- [23:50.300] waste, fraud, and abuse at their respective agencies.
+- [23:52.410] We look forward to the meeting tomorrow,
+- [23:53.870] and I think you'll be hearing
+- [23:55.100] from the President and his Cabinet
+- [23:56.780] where there on campus tomorrow. I hope you guys are excited.
+- [23:59.270] The Press: Since some of those Cabinet members
+- [24:00.740] were caught off guard by the email from Saturday-
+- [24:03.370] Ms. Leavitt: Nobody was caught off guard.
+- [24:05.260] The Press: A few departments said they were caught off guard.
+- [24:07.320] The FBI was, the DOJ was the, the Department of Defense was.
+- [24:09.790] Ms. Leavitt: Did anonymous sources say
+- [24:11.080] that or did the Cabinet Secretary say that?
+- [24:13.100] The Press: The Cabinet Secretaries and others have said
+- [24:15.530] that they were not aware that this was happening.
+- [24:17.230] So I'm wondering will there be a give-and-take tomorrow
+- [24:19.590] at the Cabinet meeting?
+- [24:20.830] Is Elon Musk or the President open to any type of dialogue
+- [24:24.270] about who is actually in charge
+- [24:26.520] of the chain of command of these workers?
+- [24:28.740] Ms. Leavitt: I would reject
+- [24:29.940] the premise of your question, Jeff.
+- [24:31.540] The Cabinet Secretaries have not said that.
+- [24:33.460] I know anonymous sources, probably career bureaucrats,
+- [24:35.870] have leaked that to many of you in this room.
+- [24:37.900] But as I said at the beginning of this press conference,
+- [24:40.480] everybody is working as one team and the President respects
+- [24:43.370] the decisions of his Cabinet Secretaries
+- [24:45.230] to tell their staff not to respond to that email
+- [24:48.600] because they did so out of interest of national security
+- [24:52.260] and they don't want to, obviously,
+- [24:53.460] risk confidential information.
+- [24:54.990] It's pretty common sense. Dasha.
+- [24:57.760] The Press: Musk has obviously been doing a lot of work.
+- [24:59.680] He's been working every day and a lot of the time weekends.
+- [25:02.900] He is designated as a special government employee,
+- [25:06.350] which means that he can only work 130 days per year.
+- [25:10.990] Is the White House expecting him to limit his work to 130 days
+- [25:14.890] or are you going to work around those rules?
+- [25:16.960] Do you want to see him extend beyond the 130 days?
+- [25:19.610] Ms. Leavitt: So today is February 25th,
+- [25:21.720] so I think we've been here about 35 days roughly.
+- [25:25.390] So ask me in another a hundred days. Daniel.
+- [25:28.330] The Press: Karoline, thank you.
+- [25:29.590] You opened up with a major announcement from Apple,
+- [25:33.660] $500 billion, 20,000 jobs,
+- [25:35.760] doubling its advanced manufacturing fund.
+- [25:38.500] What does that signal that's such a global brand would make
+- [25:41.590] what it called its largest-ever spend commitment
+- [25:44.370] just a month into President Trump's second term?
+- [25:46.440] What does that signal about his economic vision for the country?
+- [25:49.770] Ms. Leavitt: President Trump is a dealmaker
+- [25:51.450] and he has restored confidence in business leaders
+- [25:54.940] around this entire world.
+- [25:56.780] Apple is one of the largest companies
+- [25:58.710] on the face of the planet.
+- [25:59.910] They employ hundreds of thousands of Americans,
+- [26:02.590] but the President wants to see more Americans employed,
+- [26:05.310] more investments here in the United States of America,
+- [26:07.820] and this is another fulfillment
+- [26:09.300] of the President's campaign promises.
+- [26:11.330] I recall President Trump, at his rallies on the campaign,
+- [26:14.670] telling the world that, "If and when I am elected,
+- [26:17.550] America is going to be back
+- [26:19.520] and we want your investments to be driven onshore.
+- [26:22.940] We want you to hire American workers
+- [26:24.930] and you will have the lowest regulatory burden,
+- [26:27.090] the lowest tax cuts,"
+- [26:28.290] and the President has already proven
+- [26:29.990] he's committed to slashing regulation.
+- [26:31.510] He's counting on Congress to implement those tax cuts.
+- [26:34.910] And so people are encouraged by the President's, again,
+- [26:38.120] as Tim Cook called it,
+- [26:39.490] they're bullish about American innovation
+- [26:41.750] because of the leadership of this President,
+- [26:44.110] and that's a stark contrast to the leadership
+- [26:46.320] of the previous administration, Joe Biden,
+- [26:48.490] who I don't think spent any time trying to recruit
+- [26:50.770] any investments or jobs here at home. Mary.
+- [26:53.420] The Press: Thanks Karoline.
+- [26:54.720] We're hearing from some Republicans
+- [26:56.070] who are voicing concerns
+- [26:57.270] about how these cuts are being carried out.
+- [26:59.670] Congressman McCormick, a Republican from Georgia,
+- [27:02.400] tells us he's worried it's too rapid
+- [27:03.820] for real people to adapt to,
+- [27:05.460] and he says he's concerned that it could come off
+- [27:07.570] as discompassionate, in his words.
+- [27:09.720] That it could risk undercutting the strong message
+- [27:11.800] that he feels you're trying to send about the need
+- [27:13.620] to cut government waste.
+- [27:15.000] Ms. Leavitt: Well, I think that that was one comment
+- [27:17.160] from one senator
+- [27:18.360] and I think as I cited in my opening remarks in the poll,
+- [27:21.600] the most important people are the American people,
+- [27:24.800] and 77% of Americans at home support a full investigation
+- [27:29.810] into the waste, fraud and abuse that the federal government
+- [27:33.120] has been spending their tax dollars on.
+- [27:34.950] So that's the people the president cares about most
+- [27:38.490] and that's why we're fulfilling this pledge.
+- [27:39.930] And again, it should come as no secret to anybody.
+- [27:42.090] The president campaigned on doing this.
+- [27:43.820] The Press: The president yesterday said,
+- [27:45.150] "If you don't respond to this email,
+- [27:46.480] you will be fired or semi-fired."
+- [27:48.540] What does he mean by that?
+- [27:49.750] Ms. Leavitt: Again, I've been asked to answer
+- [27:51.260] this question three times now. It is-
+- [27:53.100] The Press: Semi-fired, what does that mean?
+- [27:54.320] Ms. Leavitt: But it's in the memo.
+- [27:56.160] The president, again,
+- [27:57.420] has entrusted his Cabinet Secretaries
+- [27:59.920] to oversee their workforce.
+- [28:01.140] That's why he nominated them to be Cabinet Secretaries,
+- [28:04.310] and so federal workers can be directed
+- [28:08.500] to their agency leadership. Sure.
+- [28:11.710] The Press: Great. Thanks Karoline.
+- [28:12.910] I wanted to ask about a federal judge yesterday
+- [28:15.860] was saying that they didn't know who the DOGE Administrator was
+- [28:19.550] and was asking the lawyer for the administration
+- [28:23.900] who it was and the lawyer responded,
+- [28:25.220] "I don't know the answer to that."
+- [28:26.550] Can you tell us who the Administrator of DOGE is?
+- [28:28.630] Ms. Leavitt: Again, I've been asked
+- [28:29.860] and answered this question.
+- [28:31.090] Elon Musk is overseeing DOGE. There are career-
+- [28:33.490] The Press: So he's the administrator.
+- [28:35.030] Ms. Leavitt: No. Elon Musk is a special government employee,
+- [28:36.940] which I've also been asked
+- [28:38.230] and have answered that question as well.
+- [28:39.560] The Press: So who's the administrator?
+- [28:40.800] Ms. Leavitt: There are career officials at DOGE,
+- [28:42.940] there are political appointees at DOGE.
+- [28:45.100] I'm not going to reveal the name
+- [28:46.400] of that individual from this podium.
+- [28:48.310] I'm happy to follow up and provide that to you,
+- [28:51.990] but we've been incredibly transparent
+- [28:53.680] about the way that DOGE is working.
+- [28:55.640] John. John.
+- [28:58.110] The Press: Thanks a lot, Karoline.
+- [28:59.410] Since your last briefing,
+- [29:01.280] there have been some personnel moves
+- [29:02.880] that have been announced by the president
+- [29:04.550] and I wanted to ask you about the one
+- [29:06.550] was the president replacing the Chairman
+- [29:09.890] of the Joint Chiefs of Staff General C.Q.
+- [29:11.960] Brown Jr. What was the reason for the president
+- [29:15.830] naming a replacement for General Brown?
+- [29:18.300] And then I'll follow up with another personnel announcement
+- [29:20.870] that's been made over the last few days.
+- [29:22.650] Ms. Leavitt: He thinks he's doing a bad job
+- [29:24.440] and it's time for a shakeup at the Pentagon.
+- [29:26.440] They failed seven audits in a row.
+- [29:28.600] The trust in our United States
+- [29:30.040] military amongst the war fighters is low.
+- [29:33.130] The president is shaking up the Pentagon
+- [29:35.060] and the Department of Defense,
+- [29:36.400] of course, with Secretary Hegseth leading,
+- [29:38.860] and he has the right to do that.
+- [29:40.490] It's actually quite common from administration
+- [29:42.750] to administration to do such a thing.
+- [29:44.510] The Press: The president when he swore him
+- [29:46.990] in as the Chief of Staff for the Air Force,
+- [29:50.430] called him a great man and a great gentleman.
+- [29:53.190] Does he distance himself from the remarks
+- [29:54.990] that he made back in August of 2020?
+- [29:57.380] Ms. Leavitt: I think replacing him speaks for itself.
+- [29:59.770] James.
+- [30:01.090] The Press: One other one. I'm sorry. Thank you.
+- [30:03.130] On the FBI, the president also announced
+- [30:06.190] a new deputy director of the FBI, Dan Bongino.
+- [30:10.450] From what has been reported,
+- [30:12.150] and maybe this is not accurate reporting,
+- [30:13.980] you can tell me, the FBI director,
+- [30:16.550] Kash Patel informed Republican senators
+- [30:20.330] that it would be an individual named
+- [30:23.580] as the deputy who was a special agent currently at the FBI.
+- [30:27.690] And of course, Mr. Bongino is not.
+- [30:30.010] What was the reason for naming Mr. Bongino to this position?
+- [30:34.440] And was Mr. Patel not correct
+- [30:37.880] in making that assurance to those senators?
+- [30:40.730] Ms. Leavitt: I'm not sure if anybody in this room
+- [30:42.370] has listened to Mr. Bongino
+- [30:44.040] when he talks about the past corruption at the FBI,
+- [30:47.620] when he talks about his experience
+- [30:50.070] serving for the United States Secret Service.
+- [30:52.930] This is a man who loves his country
+- [30:55.190] and who has honorably served our country
+- [30:57.290] in ways that many people have not.
+- [30:59.420] He understands the depth of the corruption
+- [31:01.450] at these institutions,
+- [31:02.700] which the American people re-elected President Trump
+- [31:05.200] to shake up.
+- [31:06.450] And I think it's quite despicable
+- [31:07.950] to see many networks in this room
+- [31:10.530] who have had chyrons on their television screens
+- [31:13.270] labeling Mr. Bongino as a far-right podcaster.
+- [31:17.200] He is not. He is a former law enforcement agent.
+- [31:21.480] He is a former Secret Service agent
+- [31:23.190] who put his life on the line to protect this country,
+- [31:26.130] and that is why the President of the United States
+- [31:28.040] has entrusted him for this important role.
+- [31:30.420] He's also an outsider to this Washington swamp,
+- [31:33.440] and we often see that when outsiders
+- [31:35.130] are appointed to such coveted positions,
+- [31:37.510] a lot of people in this city get very, very nervous.
+- [31:40.000] And they should be because Dan Bongino and Kash Patel
+- [31:43.180] and Attorney General Bondi
+- [31:44.540] are focused on rooting out the corruption at these agencies
+- [31:47.600] and ending the weaponization of government
+- [31:49.410] once and for all.
+- [31:50.650] I'd like to end with something. As you all know.
+- [31:52.250] The Press: [inaudible]
+- [31:53.450] James, as you were just about to do before you-
+- [31:55.050] Ms. Leavitt: You know what James?
+- [31:56.280] I'm feeling generous. Go ahead.
+- [31:57.740] The Press: I will take it. Thank you Karoline.
+- [32:01.430] Ms. Leavitt: Sure. The Press: I wanted to ask-
+- [32:03.040] Ms. Leavitt: Don't make me regret this.
+- [32:06.500] The Press: I wanted to ask about the Macron visit
+- [32:08.180] and the Russia-Ukraine talks in general.
+- [32:09.540] Ms. Leavitt: Sure.
+- [32:10.740] The Press: It's pretty clear to my eye that President Macron
+- [32:13.380] was performing a kind of delicate dance,
+- [32:15.030] lavishing praise on the president
+- [32:16.670] while seeking in his own remarks
+- [32:18.050] to try to bind President Trump to positions
+- [32:21.020] and even specific language
+- [32:22.450] that the president has not committed to heretofore.
+- [32:25.250] One of the most bracing comments from President Macron
+- [32:28.420] was when he said that the deal that President Trump
+- [32:32.020] is negotiating with the Russians must not be
+- [32:35.010] "a surrender for Ukraine".
+- [32:37.670] All of the public points that we have heard from President Trump,
+- [32:41.110] from Secretary Hegseth and from other administration officials
+- [32:44.010] talking about these negotiations
+- [32:45.960] have averred to quite openly to concessions from the Ukrainians
+- [32:49.410] that will have to be made. The minerals deal,
+- [32:51.830] the abandonment of their NATO ambitions and other elements.
+- [32:55.800] So far, we have not heard any administration officials
+- [32:58.290] suggest a single concession
+- [32:59.870] that the Russians should be prepared to make.
+- [33:02.010] And so I wonder if you could assure us at a minimum
+- [33:04.710] that this negotiation process will not be as one-sided
+- [33:08.470] as the Europeans seem to think it is.
+- [33:10.120] That in fact,
+- [33:16.220] Ms. Leavitt: Well, I think the president knows
+- [33:18.100] how to make a deal better than anyone
+- [33:19.650] who has ever assumed the office of the American presidency.
+- [33:22.730] And in order to make a deal,
+- [33:24.080] you have to bring both sides to the table.
+- [33:26.870] And typically when you make a good deal,
+- [33:28.650] both sides leave that table a little bit unhappy.
+- [33:31.470] I'm not going to outline the concessions
+- [33:33.790] that the president and his team are engaged in discussion.
+- [33:36.630] These are obviously ongoing negotiations
+- [33:39.260] and it would be unwise of me to impede them from this podium.
+- [33:42.690] But the president has made significant improvements
+- [33:46.220] in ending this conflict.
+- [33:47.560] He is committed to seeing an end to the war.
+- [33:49.510] He wants to see the bloodshed and the killing stopped.
+- [33:52.310] He wants to stop seeing young men
+- [33:55.160] being killed and slaughtered.
+- [33:56.880] This has been going on for far too long.
+- [33:58.790] The president inherited this mess
+- [34:00.750] because of the incompetence of the previous administration
+- [34:03.130] and he's committed to fixing it.
+- [34:04.770] And he's made some of those concessions clear,
+- [34:07.230] but I'm not going to get ahead of him on additional ones.
+- [34:09.530] But he is wholeheartedly committed
+- [34:11.840] to striking a peace deal in Russia and Ukraine,
+- [34:14.200] also in the Middle East. Thank you very much guys.
+- [34:16.460] Good to see you. We'll see you later.

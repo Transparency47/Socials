@@ -1,0 +1,350 @@
+<!-- source: https://www.youtube.com/watch?v=kUbVaJUNlOk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kUbVaJUNlOk -->
+<!-- date_published: 2025-06-20T20:21:04+00:00 -->
+<!-- date_accessed: 2026-06-02T01:23:35.126816+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Morristown Municipal Airport, June 20, 2025
+
+- [00:07.000] The President: You know, we just learned that Rwanda,
+- [00:12.790] you know, all about Rwanda,
+- [00:14.030] and the Congo will be doing a peace settlement
+- [00:17.180] probably coming in on Monday or Tuesday.
+- [00:20.070] We're going to be signing it up
+- [00:22.450] and we've stopped the very vicious corps.
+- [00:25.030] So that was an honor for me to be involved.
+- [00:27.080] I want to thank J.D Vance and -- for the great job.
+- [00:31.810] And also, our Secretary of State,
+- [00:35.060] Marco Rubio has done a fantastic job.
+- [00:37.970] Still Rwanda, long-term war with the Congo, a very bloody war.
+- [00:41.840] They're all bloody, but this was a really bloody one,
+- [00:45.020] going be making peace with Congo and
+- [00:47.590] they could get on to making trade deals
+- [00:50.400] with the United States and other places,
+- [00:52.800] and have a much more normal form of life.
+- [00:55.380] We're very honored by that.
+- [00:58.120] As you know, we did a very great job with India and Pakistan,
+- [01:02.760] and we had India in it looks like
+- [01:04.510] we're going to be making a great deal with India.
+- [01:07.080] And we had Pakistan in, it looks like we're going to be
+- [01:09.450] making a great deal with Pakistan.
+- [01:12.100] And it's a beautiful thing to watch.
+- [01:13.770] And Serbia, Kosovo, likewise, they've been fighting for years
+- [01:17.100] and as you know, we brought that one to
+- [01:19.080] a conclusion.
+- [01:20.550] And now we have a couple of big ones.
+- [01:23.890] We have Russia, Ukraine,
+- [01:25.200] which is making a little bit of progress.
+- [01:28.120] And we have Israel,
+- [01:29.530] and nobody really knows what that one is all about.
+- [01:32.740] We're going to find out pretty soon, I guess.
+- [01:35.180] The Press: The Iranian (inaudible)
+- [01:36.440] the Iranian foreign minister this afternoon said
+- [01:39.020] if the U.S. is serious about negotiations,
+- [01:42.090] that you would call up Israel
+- [01:43.560] and request that they stop their airstrikes.
+- [01:46.030] Will you make that request?
+- [01:47.330] The President: Well, I think it's very hard
+- [01:48.560] to make that request right now. If somebody's winning,
+- [01:51.750] it's a little bit harder to do than if somebody's losing.
+- [01:55.330] But we're ready, willing, and able,
+- [01:56.940] and we've been speaking to Iran, and we'll see what happens.
+- [01:59.810] The Press: Mr. President,
+- [02:01.050] what was the thought process behind two weeks' timetable?
+- [02:05.890] The President: Just time to see whether or not people
+- [02:08.380] come to their senses. That's all it is.
+- [02:10.260] The Press: Mr. President, did the Europeans help at all
+- [02:13.030] in talking with (inaudible)?
+- [02:14.600] The President: No. No, no, no, no.
+- [02:15.820] The Press: (inaudible)
+- [02:16.720] The President: Iran doesn't want to speak to Europe.
+- [02:17.940] They want -- they wanted to speak to us.
+- [02:19.930] Europe is not going to be able to help in this one.
+- [02:22.250] The Press: What -- 20 years ago you were skeptical
+- [02:23.830] of the Republican administration
+- [02:25.760] that attacked the Middle East country
+- [02:27.370] on the idea of questionable intelligence,
+- [02:29.540] of weapons of mass destruction.
+- [02:31.300] How is this moment different with Iran?
+- [02:33.210] The President: Well, there were no weapons of mass destruction.
+- [02:35.490] I never thought there were.
+- [02:37.370] And that was somewhat pre-nuclear.
+- [02:39.510] You know, it was, there was a nuclear age,
+- [02:41.610] but nothing like it's today.
+- [02:43.920] And it looked like I'm right about --
+- [02:46.840] the material that they've gathered already.
+- [02:48.910] It's a tremendous amount of material.
+- [02:51.340] And I think within -- in a matter of weeks
+- [02:53.010] or certainly within a matter of months,
+- [02:54.860] they were going to be able to have a nuclear weapon.
+- [02:56.770] We can't let that happen. I was very much opposed to Iraq.
+- [03:01.100] I was, I said it loud and clear, but I was a civilian,
+- [03:04.020] but I guess I got a lot of publicity.
+- [03:06.370] But I was very much opposed to the Iraq war.
+- [03:09.490] And I actually did say
+- [03:10.810] "Don't go in, don't go in, don't go in."
+- [03:13.100] But I said, "If you're going to go in, keep the oil."
+- [03:15.840] But they didn't do that.
+- [03:17.040] The Press: What intelligence do you have
+- [03:18.260] that Iran is building a nuclear weapon?
+- [03:19.790] Your intelligence community has said they have no evidence
+- [03:22.350] that they are at this point.
+- [03:23.580] The President: Well then my intelligence community is wrong.
+- [03:26.140] Who in the intelligence community said that?
+- [03:28.220] The Press: The director of National Intelligence,
+- [03:30.010] Tulsi Gabbard.
+- [03:31.230] The President: She's wrong.
+- [03:32.480] The Press: Mr. President, are the -- (inaudible)
+- [03:33.840] -- Chinese in any way helping Iran's (inaudible)?
+- [03:36.430] We're hearing reports of serious planes
+- [03:38.830] landing in Iran and China.
+- [03:40.120] The President: I don't know, they say that they are there
+- [03:42.290] to take people out. But I can't tell you about that.
+- [03:46.570] I get along very well with China,
+- [03:48.680] get along very well with President Xi.
+- [03:50.620] I like him. He likes me. We have a very good relationship.
+- [03:53.710] (inaudible) we'll see what happens.
+- [03:55.300] I can't imagine us getting involved.
+- [03:56.940] The Press: (inaudible)
+- [03:58.140] you need to make on Iran whether to strike militarily.
+- [04:00.810] Is this the biggest decision
+- [04:02.420] you'll have to make as president?
+- [04:05.220] The President: Well, I can't tell you that.
+- [04:06.550] I have to see what happens.
+- [04:07.910] I can't, you know, really say that.
+- [04:10.290] It depends what the decision is.
+- [04:12.640] But I wouldn't really be able to tell you that now.
+- [04:14.670] I'll tell you in about a year from now.
+- [04:16.490] Maybe five years, or 10 years from now.
+- [04:17.960] The Press: (inaudible)
+- [04:19.160] The President: You never know about decisions.
+- [04:20.390] You never really know.
+- [04:21.630] The Press: (inaudible)
+- [04:22.830] former presidents -- sir, would you support a ceasefire
+- [04:24.280] while the negotiations happen, or not?
+- [04:25.750] The President: I might, depending on the circumstance.
+- [04:27.150] The Press: Would -- would you --
+- [04:28.420] former Congressman Matt Gaetz --
+- [04:29.640] The President: It's very hard to stop.
+- [04:30.870] I will say this.
+- [04:32.330] It's very hard to stop when you look at it.
+- [04:35.400] If you're doing well in terms of war, and I think you would --
+- [04:39.690] say that Iran is doing less well.
+- [04:42.270] It's a little bit hard to get somebody to stop.
+- [04:45.150] The Press: Sir, (inaudible) was (inaudible)
+- [04:46.820] former Congressman Matt Gaetz threw out an interesting idea
+- [04:49.730] suggesting that if -- if -- you were to broker
+- [04:52.780] a deal where nuclear inspectors go into both Israel and Iran,
+- [04:56.810] that you could win a Nobel Peace Prize,
+- [04:58.300] and they might even rename it the Trump Peace Prize.
+- [04:59.970] Did you hear those? What do you think of that?
+- [05:01.460] The President: Well, they should give me
+- [05:02.670] the Nobel Prize for Rwanda, and if you look, the Congo,
+- [05:06.970] or you could say Serbia, Kosovo. You could say a lot of them.
+- [05:10.860] You could say, I mean, the big one is India and Pakistan.
+- [05:16.180] You could -- I should have gotten it four or five times.
+- [05:18.650] I should get it for the --
+- [05:20.960] I would think the Abraham Accords would be a good one too.
+- [05:23.020] The Press: But what do think of that idea?
+- [05:24.370] The President: They won't give me a Nobel Peace Prize,
+- [05:25.990] because they only give it to liberals.
+- [05:27.610] The Press: Would you support Iran being able
+- [05:29.190] to have nuclear --
+- [05:30.400] or, would you support Iran being able
+- [05:32.320] to have civilian nuclear energy capabilities up to 3.76 percent?
+- [05:36.640] The President: You know, they're sitting on the top
+- [05:38.230] of one of the largest piles of oil in the world.
+- [05:41.430] I just don't know why they need that for civilian work.
+- [05:44.120] You know, it's one thing for certain countries to say,
+- [05:46.950] "Hey, I want to have a certain amount
+- [05:48.930] where I could go nuclear a little bit,
+- [05:50.980] because we need it for electricity.
+- [05:53.230] We need it for air conditioners, et cetera."
+- [05:56.190] But when you're sitting on one of the largest oil piles
+- [05:59.680] anywhere in the world,
+- [06:00.950] it's a little bit hard to see why you'd need that.
+- [06:02.930] The Press: Yeah. (inaudible)
+- [06:12.290] The President: We're always concerned about that,
+- [06:13.830] and we have to take them out and be very strong.
+- [06:16.690] You're even in danger talking to me right now.
+- [06:18.910] Do you know that?
+- [06:20.190] You are in danger talking to me right now,
+- [06:23.200] so I should probably get out of here.
+- [06:24.820] But you guys are actually in danger. Can you believe it?
+- [06:28.290] The Press: One more question on Russia.
+- [06:29.550] Is it still your expectation that NATO countries
+- [06:33.780] that (inaudible)?
+- [06:35.100] The President: Well, I think they should do that.
+- [06:36.320] I don't think we should, but I think they should.
+- [06:39.430] We've been spending, we've been supporting NATO so long.
+- [06:42.770] Uh, in many cases, I believe,
+- [06:44.290] paying almost 100 percent the cost.
+- [06:46.680] So, I don't think we should,
+- [06:47.980] but I think that the NATO countries should, absolutely.
+- [06:50.330] The Press: And if a country like Spain decides not to?
+- [06:53.750] The President: Well, NATO's going to have to deal
+- [06:55.060] with Spain. Spain's been a very low payer.
+- [06:57.930] They were always a very low payer.
+- [07:00.380] They were either good negotiators,
+- [07:02.170] or they weren't doing the right thing.
+- [07:04.590] I mean, I think Spain has to pay what everybody else has to pay.
+- [07:08.190] Spain has been notorious for low pay.
+- [07:10.520] You know who else was a low payer?
+- [07:12.170] Just about the lowest? A Place called Canada.
+- [07:15.520] Because Canada said, "Why should we pay
+- [07:17.360] when the United States will protect us free?"
+- [07:19.890] And they've been right about that.
+- [07:22.580] The Press: On Russia and Ukraine,
+- [07:23.780] you, you've been making progress toward a peace deal,
+- [07:26.220] but I don't know if you know this.
+- [07:27.550] But Lindsey Graham and Mike Pompeo
+- [07:29.310] were there on the ground in Ukraine,
+- [07:30.650] seemingly doing the opposite,
+- [07:32.380] trying to provoke the Ukrainians to keep fighting.
+- [07:34.130] What do you think of that?
+- [07:35.370] The President: Well, we're going to see,
+- [07:36.590] and people have to be very careful with what they say.
+- [07:39.500] They got to be very careful with their mouth,
+- [07:42.120] because their mouth could get them into a lot of trouble.
+- [07:44.960] The Press: One more on ICE.
+- [07:46.640] ICE has said they're arrested up 3,000 individuals a day.
+- [07:51.040] There are some communities that are saying they're fearful
+- [07:53.600] of being wrongfully detained or separating some families,
+- [07:56.340] even if they're undocumented.
+- [07:58.100] Is the fear in some of these communities
+- [08:00.280] worth the deportations of these undocumented individuals?
+- [08:03.720] A mass deportation (inaudible)
+- [08:04.950] The President: Always a tough subject.
+- [08:06.340] Because, look, we have farmers. I love farmers.
+- [08:08.570] I won 80 percent, 85 percent of the farmers,
+- [08:11.270] and I love them.
+- [08:12.560] And I'm never going to do anything to hurt our farmers.
+- [08:15.460] And you can also say the leisure business, et cetera.
+- [08:18.200] There are some businesses where you have
+- [08:20.710] a disproportionate amount of people
+- [08:22.730] that are the people that you're talking about.
+- [08:25.200] At the same time, we have to get the criminals
+- [08:27.150] out of our country,
+- [08:28.450] and we're looking at doing something
+- [08:30.000] where in the case of good, reputable farmers,
+- [08:33.320] they could take responsibility for the people that they hire
+- [08:36.810] and let them have responsibility.
+- [08:38.440] 'Cause we can't put the farms out of business.
+- [08:40.990] And at the same time, we don't want to hurt people
+- [08:43.840] that aren't criminals.
+- [08:45.090] Most of the people that came in over the last
+- [08:47.690] three years under Biden --
+- [08:49.470] I would say probably three and a half to four years,
+- [08:52.800] those people, you have a lot of criminals.
+- [08:54.430] You have a lot of --
+- [08:55.640] I mean, we're looking at that very closely.
+- [08:57.740] You've got people that have worked your farm for 20 years.
+- [09:00.290] It's very hard to go in there
+- [09:01.610] and say, you know, "You, you're coming out."
+- [09:04.890] But we're going to let the farmers take responsibility.
+- [09:07.340] And they're great people. They'll do it.
+- [09:09.270] They know the good and the bad. So, the hard part about this --
+- [09:12.660] this is not like a normal war where people wear uniforms.
+- [09:15.640] They don't wear uniforms.
+- [09:17.300] But we have murderers that came out of the last four years.
+- [09:20.250] We have murderers. We have drug lords.
+- [09:22.820] We have people that we don't want to -- we have prisoners.
+- [09:25.260] They emptied out Venezuela and many countries.
+- [09:28.020] They emptied out their prisons into the United States.
+- [09:30.620] We have to get those people out.
+- [09:32.390] But we have stone-cold murders, 11,888 murderers.
+- [09:37.940] We've already gotten a lot of them out of here,
+- [09:40.350] but we don't want them. So we have to be careful,
+- [09:42.300] but I never want to hurt our farmers.
+- [09:44.380] Our farmers are great people.
+- [09:46.580] They keep us happy, and healthy, and fat.
+- [09:48.460] The Press: Are there other things that you're going to
+- [09:50.020] try to replicate what you've done in Los Angeles?
+- [09:52.040] The President: Well, I mean, we got a big victory last night
+- [09:55.010] in the court, Court of Appeal, with respect to Los Angeles,
+- [09:58.520] but really the country, where Gavin Newsom,
+- [10:01.710] who is really an incompetent governor.
+- [10:04.470] He suggested -- doing a terrible with his fire,
+- [10:08.530] when all the houses burning down and forest fires,
+- [10:11.150] and now with Los Angeles. If we didn't go to Los Angeles,
+- [10:14.860] and the sheriff admitted it, he had no control.
+- [10:17.850] He would've lost control.
+- [10:19.310] We saved Los Angeles by having some military go in.
+- [10:23.480] And the second night was much better.
+- [10:26.310] The third night was nothing much.
+- [10:28.840] And the fourth night, nobody bothered even coming.
+- [10:31.570] We put out that fire, and we did a great job of it.
+- [10:34.640] He sued us for going in and for helping him.
+- [10:37.280] We went and helped him.
+- [10:38.680] Right now, you'd have Los Angeles burning to the ground.
+- [10:41.860] Largely, it would've already been destroyed.
+- [10:43.340] The Press: Sir, do you think people pay attention --
+- [10:44.690] do you still want your legacy, Mr. President,
+- [10:46.050] to be that of a peacemaker?
+- [10:47.370] Do you worry that striking Iran would change that?
+- [10:48.940] The President: Always a peacemaker, yeah.
+- [10:50.190] Always a peacemaker. That doesn't mean,
+- [10:52.720] sometimes you need some toughness to make peace.
+- [10:55.410] But always a peacemaker.
+- [10:56.680] The Press: Can you win in Iran without ground forces?
+- [11:00.080] The President: Say it?
+- [11:01.360] The Press: Is an aerial campaign in Iran enough,
+- [11:03.400] or do you need ground forces?
+- [11:04.720] The President: Well, I'm not going to talk
+- [11:05.950] about ground forces.
+- [11:07.350] It's the last thing you want to do is ground force.
+- [11:09.190] The Press: Does Iran have two weeks,
+- [11:10.630] or could you strike before that?
+- [11:12.110] Are you essentially giving them a two week timeline?
+- [11:13.710] The President: Well, I'm giving them a period of tie.
+- [11:14.910] We're going to see what that period of time is.
+- [11:16.680] But I'm giving them a period of time.
+- [11:18.680] And I would say two week would be the maximum.
+- [11:21.800] The Press: Mr. President,
+- [11:23.160] do you think deportation should focus on criminals
+- [11:26.330] or all people who are here illegally?
+- [11:28.410] The President: It should start focusing on criminals,
+- [11:30.530] and that's what we've been focused on.
+- [11:32.510] Very bad criminals, dangerous crim --
+- [11:34.690] The Press: But Stephen Miller said to go out and arrest
+- [11:37.240] every person who is here illegally.
+- [11:38.660] He's told ICE to arrest everyone who is here illegally.
+- [11:40.560] Do you agree with that? If, if they're --
+- [11:41.770] The President: No, we, Stephen and I,
+- [11:42.980] have a very good understanding. He is a terrific person.
+- [11:44.870] We have a great understanding. Go ahead.
+- [11:46.170] The Press: Mr. President, if there are,
+- [11:47.610] if there is an attack on U.S. assets,
+- [11:50.010] will you promise to, to conduct a full investigation
+- [11:52.650] and make it transparent with the American people
+- [11:55.470] before blaming Iran for such an attack?
+- [11:58.150] The President: Well, if there's an attack,
+- [11:59.400] we'll know almost immediately with modern equipment
+- [12:01.890] who made the attack.
+- [12:03.260] And those people will be very, very unhappy.
+- [12:06.680] I want to get you people out of danger.
+- [12:08.540] You're in danger standing with me.
+- [12:10.110] The Press: One more.
+- [12:11.350] Prime Minister Netanyahu said that they had the capacity
+- [12:14.140] to take out all of Iran's nuclear facilities.
+- [12:16.780] So what role would the U.S. be able to play,
+- [12:19.030] and why would they if Israel says
+- [12:21.010] that they have all of the abilities –
+- [12:22.530] The President: Well, I'm not sure he said that.
+- [12:23.920] But they really have a very limited capacity.
+- [12:28.110] They can break through a little section,
+- [12:29.710] but they can't go down very deep.
+- [12:31.780] They don't have that capacity.
+- [12:33.180] And, we'll have to see what happens.
+- [12:35.240] Maybe it won't be necessary. Maybe it won't be --
+- [12:37.920] The Press: Mr. President, would you like to see
+- [12:39.920] Congress pass a bill that bans child transgender surgeries?
+- [12:44.210] The President: Well, I know they're talking about it,
+- [12:45.700] aren't they? And we're going to have to see
+- [12:47.130] how it comes to me, in what form.
+- [12:49.900] Certainly, it's been something I've been talking about also.
+- [12:51.970] Okay? (inaudible)
+- [12:54.600] Thank you, be careful. We're done.
+- [12:56.300] We're done. Thank you, everybody!
+- [12:58.440] The Press: Thank you.

@@ -1,0 +1,717 @@
+<!-- source: https://www.youtube.com/watch?v=nsEFOktNPo8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nsEFOktNPo8 -->
+<!-- date_published: 2025-09-03T16:18:00+00:00 -->
+<!-- date_accessed: 2026-06-02T02:45:02.633568+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Poland
+
+- [00:12.130] The President: Thank you very much.
+- [00:13.340] It's a great pleasure to have President Nawrocki with us,
+- [00:17.100] of Poland.
+- [00:18.410] Did a good job with that, right?
+- [00:20.720] Can be a little different pronunciation,
+- [00:22.860] I said, I want to get it perfect.
+- [00:24.330] Did I get it right?
+- [00:25.590] President Nawrocki: Yeah. Good, good. Nawrocki.
+- [00:29.870] The President: And the president's been amazing.
+- [00:32.620] He had an incredible race.
+- [00:34.990] He came from behind and he won very handily.
+- [00:38.500] The people of Poland have taken to him immediately,
+- [00:40.910] they really love him.
+- [00:42.650] There's great love and respect. He's a very successful man,
+- [00:46.110] but he went into a political hatchet, so to speak.
+- [00:51.560] It was a pretty tough race, pretty nasty race,
+- [00:54.460] and he beat them all and he beat them all very easily.
+- [00:56.940] And now he's become even more popular
+- [00:59.390] as they got to know him and know him better.
+- [01:01.140] He is doing a really fantastic job,
+- [01:02.830] so it's an honor to, I also endorsed him,
+- [01:05.220] so I'm very proud of that.
+- [01:06.990] I don't endorse too many people, but I endorsed him
+- [01:09.260] and I was very proud of that, the job he's done.
+- [01:11.130] And I want to thank Vince Haley for that recommendation.
+- [01:14.280] Vince was fantastic and I appreciate it
+- [01:17.310] and I can tell you who really appreciates it, Poland,
+- [01:20.330] because they're very happy with their president.
+- [01:22.170] And I just want to say it's an honor to have you,
+- [01:24.110] we'll be discussing trade and various other things,
+- [01:27.210] the things that you discuss.
+- [01:28.420] We'll have a few questions from you
+- [01:30.340] and then we'll get onto a discussion
+- [01:33.140] then we'll have lunch and then he goes,
+- [01:35.220] and he meets with the Pope and that'll be very exciting.
+- [01:38.360] And say hello to the Pope for me.
+- [01:39.600] President Nawrocki: Yeah, I will. Thank you.
+- [01:40.810] The President: Thank you very much for being here.
+- [01:42.130] President Nawrocki: Thank you very much.
+- [01:43.330] The President: Thank you very much, Mr. President.
+- [01:44.580] President Nawrocki: Mr. President, thank you very much.
+- [01:46.070] I would like to express my gratitude for your invitation
+- [01:49.720] only after one month from my sworn,
+- [01:54.550] in sworn and from celebration for my inauguration.
+- [01:58.050] It means that the Polish American relations
+- [02:01.230] are very important, very strong.
+- [02:04.560] I think that we have so strong relations
+- [02:08.620] that we have never had and it's very important for me.
+- [02:13.110] Our relations are based of course on the values.
+- [02:16.380] Thank you very much for your support,
+- [02:18.210] for your endorsement during my very hard campaign.
+- [02:22.740] I remember it and I'm very grateful for your support.
+- [02:27.070] It was the fight me against others,
+- [02:30.270] so your support was very important.
+- [02:32.270] And the support of Polish people,
+- [02:33.870] Polish diaspora in United States of America,
+- [02:37.330] we have almost more than 10 million people here.
+- [02:41.570] And they voted for Donald Trump.
+- [02:43.260] The President: They voted for me, I will say.
+- [02:44.700] President Nawrocki: And in vast majority,
+- [02:46.150] they voted also for me.
+- [02:47.770] So I would like to say hello to Polish diaspora
+- [02:50.730] in United States of America.
+- [02:53.380] Those relations for me, for Poland,
+- [02:55.810] for Poles are very important with United States of America.
+- [03:00.240] And they are based on values, independence,
+- [03:02.600] sovereignty, democracy. And I think Mr. president,
+- [03:06.210] that those values are epitomized by our common heroes.
+- [03:11.150] The President: Yes.
+- [03:12.360] President Nawrocki: Kazimierz Pułaski, Tadeusz Kościuszko.
+- [03:13.960] The President: That's right.
+- [03:15.180] President Nawrocki: So, thank you very much.
+- [03:16.590] And I hope it'll be very fruitful discussion
+- [03:20.240] around the (inaudible),
+- [03:21.730] around the economy and military service.
+- [03:24.790] The President: And the flyover was very much
+- [03:26.610] in honor of your great pilot
+- [03:28.180] who just passed away recently, who was a legend in Poland.
+- [03:31.490] You might want to say something about him?
+- [03:33.060] President Nawrocki: Yes, of course.
+- [03:34.260] It was the terrific accident in Poland.
+- [03:37.320] Thank you for this gesture that F-35 opened our meeting.
+- [03:44.030] Mayor Krakowian was one of the best Polish pilots,
+- [03:49.280] well-honed Polish pilots, and he died.
+- [03:52.480] He lost two children, so it was a great tragedy in Poland.
+- [04:00.160] The President: He was a legend in Poland actually,
+- [04:01.920] a legend as a pilot. He was an incredible pilot
+- [04:05.220] and I think he went to the Air Force Academy actually.
+- [04:07.970] But he was a fantastic pilot and it was a big, big setback.
+- [04:14.110] People of Poland are very, very sad.
+- [04:15.630] So, we thought we'd do that.
+- [04:17.460] That was the single plane that swooped up.
+- [04:19.850] President Nawrocki: Yeah. And machines, American machines
+- [04:22.240] opened our meeting, it was great.
+- [04:24.730] And we are waiting for F-35 in Poland,
+- [04:29.010] so it also shows that we have great relations
+- [04:32.160] according to the best military equipment on the world,
+- [04:35.960] American equipment,
+- [04:37.420] which shield Polish security too.
+- [04:40.010] The President: Well, Poland,
+- [04:41.380] we've had a tremendous relationship.
+- [04:43.010] I think now it's better than ever
+- [04:44.340] because of this relationship.
+- [04:45.770] It's a little special because we fought together,
+- [04:49.070] but we've always been very good
+- [04:51.620] and we have some wonderful people.
+- [04:54.750] As you know, Duda, my friend, he's a good man
+- [04:58.740] and still a big fan of yours, very much so.
+- [05:01.590] So, it's great honor, and we're going to talk about trade,
+- [05:03.760] we'll talk about some other things.
+- [05:04.980] We'll take a couple of questions from the media.
+- [05:10.390] The Press: Will American soldiers remain in Poland?
+- [05:13.840] Will American soldiers remain in Poland?
+- [05:15.990] The President: Yeah, I think so.
+- [05:17.230] I mean, do you know something I don't?
+- [05:18.450] I don't know.
+- [05:19.690] The Press: Any words about -- The President: We're very happy.
+- [05:21.220] If anything, we will put more there if they want,
+- [05:23.430] but they've long wanted to have a larger presence.
+- [05:26.950] We have some countries that have more, not too many,
+- [05:29.740] but no, they'll be staying in Poland.
+- [05:32.120] We're very much aligned with Poland.
+- [05:34.340] The Press: Thank you --
+- [05:36.730] The Press: Certainly (inaudible)
+- [05:38.020] that. We saw a dramatic picture
+- [05:39.350] where we saw the leaders of Russia and North Korea
+- [05:41.430] and China together the first time
+- [05:42.750] the leaders of those three countries
+- [05:44.360] have been together to show of solidarity.
+- [05:47.070] You said that they're conspiring against the United States.
+- [05:49.960] What do you think they're conspiring to do?
+- [05:52.010] And given this, is it reason why you should slap
+- [05:55.050] or would consider slapping secondary sanctions on Russia
+- [05:58.120] if they're conspiring against the US now?
+- [05:59.810] The President: Well, I've already
+- [06:01.130] done that with regard to India,
+- [06:02.700] and we're doing it with regard to other things,
+- [06:04.680] and I put out a Truth last night, you saw that,
+- [06:09.230] and I was the one that brought it up.
+- [06:10.940] I said, they're only doing this,
+- [06:13.020] they're really there looking to --
+- [06:15.800] When they did what they did,
+- [06:17.260] I thought it was a beautiful ceremony,
+- [06:18.680] I thought it was very, very impressive.
+- [06:20.920] But I understood the reason they were doing it
+- [06:22.890] and they were hoping I was watching and I was watching.
+- [06:26.180] My relationship with all of them is very good.
+- [06:28.720] We're going to find out how good it is over the next week or two.
+- [06:33.320] I think that we helped China very much as you know
+- [06:37.850] when they talk about freedom.
+- [06:40.470] And I don't believe that, and maybe I'm wrong,
+- [06:42.390] I hope I'm wrong,
+- [06:43.740] but I don't believe that America,
+- [06:46.410] that the United States was acknowledged
+- [06:48.470] for helping China to gain its freedom.
+- [06:53.410] But perhaps that was a sleight of hand.
+- [06:57.730] I mean, I was very surprised. I watched the speech last night.
+- [07:02.240] President Xi is a friend of mine,
+- [07:04.250] but I thought that the United States
+- [07:06.200] should have been mentioned last night during that speech
+- [07:08.420] because we helped China very, very much.
+- [07:11.650] The Press: (inaudible) invited you, Mr. President?
+- [07:14.170] (inaudible) Many times President Xi
+- [07:15.840] (inaudible) invited you?
+- [07:17.210] The Press: You've expressed many times your frustration
+- [07:19.800] and disappointment with Putin,
+- [07:22.150] but there's no action since you took your office.
+- [07:25.470] Don't you worry that --
+- [07:26.730] The President: How do you know there's no action?
+- [07:28.280] The Press: But don't you worry?
+- [07:29.510] The President: Wait a minute. Who are you with?
+- [07:31.930] The Press: I'm with Polish Radio.
+- [07:33.230] The President: Okay, how do you know there's no action?
+- [07:35.740] Would you say that putting secondary sanctions on India,
+- [07:40.080] the largest purchaser outside of China, they're almost equal,
+- [07:44.510] would you say there was no action?
+- [07:46.270] That cost hundreds of billions of dollars to Russia.
+- [07:50.020] You call that no action?
+- [07:51.830] And I haven't done phase two yet, or phase three,
+- [07:54.760] but when you say there's no action,
+- [07:56.210] I think you ought to get yourself a new job.
+- [07:57.830] Because if you remember two weeks ago I did.
+- [08:00.440] The President: I said, "If India buys, India's got big problems."
+- [08:04.420] And that's what happened, so don't tell me about that.
+- [08:06.870] The Press: Mr. President,
+- [08:11.750] right now there have been survivors of Jeffrey Epstein
+- [08:15.500] speaking at a press conference on behalf of the Hill.
+- [08:18.040] They're calling for these case files,
+- [08:20.170] these documents to be released.
+- [08:21.440] And Thomas Massie, who is sponsoring these
+- [08:24.740] (inaudible)
+- [08:26.030] get the house to vote and release those documents,
+- [08:28.720] says he doesn't believe you're implicated in these files,
+- [08:31.230] but many of your friends and donors may be.
+- [08:33.210] And he says that's why the Justice Department
+- [08:35.500] is redacting them and slow-walking the release.
+- [08:38.880] Is the Justice Department
+- [08:40.110] protecting any friends or donors, sir?
+- [08:42.420] The President: This is a Democrat hoax that never ends.
+- [08:46.690] It reminds me a little of the Kennedy situation.
+- [08:50.230] We gave him everything over and over again,
+- [08:52.320] more and more and more and nobody's ever satisfied.
+- [08:56.160] From what I understand, I could check,
+- [08:58.020] but from what I understand,
+- [08:59.760] thousands of pages of documents have been given.
+- [09:03.260] But it's really a Democrat hoax
+- [09:05.040] because they're trying to get people to talk
+- [09:07.490] about something that's totally irrelevant to the success
+- [09:10.670] that we've had as a nation since I've been President.
+- [09:13.820] Even if you look at DC right now, DC,
+- [09:16.940] it's a totally safe zone.
+- [09:18.910] It's called a safe zone, that's a term.
+- [09:21.670] It's a term of art.
+- [09:23.660] It's a safe zone because it's very safe.
+- [09:25.620] You can walk down the street now and nothing's going to happen,
+- [09:28.840] no crime, no murders, no nothing.
+- [09:31.020] Because we had a lot of problem with certain places
+- [09:34.700] and we still do, all run by Democrats
+- [09:37.900] or for the most part, run by Democrats.
+- [09:40.280] So what they're trying to do with the Epstein hoax
+- [09:42.270] is get people to talk about that
+- [09:44.240] instead of speaking about the tremendous success
+- [09:46.300] like ending seven wars. I ended seven wars.
+- [09:49.380] Nobody's going to talk about this,
+- [09:50.850] they're going to talk about the Epstein whatever.
+- [09:53.450] I understand that we were subpoenaed to give files
+- [09:55.920] and I understand we've given thousands of pages of files.
+- [10:00.220] And I know that no matter what you do,
+- [10:02.020] it's going to keep going.
+- [10:04.340] And I think really, it's enough because I think we should talk
+- [10:08.270] about the greatness of our country
+- [10:10.600] and the success that we're having.
+- [10:12.190] I think we're probably having, according to what I read,
+- [10:14.720] even from two people in this room,
+- [10:16.920] we're having the most successful eight months
+- [10:19.210] of any President ever,
+- [10:21.380] and that's what I want to talk about.
+- [10:22.890] That's what we should be talking about, not the Epstein hoax.
+- [10:27.890] The Press: Mr. President, what message do you have to Putin?
+- [10:32.750] The President: I have no message to President Putin.
+- [10:35.290] He knows where I stand
+- [10:36.540] and he'll make a decision one way or the other.
+- [10:38.970] Whatever his decision is,
+- [10:41.020] we'll either be happy about it or unhappy.
+- [10:43.310] And if we're unhappy about it, you'll see things happen.
+- [10:46.860] The Press: (inaudible)
+- [10:49.030] can you give us a sense of what the US policy
+- [10:51.570] or what you're trying to achieve with the aircraft carriers
+- [10:55.750] or the boats, I should say, near Venezuela?
+- [10:58.700] And also the boat that you mentioned yesterday
+- [11:00.510] where 11 people were killed, what was found on that boat
+- [11:02.860] and why were the men killed instead of taking it?
+- [11:04.530] The President: On the boat,
+- [11:05.760] you had massive amounts of drugs.
+- [11:07.560] We have tapes of them speaking.
+- [11:09.110] There was massive amounts of drugs
+- [11:10.850] coming into our country to kill a lot of people
+- [11:13.930] and everybody fully understands that.
+- [11:15.760] In fact, you see it.
+- [11:17.140] You see the bags of drugs all over the boat and they were hit.
+- [11:20.700] Obviously, they won't be doing it again.
+- [11:22.420] And I think a lot of other people
+- [11:23.640] won't be doing it again when they watch that tape.
+- [11:26.040] They're going to say, "Let's not do this."
+- [11:28.230] We have to protect our country and we're going to.
+- [11:30.940] Venezuela has been a very bad actor.
+- [11:33.400] As you know, they've been sending millions of people
+- [11:36.610] into our country, many of them Tren de Aragua,
+- [11:40.930] some of the worst gangs, some of the worst people
+- [11:43.550] anywhere in the world in terms of gangs.
+- [11:46.520] And we had some in Washington DC,
+- [11:48.380] we took care of them very quickly.
+- [11:50.000] But they're out of here, they've gone.
+- [11:51.950] But Venezuela has been very bad, both in terms of drugs
+- [11:55.410] and sending some of the worst criminals
+- [11:57.170] anywhere in the world into our country.
+- [11:59.480] You don't know this,
+- [12:00.800] but they emptied out their prisons in Venezuela
+- [12:03.680] and they emptied them out into the United States of America.
+- [12:06.550] And that's part of the problem we have, we're getting them out.
+- [12:09.220] We're getting them out rapidly
+- [12:11.210] but it's caused a tremendous problem.
+- [12:13.060] And Pete and all of the people that are working very hard
+- [12:16.110] to rectify the stupidity of the Biden administration,
+- [12:19.820] allowing these people to pour into our country
+- [12:21.990] with open borders.
+- [12:24.030] We are paying a big price as a country
+- [12:26.000] for the incompetence of the Biden administration.
+- [12:29.620] But think of it, opened up prisons,
+- [12:32.510] drug dealers, drug lords,
+- [12:34.130] everything coming out of Venezuela they said,
+- [12:36.960] and we said we're not going to put up with it anymore.
+- [12:38.810] So Venezuela has been one of the worst actors
+- [12:41.920] in the whole group and we have a group of pretty bad actors.
+- [12:47.790] Go ahead.
+- [12:49.000] The Press: Yeah, thank you, Mr. President.
+- [12:50.330] At the end of this month,
+- [12:51.600] the government or the Congress has to pass a budget.
+- [12:54.700] Do you think we can avoid the government shutdown?
+- [12:56.410] The President: Yeah, I do.
+- [12:57.610] I think the Republicans will vote for an extension.
+- [13:00.330] We won't have any Democrat votes.
+- [13:01.950] We could give the greatest budget ever, tax cut of 50%.
+- [13:06.500] Everybody taken care of, perfect for women,
+- [13:08.870] perfect for men, perfect for minorities,
+- [13:11.390] perfect for everything
+- [13:12.680] and we wouldn't get one vote from the Democrats
+- [13:14.660] because they've lost their mind. They are so deranged.
+- [13:17.790] They have Trump Derangement Syndrome
+- [13:19.850] and I don't want to burn the Republican party with it,
+- [13:23.930] but they really are, they've become almost sick.
+- [13:29.040] They actually think there is a disease,
+- [13:31.020] it's called Trump Derangement Syndrome, they've got it.
+- [13:34.290] No matter what we did, no matter how good,
+- [13:37.650] you could give them everything that they've ever dreamed of
+- [13:41.660] and you wouldn't get one vote. These are sick people
+- [13:44.710] and I think we're going to have a tremendous midterm.
+- [13:47.130] We just approved the largest tax decrease
+- [13:50.050] in the history of our country.
+- [13:51.600] We have things, if you think of it, no tax on tips,
+- [13:54.540] no tax on social security for our seniors,
+- [13:57.230] no tax on overtime. Deductions, when you buy a car
+- [14:01.880] and you borrow money to buy a car,
+- [14:03.430] first time they've ever seen anything like this,
+- [14:05.900] middle-income people get deductions.
+- [14:07.720] You get a deduction when you buy a car.
+- [14:09.330] Nobody's ever seen --
+- [14:10.570] And by the way, they're selling cars like crazy.
+- [14:12.840] Cars are pouring back
+- [14:14.130] because of the fact that we have tariffs.
+- [14:16.310] Cars are pouring back into,
+- [14:18.140] car plants are pouring back into our nation.
+- [14:21.500] They're coming from all over the world, they're coming back.
+- [14:23.870] We lost about 54% of automobile
+- [14:27.100] manufacturing over a 30 year period, 35 year period.
+- [14:30.650] They're all coming back.
+- [14:31.880] I think they're coming back higher than ever before.
+- [14:34.180] We have AI going up. What we've done is amazing
+- [14:37.370] and what we've passed is amazing.
+- [14:39.630] But the Democrats, I don't believe will get one vote.
+- [14:45.150] It's very anti-crime, we want anti-crime.
+- [14:48.110] They're in favor of crime, we're against crime.
+- [14:51.430] They gave us things like men playing in women's sports,
+- [14:55.510] open borders for everybody, transgender for everybody.
+- [14:59.460] I mean, they want to transgender
+- [15:00.740] for all of the crazy things that they were saying.
+- [15:03.850] And people would say they're 80/20 issues.
+- [15:06.090] I say there were 97 to three.
+- [15:07.830] I always say 97 to three, nobody knows who the three are.
+- [15:11.560] This is the best issue of all.
+- [15:13.650] They are against preventing crime, they are fighting us.
+- [15:18.550] I want to go into Chicago
+- [15:20.300] and they have this incompetent governor that doesn't want us.
+- [15:23.070] Do you know that this weekend, 72 people were shot in Chicago?
+- [15:27.140] I'm embarrassed to say it,
+- [15:28.480] in front of the President of Poland,
+- [15:30.380] 11 people were killed. 72 people were shot.
+- [15:34.540] Last week, seven people were killed in Chicago,
+- [15:38.960] a place which is probably your number one place,
+- [15:41.290] I hate to say it.
+- [15:42.500] President Nawrocki: Yeah, a lot of Poles in Chicago.
+- [15:43.870] The President: And we got to keep it safe,
+- [15:45.590] but seven people were killed.
+- [15:47.120] The week before that, five people were killed
+- [15:49.540] and 21 people were shot. This is in three weeks.
+- [15:53.230] So in three weeks they lost almost 35 people were killed.
+- [15:58.790] It could have been stopped.
+- [16:00.000] The President: But if you look at Washington D.C.
+- [16:02.480] three weeks ago, it was the same or worse,
+- [16:06.900] and now it's considered a totally safe zone.
+- [16:09.630] Restaurants are open, they're bustling.
+- [16:11.830] Restaurants, you have to see.
+- [16:13.290] Restaurants were dying. Nobody wanted to go out.
+- [16:15.430] They didn't want to be attacked. They didn't want to be mugged.
+- [16:18.000] They didn't want to be attacked even in the restaurant.
+- [16:20.410] And you take a look at what's happened,
+- [16:22.650] friends of mine that haven't gone
+- [16:23.980] to a restaurant in four years,
+- [16:26.140] one of them went out five times in the last two weeks
+- [16:29.440] to a restaurant with his family. They feel totally safe.
+- [16:32.710] Washington D.C. is a totally safe city.
+- [16:36.350] You're not reporting any crime because there is none.
+- [16:39.290] They said crime is down 87%. And I said, no, it's not.
+- [16:42.660] It's down 100%. We have a great thing going.
+- [16:45.710] I could do that with Chicago. We could do that with New York.
+- [16:49.480] We could do it with Los Angeles.
+- [16:51.570] So we're making a determination now,
+- [16:53.430] do we go to Chicago or do we go to a place like New Orleans,
+- [16:58.430] where we have a great governor, Jeff Landry,
+- [17:01.140] who wants us to come in
+- [17:02.890] and straighten out a very nice section of this country
+- [17:08.470] that's become quite tough, quite bad.
+- [17:13.030] So we are going to be going to maybe Louisiana.
+- [17:16.980] And you have New Orleans, which has a crime problem.
+- [17:19.380] We'll straighten that out in about two weeks.
+- [17:20.900] It'll take us two weeks. Easier than D.C.
+- [17:23.820] But we could straighten out Chicago.
+- [17:25.880] All they have to do is ask us to go into Chicago,
+- [17:29.550] if we don't have the support of some of these politicians.
+- [17:32.380] But I'll tell you who is supporting us,
+- [17:34.170] the people of Chicago, and I sort of want them
+- [17:38.630] to let it be known they have incompetent people.
+- [17:41.320] A guy like Gavin Newscum, he's the governor of a state
+- [17:44.890] that if we didn't go in,
+- [17:46.930] if we didn't go into Los Angeles with our soldiers,
+- [17:50.280] with our National Guard,
+- [17:52.280] you wouldn't even be having the Olympics there.
+- [17:53.950] They were going to take it. And remember this,
+- [17:56.220] your top law enforcement officer in Los Angeles
+- [17:59.240] said there's no way we could have done this
+- [18:02.750] without President Trump coming in with the troops.
+- [18:05.530] We saved Los Angeles and we saved the Olympics.
+- [18:08.720] Thank you very much. Thank you, Andrew. Thank you.
+- [18:15.840] The Press: Mr. President, in regards to Gavin Newsom,
+- [18:18.110] would you be open to a congressional investigation
+- [18:21.060] in regards to the specific Palisades fire,
+- [18:23.770] where it killed 12 seniors,
+- [18:25.200] to see whether there's any negligence
+- [18:27.270] on Gavin Newsom or Karen Bass in regards to those deaths?
+- [18:30.950] The President: Well, I tell you, there's negligence
+- [18:32.220] on not getting people permits. That is negligent.
+- [18:34.910] We got all of the federal permits, Lee Zeldin.
+- [18:38.160] The federal permits are much more difficult.
+- [18:39.930] They were all gotten within 30 days.
+- [18:41.510] People could go build the houses.
+- [18:43.070] It's going to be years
+- [18:44.360] before they are allowed to build the house.
+- [18:46.860] And Karen Bass is grossly incompetent.
+- [18:49.440] And Newsom, this is a very incompetent guy.
+- [18:53.180] I watched him with the hands.
+- [18:54.490] I'm saying, what's going on with the hands?
+- [18:57.060] There's something wrong with him. You watch him.
+- [18:59.670] There's something wrong with this guy.
+- [19:01.200] But more importantly, he didn't allow the water
+- [19:04.990] to come from the Pacific Northwest.
+- [19:07.120] They have tremendous amounts of water in California.
+- [19:09.790] People don't know.
+- [19:11.100] They send the water out to the Pacific Ocean.
+- [19:13.860] So I demanded it be open.
+- [19:15.300] If that were open during the fire,
+- [19:17.580] before the fire, you wouldn't have had the fire
+- [19:19.670] because all the sprinklers would've worked in the houses.
+- [19:22.080] They had no water.
+- [19:23.310] They had no water in the fire hydrants.
+- [19:25.160] You wouldn't have had the fire.
+- [19:26.490] It would've been put out after one house, two houses.
+- [19:29.710] But he stopped the water from coming in.
+- [19:31.500] And I had to send in the military
+- [19:33.000] to have that water opened after the fires.
+- [19:35.690] And now they have water.
+- [19:37.020] But he should have more because they've restricted.
+- [19:39.510] They still restrict it.
+- [19:41.100] There's something wrong with these people.
+- [19:42.870] There's something really wrong.
+- [19:44.730] As to investigation, I view it as a gross incompetence.
+- [19:48.910] I view it as an ideology that's wrong.
+- [19:51.530] It's a radical left ideology.
+- [19:53.930] And if I didn't win this election,
+- [19:56.390] I think our country would be destroyed.
+- [19:59.180] I don't believe you'd be here right now
+- [20:00.640] and our country would be destroyed.
+- [20:01.890] Yeah. Go ahead, please.
+- [20:03.130] The Press: President Trump, thank you, sir.
+- [20:08.410] What's the most important branches of interest
+- [20:10.650] between Poland and U.S. in your opinion?
+- [20:14.190] The President: Well, it's just the relationship we have.
+- [20:15.680] I think there's a great trust and a great,
+- [20:19.690] more than most countries, more than almost any countries.
+- [20:22.430] We have some in a category that's very special
+- [20:25.020] and Poland is in that category.
+- [20:27.300] We have a very special relationship.
+- [20:29.290] It's like the question about the soldiers that was asked.
+- [20:33.170] We never even thought in terms
+- [20:34.500] of removing soldiers from Poland.
+- [20:36.820] We do think about it with regard to other countries,
+- [20:40.130] but we would never. No.
+- [20:41.660] We're with Poland all the way
+- [20:43.010] and we will help Poland protect itself.
+- [20:46.170] Okay?
+- [20:48.480] President Nawrocki: I would like to add something.
+- [20:50.210] Yeah, of course, security is most important
+- [20:52.450] also for our relation.
+- [20:54.340] And I'm historian as you know, maybe, as the president knows.
+- [20:56.890] The President: Sure.
+- [20:58.100] President Nawrocki: I'm a historian.
+- [20:59.310] This is the first time in Polish history in 20th century
+- [21:02.600] and the 21st century that the Poles are happy
+- [21:06.200] that we have foreign soldiers in Poland.
+- [21:09.650] So the American soldiers are the part of our society nowadays.
+- [21:14.370] We have almost 10,000 soldiers,
+- [21:16.440] and this is the signal to all world
+- [21:19.410] and also to the Russian Federation that we are together.
+- [21:23.180] But we are not like the Poland "free riders" in Europe
+- [21:26.580] and in NATO, Mr. President Trump knows it,
+- [21:30.390] because our GDP for military service achieved 4.7.
+- [21:35.450] So we are probably the one NATO nation, which is on this level.
+- [21:40.950] And we will not stop. Me as the president of Poland,
+- [21:45.480] we are going to achieve 5% of GDP for military service.
+- [21:50.350] But with American soldiers on Polish soil,
+- [21:53.430] we solidified and we are secure
+- [21:58.100] (inaudible)
+- [22:00.650] The President: Just about that, Poland was one of two nations
+- [22:03.450] that paid more than they were supposed to with NATO.
+- [22:06.980] I don't know if anyone knows that.
+- [22:08.350] But there were two nations.
+- [22:09.590] And Poland paid more than they were supposed to.
+- [22:11.370] They thought it was low.
+- [22:12.680] And by the way, since then, at my request,
+- [22:15.320] they've raised it from 2% to 5%.
+- [22:17.930] But Poland was one of two nations
+- [22:20.190] that paid more than they were supposed to,
+- [22:21.790] which was a very nice thing. Yeah.
+- [22:24.260] The Press: (inaudible)
+- [22:26.220] that you were not invited to the parade in Beijing.
+- [22:29.330] The President: Never even thought about it until just now.
+- [22:33.130] Never even thought. It wouldn't have been my place to be there.
+- [22:38.430] The Press: Sir, will you visit a restaurant in D.C.?
+- [22:40.850] You haven't gone to a single -- The President: I might, sure.
+- [22:43.110] The Press: You haven't gone to one in either
+- [22:44.550] of your terms that wasn't (inaudible).
+- [22:45.830] The Press: How do you know?
+- [22:47.040] The Press: Because I and many other reporters (inaudible).
+- [22:48.820] The President: Do you want me to prove you're wrong?
+- [22:50.190] Do you want me to prove you're wrong?
+- [22:51.530] The Press: Yes, please.
+- [22:52.760] The President: But I will.
+- [22:54.020] I think it's something we could consider doing.
+- [22:55.710] Love to do it. I love the White House food,
+- [22:58.130] but after a while I could see going to a nice restaurant.
+- [23:01.090] It's safe.
+- [23:02.290] If you would've said like the governor,
+- [23:04.060] Governor Moore wanted me to go
+- [23:05.340] and walk through Baltimore with him.
+- [23:08.360] And I said, I think I'm a brave guy,
+- [23:11.240] but there's no reason to be stupid.
+- [23:12.950] They have crime that's at levels
+- [23:14.440] that nobody's ever seen before in Baltimore.
+- [23:16.300] They've done a terrible job. We'd go into Baltimore
+- [23:18.920] straighten it out very quickly, too.
+- [23:20.860] You know why? They respect our soldiers.
+- [23:22.440] You see our soldiers. They respect our soldiers.
+- [23:24.860] We'd go there, too.
+- [23:26.640] But we're going to have people asking us to go.
+- [23:28.570] They're going to want to.
+- [23:29.800] And I think the people of those places are,
+- [23:32.130] the politicians are not in tune with the people.
+- [23:34.870] The people in Chicago, the people in Baltimore,
+- [23:37.420] the people in all of the places we talk about,
+- [23:39.920] they want to see us there.
+- [23:41.520] And I think we're pretty much waiting
+- [23:42.950] till we get asked and properly.
+- [23:46.230] We're doing them a big service. Yeah, please.
+- [23:48.880] The Press: You talked about how historic these tariffs
+- [23:50.590] have been bringing in revenue.
+- [23:51.980] The President: Yeah.
+- [23:53.190] The Press: Additional revenue for our country.
+- [23:54.480] You've also mentioned before they could
+- [23:56.060] possibly replace federal income tax.
+- [23:58.470] The President: Possibly.
+- [23:59.750] The Press: You think (inaudible) it's possible?
+- [24:01.660] The President: It used to be.
+- [24:03.110] So if you go back to 1913 is when they ended tariffs.
+- [24:07.340] We were the richest ever from 1850, it was all tariffs,
+- [24:11.510] we didn't have income taxes, from 1850 to 1913.
+- [24:15.440] In the 1887, this is about 1887,
+- [24:20.610] they had the Great National Tariff Act,
+- [24:23.860] and it was a group of people that got together
+- [24:26.510] because our country was so rich,
+- [24:28.430] they didn't know what to do with the money.
+- [24:30.590] We had so much money, they didn't know what to do.
+- [24:33.710] It was a group of very prominent people
+- [24:37.200] that were set up to hand out money to everybody
+- [24:41.880] because we were the richest we ever were,
+- [24:43.620] proportionately we were in 1887 around that time even in 1913.
+- [24:49.230] We ended them in 1913. How did that work out?
+- [24:53.510] And then we went to the income tax system,
+- [24:55.810] and then we had the depression.
+- [24:57.770] And by the way, a lot of people try and say that,
+- [24:59.720] "Oh, tariffs with the depression."
+- [25:00.920] No, they ended in 1913, and then we went to income tax.
+- [25:04.970] And then in 1929 you had the depression.
+- [25:07.420] They did try and bring it back in 1931,
+- [25:10.690] '32, but the depression had long started,
+- [25:14.540] and this poor beautiful nation was gone.
+- [25:17.190] It was gone. We suffered for 25 years, took 25,
+- [25:20.520] 30 years to really recover from the depression.
+- [25:24.010] And we don't ever want to see that happen again.
+- [25:26.620] The tariffs are vital to the success of this country.
+- [25:29.960] When I say I ended seven wars,
+- [25:31.720] at least half of those wars were ended
+- [25:33.500] because of the power of tariffs. I was able to say,
+- [25:35.890] "Well, we're not doing any business with you,
+- [25:38.120] or if you go into war,
+- [25:39.740] we're putting a big tariff in you."
+- [25:41.990] And all of a sudden they announced
+- [25:43.550] that the war was settled.
+- [25:45.220] I settled seven different wars, one going 31 years.
+- [25:49.790] Look at the Congo and Rwanda, look at that.
+- [25:53.420] 31 years, 10 million people dead.
+- [25:57.420] I got it settled.
+- [25:58.910] And a little bit of that one less than in some cases
+- [26:02.010] had to do with trade and had to do with tariffs.
+- [26:04.710] So tariffs are vital to our country.
+- [26:07.990] And just so you know, other countries use on them us,
+- [26:11.040] but I just use them a lot better.
+- [26:12.830] We're in a much better position.
+- [26:15.120] We have trillions of dollars coming into our country.
+- [26:17.730] If we didn't have tariffs, we would be a very poor nation,
+- [26:21.740] and we would be taken advantage of by
+- [26:23.850] every other nation in the world friend and foe.
+- [26:26.180] We're not going to let that happen.
+- [26:27.610] And we have a very, very big case in the Supreme Court.
+- [26:30.780] I can only say this,
+- [26:34.270] our country has a chance to be unbelievably rich again,
+- [26:38.660] but it can also be unbelievably poor again.
+- [26:41.500] If we don't win that case,
+- [26:44.280] our country is going to suffer so greatly, so greatly.
+- [26:46.390] The Press: What's the plan to fight it, sir?
+- [26:47.720] The President: But I think we're going to have a big victory.
+- [26:51.330] Even if you look at the people that brought the case,
+- [26:53.310] they're foreign oriented. Countries have taken advantage
+- [26:58.500] of the United States for so many years.
+- [27:01.810] And I started with China,
+- [27:03.340] last term I took in hundreds of billions of dollars
+- [27:05.950] in tariffs from China. But when COVID came,
+- [27:08.710] the last thing I was going to do is,
+- [27:10.000] we're going to tariff France and Italy and others,
+- [27:13.470] Spain when they were doing so badly.
+- [27:16.050] But now we made a deal with the European Union
+- [27:20.040] where they're paying us almost a trillion dollars,
+- [27:22.830] and they're happy to do it.
+- [27:24.110] You know what? They're happy, it's done.
+- [27:25.780] These deals are all done.
+- [27:27.360] I guess we'd have to unwind them.
+- [27:29.180] We've done deals with Japan, with South Korea.
+- [27:31.350] We've done deals with many countries and others to come.
+- [27:36.300] And if we didn't have the power, prestige,
+- [27:39.950] and dignity of tariffs -- And I used them wisely,
+- [27:43.560] and people respect America again,
+- [27:45.820] and we've become a rich country again.
+- [27:47.580] The money coming in is incredible.
+- [27:50.340] And again, they use them on us.
+- [27:52.170] If we didn't have them, they would use them on us
+- [27:54.670] and we would have no way to fight them.
+- [27:57.060] We would be a third-world nation.
+- [27:59.010] So I think it's one of the most important cases
+- [28:01.670] I've ever seen go before the Supreme Court of the U.S.
+- [28:04.740] The Press: President (inaudible)
+- [28:06.870] you gave Vladimir Putin a two-week deadline
+- [28:09.520] to agree to talks with Volodymyr Zelenskyy.
+- [28:13.790] That deadline is now nearly approached,
+- [28:15.720] Can you give us any indication of
+- [28:17.080] when you will make a decision?
+- [28:18.320] The President: Well, I'm having a conversation
+- [28:19.640] with him very shortly
+- [28:20.930] and I'll know pretty much what we're going to be doing.
+- [28:23.200] We've taken very strong action as you know,
+- [28:26.550] and in other ways we've taken very strong action.
+- [28:28.690] But I'll be speaking to him over the next few days
+- [28:30.980] and we're going to see --
+- [28:32.540] I'm going to know exactly what's happening.
+- [28:33.920] The Press: Mr. President (inaudible) Zelensky.
+- [28:35.150] The President: I'm not happy with all the people.
+- [28:36.550] You got 7,819 people killed last week.
+- [28:40.780] Russian soldiers and Ukraine soldiers, right?
+- [28:44.390] Not American soldiers, not soldiers from Poland,
+- [28:47.840] but they're human beings, they're souls.
+- [28:49.860] They have parents, they wave goodbye to their parents,
+- [28:52.180] and the parents never see them again.
+- [28:55.000] That's the end of them over a stupid war.
+- [28:58.200] And I want to see it stopped. Now, we have stopped the money.
+- [29:02.360] We sent weapons to NATO, they pay full price.
+- [29:06.590] Biden spent $350 billion, so stupidly.
+- [29:11.480] And it was one of the reasons that this whole thing happened.
+- [29:14.930] A big reason this war happened
+- [29:16.900] was sitting right in these chairs,
+- [29:18.530] this one in particular.
+- [29:19.740] So I think we're going to have a good solution,
+- [29:26.460] but they're losing soldiers at levels
+- [29:28.560] that nobody has seen since the Second World War.
+- [29:31.430] This is the worst conflict, and it's just going on and on.
+- [29:35.830] One's defense, one's offense,
+- [29:37.550] the offense moves a little bit, just a little bit.
+- [29:40.660] You take a look, they move inches.
+- [29:43.490] They're dropping bombs and killing everybody,
+- [29:45.830] the whole thing is (inaudible).
+- [29:47.300] Not since the Second World War
+- [29:49.270] has there been anything even close to this.
+- [29:51.490] And again, they're not soldiers from my country,
+- [29:54.680] this is my country.
+- [29:56.420] But I have a power to end things,
+- [29:58.380] that's why I was able to end seven other wars.
+- [30:00.640] And do you that I thought of the seven, basically seven.
+- [30:03.840] Those were tough wars to end. Much tougher I thought,
+- [30:08.650] than the war with Ukraine and Russia.
+- [30:11.040] I thought that Ukraine and Russia,
+- [30:12.490] I have a very good relationship with President Putin.
+- [30:15.890] I thought that, that would be much easier.
+- [30:17.680] I thought that would be in the middle of the pack,
+- [30:19.350] maybe one of the easiest.
+- [30:21.060] Sometimes you never know with war.
+- [30:22.750] War is a very interesting thing, you never know with war.
+- [30:25.190] War is complex and dangerous,
+- [30:27.780] and what a mess, what a bloody mess.
+- [30:30.930] It's going to get done one way or the other,
+- [30:34.010] but they have to stop killing all of these souls.
+- [30:36.240] They're souls and we have to stop killing.
+- [30:38.490] Thank you very much.

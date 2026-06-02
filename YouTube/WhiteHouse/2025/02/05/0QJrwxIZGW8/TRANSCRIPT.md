@@ -1,0 +1,890 @@
+<!-- source: https://www.youtube.com/watch?v=0QJrwxIZGW8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 0QJrwxIZGW8 -->
+<!-- date_published: 2025-02-05T18:45:54+00:00 -->
+<!-- date_accessed: 2026-06-02T02:54:08.369055+00:00 -->
+
+# Transcript: Press Secretary Karoline Leavitt Briefs Members of the Media, Feb. 5, 2025
+
+- [00:02.820] Ms. Leavitt: Good afternoon, everybody.
+- [00:04.230] The Press: Good afternoon.
+- [00:05.920] Ms. Leavitt: Good to see you all.
+- [00:07.980] President Trump is in charge and America is back.
+- [00:11.850] This week further demonstrated that the Trump effect is real.
+- [00:17.080] Over the weekend, Americans celebrated
+- [00:18.920] the return of American-Israeli citizen,
+- [00:21.220] Keith Siegel, and two Israelis who were held captive
+- [00:24.510] by Hamas terrorists since October 7th, 2023.
+- [00:29.310] President Trump and his administration
+- [00:31.070] worked diligently to secure their release
+- [00:33.440] and are committed to freeing all remaining hostages.
+- [00:37.960] Yesterday, as you all know,
+- [00:39.730] President Trump held his first foreign meeting
+- [00:41.780] at the White House with Israeli
+- [00:43.200] Prime Minister Benjamin Netanyahu,
+- [00:46.390] and as the president said,
+- [00:47.820] the bonds of friendship and affection
+- [00:50.050] between the American and Israeli
+- [00:52.030] people have endured for generations,
+- [00:54.160] and are absolutely unbreakable.
+- [00:57.690] The President is committed to eliminating Hamas
+- [01:00.740] in securing a lasting piece for the entire region.
+- [01:05.780] The historic proposal for the United States to take over Gaza,
+- [01:09.570] announced by President Trump last night,
+- [01:11.840] underscores this commitment.
+- [01:14.470] Insanity is doing the same thing over and over again
+- [01:18.150] and expecting different results.
+- [01:20.690] President Trump is an outside-of-the-box thinker
+- [01:23.130] and a visionary leader,
+- [01:24.740] who solves problems that many others,
+- [01:27.140] especially in this city, claim are unsolvable.
+- [01:31.300] We've already seen the results from President Trump's
+- [01:33.350] bold peace through strength diplomacy on the world stage.
+- [01:37.360] In response to President Trump's tariffs this week,
+- [01:40.230] both Mexico and Canada took immediate steps
+- [01:42.930] to alleviate the illegal alien migration
+- [01:45.360] and flow of deadly drugs,
+- [01:46.940] particularly fentanyl, into our country.
+- [01:50.830] Mexico's president, Claudia Sheinbaum,
+- [01:52.800] agreed to permanently supply 10,000 Mexican soldiers
+- [01:56.650] on the U.S. border,
+- [01:58.100] who will be specifically designated
+- [01:59.770] to stopping fentanyl and criminal aliens
+- [02:02.070] from pouring into our country,
+- [02:04.250] and Canada's prime minister, Justin Trudeau,
+- [02:06.400] agreed to appoint a fentanyl czar,
+- [02:08.730] list cartels as terrorists, and increased resources
+- [02:11.960] to assist the 10,000 frontline personnel
+- [02:15.030] at our northern border with Canada.
+- [02:18.520] In recognition of these steps,
+- [02:20.250] President Trump paused the implementation of tariffs
+- [02:22.520] for one month while negotiations continue and final deals
+- [02:25.530] can be structured. Throughout the transition
+- [02:28.530] and during his inaugural address,
+- [02:30.420] President Trump made it known that the United States cannot
+- [02:33.890] and will not allow the Chinese Communist Party
+- [02:36.900] to continue with its effective and growing control
+- [02:39.830] over the Panama Canal.
+- [02:41.850] Following Secretary Rubio's successful first trip
+- [02:44.940] and visit there over the weekend,
+- [02:46.880] Panama's president said he will allow its participation
+- [02:50.040] in the Chinese Communist Party's…
+- [02:52.470] It will no longer allow the participation
+- [02:54.550] in the Belt and Road Initiative,
+- [02:56.370] that participation will expire. This is significant,
+- [03:00.340] because Panama was the first Latin American nation
+- [03:02.700] to join Belt and Road,
+- [03:04.070] and now becomes the first to back away from it
+- [03:06.800] because of President Trump.
+- [03:09.670] And to assist with the ongoing mass deportation effort,
+- [03:12.180] El Salvador's president has agreed to the most unprecedented
+- [03:15.050] migratory agreement anywhere in the world.
+- [03:18.250] Because President Trump is back in charge,
+- [03:20.260] El Salvador has offered for illegal aliens
+- [03:23.210] of any nationality facing deportation in the U.S.
+- [03:26.820] to be booked in his country's prison system.
+- [03:30.500] And finally, President Trump's envoy for special missions,
+- [03:33.370] Ric Grenell, traveled to Venezuela,
+- [03:35.100] and not only secured the release of six American hostages,
+- [03:38.420] but Venezuela also agreed to accept the return
+- [03:40.740] of illegal alien Tren de Aragua gang members.
+- [03:44.570] All of these incredible victories prove how well
+- [03:47.500] President Trump's peace-through- strength approach is working,
+- [03:51.060] and the days of weak American leadership are over.
+- [03:54.540] In another success story this week,
+- [03:56.330] efforts to seal the border, halt the invasion,
+- [03:58.420] and carry out the largest mass deportation campaign
+- [04:00.830] continue at lightning speed.
+- [04:03.520] Customs and Border Protection has approximately
+- [04:06.270] 79 miles of new border wall projects already underway
+- [04:09.900] in various stages of construction and planning.
+- [04:14.270] The first flights arrived to Guantanamo Bay
+- [04:16.290] yesterday afternoon out of El Paso.
+- [04:19.590] "Who were some of the passengers aboard you may ask?"
+- [04:22.690] There were 10 members of the transnational gang,
+- [04:25.580] Tren de Aragua, on this flight,
+- [04:27.900] and overall, our heroic ICE agents
+- [04:30.270] continue to prioritize the removal of violent criminal,
+- [04:33.590] illegal aliens in communities across the country.
+- [04:37.340] On February 3rd, ICE Dallas arrested a citizen of Nicaragua
+- [04:41.550] who has been convicted of sexual assault, strong arm,
+- [04:44.680] and lewd acts with a minor,
+- [04:46.270] and sentenced to 15 years in prison.
+- [04:48.820] ICE Los Angeles arrested a Mexican citizen
+- [04:51.390] who has been convicted of lewd acts with a minor
+- [04:54.560] and sentenced to 364 days.
+- [04:57.930] ICE Atlanta arrested a citizen of Mexico
+- [05:00.220] who has been convicted of homicide by vehicle
+- [05:02.810] and hit-and-run, and sentenced to six months confinement.
+- [05:06.560] ICE New York arrested a Venezuela national
+- [05:09.240] and known TDA gang member
+- [05:11.210] who has a prior criminal conviction
+- [05:12.750] for assault in the third degree, causing physical injury.
+- [05:17.090] Americans are safer every single time one of these criminals
+- [05:20.660] is arrested and deported from our country.
+- [05:23.980] On another important and ongoing topic,
+- [05:26.070] the Senate is working fast to confirm
+- [05:28.480] President Trump's exceptional cabinet nominees in the face
+- [05:31.190] of relentless media smear campaigns.
+- [05:33.020] As of right now,
+- [05:34.340] 12 members of the president's cabinet have been confirmed.
+- [05:37.550] Most recently, Pam Bondi, who, as you all know,
+- [05:40.060] I was just in the Oval Office for that swearing in ceremony,
+- [05:42.400] surrounded by Pam's lovely family,
+- [05:44.550] and we look forward to watching her serve
+- [05:46.220] as the Attorney General of the United States.
+- [05:49.270] According to CNN, President Trump
+- [05:51.310] is getting more cabinet picks confirmed
+- [05:53.110] so far than the average president in the modern era,
+- [05:56.170] another success story, and we believe it's critical
+- [05:59.640] that Republicans in the Senate majority stay tough
+- [06:02.890] and keep their foot on the gas
+- [06:04.570] to confirm all of the remaining nominees as quickly as possible,
+- [06:09.190] so we can continue President Trump's important work here
+- [06:12.260] at the White House and across our entire federal government.
+- [06:16.420] Lastly, throughout his historic campaign,
+- [06:18.550] President Trump pledged to restore common sense
+- [06:21.200] to our country,
+- [06:22.840] and he's continuing to deliver on that
+- [06:24.930] with an executive order that he will sign later today.
+- [06:28.440] The president will be signing an executive order
+- [06:30.590] keeping men out of women's sports
+- [06:33.970] to defend the safety of athletes,
+- [06:36.180] protect competitive integrity,
+- [06:38.290] and uphold the promise of Title IX.
+- [06:41.560] This common-sense action from President Trump
+- [06:43.920] ends the disgusting betrayal of women and girls
+- [06:47.120] by the previous administration,
+- [06:48.420] who, for years, catered to radical activists
+- [06:51.700] who wanted biological males
+- [06:53.860] to be treated as women in workplace showers,
+- [06:56.560] competitive sports, prisons, and even rape shelters.
+- [07:00.260] Gender ideology insanity is over.
+- [07:04.360] Submissions from individuals across the country
+- [07:06.470] interested in participating in our new media seat
+- [07:08.730] at a future briefing continue to flood in.
+- [07:11.290] We are at more than 12,000 and counting.
+- [07:14.360] If you're watching right now and are interested,
+- [07:16.110] you can continue to apply on our new media website,
+- [07:18.560] whitehouse.gov/newmedia.
+- [07:21.320] And in the seat today,
+- [07:22.530] we have a longtime national television broadcaster.
+- [07:25.930] I'm sure many of you recognized her when she came in.
+- [07:28.090] Sage Steel, who is now the host
+- [07:30.380] of an incredibly successful podcast,
+- [07:32.480] the Sage Steel Show on YouTube
+- [07:34.570] and all podcast platforms, and previously,
+- [07:37.880] Sage was a fixture at ESPN from 2007 to 2023.
+- [07:42.580] Primarily hosting Sports Center, which we all know well,
+- [07:45.960] before leaving the company to exercise
+- [07:48.170] her first amendment rights more freely.
+- [07:49.730] We are honored to welcome her to the Briefing Room today.
+- [07:52.080] She will be joining the president
+- [07:53.750] at the big EO signing later this afternoon.
+- [07:55.650] I know many of you will be there as well.
+- [07:57.420] So, Sage, why don't you kick us off
+- [07:58.900] on this very exciting day for women and girls
+- [08:01.880] across the country? Thank you for joining us.
+- [08:03.500] The Press: It is exciting, and Karoline,
+- [08:04.920] thank you for welcoming people like me
+- [08:07.240] with a little bit of a different perspective,
+- [08:08.930] different background in this seat.
+- [08:10.520] It really does mean a lot. Thank you.
+- [08:12.700] Obviously the house already passed
+- [08:14.080] the Protection of Women and Girls in Sports Act,
+- [08:15.870] which was a really big step for women and girls so far.
+- [08:18.620] The Senate, as we know, has not brought it up to vote.
+- [08:21.210] We all know executive orders can be overturned,
+- [08:23.810] so I'm wondering how important it is to the president
+- [08:26.560] to get Congress to bring this, to pass legislation,
+- [08:30.320] so there are no instances like the past administration
+- [08:33.360] that really tried to destroy Title IX?
+- [08:36.250] Ms. Leavitt: It's incredibly important
+- [08:37.620] that Congress immediately acts on this priority.
+- [08:40.490] I think the president is really setting the tone.
+- [08:43.020] Making this a very immediate priority
+- [08:45.040] for this administration,
+- [08:46.250] just as he promised to do on the campaign trail.
+- [08:49.310] And I'd like to get into the executive order a little bit,
+- [08:51.600] because it is the news of the day here at the White House,
+- [08:54.600] and talk about what this executive action
+- [08:56.520] will actually do.
+- [08:57.920] So, the executive order that the president
+- [09:00.600] will be signing later this afternoon,
+- [09:02.250] as I said, upholds the promise of Title IX.
+- [09:05.170] It also will require the DOJ to abide by the nationwide
+- [09:11.080] previous administration's illegal Title IX rewrite
+- [09:13.950] that would've dissolved single- sex spaces and opportunities.
+- [09:17.280] It also requires immediate action,
+- [09:19.340] including enforcement actions against schools
+- [09:21.720] and athletic associations comprised of schools
+- [09:24.090] that deny women single-sex sports,
+- [09:27.080] and single-sex locker rooms.
+- [09:29.510] The executive order also calls for the convening of private
+- [09:32.380] sporting bodies in the White House.
+- [09:34.240] We want them to come to this campus
+- [09:36.120] so the president can hear in person
+- [09:38.210] the stories of female athletes
+- [09:39.810] who have suffered lifelong injuries,
+- [09:42.400] who have been silenced and forced to shower with men,
+- [09:45.250] and compete with men on athletic fields across the country.
+- [09:48.800] Many of those women will be at the White House today.
+- [09:51.670] I encourage all of you in the media
+- [09:53.010] to actually talk to them, to hear their stories.
+- [09:55.390] And I would also just add one more thing.
+- [09:57.440] This is a wildly popular position
+- [09:59.870] with the American people.
+- [10:01.230] In fact, there was a new poll recently that showed
+- [10:03.940] the overwhelming majority of Democrats
+- [10:06.240] also support keeping biological men out of women's sports.
+- [10:09.750] And so I know the president is very excited about the bill
+- [10:12.760] signing that will take place at 3:00 this afternoon.
+- [10:15.180] You'll hear from him more on that later,
+- [10:17.050] and we look forward to seeing you there, Sage.
+- [10:18.890] So thank you very, very much.
+- [10:20.990] Garrett, great to see you here today.
+- [10:22.640] The Press: Thank you.
+- [10:23.950] On Gaza, the president has spent
+- [10:25.660] basically his entire public career
+- [10:27.760] criticizing foreign entanglements, nation-building,
+- [10:31.600] sending American troops to fight abroad,
+- [10:33.690] particularly in the Middle East.
+- [10:35.480] This plan seems like it could ultimately involve
+- [10:37.900] all of those things. Can you explain this reversal
+- [10:41.530] and how building and owning Gaza squares with America
+- [10:45.210] first foreign policy?
+- [10:46.470] Ms. Leavitt: I would reject the premise of your question
+- [10:48.730] that this forces the United States
+- [10:50.940] to be entangled in conflicts abroad.
+- [10:53.010] The president has not committed
+- [10:54.870] to putting boots on the ground in Gaza.
+- [10:57.170] He has also said that the United States
+- [10:58.790] is not going to pay for the rebuilding of Gaza.
+- [11:01.600] His administration is going to work with our partners
+- [11:04.370] in the region to reconstruct this region.
+- [11:07.670] And let me just take a step back, Garrett,
+- [11:09.570] because this is an out of the box idea.
+- [11:12.600] That's who President Trump is.
+- [11:14.060] That's why the American people elected him.
+- [11:16.700] And his goal is lasting peace in the Middle East
+- [11:20.670] for all people in the region.
+- [11:22.750] And as I said in my opening remarks,
+- [11:24.370] we've had the same people pushing the same solutions
+- [11:27.760] to this problem for decades,
+- [11:29.680] and it's been made very clear to the president
+- [11:32.960] that the United States needs to be involved
+- [11:35.560] in this rebuilding effort
+- [11:37.260] to ensure stability in the region for all people.
+- [11:40.230] But that does not mean boots on the ground in Gaza.
+- [11:42.720] It does not mean American taxpayers
+- [11:44.100] will be funding this effort. It means Donald Trump,
+- [11:46.460] who is the best dealmaker on the planet,
+- [11:48.570] is going to strike a deal with our partners in the region.
+- [11:51.250] The Press: He did not rule out American troops
+- [11:53.150] in Gaza last night. Are you doing that now?
+- [11:55.160] Ms. Leavitt: I am saying that the president
+- [11:56.560] has not committed to that just yet.
+- [11:58.580] He has not made that commitment. And you know that.
+- [12:00.350] The Press: And on the foreign partners,
+- [12:01.670] the Jordanians, the Egyptians,
+- [12:03.240] the Saudis have already panned this plan.
+- [12:05.950] What foreign partners, if any, have expressed any interest
+- [12:07.930] in being part of it?
+- [12:09.230] Ms. Leavitt: Well, the president has said
+- [12:10.470] he's been socialing this idea for quite some time.
+- [12:12.660] He's been thinking about this.
+- [12:13.910] He said in his remarks last night,
+- [12:15.790] this was not a decision or an announcement
+- [12:17.810] that he takes lightly.
+- [12:19.980] And the president has already spoken to the President El-Sisi.
+- [12:23.320] In fact, that was his first foreign leader call.
+- [12:25.660] He's meeting with the King of Jordan,
+- [12:27.480] King Abdullah next week.
+- [12:28.990] He spoke with the King of Bahrain.
+- [12:30.550] He spoke with the Crown Prince of Saudi Arabia.
+- [12:33.560] And he has made it very clear, he's been very vocal
+- [12:36.200] that he expects our partners in the region,
+- [12:38.590] particularly Egypt and Jordan, to accept Palestinian refugees
+- [12:42.520] temporarily so that we can rebuild their home.
+- [12:45.030] I'd like to show you some images of Gaza that were taken.
+- [12:49.220] Fox News aired this.
+- [12:50.440] I mean, that is, as they put it, an apocalyptic scene in Gaza.
+- [12:55.460] This is an unhabitable place for human beings.
+- [12:59.150] Do you really think that families can live their dream
+- [13:03.270] in a region that looks like this,
+- [13:04.680] with no running water, no electricity,
+- [13:07.500] and the special envoy to the president,
+- [13:09.090] Steve Witkoff, recently traveled to Gaza, as you all know,
+- [13:12.110] and he came back with images
+- [13:13.500] that he showed the president of the dire situation here.
+- [13:16.760] The president made this decision with a humanitarian heart
+- [13:21.100] for all people in the region. Peter?
+- [13:23.520] The Press: Thank you, Caroline. Are any officials here
+- [13:26.900] preparing to fight democratic lawmakers in the streets?
+- [13:30.390] Ms. Leavitt: Absolutely not. And thanks for the question.
+- [13:34.000] The Press: Some elected Democrats are so steamed
+- [13:35.820] about DOGE.
+- [13:37.100] Congresswoman LaMonica McIver says, "We are at war."
+- [13:40.350] Ilhan Omar says,
+- [13:41.570] "We might actually see somebody get killed."
+- [13:44.200] And Chris Van Hollen says,
+- [13:45.460] "We have to fight this in the Congress.
+- [13:46.840] We have to fight this in the streets."
+- [13:48.620] So what now?
+- [13:50.350] Ms. Leavitt: And may I just point out,
+- [13:52.060] if you heard that type of violent,
+- [13:54.290] enticing rhetoric from our side of the aisle,
+- [13:57.320] from Republican leaders on Capitol Hill,
+- [13:59.650] I think there would be a lot more outrage in this room today.
+- [14:02.800] It's unacceptable, the comments that have been made
+- [14:04.980] by these Democrat leaders.
+- [14:06.200] And frankly, they don't even know what they're talking about.
+- [14:09.440] Because President Trump was an elected
+- [14:11.390] with a mandate from the American people
+- [14:13.100] to make this government more efficient.
+- [14:15.640] He campaigned across this country with Elon Musk
+- [14:18.950] vowing that Elon was going to head up
+- [14:20.960] the Department of Government Efficiency,
+- [14:22.890] and the two of them, with a great team around them,
+- [14:25.390] were going to look at the receipts
+- [14:26.760] of this federal government
+- [14:27.970] and ensure it's accountable to American taxpayers.
+- [14:30.590] That's all that is happening here.
+- [14:32.440] And for Democrat officials to incite violence
+- [14:34.920] and encourage Americans
+- [14:36.200] to take to the streets is incredibly alarming,
+- [14:39.030] and they should be held accountable for that rhetoric.
+- [14:41.000] The Press: It sounds like something
+- [14:42.220] that they're most concerned about
+- [14:43.610] is DOGE engineers with access to Treasury systems.
+- [14:47.130] Can you clarify? Do the DOGE engineers
+- [14:49.630] have read-only access in these systems?
+- [14:51.140] Ms. Leavitt: Yes.
+- [14:52.340] The Press: So they're not allowed to write new code?
+- [14:53.600] Ms. Leavitt: No. The Press: They're not? Okay.
+- [14:54.850] Ms. Leavitt: No.
+- [14:56.080] The Press: And then, one more thing.
+- [14:57.800] NBC is reporting that some of the illegal immigrants
+- [15:00.160] that we've seen rounded up and arrested are not being deported.
+- [15:04.880] They're being released
+- [15:06.410] with ankle or wrist monitoring devices,
+- [15:08.780] or they have to check in on the phone.
+- [15:10.360] So is the administration arresting more people
+- [15:13.800] than you have room for?
+- [15:15.420] Ms. Leavitt: I have seen the reports,
+- [15:16.770] and I'm glad you brought it up because we want to address it.
+- [15:19.500] There have been a total of 461 illegal aliens,
+- [15:23.190] this is of this morning,
+- [15:24.390] when I got this information from DHS,
+- [15:26.770] that have been released from custody of the more
+- [15:29.320] than 8,000 that have been arrested
+- [15:31.780] since President Trump was inaugurated.
+- [15:33.660] It's less than 6%.
+- [15:35.350] And there are reasons for their release.
+- [15:37.040] Some of the factors include a lack of significant likelihood
+- [15:40.680] of removal in the foreseeable future,
+- [15:42.720] lack of detention availability,
+- [15:44.490] which is something this president
+- [15:45.910] and this administration has been incredibly vocal about.
+- [15:48.760] We are doing everything we can to deport
+- [15:51.630] and detain illegal immigrants,
+- [15:53.040] but we need Congress's help to increase funding
+- [15:55.680] for border patrol and for ICE to increase
+- [15:58.090] detention capability in our facilities.
+- [16:01.210] And then, other serious medical conditions
+- [16:02.840] have also been the reasons
+- [16:04.040] for some of the release of these individuals.
+- [16:05.550] But none of them have final deportation orders.
+- [16:08.230] Many of them are probably contesting
+- [16:10.140] their immigration status.
+- [16:11.360] I'd refer you to DHS for more details,
+- [16:13.230] but I did get that information,
+- [16:14.640] because I knew it'd be a question.
+- [16:15.890] So thank you. Sure.
+- [16:17.420] The Press: Caroline? Ms. Leavitt: Yes.
+- [16:18.750] The Press: The president and you here again today
+- [16:20.680] have made clear, given the devastation,
+- [16:22.210] you think Palestinians have no choice
+- [16:23.880] but to leave Gaza and go elsewhere.
+- [16:26.240] But Palestinians say this is their home,
+- [16:27.760] they don't want to go. The president last night
+- [16:30.230] said he's willing to use the military if necessary.
+- [16:32.880] Is the US prepared to remove Palestinians from Gaza by force?
+- [16:37.080] Ms. Leavitt: The president is prepared
+- [16:38.410] to rebuild Gaza for Palestinians and all people in the region,
+- [16:42.200] peace-loving people who want real economic development
+- [16:45.820] and opportunity in the region.
+- [16:47.720] This is a region that has been controlled
+- [16:49.810] by Iranian-backed terrorists, Hamas,
+- [16:52.190] who have brutalized not just Israelis,
+- [16:54.190] but Palestinians too.
+- [16:55.660] It is because of Hamas that you see those images on that screen,
+- [16:59.080] that Gaza has become a demolition site,
+- [17:01.730] because Hamas launched that brutal attack on Israel
+- [17:04.050] on October the 7th.
+- [17:05.290] And so, again, I would stress, President Trump wants to ensure
+- [17:08.900] that this can be a place where all people can live in peace.
+- [17:12.820] He is a peacemaker-in-chief.
+- [17:14.890] He made that very clear in his first term.
+- [17:17.180] And as for how that will be accomplished,
+- [17:19.330] the president and his team are talking with our allies
+- [17:21.750] in the region to consider next steps.
+- [17:23.560] The Press: But should the American people
+- [17:24.890] be prepared to see US military on the ground,
+- [17:27.380] fighting a ground war against Hamas?
+- [17:29.150] Ms. Leavitt: Again, the president has not committed
+- [17:30.960] to US troops in the region.
+- [17:32.350] The Press: But it is an option?
+- [17:33.670] Ms. Leavitt: I have said that the president
+- [17:34.870] has not committed to that yet. Sure.
+- [17:37.380] The Press: Let me just follow up on that, though.
+- [17:38.890] Why not rule out the idea of committing US troops?
+- [17:41.960] This has been a longstanding argument
+- [17:44.560] that the President has made, really over the last decade
+- [17:47.560] or so, talking about endless wars
+- [17:49.770] not something the US wants. Why not rule out?
+- [17:51.480] Ms. Leavitt: Because I think the president is very good
+- [17:53.290] when he's making deals
+- [17:54.490] and negotiating not to rule out anything
+- [17:56.770] because he wants to preserve
+- [17:59.150] that leverage bridge and negotiations.
+- [18:01.540] And so I think that's what he's doing here. Mary.
+- [18:03.280] The Press: If I can follow up on that though.
+- [18:04.480] He also said that everyone loves this plan.
+- [18:06.380] He said that in the Oval Office this morning.
+- [18:07.930] Ms. Leavitt: Sure.
+- [18:09.180] The Press: In fact, the deputy prime minister of Jordan
+- [18:12.330] called it a declaration of war on the Arab people.
+- [18:15.290] So how does he square the fact
+- [18:16.630] that even some Republicans on The Hill
+- [18:18.790] are objecting to this or questioning this?
+- [18:20.660] How does he square the facts saying everyone loves this plan?
+- [18:23.010] Ms. Leavitt: Well, King Abdullah of Jordan
+- [18:24.280] will be here next week,
+- [18:25.490] so I can provide you more context
+- [18:27.530] on the conversations he will have directly
+- [18:29.340] with the President of the United States after that meeting.
+- [18:32.180] And I would just point out that there's been a lot of leaders
+- [18:34.810] and officials all around the world who have doubted,
+- [18:37.380] I suppose, the deal making ability of President Trump.
+- [18:41.210] You heard the Panama leader saying that he would not agree
+- [18:45.390] to some of the concessions that he has now made
+- [18:47.730] because of Secretary Rubio's visit.
+- [18:49.550] You had the Colombian president saying
+- [18:51.060] he wouldn't accept flights of Colombian illegal
+- [18:53.630] who have entered into our country illegally,
+- [18:55.990] and those flights are underway.
+- [18:57.200] So actions speak louder than words. Dasha.
+- [18:59.820] The Press: Karoline, you said,
+- [19:01.060] the president has been working on this idea
+- [19:03.010] for a while behind the scenes now.
+- [19:05.040] Is there a written plan
+- [19:06.540] based on the president's proposal for Gaza?
+- [19:09.160] And if so, when was it drafted and who had a hand in that?
+- [19:12.490] Ms. Leavitt: The plan was written
+- [19:13.800] in the president's remarks last night
+- [19:15.360] as he revealed it to the world and to the American people,
+- [19:17.960] and his team are continuing to be engaged on this effort.
+- [19:21.200] I saw the National Security Advisor this morning.
+- [19:23.190] He has a very busy day of calls.
+- [19:25.070] And they will again continue to engage with our partners.
+- [19:27.320] That includes Steve Witkoff as well.
+- [19:29.220] Mary.
+- [19:30.650] The Press: Two questions for you on the news of the day.
+- [19:32.740] So how is today's executive order going to impact
+- [19:36.060] the 2028 Summer Olympics in Los Angeles?
+- [19:39.080] For example, would a man who thinks
+- [19:41.270] that he's a transgender woman be allowed to compete
+- [19:43.850] as a female on US soil?
+- [19:46.000] Ms. Leavitt: It's a very good question,
+- [19:47.660] and the president has actually mentioned this,
+- [19:49.790] that he does expect the Olympic Committee
+- [19:52.310] and the NCAA to no longer allow men
+- [19:55.720] to compete in women's sports.
+- [19:57.550] And I think the president with the signing of his pen
+- [20:00.860] starts a very public pressure campaign on these organizations
+- [20:04.500] to do the right thing for women
+- [20:06.290] and for girls across the country.
+- [20:08.250] Again, this is an incredibly popular position.
+- [20:10.890] There have been many notable female athletes
+- [20:12.870] who have had the courage to speak out
+- [20:14.910] against some very powerful institutions in this country.
+- [20:17.670] They deserve to have a voice and a say.
+- [20:19.240] The president is bringing their voice
+- [20:21.120] to the highest level at the White House this afternoon,
+- [20:23.130] and he expects these organizations
+- [20:24.620] to comply with this federal executive order
+- [20:26.950] that he'll be signing today.
+- [20:28.290] The Press: Thank you. And one more.
+- [20:29.490] On media coverage of this executive order
+- [20:32.310] and the topic in general,
+- [20:33.790] what's the White House's view of framing
+- [20:36.200] that calls men transgender females,
+- [20:38.600] or similar rhetoric coming from organizations
+- [20:40.880] like the ACLU and GLAD?
+- [20:43.200] Ms. Leavitt: Well, it's been very clear.
+- [20:44.800] The policy of this administration
+- [20:46.540] is that there are only two sexes,
+- [20:48.610] male and female, pretty simple. Brian Glenn.
+- [20:52.250] The Press: Yes. USAID has gotten a lot of attention
+- [20:55.980] the last couple of days with some of these bizarre things
+- [21:00.230] that taxpayers have been funding.
+- [21:03.800] Now it looks like there are a couple media outlets
+- [21:07.010] that have been dragged into this conversation
+- [21:09.980] as far as USAID funding as well.
+- [21:12.260] Does the president have any comment on that?
+- [21:14.670] Ms. Leavitt: So upon coming out here to the briefing room,
+- [21:17.360] I was made aware of the funding from USAID to media outlets,
+- [21:23.120] including Politico, who I know has a seat in this room.
+- [21:26.670] And I can confirm that the more than 8 million taxpayer dollars
+- [21:30.690] that have gone to essentially subsidizing subscriptions
+- [21:33.170] to Politico on the American taxpayers dime,
+- [21:35.470] will no longer be happening.
+- [21:37.060] The DOGE team is working on canceling those payments now.
+- [21:40.050] Again, this is a whole of government effort
+- [21:42.030] to ensure that we are going line by line
+- [21:46.390] when it comes to the federal government's books.
+- [21:48.810] And this president and his team
+- [21:51.320] are making decisions across the board
+- [21:53.920] on do these receipts
+- [21:55.850] serve the interests of the American people?
+- [21:58.350] Is this a good use of the American taxpayers' money?
+- [22:01.400] If it is not, that funding will no longer be sent abroad
+- [22:04.710] and American taxpayers will see significant savings
+- [22:07.260] because of that effort. Thank you.
+- [22:09.800] I'd like to give some love to the back row.
+- [22:11.740] I've heard that unfortunately
+- [22:13.270] they haven't been called on in years past.
+- [22:15.430] So Reagan, why don't you go ahead.
+- [22:17.190] The Press: Thanks, Karoline.
+- [22:18.540] The WHCA announced that comedian Amber Ruffin,
+- [22:21.580] who has called the president a toddler
+- [22:23.190] with his pants pulled down, will be the entertainment
+- [22:25.790] for this year's Correspondents Dinner.
+- [22:27.850] Does the White House have a reaction to this choice?
+- [22:29.970] And will the president be attending the dinner this year?
+- [22:32.710] Ms. Leavitt: Certainly an interesting choice.
+- [22:34.450] I have the President's invitation on my desk.
+- [22:37.010] I have the invitation for myself on my desk as well.
+- [22:39.910] Haven't talked to the president about it.
+- [22:41.390] When he makes his decision, I will let you all know, but-
+- [22:43.140] The Press: How about you, Karoline?
+- [22:44.410] Ms. Leavitt: … definitely an interesting choice
+- [22:45.630] of the comedian.
+- [22:46.840] I'll talk to the boss about it and see what we decide.
+- [22:48.120] Sure. Go ahead. The Press: Thank you.
+- [22:49.330] The Press: Karoline, in the back.
+- [22:50.530] Ms. Leavitt: Yes. Yes.
+- [22:50.820] The Press: Thank you. Appreciate it.
+- [22:52.060] On the executive order, said to be signed today,
+- [22:54.710] you said that this will be enforced.
+- [22:56.650] Can you spell out for schools and the public
+- [22:58.660] how exactly the administration plans
+- [23:00.510] to enforce this even at the local levels?
+- [23:03.370] And on top of that, there are human rights groups
+- [23:05.770] who say that this could expose kids to discrimination.
+- [23:09.440] What is your response to that?
+- [23:10.660] Ms. Leavitt: I think kids have already been exposed
+- [23:12.580] to discrimination, especially young women and girls
+- [23:15.220] who have been forced to shower in locker rooms
+- [23:17.960] with biological men, who have been forced to compete
+- [23:20.830] on playing fields with biological men,
+- [23:23.310] which is incredibly unfair and unsafe,
+- [23:26.440] and again, an incredibly unpopular policy
+- [23:29.760] with the American people.
+- [23:31.090] As for the actions that this executive order takes,
+- [23:33.570] I already laid those out at the beginning of the briefing.
+- [23:35.540] I'm happy to give you a copy of this fact sheet
+- [23:38.000] so you can let your audiences across the country know.
+- [23:39.720] The Press: What's your message to schools
+- [23:40.970] who don't comply with this?
+- [23:42.710] Ms. Leavitt: They should, because it's going to be
+- [23:44.180] federal law in about an hour and a half.
+- [23:46.440] So your colleague to your right, to my left.
+- [23:48.690] The Press: Thanks, Karoline. Taylor with Spectrum News.
+- [23:50.710] You talked a bit about DOGE.
+- [23:51.940] Elon Musk is currently a "special government employee"
+- [23:55.810] who also owns companies that have billions of dollars
+- [23:58.430] in federal contracts.
+- [23:59.690] You said earlier this week that he has abided
+- [24:01.960] by all applicable federal laws,
+- [24:03.640] but what steps is the Trump Administration
+- [24:05.860] taking to address that conflict of interest?
+- [24:08.580] Ms. Leavitt: The president was already asked and answered
+- [24:10.120] this question this week, and he said, if Elon Musk
+- [24:12.550] comes across a conflict of interest with the contracts
+- [24:15.680] and the funding that DOGE is overseeing,
+- [24:17.990] then Elon will excuse himself from those contracts.
+- [24:20.380] And he has, again, abided by all applicable laws.
+- [24:23.550] In the back left. Go ahead.
+- [24:25.280] The Press: Trade adviser Peter Navarro
+- [24:26.490] when asked about the external revenue service today said,
+- [24:29.700] "We're going to collect a lot of tariff revenues
+- [24:32.040] and we're going to get tax cuts out of it."
+- [24:33.840] Is it the official position of the White House
+- [24:36.310] that tariffs will lower taxes for Americans?
+- [24:39.550] Ms. Leavitt: President has always been clear
+- [24:40.940] that he believes tariffs are a tax on foreign nations,
+- [24:43.620] and he's committed to cutting taxes
+- [24:45.690] for the American people here at home.
+- [24:47.320] He also believes tariffs
+- [24:48.530] are a great revenue raiser for this country,
+- [24:50.920] and that's exactly why he has committed
+- [24:53.220] to the creation of the External Revenue Service,
+- [24:56.290] which I think is a phenomenal idea.
+- [24:58.070] We'll just go down the whole row. Go ahead.
+- [24:59.890] The Press: Tom Boehm with the BBC.
+- [25:01.100] Can you confirm that under the president's plans for Gaza,
+- [25:04.290] any and all Palestinians who want to stay in Gaza
+- [25:08.230] on their land will be allowed to do so?
+- [25:10.510] Ms. Leavitt: I can confirm that the president
+- [25:12.190] is committed to rebuilding Gaza
+- [25:14.710] and to temporarily relocating those who are there
+- [25:17.840] because as I've showed you repeatedly,
+- [25:19.900] it is a demolition site.
+- [25:21.210] There is no running water, there is no electricity.
+- [25:23.870] The president wants these individuals to live in peace.
+- [25:26.890] He is committed to doing that with this very bold new plan.
+- [25:29.600] And we will continue to keep you apprised of updates
+- [25:32.270] as we receive them.
+- [25:33.720] Ed Lawrence, go ahead. Yes, go ahead, Ed.
+- [25:35.950] The Press: Appreciate. Thank you.
+- [25:37.200] So now that the President Trump's policies
+- [25:39.060] are starting to take shape,
+- [25:41.020] how long will it take to cycle through
+- [25:42.780] and get some of the actual prices
+- [25:44.680] that Americans are paying to come down?
+- [25:46.740] Ms. Leavitt: The prices at the store
+- [25:48.040] and at the grocery pump? The Press: All of the above.
+- [25:49.270] Ms. Leavitt: Across the board? Sure.
+- [25:50.710] Well, the president is doing everything he can, obviously,
+- [25:53.340] to reduce the cost of living crisis in this country
+- [25:55.710] as quickly as possible.
+- [25:57.530] That's why he signed a litany of executive orders
+- [26:00.630] across the board.
+- [26:01.910] In the first couple of weeks here,
+- [26:03.310] he declared a national energy emergency.
+- [26:05.860] He committed to cutting 10 regulations
+- [26:07.960] for every new one on the book.
+- [26:09.440] As you know, working for a Fox Business-related outlet,
+- [26:12.980] deregulation and energy independence are huge drivers
+- [26:16.310] of reducing inflation in this country.
+- [26:18.290] And I think Americans can be assured
+- [26:20.030] by the results President Trump had in his first term,
+- [26:22.540] when again, inflation was 1.4% when he left office.
+- [26:25.420] The Press: Is it months or is it a year?
+- [26:26.990] And will Americans have the patience to wait for it?
+- [26:29.220] Ms. Leavitt: I don't have a timeline,
+- [26:31.450] but the president is doing everything
+- [26:32.960] that he possibly can to reduce
+- [26:34.630] cost of living for Americans at home.
+- [26:36.420] Phil Wegmann.
+- [26:37.670] The Press: Thank you.
+- [26:38.920] Is it worth risking the life of a single US Marine
+- [26:41.540] to turn the Gaza Strip into the Riviera of the Middle East?
+- [26:44.100] Ms. Leavitt: Phil, I'm not sure
+- [26:45.430] why you're asking me that question,
+- [26:46.640] because I've already said the president has not committed
+- [26:48.890] to sending Marines or any boots on the ground in Gaza.
+- [26:51.660] We'll bring to the front row, Ed O'Keefe.
+- [26:53.030] The Press: [inaudible 00:26:53] possibility?
+- [26:54.370] The Press: Good to see you again here in the front row, Karoline.
+- [26:56.300] Two things, on today's announcement, Title IX.
+- [27:01.990] If he scales back the education department
+- [27:04.190] or moves to shut it down entirely,
+- [27:05.960] what entity will enforce Title IX?
+- [27:07.710] Ms. Leavitt: As of now,
+- [27:09.020] this will be enforced through education,
+- [27:11.180] through Title IX.
+- [27:13.190] If the abolishment of the Department of Education
+- [27:15.540] continues,
+- [27:16.850] which as the President said yesterday,
+- [27:18.390] it's something his team is looking at and considering.
+- [27:21.170] It's something he talked a lot about on the campaign trail.
+- [27:24.100] Then of course, we will look at additional maneuvers
+- [27:26.760] to ensure that these very important
+- [27:28.660] policies can be implemented.
+- [27:30.050] The Press: Okay, so the education
+- [27:31.300] abolishment thing's still on the table Title IX
+- [27:32.590] [inaudible 00:27:34]?
+- [27:33.810] Ms. Leavitt: Yeah, the President talked about it yesterday
+- [27:35.040] in the Oval Office,
+- [27:36.270] and he has good reason to talk about it.
+- [27:37.590] I mean, look, our education system
+- [27:39.480] is failing students in this country.
+- [27:41.270] The Nation's report card,
+- [27:42.550] I brought it up in my remarks last week,
+- [27:44.750] it shows that fourth graders
+- [27:46.530] are not reading at the level they should.
+- [27:48.140] I believe it was 40% of them are proficient in reading.
+- [27:52.030] As the mother of a child, I want an education system
+- [27:54.570] that helps my child read and write,
+- [27:57.530] teaches him math, nothing else in the classroom.
+- [28:00.080] And the President is wholeheartedly committed
+- [28:01.660] to we can make academia great again in this country.
+- [28:04.700] The Press: One other [inaudible 00:28:06], Karoline.
+- [28:06.280] Ms. Leavitt: Deanna. Go ahead.
+- [28:07.520] The Press: Thanks, Karoline. The does the President,
+- [28:10.140] is he looking at offering anything to these Arab countries
+- [28:13.780] that take in Palestinians?
+- [28:15.240] Is he willing to give them anything in return?
+- [28:17.880] And secondly, when the President announced his taking
+- [28:22.620] over Gaza policy yesterday, was Netanyahu aware of this?
+- [28:26.470] And what was his reaction
+- [28:27.730] when Trump presented that idea to him?
+- [28:31.060] Ms. Leavitt: I won't get ahead of the President's discussions
+- [28:33.680] or negotiations on your first question
+- [28:36.230] about what would be offered.
+- [28:37.640] I think the President's made it clear
+- [28:39.150] that he expects these nations in the region to step up
+- [28:42.600] and to accept Palestinian refugees who will be
+- [28:45.510] temporarily relocated for the rebuilding of Gaza.
+- [28:49.060] As for whether Prime Minister Netanyahu
+- [28:50.800] was aware before the President's remarks, he was indeed.
+- [28:53.580] I wasn't present for that reaction.
+- [28:55.760] But again, this is something the President has been socializing
+- [28:58.650] and thinking about for quite some time.
+- [29:00.230] Nick, good to see you.
+- [29:01.440] The Press: Oh, Jordan. Ms. Leavitt: Jordan. Sorry.
+- [29:02.740] The Press: Thank you, Karoline. So Secretary Hegseth announced
+- [29:05.070] yesterday that Army recruiting levels have reached
+- [29:08.710] 12-year highs in December, 15-year highs in January.
+- [29:12.400] What is making young people want to serve the military
+- [29:15.350] under the Trump Administration?
+- [29:16.620] And how does that contrast to Biden's failure
+- [29:20.860] consistently to meet recruiting [inaudible 00:29:23]?
+- [29:24.820] Does President Trump's anti-DEI agenda play a role in this?
+- [29:27.160] Ms. Leavitt: Well, first of all,
+- [29:28.500] the recruitment level for all branches of our military
+- [29:31.160] are at crisis levels.
+- [29:32.720] And it serves as a national security
+- [29:35.250] risk that our military branches are not fully staffed
+- [29:39.720] to where they need to be.
+- [29:41.120] And I do believe it's a culture problem
+- [29:43.150] within these institutions
+- [29:44.500] that the President is very much committed to fixing,
+- [29:47.410] as emphasized by the executive orders
+- [29:50.320] he has signed to root DEI out of the military.
+- [29:52.980] And I think when young men and women
+- [29:54.780] who are honorably signing up to serve in our nation's
+- [29:57.280] military see somebody like Pete Hegseth,
+- [30:00.270] the new Secretary of Defense who is a proven war fighter,
+- [30:03.450] who risked his life in battle for this country.
+- [30:06.040] Who understands what it means to deploy
+- [30:08.580] and to defend the Constitution and your nation abroad,
+- [30:11.300] and to put your life on the line.
+- [30:12.890] When they see a leader like that
+- [30:14.590] and a leader like President Trump
+- [30:15.920] who has committed to peace through strength,
+- [30:17.610] that's very inspiring.
+- [30:19.360] And we look forward to seeing those recruitment numbers
+- [30:21.890] and retention numbers
+- [30:23.170] skyrocketing over the next four years.
+- [30:24.950] And I know Pete Hegseth is committed to increasing
+- [30:27.790] recruitment at all branches of the military.
+- [30:29.710] I'll defer you to the Department of Defense
+- [30:31.230] on exactly what he plans to implement. Jeff.
+- [30:33.780] The Press: Thanks very much. Two questions.
+- [30:35.910] One, the President yesterday used the word permanent
+- [30:38.880] for permanently resettled Palestinians.
+- [30:41.340] I hear you saying temporarily today.
+- [30:43.120] Is that a shift or a specific change
+- [30:46.430] that you want to highlight? And my second question is,
+- [30:50.530] yesterday he spoke about the U.S. owning Gaza.
+- [30:53.970] Who owns Gaza now and how would the U.S. acquire ownership?
+- [30:57.900] Ms. Leavitt: Well, Gaza is currently run
+- [30:59.430] by Iranian-backed terrorists in the Middle East,
+- [31:02.580] Hamas, who we all agree,
+- [31:05.400] I think everybody in the region agrees that can no longer stand.
+- [31:09.210] Just look at the events of October 7th
+- [31:11.070] and the events since. And the President,
+- [31:13.440] again is committed to rebuilding the region
+- [31:15.690] for all people who want to return to it
+- [31:18.580] once it is no longer a demolition site.
+- [31:20.780] And it's a place where people can actually live and thrive
+- [31:23.630] in harmony, as he said last night.
+- [31:26.010] His words not mine. Daniel.
+- [31:27.920] The Press: And permanent versus temporarily resettled
+- [31:29.360] [inaudible 00:31:31]?
+- [31:30.570] Ms. Leavitt: The President has made it clear
+- [31:31.820] that they need to be temporarily relocated out of Gaza
+- [31:34.990] for the rebuilding of this effort.
+- [31:37.490] Again, it's a demolition site right now.
+- [31:39.120] It's not a livable place for any human being.
+- [31:41.830] And I think it's actually quite evil to suggest
+- [31:43.810] that people should live in such dire conditions. Daniel.
+- [31:45.790] The Press: [inaudible 00:31:47] Karoline, thank you so much.
+- [31:47.410] The Daily [inaudible 00:31:49]
+- [31:48.610] says that the President will be meeting
+- [31:49.850] with a pair of governors today, Governor
+- [31:51.280] Abbott of Texas and Governor Newsom of California.
+- [31:53.700] It comes after the President took executive action
+- [31:56.160] to turn the water back on in California.
+- [31:58.960] Billions of gallons are flowing now.
+- [32:00.560] What can you tell us about the two meetings
+- [32:02.350] and the importance of President
+- [32:03.670] Trump's actions to help people in California?
+- [32:05.690] Ms. Leavitt: Sure.
+- [32:07.010] Those meetings will be taking place shortly,
+- [32:09.480] so I will get out of here to get to those meetings.
+- [32:13.430] We can always provide you a readout, as we always do.
+- [32:15.730] We try to be very transparent
+- [32:17.360] about what the President is doing in the Oval Office.
+- [32:19.910] Perhaps, he'll even call you in to join him.
+- [32:21.710] We never know around here, as you all know.
+- [32:24.140] But Governor Abbott is obviously a great friend
+- [32:26.200] and ally to the President. He has been on the front lines
+- [32:28.880] of the border crisis in this country.
+- [32:31.520] And as for Governor Gavin Newsom,
+- [32:33.950] well the President is willing to work
+- [32:35.460] with anybody from blue states
+- [32:36.830] or red states to do what's best for the American people.
+- [32:39.050] And he really enjoyed,
+- [32:40.280] the President really enjoyed his trip
+- [32:42.280] to Pacific Palisades last week. He felt very inspired
+- [32:45.810] by the frustration of the residents there.
+- [32:48.180] And he has been wholeheartedly committed to ensuring
+- [32:51.060] that the water is flowing in California
+- [32:53.140] to prevent these wildfires,
+- [32:54.900] and also that people have access to their properties.
+- [32:59.320] And he has continued to apply tremendous pressure
+- [33:01.930] to Gavin Newsom and also the Los Angeles Mayor
+- [33:04.810] to allow private residents and property owners
+- [33:07.210] to access their property.
+- [33:08.620] He believes that's their right to do so
+- [33:10.520] and they should be able to do it.
+- [33:12.000] And one more thing before I wrap up,
+- [33:13.570] because I do want to get to these meetings.
+- [33:15.200] And I will see you all at the EO signing later this afternoon.
+- [33:18.300] I would just say that you brought to mind California
+- [33:21.630] and North Carolina
+- [33:22.830] who continue to be on our hearts.
+- [33:24.280] And the President and this administration
+- [33:25.640] are committed to ensuring
+- [33:27.250] that these individuals get the funding that they need.
+- [33:29.790] And I would just say a strong message to Democrats
+- [33:32.360] who are out there pretending to be outraged
+- [33:35.570] about the long list of crap
+- [33:38.170] that this administration is cutting federal waste
+- [33:40.780] and funding like $2 million for sex changes in Guatemala,
+- [33:44.930] 6 million to fund tourism in Egypt,
+- [33:47.420] 20 million on a new Sesame Street Show in Iraq,
+- [33:51.030] 4.5 million to combat disinformation in Kazakhstan.
+- [33:55.040] I could go on and on.
+- [33:56.320] And I'm happy to provide this list
+- [33:57.650] to every single one of you.
+- [33:58.970] Democrats are outraged that the American people,
+- [34:02.850] they want their taxpayers going to good uses,
+- [34:05.230] not stuff like this.
+- [34:06.550] But then they're very quiet about the fact
+- [34:08.790] that there are still North Carolinians
+- [34:10.710] and people in California who have lost everything.
+- [34:13.540] And in the last four years,
+- [34:14.790] this federal government did nothing to help them.
+- [34:17.700] This President will continue to put Americans first,
+- [34:20.000] and I think the successes of this week so far speak to that.
+- [34:23.100] And it's only Wednesday.
+- [34:24.390] So I'll see you guys later this week,
+- [34:25.770] and we'll see you this afternoon. Thank you very much.
+- [34:27.540] The Press: Thanks, Karoline.

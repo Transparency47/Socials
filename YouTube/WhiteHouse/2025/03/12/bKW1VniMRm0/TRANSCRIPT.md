@@ -1,0 +1,405 @@
+<!-- source: https://www.youtube.com/watch?v=bKW1VniMRm0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bKW1VniMRm0 -->
+<!-- date_published: 2025-03-12T18:12:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:52:57.484540+00:00 -->
+
+# Transcript: President Trump Participates in the Friends of Ireland Luncheon
+
+- [00:00.560] Speaker Johnson: Well, I hope you all enjoyed your meals.
+- [00:04.390] We'll get the program going again.
+- [00:05.690] We have some of the busiest people in the world in the room,
+- [00:07.910] so we want to be a good steward of your time.
+- [00:10.020] I mentioned earlier that Irish-Americans
+- [00:12.560] have left an indelible mark on American history,
+- [00:16.320] and I had a few facts I wanted to share with you
+- [00:18.190] this afternoon to have you consider these.
+- [00:20.530] Irish men and women have taken up arms among American soldiers.
+- [00:24.720] They've made unmatched contributions
+- [00:26.520] to music and literature and the arts,
+- [00:28.960] and they punch well above their weight in American government.
+- [00:32.200] Many Irish nationals played an essential role
+- [00:34.710] during the American Revolution. John Barry, for example,
+- [00:37.960] was an Irishman who received the first commission
+- [00:40.300] issued by the Continental Congress
+- [00:42.380] and is considered the Father of our American Navy.
+- [00:45.730] He later became the first Navy captain
+- [00:47.660] to seize a British ship.
+- [00:50.180] We had three Irishmen who signed our Declaration of Independence,
+- [00:53.300] George Taylor, Matthew Thornton and James Smith.
+- [00:56.300] One of the most recognized houses in the world
+- [00:59.530] was designed by James Hoban, an Irishman from County Kilkenny
+- [01:05.230] when he designed our White House.
+- [01:07.990] And 23 of the 45 men who have served
+- [01:10.640] as United States President
+- [01:12.480] have Irish heritage, many of them proudly,
+- [01:15.950] and same for hundreds of Congressmen and Senators
+- [01:18.960] who have walked these hallowed halls.
+- [01:21.230] Today we celebrate their contributions
+- [01:23.030] and the truly special relationship
+- [01:25.450] among the United States and Ireland
+- [01:27.320] and the Irish people. So join me in a toast.
+- [01:30.780] Here I am again without a glass.
+- [01:32.400] I'm supposed to be toasting. I'm going to grab one.
+- [01:35.290] Thank you. A glass of water, no less.
+- [01:41.210] It works as well, and the toast is in… Hold on.
+- [01:46.940] Man, I am really messing this up,
+- [01:48.870] but we're all friends here and I don't know where it went.
+- [01:52.350] All right, I'm just going to toast.
+- [01:55.460] It was a beautiful toast. Trust me, it was great.
+- [01:59.450] To the United States, to Ireland,
+- [02:01.010] to this beautiful relationship
+- [02:02.380] and to all who aspire to be Irish around the world.
+- [02:05.160] Cheers. Solange, that's right, that's what I'm supposed to say.
+- [02:12.570] I have the pleasure of introducing our own
+- [02:15.230] Head of State here.
+- [02:16.430] This luncheon offers an opportunity for both Americans
+- [02:20.150] and the Irish to reflect on our past and on our future.
+- [02:22.910] In 1981, Senator Ted Kennedy and Senator Daniel Moynihan
+- [02:27.060] and Speaker of the House,
+- [02:28.340] Tip O'Neill started this great tradition,
+- [02:31.300] the Congressional Friends of Ireland.
+- [02:33.650] They aimed to celebrate their shared Irish heritage,
+- [02:36.240] deepen ties between our two nations and promote peace
+- [02:39.390] and reconciliation in Northern Ireland.
+- [02:41.150] In 1983, the Friends of Ireland luncheon was born
+- [02:44.930] when President Ronald Reagan,
+- [02:46.320] of course, of proud Irish heritage,
+- [02:49.050] and the Taoiseach visited Capitol Hill
+- [02:51.640] to celebrate Irish heritage and St. Patrick's Day.
+- [02:55.190] This lunch was the embodiment of that,
+- [02:57.920] of charity and friendship across political differences,
+- [03:01.520] and it has led to real-world
+- [03:04.420] international diplomatic successes.
+- [03:07.130] Many historians credit the advocacy
+- [03:09.290] of the Friends of Ireland Caucus
+- [03:11.100] as essential in the signing of the Good Friday Agreement,
+- [03:15.320] and we welcome continued efforts to promote
+- [03:17.320] and preserve this agreement and promises of a bright future
+- [03:21.230] for the Friends of Ireland.
+- [03:22.860] Last year, I hosted this luncheon
+- [03:24.800] alongside President Biden.
+- [03:26.910] Our political differences were on stark display.
+- [03:29.610] It was obvious, that's an understatement,
+- [03:31.850] but he was our incumbent Democratic President
+- [03:34.030] and I was the Republican House Speaker,
+- [03:36.000] and still, we shared laughs at the table at this event.
+- [03:38.610] It was one of the rare moments of the year
+- [03:40.370] where we could do that.
+- [03:41.650] That's what this celebration is all about.
+- [03:44.960] We laid down our swords and in the spirit of Tip O'Neill
+- [03:47.050] and Ronald Reagan, we broke bread together
+- [03:48.860] and celebrated what binds us all together,
+- [03:51.580] rather than what divides us. This year is a little different.
+- [03:54.760] Of course, the political dynamics on Capitol Hill
+- [03:57.630] are extraordinarily different.
+- [04:00.290] President Trump is back in the White House.
+- [04:02.360] Republicans control both chambers of Congress.
+- [04:04.690] Here in our form of government, we call that unified government.
+- [04:08.090] A year ago, people thought I was crazy
+- [04:09.760] for predicting that we would be here today,
+- [04:11.370] but we are, and we're facing a new dawn for America
+- [04:15.220] and our bilateral relationships
+- [04:16.890] and I know that we can look forward
+- [04:18.210] to working together to promote and preserve our friendships.
+- [04:21.520] It's an important informative time
+- [04:23.730] around the world to do that.
+- [04:25.180] So in keeping with the proud US-Ireland tradition
+- [04:28.470] and the spirit of the Friends of Ireland luncheon,
+- [04:30.690] it's my great privilege to present the 45th
+- [04:33.880] and 47th President of the United States,
+- [04:36.810] Donald J. Trump.
+- [04:50.690] The President: Thank you.
+- [04:58.830] Thank you very much. Thank you very much, everybody.
+- [05:02.130] It's a great honor.
+- [05:04.110] I've been here just about every time.
+- [05:05.790] We had one that was terminated because of a thing called COVID.
+- [05:09.310] I don't know if anybody's heard of that,
+- [05:10.890] but that was never pleasant.
+- [05:13.390] And we would've been together twice,
+- [05:16.090] but we had COVID interrupted twice.
+- [05:18.680] And I appreciate seeing you again, however,
+- [05:21.810] and you've done a fantastic job.
+- [05:23.370] We very much appreciate you being here.
+- [05:25.880] And I also want to thank my new friends
+- [05:27.760] from Northern Ireland for being here, who I just met.
+- [05:30.420] Thank you very much. Great honor.
+- [05:36.740] And I must say, they spoke very well of you.
+- [05:39.200] So that's good. That's good, and great to be with you.
+- [05:43.730] And thank you to Speaker Johnson and thank you
+- [05:46.400] to all of the members of Congress who are here.
+- [05:49.080] Quite a few, most of which are Irish,
+- [05:52.150] most of whom are Irish, and we welcome Taoiseach.
+- [05:58.170] And I love the name because Micheal,
+- [06:02.510] but it's Michael, I said,
+- [06:03.850] "How many people call you Michael?
+- [06:05.190] It's exactly Michael." He said, "About 50%."
+- [06:09.430] I said, "Do you get upset when they do?"
+- [06:11.040] He said, "No," but I'm going to call you Micheal
+- [06:13.000] because that's the way it is.
+- [06:14.970] Martin, who has really been terrific,
+- [06:17.990] I've been with him quite a bit. I've spoken to him quite a bit,
+- [06:21.530] and we're going to have no problems.
+- [06:23.420] And his wife, Mary,
+- [06:25.550] we welcome you to America, fantastic people,
+- [06:29.000] and it's really a wonderful annual tradition being here.
+- [06:33.590] We're also grateful to be joined
+- [06:35.020] by Irish Ambassador to the United States,
+- [06:38.330] Geraldine Byrne Nason. Where's Geraldine?
+- [06:42.000] Hi Geraldine, thank you very much.
+- [06:45.930] And the entire Irish delegation.
+- [06:48.470] And I know everybody's a little bit late today,
+- [06:52.660] but that's okay because we're celebrating the Irish
+- [06:55.970] and I think it's okay we're a little bit late.
+- [06:58.450] I also want to congratulate a friend of mine, Ed Walsh.
+- [07:02.330] He's a great golfer.
+- [07:03.610] He's a championship golfer, actually.
+- [07:05.670] Not quite as good as Rory, but that's okay.
+- [07:08.420] But he's right up there.
+- [07:11.850] He's won many, many Club Championships,
+- [07:14.370] many Club Championships,
+- [07:15.620] and he is one of the best golfers you'll ever see.
+- [07:17.420] And congratulations.
+- [07:18.640] Boy, you're going to have fun over there.
+- [07:20.090] He's going to be the Ambassador to Ireland.
+- [07:22.510] So congratulations, Ed.
+- [07:24.830] Well, maybe it is thanks to me,
+- [07:26.750] but you're going to have a good time.
+- [07:28.630] You're going to represent us well.
+- [07:30.500] He can do most of his business on the golf course too.
+- [07:32.650] That's a nice way. He's got the best job of anybody.
+- [07:35.730] And I really appreciate so many of my friends being here.
+- [07:40.230] So many great friends here.
+- [07:43.240] This afternoon we're gathered to celebrate the deep
+- [07:45.620] and abiding ties of history, family and friendship
+- [07:48.780] that bind together Ireland and the United States of America.
+- [07:52.520] The Irish-American Patriots
+- [07:53.920] have been part of our national history
+- [07:56.370] in our country's earliest days,
+- [07:58.870] amazing history they have with our country.
+- [08:01.040] Irish-Americans fought heroically in our war
+- [08:03.540] for independence,
+- [08:04.900] served with honor in the crucible of the Civil War
+- [08:08.730] and won fame and valor
+- [08:10.600] among Theodore Roosevelt's famous Rough Riders.
+- [08:14.370] They were Rough Riders.
+- [08:16.150] By some estimates, more than 2,000 Irish-American warriors
+- [08:19.780] have earned the Congressional Medal of Honor.
+- [08:21.550] This is an amazing statistic
+- [08:24.270] because who would ever think that's even possible?
+- [08:27.210] It's more than 50% of the Medals of Honor
+- [08:30.800] were won by the Irish. I'm going to have to check that.
+- [08:35.830] That's an awfully good statistic.
+- [08:37.700] We're going to have to check what's going on over there, huh?
+- [08:40.520] But that's an amazing statistic, actually, 50%.
+- [08:44.340] This includes the great Audie Murphy,
+- [08:46.900] the most decorated enlisted soldier in American history,
+- [08:49.820] whose service in the Second World War
+- [08:52.410] earned a Medal of Honor, two Silver Stars, a Bronze Star,
+- [08:56.120] three Purple Hearts and the Legion of Merit.
+- [08:59.920] Quite a person. Became a movie actor.
+- [09:01.760] The movie actor stuff wasn't quite as good
+- [09:03.660] as the soldier that he did, but he was great,
+- [09:07.960] became a very famous person, actually.
+- [09:10.560] America's truly been blessed by the courage
+- [09:13.090] and unstoppable spirit of the Irish.
+- [09:16.290] Over the generations, Americans of Irish ancestry
+- [09:21.480] have helped build our railroads and raise our cities.
+- [09:24.270] And man, our factories enrich our culture
+- [09:27.130] with art and music and literature.
+- [09:28.940] We see that all over, and protect our communities
+- [09:32.490] by joining the proud tradition
+- [09:34.050] of Irish American police officers and firefighters.
+- [09:38.460] A few have done more for the Stars and Stripes
+- [09:40.940] than the sons and daughters of the Emerald Isle.
+- [09:44.640] And I can tell you, I know your father was a great boxer
+- [09:47.870] and they have a lot of good fighters.
+- [09:50.060] I know so many Irish fighters.
+- [09:51.570] They like to fight and they're good at it too.
+- [09:54.550] But your father, his father was a great fighter, actually.
+- [09:56.810] So that means genetically,
+- [09:58.510] I'm not going to mess around with you.
+- [09:59.840] You understand? I'm a believer in that.
+- [10:02.790] But as you know, on Monday,
+- [10:04.020] millions of Americans will celebrate St. Patrick's Day.
+- [10:07.510] We love St. Patrick's Day, maybe especially in New York.
+- [10:11.090] Hundreds of thousands of citizens decked in Irish Green
+- [10:13.890] will parade through the streets of Chicago,
+- [10:16.380] Boston, Philadelphia, and of course, New York,
+- [10:19.130] a site that I've witnessed many, many times.
+- [10:21.870] In Manhattan, the people will stream up Fifth Avenue
+- [10:24.730] and march past the magnificent, I see it so much and I love it,
+- [10:29.590] especially when you're looking down upon,
+- [10:31.580] St. Patrick's Cathedral because it's to me
+- [10:34.410] one of the most beautiful cathedrals in the world.
+- [10:37.390] And it's a monument not only to God,
+- [10:39.290] but also to the Patriot Saint of Ireland, Patriot Saint.
+- [10:44.660] It's really an extraordinary testament
+- [10:47.280] to the connection between our two countries
+- [10:50.270] that after more than 1,500 years,
+- [10:53.400] the shining legacy of St. Patrick's
+- [10:55.590] still rouses city blocks half the world away,
+- [10:58.550] think of that,
+- [10:59.770] and fills our people with incredible love and pride.
+- [11:02.820] We have a lot of pride in that cathedral.
+- [11:05.930] That cathedral is something, to me, so beautiful.
+- [11:10.290] I think maybe my favorite.
+- [11:12.060] They have larger, it's very large, but they have larger,
+- [11:14.890] but I think it's truly one of the most beautiful.
+- [11:17.980] The Irish spirit is truly alive and thriving in America.
+- [11:21.740] And as we see today,
+- [11:24.010] the friendship between our nations is strong
+- [11:26.170] and it's really unbreakable, and that includes all of you.
+- [11:29.300] It's all of you. We love you all.
+- [11:33.370] So Taoiseach, I want to just thank you once again
+- [11:36.010] for being here.
+- [11:37.260] It's an honor and hopefully we're going to be doing this
+- [11:40.450] at least three more times. Okay?
+- [11:42.140] We're going to be doing this three more times. At least.
+- [11:44.300] And when I say at least, they go absolutely crazy.
+- [11:48.030] So thank you very much for being here.
+- [11:50.290] Mary, thank you very much for being here.
+- [11:51.810] It's a great honor. Thank you.
+- [11:53.240] Thank you, Mr. Speaker. Thank you, everybody. Thank you.
+- [11:55.700] Speaker Johnson: Thank you.
+- [12:15.470] Thank you, Mr. President.
+- [12:17.400] Our next guest is not a stranger to this event.
+- [12:20.090] However, this is actually the first time
+- [12:22.430] we have the privilege of welcoming
+- [12:24.460] the Taoiseach Micheal Martin.
+- [12:28.000] I said that right. We were talking about that.
+- [12:30.240] I'm Michael too, but that's how we say it very plainly
+- [12:32.730] and boringly in the US,
+- [12:34.200] and it's the same name over there.
+- [12:35.720] It's Micheal. I like it a lot better,
+- [12:38.430] but we're welcoming him to the Friends of Ireland
+- [12:40.940] luncheon in person as the new Taoiseach.
+- [12:43.690] And this is interesting because in 2021,
+- [12:46.360] it was mentioned earlier, this luncheon was virtual
+- [12:49.040] due to the ongoing COVID pandemic.
+- [12:51.820] And in 2022, the Taoiseach was in town and slated to attend,
+- [12:57.190] but he had a positive COVID diagnosis himself
+- [13:00.060] and forced him to deliver remarks virtually once again.
+- [13:03.780] So now, finally, finally,
+- [13:05.490] we welcome him in person to this great event
+- [13:08.210] and we're so excited to have you in the Capitol, my friend.
+- [13:11.590] I'll welcome you to the podium now,
+- [13:13.330] the Taoiseach, Micheal Martin.
+- [13:28.150] Taoiseach Martin: Mr. President, Mr. Speaker,
+- [13:30.920] Chairman Kelly and Neil, Senators,
+- [13:34.080] representatives, ladies and gentlemen,
+- [13:36.170] I want to thank you all for welcoming me
+- [13:38.130] and Mary to Washington DC to celebrate St. Patrick's Day.
+- [13:43.460] And it is a good feeling to be COVID-free
+- [13:46.170] and to be here on that day.
+- [13:48.570] But may I in particular say I'm pleased
+- [13:50.450] also to be joined with the Deputy First Minister
+- [13:52.930] from Northern Ireland, Emma, Little-Pengelly.
+- [13:55.490] Very pleased to have you here, Emma as well.
+- [14:03.170] This is a cherished opportunity to break bread
+- [14:06.300] with our most steadfast friends.
+- [14:08.540] And as has been said, it's now more than 40 years
+- [14:12.350] since Speaker Tip O'Neill invited President Ronald Reagan
+- [14:15.410] to the Capitol for the first St. Patrick's Day lunch.
+- [14:18.320] And thus began a very proud tradition,
+- [14:21.600] which I'm honored to continue today in your esteemed company.
+- [14:26.030] President Trump, thank you for joining us today
+- [14:29.410] to mark our national day.
+- [14:31.390] You are a great friend of Ireland.
+- [14:33.380] And by the way, all those statistics
+- [14:35.080] that you quoted are absolutely verifiably true.
+- [14:40.260] I also know, President,
+- [14:41.510] that there's one small corner in the west of Ireland,
+- [14:45.080] a beautiful and remote part called Doonbeg in County Clare,
+- [14:49.560] which holds a very special place in your heart.
+- [14:52.590] And we hope to welcome you back to our small island,
+- [14:56.180] and indeed to these particular greens very soon.
+- [15:00.450] Speaker Johnson, once again,
+- [15:01.930] you have graciously gathered our dear friends
+- [15:04.920] in this august house to Mark St. Patrick's Day.
+- [15:08.570] You too are a true friend of our nation.
+- [15:11.750] We thank you for your hospitality
+- [15:14.040] in what is a very busy week for you.
+- [15:18.350] For centuries now, America has been a place
+- [15:20.640] of welcome and opportunity for Irish people.
+- [15:24.560] Our nation's green has been threaded
+- [15:26.930] through the rich tapestry of the United States
+- [15:30.380] by almost 32,000,000 Irish Americans.
+- [15:34.160] Their forebears left a very different Ireland
+- [15:37.350] to the one we know today.
+- [15:39.330] Many were fleeing the grinding poverty and terrible hunger
+- [15:43.240] which blighted Ireland in centuries past.
+- [15:46.280] They left in desperation, but also in determination
+- [15:51.280] to forge a brighter future for their children.
+- [15:54.790] They channeled that commitment
+- [15:56.530] into building stronger communities
+- [15:58.680] and ultimately a stronger nation, this great nation.
+- [16:03.160] Many of their descendants are with us today,
+- [16:06.070] true friends of Ireland, who continue to work powerlessly
+- [16:10.610] for a future of peace and prosperity on our island.
+- [16:14.950] Indeed, we need look no further than the co-Chairs
+- [16:18.090] of the Friends of Ireland Caucus.
+- [16:21.040] Our dear friends, Congressman Neil
+- [16:23.100] and Congressman Kelly's bold leadership
+- [16:25.890] and vision unites Irish-American members
+- [16:28.520] from both sides of the aisle
+- [16:30.490] through the Congressional Friends of Ireland Caucus.
+- [16:33.760] Throughout our troubles,
+- [16:35.330] the Friends of Ireland, Republican and Democrat alike,
+- [16:39.170] held fast to a vision of Ireland,
+- [16:41.570] not marred by violence or terror.
+- [16:45.080] You worked unrelentingly to realize that fragile hope.
+- [16:50.240] You stood shoulder to shoulder with us
+- [16:52.820] no matter how fierce the challenge,
+- [16:55.380] and there were many such challenges.
+- [16:57.600] And it is that same determination that together,
+- [17:00.470] we must devote to today's conflicts in the Ukraine
+- [17:05.170] and in the Middle East.
+- [17:07.030] And our shared history teaches us that peace,
+- [17:11.170] however elusive it may sometimes seem, is achievable.
+- [17:16.120] Its promise remains within our grasp.
+- [17:19.300] Mr. President, we are forever grateful
+- [17:22.050] for the United States' contribution
+- [17:23.510] to transforming our island.
+- [17:24.950] And we wish you well in the efforts
+- [17:26.170] that you are making to bring peace to the Ukraine
+- [17:27.500] and to the Middle East and further afield.
+- [17:28.730] We thank you for your leadership,
+- [17:29.990] and indeed your ongoing friendship to Ireland.
+- [17:31.380] Thank you once again for joining us today.
+- [17:32.620] Thank you, Mr. Speaker, for your gracious hospitality.
+- [17:33.820] And thank you to our dearest friends in this room.
+- [17:35.060] A very happy St. Patrick's Day to you all.
+- [17:36.000] As we might say in Gaeilge,
+- [17:36.550] [foreign language 00:17:56]. Thank you very much indeed.
+- [17:37.770] Speaker Johnson: Thank you again, Taoiseach,
+- [17:38.320] and thank you, Mr. President. I am very excited
+- [17:39.330] because we have a special treat for you all today.
+- [17:40.540] Joining us to provide entertainment is the famous
+- [17:41.740] Riverdance Irish dance troupe. They're here. I know.
+- [17:42.710] You didn't know that was going to happen, did you?
+- [17:43.640] See? We throw a great party. I told you. Let me give you
+- [17:44.860] a little background on this. In 1994 during an interval act
+- [17:46.060] at the Eurovision Song Contest, there was a seven-minute
+- [17:47.260] dance routine that captivated the world.
+- [17:48.100] From that stage in Dublin, Riverdance was born.
+- [17:49.070] And in the more than 30 years since Riverdance has performed
+- [17:50.310] more than 15,000 times on six continents in 49 countries,
+- [17:51.510] they've developed quite a following.
+- [17:52.370] Riverdance spread first through Europe, and then to America.
+- [17:53.570] And along the way, they have shared the culture
+- [17:54.480] of Irish music and dance to a generation of people
+- [17:55.690] around the globe now for more than three decades.
+- [17:56.620] And while we're only receiving an abridged version
+- [17:57.610] of the very famous show today, Riverdance is performing here
+- [17:58.810] in Washington at the Kennedy Center through March 16.
+- [18:00.030] The Kennedy Center was kind enough
+- [18:00.800] to lend these exceptional performers
+- [18:01.560] for us here for the afternoon. The stop in our nation's capital
+- [18:02.800] is the first of a 30-city nationwide tour,
+- [18:03.700] and we encourage all friends of Ireland
+- [18:04.610] and lovers of Irish culture to experience this incredible show.
+- [18:05.840] You are going to get a little taste of that right now.
+- [18:07.080] So please join me in welcoming these great friends of Ireland
+- [18:08.340] to the stage, Riverdance.

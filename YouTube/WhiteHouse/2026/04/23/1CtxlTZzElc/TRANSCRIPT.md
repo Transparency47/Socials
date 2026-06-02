@@ -1,0 +1,1542 @@
+<!-- source: https://www.youtube.com/watch?v=1CtxlTZzElc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 1CtxlTZzElc -->
+<!-- date_published: 2026-04-23T20:24:46+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:56.297737+00:00 -->
+
+# Transcript: President Trump Participates in a Health Care Affordability Event
+
+- [00:14.500] (background chatter)
+- [00:53.270] The President: Are you all set?
+- [00:54.800] Unidentified: All set, sir.
+- [00:56.060] The President: Well, thank you very much.
+- [00:57.270] And today, I'm thrilled to announce
+- [00:58.970] that one of the most respected pharmaceutical companies
+- [01:02.950] anywhere in the world, frankly,
+- [01:04.330] I know it very well, is Regeneron,
+- [01:06.770] and it's agreed to offer their prescription medications
+- [01:10.460] at heavily discounted, most favored nation prices.
+- [01:13.060] In other words, they're --
+- [01:14.500] the numbers will come down at levels
+- [01:16.350] that nobody's ever seen before,
+- [01:18.110] the whole most favored nation thing
+- [01:20.650] that we've been able to do with Bobby and Oz
+- [01:22.780] and everybody behind me, Marty has been incredible.
+- [01:27.490] It's the biggest price reduction in drugs in history.
+- [01:30.600] By itself, we should win the midterms,
+- [01:33.230] but it doesn't work that way, unfortunately.
+- [01:35.450] You know, it doesn't work that way.
+- [01:38.100] People forget too quickly, but we'll have the biggest --
+- [01:40.320] it's the biggest cut in drug prices
+- [01:42.400] in the history of our country by many percentage points.
+- [01:46.180] With this announcement,
+- [01:48.030] 17 of the world's largest pharmaceutical companies,
+- [01:50.820] representing 80 percent of the branded drug market,
+- [01:53.900] have now agreed to sell their drugs
+- [01:55.580] to American patients at the lowest prices
+- [01:57.360] anywhere in the world.
+- [01:58.580] We're going to have the lowest prices in the world.
+- [02:01.550] This will result in the largest drop in prescription drug prices
+- [02:04.760] in the history of the United States of America.
+- [02:08.190] I mean, that should be front page news, but it won't be.
+- [02:12.410] It'll be back on page 19. But the people get it.
+- [02:16.010] That's why we're in the Oval Office, I guess.
+- [02:17.940] I want to thank Regeneron CEO, a friend of mine
+- [02:20.690] for a long time good, good guy, great guy,
+- [02:23.740] CEO Len Schleifer and chief scientific officer,
+- [02:28.120] George Yancopoulos, who are two fantastic people
+- [02:32.080] in the medical world, very respected.
+- [02:34.780] We're also joined by Secretary Robert F. Kennedy.
+- [02:37.470] Jr. Bobby, thank you. Secretary Howard Lutnick;
+- [02:41.560] administrator of the Centers for Medicare
+- [02:44.660] and Medicaid Services, Dr. Mehmet Oz,
+- [02:47.500] who's doing a fantastic job.
+- [02:49.030] They all are. FDA Commissioner Marty Makary;
+- [02:52.220] and Chief Councilor of Health and Human Services Chris Klomp.
+- [02:56.520] Thanks, Chris.
+- [02:57.870] Great job you're doing, Chris, wherever you may be.
+- [03:00.490] Oh, he's there.
+- [03:03.010] For decades, Americans have been forced
+- [03:05.060] to pay the highest prices in the world
+- [03:06.890] for prescription drugs, by far, prices that were many,
+- [03:11.460] many times what the rest of the world was paying,
+- [03:14.450] because we had a president
+- [03:15.720] that didn't know what they were doing,
+- [03:16.980] or they weren't able to get other countries to agree to it.
+- [03:19.370] I was able to do that because I used tariffs.
+- [03:23.140] I said, if you don't agree to it,
+- [03:24.530] we're going to put tariffs on your country. And they said,
+- [03:27.430] we would be honored to do it, sir,
+- [03:29.630] after telling everybody no, including me,
+- [03:32.530] but they agreed to do it.
+- [03:34.270] The United States has just four percent
+- [03:36.660] of the world's population and consumers,
+- [03:39.300] only 13 percent of all prescription drugs.
+- [03:42.240] Yet pharmaceutical companies have been making
+- [03:44.320] 75 percent of their profits from American customers.
+- [03:47.120] So think of that, with four percent of the population
+- [03:51.940] and doing only 13 percent of all prescription drugs,
+- [03:56.000] the companies make 75 percent, made --
+- [03:58.660] I don't know, maybe hopefully they continue
+- [04:00.830] because, actually, it's not as bad for them as it sounds.
+- [04:04.380] In fact, many of their stocks are up because, actually,
+- [04:06.980] when the price goes up on the one end,
+- [04:09.190] they make up for the price
+- [04:10.910] coming down in the United States,
+- [04:12.720] so it really worked out pretty good.
+- [04:15.000] To address this chronic unfairness,
+- [04:16.810] I signed an executive order instructing my administration
+- [04:19.910] to do everything in our power
+- [04:21.190] to slash prescription drug prices for Americans,
+- [04:24.410] while getting other countries to pay more,
+- [04:27.630] in many cases, much more, but their other prices doubled,
+- [04:31.590] and sometimes they tripled,
+- [04:33.520] and ours would go down by 60, 70, 80 percent, even more.
+- [04:37.910] Today we're building on our unprecedented success,
+- [04:40.750] with Regeneron committing to offer all new drugs
+- [04:44.060] moving forward at Most Favored Nations prices.
+- [04:47.650] They'll make their current drugs
+- [04:49.770] available to Medicaid and MFN, that's Most Favored Nation.
+- [04:56.440] Additionally, they'll also offer their current drug,
+- [04:59.630] Praluent, which is the --
+- [05:02.900] lower cholesterol and fight heart disease,
+- [05:05.420] to all consumers at dramatically lower costs.
+- [05:08.370] It'll come down from $537 to $225
+- [05:13.610] and be available at TrumpRx.gov.
+- [05:17.410] I didn't put the name, Bobby did in Oz did.
+- [05:21.280] It's true actually.
+- [05:22.720] Remember, I came in, I said, what's this?
+- [05:25.910] But they say it'll be better,
+- [05:27.720] it'll sell better, will you help us?
+- [05:29.920] So, I now have my name on medication,
+- [05:34.160] but it's doing great.
+- [05:35.710] I hear it's setting records, actually.
+- [05:37.290] I was watching the other day, Mark Cuban, of all people,
+- [05:42.560] said it's amazing what Trump has done with this.
+- [05:46.310] I can't believe -- when I heard him say
+- [05:47.770] that I was sort of in a state of shock,
+- [05:50.010] but others have said it, too.
+- [05:51.330] This whole thing is it's turned out to be hot.
+- [05:53.810] So, that's TrumpRx.gov.
+- [05:57.240] The company will also invest $27 billion
+- [06:00.050] to build up research and development
+- [06:02.200] and pharmaceutical manufacturing here in America,
+- [06:05.790] which is a big thank you very much.
+- [06:08.120] Today, I'm also announcing that the FDA has just approved
+- [06:11.140] a new drug from Regeneron called Otarmeni,
+- [06:15.310] a gene therapy curing a rare disease that causes deafness.
+- [06:20.550] People are totally deaf and it's amazing,
+- [06:24.240] I've seen some work on it. It's actually hard to believe;
+- [06:27.840] we're going to talk about it in a minute.
+- [06:29.410] Normally, cures for rare diseases
+- [06:32.100] can cost millions of dollars,
+- [06:33.930] and really the results aren't that good.
+- [06:37.530] But in this case, I'm pleased to say
+- [06:39.200] that Regeneron will be giving this away for free --
+- [06:42.480] for a period of time for free.
+- [06:45.730] And here with us is two-year-old Travis Smith.
+- [06:47.900] He was born deaf. Was he totally deaf?
+- [06:51.550] Pretty much, right? This is 100 percent.
+- [06:55.370] It was 100 percent. But he took this miracle cure
+- [06:58.260] and now he can hear his mom Sierra say I love you.
+- [07:03.510] And Sierra, could you maybe say a few words?
+- [07:06.590] That's really incredible.
+- [07:08.120] Sierra Smith: It's absolutely incredible.
+- [07:09.790] Regeneron works miracles. Yeah, he didn't know his name.
+- [07:15.810] He couldn't hear me tell him how much I love him.
+- [07:18.400] And now with Regeneron and this amazing surgery,
+- [07:21.310] he can listen to music, and he loves it,
+- [07:23.490] he loves to dance and he loves instruments.
+- [07:26.200] And I'm so proud of him,
+- [07:28.240] he's been so brave through all of this.
+- [07:30.260] And yeah, now he can hear
+- [07:31.590] and he has a bright future ahead of him.
+- [07:33.690] And I'm so thankful to everybody on the Regeneron team.
+- [07:37.150] The President: That's incredible.
+- [07:39.410] I mean, even the fake news has to be impressed with this.
+- [07:43.630] They'll find a way to make it a bad story.
+- [07:46.460] He doesn't hear it perfectly, but he actually does.
+- [07:49.660] It's about one percent off, they'll figure a way.
+- [07:53.360] How are you going to do it? You've got to explain.
+- [07:55.050] No, they're genius.
+- [07:56.480] They are genius; I respect them a lot.
+- [07:58.840] But I just want to thank you, Sierra.
+- [08:00.500] That's incredible, really.
+- [08:01.960] Sierra Smith: Thank you for having us.
+- [08:03.170] The President: He's a beautiful person, too.
+- [08:04.780] That's a beautiful boy.
+- [08:06.040] Sierra Smith: Thank you.
+- [08:07.280] The President: Hi. Sierra Smith: Thank you.
+- [08:10.470] The President: His life is a happier life?
+- [08:12.180] Sierra Smith: Oh, yeah, he is so full of energy
+- [08:14.230] and love now, and he was such a serious baby.
+- [08:16.420] The President: Such a difference.
+- [08:17.720] Sierra Smith: Yeah, he was such a serious baby --
+- [08:19.230] The President: And before that it was --
+- [08:20.450] he didn't -- it's very tough for babies.
+- [08:22.090] Sierra Smith: Oh, for sure.
+- [08:23.330] He can't tell me what he wants or what he wants to eat
+- [08:25.830] or what he needs and now he'll be able to do that.
+- [08:29.040] It's life changing.
+- [08:30.380] The President: That's a great job they've done.
+- [08:32.260] I want to thank Regeneron
+- [08:33.530] and other companies for doing their part
+- [08:35.640] to bring down the cost of health care for all Americans.
+- [08:38.590] Under our Most Favored Nations agreement
+- [08:40.950] we've secured gigantic discounts with price differences
+- [08:44.610] from four to five percent and even 600 percent --
+- [08:47.930] 600 percent.
+- [08:50.220] One of the most popular weight loss drugs
+- [08:52.100] has gone from $1,350 a month to as low as $199 a month.
+- [08:59.330] So, that's a price that's incredible.
+- [09:02.000] So, it used to sell in London for $87,
+- [09:05.740] and they raised it to $199,
+- [09:08.630] which is a big raise, going from $87 to $199.
+- [09:13.810] But that's been going on --
+- [09:15.180] our country has been being ripped off for 30 years.
+- [09:17.370] How long would you say, Doug?
+- [09:18.780] Like 30, 40 years for years with drugs and drug prices.
+- [09:24.000] So, they're going up, we're going way down and,
+- [09:27.320] because the world is a bigger place than we are --
+- [09:29.560] believe it or not, it's hard to believe that but they are --
+- [09:33.260] we go down much more than they go up.
+- [09:35.050] So, they don't go up as much as people would have thought.
+- [09:37.980] So, they're going from -- they're going to $199
+- [09:41.620] and we're going down -- all the way down.
+- [09:44.000] Think of that --
+- [09:45.250] we're going down from $1,350 a month to $199.
+- [09:51.790] That's -- nobody would believe it.
+- [09:53.870] And this is true with all --
+- [09:55.070] I mean, this is the weight loss drug.
+- [09:57.910] But this is true with all drugs.
+- [10:01.310] Sometimes even more of a difference than that,
+- [10:03.200] sometimes a little bit less,
+- [10:04.420] but sometimes substantially more than even that difference
+- [10:07.340] and you see what that is. So, we cut the per cycle
+- [10:10.810] cost of IVF drugs by thousands of dollars,
+- [10:14.560] and we reduced the price of the major COPD medication
+- [10:18.400] from $458 to $50. What?
+- [10:25.610] That must be a typo. Is that a typo?
+- [10:29.410] From $458 to $50.
+- [10:33.320] If your boy was here, he'd go, wow.
+- [10:36.210] Unless he got bored.
+- [10:37.420] I think he wants to go into bigger and better things,
+- [10:41.040] but there's nothing bigger or better than this.
+- [10:43.620] They'll all be available right now at TrumpRx.gov.
+- [10:46.640] So, that's why it's doing well.
+- [10:48.510] It's not doing well for other reasons, it's doing well --
+- [10:51.250] think of that, that's some discount, but we have others.
+- [10:54.140] And these are all top companies and top medications,
+- [10:57.520] and I think in the end we're going to have
+- [10:59.110] every company involved. We're almost there right now,
+- [11:01.610] but we're going to have every company involved.
+- [11:04.100] TrumpRx has already received more than 15 million visitors,
+- [11:07.580] and every American should log on to check for massive discounts
+- [11:11.220] before they go to the pharmacy.
+- [11:13.220] It's setting a record; nobody's ever seen anything like this.
+- [11:16.260] I've actually had many companies --
+- [11:18.030] I shouldn't tell you this, Bobby,
+- [11:19.990] but there have been many companies,
+- [11:21.270] they'd say we'd like to buy from you if you could.
+- [11:23.760] What? TrumpRx.com.
+- [11:25.780] I said it's not for sale; it's not me, it's the government.
+- [11:28.240] The government owns it; I don't own it.
+- [11:30.630] But they're all impressed, these pharmaceutical companies,
+- [11:32.930] they said they've never seen anything like this.
+- [11:35.010] So, it's fantastic.
+- [11:36.250] Now, I'd like to ask Secretary Kennedy
+- [11:38.580] to say a few words and then we'll have Dr. Oz,
+- [11:42.830] the team at Regeneron and Sierra --
+- [11:45.900] and, Sierra, I'm so happy for you -- and Chris.
+- [11:48.970] Chris Klomp has been unbelievable, a real star.
+- [11:51.610] You don't know his name as much as some of the others,
+- [11:53.700] but he's a real star of the group.
+- [11:56.980] So, Bobby, please thank you.
+- [11:59.830] Secretary Kennedy: Thank you, Mr. President.
+- [12:01.420] I was reminded when the President was speaking
+- [12:04.580] of a conversation that I had yesterday
+- [12:06.630] with one of the Democratic Senators
+- [12:09.630] who was questioning me during a hearing,
+- [12:11.540] and she was ridiculing President Trump for his math.
+- [12:14.430] And she was saying, it's mathematically impossible
+- [12:18.070] to have a drug drop by 600 percent cost,
+- [12:22.120] which he had claimed.
+- [12:24.000] And I said, well, if the drug was $100
+- [12:26.720] and it raised the price of $600,
+- [12:29.290] that would be a 600 percent rise.
+- [12:31.910] If it drops from $600 to $100, that's a 600 percent savings.
+- [12:37.360] And the President used that mathematical device
+- [12:41.750] to illustrate the magnitude of the theft
+- [12:45.420] that has been happening against our country and our people.
+- [12:48.780] As he said, we have 4.2 percent of the world's population.
+- [12:53.440] We take 13 percent of the pharmaceutical drug.
+- [12:57.070] We spend 80 percent of the biotechnology research
+- [13:01.090] in our country,
+- [13:02.340] and we provide 75 percent of the profits
+- [13:04.890] to the pharmaceutical industry.
+- [13:07.310] This is a rip off that has irked him for 20 years.
+- [13:12.500] During his first term, he held the line on drug prices
+- [13:15.750] for the first time in history.
+- [13:18.070] He came back on this term and he said,
+- [13:19.910] we're going to lower them this time no matter what.
+- [13:22.810] There's people in this room who are part of the White House
+- [13:25.790] who said we can't do that.
+- [13:28.540] Oz and I said, we probably can't do that.
+- [13:30.910] But he harassed us, we were beleaguered.
+- [13:34.050] It was like Fort Apache.
+- [13:37.030] Dr. Oz would not answer his phone
+- [13:40.620] because I'm calling all night long with the President
+- [13:43.030] on the line saying, get this done.
+- [13:46.170] And we brought in this amazing superstar, Chris Klomp,
+- [13:49.550] and he negotiated these agreements
+- [13:53.470] that people said were impossible.
+- [13:56.100] I want to thank him for his leadership, Chris,
+- [13:58.530] and I want to thank George and Lynne
+- [14:01.160] who are the co-founders of this company, of Regeneron.
+- [14:06.490] Their generosity, their idealism,
+- [14:08.500] their love of this country and their compassion
+- [14:11.100] for these children who are injured.
+- [14:12.440] Thank you.
+- [14:13.670] The President: Thank you, Bobby. Amazing.
+- [14:15.090] It is amazing, and you're right, I took a lot of heat.
+- [14:16.930] I'd say 500, 600, 700.
+- [14:19.290] But we also say sometimes 50 percent, 60 percent,
+- [14:23.000] a different kind of calculation --
+- [14:25.470] 70, 80 and 90 percent,
+- [14:27.580] and people understand that better.
+- [14:29.510] But there are two ways of calculating it.
+- [14:31.410] But either way, it doesn't make any difference
+- [14:33.850] whether it's 60, 70, or 80 percent,
+- [14:35.840] nobody's ever heard of it. But it's also 500, 600, 700,
+- [14:40.000] depending on the way you want to look at it.
+- [14:41.650] So the way -- the way you word the calculation,
+- [14:45.310] it's either one.
+- [14:46.570] But Bobby, you're doing a fantastic job.
+- [14:49.460] We wanted somebody out of the box and we got him, right?
+- [14:52.670] I would say we got him, in Bobby.
+- [14:54.530] He's a great guy, actually.
+- [14:56.960] So Oz, how about saying a few words, please?
+- [15:00.470] Administrator Oz: So this has been an unprecedented process.
+- [15:03.340] The President insisted we deal with one critical number
+- [15:05.290] you should all remember,
+- [15:06.520] which is that one in three Americans,
+- [15:08.070] when they go to the drugstore, after they've seen a doctor,
+- [15:10.590] will often leave empty-handed
+- [15:11.850] because they cannot afford the medications they're picking up.
+- [15:14.880] So affordability was the main word
+- [15:16.630] the President would use in many of those phone calls.
+- [15:19.420] He wanted it to be done fairly.
+- [15:21.530] We created a partnership with the pharmaceutical industry
+- [15:24.490] that was remarkable,
+- [15:25.950] in that it pushed 17 massive companies into the fold
+- [15:30.430] to try to do deals.
+- [15:31.750] Again, unprecedented, that would allow us to claim
+- [15:34.800] that they were giving the most favored nation
+- [15:36.430] pricing to this country, to the American people.
+- [15:38.850] The President would not take no for an answer.
+- [15:40.460] We got 16 companies in, but not the 17th.
+- [15:45.060] How many times do you think we spoke about the 17th company?
+- [15:47.050] Administrator Oz: Too much.:
+- [15:48.290] 17. He said 17. He wanted it to be 17.
+- [15:50.720] Whatever math you want to make, 16 is not 17.
+- [15:53.700] There's a reason that the 17th company was delayed.
+- [15:55.490] It's why they're here today.
+- [15:56.750] It's that beautiful, young boy you saw earlier,
+- [15:59.040] when you can save a child's hearing.
+- [16:00.520] And, Mr. President, we talked about a lot of numbers.
+- [16:02.920] Secretary Kennedy quoted 100 -- 100 percent, 600 percent.
+- [16:06.150] It's hard to beat free. Free is the best price
+- [16:08.880] and that's the starting price with the President oftentimes
+- [16:11.600] and that's what this wonderful companies agreed to.
+- [16:13.770] I want to applaud trumprx.gov, a remarkable site
+- [16:18.110] created by Joe Gebbia. And (Inaudible)
+- [16:19.920] has done a wonderful job with zero glitches,
+- [16:22.560] serving more than 10 million individual,
+- [16:24.930] unique Americans so far.
+- [16:26.170] And Mr. President,
+- [16:27.520] it's the fastest website I've ever seen.
+- [16:28.860] People love it because it works well.
+- [16:30.640] There's all kinds of additional elements
+- [16:33.680] being added to it, which we'll be talking about.
+- [16:35.320] But this website, as the President said,
+- [16:37.270] must be checked,
+- [16:38.590] must be checked if you're going to buy a medication,
+- [16:41.220] to make sure your price is the right price.
+- [16:42.960] It's a transparency site that is more rigorous
+- [16:45.330] than anything that I have seen.
+- [16:46.870] And Mr. President, your name is attached to it
+- [16:48.950] and, of course, that brings a tremendous amount
+- [16:50.560] of attention to it. We want it to be perfect.
+- [16:53.090] And the team who did that has accomplished that exactly.
+- [16:55.540] I want to applaud Chris because you cannot thank him enough,
+- [16:57.860] but it was also John Brooks,
+- [16:59.120] (Inaudible) Hernandez.
+- [17:00.360] I see Beth back there Theo, (Inaudible)
+- [17:02.820] a bunch of people who've done a tremendous amount of work.
+- [17:05.000] And what I keep hearing from the pharmaceutical industry,
+- [17:06.890] maybe my colleagues can address it in your comments,
+- [17:09.390] they never expected to have a counterparty
+- [17:11.480] as qualified in the federal government.
+- [17:13.330] If you're thinking of serving your nation,
+- [17:14.760] this is the right time to do it
+- [17:15.980] this is the right administration to serve him
+- [17:17.630] because the President makes it easy to do the right thing.
+- [17:20.880] Gentlemen?
+- [17:23.770] Leonard Schleifer: Thank you, Mr. President,
+- [17:25.610] Secretary Kennedy, Secretary Lutnick,
+- [17:27.930] Commissioner Makary, Administrator Oz,
+- [17:31.190] and I guess Superstar Klomp thanks
+- [17:34.360] for having us here on behalf of all of Regeneron.
+- [17:36.910] For those of you who don't know me,
+- [17:38.180] I'm Dr. Len Schleifer, president and CEO of Regeneron
+- [17:41.540] and with me is Dr. George Yancopoulos,
+- [17:43.860] president and chief scientific officer of Regeneron.
+- [17:47.240] And together, we're -- I should pause there.
+- [17:49.170] I just realized something.
+- [17:50.730] I'm a president, he's a president,
+- [17:53.010] he's a president,
+- [17:54.270] and all three of us grew up in Queens, New York.
+- [17:56.870] The President: That's right.
+- [17:58.140] Leonard Schleifer: So there's something maybe
+- [17:59.440] that was going on back then that was good.
+- [18:01.950] The President: That's right.
+- [18:03.240] Leonard Schleifer: I'm not sure about now.
+- [18:04.560] So anyway --
+- [18:06.310] The President: That's also true.
+- [18:08.370] Leonard Schleifer: Together, we founded --
+- [18:09.920] George and I founded Regeneron
+- [18:11.740] and it built it over the past four decades.
+- [18:14.550] Today, we are here -- we were not pushed to be here.
+- [18:17.780] We are happy to be here
+- [18:19.360] because it marks an important step to lower drug prices.
+- [18:23.200] We've been arguing for more than a decade
+- [18:25.830] that other wealthy nations
+- [18:27.180] have been getting a free ride on American innovation.
+- [18:30.890] Just like in defense,
+- [18:32.600] but they've been getting in health defense, a free ride.
+- [18:36.210] And now, President Trump is putting policies in place
+- [18:39.150] to force these nations to pay their fair share,
+- [18:41.960] which will in turn lower prices for Americans.
+- [18:45.180] It's a good deal.
+- [18:46.870] But we have to remember this is just the beginning.
+- [18:49.350] The most important battle we all face is disease itself.
+- [18:53.420] We have to recognize how hard this fight is.
+- [18:56.510] For most major diseases that you or your loved
+- [18:59.070] one might suffer from,
+- [19:00.530] like Alzheimer's disease to cancers,
+- [19:02.750] to genetic diseases, we are very far away from a cure,
+- [19:07.450] and we have to understand that discovering cures
+- [19:10.140] is perhaps the hardest scientific challenge humans
+- [19:13.260] undertake,
+- [19:14.810] much harder than getting to the moon,
+- [19:16.570] not that we don't like that,
+- [19:18.300] but much harder than getting to Mars
+- [19:20.230] or making the next generation of cell phones or electric cars.
+- [19:24.340] Hard like staring into the unknown for years,
+- [19:27.370] sometimes decades, with no guarantee
+- [19:29.870] that anything you're doing will ever make a difference
+- [19:33.300] for somebody like Travis. Regeneron is a great example
+- [19:37.200] of both the difficulty of the challenge,
+- [19:39.310] but also of the potential reward.
+- [19:42.040] We spent 25 years, 25 years and billions of dollars,
+- [19:47.050] not millions, billions of dollars,
+- [19:49.650] before we produced our first important medicine
+- [19:54.500] or even earned our first profit.
+- [19:56.130] Maybe we would have --
+- [19:57.350] should have been or might have been fired,
+- [19:59.100] but we stuck with it.
+- [20:00.770] We -- our relentless commitment to disruptive innovation
+- [20:04.620] ultimately turned us into one of the most productive
+- [20:06.870] biotechnology companies in history.
+- [20:10.220] We have produced, thanks to George and his team,
+- [20:13.210] new medicines at the rate of about one important medicine
+- [20:16.160] a year for the last 15 years,
+- [20:18.570] including truly miraculous advances,
+- [20:21.250] impacting millions of lives.
+- [20:23.330] And we have two people here who are living proof,
+- [20:26.930] Mr. President, when you were ill with COVID,
+- [20:30.290] it was Regeneron's monoclonal cocktail
+- [20:33.240] that you affectionately dubbed the Regeneron.
+- [20:35.760] We love it. And that helped save your life.
+- [20:38.770] That was invented by George, right here, and his team.
+- [20:42.280] George?
+- [20:44.220] George Yancopoulos: Well, in addition to the President,
+- [20:46.160] we had a few minutes ago, Sierra's beautiful boy, Travis,
+- [20:50.580] who was born without the ability to hear,
+- [20:53.610] as you heard from Sierra. And the same company
+- [20:56.700] and the same dedicated team of scientists
+- [20:59.110] that helped save the President's life,
+- [21:02.760] also delivered a first of its kind gene therapy
+- [21:06.480] known as (Inaudible)
+- [21:08.070] so Travis can now hear his mother, as she told you,
+- [21:11.380] tell him that she loves him.
+- [21:13.900] Hard to think of a greater gift.
+- [21:16.130] And just like you, Mr. President,
+- [21:18.040] who made our antibody treatment for COVID free for all Americans
+- [21:22.540] and thus saved many lives, we have made the decision,
+- [21:26.020] the unprecedented corporate commitment
+- [21:28.470] to provide this first of its kind gene therapy
+- [21:31.770] for hearing loss free to all the children
+- [21:34.600] in the United States who can benefit from it.
+- [21:37.610] And we do this, one, to hopefully highlight
+- [21:41.090] the power of disruptive biotech innovation
+- [21:45.150] and all the good that it can bring
+- [21:47.390] to all of our lives and our health.
+- [21:50.780] But we have to remember, despite the miraculous advances,
+- [21:54.160] like (Inaudible)
+- [21:55.560] and like the regenerative COVID treatment,
+- [21:57.860] we also have to highlight how far we have yet to go
+- [22:00.620] to address the many diseases that lack effective treatments.
+- [22:04.320] And the cures will not be coming
+- [22:06.860] unless we not only celebrate the advances
+- [22:09.250] of the biopharma industry today, but we all work together,
+- [22:13.970] private sector together with the government,
+- [22:17.280] to not only maintain America's position
+- [22:19.470] as world leaders in biotech innovation,
+- [22:21.820] but to actually bump up innovation
+- [22:24.820] and become even more disruptive, especially in a world
+- [22:28.990] where China is increasing investment
+- [22:31.640] and heavily subsidizing its biotech industry
+- [22:34.450] and reducing regulatory hurdles so
+- [22:36.690] as to try to displace America's leading position.
+- [22:40.450] President Trump's efforts to make drugs more affordable,
+- [22:44.130] as well as new FDA programs
+- [22:46.570] such as the commissioners voucher program
+- [22:48.890] that brings safe and effective new medicines like
+- [22:51.620] (Inaudible)
+- [22:52.930] to patients more quickly, these are important steps.
+- [22:57.930] One additional important way
+- [23:00.050] that I've been talking to the administration about,
+- [23:02.210] to maintain our leading position in the world
+- [23:04.650] is to create catalysts and accelerants for our industry
+- [23:08.510] and for the health care system,
+- [23:10.070] such as developing a national health care database
+- [23:13.150] linked to molecular data, including human sequence data,
+- [23:17.170] where Regeneron once again is a world leader.
+- [23:19.850] Without such big data sets,
+- [23:21.890] powerful new technologies such as AI,
+- [23:24.860] despite its potential,
+- [23:26.370] will not be as useful as it could be in the quest
+- [23:29.040] to develop new medicines and improve health care.
+- [23:32.050] The biopharma industry of America has
+- [23:34.710] and will continue to deliver miraculous breakthrough.
+- [23:37.410] You, Mr. President,
+- [23:39.190] and young Travis are living testaments of that,
+- [23:42.580] but many more lives need to be helped and saved.
+- [23:45.600] We need to attain a new level of disruptive innovation.
+- [23:49.410] We have to all work together to meet this challenge.
+- [23:52.430] Why? Because lives are at stake.
+- [23:55.880] Leonard Schleifer: Let me briefly say something.
+- [23:57.630] I'm married to a lawyer, my son is a lawyer
+- [23:59.960] but I'm going to talk about the Constitution
+- [24:01.880] and I'm not an expert.
+- [24:03.400] But I know our Constitution lays out a vision
+- [24:06.130] on how America would out-innovate, outproduce,
+- [24:09.360] out-thrive every other nation on earth.
+- [24:12.550] And in it, you will find a description of a system
+- [24:15.930] built on incentive and reward,
+- [24:18.300] a system that says take the risk, do the work,
+- [24:22.090] and you will share in what you create.
+- [24:24.260] That is why they enshrined patent protection
+- [24:26.870] directly in the Constitution,
+- [24:28.930] not as an afterthought, but as a founding principle.
+- [24:32.430] As Abraham Lincoln said, another great president,
+- [24:36.750] patents add the fuel of interest to the fire of genius.
+- [24:41.830] We must keep that fire burning.
+- [24:44.000] What we did here today will do that.
+- [24:46.480] Little Travis can now hear for the first time,
+- [24:49.880] and his potential is endless.
+- [24:52.130] Let's make sure he grows up in a country
+- [24:54.680] that never stops reaching for the next miracle.
+- [24:57.440] Thank you, Mr. President.
+- [24:58.740] The President: Thank you. It's great to be with you again.
+- [25:01.590] Chris, could you say a few words, please?
+- [25:03.370] Chris Klomp: Thank you, Mr. President.
+- [25:05.070] It's not lost on me that this year is America 250.
+- [25:08.660] And it's powerful, I think, to pause
+- [25:11.110] and remember that 250 years ago,
+- [25:13.820] a revolutionary free republic was born,
+- [25:16.080] and with it, the greatest innovation engine
+- [25:18.240] in the history of humanity.
+- [25:20.080] And we stand here today, 250 years later,
+- [25:22.770] getting to witness yet another groundbreaking innovation
+- [25:26.460] that doesn't just treat, but cures deafness in children.
+- [25:30.090] And because of this president and his policies
+- [25:32.390] around Most Favored Nation, will enable families
+- [25:35.110] who are struggling and suffering with this affliction
+- [25:37.860] to have access to that groundbreaking therapy for free.
+- [25:41.440] Now, as the President mentioned,
+- [25:43.200] we've negotiated the 17th of 17 agreements.
+- [25:46.430] This represents 86 percent
+- [25:48.480] of the branded pharmaceutical drug market
+- [25:50.950] in the United States.
+- [25:52.580] But anyone who knows us knows that we're not done;
+- [25:55.290] that's a milestone, it's not the finish line.
+- [25:57.680] And so, we have three core objectives that are next up.
+- [26:01.290] Number one, and this is already underway,
+- [26:03.580] we are negotiating with the many hundreds of biotechnology
+- [26:06.650] and pharmaceutical companies representing
+- [26:08.200] that other 14 percent that are building the cures for tomorrow.
+- [26:13.100] To all those who are listening,
+- [26:14.980] I hope that we have proven that we are credible
+- [26:17.330] and reliable and trustworthy partners.
+- [26:19.300] We want to sit with you, we will listen to you,
+- [26:21.710] we will take the time to understand your businesses,
+- [26:24.020] not only as we negotiate
+- [26:25.300] on behalf of every American family for affordability,
+- [26:28.190] but also to ensure that you're best positioned
+- [26:30.970] to create the cures for tomorrow.
+- [26:32.770] Second, we continue our work
+- [26:34.970] on negotiating international trade agreements.
+- [26:37.670] 59 days after we stood in this office,
+- [26:39.770] and President Trump, standing with Albert Bourla from Pfizer,
+- [26:42.600] announced the first of the 17 MFN deals,
+- [26:45.830] together with our colleagues from the Department of Commerce
+- [26:48.140] under Secretary Lutnick's leadership,
+- [26:49.750] and from the US Trade Representative Office
+- [26:52.070] under the leadership of Ambassador Greer,
+- [26:54.250] we negotiated a landmark agreement
+- [26:55.880] with the government of the United Kingdom
+- [26:57.490] in which they agreed to increase significantly the amount
+- [27:00.580] that they spend on branded pharmaceuticals
+- [27:02.390] for the first time in 26 years.
+- [27:04.550] That work continues with other countries.
+- [27:07.280] And third, we will continue our work
+- [27:11.010] with our partners in Congress to codify the principles
+- [27:13.620] that underpin these Most Favored Nation deals,
+- [27:16.360] so that these savings for American families
+- [27:18.780] and this innovation that is unleashed
+- [27:21.100] at the same time persists for decades to come.
+- [27:23.730] So that the one in three or four families that Dr. Oz mentioned,
+- [27:27.240] standing at a pharmaceutical counter
+- [27:28.610] or pharmacy counter right now, wrestling with the decision
+- [27:31.370] that no family should have to make of whether or not
+- [27:33.430] they can pick up their prescription
+- [27:34.790] because they can't afford it, will no longer be the case.
+- [27:37.370] And at the same time, we know that there are roughly 20,000
+- [27:40.530] known diseases in the world, and we have a treatment
+- [27:42.750] or a cure for fewer than a quarter of those.
+- [27:45.530] And so, this president and his policies
+- [27:47.710] is not only safeguarding affordability
+- [27:49.270] for American families
+- [27:50.620] but is ensuring that we continue to bet
+- [27:52.790] on American exceptionalism, we bet on innovation,
+- [27:56.300] we bet on the principles that have taken us
+- [27:57.930] to this place in 250 years, for the next 250 years.
+- [28:02.180] Thank you, Mr. President.
+- [28:03.410] The President: Thank you, Chris. Great job you do.
+- [28:05.460] Maybe you want to talk about rescheduling
+- [28:07.250] while we're here, just say what you're doing
+- [28:09.630] and the progress that you've made.
+- [28:11.850] Unidentified: Well, Mr. President,
+- [28:13.080] today is another promise made, promise kept day.
+- [28:16.630] On December 18th, you signed an executive order
+- [28:18.680] on increasing medical marijuana and cannabidiol research
+- [28:23.250] and today we delivered on that promise.
+- [28:25.130] The acting attorney general this morning
+- [28:26.700] signed an order that moves
+- [28:28.540] into Schedule 3 medical marijuana products
+- [28:31.460] that are FDA approved or that are state licensed.
+- [28:34.440] This is a giant move forward to implement your promise,
+- [28:37.300] and it's actually a campaign promise that you made.
+- [28:39.150] You said, we're going to move in a Schedule 3
+- [28:40.810] to increase the research on these medical products.
+- [28:44.440] And just wanted everyone to know
+- [28:46.140] that when you make promises, you keep them.
+- [28:48.640] And two, what does Schedule 3 mean
+- [28:50.740] for state licensed medical marijuana products?
+- [28:53.910] We will begin implementation right away of this order.
+- [28:57.330] It does not legalize marijuana,
+- [29:00.100] it makes it easy for the researchers
+- [29:02.170] to actually study and understand medical marijuana,
+- [29:05.290] especially in populations that are using it.
+- [29:07.200] We know that one in 10 seniors
+- [29:08.650] right now used medical marijuana in the past year
+- [29:12.860] and they report that it really helps them.
+- [29:14.950] But we don't have the science or the understanding
+- [29:16.880] to guide the patients and the doctors.
+- [29:18.580] And so, both patients and doctors are flying blind
+- [29:21.390] without knowing how they interact with other medications,
+- [29:23.780] because the research has been difficult to do.
+- [29:25.540] And so, your promise today
+- [29:27.270] says those state licensed medical marijuana products
+- [29:29.290] are now in Schedule 3.
+- [29:30.510] And we expect the research to significantly increase
+- [29:33.320] so that we can understand
+- [29:34.660] how to guide patients and doctors in this effort.
+- [29:37.230] And there will be additional actions
+- [29:38.770] that will come this summer
+- [29:40.040] to do an expedited hearing for the administrative --
+- [29:43.030] an administrative hearing at the Department of Justice
+- [29:45.550] for all of marijuana to move into Schedule 3.
+- [29:49.650] The President: And the military is very happy about it
+- [29:51.590] and a lot of people suffering from big problems,
+- [29:54.650] which this seems to be the best answer,
+- [29:57.040] they're very happy about it. So, the rescheduling is starting
+- [29:59.780] and that's a big thing, rescheduling.
+- [30:02.130] They kept saying, what about the rescheduling?
+- [30:04.450] And so, great job, I appreciate it.
+- [30:06.310] I want to thank Mr. and Mrs. Howard Kessler.
+- [30:10.180] He's one of the most successful men in the world actually.
+- [30:14.050] And he had some medical difficulties,
+- [30:16.960] and he came upon this by accident in a way.
+- [30:20.880] He said, well, he had to go through
+- [30:23.140] a lot of different medications, and he said this was the one
+- [30:28.540] that was much better than anything else.
+- [30:30.950] And so, he experienced it.
+- [30:32.830] He didn't benefit by it other than from the standpoint
+- [30:35.540] that he lives a much better life now.
+- [30:38.370] So, hopefully you don't need it, but if you do need it,
+- [30:43.360] I hear it's the best of all the alternatives.
+- [30:45.230] But I want to thank Howard Kessler and Michelle Kessler,
+- [30:49.270] they really pushed us very hard.
+- [30:51.420] These are two people, very straight arrows,
+- [30:53.720] they're not into marijuana, they're not into anything.
+- [30:56.080] But he found this answer
+- [30:58.320] and he said he's doing it for other people.
+- [31:02.380] And so, Howard and Michelle, probably they're watching
+- [31:04.910] or they'll be hearing about it.
+- [31:06.270] But they worked very hard to get this done and it's an honor.
+- [31:11.100] And you've done fantastically, you all have,
+- [31:12.830] and I appreciate it.
+- [31:14.200] A man who's doing an excellent job as Howard Lutnick,
+- [31:16.900] he's in a little different sphere.
+- [31:18.210] He's not in the medical sphere, but he knows what it all means.
+- [31:21.650] And from commerce, he's the Secretary of Commerce, Howard,
+- [31:25.760] would you say a few words, please?
+- [31:27.260] Howard Lutnick: Sure, so in partnership
+- [31:29.870] with Bobby Kennedy and Mehmet Oz
+- [31:33.000] and the whole team, when they do Most Favored Nation,
+- [31:35.800] we also ask the company to reshore
+- [31:39.140] and build their drugs here in America.
+- [31:41.220] Because too many of our drugs, our key drugs for our health,
+- [31:45.640] are being made overseas
+- [31:47.240] and, in a conflict, we can't rely upon them.
+- [31:49.730] And I'm honored to say that our partners from Regeneron
+- [31:52.900] have agreed to reshore their production
+- [31:57.240] of pharmaceutical drugs --
+- [31:58.450] and this is exactly from your pharmaceutical tariffs.
+- [32:01.200] That's the point.
+- [32:02.430] So, that means $448 billion of drug manufacturing
+- [32:09.820] is coming to America because of your tariffs,
+- [32:13.130] because of your pharmaceutical strategy.
+- [32:15.910] And we are proud to invite Regeneron
+- [32:18.750] to do this giant build in America
+- [32:20.830] and all the rest of the pharmaceutical companies.
+- [32:22.770] They've committed to build in America
+- [32:25.350] because of your tariff policy and your strategy.
+- [32:29.050] The President: And because of the tariffs we have --
+- [32:30.700] it's been amazing, actually --
+- [32:32.020] we have Eli Lilly and Pfizer and all of the companies.
+- [32:34.820] We had, I guess, seven of them here at one time,
+- [32:37.170] which was interesting to see,
+- [32:38.510] but they actually got along with each other pretty well.
+- [32:41.140] They stood right behind me,
+- [32:42.410] the biggest companies in the world,
+- [32:43.810] and they're all building.
+- [32:45.890] Eli Lilly is building, I think, five major plants,
+- [32:49.880] which without tariffs they would have built none.
+- [32:51.850] I said, how many would you build without? None.
+- [32:55.060] They were all making these products in other countries,
+- [32:57.650] a lot of other countries actually, not just China,
+- [32:59.730] but a lot of other countries.
+- [33:01.000] And I think by the time I leave office;
+- [33:03.530] they'll be mostly operating --
+- [33:07.570] they have an incentive to do them quickly.
+- [33:09.100] A big incentive, like the tariffs go up if they don't.
+- [33:12.680] And remember, if they do them here,
+- [33:14.120] they don't have any tariffs to pay.
+- [33:16.070] It's an incredible incentive. And if they don't do them here,
+- [33:18.380] they have a very substantial tariff,
+- [33:20.320] so they get penalized. And it's bringing countries --
+- [33:23.210] not only drug companies but car companies.
+- [33:26.210] AI is a different thing altogether,
+- [33:28.090] but even there, but the AI is. We're leading China in AI.
+- [33:31.870] We're leading everybody in AI.
+- [33:34.100] We're leading now in car companies.
+- [33:35.880] They're coming from Canada,
+- [33:37.190] they're coming from Mexico, Germany, Japan.
+- [33:40.120] They're pouring into our country because of our very smart --
+- [33:43.410] should have been done long ago by other presidents.
+- [33:46.360] We were the car capital of the world 50 or 60 years ago,
+- [33:49.610] and then they just started taking them away.
+- [33:52.060] We were the chip capital of the world and now --
+- [33:54.500] you know, Intel -- and now they're coming back,
+- [33:58.650] all the chip companies are coming back.
+- [34:00.920] You might say a word about that, Howard, real fast,
+- [34:02.800] because we are -- what we're doing with chips is incredible.
+- [34:05.220] And all we're doing is saying at the end of a year
+- [34:08.750] and a half, two years,
+- [34:09.960] if you don't have your chip company,
+- [34:11.160] you're going to pay a tremendous tariff
+- [34:12.660] to put chips into this country. And they are building --
+- [34:15.590] I think we'll have close to 50 percent
+- [34:17.140] of the chip market very soon.
+- [34:18.540] Right now we had nothing, we had virtually nothing.
+- [34:21.490] And they're coming in from Taiwan,
+- [34:23.490] they're coming in -- mostly from Taiwan
+- [34:25.140] because that's where chips are made,
+- [34:26.920] but mostly from South Korea, Taiwan, various other countries,
+- [34:29.900] but they're coming back to America.
+- [34:31.170] We're bringing them all back. It's a revolution.
+- [34:34.100] Nobody's ever seen what we've done;
+- [34:35.850] there's never been anything like what we've done.
+- [34:37.430] We have $18 trillion being invested, that's for 11 months.
+- [34:41.360] And the last administration had less than $1 trillion
+- [34:44.070] in four years.
+- [34:45.430] We have, in 11 months, over $18 trillion.
+- [34:49.350] Howard, do you want to talk just for a second
+- [34:50.980] about the chip market? Because it's -- it's explosive.
+- [34:54.010] Howard Lutnick: Sure. So you've got semiconductors.
+- [34:55.890] You've got leading-edge logic.
+- [34:58.110] You've got high bandwidth memory,
+- [35:00.140] and you have foundational chips.
+- [35:01.960] And America had a couple of points,
+- [35:04.730] three or four percent market share
+- [35:06.720] and we are, of course, the biggest demand.
+- [35:08.930] And the President gave the order,
+- [35:10.470] let's get these factories, these fabs built in America.
+- [35:15.470] And our expectation is we will have $1 trillion of these fabs,
+- [35:20.910] these are factories, this is not the hyperscalers buying chips.
+- [35:25.540] This is literally the making of the chips, right?
+- [35:29.130] We had Micron, $200 billion; TSMC, $165 billion.
+- [35:33.650] The list goes on and on.
+- [35:35.560] He negotiated a great deal with Taiwan,
+- [35:38.130] $500 billion coming to America.
+- [35:40.980] We'll have $1 trillion of semiconductors.
+- [35:43.260] That's part of his $18 trillion
+- [35:45.000] but it's foundational for us to take care of ourselves.
+- [35:49.100] The President: Well, thank you very much.
+- [35:50.340] Now, we'll go off subject for a minute, but it's --
+- [35:53.650] I think it's really interesting
+- [35:54.940] and I hope you go home and take a look,
+- [35:56.330] because it's happening right now, as we speak.
+- [35:59.990] But first if you look outside, so we had flooring outside,
+- [36:05.060] we had slate and it was coming to pieces.
+- [36:08.760] It's been there since the early 1940s,
+- [36:11.650] and it's a path to the Oval Office.
+- [36:14.020] It's a path to the West Wing and it was terrible.
+- [36:15.960] It was broken, bad shape.
+- [36:18.480] The whole White House has been in bad shape.
+- [36:20.460] It's been -- it's right now in better shape than it is --
+- [36:23.240] well, I think the day they built it,
+- [36:25.140] this is better right now,
+- [36:26.460] but we're putting magnificent new granite.
+- [36:29.790] It's called charcoal.
+- [36:32.090] It's a black granite, against the white --
+- [36:34.700] beautiful white walls.
+- [36:36.630] Uh, we've stripped all of the paints off.
+- [36:38.440] We had 200 years of paint and we've redone it
+- [36:42.420] and it's beautiful. And you can see the building,
+- [36:44.570] but you can also see the columns, everything else.
+- [36:46.670] But we're replacing --
+- [36:48.140] and they're working right outside,
+- [36:49.470] if the press wants to go
+- [36:50.730] and take a look at what they do, really pros.
+- [36:53.240] You see the (Inaudible)
+- [36:54.480] large slabs of black granite. Granite is rated as --
+- [36:59.150] this particular granite, over a million year life.
+- [37:02.950] As an example, concrete gets rated for about 200 years,
+- [37:06.030] if you get very high grade.
+- [37:07.440] This is over -- it's rated over, can you imagine,
+- [37:09.540] nature produces something better than you can make,
+- [37:11.880] so it's very interesting.
+- [37:13.540] It's a beautiful job they're doing,
+- [37:14.820] and it's a highly polished granite in the areas
+- [37:18.190] you don't walk on. And it's called flame finished.
+- [37:22.640] The areas that you do walk on, there's no slip.
+- [37:25.150] So it's a beautiful job and it's going up nicely.
+- [37:28.080] And if you want to take a look outside the window.
+- [37:29.770] So that's replacing a stone that was here from the early 1940s,
+- [37:34.590] a little before that.
+- [37:36.110] And you'll see the ramp too.
+- [37:37.890] We're keeping the ramp. That was for FDR.
+- [37:41.080] He needed a ramp, as some people would know.
+- [37:44.310] And in his honor, we're leaving. I wanted to leave it.
+- [37:47.210] It means something. The other thing that we're doing
+- [37:50.340] that's taking place right now is the Lincoln
+- [37:53.380] Memorial has a beautiful reflecting pond or lake.
+- [37:58.700] They call it a pool, lake and pond, all --
+- [38:00.710] everybody has different --
+- [38:01.950] but the word reflecting is a good term.
+- [38:05.240] It was built in 1922 and it was built out of granite
+- [38:10.090] and various stones on the bottom.
+- [38:12.710] And they never look great
+- [38:14.330] because that's not really meant to be a stone
+- [38:16.490] that's underwater for that much of a period of time.
+- [38:19.580] It's about a foot and a half to two feet deep.
+- [38:22.060] You all know it well.
+- [38:23.330] That's where Martin Luther King gave his great speech
+- [38:26.810] and he had a million people.
+- [38:28.160] And I had the same exact crowd, maybe a little bit more
+- [38:31.160] but they said I had 25,000 people on July 4th.
+- [38:34.240] I have pictures of Martin Luther King's crowd and my crowd.
+- [38:37.080] It's the exact same, everything, but it was 70 years difference,
+- [38:41.060] the exact same crowd,
+- [38:42.310] but I actually had more people but that's OK.
+- [38:44.500] Unidentified: (Inaudible) percent.
+- [38:45.710] The President: They gave him -- they gave him a million people.
+- [38:48.620] They said a million people; I had 25,000 people, so --
+- [38:52.080] but these are the things that you had with --
+- [38:53.730] that we had on July 4th a few years ago, first term.
+- [38:58.870] So you have this reflecting lake, pond, is incredible.
+- [39:05.220] But it was terrible, the condition. You all know it.
+- [39:09.290] A friend of mine came from Germany to see me and he said,
+- [39:12.130] oh, we went over, it's so sad.
+- [39:13.620] What's sad? This is a number of months ago.
+- [39:16.010] He said, it's filthy, dirty.
+- [39:17.780] It's -- the water is disgusting looking.
+- [39:20.270] It's not representative of the country.
+- [39:23.030] And I said, well, I'm going to have to go take a look,
+- [39:24.720] because, you know, Secret Service doesn't let you
+- [39:26.420] just walk around too freely, actually.
+- [39:28.720] And I went over there with Secret Service in tow,
+- [39:32.890] and I said, isn't that a shame?
+- [39:34.270] It's terrible.
+- [39:35.730] And so they had bids from the Biden administration,
+- [39:41.630] Sleepy Joe, and they had bids.
+- [39:44.040] For years, they were going to do something to fix it,
+- [39:46.560] but they never got it done and it's so --
+- [39:50.480] it's so important for our country.
+- [39:51.830] Everybody knows this.
+- [39:53.100] It covers the Washington Monument, Lincoln Memorial.
+- [39:55.750] It's in between.
+- [39:57.070] It's 2,200 feet. That's taller than any building in the world,
+- [40:02.640] if you lay it down on its side. Think of it.
+- [40:04.710] 2,000 -- that's a long, 2,000 -- over 2,000 feet long.
+- [40:10.270] That would be many swimming pools, many, many,
+- [40:12.480] many stacked up together.
+- [40:13.710] But it would be the equivalent of the tallest building
+- [40:15.890] in the world, plus, laid down on its side.
+- [40:19.260] So it's very big. It's very wide, actually.
+- [40:21.260] It looks narrow because it's so long.
+- [40:23.980] And so the pricing was coming in over the years,
+- [40:27.430] but it came in sort of recently,
+- [40:30.020] that it was going to cost $301 million to fix it.
+- [40:35.270] It was going to take three and a half years.
+- [40:36.930] So they had to take all the granite out,
+- [40:40.110] which is there, again, 1922. And it was leaking like a sieve.
+- [40:44.440] You couldn't keep water, couldn't keep anything.
+- [40:47.530] Granite's not the right stone for that.
+- [40:49.070] Right stone for that, but not for that.
+- [40:51.320] And I said, you know, I have an idea.
+- [40:54.960] It's $301 million, it was going to take three and a half years.
+- [40:57.460] So remember those numbers, $301 million --
+- [41:00.140] this is a business study.
+- [41:01.450] And it was going to take three to three and a half years.
+- [41:05.540] And over the years, as a developer,
+- [41:07.770] I've probably built more than 100 swimming pools
+- [41:10.380] in different buildings I built.
+- [41:11.730] And I have some really good pool builders.
+- [41:13.830] I also had some really bad ones, but we took care of them.
+- [41:16.840] They didn't last -- they didn't last too long, Howard.
+- [41:19.460] But I've had some really good ones,
+- [41:21.210] some very talented, very talented people.
+- [41:23.740] They're great people.
+- [41:25.000] I have such great respect for contractors
+- [41:27.230] that are good and such disdain for contractors that are bad.
+- [41:31.370] They charge you more money and they give you a bad job,
+- [41:34.510] but we -- we don't accept it.
+- [41:37.240] But over the years, I've had three or four really good ones.
+- [41:40.000] And I took the best of the three.
+- [41:42.370] I had all three go, but I ended up taking the best.
+- [41:45.400] And I said, would you take a look at this?
+- [41:48.590] It's 2,200 feet long.
+- [41:50.380] He said, what do you want me to look at, sir?
+- [41:52.790] I said, I have a little swimming pool,
+- [41:54.200] think of it as a swimming pool. And he said, oh, how big is it?
+- [41:57.210] I said, 2,200 feet, by 167 feet wide.
+- [42:01.120] He said, that's the biggest swimming pool --
+- [42:02.760] he said, I've been doing this for a lot of years, sir,
+- [42:05.250] I've never heard of a pool like that.
+- [42:06.610] I said, well, you'll see, it's a reflecting pool
+- [42:09.240] and very famous, very famous, very big signal
+- [42:12.980] and very important for Washington,
+- [42:14.430] DC, where we, by the way, have almost no crime,
+- [42:16.880] I have to say.
+- [42:18.190] That's maybe more important than talking about this.
+- [42:20.730] We have crime down from a tremendously high,
+- [42:22.970] one of the worst in the country.
+- [42:24.740] We have almost no crime. People are walking around,
+- [42:27.210] restaurants are opening all over the place.
+- [42:28.990] The place is bustling, but that makes this even more important.
+- [42:32.840] So instead of being a dirty,
+- [42:34.440] disgusting place where garbage was in it and everything else --
+- [42:37.790] and I want to give Doug Burgum incredible credit
+- [42:40.670] because he was involved, the secretary of the interior,
+- [42:43.500] he was involved right from the -- I called him.
+- [42:45.270] I said, Doug, I'm getting a lot of complaints
+- [42:47.620] about the condition of this, what do you think?
+- [42:49.860] And he went over and studied it
+- [42:51.250] and he came back with some ideas.
+- [42:52.930] But I said, you know, Doug, I have a guy who's unbelievable
+- [42:57.190] at doing swimming pools. Up the road, we have a club.
+- [43:00.000] We have an Olympic size swimming pool.
+- [43:01.540] He did it 20 years ago and it's perfect to this day.
+- [43:05.470] So I asked them, I said, I have an idea.
+- [43:08.770] I'm going to send my contractor over and take a look.
+- [43:11.830] He looked at it. He called me up.
+- [43:13.090] He said, sir, we can do something on it.
+- [43:15.300] He said, it's perfect, actually.
+- [43:17.370] He said, it's really decaying and it's in terrible condition.
+- [43:22.590] But if you would, I'd like to work two weeks
+- [43:24.670] on cleaning it up, which is -- if you see right here.
+- [43:27.770] Like to -- I'd like to repoint and fix some of the joints.
+- [43:30.430] It won't matter
+- [43:31.810] because we're putting a substance over the top,
+- [43:33.760] but it's nice to have a nice surface.
+- [43:36.050] And he said, it'd take me two weeks
+- [43:37.930] and if you don't mind, and I'd like to pour the latest
+- [43:41.710] and greatest filament or material,
+- [43:44.770] which is essentially a pool surface,
+- [43:48.140] but it's industrial-grade pool.
+- [43:51.180] And he said, what color would you like, sir?
+- [43:53.490] I said, well, what about turquoise, like in the Bahamas?
+- [43:57.740] He said, well, this is Washington, sir.
+- [44:00.360] We can give you turquoise, but why don't you try,
+- [44:02.200] like, we have a color, it's called American Flag blue.
+- [44:05.580] I said, that's the color I like.
+- [44:07.630] He talked me into it very easily.
+- [44:09.440] So he said, that's the color I like.
+- [44:10.960] So he came in.
+- [44:14.280] And remember, three and a half years,
+- [44:17.740] you have to take all the granite out
+- [44:20.140] and you have to put all brand new granite in,
+- [44:23.180] take years to do it, over $300 million.
+- [44:28.450] Uh, our job will take one week. It will cost about $1.5 million.
+- [44:35.780] And people said, wow. And he's the only
+- [44:38.930] (Inaudible)
+- [44:40.130] because somebody said, well, the difference is --
+- [44:42.790] no, the difference is this is much better.
+- [44:44.770] This will last 30, 40, 50 years.
+- [44:48.060] And if it didn't, you'd do it again quickly, if you want.
+- [44:52.120] So it's being done now and I think the --
+- [44:55.410] I think you find it really amazing to go take a look.
+- [44:57.830] So here it is. You see the trucks.
+- [45:00.250] He's got scrapers and, you know, all sorts of equipment
+- [45:05.180] to make the stone as good as possible without removing it.
+- [45:08.240] So we're using the existing surface,
+- [45:09.980] so we don't have to spend
+- [45:11.320] millions of dollars in demolition.
+- [45:13.920] And he said, much better to leave the stone than it is,
+- [45:16.880] what's underneath. They're afraid to look.
+- [45:19.530] And so you see, it's beautiful, clean.
+- [45:21.370] It's ready to be taken care of. Here's a sign that we put.
+- [45:26.050] And so Doug Burgum and myself are involved in that.
+- [45:29.990] And -- but when you take a look at the the surface,
+- [45:35.170] we have it in good shape
+- [45:36.780] and they just started today putting down the material.
+- [45:39.430] It's a machine.
+- [45:40.740] It lays it very evenly, beautiful.
+- [45:42.540] It goes from one side to the other.
+- [45:43.940] It'll take about three days.
+- [45:45.980] And you're going to end up with a beautiful,
+- [45:48.350] beautiful reflecting pool, the way it's supposed to be,
+- [45:51.900] much better than it ever was, actually. Uh, it'll stay clean.
+- [45:55.710] We even have robots that go in it and they --
+- [45:58.900] they ride around the bottom
+- [46:00.490] and they clean it like your swimming pool
+- [46:02.000] but these are a much higher level.
+- [46:04.140] This is industrial-grade and it's really beautiful.
+- [46:06.980] So you're going to have a beautiful pool
+- [46:09.470] and you'll have it for July 4th, long before July 4th.
+- [46:14.260] Instead of taking three,
+- [46:15.550] three and a half years, we're taking a week.
+- [46:18.520] And instead of spending $301 million,
+- [46:21.730] we're spending less than $2 million.
+- [46:23.450] And I think it's a great business story
+- [46:25.610] because there are many things like that, that I see.
+- [46:28.940] I mean, not maybe to that extent,
+- [46:31.460] but there are many things like that, that I say.
+- [46:34.390] I often talk about the pen. This pen is better than the one
+- [46:36.870] that they used to give away for $2,000 --
+- [46:38.570] I won't go on the long story about that,
+- [46:40.830] because a couple of people said, he kept talking about the pen.
+- [46:43.300] No, I gave you the whole history of it.
+- [46:45.540] Actually, many people found it interesting,
+- [46:47.320] and some people thought I was doing too much of a weave.
+- [46:50.180] But actually, if this pen for $3, $5,
+- [46:55.580] $2, whatever the hell it cost, is better than the one
+- [46:58.030] for $1,000 to $2,000 that you used to hand away.
+- [47:02.100] so that's the short version of it.
+- [47:04.620] I like the short version better.
+- [47:06.420] But the long version is this one.
+- [47:07.920] So this is a -- an amazing thing that's happening
+- [47:12.040] and this is a big, big beautification.
+- [47:14.890] In addition to that, the sidewalk areas around it,
+- [47:17.950] which were done in granite, similar granite to that,
+- [47:21.100] actually not as nice as we have here,
+- [47:22.710] to be honest with you.
+- [47:23.920] But, you know, the people that did --
+- [47:26.120] did it weren't in the world of real estate, like I am,
+- [47:29.870] but they have good granite circling it
+- [47:32.230] and we're going to repoint it,
+- [47:33.690] meaning we're going to caulk it up
+- [47:35.020] and repoint it, make it good.
+- [47:36.880] And we're going to also sandblast it.
+- [47:38.930] It'll be like brand new.
+- [47:40.230] So we're going to have, in another couple of weeks,
+- [47:42.360] we're going to have the most beautiful reflecting pool
+- [47:45.530] between the Washington Monument and the Lincoln Memorial,
+- [47:48.660] that you've ever seen.
+- [47:50.180] And I hope the media can go over and maybe watch them do it
+- [47:52.710] because it's -- I think it's very exciting.
+- [47:55.060] And so a fraction of the cost at a fraction of the time,
+- [47:57.710] and you get a better product
+- [47:58.960] than you could ever get the other way,
+- [48:00.320] and it'll be beautiful.
+- [48:01.530] And as he said, it will be American flag blue.
+- [48:04.450] Any questions, please?
+- [48:05.760] The Press: Yes, sir. Could you talk a little bit
+- [48:08.200] about why your Navy secretary was fired yesterday, sir?
+- [48:11.730] The President: He's a wonderful guy.
+- [48:12.940] I just put out a statement about him.
+- [48:14.690] Very -- he's a very good man. I like -- I really liked him,
+- [48:17.430] but he had some conflict with, not necessarily Pete,
+- [48:20.960] with some other -- he's a hard charger
+- [48:23.320] and he had some conflicts with some other people,
+- [48:25.650] mostly as to building and buying new ships.
+- [48:30.110] I'm very aggressive in the new shipbuilding and somehow,
+- [48:34.880] he just didn't get along with them.
+- [48:36.370] He's an excellent guy.
+- [48:38.000] I think he would have gotten along great with me.
+- [48:39.560] I didn't really deal with them too much, but he's a --
+- [48:44.140] you know, I consider him to have done a very good job.
+- [48:46.050] I put out a nice statement about him.
+- [48:48.690] Got to get along, especially in the military, got to get along.
+- [48:51.690] You know, and -- and some people liked him, some people didn't.
+- [48:56.230] And that's usually the truth about everything.
+- [48:58.810] But I found him to be a very good man,
+- [49:00.430] and I liked him a lot.
+- [49:04.760] The Press: On the war with Iran, how long are you willing to wait
+- [49:07.130] until you get a (Inaudible) response?
+- [49:08.450] The President: Well, don't rush me.
+- [49:09.660] Don't rush me, Jeff.
+- [49:11.690] You know, guys like you, you want to say, oh --
+- [49:14.080] so we were in Vietnam, like, for 18 years.
+- [49:16.210] We were in Iraq for many, many years.
+- [49:18.670] We were in for all the -- I don't like to say World War II
+- [49:21.990] because that was a biggie, but we were four and a half,
+- [49:24.640] almost five years in World War II.
+- [49:27.290] Uh, we were in the Korean War for seven years.
+- [49:30.260] I've been doing this for six weeks,
+- [49:33.850] and their military is totally defeated.
+- [49:36.570] They're -- uh, outside of the little wise guy --
+- [49:41.160] I call him the wise guy, the little boats
+- [49:43.330] that they have running around with guns in them
+- [49:46.990] we'll take them out too when we see them.
+- [49:49.680] But their Navy is gone, their air force is gone,
+- [49:52.660] their anti-aircraft is gone.
+- [49:55.410] All of their anti-aircraft machinery is gone.
+- [49:58.100] maybe they loaded up a little bit during the two week hiatus,
+- [50:01.320] but we'll knock that out in about one day, if they did.
+- [50:04.680] Uh, we've done an amazing job. Their leaders are gone.
+- [50:07.260] Their leaders are all gone. Part of the problem is that
+- [50:10.250] that's why I can't really answer your question.
+- [50:13.880] They have all new leadership and they're fighting like cats
+- [50:16.170] and dogs for who's going to control,
+- [50:19.750] because we've created a real mess for them,
+- [50:22.910] but they've created a mess for the world
+- [50:24.520] over the last 47 years.
+- [50:26.850] They've killed a lot of our people.
+- [50:29.120] When you see a soldier, a young person or now an older person,
+- [50:32.980] but a person without legs or without arms or with a face
+- [50:35.840] that got blown to pieces, most likely, it was from Iran.
+- [50:39.960] It was Soleimani, who I killed.
+- [50:42.770] Soleimani loved the roadside bomb.
+- [50:44.920] He was an evil genius. He was a brilliant general.
+- [50:47.240] Probably, we wouldn't be as far advanced
+- [50:49.050] had I not taken him out.
+- [50:50.260] That was the beginning of it all.
+- [50:53.250] And then I ended the Obama horror show,
+- [50:56.980] the nuclear transaction that he made was --
+- [51:01.570] gave them a road to the -- you call it --
+- [51:04.330] I mean, what -- the deal that he did,
+- [51:06.310] the Iran nuclear deal was so bad.
+- [51:08.520] It gave him a road to a nuclear weapon.
+- [51:10.250] And I will tell you, I deal with them,
+- [51:12.120] you cannot give Iran a nuclear weapon.
+- [51:13.940] This is all about a nuclear weapon.
+- [51:15.150] They cannot have the nuclear bomb,
+- [51:16.580] and they're not going to have the nuclear bomb.
+- [51:18.900] So we've taken out their military.
+- [51:20.900] We've hit about 75 percent of our targets.
+- [51:24.090] We stopped a little early
+- [51:25.420] because they wanted to have some peace.
+- [51:28.840] And we have a blockade that's 100 percent effective
+- [51:35.610] and they're getting no business.
+- [51:38.010] And as you know, they're not doing well
+- [51:40.560] economically, financially.
+- [51:42.020] They're not doing any business because of the blockade.
+- [51:44.860] They want to make a deal. We have been speaking to them,
+- [51:48.270] but they don't even know who is leading the country.
+- [51:51.130] They're in turmoil. They're in turmoil.
+- [51:53.410] So we thought we'd give them a little chance
+- [51:55.040] to get some of their turmoil resolved.
+- [51:58.120] But, you know -- and I hope the fake news, people like you,
+- [52:01.620] I hope the fake news are going to be able
+- [52:03.040] to write about it accurately, because when you say,
+- [52:05.200] oh, they're fighting very well, they're not fighting well.
+- [52:07.310] They were -- they've been obliterated, Jeff, obliterated.
+- [52:11.590] Uh, 159 ships are in their navy.
+- [52:14.250] You know how many ships are at the bottom of the sea, Jeff?
+- [52:18.310] 159.
+- [52:20.720] So, you know, and if you read The New York Times,
+- [52:24.140] the failing New York Times,
+- [52:25.780] subscriptions are way down, as you know,
+- [52:28.520] that's because people don't believe the stuff anymore.
+- [52:31.050] If you watch CNN,
+- [52:32.390] you'd think that they're doing well in the war.
+- [52:34.180] They're not doing well. They're getting absolutely decimated.
+- [52:37.830] Now, with all of that being said, we'll see what happens.
+- [52:41.150] You have a lot of -- we have no pressure.
+- [52:43.390] It's only guys like you with a question like that,
+- [52:45.440] about what's your time --
+- [52:47.180] we've been doing it for five and a half weeks.
+- [52:51.680] The Press: Eight weeks that the US now
+- [52:53.020] has been involved with Iran.
+- [52:54.330] You had initially said it would be four to six weeks.
+- [52:56.250] Well, I hope that, but I also took a little break.
+- [52:58.770] I gave them a break.
+- [53:00.020] And remember this I want to make the best deal.
+- [53:04.980] I could make a deal right now.
+- [53:06.310] Do you know that if I left right now,
+- [53:08.720] we had a tremendous success,
+- [53:10.140] it would take them 20 years to rebuild,
+- [53:11.880] but I don't want to do that. I want to have an everlasting.
+- [53:14.960] I want to have it where they never get
+- [53:17.110] they never have a chance to get --
+- [53:18.470] I mean, the way you asked that question, I did say it.
+- [53:20.920] I thought it would take four to six weeks and I was right,
+- [53:25.410] because at the end of six weeks,
+- [53:27.000] at the end of four weeks, their military was decimated.
+- [53:30.400] But now what I'm doing -- I don't --
+- [53:31.900] I can't tell you that.
+- [53:33.130] I don't want to put that kind of a timetable on it,
+- [53:35.700] but it'll go pretty quickly.
+- [53:37.540] And will have the strait opened up.
+- [53:40.840] Now -- right now, we have it closed.
+- [53:42.410] We have total control of the strait.
+- [53:44.620] And the fact that it's closed -- you know,
+- [53:46.020] they would have opened it up three days ago.
+- [53:47.650] They came to us and they said, we will agree to open the strait
+- [53:51.860] and all my people are happy. Everybody was happy except me.
+- [53:54.170] I said, wait a minute if we open the strait,
+- [53:55.750] that means they're going to make $500 million a day.
+- [53:58.970] I don't want them to make $500 million a day
+- [54:01.200] until they settle this thing.
+- [54:03.740] So I'm the one that kept it closed.
+- [54:05.210] We have total control of it,
+- [54:07.480] and it'll open when they make a deal
+- [54:09.880] or something else happens that's very positive.
+- [54:12.980] The Press: Excuse me.
+- [54:14.220] What do you say to the American people
+- [54:15.950] who question how much longer this will take?
+- [54:18.060] Obviously, you know that they are having higher gas prices --
+- [54:20.100] The President: You are such a disgrace.
+- [54:21.320] Did you hear what I just said?
+- [54:22.950] Vietnam, how many years was Vietnam?
+- [54:24.430] The Press: I understand, sir.
+- [54:25.660] The President: How many years was Vietnam?
+- [54:26.920] The Press: But (Inaudible) deadlines --
+- [54:28.140] The President: Well, I did my -- I took --
+- [54:30.990] I took the country out militarily
+- [54:34.740] in the first four weeks.
+- [54:38.170] I took it out militarily.
+- [54:40.090] Now all we're doing is sitting back and seeing what deal.
+- [54:43.050] And if they don't want to make a deal,
+- [54:44.350] then I'll finish it up
+- [54:45.790] militarily with the other 25 percent of the targets.
+- [54:48.590] We've hit 78 percent of the targets
+- [54:50.970] that we've wanted to hit.
+- [54:52.180] We've knocked out their manufacturing,
+- [54:54.190] we've knocked out their missile production,
+- [54:56.130] we've knocked out their drone production,
+- [54:57.980] we've knocked out everything.
+- [54:59.460] In some cases, when I say knocked it out,
+- [55:01.210] 70, 80, 90 percent. It's amazing what we've done.
+- [55:07.120] So, I've done that within that period of time that I mentioned,
+- [55:09.770] but I don't want to rush myself, you know,
+- [55:11.990] because every story I say, oh, Trump is under time pressure.
+- [55:14.320] I'm not, no, no. You know who's under time pressure?
+- [55:16.250] They are.
+- [55:17.490] Because if they don't get their oil moving,
+- [55:19.250] their whole oil infrastructure is going to explode.
+- [55:22.740] You know what that means?
+- [55:24.200] Because they have no place to store it.
+- [55:26.400] And because they have no place to store it, if they have
+- [55:29.050] to stop it, something happens that only Len can explain.
+- [55:33.180] Something happens underground that essentially renders it
+- [55:37.680] in very poor shape and you never recover fully.
+- [55:40.980] You can recover 50, 60 percent,
+- [55:42.990] but you can never have it like it is right now.
+- [55:45.060] And they have a matter of days before that event takes place.
+- [55:49.120] So, I'm not under any pressure whatsoever.
+- [55:51.920] We've never had so much ammunition.
+- [55:54.020] Our ships are loaded; I call them locked and loaded.
+- [55:57.180] They're locked and loaded, they're ready to go.
+- [55:59.760] We have much higher quality equipment than we did
+- [56:03.150] when we first started the war and --
+- [56:05.810] or the military operation, whatever you want to call it.
+- [56:09.190] And they're coming to us; the problem they have
+- [56:12.580] is they are very disorganized right now.
+- [56:15.300] Now, yesterday, and I was very pleased with this,
+- [56:18.380] eight young women
+- [56:19.670] were going to be executed yesterday afternoon at 6:00.
+- [56:24.420] And I, I asked them -- call it a favor or call
+- [56:28.680] it just a moral request -- that they not be executed.
+- [56:32.290] And they came back with an answer
+- [56:33.580] that they won't be executed.
+- [56:34.990] They're going to release -- it was protesting --
+- [56:37.890] eight beautiful young women, very young women, and they were.
+- [56:41.360] Their pictures are in the paper.
+- [56:43.330] And it's been a story for a little while
+- [56:44.930] and I saw that and I said, let's see if we can save them.
+- [56:48.650] And it was very nice what happened.
+- [56:51.340] So, they're not going to be. What they're doing is,
+- [56:54.120] as you know, they're releasing four of them very shortly,
+- [56:56.700] and they're going to keep four of them in jail
+- [56:59.120] for a period of one month and release them.
+- [57:00.820] So, they won't be executed. Yeah, please.
+- [57:02.330] The Press: So, if you're asking for more time
+- [57:04.400] to sort out negotiations.
+- [57:05.610] The President: I'm not asking you for more time.
+- [57:07.050] I'm not asking anyone, no.
+- [57:08.470] The Press: If you need more time.
+- [57:09.730] The President: I'm not asking anybody for more time.
+- [57:11.200] The Press: If you need more time,
+- [57:12.540] does that mean Americans should anticipate
+- [57:14.760] spending more on gasoline for the foreseeable future?
+- [57:17.570] The President: For a little while.
+- [57:18.900] The Press: But how long?
+- [57:20.140] The President: You know what they get for that?
+- [57:21.590] Iran without a nuclear weapon that's going to try
+- [57:23.920] and blow up one of our cities
+- [57:25.230] or blow up the entire Middle East.
+- [57:27.360] You want to see what shock would be?
+- [57:30.060] And I have to be honest;
+- [57:31.590] the stock market is at an all-time high right now.
+- [57:35.150] I thought it would have been down 20, 25 percent.
+- [57:39.030] Can I finish my question, wise guy?
+- [57:41.800] The stock market is at an all-time high right now.
+- [57:46.200] I projected, and I'm pretty good at this,
+- [57:47.990] that the stock market, Howard,
+- [57:49.290] would drop maybe 20 percent, 25 percent.
+- [57:53.210] And I understood that and I said,
+- [57:54.730] hey, it's a bad thing,
+- [57:55.970] but I have to do what's right for the country, even the world,
+- [57:58.960] because you can't have them --
+- [58:00.680] you cannot let them have a nuclear weapon.
+- [58:02.380] So, the stock market,
+- [58:05.590] unlike what a lot of people were predicting,
+- [58:08.100] I thought they weren't necessarily wrong.
+- [58:10.660] The stock market today hit an all-time high,
+- [58:13.250] hit an all-time high yesterday,
+- [58:14.530] the day before and it's staying there.
+- [58:17.260] I thought oil would go up to maybe $200 a barrel.
+- [58:21.730] And oil is at a very different number than anyone thought.
+- [58:25.560] In fact, this country is much lower
+- [58:27.510] because we have all the oil we can use.
+- [58:29.890] We're actually -- ships are coming
+- [58:31.870] from all over the world to Texas, Louisiana and Alaska.
+- [58:35.520] They're coming from all over the world
+- [58:37.020] to get oil from the United States
+- [58:39.090] while this is closed, the Hormuz Strait.
+- [58:41.730] So, if you look at what I said, I guess it was right
+- [58:47.500] because I said I'd have it four to six weeks,
+- [58:49.430] and in four weeks, we have totally defeated their military.
+- [58:52.400] So, right now, I don't want to rush it
+- [58:54.060] because you guys are trying to make us look as bad as possible.
+- [58:57.680] I don't want to rush it; I want to take my time.
+- [58:59.710] We have plenty of time, and I want to get a great deal.
+- [59:02.430] I want to get a deal where our nation
+- [59:04.090] and the world are safe from lunatics with nuclear weapons.
+- [59:09.370] The Press: If it does go to 200,
+- [59:11.040] are you OK with that, sir, if oil goes to 200?
+- [59:14.020] The President: I think that there's nothing worse
+- [59:15.550] than a nuclear weapon that takes out one of your cities
+- [59:18.170] or two of your cities or three.
+- [59:19.930] I think there's nothing worse than a nuclear weapon
+- [59:22.100] that's going to destroy the Middle East, including Israel.
+- [59:25.030] I think there's nothing worse than Europe being under attack
+- [59:29.390] by people that have missiles now that reach Europe.
+- [59:32.190] As you know, they don't reach us, but they reach Europe.
+- [59:34.610] But they will reach us at some time,
+- [59:36.630] probably the not-too-distant future, unless we stop them now.
+- [59:39.710] I think there would be nothing worse
+- [59:41.220] than having nuclear holocaust in Europe, London, Paris,
+- [59:48.530] various places in Germany, all targeted.
+- [59:52.410] No, what I say is, you can't let them have.
+- [59:56.820] I don't think it will happen, by the way, I really think --
+- [59:58.880] we actually -- it turns out that we are drill, baby drill
+- [01:00:03.470] and it turns out we're producing a lot of oil
+- [01:00:05.260] and they're buying the oil.
+- [01:00:06.530] They're going to Alaska, they're going to Texas,
+- [01:00:09.160] Louisiana and our guys have done a fantastic job.
+- [01:00:12.770] We're putting out right now more oil and gas
+- [01:00:15.250] than we ever have in the history of our country.
+- [01:00:17.630] And one other thing -- there are more people employed today
+- [01:00:20.670] in the United States
+- [01:00:21.940] than ever in the history of our country, OK?
+- [01:00:24.370] The Press: I have a question, sir.
+- [01:00:26.110] Is it true that your administration is considering
+- [01:00:28.150] sending 1,100 Afghans to the Democratic Republic of Congo?
+- [01:00:31.840] And if so, do you have a response to that?
+- [01:00:33.520] The President: I don't know, I'd have to check.
+- [01:00:37.050] The Press: Thank you, Mr. President.
+- [01:00:38.340] Breitbart News's Matt Boyle just published an interview
+- [01:00:41.300] with Greek Prime Minister Mitsotakis,
+- [01:00:43.670] in which the prime minister said that he's rooting for you
+- [01:00:46.130] to succeed in getting a deal with Iran.
+- [01:00:48.920] He also said he looks forward to hosting you
+- [01:00:50.590] in Greece later this year. Do you have any response?
+- [01:00:52.690] The President: No, it's really nice.
+- [01:00:54.060] I mean, Greece has been very supportive, actually.
+- [01:00:56.940] Greece has been terrific, he's a terrific guy,
+- [01:00:59.410] because he understands the importance of it.
+- [01:01:01.260] You know, oil goes up a little bit, I hate it, you know.
+- [01:01:04.610] I was the one that had had it down to $60 a barrel.
+- [01:01:08.530] And I looked at guys like Howard Lutnick Howard.
+- [01:01:10.730] Howard, you remember it well. I said, well, we just hit
+- [01:01:12.930] an all-time high in the history of the market.
+- [01:01:16.460] Think of this, when we hit 50,000,
+- [01:01:19.600] I was told -- everybody was told
+- [01:01:21.260] when I won the election, November 5th,
+- [01:01:23.700] they said, well, during the four-year period,
+- [01:01:25.980] it will be impossible for the Dow to ever reach 50,000.
+- [01:01:29.810] It'll be impossible for the S&P to ever hit 7,000.
+- [01:01:33.140] Impossible.
+- [01:01:34.720] And you remember that, Howard, right?
+- [01:01:36.140] It was going to hit maybe six, seven years, eight years,
+- [01:01:39.330] but I did it in my first year, hit 50,000.
+- [01:01:42.270] Now it's just about at 50,000,
+- [01:01:44.630] and S&P is higher than it was when we started.
+- [01:01:47.920] And S&P hit over 7,000.
+- [01:01:50.290] And that was before the year ended, up one year.
+- [01:01:52.730] So, I can only tell you this, it'll end,
+- [01:01:55.820] I don't think it'll be very long, by the way.
+- [01:01:57.950] They're delaying it because we don't know who to deal with.
+- [01:02:01.770] They are in -- you know,
+- [01:02:03.040] they know who the leader is in this country.
+- [01:02:05.370] We don't know who the leader is in Iran because, remember --
+- [01:02:09.600] regime change, Khomeini is gone, gone to greener pastures.
+- [01:02:15.020] He's gone and all of his team is gone.
+- [01:02:17.350] Then a second group came in, they were all gone.
+- [01:02:19.420] And now you have the third group,
+- [01:02:21.470] and they're a little concerned about being gone too.
+- [01:02:23.780] The Press: Sir, would you use a nuclear weapon against Iran?
+- [01:02:25.920] You posted on Truth Social a few weeks ago.
+- [01:02:27.410] The President: No, no, I wouldn't.
+- [01:02:28.620] They don't need it. Why do I need it?
+- [01:02:30.120] Why would a stupid question like that be asked?
+- [01:02:32.740] Why would I use a nuclear weapon when we've totally,
+- [01:02:36.550] in a very conventional way, decimated them without it.
+- [01:02:40.120] No, I wouldn't use it.
+- [01:02:41.610] A nuclear weapon should never be allowed to be used by anybody.
+- [01:02:47.870] The Press: Which we're all very much looking forward to.
+- [01:02:49.650] Prince Harry today has said that he would like to see you
+- [01:02:52.220] do more to end the war in Ukraine.
+- [01:02:53.960] Do you think it's appropriate for a royal
+- [01:02:55.740] to make those comments ahead of the visit on Monday?
+- [01:02:58.010] The President: Prince Harry? The Press: Yes, sir.
+- [01:02:59.280] The President: How's he doing? How's his wife?
+- [01:03:01.710] Please give him my regards, OK?
+- [01:03:03.410] No, I don't know. I think I know one thing,
+- [01:03:06.400] Prince Harry is not speaking for the UK, that's for sure.
+- [01:03:12.000] I think I'm speaking for the UK more than Prince Harry,
+- [01:03:16.060] but I appreciate his advice very much, it's great advice.
+- [01:03:18.340] The Press: Would you uninvite him to the dinner
+- [01:03:19.590] and to the state visit?
+- [01:03:20.840] The President: Well, I look forward to the dinner.
+- [01:03:22.060] We're having King Charles come, he's a friend of mine.
+- [01:03:24.860] We're really looking forward to it,
+- [01:03:26.240] we've spoken and we're going to have a great time.
+- [01:03:28.440] I tell you, if I had that ballroom built,
+- [01:03:30.210] it would be filled.
+- [01:03:31.480] I wish we had more seats, you know.
+- [01:03:34.010] They've wanted a new ballroom for 150 years.
+- [01:03:36.030] Now they're getting the best in the world.
+- [01:03:37.680] We're going to have the best in the world
+- [01:03:39.620] but, you know, we have a little room
+- [01:03:41.630] that's not big enough to handle what would be a big crowd,
+- [01:03:45.170] but we're going to have very great people that love the UK.
+- [01:03:49.100] I love the UK.
+- [01:03:50.480] I think they made a big mistake on energy.
+- [01:03:53.430] You should open up the North Sea in Aberdeen.
+- [01:03:57.200] You should open it up.
+- [01:03:58.600] And the other thing is they've made a big mistake
+- [01:04:00.810] on immigration, OK?
+- [01:04:04.370] The Press: What do you hope to learn
+- [01:04:05.660] from Jeanine Pirro's investigation
+- [01:04:06.940] into the Fed's renovation that --
+- [01:04:08.180] The President: Say it again?
+- [01:04:09.410] The Press: What do you hope to learn
+- [01:04:10.690] from Jeanine Pirro's investigation
+- [01:04:12.820] into the Federal Reserve?
+- [01:04:14.060] It's not -- reservation that you did not learn
+- [01:04:16.120] when you visited the site yourself last year?
+- [01:04:17.760] The President: Well, look, the Federal Reserve building
+- [01:04:20.910] is a small building.
+- [01:04:23.560] They're going to be in there by the time it opens,
+- [01:04:25.280] in my opinion, for $4 billion.
+- [01:04:28.960] I built a hotel down the road for $201 million
+- [01:04:31.740] that I believe is bigger than the Federal Reserve building,
+- [01:04:34.310] $201 million.
+- [01:04:36.420] And the ballroom, I'm going to have the ballroom
+- [01:04:38.060] from 300 to 400 billion,
+- [01:04:40.440] depending on finishes, like marbles, the quality,
+- [01:04:43.880] the quality finishes, we'll go top of the line.
+- [01:04:46.720] But that's a much bigger project.
+- [01:04:50.690] Uh, when you look at the fact
+- [01:04:52.450] that they've taken this beautiful building
+- [01:04:54.210] and destroyed it,
+- [01:04:56.040] they've taken down the beautiful ceilings with eagles,
+- [01:04:58.600] they've taken down the walls
+- [01:04:59.820] that are a foot and a half thick, masonry.
+- [01:05:03.020] You couldn't hear from office to office.
+- [01:05:05.480] They ripped it all down.
+- [01:05:06.940] They did -- they ripped down -- because Kevin Warsh,
+- [01:05:10.090] who's terrific, said, gee, the saddest thing
+- [01:05:12.240] is they ripped down the nicest building
+- [01:05:13.800] in Washington for boardrooms and all.
+- [01:05:15.500] Did you know about that building?
+- [01:05:17.140] They ripped it down -- the boardroom building.
+- [01:05:19.360] It was beautiful and they ripped it down.
+- [01:05:21.840] And probably because it cost so much to fix it.
+- [01:05:25.040] So I would have done that job for $25 million,
+- [01:05:27.200] had money left over.
+- [01:05:28.920] It's going to cost more than -- in my opinion --
+- [01:05:31.530] it's not going to open for a long time.
+- [01:05:33.040] You know, Kevin may not be able to have an office.
+- [01:05:34.650] I'm going to have to get him an office.
+- [01:05:35.930] Can you give him an office?
+- [01:05:37.220] Howard Lutnick: Yes, we have space.
+- [01:05:38.420] The President: Bobby, do you have some space
+- [01:05:39.680] over there, please?: Yeah, we have a lot of space.
+- [01:05:41.150] The President: But it's more than you think.
+- [01:05:44.780] But we're going to have Kevin sitting right next to you,
+- [01:05:46.870] Bobby.
+- [01:05:48.120] But it may not open for a long time.
+- [01:05:50.560] I looked at it the other day. It's a see through, see through.
+- [01:05:52.650] You know what that means, the walls aren't even up yet.
+- [01:05:54.810] This is after years and years of construction,
+- [01:05:58.060] and somehow, you have to find out what went wrong,
+- [01:06:01.850] that a small building,
+- [01:06:03.180] I could have done it for $25 million
+- [01:06:05.000] and had money left over.
+- [01:06:06.270] It would have been beautiful.
+- [01:06:07.810] That a small building can cost $4 billion.
+- [01:06:12.490] It may never open. It may never open.
+- [01:06:14.890] And we have to get to that.
+- [01:06:16.280] On top of that, he's been terrible on interest rates
+- [01:06:18.370] because he should have lowered interest rates.
+- [01:06:20.490] That's why I call him Jerome too late.
+- [01:06:22.640] Too late, it's his nickname, Jerome, too late, Powell.
+- [01:06:25.490] He likes me a lot. Thank you very much, everybody.
+- [01:06:28.160] (talking simultaneously)
+- [01:06:46.710] Well, it came from Italy. It was carved in Italy.
+- [01:06:48.870] It came from another location.
+- [01:06:50.220] You know where the location is? Africa.
+- [01:06:52.110] The Press: So you have African and Italian granite
+- [01:06:54.830] (inaudible)

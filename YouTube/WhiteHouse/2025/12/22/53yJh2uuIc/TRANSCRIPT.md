@@ -1,0 +1,1144 @@
+<!-- source: https://www.youtube.com/watch?v=_53yJh2uuIc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _53yJh2uuIc -->
+<!-- date_published: 2025-12-22T23:05:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:47.705852+00:00 -->
+
+# Transcript: President Trump Makes an Announcement with the Secretary of War and the Secretary of the Navy
+
+- [00:18.440] The President: Wow, it's beautiful.
+- [00:20.350] It's the first rendering of what we're doing.
+- [00:24.670] So, I want to wish everybody a big hello
+- [00:27.160] and Merry Christmas and welcome to Mar-a-Lago
+- [00:30.500] for this exciting announcement of the new Golden Fleet.
+- [00:34.500] We're calling it the Golden Fleet,
+- [00:37.070] we're building for the United States Navy.
+- [00:39.020] As you know, we're desperately in need of ships.
+- [00:40.970] Our ships are --
+- [00:42.210] some of them have gotten old and tired and obsolete
+- [00:46.320] and we're going to go the exact opposite direction.
+- [00:49.590] We're delighted to be joined by Secretary of War
+- [00:52.070] Pete Hegseth, who's doing a fantastic job,
+- [00:54.470] and Secretary of the Navy John Phelan.
+- [00:57.990] Marco Rubio is here --
+- [00:59.820] gave a great few words toward the end of last week.
+- [01:03.790] He spoke for a couple of hours on what a good job we're doing,
+- [01:08.560] which is true.
+- [01:10.500] As commander-in-chief, it's my great honor
+- [01:12.490] to announce that I have approved a plan for the Navy
+- [01:15.940] to begin the construction of two brand new, very large --
+- [01:19.800] the largest we've ever built -- battleships.
+- [01:23.900] You used to build the Iowa, the Missouri, the Wisconsin,
+- [01:29.360] the Alabama and many others.
+- [01:30.710] We had big battleships, these are bigger.
+- [01:34.400] But they will have 100 times the --
+- [01:38.290] there'll be 100 times the force,
+- [01:39.910] the power and there's never been anything like these ships.
+- [01:46.370] These have been under design consideration for a long time.
+- [01:51.230] And it started with me in my first term
+- [01:54.160] because I said why aren't we doing battleships
+- [01:55.940] like we used to?
+- [01:57.690] And these are the best in the world.
+- [02:01.980] They'll be the fastest, the biggest and by far --
+- [02:04.690] 100 times more powerful than any battleship ever built.
+- [02:09.260] So, if you look at the Iowa, the Missouri, Wisconsin, Alabama
+- [02:13.250] and others, but they're -- they were similar in size,
+- [02:16.650] some a little bit bigger than the others.
+- [02:18.300] But if you take the biggest one, it's 100 times more powerful.
+- [02:24.260] They're longer by a little bit, but the --
+- [02:29.340] and they're bigger, they're bigger ships,
+- [02:30.810] but they hold much more. They use the word lethality.
+- [02:34.700] Battleships are the largest,
+- [02:36.430] sturdiest and most heavily armed vessel
+- [02:38.950] built specifically for naval combat.
+- [02:42.490] While America has built many new warships over the years,
+- [02:46.310] they've tended to be smaller --
+- [02:48.170] and much smaller and not conducive to where we are
+- [02:55.490] and where we're going and peace through strength.
+- [02:59.060] But including, we've been building aircraft carriers,
+- [03:02.520] we're going to be upping that also.
+- [03:03.870] We're going to be going to a superior aircraft.
+- [03:07.990] We have the Ford class. We're going to be upping that
+- [03:10.770] to a different class of aircraft carrier.
+- [03:15.300] And we haven't built a battleship since 1994.
+- [03:20.610] These cutting-edge vessels will be some of
+- [03:22.840] the most lethal surface warfare ships.
+- [03:27.230] It will be actually the most ever built
+- [03:28.930] other than our submarines.
+- [03:30.190] We have submarines, which will have,
+- [03:32.560] in many ways, even more lethality,
+- [03:35.620] and we have many of them under construction.
+- [03:39.970] Each one of these will be the largest battleship
+- [03:44.210] in the history of our country;
+- [03:45.570] the largest battleship in the history of the world ever built.
+- [03:49.580] And again, it's 100 times more powerful
+- [03:52.010] than the previous Iowa class it's called.
+- [03:55.570] Those are the big ones that you'd see on a show,
+- [03:57.230] Victory at Sea.
+- [03:58.450] I don't know if anyone's seen Victory at Sea,
+- [04:00.080] but it was a classic.
+- [04:02.650] They'll help maintain American military supremacy,
+- [04:05.860] revive the American shipbuilding industry and inspire fear
+- [04:09.340] in America's enemies all over the world.
+- [04:11.910] We want respect, we're going to have it --
+- [04:14.010] we already have it, more respected now than we ever were.
+- [04:18.800] A year and a half ago, they laughed at us now.
+- [04:20.620] They respect us again at levels that they've never respected us.
+- [04:24.620] We envisioned that these two ships -- we're talking about 10,
+- [04:28.420] but we're going to start with two
+- [04:30.240] and we're going to quickly morph into 10.
+- [04:32.510] And ultimately, we think it's going to be anywhere
+- [04:34.300] from 20 to 25 of these.
+- [04:36.990] But we're starting with the first two immediately.
+- [04:38.960] And we're going to then be very quickly involved with --
+- [04:43.440] I think we're going to do another eight,
+- [04:46.020] and then we're going to ultimately
+- [04:48.820] and pretty quickly have a total of about 20 to 25.
+- [04:52.440] We'll make that determination. We envision that these ships
+- [04:56.490] will be the first of a whole new class of battleships
+- [05:00.590] to be produced in the years to come from
+- [05:03.950] Theodore Roosevelt, the Great White Fleet.
+- [05:07.360] You remember that, the Great White Fleet,
+- [05:10.220] to the legendary USS Missouri
+- [05:12.570] whose massive guns helped win World War II,
+- [05:16.210] America's battleships have always been
+- [05:18.710] unmistakable symbols of national power.
+- [05:21.930] We stopped making them for whatever reason, I don't know.
+- [05:26.230] And I want to He came to me --
+- [05:34.360] the first day we met, he talked about battleships
+- [05:37.900] and I said you're absolutely on the right track.
+- [05:40.280] He said why are we doing other things?
+- [05:43.420] We have missiles which are much more expensive.
+- [05:45.840] By the way, these battleships have tremendous numbers
+- [05:48.040] of missiles, but they also have guns.
+- [05:50.270] And in many ways guns can do the trick
+- [05:52.320] just as well as missiles at a tiny fraction of the cost.
+- [05:57.930] Once completed, these new 30,000 to 40,000 ton-plus vessels
+- [06:04.610] will be the flagships of the American naval fleet
+- [06:07.570] and there will be never --
+- [06:10.050] there has never been anything built like them.
+- [06:13.550] And I just want to --
+- [06:17.050] I want to be very clear that we're building them here.
+- [06:20.560] We're working with others, but we're building them here.
+- [06:23.440] We have great navy yards.
+- [06:26.200] We'll be negotiating with some of the companies
+- [06:28.610] that are running those yards, taking over the yards.
+- [06:32.390] We used to build a ship a day during World War II.
+- [06:34.870] Now we don't do ships very much anymore.
+- [06:37.090] We do military ships. We do submarines.
+- [06:39.810] By the way, we're 15 to 20 years advanced
+- [06:42.100] in our submarines over anybody else.
+- [06:44.070] That was one of the things that I did in my first term.
+- [06:47.970] We make the best submarines by far in the world.
+- [06:50.970] We're at least 15 years advanced ahead
+- [06:53.350] of anybody else in submarine development,
+- [06:56.030] most powerful, the most powerful weapon
+- [06:59.390] anywhere in the world, undetectable.
+- [07:03.160] So, the battleships are going to be armed
+- [07:05.600] just in terms of guns
+- [07:08.610] and missiles at the highest level.
+- [07:11.000] They'll also have hypersonic weapons,
+- [07:12.980] many hypersonic weapons,
+- [07:14.290] state-of-the-art electric railguns
+- [07:18.050] and even the high-powered lasers
+- [07:20.460] that you've been starting to read about.
+- [07:22.110] We have lasers where you aim the laser at a target
+- [07:24.760] and it just wipes it out. We're going to have --
+- [07:27.650] they'll be the most sophisticated lasers
+- [07:29.710] in the world
+- [07:30.910] and the most sophisticated laser in the world
+- [07:34.390] will be on the battleships that we're building.
+- [07:37.280] They'll also carry the nuclear arms
+- [07:39.210] to launch cruise missiles currently under development,
+- [07:42.530] which will be instituted pretty quickly.
+- [07:45.790] But they're under development
+- [07:47.180] and they've proven to be extremely lethal.
+- [07:51.010] The US Navy will lead the design of these ships along with me,
+- [07:54.530] because I'm a very esthetic person,
+- [07:57.020] alongside our partners in American industry.
+- [08:00.000] And we're going to have Pete Hegseth and Marco
+- [08:03.390] and a lot of very talented people involved.
+- [08:06.290] But a lot of it's already been done.
+- [08:08.270] We've been doing this for months.
+- [08:10.790] The construction will create thousands of American jobs.
+- [08:13.900] We're going to have the jobs be created.
+- [08:16.510] I mean, already we have factories
+- [08:18.350] being built unrelated to this,
+- [08:20.010] although AI will be a big factor when it comes to these ships,
+- [08:24.100] they'll be very AI controlled.
+- [08:27.640] Today's announcement is yet another step in our mission
+- [08:30.910] to make the United States Navy stronger than ever before.
+- [08:34.380] Again, when you talk about 100 times
+- [08:36.640] the power of these massive ships that we had years ago,
+- [08:40.990] it's pretty amazing.
+- [08:43.200] And next week, I'm going to meet
+- [08:45.020] with the defense prime contractors.
+- [08:47.630] I'm going to meet with them here, Florida,
+- [08:51.000] and we're going to be talking about production schedules
+- [08:55.430] because they're too slow.
+- [08:57.340] We have many countries, allies that are wanting to buy.
+- [09:00.580] We make the greatest equipment in the world by far,
+- [09:03.190] nobody's even close, but they don't produce them fast enough.
+- [09:07.210] So, we're going to be meeting with them
+- [09:08.720] to talk about the production schedules.
+- [09:12.940] We're going to have strong production schedules.
+- [09:15.820] And the only way they're going to be able to do that
+- [09:17.510] is to build new plants.
+- [09:18.780] Even with the F-35 -- we have many people
+- [09:20.660] who want the F-35 fighter jet,
+- [09:23.350] and it takes too long to deliver them to allies or to ourselves.
+- [09:26.840] It takes too long.
+- [09:28.240] The only way they're going to be able to deliver them
+- [09:29.800] is if they build new plants.
+- [09:32.060] They don't want to build new because that's expensive.
+- [09:34.710] So we're going to be discussing production schedules.
+- [09:37.700] We're going to be discussing CapEx spending.
+- [09:40.580] We'll be discussing the the pay to executives
+- [09:46.170] where they're making $45 and $50 million a year
+- [09:49.120] and not being able to build quickly.
+- [09:50.980] If they're going to make that kind of money
+- [09:52.630] they have to build quickly.
+- [09:54.480] Again, we make the best equipment in the world.
+- [09:56.700] But they don't make them fast enough.
+- [09:58.920] And we're going to be also discussing dividends.
+- [10:01.460] We want the dividends to go into the creation
+- [10:05.430] of production facilities.
+- [10:07.910] So we'll be talking about all CapEx dividends and the pay.
+- [10:13.780] We're also going to be talking about buybacks.
+- [10:16.400] They spent so much money on buybacks.
+- [10:18.050] They want to buy back their stock.
+- [10:19.700] I don't want them to buy back their stock.
+- [10:21.190] I want them to put the money in plant and equipment
+- [10:25.100] so they can build these planes fast, rapidly.
+- [10:29.710] Like, immediately.
+- [10:31.560] I mean, I have sold more planes
+- [10:33.320] than any president by far times probably 20.
+- [10:38.650] Every time I go someplace, I sell 100 planes.
+- [10:41.530] That includes commercial planes, Boeings, etc.
+- [10:44.450] But it also includes fighter jets.
+- [10:46.830] And I'm always having to say five years, six years,
+- [10:48.930] seven years, helicopters, Apache helicopters, many years.
+- [10:52.510] India bought them. They want to get them.
+- [10:54.610] They don't want to wait a long time.
+- [10:56.580] So we don't want to have executives making $50 million
+- [10:59.910] a year issuing big dividends to everybody
+- [11:04.390] and also doing buybacks.
+- [11:06.940] And then they say, well,
+- [11:08.230] we don't have the money to build the plant.
+- [11:09.780] They got to build plants. Plants to make F-35s,
+- [11:12.900] plants to make helicopters, plants to make the F-47 new jet.
+- [11:18.520] And that's it.
+- [11:20.160] And that's what I'm going to be talking to them about.
+- [11:22.160] They're going to start spending money
+- [11:23.440] on building airplanes and ships and the things that we need.
+- [11:28.330] Not in 10 years and 15 years. We need them now.
+- [11:31.860] And we're strong about it.
+- [11:33.520] Last week, the Navy announced a brand new class of frigate.
+- [11:38.600] And they're going to be working with the South Korean company,
+- [11:41.380] Hanwha, a good company, recently agreed
+- [11:43.160] to invest $5 billion in Philadelphia Naval Shipyard.
+- [11:46.840] We're opening up the Philadelphia shipyard.
+- [11:48.870] Once a great yard.
+- [11:50.640] Now it was -- it was a long time ago
+- [11:52.280] decommissioned, but now it's reopening,
+- [11:55.240] working with the Navy and working with private companies.
+- [11:59.330] The record setting defense bill
+- [12:01.170] I signed last week authorized $26 billion to build new ships,
+- [12:06.580] including destroyers and various others.
+- [12:09.380] We already have a lot of submarines,
+- [12:11.660] as you know, under construction.
+- [12:13.130] We're building a lot of submarines.
+- [12:15.610] I tell you, to be exact, we have right now
+- [12:20.560] 15 submarines under construction or ready to start.
+- [12:25.110] And we have again the greatest submarine
+- [12:26.840] in the world with our technology.
+- [12:28.350] Like, they talk about chips.
+- [12:30.270] Well, I would say submarines are a --
+- [12:34.440] are a bigger deal than ships.
+- [12:36.580] We have -- we're fair -- we're at least,
+- [12:39.260] at least 15 years ahead of any other competitor.
+- [12:41.950] China, Russia, nobody can come close.
+- [12:45.250] We're also building right now three large aircraft carriers
+- [12:48.650] in addition to the ones we have. And we have --
+- [12:52.720] actually interestingly, we have a lot of submarines,
+- [12:55.580] how many submarines do we have now altogether?
+- [12:58.020] Approximately.
+- [12:59.280] John Phelan: (inaudible) Sir, over 30 today.
+- [13:01.230] The President: Huh? What?
+- [13:02.470] John Phelan: (inaudible) Over 30 in --
+- [13:03.670] The President: We have over 30.
+- [13:05.340] But these are the super duper subs and these --
+- [13:07.660] and there's nothing like them.
+- [13:09.040] So we're going to be doing from 12 to 15 brand new submarines.
+- [13:16.040] We have a couple of other things going on.
+- [13:20.990] We'll be building other elements of Navy.
+- [13:25.400] We'll be fixing up headquarters.
+- [13:27.660] We'll be fixing up places for our great sailors to live.
+- [13:32.700] And we're going to be working very hard with companies,
+- [13:35.250] but we're also going to be penalizing companies
+- [13:37.190] that aren't doing a good job.
+- [13:39.060] For instance, when they built the Ford, Gerald Ford,
+- [13:42.160] the cost overruns were ridiculous.
+- [13:44.380] That was done in Norfolk, Virginia.
+- [13:46.080] We're going to be talking about that with that company.
+- [13:48.640] The cost overruns were out of control.
+- [13:50.940] In World War II,
+- [13:52.200] the United States built upwards of four ships per day.
+- [13:55.560] Can you believe it? Four ships a day, on average.
+- [13:59.700] And it's -- now -- they weren't all big warships,
+- [14:01.980] but there were ships, freighters, tankers.
+- [14:05.810] And it's a tragedy that we allowed
+- [14:07.530] this incredible capability to just go astray.
+- [14:11.120] We don't do that much anymore.
+- [14:14.180] We do build our warships, but that's about it.
+- [14:16.570] But that's a lot.
+- [14:17.990] We're going to restore America as a major shipbuilding power.
+- [14:20.970] We're going to ensure the USA is the most powerful fleet
+- [14:24.780] anywhere in the world and long into the future with battleships
+- [14:28.710] helping lead the way and the submarines
+- [14:30.490] that again nobody competes with us on submarines.
+- [14:33.800] So, I just want to thank everybody
+- [14:36.090] and I'd like to ask Secretary Hegseth
+- [14:38.760] to say a few words followed by the secretary.
+- [14:43.080] But if you -- if you would, Secretary of the Navy.
+- [14:46.280] But Pete's doing a fantastic job.
+- [14:49.980] By the way, we have drugs are down 96.2 percent
+- [14:55.820] coming into the United States, 92.6 by sea,
+- [15:01.630] and soon will be starting the same program on land.
+- [15:04.580] The land is much easier. But every one of those boats
+- [15:10.390] that we knocked out saved 25,000 lives.
+- [15:13.970] So we saved 25,000 lives every time we knocked out
+- [15:17.590] one of those boats with the drugs pouring in.
+- [15:19.560] And you just have to see it. I mean, people say, oh, gee,
+- [15:22.330] do you think -- do you think it was really drugs?
+- [15:24.460] Well, just take a look, bags all over the place.
+- [15:27.740] That's not fishing equipment.
+- [15:29.760] There are no fishing rods on those boats.
+- [15:32.120] They move fast when you see a boat
+- [15:33.590] with four engines or five engines on --
+- [15:36.640] you know, going 40, 50 miles an hour.
+- [15:39.350] Well, they get hit. We save 25,000 lives
+- [15:43.530] every single time we knock out a boat .
+- [15:46.280] And it's over 96 percent stopped by sea.
+- [15:49.490] We're trying to figure out
+- [15:50.770] who the other four percent are frankly.
+- [15:53.420] And we're going to have the same success,
+- [15:56.730] but even quicker because it's much easier on land.
+- [16:00.320] If they want to come by land
+- [16:01.690] they're going to end up having a big problem.
+- [16:03.920] They're going to get blown to pieces
+- [16:05.880] because we don't want our people poisoned.
+- [16:08.700] 300,000 people died, probably last year, 300,000,
+- [16:12.880] a lot of people say it was 200.
+- [16:14.730] Somebody said last night it was only 175,000 people.
+- [16:19.070] That's like three stadiums,
+- [16:20.520] big football stadiums filled up with people died.
+- [16:23.760] But I think the real number is 300,000.
+- [16:26.400] We're not going to have that anymore.
+- [16:27.680] So we're -- we're doing a great job
+- [16:30.260] and we enjoy doing it.
+- [16:32.270] Our border is secure, our country is strong,
+- [16:35.530] trillions of dollars is coming into our country
+- [16:37.920] from other countries and companies.
+- [16:40.360] They're building factories and plants
+- [16:42.250] including auto plants all over the United States of America.
+- [16:46.080] Without tariffs, they wouldn't be doing anything,
+- [16:47.990] although they were very happy with the November 5th election.
+- [16:51.460] But it's only because they want to avoid paying tariffs
+- [16:53.660] that they're all coming in.
+- [16:54.890] And again, the biggest number was $3 trillion in history.
+- [16:58.700] That was China many years ago. Now it's $18 trillion.
+- [17:03.640] And that's just in ten months in.
+- [17:04.950] We think we could hit $20 trillion,
+- [17:06.890] that's investment in the United States
+- [17:09.150] including plant and equipment. So, thank you very much,
+- [17:12.790] and I'll ask Pete to say a few words and then John.
+- [17:15.360] And if you have any questions, we'll take them.
+- [17:17.260] Thank you.
+- [17:18.500] Secretary Hegseth: Thank you, Mr. President.
+- [17:21.920] Well, Mr. President, you're exactly right.
+- [17:23.990] There are no fishing poles,
+- [17:26.510] no fishermen and no fishing boats,
+- [17:29.510] just drug dealers and narco terrorists.
+- [17:31.290] And with every strike we're saving American lives.
+- [17:34.900] No other president was willing to do real deterrence.
+- [17:37.410] That's exactly what's happening.
+- [17:40.110] It's an honor to be here, Mr. President, Mr. Secretary,
+- [17:43.170] Secretary Rubio to talk about what peace through strength
+- [17:46.710] really looks like. You can talk about it,
+- [17:48.960] or you can invest in it, and you can build it.
+- [17:51.550] And that's exactly what President Trump is doing.
+- [17:54.240] At the Department of War, we're restoring the warrior ethos.
+- [17:56.300] In fact, the President mentioned the NDAA we put into law,
+- [17:59.520] merit based, we put into law getting rid of DEI
+- [18:02.400] and political correctness.
+- [18:03.850] That's now part of how our military operates.
+- [18:06.410] And you've seen it in record recruiting in the spirit
+- [18:08.490] of the Department of War. We're rebuilding the military.
+- [18:10.980] And President Trump did it once he's doing again
+- [18:13.020] with historic investments today in shipbuilding.
+- [18:16.810] And we're reestablishing deterrence,
+- [18:18.430] whether that's at the border,
+- [18:19.710] whether it's through Golden Dome,
+- [18:21.450] what happened with Midnight Hammer
+- [18:22.900] and what Iran found out, those drug boats and of course,
+- [18:25.700] the Houthis opening up the shipping lanes.
+- [18:27.890] American strength is back on the world stage.
+- [18:30.680] And the announcement of the Golden Fleet anchored
+- [18:33.410] by new battleships, the biggest and most lethal
+- [18:36.440] ever accomplishes all three of those things
+- [18:39.170] and marks a generational commitment
+- [18:41.550] to American sea power.
+- [18:43.370] Across the entire,
+- [18:45.460] we are developing new operational concepts,
+- [18:47.850] deploying cutting edge technologies
+- [18:49.700] and making major investments including in our Navy.
+- [18:55.430] This is all -- this is happening in all domains,
+- [18:57.130] including space, as the President has talked about
+- [18:59.210] before anyone else. So it's the highest of domains
+- [19:02.510] and the lowest of domains under sea
+- [19:04.940] and especially today in sea power
+- [19:07.550] that always has to be decisive,
+- [19:09.230] has been in the history of America
+- [19:11.150] and will continue to be
+- [19:12.790] under the leadership of President Trump.
+- [19:15.010] We will make sure that anything that flows from our country
+- [19:17.860] and with our allies -- allies -- flows freely and uncontested.
+- [19:22.800] New and better ships will provide that deterrent today
+- [19:26.530] and for generations to come.
+- [19:28.130] This new class, these new investments will be
+- [19:31.070] the types of things that for decades for centuries,
+- [19:34.240] the American people will look back and thank President Trump
+- [19:36.630] for having the vision and the willingness to invest right now
+- [19:40.130] in capabilities we need today,
+- [19:41.940] tomorrow and long into the future.
+- [19:43.760] So, Mr. President, thank you for this investment,
+- [19:45.580] and I'll hand it over now to the Navy Secretary.
+- [19:49.000] Secretary Phelan: Thank you, Mr. President,
+- [19:54.610] Secretary Hegseth, Secretary Rubio.
+- [19:56.750] Thank you for being here on a very consequential day.
+- [20:01.680] From my very first conversation with President Trump
+- [20:04.500] about serving as his secretary of the Navy,
+- [20:07.150] he's talked about the great Iowa class battleship
+- [20:10.170] and why America doesn't build ships anymore
+- [20:12.960] with that kind of offensive firepower
+- [20:15.430] that takes the fight to the enemy.
+- [20:18.290] During my time in the job, I've talked extensively
+- [20:20.980] with our combatant commanders,
+- [20:22.850] like Admiral Paparo and Admiral Cooper
+- [20:25.520] and our CNO Admiral Caudle.
+- [20:27.760] And what I've learned is that not only
+- [20:29.690] is the President's idea a good one,
+- [20:31.920] it's something that Navy desperately needs
+- [20:34.500] and now has a formal requirement for.
+- [20:37.240] The future Trump class battleship, the USS Defiant,
+- [20:41.690] will be the largest, deadliest and most versatile,
+- [20:45.380] and best-looking warship anywhere on the world's oceans.
+- [20:49.630] I want to thank the President for his vision
+- [20:52.170] to make this game changing capability
+- [20:54.660] for the United States Navy.
+- [20:56.840] The Iowa was designed to go on the attack with the biggest guns
+- [21:01.460] and that's exactly what will define
+- [21:03.130] the Trump class battleships --
+- [21:05.250] offensive firepower from the biggest guns of our era.
+- [21:09.230] This ship isn't just to swat the arrows;
+- [21:12.300] it is going to reach out and kill the archers.
+- [21:15.390] And for the first time in generations,
+- [21:17.560] we'll have a new leg in America's nuclear deterrence,
+- [21:20.710] because the Trump class battleship
+- [21:22.680] will carry the nuclear armed sea launched cruise missile.
+- [21:27.100] Striking dominance isn't all that the Trump class battleship
+- [21:30.410] brings to the fight at sea.
+- [21:33.070] It has the size and capacity to serve as a flagship
+- [21:36.680] for our fleet commanders
+- [21:38.210] so that they can command and control naval
+- [21:40.410] forces far out to sea.
+- [21:43.470] As shown in the series, and the President mentioned it,
+- [21:45.930] Victory at Sea, admirals Bull Halsey and Raymond Spruance
+- [21:50.600] commanded the war in the Pacific
+- [21:52.500] from their battleship flagships during World War II.
+- [21:55.930] Now, this new battleship will command everything from warships
+- [21:59.560] to drones and everything in between.
+- [22:02.870] We're going to make battle groups great again,
+- [22:06.460] and this is just one piece of the President's Golden Fleet
+- [22:09.650] that we're going to build with the investments he talked about.
+- [22:13.030] A new frigate, the right frigate,
+- [22:15.460] the one our warfighters have told us they need,
+- [22:18.510] more amphibious power for our Marines
+- [22:21.300] with new capabilities like the medium landing ship.
+- [22:24.920] As part of the Navy's high-low mix,
+- [22:27.010] we're moving out aggressively on unmanned vessels
+- [22:30.380] with funding from the President's One Big,
+- [22:32.170] Beautiful Bill to bring options to the fight
+- [22:35.270] and pull new nontraditional defense partners
+- [22:39.280] into the American shipbuilding ecosystem.
+- [22:42.520] And we're making a generational investment in support ships.
+- [22:46.120] Logistics wins wars and that kind of shipbuilding
+- [22:49.320] is the spark that will ignite the industrial base
+- [22:52.650] and help power the commercial shipbuilding
+- [22:56.140] that the President has called for.
+- [22:58.040] Under your leadership Mr. President,
+- [23:00.000] we will have more tonnage and firepower under construction
+- [23:03.870] than ever before in our history.
+- [23:06.300] Building the President's Golden Fleet
+- [23:08.070] means jobs across the United States now.
+- [23:11.240] There will be work for shipyards everywhere,
+- [23:13.780] from Philadelphia to San Diego, from Maine to Mississippi,
+- [23:18.320] from the Great Lakes to the Gulf Coast.
+- [23:21.530] And for manufacturers that will build components
+- [23:23.740] for this battleship in every state.
+- [23:26.740] The President has been clear; we must bring back
+- [23:29.600] our American maritime industrial might.
+- [23:32.550] And he has told me many times that, as secretary of the Navy,
+- [23:35.820] it is my job to equip our sailors
+- [23:38.270] to win the fight at sea with the finest ships in our history.
+- [23:42.390] To conclude, the USS Defiant battleship will inspire awe
+- [23:47.220] and reverence for the American flag
+- [23:49.440] whenever it pulls into a foreign port.
+- [23:51.950] It will be a source of pride for every American
+- [23:54.790] when it brings home our brave sailors who will sail defiant,
+- [23:58.760] raise their fists and say we are peace through strength.
+- [24:03.400] And our adversaries will know when the Trump class
+- [24:06.060] USS Defiant appears on the horizon,
+- [24:09.280] American victory at sea is inevitable.
+- [24:12.340] Thank you, Mr. President.
+- [24:14.140] Now when a conflict arises, you are going to ask not one,
+- [24:18.580] but two questions.
+- [24:20.150] Where are the carriers and where are the battleships?
+- [24:22.650] Thank you.
+- [24:23.940] The President: Thank you very much.
+- [24:25.180] Thank you. I just want to mention that John Phelan
+- [24:28.750] is one of the most successful businessmen in the country --
+- [24:32.190] in our country. He's been a tremendous success,
+- [24:34.850] and he wanted to do this and for nothing.
+- [24:39.380] He's taken probably the largest salary cut in history,
+- [24:43.450] but he wanted to do it. He wants to rebuild our navy.
+- [24:45.640] And you needed that kind of a brain to do it properly.
+- [24:48.900] So, I just wanted to give you a little information on him,
+- [24:51.710] which is probably enough,
+- [24:53.410] but one of the most successful men in the country.
+- [24:55.480] And he's that because he understands it
+- [24:58.650] and he understands finance in addition
+- [25:00.370] to what we're talking about.
+- [25:02.440] Somebody who's doing a fantastic job
+- [25:04.100] is Marco Rubio, Secretary of State.
+- [25:06.380] And Marco, maybe say a few words
+- [25:07.920] and then we'll answer some questions.
+- [25:09.960] Thank you.
+- [25:11.770] Secretary Rubio: Thank you, Mr. President.
+- [25:13.010] And I don't have much to add.
+- [25:14.240] This is a phenomenal presentation.
+- [25:15.650] Thank you, Mr. President.
+- [25:16.870] This is American industrial power returning.
+- [25:19.570] This is the ability once again to rebuild --
+- [25:22.300] to have industry in the United States.
+- [25:24.820] This is generational in the change,
+- [25:26.600] not just in terms of applying American war power,
+- [25:29.430] increasing our ability to protect the seas.
+- [25:31.280] The US Navy is the single biggest source of peace
+- [25:34.870] in the world of all of our forces
+- [25:36.150] because it gives us a global footprint,
+- [25:38.240] but it rebuilds American industrial capacity.
+- [25:40.370] The ability to make things again in our country has been critical
+- [25:43.910] to what the President's agenda has been all about
+- [25:45.660] and this is a tangible reminder of it.
+- [25:47.380] And I know the country is grateful for it
+- [25:49.040] and generations of Americans
+- [25:50.300] will be grateful for it so, thank you.
+- [25:52.110] The President: Thank you, Marco.
+- [25:53.660] By the way, I think I'd just like to point out
+- [25:55.660] that these ships are made of steel as opposed to aluminum.
+- [26:00.000] It's a big difference, as you know.
+- [26:01.670] Battleships, the great battleships had six-
+- [26:04.200] and seven-inch steel hulls, and these are going to be
+- [26:07.190] likewise made out of very powerful steel.
+- [26:10.920] Our steel industry is coming back very strongly by the way.
+- [26:14.120] It's coming back at record numbers
+- [26:16.840] and we're going to be using them for the steel,
+- [26:18.970] but as opposed to an aluminum side,
+- [26:21.150] which in all fairness is not the same.
+- [26:24.560] So, John, we're going with all steel, I understand,
+- [26:28.300] and that's going to be something that people are surprised --
+- [26:31.120] more expensive,
+- [26:32.450] but not even comparable in terms of the importance
+- [26:37.350] and the strength. Yeah, please.
+- [26:38.630] The Press: What's your timetable for these first two ships?
+- [26:40.860] And do you see them as a counter to China?
+- [26:42.980] The President: We're going to start almost immediately
+- [26:44.660] and we're probably talking about two and a half years.
+- [26:48.660] The Press: In terms of the mission,
+- [26:49.860] do you see it as a counter to China?
+- [26:52.660] The President: It's a counter to everybody, it's not China.
+- [26:55.160] We get along great with China;
+- [26:56.520] I have a great relationship with President Xi.
+- [26:59.290] And not China, it's just everybody.
+- [27:01.740] You don't know who comes along,
+- [27:03.920] but we just wanted peace through strength.
+- [27:06.250] Hopefully, we never have to use them,
+- [27:08.140] but there will never be anything built like these.
+- [27:10.770] Think of it. Those battleships are incredible.
+- [27:13.280] These have 100 times the power.
+- [27:16.640] Think of that, and they were big and they were powerful.
+- [27:20.810] You know, I thought about taking some that
+- [27:23.690] are in dry dock and changing them.
+- [27:26.100] And then when I said that, you know, if we did,
+- [27:28.210] it would be about -- if we doubled them,
+- [27:32.490] they'd be at like just a tiny fraction
+- [27:34.760] of what one of these was.
+- [27:36.040] This is the new technology which is incredible.
+- [27:39.420] So, we decided pretty early on not to do that.
+- [27:41.630] Yeah, please.
+- [27:42.890] The Press: Mr. President, Julio Rosas
+- [27:44.580] with Mostly Peaceful Media.
+- [27:46.480] You just referenced the lower amount of illegal drugs
+- [27:49.380] that are coming by sea.
+- [27:50.600] You just said that you're going to start
+- [27:52.600] that same program on land soon.
+- [27:54.010] Are you just referring to Venezuela
+- [27:55.660] or are you referring to other countries in Latin America?
+- [27:58.240] The President: No, anywhere. Anywhere drugs are pouring in --
+- [28:00.200] anywhere, not just Venezuela. Yes.
+- [28:02.860] The Press: Speaking of Venezuela -- oil.
+- [28:04.640] What are we going to do with the oil that we have?
+- [28:06.530] The President: Going to do with what?
+- [28:07.740] The Press: The oil that has been seized.
+- [28:09.390] The United States seized 1.9 million barrels of oil
+- [28:12.520] on December 10th.
+- [28:13.840] The President: We're going to keep it. We're keeping it.
+- [28:15.680] The Press: Where's it going?
+- [28:16.960] Are we going to sell it or put it in a strategic --
+- [28:18.460] The President: Maybe we'll sell it,
+- [28:19.690] maybe we'll keep it,
+- [28:20.900] maybe we'll use it in the strategic reserves.
+- [28:23.630] We're keeping it. We're keeping the ships also.
+- [28:26.560] Yeah, please.
+- [28:30.450] The Press: About Venezuela, sir,
+- [28:31.700] have you spoken to American oil companies
+- [28:34.000] that have had their assets seized
+- [28:35.400] about what a post-Maduro Venezuela
+- [28:37.320] would mean for them coming back and restarting operations?
+- [28:39.490] The President: I have -- all the big ones,
+- [28:40.710] yeah, I have. Yeah, please.
+- [28:43.210] The Press: Why do you feel like this initiative
+- [28:44.510] was neglected for so many years?
+- [28:46.110] And does this come amidst the rising tensions
+- [28:48.030] between the US and Venezuela?
+- [28:49.290] The President: We're talking about with Venezuela?
+- [28:50.780] The Press: Yes.
+- [28:52.120] The President: Well, you had a different
+- [28:53.320] kind of a president before me.
+- [28:55.110] They didn't mind being ripped off.
+- [28:56.430] They didn't mind being robbed,
+- [28:57.640] they didn't mind drugs pouring into our country.
+- [28:59.900] They didn't mind the jails of Venezuela
+- [29:01.790] and Tren de Aragua being emptied into the US
+- [29:04.950] where they take over Colorado and other places.
+- [29:07.670] I do mind.
+- [29:09.570] So, you had a different kind of a president.
+- [29:11.250] I hope people are enjoying it
+- [29:13.140] because we've never been respected more than we are now.
+- [29:15.440] Yeah, please.
+- [29:21.140] The Press: Thank you, Mr. President.
+- [29:22.570] Were you surprised by the number of photos
+- [29:24.240] of Bill Clinton in the Epstein files?
+- [29:26.270] And can you commit to their full --
+- [29:27.870] The President: By what?
+- [29:29.460] The Press: Were you surprised by the number of photos
+- [29:30.990] of Bill Clinton in the Epstein files?
+- [29:33.060] And can you commit to their full release by the end of the year?
+- [29:35.570] Some of the victims were protesting
+- [29:37.030] that too many of them were redacted.
+- [29:38.870] The President: I know there are a lot of people
+- [29:40.370] that are angry about all of the pictures of other people,
+- [29:43.840] you know. But I think it's terrible.
+- [29:45.410] Look, I don't like the -- I like Bill Clinton.
+- [29:48.560] I've always gotten along with Bill Clinton.
+- [29:50.130] I've been nice to him. He's been nice to me.
+- [29:51.790] We've always gotten along. I respect him.
+- [29:54.220] I hate to see photos come out of him,
+- [29:56.070] but this is what the Democrats,
+- [29:58.060] mostly Democrats and a couple of bad
+- [29:59.860] Republicans are asking for.
+- [30:01.380] So they're giving their photos of me, too.
+- [30:03.510] Everybody was friendly with this guy,
+- [30:05.620] either friendly or not friendly,
+- [30:06.920] but they were -- you know, he was around.
+- [30:08.260] He was all over Palm Beach and other places.
+- [30:10.080] The head of Harvard was his best friend,
+- [30:11.980] Larry Summers and Bill Clinton was a friend of his,
+- [30:15.180] but everybody was.
+- [30:16.750] I actually threw him out of Mar-a-Lago.
+- [30:19.120] And as a -- you know, as a person
+- [30:21.310] that was in Mar-a-Lago, I threw him out.
+- [30:23.410] Mar-a-Lago is -- this is Mar-a-Lago.
+- [30:25.090] It's the hottest place in --
+- [30:26.860] I think it's the hottest place in the world,
+- [30:28.310] but it's the hottest place in Florida.
+- [30:31.120] And everybody would come. He'd come.
+- [30:32.890] We actually threw them out. But no,
+- [30:35.130] I don't like the pictures of Bill Clinton being shown.
+- [30:37.990] I don't like the pictures of other people being shown.
+- [30:40.000] I think it's a terrible thing.
+- [30:41.780] I think Bill Clinton's a -- a big boy, he can handle it.
+- [30:45.590] But you probably have pictures being exposed of other people
+- [30:50.180] that innocently met Jeffrey Epstein years ago,
+- [30:52.500] many years ago.
+- [30:54.320] And they're, you know, highly respected bankers
+- [30:56.980] and lawyers and others.
+- [30:59.160] And they'll end up because of guys like Massey,
+- [31:02.230] who's a real low life,
+- [31:03.470] whose polls are down to about 9 percent,
+- [31:05.360] by the way, in the great state of Kentucky.
+- [31:07.560] If you look at Kentucky, Kentucky is such a great place,
+- [31:11.910] but I don't know you've got -- they've got --
+- [31:13.610] they've got a couple of people in there
+- [31:15.360] that are very strange in terms of leadership.
+- [31:18.000] But Massey is a loser, and he likes it,
+- [31:21.050] and he works with the Democrats.
+- [31:22.620] He's just being used by the Democrats.
+- [31:25.040] Because what this whole thing is with Epstein
+- [31:27.720] is a way of trying to deflect from the tremendous success
+- [31:30.690] that the Republican Party has. Like for instance,
+- [31:33.620] today we're building the biggest ships in the world,
+- [31:35.580] the most powerful ships in the world.
+- [31:37.180] And they're asking me questions about Jeffrey Epstein.
+- [31:40.410] I thought that was finished.
+- [31:42.030] I believe they gave over 100,000 pages of documents.
+- [31:45.940] And there is tremendous backlash.
+- [31:48.320] It's an interesting question because a lot of people
+- [31:51.000] are very angry that pictures are being released of other people
+- [31:54.420] that really had nothing to do with Epstein,
+- [31:55.970] but they're in a picture with him
+- [31:57.190] because he was at a party.
+- [31:59.070] And you ruin a reputation of somebody.
+- [32:01.800] So a lot of people are very angry that this continues.
+- [32:05.390] A lot of Republicans are angry because of the fact
+- [32:07.760] that it's just used to deflect against a tremendous success.
+- [32:11.360] Look, we have $18 trillion coming into our country.
+- [32:14.360] We have -- I believe we're going to have
+- [32:15.950] the most successful economy in history.
+- [32:18.720] We inherited a mess. Now prices are coming way down.
+- [32:21.360] Gasoline is less than $2 in some states, $1.99, $1.97,
+- [32:26.770] $1.95 a gallon. $1.95, think of that, a gallon.
+- [32:33.980] Nobody ever thought they'd see that.
+- [32:36.020] They don't want to talk about that.
+- [32:37.250] They want to talk about Epstein.
+- [32:39.840] And the problem is a lot of Democrats
+- [32:42.490] are being caught up in the web like Larry Summers.
+- [32:44.730] Larry Summers was the head of Harvard.
+- [32:47.750] He's now been forced to resign from every board he's on
+- [32:50.390] and he was thrown off the Harvard board.
+- [32:53.740] And he was -- you know, he was at Epstein's island a lot.
+- [32:57.170] I wasn't. I never went there by the way, but --
+- [33:00.720] fortunately it's nice, but I never went there,
+- [33:03.380] but a lot of people did go there.
+- [33:05.480] But instead of talking about the battleships
+- [33:07.610] or instead of talking about most favored nations, drugs,
+- [33:11.310] we're bringing down drug prices like at a level
+- [33:15.600] that has never even been thought of by thousands.
+- [33:19.070] Think of it, by 1,000 percent by 1,200,
+- [33:22.030] 1,300, 1,400 percent, in some cases.
+- [33:26.130] A drug that sells for $10 in London
+- [33:30.540] is costing $130 in New York.
+- [33:33.740] We're bringing it down to $20
+- [33:35.460] and they're going to go up to $20.
+- [33:37.150] So they're going from $10 to $20, which is a doubling.
+- [33:40.700] It's a doubling. That's a lot, but it's a doubling,
+- [33:43.940] but we're going down to $20. So we're going down.
+- [33:47.190] You can do your own math, but it's --
+- [33:49.770] it's a 2,000 percent, 3,000 percent.
+- [33:54.530] It's pretty amazing.
+- [33:55.780] And you know, The New York Times had a story about it,
+- [33:58.340] a small story way in the back of the paper.
+- [34:00.990] It's the single biggest thing to happen in --
+- [34:05.260] with respect to drugs probably in 50 years.
+- [34:07.650] There's never been anything like this.
+- [34:10.340] In my first term, I was able to get drug prices
+- [34:13.680] down one quarter of one percent.
+- [34:15.030] That's the first time in 28 years that they went down.
+- [34:17.420] One quarter of one percent. I was so proud of myself.
+- [34:20.890] Now we're doing them 2,000 percent,
+- [34:22.920] 1,500 percent, 1,200 percent. That pill that sold for $130
+- [34:32.030] will now be selling, as an example, for $20.
+- [34:36.950] Because the rest of the world took advantage of us.
+- [34:39.220] Without tariffs, I could have never done it.
+- [34:41.680] I called up the heads of the countries.
+- [34:44.080] As an example, France.
+- [34:45.800] I spoke to a very good man, President Macron of France.
+- [34:50.750] And I said, Emmanuel, you have to raise your drug prices.
+- [34:54.650] He said no, no, no,we will not do that.
+- [34:56.960] I said you have to. He said, no, I don't want to do that.
+- [34:59.540] Look, you're asking me for -- to go to $10 to $20,
+- [35:02.370] you're going to come way down to $20.
+- [35:04.070] We don't want to do that.
+- [35:05.360] Now in all fairness, no other president even tried.
+- [35:08.630] But if they did try,
+- [35:10.020] there was actually a fake story in stupid USA Today.
+- [35:13.730] I didn't even think they make it anymore. I have it.
+- [35:16.040] But I saw a story where Biden was trying to do this.
+- [35:19.800] Biden never tried to do it.
+- [35:21.150] Biden didn't know he was alive. He never tried to do it.
+- [35:25.130] But they're taking it from $10 to $20.
+- [35:29.080] So he would say -- and the other leader said the same thing.
+- [35:32.090] No, no, we won't do it.
+- [35:33.360] I said no, no, you're going to do it 100 percent.
+- [35:36.280] They said, nope, we're not doing it.
+- [35:38.060] We're not going to double our price.
+- [35:39.270] Because again, if you go from $10 to $20,
+- [35:41.760] they're doubling their price.
+- [35:43.880] We're coming down though from $130 to $20
+- [35:46.450] because we're going to have the lowest drug prices in the world.
+- [35:49.750] Whatever the lowest price is. It's called favored nations.
+- [35:52.090] We're going to have the lowest price.
+- [35:54.650] So I said no, no, you're going to.
+- [35:55.910] No, no, I will not do this. Politically, it's unacceptable.
+- [36:00.980] I said, Emmanuel, you're going to do it 100 percent.
+- [36:03.830] Please accept it now. Be nice.
+- [36:06.660] You're going to do it 100 percent.
+- [36:07.950] No, no, no, I will not. I said, yes, you are.
+- [36:10.190] He said, why do you keep telling me I am when I'm not?
+- [36:13.370] Because if you don't do it,
+- [36:14.670] I'm going to put a 25 percent tariff on everything.
+- [36:17.020] France sells into the United States of America,
+- [36:20.480] and that's approximately 20 times more than
+- [36:22.660] I'm asking for with respect to drug prices.
+- [36:26.630] He said, ah, I see. I agree to do it.
+- [36:30.410] Every other country said the exact same thing.
+- [36:33.280] They all said, no, I will not do it.
+- [36:35.040] I said all right, on Monday morning you'll have
+- [36:37.240] the 25 percent tariff on everything you sell.
+- [36:40.540] In the case of France, it was wine, champagne, cars,
+- [36:44.450] everything they sell. It's 25 to 30 times the price
+- [36:48.780] of what we're talking about at 25 percent.
+- [36:51.670] Every single country agreed. And that was the big problem.
+- [36:54.450] The drug companies were difficult but fine
+- [36:58.690] because we have a certain control over the drug companies.
+- [37:01.390] We had no control over these foreign nations.
+- [37:04.110] So, every single country has agreed to do this.
+- [37:07.190] So we will take that pill price down as an example,
+- [37:11.750] talking about not just pills, we're talking about everything.
+- [37:14.640] We'll take it down from $130 a pill down to $20 a pill.
+- [37:21.240] And the rest of the world
+- [37:22.530] will take it from $10 a pill up to $20.
+- [37:26.270] It's the biggest thing ever to happen and it's covered --
+- [37:29.090] barely covered in the New York Times
+- [37:30.800] because it's a fake newspaper. Yeah?
+- [37:32.870] The Press: Mr. President, on shipbuilding,
+- [37:34.980] how is the administration plan
+- [37:36.640] to ensure that there are sufficient workforce
+- [37:38.900] availability as you're producing these ships?
+- [37:40.910] The President: Could you speak up?
+- [37:42.120] The Press: How does the administration plan
+- [37:43.660] to ensure there is sufficient workforce availability
+- [37:46.370] as you're producing these ships? And I --
+- [37:48.060] The President: We're going to have --
+- [37:49.300] we're going to have tremendous workforce availability.
+- [37:52.250] We're also going to have robots helping us.
+- [37:54.110] We're going to have a lot of robots helping us
+- [37:55.820] because we need it, and because we're going to town.
+- [37:58.670] We're building a lot between the AI and the auto plants.
+- [38:02.040] So we're going to need robots, we're going to have robots,
+- [38:04.630] but that's going to help us.
+- [38:05.900] We're going to have tremendous workforce.
+- [38:07.470] And in order to operate the --
+- [38:09.520] you're always going to need people.
+- [38:11.060] You know, you can have robots,
+- [38:12.330] but you're going to have to get somebody to start those robots
+- [38:15.700] and you're going to have to improve the robots.
+- [38:18.270] But we're going to have robotic factories plus manpower.
+- [38:22.630] So we're going to have enough.
+- [38:23.850] We're going to need the help of robots
+- [38:25.720] and other forms of I guess you could say employment.
+- [38:30.990] We're going to be employing a lot of artificial things.
+- [38:35.310] But the beauty is we're going to have more jobs
+- [38:37.050] than we've ever had.
+- [38:38.320] Just so you know, the figure -- a number came out the other day,
+- [38:41.440] we have more jobs right now in the United States,
+- [38:44.840] more people are working right now in the United States
+- [38:47.400] than at any time in the history of our country.
+- [38:49.770] Think of that. Pretty amazing.
+- [38:52.400] So we'll have the help of, you know, mechanical help
+- [38:55.150] if you want to call it that.
+- [38:56.680] But we'll have a tremendous employment.
+- [39:00.160] They'll be paid a lot of money.
+- [39:02.000] They'll make -- they'll do better than they ever did.
+- [39:04.130] Ok, yeah?
+- [39:05.390] The Press: Mr. President, so may have been expecting
+- [39:08.500] a different kind of announcement today,
+- [39:09.910] hearing your Secretary of War and Secretary of State here.
+- [39:12.610] You mentioned strikes on land in Venezuela more than 15 times,
+- [39:16.170] even now just in your recent remarks.
+- [39:19.120] Why should Maduro take your threat serious --
+- [39:21.220] seriously? And what --
+- [39:22.470] The President: He can do whatever he wants.
+- [39:24.500] Maduro, no -- there's no answer. He could do whatever he wants.
+- [39:29.840] I mean, we have a massive armada informed
+- [39:33.660] the biggest we've ever had,
+- [39:35.790] and by far the biggest we've ever had in South America.
+- [39:40.570] He could do whatever he wants.
+- [39:41.920] It's all right, whatever he wants to do.
+- [39:43.400] If he wants to do something -- if he plays tough,
+- [39:46.480] it'll be the last time he's ever able to play tough.
+- [39:49.590] But they sent their prisoners into us.
+- [39:53.540] They sent people from jails and prisons.
+- [39:56.600] They sent people from mental institutions
+- [39:58.710] and insane asylums into the United States,
+- [40:01.410] just walked right in,
+- [40:02.670] because Biden had an open border policy.
+- [40:06.000] What the Biden administration did to our country
+- [40:08.690] can never be forgotten.
+- [40:10.620] They took in millions and millions --
+- [40:12.460] 25 million people over the course of four years.
+- [40:15.380] Many of those people were murderers and drug dealers,
+- [40:18.840] prisoners, rough prisoners -- 11,888 murderers.
+- [40:25.360] More than half of them killed more than one person.
+- [40:28.040] They came into our country.
+- [40:30.110] Now, I spoke to Kristi Noem today,
+- [40:32.370] I spoke to Tom Homan today came down to see me
+- [40:35.180] and we had a great meeting. They've done an amazing job.
+- [40:37.500] We're getting them out.
+- [40:38.790] We're getting them out very fast,
+- [40:40.840] but this should have never happened.
+- [40:42.270] But Venezuela was one of the --
+- [40:44.000] Venezuela, took advantage of the open borders
+- [40:47.320] that Biden created more than any other country,
+- [40:50.210] Tren de Aragua, we had gangs all over.
+- [40:53.030] Look, I mean you have a very weak governor in Colorado.
+- [40:55.990] Look what happened in Colorado
+- [40:57.240] where they would occupy apartment houses
+- [40:59.750] and he didn't want to do anything about it
+- [41:01.290] because he was scared.
+- [41:03.590] Any other questions? Yeah, go ahead, please.
+- [41:07.770] The Press: So, in response to the United States
+- [41:09.120] taking sanctioned oil from Venezuela,
+- [41:12.030] Colombian President Gustavo Petro,
+- [41:14.690] criticized the United States by saying,
+- [41:16.040] well, the southwest has stolen land
+- [41:17.640] and that it should be returned to Latin America.
+- [41:19.410] I just wanted to know what your response to that is.
+- [41:21.130] The President: Well, he has to watch because,
+- [41:22.390] you know, he's got drug factories.
+- [41:24.590] They make cocaine in Colombia
+- [41:27.230] and he's no friend of the United States.
+- [41:30.140] He's very bad, very bad guy.
+- [41:32.500] And he's got to watch his ass because he makes cocaine
+- [41:35.650] and they send it into the United States of America from Colombia.
+- [41:39.320] We love the Colombian people.
+- [41:42.250] I love the Colombian people, they're great people, energetic,
+- [41:45.120] smart, great,
+- [41:46.580] but their new leader is a troublemaker
+- [41:50.000] and he better watch it.
+- [41:51.310] He better close up those cocaine factories.
+- [41:53.500] They have at least three major cocaine factories.
+- [41:56.460] We know where they are, he better close them up fast.
+- [41:59.120] Yeah. By the way, it's made
+- [42:01.620] and sold into the United States, comes through Mexico.
+- [42:04.760] The Press: Thank you, sir. You've named Governor Landry
+- [42:06.330] to be the new special envoy to Greenland.
+- [42:08.110] How do you -- what do you see that role entailing?
+- [42:09.910] And is it still your intention
+- [42:11.220] that Greenland become part of the US?
+- [42:12.670] The President: Well, he told me, he viewed Louisiana,
+- [42:14.610] the Louisiana Purchase.
+- [42:15.940] He said I'm governor of Louisiana
+- [42:17.550] and he said I would love --
+- [42:19.040] I didn't call him, he called me, he's very proactive.
+- [42:22.830] He's a great guy. He's a deal guy.
+- [42:24.690] He's a deal maker type guy.
+- [42:27.430] And we need it for national protection.
+- [42:30.090] We need Greenland for national protection.
+- [42:32.020] They have a very small population.
+- [42:34.660] And I don't know, they say Denmark,
+- [42:36.310] but Denmark has spent no money.
+- [42:38.200] They have no military protection.
+- [42:40.600] They say that Denmark was there 300 years ago
+- [42:42.690] or something with a boat.
+- [42:43.900] Well, we were there with boats too, I'm sure.
+- [42:46.600] So, we'll have to work it all out.
+- [42:49.510] But he felt very strongly.
+- [42:52.520] We need it for national --
+- [42:54.020] we need Greenland for national security, not for minerals.
+- [42:57.660] We have so many sites for minerals and oil and everything.
+- [43:00.670] We have more oil than any other country in the world.
+- [43:03.180] We need Greenland for national security.
+- [43:06.160] And if you take a look at Greenland,
+- [43:07.560] you look up and down the coast,
+- [43:08.760] you have Russian and Chinese ships all over the place.
+- [43:11.950] We need it for national security.
+- [43:14.010] We have to have it, and he wanted to lead the charge.
+- [43:17.380] So, we're making him, Marco, today,
+- [43:19.730] a special envoy to Greenland. Greenland is a big deal. Yeah.
+- [43:24.570] The Press: Mr. President, on Ukraine,
+- [43:25.900] can you give an update on the talks
+- [43:27.220] that took place this past weekend?
+- [43:28.740] And could a trilateral discussion of sort
+- [43:31.290] be the next step for Ukrainian, US and Russian delegations --
+- [43:33.520] The President: So, the talks on Ukraine,
+- [43:34.770] Russia are going along.
+- [43:36.450] They lost, as you know, 27,000 soldiers last month,
+- [43:39.550] mostly soldiers, some people, some people in Kiev, etc.,
+- [43:43.980] but mostly soldiers and the talks are going along.
+- [43:48.130] And they say there's tremendous hatred
+- [43:50.110] between these two leaders,
+- [43:51.880] between President Putin and President Zelenskyy,
+- [43:54.800] tremendous hatred.
+- [43:56.110] And I hope we can get it done.
+- [43:57.340] We are talking, talks are going okay.
+- [44:00.470] But I've solved eight wars,
+- [44:03.720] and Thailand is starting to shape up.
+- [44:05.610] You know they started --
+- [44:06.950] with Cambodia, they started up again.
+- [44:08.680] But I think, Marco, we have that in pretty good shape
+- [44:11.270] to have that stopped. So, we stopped eight wars,
+- [44:14.870] and I thought this would be in the middle of the pack,
+- [44:16.880] but maybe easy but in the middle of the pack.
+- [44:19.690] But there's a lot of hatred between those two people
+- [44:21.910] and when there's hatred there's, you know --
+- [44:24.180] but we stopped one war 38 years, one war 35 years.
+- [44:28.000] One war was going on for 32 years.
+- [44:31.370] And we stopped -- think of it,
+- [44:33.610] we stopped a potential nuclear war
+- [44:36.070] between Pakistan and India and the head of
+- [44:40.980] Pakistan, highly respected general.
+- [44:43.910] He's a field marshal and also the prime minister of Pakistan
+- [44:48.390] said President Trump saved 10 million lives,
+- [44:51.010] maybe more by getting that war.
+- [44:52.960] You know, eight planes were shot down.
+- [44:54.580] That war was starting to rage,
+- [44:56.820] and he actually said the other day
+- [44:58.250] that President Trump saved 10 million lives, maybe more.
+- [45:02.920] So, we solved all these wars.
+- [45:04.480] The only one I haven't solved yet is Russia-Ukraine.
+- [45:08.180] The Press: Are you still searching for the Christmas
+- [45:09.670] Day deadline with Russia and Ukraine?
+- [45:11.730] And have you spoken with Putin or Zelenskyy
+- [45:13.420] or plan to to push the deal?
+- [45:14.640] The President: Well, I'll do whatever I have to do.
+- [45:15.860] I mean, I'd like to see it stopped.
+- [45:17.430] Look, we don't lose any money on that war anymore.
+- [45:19.660] You know, Biden gave $350 billion
+- [45:22.040] and who knows what happened to it.
+- [45:24.100] We now sell missiles, planes,
+- [45:26.550] all of the best military equipment.
+- [45:28.190] We sell it to NATO.
+- [45:29.850] We got NATO to go from 2 percent GDP to 5 percent.
+- [45:33.460] Nobody believed that to this day.
+- [45:35.310] Nobody's going to write that, nobody believed it.
+- [45:38.230] And they take that money and they pay it
+- [45:39.680] to the United States for weapons.
+- [45:41.700] So, we sell weapons to NATO, we sell full price,
+- [45:45.880] we sell weapons to NATO and NATO takes those weapons
+- [45:48.700] and probably distributes them
+- [45:51.120] but gives a lot of them to Ukraine.
+- [45:54.430] So, we're not --
+- [45:55.720] we don't lose any money like we did with Biden.
+- [45:57.530] He was spending money like a fool. He was a fool.
+- [46:01.750] What he did to our country is so horrible.
+- [46:04.120] But he gave him $350 billion between cash --
+- [46:06.640] gave a lot of cash --
+- [46:08.290] $350 billion between cash and weapons.
+- [46:11.290] You remember at the beginning of that whole thing,
+- [46:13.330] I gave them javelins.
+- [46:14.790] Javelins are the anti-tank busters.
+- [46:17.640] And President Obama at the time gave them sheets.
+- [46:22.510] I gave them javelins; they gave them sheets.
+- [46:25.220] But you know, the bottom line, it's time for --
+- [46:27.750] I think they're all tired of that war.
+- [46:29.750] Everyone's tired of that war. It's got to stop. Yeah, please.
+- [46:33.090] The Press: The US was in active pursuit
+- [46:34.950] of a sanctioned oil tanker yesterday.
+- [46:36.790] Are you able to share what became of that tanker?
+- [46:38.460] Was the US able to seize it?
+- [46:39.670] The President: No, it's moving along
+- [46:40.910] and we'll end up getting it.
+- [46:42.780] Yeah, we're actually pursuing it, can you imagine?
+- [46:45.990] Because it came from the wrong location,
+- [46:47.830] it came out of Venezuela, and it was sanctioned.
+- [46:50.060] Yeah, please.
+- [46:51.290] The Press: Is the ultimate goal in Venezuela
+- [46:52.790] to force Maduro from power?
+- [46:55.320] The President: Well, I think it probably would --
+- [46:56.610] I can't tell that that's up to him what he wants to do.
+- [46:59.310] I think it would be smart for him to do that,
+- [47:01.360] but again, we're going to find out.
+- [47:03.610] Look, Venezuela did terrible things to the United States.
+- [47:08.770] They sent hundreds of thousands of people,
+- [47:11.680] millions of people into our open border.
+- [47:14.720] They sent their criminals. They sent their prisoners.
+- [47:17.460] They sent their drug dealers.
+- [47:19.680] They sent their mentally insane and incompetent people
+- [47:23.470] into our country more than any other country.
+- [47:25.510] Others did too, the Congo did, others did too
+- [47:28.760] and we just let them come right in
+- [47:30.420] because we were run by a stupid president.
+- [47:33.650] But you don't have a stupid president anymore.
+- [47:36.500] The Press: Mr. President, have you set up the meeting
+- [47:38.020] with the healthcare insurers just yet?
+- [47:39.350] And what are you hoping to get?
+- [47:40.610] How are you hoping to lower costs?
+- [47:41.850] The President: Yeah, I'll be setting it up?
+- [47:43.200] I think we're going to meet with healthcare,
+- [47:44.770] the healthcare insurers, the insurance companies.
+- [47:48.440] So, what I'm asking for in healthcare is very simple.
+- [47:50.800] Obamacare is a disaster;
+- [47:52.310] I call it the Unaffordable Care Act --
+- [47:54.540] unaffordable as opposed to -- it's unaffordable.
+- [47:56.830] They're going to have a tremendous increase in premiums,
+- [47:59.580] which is Obamacare, which is them, the Democrats' fault.
+- [48:02.380] They'll try and blame Republicans --
+- [48:03.830] has nothing to do with us. It's the Democrats fault.
+- [48:06.590] What I want to do is we spend hundreds of billions of dollars
+- [48:10.990] a year that go to insurance companies.
+- [48:13.560] I want that money to go to the people
+- [48:15.610] and let the people buy their own healthcare
+- [48:18.590] and everybody loves it. It's become our issue.
+- [48:22.750] Now, before I do that, I'll meet with the insurance companies
+- [48:26.990] just as I met with the drug companies, as you know.
+- [48:29.430] We're meeting with four other drug companies,
+- [48:31.140] Johnson & Johnson,
+- [48:32.650] but they've all agreed we're meeting with them this week.
+- [48:35.920] It's coming. It'll be a similar meeting.
+- [48:37.370] They've all agreed. But nobody would have thought
+- [48:39.720] the drug companies were going to do what they did,
+- [48:41.590] where they're giving away free drugs.
+- [48:43.240] They did -- they were -- they've been so great, okay,
+- [48:46.990] and we have most favored nations.
+- [48:50.120] Nobody thought that was possible.
+- [48:52.400] I don't think any other president ever tried to get it
+- [48:55.050] because they never thought they could.
+- [48:56.850] But with respect to the insurance companies,
+- [48:59.670] I want to meet, there's essentially 14 of them, 10 big,
+- [49:02.930] but there's a total of 14 pretty much all pretty big.
+- [49:06.610] And I want to meet with them, and I want to say
+- [49:08.320] I want you to cut your rates way down, way, way down.
+- [49:10.910] And maybe if they do that, we'll be able to not cut them out.
+- [49:14.990] We'll be able to continue to deal with them,
+- [49:17.710] which is probably a little easier process.
+- [49:20.320] I think the best process
+- [49:21.650] is pay the money directly to the people,
+- [49:23.920] let them buy their own healthcare.
+- [49:26.310] But I'm going to meet with them the first week back.
+- [49:28.690] I'd do it now,
+- [49:29.960] but they're trying to come up with a schedule.
+- [49:32.950] They want to meet badly, they've told me,
+- [49:35.610] but they want to come up with a schedule.
+- [49:37.130] I said make it a good schedule.
+- [49:39.100] Your rates have to come way down.
+- [49:41.470] We're also going to meet with other insurance companies
+- [49:43.670] because under Biden the insurance rates
+- [49:45.420] have gone through the -- roof, auto insurance, home insurance.
+- [49:49.540] I mean, insurance companies are making far more
+- [49:52.910] than they're entitled to make, so we're going to be doing that.
+- [49:56.290] But just in the meantime, we'll be meeting
+- [49:58.900] with the insurance companies in the first week,
+- [50:01.810] the first few days back in Washington.
+- [50:04.160] Because they're trying to come up with a proposal
+- [50:06.280] that will satisfy me.
+- [50:07.540] Thank you very much, everybody. Appreciate it.
+- [50:09.700] I hope you're going to enjoy the battleships.
+- [50:11.310] They're going to be beautiful.
+- [50:12.550] Thank you, and have a great Christmas
+- [50:15.700] if I don't speak to you. Thank you very much.
+- [50:17.550] The Press: Merry Christmas.
+- [50:18.770] The President: Thank you very much.

@@ -1,0 +1,2367 @@
+<!-- source: https://www.youtube.com/watch?v=NvY1m8Le1zk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NvY1m8Le1zk -->
+<!-- date_published: 2026-03-06T23:10:34+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:01.742308+00:00 -->
+
+# Transcript: President Trump Participates in a Saving College Sports Roundtable
+
+- [00:12.950] Announcer: Ladies and gentlemen,
+- [00:14.210] the President of the United States,
+- [00:16.110] Donald J. Trump.
+- [00:18.950] ♪ (Hail to the Chief) ♪
+- [00:37.120] (applause)
+- [00:40.390] The President: Thank you, everybody.
+- [00:41.900] Thanks. Thank you very much, everybody, please.
+- [00:48.430] This is a very important meeting.
+- [00:51.310] We have a lot of important meetings today,
+- [00:54.320] but this is a big one because this is really the future of --
+- [00:57.670] I think beyond college sports, this is the future of colleges
+- [01:01.940] because we're looking at numbers that are coming in,
+- [01:04.020] and the amount of money being spent and lost
+- [01:08.040] by otherwise very successful schools is astounding.
+- [01:12.720] Just in a short period of time, it's only going to get worse.
+- [01:16.290] So we have to save.
+- [01:18.310] College sports and save, I believe, colleges.
+- [01:22.690] We have to save our Olympic team
+- [01:24.160] because so many sports that are in the Olympics
+- [01:26.650] will no longer be represented by people that went through college
+- [01:32.440] and became competitive, became great at the sport.
+- [01:35.610] We won't be anywhere near what we were.
+- [01:39.240] I think it's just a very, very important meeting.
+- [01:42.130] We have the most important people in sports
+- [01:45.420] and really beyond.
+- [01:48.420] And what I'd like to do is I'll say a few words.
+- [01:51.720] I'm going to ask Marco and a few to also say a few words,
+- [01:56.620] and I'd to take your suggestions.
+- [01:59.100] And we have the Speaker.
+- [02:01.190] We have John Thune is here or represented.
+- [02:04.970] We have some of the big politicians,
+- [02:08.100] senators, congresspeople, people that can make it get approved.
+- [02:13.150] Yeah, because we ultimately, we have to go through, I guess.
+- [02:15.890] We have to do an executive order.
+- [02:18.140] I'd love to do that. I'll probably do it anyway.
+- [02:21.020] We'll do an Executive Order. We'll see how it works,
+- [02:23.230] because it would be a really nice --
+- [02:25.440] I have a really simple idea.
+- [02:28.190] But we'll go through this process,
+- [02:29.990] and maybe I think we'll get it through Congress.
+- [02:31.930] We have a good chance.
+- [02:33.300] I think it'll be very bipartisan.
+- [02:35.920] And I just want to thank you all for being here as we stand up
+- [02:40.470] for one of America's greatest beloved institutions
+- [02:46.220] called College Athletics, which is true, means so much.
+- [02:50.350] I want to thank Secretaries Marco Rubio,
+- [02:54.070] Scott Besson, Doug Burgum, Howard Lutnick,
+- [02:57.860] Linda McMahon for being here,
+- [03:00.760] and also Speaker of the House Mike Johnson
+- [03:03.900] doing a great job, Governor Ron DeSantis,
+- [03:07.340] Senators Ted Cruz, Eric Schmidt, Leader Steve Scalise.
+- [03:12.650] Representatives Lisa McClain,
+- [03:14.560] Jim Jordan, Brett Guthrie, and Lori Trahan.
+- [03:19.510] Thank you all for being here. We have some great people.
+- [03:22.990] Condoleezza, thank you very much.
+- [03:24.480] I see you over there.
+- [03:26.060] Great to have you. Great to be with you.
+- [03:29.070] A very special welcome to New York.
+- [03:31.020] Yankees President Randy Levine,
+- [03:32.880] a friend of mine for a long time.
+- [03:35.090] I used to sit with George Steinberg in the box,
+- [03:37.230] who was one of the most difficult days of my life.
+- [03:40.680] I would always be like, he liked me, I liked him,
+- [03:43.700] but we both liked very few other people.
+- [03:46.920] And we had a good time.
+- [03:48.220] We won a lot of games, right, Randy?
+- [03:51.310] We never lost.
+- [03:53.460] And a great champion of college athletics,
+- [03:58.000] former, as I just said, Secretary of State,
+- [04:01.420] a woman who's really respected, Condoleezza Rice.
+- [04:04.850] Thank you very much again, Condoleezza.
+- [04:12.510] And Ron DeSantis has been working very hard with us,
+- [04:15.590] and wherever you may be, Ron.
+- [04:17.520] Hi, Ron, and has some great ideas,
+- [04:21.010] and some great coaches that gave him some great ideas.
+- [04:24.070] We're gathered today to discuss an important threat
+- [04:27.800] to the integrity and culture of college sports,
+- [04:31.790] the inability to set rules on eligibility transfers,
+- [04:36.710] name, image, and likeness, and much more than that.
+- [04:41.090] In the face of endless lawsuits, and it's what's going on
+- [04:44.540] with the legal community is incredible.
+- [04:48.430] We had a lawsuit a couple of years ago
+- [04:52.310] by a radical-left judge from California who decided,
+- [04:56.940] knowing nothing about football or college sports,
+- [04:59.580] that everything was illegal that was taking place.
+- [05:02.780] And I don't think it was ever appealed.
+- [05:05.320] Nobody can find out if it was appealed or not.
+- [05:08.130] But you can win on appeal.
+- [05:09.390] I think I win more cases on appeal
+- [05:11.080] than I do in front of some judges that are not very good.
+- [05:15.670] But it was a horrible, incredible ruling.
+- [05:20.440] And it threw the sports world
+- [05:22.300] and the athletic college athletic world into tithers.
+- [05:27.220] And that's where we are right now.
+- [05:29.280] It's crazy things are happening.
+- [05:31.900] Young people are being signed, 17-year-old quarterbacks.
+- [05:36.360] For $12 million, $13 million, $14 million.
+- [05:41.190] We have a seven-year freshman. You know, we have people.
+- [05:45.060] We're seeing things that we've never seen before.
+- [05:47.560] We have college players that don't want to go to the NFL
+- [05:50.640] because they're making more money in college.
+- [05:52.410] Right, Jim Jordan?
+- [05:54.030] And a lot of really bad things are happening.
+- [05:57.970] But basic questions like who is eligible to play
+- [06:01.060] are now virtually unregulated.
+- [06:04.730] And decided randomly by judges rather than by reasonable,
+- [06:09.030] agreed-upon rules that could be very simple
+- [06:11.360] and very simply drawn.
+- [06:13.920] So this has grown into a major challenge.
+- [06:16.950] We actually have some of the best sports agents here,
+- [06:20.230] because I think they'd like to see it solved, but maybe not.
+- [06:23.990] I'm not 100 percent sure about that.
+- [06:26.300] But they're represented.
+- [06:27.550] We have everybody represented today.
+- [06:29.310] Just about every group you can think of.
+- [06:31.880] But it's grown into a major challenge
+- [06:33.960] that threatens the future of college sports
+- [06:35.930] and really colleges themselves
+- [06:38.150] because many are going to go down the tubes.
+- [06:43.920] It was announced that Penn State,
+- [06:46.480] their athletic division lost $535 million this last year.
+- [06:53.500] Florida State, Ron and I spoke about it, $440 million loss.
+- [06:59.570] It was just announced that Rutgers lost $95 million,
+- [07:03.800] and they're doing all sorts of things to try and save the ship.
+- [07:09.520] And I think those numbers are nothing compared
+- [07:11.560] to what's going to happen. This is new. This just happened.
+- [07:16.540] Those numbers are going to go to levels
+- [07:19.380] that nobody's ever seen before.
+- [07:22.100] If you had no salary cap in the NFL,
+- [07:24.290] you'd see staggering losses.
+- [07:27.220] We have no salary gap in colleges.
+- [07:29.240] Colleges are going have to have to pay.
+- [07:31.180] Unless something's done, unless we solve this problem.
+- [07:33.600] And I think probably today, we're going to ask for ideas
+- [07:37.650] that, you know, not that we don't have to take months.
+- [07:41.490] We'd like to see if we could do it for next season.
+- [07:44.190] But we have, and we certainly have the brain power.
+- [07:46.230] We have tremendous knowledge, far more knowledge
+- [07:48.720] than I have about this subject.
+- [07:52.240] But it also poses special dangers
+- [07:55.850] for women's sports our Olympic pipeline.
+- [07:58.600] Women's sports are being canceled
+- [08:00.380] all over the country, just so we understand.
+- [08:03.500] Women's sport are in deep trouble,
+- [08:07.650] other than one particular women's team.
+- [08:09.720] That's Miami, where I have my granddaughter on the team.
+- [08:15.760] They canceled men's golf, but women's golf is doing just fine.
+- [08:19.240] I'm only kidding. I'm all kidding.
+- [08:23.060] They are canceling golf, they're canceling wrestling,
+- [08:25.460] they're canceling fencing, they canceling even basketball.
+- [08:29.010] I thought that would be maybe immune, but it's in trouble.
+- [08:34.190] And it's all going to football, but ultimately football
+- [08:38.940] is going to be the worst laggard of all.
+- [08:42.750] It's not going to affordable,
+- [08:44.990] and it's going to take down practically every college.
+- [08:49.060] My opinion, it's going to take down virtually every college
+- [08:52.160] or every college that wants to be.
+- [08:53.750] They think they want to be competitive.
+- [08:56.300] Under the current system, educational institutions
+- [08:59.100] find themselves in a financial arms race
+- [09:02.030] for athletes in sports like football and basketball.
+- [09:06.700] And both, I mean both of them,
+- [09:08.180] but basketball is being hurt very badly.
+- [09:10.000] It's really, it's being dominated by football.
+- [09:13.510] Last July, I signed an executive order to stop destructive play.
+- [09:19.070] Pay-for-play schemes that are all over the place,
+- [09:21.750] and keep college athletics rooted in the traditions
+- [09:24.810] that made it great.
+- [09:26.290] I thought we had a great system, frankly.
+- [09:28.770] I thought that we had system that should have been appealed,
+- [09:31.460] and it could have been maybe perfected a little bit.
+- [09:34.280] But it took close to 100 years. It was developed over 100 years,
+- [09:37.830] and one judge that knew nothing about sports,
+- [09:41.750] knew nothing football, knew nothing Olympics,
+- [09:45.790] do nothing about anything.
+- [09:47.690] Just decided everything was unconstitutional.
+- [09:50.170] It's crazy.
+- [09:52.070] But only Congress now, it looks like,
+- [09:54.370] can deliver a permanent fix.
+- [09:57.080] So, Speaker, you and John and everybody else,
+- [10:00.010] including Democrats that are represented very strongly,
+- [10:03.270] we can hopefully get it done.
+- [10:05.480] Federal legislation must allow college athletic programs
+- [10:09.270] to set common-sense rules,
+- [10:12.090] simple common-sense rules without endless litigation
+- [10:15.270] and establish a fair name, image, and likeness standard
+- [10:18.930] that eliminates the patchwork of conflicting state laws.
+- [10:23.220] That's the other problem.
+- [10:24.430] All of these colleges are all in different states,
+- [10:26.840] and all the laws are different.
+- [10:28.760] So you've got laws that are totally different.
+- [10:31.190] Some one way, some an entirely different way,
+- [10:35.130] while allowing the full spectrum of college
+- [10:38.020] athletic programs to thrive. It should thrive.
+- [10:41.940] If Congress does not take action fast,
+- [10:45.400] it could destroy college sports
+- [10:47.170] and destroy the colleges that play these sports.
+- [10:51.170] They'll be destroyed.
+- [10:52.770] They'll be going bankrupt, everyone, so many of them.
+- [10:57.560] No other nation in the world has built a system
+- [11:00.040] that develops champions in classrooms
+- [11:02.260] and on the field,
+- [11:04.000] producing Olympic heroes, professional legends,
+- [11:06.710] and the leaders of tomorrow all at once.
+- [11:09.350] I thought the system of scholarships was great.
+- [11:12.470] What do I know? But I thought it was great.
+- [11:15.430] And just one of those things,
+- [11:18.360] I was with Nick Saban the other day,
+- [11:22.190] and, you know, his timing is exquisite.
+- [11:25.480] He played, and he won, and won, and won.
+- [11:28.100] And when he saw this thing, he said,
+- [11:29.390] I'm going to get out of this.
+- [11:30.670] I'm not doing this anymore. He's around here someplace.
+- [11:33.540] Where's Nick? Where are you, Nick? Right?
+- [11:37.350] Now, he doesn't admit this. I said, how come you left just?
+- [11:41.460] He didn't want to go through one season.
+- [11:43.730] Because there's no better mind at this than that man.
+- [11:47.910] And he looked and he said, what a shame.
+- [11:49.750] What a shame, and he's going to speak about it.
+- [11:52.000] And I think you have some very constructive ideas, Nick.
+- [11:55.350] I think so.
+- [11:56.890] No other nation in the world has built a system like this.
+- [12:00.260] It's so good, and we've thrown it right out the window.
+- [12:04.440] And I'd like to see you go back
+- [12:05.720] to something maybe resembling that
+- [12:07.640] and maybe pay for each player.
+- [12:12.490] Such crazy pay, but just pay for each player.
+- [12:14.810] With every player, maybe the quarterback
+- [12:16.630] and the third-string lineman make it the same,
+- [12:19.640] but you're going to tell us about it,
+- [12:20.980] and we're going try and get it passed.
+- [12:22.340] Our goal is not to go back to the days
+- [12:25.420] where student-athletes were never allowed
+- [12:27.380] to receive any compensation. Although, not the worst idea,
+- [12:32.560] but I think a lot of people would overrule me on that.
+- [12:35.970] But we must pass reforms that protect
+- [12:38.000] the cherished American tradition of college.
+- [12:40.700] Athletics for future generations.
+- [12:42.790] So, I look forward to hearing from a lot of you,
+- [12:47.080] and I think a few of you are going to say a few words,
+- [12:49.430] and then we'll get to some ideas.
+- [12:51.030] And I don't know, maybe by the end of a long session,
+- [12:54.590] if we need it, I'm here as long as you need me.
+- [12:56.720] They came to me, they said,
+- [12:57.970] you're the only one that can do it.
+- [12:59.350] I said, oh, thank you very much. They said, really,
+- [13:02.390] because I'm president, okay, to be honest.
+- [13:05.480] But we have certain abilities,
+- [13:06.860] and we'll see if we can get it done.
+- [13:08.660] So, I'll ask in this order, Marco, you'll say a few words,
+- [13:13.440] and then Speaker Johnson, Randy Levine,
+- [13:16.280] Nick Saban, Charlie Baker, the Governor Ron DeSantis,
+- [13:20.280] and Greg Sankey, Sarah Hershland,
+- [13:24.280] and Pete Bavacqua. And they'll go pretty quickly,
+- [13:27.370] and then we'll hear from some of the people.
+- [13:29.920] And we may have something come up that's somewhat of a miracle.
+- [13:34.690] There's an idea out there,
+- [13:35.980] and somehow it's going to have to be arrived at.
+- [13:39.030] Because there's no way the system can --
+- [13:42.000] will allow colleges to --
+- [13:43.880] in my opinion, will allow schools to live financially.
+- [13:47.420] It's not going to happen.
+- [13:48.910] So, if I could, I'll ask Marco, you can start, and then Speaker,
+- [13:51.910] and then we'll go through the list,
+- [13:53.260] and then, we'll take some ideas or questions, all right?
+- [13:56.420] Thank you very much, Marco.
+- [13:57.650] Secretary Rubio: Thank you, Mr. President,
+- [13:58.870] and I'll be very brief.
+- [14:00.100] The first is I think you've already touched on,
+- [14:01.680] and that is what a unique institution college athletics
+- [14:04.600] is to the United States. Very few countries in the world
+- [14:06.830] actually have something like what we have.
+- [14:08.630] And it's not just unique, it's really important.
+- [14:10.420] A lot of people don't see some of the aspects of it
+- [14:12.410] that are so positive.
+- [14:13.620] The first is the student athlete experience.
+- [14:15.730] There are literally thousands and thousands of young Americans
+- [14:17.940] who are going to graduate this year
+- [14:19.750] with not just degrees, but advanced degrees,
+- [14:22.010] and athletics made that possible.
+- [14:23.810] And the athletic support and the academic support
+- [14:26.420] that they're receiving from these schools is extraordinary.
+- [14:28.500] So there are kids that literally would not have gone to college
+- [14:30.480] or may not have considered it,
+- [14:31.700] and certainly not the advanced degrees
+- [14:33.360] without the help that this provides.
+- [14:35.320] Also the development of the individual
+- [14:37.360] that student athletics provides.
+- [14:38.880] I mean, look, if you can show up at 6 a.m.
+- [14:41.020] In the morning every day for a lift,
+- [14:43.280] you're learning one of the most important lessons in life.
+- [14:45.190] 95% of life is showing up where you're supposed to be on time.
+- [14:48.060] These are extraordinary lessons that people are gaining.
+- [14:51.120] Two more things that people don't think about, unity.
+- [14:53.590] Few things in America unify us anymore.
+- [14:55.920] And one of the things that does is college athletics.
+- [14:58.270] In particular, I can just the experience of a Saturday and I
+- [15:01.670] was about to say a Saturday in the South,
+- [15:03.320] but I don't want to discriminate against the other conferences.
+- [15:05.310] I'm sure it's true there too,
+- [15:06.860] where communities get together and people don't,
+- [15:09.330] they don't agree on anything else,
+- [15:11.140] except that they want that home team on the field to win.
+- [15:13.380] And it's one of the few unifying experiences
+- [15:15.370] we have as a country. And it so critical.
+- [15:17.340] And the last you touched on as well, Mr. President,
+- [15:19.320] this is the feeder program for our Olympic teams.
+- [15:22.240] Without it, there is no feeder program.
+- [15:23.910] Other countries have structured it differently,
+- [15:26.110] but the way we have it in our country
+- [15:27.400] is so unique in that way. We all know the challenges.
+- [15:29.950] And what the system now needs is a system of rules
+- [15:32.150] and regulations, of guardrails,
+- [15:33.950] so that everyone is operating under the same rules.
+- [15:36.470] And it's difficult to do because it's moving very fast,
+- [15:38.520] but you've got the right people in the room here,
+- [15:40.250] Mr. President, and the right leadership.
+- [15:42.520] So thank you for caring about this,
+- [15:44.440] because it truly is important for the country.
+- [15:46.560] And for millions of Americans who are fans,
+- [15:49.190] and thousands and thousands of families
+- [15:50.770] who have student athletes in their family
+- [15:52.400] who have experienced this system are going through it now.
+- [15:54.380] So thank you.
+- [15:55.580] The President: And Marco has a conflict of interest
+- [15:57.650] that he didn't reveal, which is a very serious charge.
+- [16:00.570] Could be a criminal charge, actually,
+- [16:02.080] because his son is a good player for a very good college
+- [16:06.520] and makes money with NIL.
+- [16:08.880] So this is a serious conflict of interests.
+- [16:11.700] But we'll take him. We waive his conflict.
+- [16:15.460] Speaker Johnson: Thank you, Mr. President.
+- [16:16.750] It's an honor to be here with so many of the all-time greats.
+- [16:19.520] It's a treat for us, members of Congress,
+- [16:21.250] there's many of them around the table,
+- [16:22.530] and they're happy to be working on the issue
+- [16:24.050] with you and for you.
+- [16:26.750] I would say people often say that Speaker of the House
+- [16:28.780] is the most stressful job in the world,
+- [16:30.220] but then I think of SEC football coaches
+- [16:32.010] because they've got to win every Saturday night,
+- [16:33.510] and my friends who are in those positions
+- [16:35.040] I have a lot of sympathy for.
+- [16:37.540] I want to commend President Trump
+- [16:38.900] for his extraordinary leadership,
+- [16:40.360] and he leads on this important and complex issue
+- [16:43.220] as he does all others. He sees a problem.
+- [16:45.550] He wants us to solve it
+- [16:46.780] and he assembles the right people to get that done
+- [16:49.320] and I think he really is the only figure on the planet
+- [16:51.150] who could do that.
+- [16:52.360] So I thank you for that Mr. President,
+- [16:53.830] getting everybody together.
+- [16:55.230] One more issue that we'll tackle.
+- [16:56.760] I'm a double alum from LSU, undergrad in law school
+- [16:59.240] so I bleed purple and gold
+- [17:00.540] and we talk a lot about college athletics down where I'm from.
+- [17:04.390] It's a big thing but the whole country cares deeply about it
+- [17:07.280] because it's part of Americana as Marco was saying,
+- [17:10.480] it's a part of who we are.
+- [17:11.740] As a country, and it's so important,
+- [17:13.040] and we have to navigate
+- [17:14.320] through these unprecedented waters together.
+- [17:16.210] I'm glad there's some really smart people
+- [17:18.370] who are working on that.
+- [17:19.630] Mr. President, Congress does need to act quickly
+- [17:22.530] because it's getting out of hand,
+- [17:23.830] and I think everybody here recognizes that.
+- [17:25.950] I want you to know the House has been working very deliberately
+- [17:29.080] and I think very effectively on this.
+- [17:31.130] We've done a lot of good work,
+- [17:32.330] and many of you are familiar with the SCORE Act.
+- [17:34.250] We passed an important procedural hurdle in December.
+- [17:38.020] We're right on the verge of passage in the House,
+- [17:40.430] and we now think we have the votes to do that.
+- [17:43.000] But that's why this meeting is so timely,
+- [17:45.060] because we want to have the conversation today
+- [17:46.840] and in the days that follow,
+- [17:48.460] because we want to make sure that we get it right.
+- [17:50.920] It's a bipartisan product.
+- [17:52.200] It has broad support in the house.
+- [17:53.590] We believe we'll have every Republican now,
+- [17:56.000] and we have a double-digit support of at least Democrats.
+- [17:58.750] It is bipartisan.
+- [18:00.050] A lot of good work's gone into that to get it there,
+- [18:02.000] and we think it may be the vehicle to get us
+- [18:03.840] to the next phase of this and this essential conversation.
+- [18:07.380] But the next step is preparing that legislation
+- [18:09.860] for final passage, so I was talking with Randy
+- [18:12.220] and many of you who are leading on this.
+- [18:14.400] This is a very important and timely conversation
+- [18:17.300] that we'll have today and I said in the days that follow.
+- [18:19.910] We're encouraged to see all of you,
+- [18:21.370] the experts who know this issue better
+- [18:23.510] than anybody in the country willing to put your time
+- [18:25.980] and effort into it and provide feedback
+- [18:27.990] because we want the final product
+- [18:29.430] to be the best it can be.
+- [18:30.700] We want to accomplish the necessary ends
+- [18:33.020] and we think we're very close.
+- [18:35.080] Everybody here wants to see this American institution succeed.
+- [18:38.090] And we have that opportunity within our grasp.
+- [18:40.370] And we want to make sure that the solution we develop
+- [18:43.800] actually works for student athletes
+- [18:45.840] who are at the heart of this.
+- [18:47.120] And that's who we care about so much.
+- [18:48.750] And we know that the foundation of any good deal
+- [18:50.820] begins with getting the right people in the right room.
+- [18:53.740] And this is the right group. And this historic.
+- [18:56.270] And no one knows better than the man
+- [18:58.240] who literally wrote the book on it,
+- [18:59.700] and that's President Trump. And so I want to thank you
+- [19:01.290] for assembling us, Mr. President,
+- [19:02.780] and we look forward to the discussion. I yield back.
+- [19:12.040] Randy Levine: Thank you, Mr. President,
+- [19:13.330] for putting this group together.
+- [19:16.940] Leading up to this, wherever I would go,
+- [19:20.320] because I had an interest in this,
+- [19:23.400] both professionally what the Yankees have done
+- [19:26.270] and my experience
+- [19:27.670] on board of directors of various colleges,
+- [19:31.160] everybody would say over and over again,
+- [19:33.520] this thing is failing, failing bad,
+- [19:36.530] and it's like a hamster on a wheel.
+- [19:39.570] It kept spinning on the wheel,
+- [19:41.160] but never getting off, it was never done.
+- [19:43.860] And they told me, please talk to the president.
+- [19:46.430] Because he's the only person
+- [19:48.640] who will convene a group like this
+- [19:52.340] in order to reach a consensus to get it done.
+- [19:55.500] And he agreed to do it.
+- [19:56.940] But he said to me, if I'm going to do, it has to be bipartisan.
+- [20:01.670] And he asked me and the speaker
+- [20:03.800] and everybody else to make sure it is bipartisan.
+- [20:08.990] And it is. We have people from both parties here,
+- [20:12.600] and that's what has to happen. So we put this group together.
+- [20:16.520] Why do we put the group together?
+- [20:18.470] Because it's representative of the people
+- [20:21.590] who know the best on how to solve this issue.
+- [20:24.830] We have college presidents who've been living with this
+- [20:28.610] from all over the country.
+- [20:30.440] We have some of the finest athletic directors
+- [20:33.870] who have been pioneers in this area.
+- [20:37.520] We have professional sports executives.
+- [20:40.600] Why do we have them in the room?
+- [20:42.360] The answer is as Commissioner Silver
+- [20:44.670] would tell you, or all the fame of Lou Lamarello.
+- [20:48.340] These issues have been in professional sports
+- [20:51.330] for a long time. We have a lot of experience.
+- [20:54.040] I negotiated the first revenue sharing agreement in baseball,
+- [20:58.870] caps, revenue sharing, distribution.
+- [21:01.700] All of those things are what we live with every single day.
+- [21:05.740] So maybe we can share our experience
+- [21:08.410] and transport it here,
+- [21:10.150] as long as it's in the context of college sports.
+- [21:13.630] There's one group that is missing,
+- [21:16.470] but they won't be missing from the final product,
+- [21:19.070] and that's the student athletes themselves.
+- [21:22.060] This group, as we move on, you can be assured
+- [21:24.730] we'll be talking to the student-athletes
+- [21:26.990] and all their representatives to make sure
+- [21:29.220] their voices is clearly heard. Time is of the essence.
+- [21:35.780] People have told me they've been to Congress 15, 16, 17 times.
+- [21:40.180] One group goes in, the other group goes in,
+- [21:42.230] and nothing seems to get done. Time is of the essence.
+- [21:45.370] Besides the numbers the president talked about,
+- [21:48.100] I heard a story from one of the great
+- [21:50.540] professional athletes on the Yankees,
+- [21:52.220] one of our great players yesterday.
+- [21:54.300] And he went to a great university,
+- [21:56.020] and he said to me, thank you for doing this,
+- [21:59.820] because every day I got asked for more money for NILs,
+- [22:04.080] every single day.
+- [22:05.590] And what happened is I gave money.
+- [22:08.390] For an NIL for a quarterback who left the next year
+- [22:11.490] meanwhile a friend of mine a friend of mine daughter
+- [22:15.110] is on the rowing team and she lost her scholarship
+- [22:18.830] and she's an Olympic hopeful
+- [22:20.850] and now she has to pay her own way
+- [22:23.530] that that's just not right it's really not right
+- [22:26.170] and has to be fixed so Mr. President
+- [22:29.000] thank you for bringing this group together
+- [22:31.280] I think they're really just for discussion
+- [22:33.790] we'll hear from everybody I think there really.
+- [22:37.430] Two things to add on to what the speaker
+- [22:39.480] said that have to be done.
+- [22:42.170] One, there has to be an antitrust exemption
+- [22:44.890] because everyone in the room has to be able
+- [22:47.540] to talk to each other, all the conferences,
+- [22:49.720] the schools, the presidents, everybody, without getting sued.
+- [22:53.700] That includes the kids.
+- [22:55.030] They have to be involved in these negotiations.
+- [22:57.970] The student athletes.
+- [23:01.050] There has to be an entity that's set up by the people
+- [23:04.520] who are going to administer this,
+- [23:06.130] run this, that are empowered by the legislation to handle
+- [23:11.730] all the issues the president spoke about.
+- [23:14.310] And we're all here to support that, to help that.
+- [23:18.020] And to make sure that it's just not business as usual.
+- [23:22.160] Just an idea I have is maybe that an antitrust
+- [23:24.480] exemption lasts for two years to make sure that these rules
+- [23:28.570] and everything are really being enforced.
+- [23:31.180] And if they're not, we go back to square one.
+- [23:33.900] It'll give the Congress oversight,
+- [23:35.730] give the President oversight, but it's time to move.
+- [23:39.020] And, Mr. President, I couldn't agree with you more.
+- [23:41.660] Thanks to your leadership,
+- [23:43.050] we got to move this really, really fast.
+- [23:45.630] We have ESPN and Fox here.
+- [23:49.670] Probably the biggest payers in this entire thing,
+- [23:52.870] and the fact that they're here
+- [23:54.240] and their voice is heard is great.
+- [23:56.060] So, Mr. President, only you could pull this off,
+- [23:59.040] and we're grateful. Thank you very much.
+- [24:00.470] The President: Thank you very much, Randy.
+- [24:01.680] And Nick Saban.
+- [24:04.960] Nick Saban: Thank you, Mr. President,
+- [24:06.190] for the chance and the opportunity
+- [24:07.710] to be here to speak with you today.
+- [24:09.200] But I just want everybody to know
+- [24:10.630] that I'm just a football coach.
+- [24:12.770] I spent my life when we had the ball
+- [24:15.390] trying to get a first down, when they had the balls
+- [24:17.440] trying to get off the field on third down.
+- [24:19.140] So this is an unlikely position for me to be in
+- [24:22.680] to speak to such a distinguished group of people.
+- [24:25.200] Thank you.
+- [24:26.500] But I come here today with a question.
+- [24:30.860] What are the guiding principles?
+- [24:33.220] For the future of college athletics, all athletics.
+- [24:37.020] I'm talking about football, basketball, Olympic sports,
+- [24:39.490] revenue, non-revenue, it doesn't matter.
+- [24:42.230] You know, my goal as a coach for my players, for our players,
+- [24:46.600] was to help them be more successful in life,
+- [24:49.000] that we would create an atmosphere and environment
+- [24:51.540] that would help them through personal development,
+- [24:54.170] academic support, 668 degrees in 17 years at Alabama.
+- [24:59.190] And help them develop a career as a football player,
+- [25:01.470] that was our goal, so that they were creating value in life
+- [25:04.400] and we were preparing them for their future past athletics.
+- [25:09.110] So what happened?
+- [25:10.970] You know, in this current system that we have,
+- [25:13.150] that became impossible to do,
+- [25:15.910] because people, instead of making decisions
+- [25:18.410] about creating value for their feature,
+- [25:22.210] they were making decisions about how much money
+- [25:24.460] could they make at whichever school
+- [25:26.550] they could go to or transfer to.
+- [25:28.510] So I think we have a challenge here today
+- [25:32.790] about the ramifications of this current system
+- [25:35.650] on how it helps players be successful in their future
+- [25:39.140] and how we can impact and create a system that will help
+- [25:44.340] and preserve the opportunity for student-athletes
+- [25:47.100] to be able to have success in their futures beyond athletics.
+- [25:51.110] So we need to develop an effective system of revenue
+- [25:53.770] sharing, authentic name image likeness, authentic being.
+- [25:57.370] You have marketing value, which now we have collectives,
+- [26:01.260] which just create opportunities, which has become pay for play.
+- [26:05.930] Eligibility issues, where we have guys playing six,
+- [26:08.740] seven and eight years.
+- [26:10.630] So you have 25 and 26 year old people
+- [26:13.350] playing against 18 and 19 year olds,
+- [26:15.370] which is not healthy.
+- [26:17.270] Transfer rules, we have over 4,000 people in the portal.
+- [26:21.880] Fans don't like it, support groups don't it.
+- [26:25.190] It's not really healthy for players in graduation
+- [26:28.070] to transfer several times in your career.
+- [26:31.780] You really put yourself in a pickle
+- [26:34.760] in terms of your ability to graduate.
+- [26:36.620] So I think we need to come up with a system
+- [26:40.800] and we obviously have to do it with the president's leadership
+- [26:43.730] and also with Congress probably,
+- [26:46.660] whether it's antitrust legislation or whatever it is.
+- [26:49.900] To allow student athletes in all sports,
+- [26:52.110] including women's and Olympic sports,
+- [26:54.100] to enhance their quality of life while going to college,
+- [26:57.940] but still provide opportunity to advance themselves
+- [27:01.160] beyond their athletic career,
+- [27:03.210] which is what the philosophy of college athletics
+- [27:06.150] and getting a college education has always been about.
+- [27:09.580] And how much does anybody talk about
+- [27:11.410] getting an education anymore? Nobody talks about it at all.
+- [27:14.850] Which is the most important thing
+- [27:16.560] any of these student athletes can do
+- [27:18.370] in terms of enhancing their future.
+- [27:20.420] So thank you very much.
+- [27:22.190] The President: Thank you very much, Nick.
+- [27:23.540] And Charlie Baker.
+- [27:25.490] Charlie Baker: Well, thank you very much, Mr. President.
+- [27:26.890] I especially want to thank you for putting me in the lineup
+- [27:30.550] after the most legendary college football coach of all time.
+- [27:35.580] And I really want to think you for your interest in this issue
+- [27:38.510] and your commitment to it.
+- [27:39.740] And I also want to than you for the work
+- [27:42.640] that your administration has done
+- [27:43.900] on a number of different issues,
+- [27:45.340] working with our team and with many members of the folks
+- [27:48.520] who in this room today.
+- [27:50.920] You know, today there are more kids playing college sports
+- [27:53.710] than at any time in our nation's history.
+- [27:55.920] There's 556,000 student athletes across all three divisions.
+- [28:02.930] On behalf of 1,100 schools.
+- [28:05.110] And those 1,100 schools are second
+- [28:08.480] only to the United States of America
+- [28:10.630] in terms of the amount of financial assistance
+- [28:12.840] they make available to those student athletes.
+- [28:15.250] It's over $4 billion.
+- [28:16.860] That's also the biggest number we've ever invested
+- [28:21.130] as a community in the student athletes who attend our schools.
+- [28:26.560] There is a lot that is right with college sports.
+- [28:29.310] And anybody who watched.
+- [28:32.540] The women's Olympic championship game between Canada
+- [28:37.150] and the United States would know that among other things,
+- [28:42.480] all of the players on both of those teams
+- [28:45.200] were former college student athletes,
+- [28:47.990] all 46 of them from both teams
+- [28:50.090] that played in that championship final.
+- [28:53.480] Women's sports has grown dramatically,
+- [28:56.100] the visibility of women's sports,
+- [28:58.440] the viewership of women sports.
+- [29:00.660] The attendance of women's sports,
+- [29:02.240] the investments in women's sports have all gone
+- [29:04.400] dramatically up over the course of the past 10 years or so.
+- [29:07.880] And if you talk to almost anybody
+- [29:09.260] who follows youth sports,
+- [29:10.760] they'll tell you that the growth in youth sports
+- [29:12.560] on the women's side continues to be profound.
+- [29:16.730] But that said, everything everybody has said
+- [29:19.540] about the challenges we face
+- [29:21.770] at this particular point in time is true.
+- [29:25.450] And I want to give a special thanks to Speaker Johnson
+- [29:29.180] and to Leader Scalise for the work that they've done,
+- [29:32.410] to use a sports analogy,
+- [29:33.630] carrying the ball on behalf of the SCORE Act
+- [29:36.840] in the House chamber over the course of this year.
+- [29:39.190] It deals with the rules issue, it deals with the agents' issue,
+- [29:43.560] it deals some of the financial issues,
+- [29:45.920] it deals the equity question, it deals a wide variety
+- [29:49.870] of the issues that were challenging for
+- [29:52.610] so many in the college sports space these days.
+- [29:56.140] And the final thing I'll just say,
+- [30:01.580] I talk to a lot of people who are connected in one way
+- [30:06.210] or another to college sports,
+- [30:08.370] both in this country and around the world,
+- [30:11.100] because they have children who attend college here in the U.S.
+- [30:15.450] And over and over and again, the thing I constantly hear
+- [30:19.570] is there's nothing like college sports
+- [30:22.590] anywhere else in the world.
+- [30:24.520] And you are so lucky to live in a country
+- [30:27.750] where you have a system that works for young people
+- [30:30.140] the way this one works for people here.
+- [30:32.270] So I'm deeply grateful for your commitment to this issue.
+- [30:37.880] I'm thrilled by the folks you've managed
+- [30:40.430] to put around this table. I agree with others
+- [30:42.490] who said there's probably nobody else who could do that.
+- [30:46.930] And college sports was a great thing for me
+- [30:49.100] and my kids and my wife and so many of them.
+- [30:50.810] I know a lot of kids who wouldn't have graduated
+- [30:52.430] from high school,
+- [30:53.650] much less gone to and graduated from college
+- [30:55.990] if it wasn't for college sports.
+- [30:57.810] It's a truly unique American jewel,
+- [31:00.710] and we should do all we possibly can to ensure its success
+- [31:03.440] for the next generation and the generations after that.
+- [31:06.020] So thank you again for having us all here today.
+- [31:07.810] The President: Thank you, Charlie.
+- [31:09.070] You're doing a great job. Appreciate it. Ron, please.
+- [31:13.700] Ron DeSantis: Well, thank you, Mr. President, for doing this.
+- [31:15.380] I mean, you have pedaled to the medal
+- [31:17.340] on so many different issues,
+- [31:19.240] from national security to border to energy,
+- [31:22.360] and you're not taking the pedal off any of that,
+- [31:24.500] and you could be forgiven to say college sports is important,
+- [31:27.210] but your plate's full,
+- [31:28.460] and you've just added it to all the other things
+- [31:30.430] that you're doing, and I thank you for that,
+- [31:32.210] because this would not get done without your leadership.
+- [31:35.600] No one else could get this group together.
+- [31:37.880] No one could work with Congress to be able to do it.
+- [31:41.130] And so I appreciate it
+- [31:42.350] because it is important to a lot of people.
+- [31:43.850] I mean we know this is out of whack.
+- [31:45.910] We went from a system where you couldn't give a student athlete
+- [31:49.230] anything they could sell your jersey you get nothing
+- [31:52.120] to now quarterback throws for three hundred yards
+- [31:55.110] may go see the coach any more money
+- [31:56.860] give me more money from the club,
+- [31:58.260] okay I'll transfer or they get money
+- [32:00.490] and I don't want to play in that bowl game.
+- [32:02.330] Sorry, I'm just going to sit out
+- [32:04.230] and I think that that's been bad,
+- [32:06.280] certainly for college football and college sports,
+- [32:08.670] but let's just be clear a lot of this --
+- [32:10.650] speakers have said and I speak from being
+- [32:12.940] in the south college football is king.
+- [32:15.030] it's not even close.
+- [32:16.330] University of Florida's the reigning in NCAA basketball
+- [32:20.180] national champion.
+- [32:21.820] The football team, I think they won for game --
+- [32:23.950] so guess what? Are the fans happy being the NCAA?
+- [32:26.180] Not really.
+- [32:27.570] They're mad because football didn't do good and football
+- [32:30.490] has been able to generate so much money over the years
+- [32:33.270] that it subsidized a lot of the other programs.
+- [32:35.890] A lot of these non-revenue sports,
+- [32:37.380] people have had more and more opportunities.
+- [32:38.890] Well now -- with the collectives
+- [32:40.680] and how much it's costing football,
+- [32:42.430] the costs are going up dramatically,
+- [32:44.690] and it is threatening these other sports.
+- [32:47.410] And look, yes, being able to produce Olympians,
+- [32:51.710] being able do that, I think it's really important,
+- [32:53.830] but 99% of Division I athletes
+- [32:56.680] are not going to make a living at it,
+- [32:58.320] and they're not going to play in the Olympics.
+- [33:00.020] And I speak as somebody, I was the baseball captain at Yale,
+- [33:03.480] like if we had NIL there,
+- [33:05.130] I probably wasn't going to get a lucrative NIL deal.
+- [33:07.660] That's fine, I get it.
+- [33:09.130] But you know, what being a college athlete teaches you,
+- [33:11.880] there's a reason why the Naval Academy,
+- [33:13.470] and at West Point,
+- [33:14.670] you have to be an athlete when you go through there,
+- [33:16.740] because it teaches you discipline,
+- [33:18.910] it teaches about hard work,
+- [33:20.300] it teaches your about competitors,
+- [33:21.790] it teaches how to cope with failure.
+- [33:23.820] And so a lot of the people, the students,
+- [33:25.850] in these sports that may not be as glitzy,
+- [33:28.330] but are going to be harmed by the current trajectory,
+- [33:30.730] these are going to future leaders of our country
+- [33:32.910] in a variety of different endeavors.
+- [33:35.130] And so I'm thankful that this is going to get done
+- [33:38.280] under President Trump's leadership.
+- [33:39.890] This is a bipartisan issue.
+- [33:42.280] We are so division on all this different stuff.
+- [33:45.760] There is no partisanship about this.
+- [33:47.770] We all want our universities and the athletics to succeed.
+- [33:51.470] A lot of the speakers have talked
+- [33:52.760] about the issues of eligibility.
+- [33:54.780] I mean, how do you have there until you're like 25?
+- [33:57.800] 18 to 25 and you're still playing,
+- [33:59.400] how do you play in the NBA G League
+- [34:01.170] and then come back and play in college?
+- [34:04.110] How do you get to transfer all these different things?
+- [34:06.830] We know those need to be addressed
+- [34:08.230] and obviously the compensation with NIL,
+- [34:10.620] I signed one of the first NIL bills,
+- [34:12.750] but that was like if they're making money off you,
+- [34:14.660] you get now they're doing like perpetual negotiations
+- [34:17.980] even more than pro athletes can do.
+- [34:19.880] So I'm confident this is the group to do it.
+- [34:22.330] This is the president to do it,
+- [34:23.590] and there's going to be a lot of people in our country
+- [34:26.090] that are going to happy when this problem is fixed.
+- [34:28.010] Thank you, sir.
+- [34:29.240] The President: Thank you, Ron, very much. Greg.
+- [34:34.250] Greg: Thank you, Mr. President.
+- [34:35.450] Thank you for convening this group.
+- [34:37.340] And I also think it's important to point out
+- [34:40.280] you've been to Tuscaloosa
+- [34:41.570] a few times for great football games,
+- [34:43.420] a couple national championships.
+- [34:45.010] And I think the power of your presence around college sports
+- [34:49.370] is an important factor in this conversation.
+- [34:52.760] I had a knock on the door of my residence
+- [34:55.140] hall in 1983 by my baseball coach.
+- [34:58.360] I was a bad catcher at Laterno College.
+- [35:02.340] That's why I'm here today.
+- [35:03.780] Because he taught me some lessons
+- [35:05.620] that had I not been in that situation,
+- [35:08.220] I never would have learned.
+- [35:10.140] I've spent two of the last three weeks
+- [35:12.090] with our student-athlete leadership councils.
+- [35:14.950] And I asked them, what would you say in a room
+- [35:18.470] like this that people need to hear?
+- [35:20.750] And there were two things that they wanted me to communicate.
+- [35:23.950] One is, when I line up at kickoff, at tipoff,
+- [35:27.690] or I put my cleats in the starting blocks
+- [35:29.470] of the track and field meet, I want to know the other people.
+- [35:34.040] And other uniforms from other teams in other states
+- [35:37.510] and other campuses are held to the same standards
+- [35:40.500] and the same rules to which I am being held.
+- [35:44.460] They also want to know that you're being supported
+- [35:46.750] from a physical and a mental wellbeing standpoint.
+- [35:49.210] Part of that is their concerns about sports gambling
+- [35:52.320] and the pressures that are emerging upon them.
+- [35:55.680] I think the themes that have been communicated here
+- [35:58.320] rather than go through my notes are worth restating.
+- [36:01.910] This is a bipartisan, I would argue, a nonpartisan issue.
+- [36:06.400] This is the circumstance where among the four conferences,
+- [36:09.180] the ACC, Big 12, Big 10, and SEC over $2.3 billion
+- [36:14.210] was spent in FY 24 to support Olympic sports.
+- [36:18.600] And in Paris, 219 US medalists
+- [36:22.650] went through the college sports system,
+- [36:25.000] 89 of those being gold medalists.
+- [36:28.710] In college sports, we move young people from adolescence
+- [36:31.560] to adulthood through education,
+- [36:34.480] through becoming part of a community
+- [36:36.550] which they otherwise would have not experienced,
+- [36:39.830] and the opportunity to build a legacy.
+- [36:42.840] In the current environment,
+- [36:44.510] each of those elements is interrupted.
+- [36:47.800] Transferring four or five,
+- [36:49.670] I have a basketball player in my league out of sixth campus
+- [36:53.440] does not provide educational achievement opportunities.
+- [36:58.350] Like we should demand. Being part of a community,
+- [37:03.040] when you transfer that much, doesn't happen.
+- [37:04.920] And building a legacy is overrun by the next name, image,
+- [37:07.650] and likeness opportunity.
+- [37:09.940] I appreciate what's been done in the House in the SCORE Act,
+- [37:13.300] Speaker Johnson.
+- [37:14.740] I once lived in Natchitoches, Louisiana,
+- [37:16.480] the place you represent. Leader Scalise, your work.
+- [37:19.560] I know Congressman Roy has been part
+- [37:21.310] of those conversations and others in this room.
+- [37:24.150] And it is bipartisan, but we need to bring more people in.
+- [37:26.890] And we have work to accomplish in the Senate.
+- [37:31.980] We cannot go on longer in this circumstance.
+- [37:35.760] And this is not about revenue.
+- [37:37.180] This is about structures and national standards
+- [37:40.500] for eligibility,
+- [37:42.070] for transfers, for medical care and mental wellness care,
+- [37:46.700] for transparency and accountability
+- [37:49.710] around name, image, and likeness activity.
+- [37:53.710] We'll fracture more if we fail to act.
+- [37:57.080] That's why the appreciation, Mr. President,
+- [37:58.980] for the gathering is most sincere,
+- [38:01.850] because I want to see our women's sports thrive.
+- [38:05.070] In the Southeastern Conference,
+- [38:06.430] we currently have 10 national championships.
+- [38:09.020] Two-thirds of those are in women's sport.
+- [38:12.160] We didn't achieve that mountaintop
+- [38:13.610] in football this year. We'll keep working on that.
+- [38:17.210] We want our Olympians to go through our pools
+- [38:19.480] and our track and fields and our volleyball courts.
+- [38:22.520] And we want young men who aspire to be
+- [38:24.190] in the NBA of the NFL to be educated.
+- [38:27.430] To mature and to grow as they seek that achievement.
+- [38:32.330] We ought to be focused on making college sports great yet again,
+- [38:36.800] and I look forward to being a part
+- [38:38.240] of this conversation moving forward.
+- [38:41.600] The President: Thank you, Greg, very much.
+- [38:43.560] Sarah Hirshland, please.
+- [38:46.310] Sarah Hirshland: Thank you, good afternoon, everyone.
+- [38:49.130] Let me start by saying thank you
+- [38:50.570] President Trump and your whole administration
+- [38:52.670] for your continued support of both Team
+- [38:54.790] USA and the Olympic and Paralympic Games.
+- [38:57.260] I'm proud to be here today to represent Team USA
+- [38:59.770] and I will say it is no surprise to anyone in this room
+- [39:03.050] that we are the greatest sporting nation in the world.
+- [39:06.410] Team USA is the most successful team in history
+- [39:09.470] with more Olympic medals than any other nation.
+- [39:12.870] One of our competitive advantages
+- [39:15.060] is the education-based sports system
+- [39:17.160] our country has embraced for more than a century.
+- [39:21.430] America's colleges and universities
+- [39:23.550] built a world-class athletic system
+- [39:26.380] that develops the whole athlete, academically and competitively.
+- [39:31.020] This system is the envy of the world,
+- [39:33.170] as we heard Charlie say.
+- [39:35.330] It has also been the backbone of Team USA for generations.
+- [39:39.620] The results speak for themselves.
+- [39:41.250] You heard. Greg referenced some, and I'll just expand.
+- [39:46.080] The athletes from Just the Paris Games
+- [39:48.730] represented 231 different college institutions
+- [39:53.910] and 71 conferences.
+- [39:57.050] 90 different schools were represented
+- [39:59.690] by our medalists from Just The Paris Games alone.
+- [40:04.020] This success does not happen by accident.
+- [40:06.880] It is directly impacted.
+- [40:09.130] By the broad-based sustained investment in sport on campus.
+- [40:13.140] You've heard that referenced.
+- [40:14.630] This is not something we can take for granted.
+- [40:18.160] To say that our country should be grateful
+- [40:20.180] to colleges and universities
+- [40:21.910] and their athletic programs is an understatement.
+- [40:26.440] And while the United States has topped the gold medal table
+- [40:29.140] in eight of the last 10 summer games,
+- [40:32.720] I am here to tell you the margin is narrowing.
+- [40:37.430] Around the world, nations are investing aggressively in sport,
+- [40:41.910] building centralized training systems, expanding funding,
+- [40:45.600] and prioritizing athlete development in new ways.
+- [40:49.830] That growing global competition comes at a moment
+- [40:53.750] when US colleges must increase their investments in football
+- [40:56.890] to stay competitive.
+- [40:58.930] The economic pressures are unsustainable.
+- [41:01.550] We've heard this several times,
+- [41:03.110] and we know that Olympic sport budgets inevitably.
+- [41:07.900] Rise to the top as the first to be cut.
+- [41:11.350] And in some cases, women's sport,
+- [41:13.790] but it's also men's sport may be eliminated.
+- [41:16.190] We must keep our eye on both.
+- [41:20.790] We know what happens when those investments
+- [41:22.800] are reduced or disappear.
+- [41:24.480] It hinders the future pipeline of Team USA,
+- [41:27.270] but frankly it threatens the future health of sport
+- [41:31.580] in our country.
+- [41:32.920] We cannot wait for the economic pressure to create this crisis.
+- [41:37.640] We stand here today, Team USA in solidarity and partnership
+- [41:41.190] with the collegiate sports community
+- [41:43.030] to encourage Congress to pass legislation
+- [41:45.550] that stabilizes the foundation of sport on campus
+- [41:48.730] and ensures a healthy and robust ecosystem for student athletes
+- [41:53.050] across a wide array of Olympic sports and football,
+- [41:56.830] which is kind of coming to the Olympics.
+- [42:00.230] Let me conclude by assuring you
+- [42:01.950] that American athletes are ready for this global challenge.
+- [42:04.320] In fact, we welcome it, but the pursuit of excellence
+- [42:08.290] deserves a system that continues to invest in them.
+- [42:12.000] Thank you, Mr. President,
+- [42:13.690] and to our congressional leaders,
+- [42:15.280] to the college administrators,
+- [42:17.040] And to the many representatives across the sports industry
+- [42:19.490] who are here today, we value your commitment to sport
+- [42:22.680] and we welcome your partnership. Thank you, Mr. President.
+- [42:25.230] The President: Thank you very much, Sarah.
+- [42:26.670] And we'll conclude with our little early speeches,
+- [42:31.150] but we'll hear everybody that wants to.
+- [42:33.550] If you have an idea, if you don't have any ideas,
+- [42:35.740] maybe you don't t bother, okay? But if you have something good,
+- [42:39.120] and maybe what we're talking about with the SCORE
+- [42:41.460] Act, it seems to have a lot of support,
+- [42:43.840] but we' ll talk about that. Pete Bevacqua, please.
+- [42:48.290] Pete Bevacqua: Mr. President, thanks for having us all here
+- [42:51.570] and a special thanks on behalf of noter dame
+- [42:53.910] for your kind words about coach Holts
+- [42:56.500] and he was a dear friend of yours
+- [42:58.360] so we appreciate that and this meeting is important.
+- [43:01.170] It's timely.
+- [43:02.430] I think everybody around this table
+- [43:04.020] knows that we need help to straighten this out
+- [43:06.720] we need the help of congress in this post house world of NIL
+- [43:11.970] and compensation.
+- [43:13.890] We're finding ourselves in a situation
+- [43:16.160] where college football,
+- [43:17.540] particularly men's basketball, women's basketball
+- [43:19.660] but particularly college football.
+- [43:20.940] I don't think it's any secret that people understand
+- [43:23.590] that so many of the decisions around college sports
+- [43:26.050] are driven almost solely by college football
+- [43:28.840] and college football
+- [43:30.040] is certainly important to Notre Dame.
+- [43:31.940] We make no secret about that
+- [43:34.170] but it's become a runaway financial train.
+- [43:37.100] And if it continues to be that way,
+- [43:39.290] even the healthiest of universities
+- [43:41.820] are going to have to make incredibly difficult decisions,
+- [43:45.280] decisions that are going to impact women's sports
+- [43:48.330] and Olympic sports.
+- [43:49.610] There's simply no way around that.
+- [43:52.080] So we need regulations.
+- [43:54.110] We need regulations, we need financial transparency,
+- [43:57.550] and we need repercussions.
+- [43:58.800] People's feet need to be held to the fire.
+- [44:01.210] I talked to Coach Saban before we entered into this room
+- [44:04.130] and we were talking about the transfer portal.
+- [44:06.630] And Greg mentioned it as well,
+- [44:08.050] but when you have young men and women
+- [44:09.740] going to three schools in three years,
+- [44:11.490] four schools in four years, the student athlete,
+- [44:15.250] and they're student athletes, they're not just athletes,
+- [44:17.760] and we're forgetting the academic part,
+- [44:19.340] we're forgetting the student part,
+- [44:21.170] and if you're going to four schools in four year
+- [44:23.310] to make a few more $100,000 on each stop
+- [44:26.700] where when you're 21, 20 years old,
+- [44:29.180] you think all your financial troubles have gone away,
+- [44:32.290] you're going to find at the end of that college experience
+- [44:34.420] you're not going to have an academic degree.
+- [44:36.930] That money that you thought you could rely on
+- [44:38.570] for the rest of your life is going to be absent
+- [44:40.290] by the time you're 23 or 24,
+- [44:42.810] and you're going to have the rest of your live
+- [44:44.450] you're going to find yourself in a very difficult position.
+- [44:47.520] So we have to talk about financial transparency
+- [44:50.040] and we have to restate the importance
+- [44:53.100] of the student athlete experience.
+- [44:54.650] We can't forget that.
+- [44:56.040] Because the percentage of people that can go on
+- [44:57.910] and play in the NBA, the WNBA, the NFL is extremely low.
+- [45:02.450] And it's the importance of that academic degree
+- [45:04.850] that you get throughout your student-athlete experience
+- [45:07.160] that's gonna serve you so well for the rest of your life.
+- [45:09.590] And quite frankly, I think if we can agree on regulations
+- [45:12.290] with real repercussions
+- [45:14.320] and we go down the road of a free market enterprise
+- [45:16.700] where college football continues to be a runaway
+- [45:18.820] train financially,
+- [45:20.410] I think there's gotta be a commitment
+- [45:21.820] that if you're going to spend X on college football
+- [45:24.750] and Y on men's basketball and Z on women's basketball,
+- [45:29.210] you should be required to pay some sort of percentage of that
+- [45:32.300] to reinvest into your own Olympic movement
+- [45:34.640] within your universities.
+- [45:36.530] So I think this meeting, as I said, is important.
+- [45:39.410] I think we're coming to a point
+- [45:40.910] where we're going to be at no return
+- [45:42.720] if we don't get our act together
+- [45:44.040] and try to speak with one voice and solve this.
+- [45:46.720] So thanks again, Mr. President.
+- [45:48.380] The President: Thank you very much, Pete.
+- [45:50.800] So maybe we have to start with a base,
+- [45:54.340] because we, you know, I'd like to say
+- [45:56.520] the base should be what we had before,
+- [45:58.430] which worked so well for so many years with scholarships.
+- [46:02.260] When I heard Charlie say the kind of numbers
+- [46:06.000] that was paid in the form mostly of scholarships,
+- [46:08.950] that was pretty impressive. But maybe we can't go back.
+- [46:13.730] Maybe we have go forward. And what's happened.
+- [46:17.040] Is sitting here with Jim and some of the people
+- [46:21.260] that are talking about the SCORE Act.
+- [46:22.870] Maybe that should be the base
+- [46:24.710] and maybe we should work off that.
+- [46:26.820] But if anybody has any ideas,
+- [46:29.110] I mean, I'm just noticing all of the divisions,
+- [46:34.470] all of the people who have supported, including the NCAA,
+- [46:38.210] the 31 Division 1 conferences, 23 Division 22, Division 3, all.
+- [46:46.550] HBCU conferences, and a lot more than that.
+- [46:51.210] So maybe that can be a base.
+- [46:52.700] That's the SCORE Act, which I know it's been,
+- [46:56.730] Mike has worked on it long and hard.
+- [46:59.900] We have a great guy, Jim Jordan,
+- [47:02.450] right here, who's a great athlete.
+- [47:04.610] He was virtually undefeated in college wrestling,
+- [47:07.230] virtually, I don't know.
+- [47:09.630] It was probably one bad night, I think, Jim, right?
+- [47:12.680] But he was some -- he was some great athlete,
+- [47:15.940] some great wrestler.
+- [47:17.450] And that sport is being torn apart
+- [47:20.010] by what's happening right here.
+- [47:21.620] Male Speaker: It sure helped when you came last year,
+- [47:22.970] Mr. President.
+- [47:24.190] Sure helped when your at the NCAA Championship last year.
+- [47:28.760] The President: So, if we could go
+- [47:30.670] and if somebody would have some suggestions, Mike,
+- [47:33.760] do you like the idea of using this as a base
+- [47:36.750] and we work off the base,
+- [47:38.290] or would you like to start from ground zero?
+- [47:41.250] Speaker Johnson: Well, I think I speak on behalf
+- [47:42.660] of the legislators around the table
+- [47:44.040] that worked really hard on this core act
+- [47:45.380] and many who have been involved
+- [47:46.630] and brought their ideas to the table.
+- [47:49.560] Our fear is that if we begin from scratch,
+- [47:51.500] I think everyone around the tables understands
+- [47:53.840] this could take a long, long time.
+- [47:55.680] A lot of the debate and discussion
+- [47:57.570] and deliberation has gone into this.
+- [47:59.200] I've got this one page summary I'm happy to pass around.
+- [48:01.420] I assume most people around the table
+- [48:02.910] know the basic parameters of the bill and where we are.
+- [48:07.630] But the idea would be that if there are know,
+- [48:09.710] Randy and I were speaking earlier
+- [48:11.100] before we came into the Oval Office.
+- [48:13.090] There may be some ideas to enhance it or make it better.
+- [48:16.630] We want to have the best possible product.
+- [48:18.920] I mean, maybe, Mr. President,
+- [48:20.950] I think that's a good suggestion we begin from that.
+- [48:24.800] For lack of a better idea, if anyone has a better base
+- [48:27.410] that we should begin with, we're open to it.
+- [48:28.910] But I'm looking at some of my Chairmen
+- [48:30.660] of the Committees of Jurisdiction
+- [48:32.070] and everybody's worked really hard on this.
+- [48:33.960] And our Majority Leader is down at the end of the table.
+- [48:35.920] Steve Scalise has kind of helped quarterback this,
+- [48:38.110] pun intended -- to get it through the process,
+- [48:40.960] and if you have specific questions about specific points
+- [48:45.680] or parts of that legislation, we're happy to answer that,
+- [48:48.130] but maybe that's part of the discussion.
+- [48:49.780] Maybe we could,
+- [48:51.410] maybe the question is not a rhetorical one,
+- [48:53.300] but a question for all of you. Does anyone have any big concern
+- [48:56.770] about what is currently on the table in the score
+- [48:59.580] or have ideas on how to improve it.
+- [49:02.640] The President: Would anybody oppose?
+- [49:04.820] I mean, most of you have studied the SCORE Act,
+- [49:07.840] more so than I have. Would anybody feel strongly
+- [49:10.940] opposed to starting with the base of the SCORE
+- [49:14.400] Act, which has gone through a lot?
+- [49:16.470] You would oppose it?
+- [49:18.970] Laurie Trahan: Well, first, I'm Laurie Trahan.
+- [49:20.490] I represent Massachusetts and appreciate
+- [49:23.990] being invited to this today.
+- [49:26.460] And I'm really happy to hear you talk
+- [49:28.910] about women's sports in particular.
+- [49:33.710] I played division one volleyball at Georgetown.
+- [49:36.870] That's changed my life.
+- [49:39.340] And so I really have spent a lot of time on college sports.
+- [49:43.210] And I think I'm the only Democratic legislator
+- [49:46.690] in the room.
+- [49:48.370] I'm not going to pretend to speak for all of them,
+- [49:51.300] but I do think we want to solve college sports
+- [49:54.660] as much as everyone here.
+- [49:57.370] I think one of the issues that we had with the SCORE Act,
+- [50:01.380] look at this as we've got some revenue issues
+- [50:03.630] and governance issues.
+- [50:06.480] The SCORE act in its codifying the house
+- [50:10.210] settlement really hurts women in Olympic sports.
+- [50:14.000] We've already seen a number of programs cut.
+- [50:16.850] Across the country.
+- [50:18.810] So I think we do need a revenue mechanism to save and protect.
+- [50:23.910] One, strengthening Title IX has to be part of the SCORE Act
+- [50:27.120] as well as ensuring that we are funding those programs.
+- [50:31.950] I mean, look, I'm also a mom.
+- [50:33.620] I've got a college athlete, son who played lacrosse.
+- [50:38.420] I've another daughter who hopes to.
+- [50:41.700] Sports is the lifeblood right now.
+- [50:43.970] People are in.
+- [50:47.380] Playing sports at record levels at the Youth League.
+- [50:49.790] If this is any time we should be expanding opportunities
+- [50:52.730] for sports, it's right now.
+- [50:54.170] And I think one thing that the SCORE Act represented,
+- [50:56.830] it was just a consolidation of what we have today,
+- [51:01.560] which is the SEC and the Big Ten.
+- [51:03.840] No offense, Greg and Tony, but all the money really
+- [51:07.660] is going to those two conferences right now,
+- [51:09.890] and we need to have, we need address the revenue issue.
+- [51:13.190] I know there's been some proposals
+- [51:14.660] as far as modernizing the.
+- [51:16.320] Sports Broadcasting Act, that could be one.
+- [51:18.770] I'm open for discussion on that. And then certainly making sure
+- [51:22.360] that we have a strong federal standard for NIL.
+- [51:25.600] A patchwork of laws does not work.
+- [51:27.360] I couldn't imagine signing my letter of intent
+- [51:30.010] and having to study up on every single state law
+- [51:33.660] and who offers what.
+- [51:36.500] But making sure we have athletes' voices mandated
+- [51:39.650] at the table. They're not here today, so.
+- [51:42.880] I do feel a responsibility to represent
+- [51:44.800] those 560,000 athletes who are not here right now,
+- [51:49.050] but making sure that they've got recourse
+- [51:52.700] if their NIL rights are violated or not upheld.
+- [51:58.550] But let me just say again, I would love to work,
+- [52:03.620] and maybe the SCORE Act
+- [52:04.830] is the right vehicle that we continue to tweak
+- [52:08.280] so that it has a path in the Senate as well.
+- [52:11.710] I know that there's a lack of consensus
+- [52:13.340] on many of the governance issues,
+- [52:15.640] but we'd like to solve that with everyone here today.
+- [52:18.780] Thank you.
+- [52:19.980] The President: Thank you.
+- [52:21.190] Mike, you might want to respond to that.
+- [52:22.820] Speaker Johnson: Well, there's some good points
+- [52:24.150] made there for sure,
+- [52:25.360] and I think everybody has the same intention
+- [52:27.800] as we want to protect women's sports as well.
+- [52:30.160] And I got two daughters, I would be remiss
+- [52:32.020] if I didn't acknowledge that.
+- [52:33.640] But with regard to the patchwork of state laws,
+- [52:36.600] as many of you probably know, the SCORE Act addresses it
+- [52:39.440] because it creates a national NIL standard.
+- [52:42.300] And then it allows the associations the authority
+- [52:44.090] to make rules on transfers and compensation caps
+- [52:47.380] and the things that are really burdening the system.
+- [52:50.840] And then it protects those rules
+- [52:52.260] from being challenged under antitrust laws.
+- [52:55.400] So we create an exemption there for that.
+- [52:57.400] So I think there are a lot of thoughts
+- [52:59.450] gone into how to address it there.
+- [53:01.070] But I mean, again, we have no pride of authorship here.
+- [53:03.720] We want to have the best possible product.
+- [53:05.460] So I mean the authors of the bill
+- [53:07.480] are open to good suggestions, so.
+- [53:11.710] The President: Anybody? Yes, Steve.
+- [53:16.780] Steve: Thank you, Mr. President.
+- [53:18.070] I appreciate you bringing everybody together
+- [53:20.100] because I think we're all here
+- [53:21.340] because we have a passion to protect college sports.
+- [53:24.430] And we've recognized that with this wild, wild west mentality,
+- [53:27.860] it's not healthy for the future of college athletics.
+- [53:31.650] And so bringing structure back and really bringing the ability
+- [53:35.080] for the schools to govern themselves again
+- [53:37.800] is what our intention was from the very beginning.
+- [53:40.300] We started this a few years ago.
+- [53:42.450] I remember Coach Saban came to my office and others,
+- [53:45.260] and we started listening to the people
+- [53:47.640] that are there at the schools dealing with the problem
+- [53:50.790] as payment of students became legal,
+- [53:53.330] which happened through legal arguments
+- [53:55.310] that, Mr. President, you talked about.
+- [53:57.710] Some of these lawsuits that ultimately
+- [53:59.830] broke down the framework that Charlie Baker and others
+- [54:03.910] were able to use to police college athletics.
+- [54:06.540] That's gone now.
+- [54:07.850] And so how do we put that structure back?
+- [54:09.670] So we listen to the schools,
+- [54:11.460] we listened to the different conferences,
+- [54:15.310] all the different conference.
+- [54:16.760] We talked to a lot of student athletes.
+- [54:18.270] We have a number of student-athletes in Congress
+- [54:21.540] who played different sports,
+- [54:23.300] who are co-sponsors of the SCORE Act
+- [54:25.760] and came to this from that same approach,
+- [54:27.690] saying, as somebody who played athletics
+- [54:30.370] or somebody who just has a passion.
+- [54:31.890] I lived in Tiger Stadium my second year at LSU.
+- [54:36.600] In case you're wondering where my leanings are,
+- [54:38.910] but I care about the future of college athletics
+- [54:42.930] and when you see a student-athlete,
+- [54:45.800] as you've talked about Pete, on their sixth school
+- [54:48.870] and they're 28 years old, number one,
+- [54:51.990] they're not going to have any college credits
+- [54:54.540] to be able to graduate
+- [54:56.220] and the idea of being able to get a degree for the 99%
+- [54:59.490] who aren't going to play professional sports
+- [55:01.220] is just going to be lost and how can you reestablish that?
+- [55:04.040] So we started putting some things together.
+- [55:05.790] We have the antitrust protections in this bill.
+- [55:08.910] We protect women's sports in this bill.
+- [55:10.570] We established, Mr. President, that Title IX maintains
+- [55:13.660] so that however many men's sports you have,
+- [55:16.550] you have to have an equal number of women's sports.
+- [55:18.790] Some schools have a lot of sports,
+- [55:21.250] some schools can only afford a few,
+- [55:22.900] but whatever you have you have to be have
+- [55:24.200] an equal number of women sports,
+- [55:26.750] and that's protected in this Bill,
+- [55:28.270] and obviously the Olympic sports are protected as well.
+- [55:32.090] We also wanted to make sure
+- [55:33.430] you could put limits on the transfer portal.
+- [55:35.680] Because that is something
+- [55:36.930] that a lot of people get very frustrated
+- [55:39.010] when they see that you just have pure free agency.
+- [55:41.550] The professional sports don't even have that.
+- [55:44.020] And so you limit with, and again, open to suggestions,
+- [55:47.850] but what everybody seemed to come to an agreement
+- [55:50.760] on was five total years of playing
+- [55:53.260] with one ability to transfer within that.
+- [55:55.640] And there's flexibility by the governing organization,
+- [55:59.290] so the NCAA can look at a case by case of your father's.
+- [56:03.190] On life support and you want to transfer to a different school
+- [56:05.760] to be close to your family, you can get an additional one,
+- [56:08.180] but let the governing body be able to do that again.
+- [56:11.400] We put those in the bill
+- [56:13.120] and then we give the financial literacy requirements
+- [56:15.650] so that student athletes have more protections
+- [56:17.560] that they currently don't have today.
+- [56:19.460] You might be getting that $300,000 or $2 million contract.
+- [56:23.530] You might not even know you have to pay taxes on that.
+- [56:26.210] And you might run into some real financial problems
+- [56:28.640] if you're a 17, 18-year-old kid.
+- [56:30.950] We make sure the schools educate.
+- [56:33.110] The kids on financial literacy.
+- [56:34.970] So we put a lot of other things, including health protections,
+- [56:37.540] as Commissioner Sankey talked about.
+- [56:39.330] So we listen to students. We listen to schools.
+- [56:42.300] We listen all the conferences. All the HBCUs support this bill.
+- [56:46.350] And we built a framework, and we built the coalition.
+- [56:49.120] We're right now at a point where we've got more
+- [56:51.160] than a majority in Congress supporting this bill,
+- [56:54.040] including, as the speaker said,
+- [56:56.170] double-digit number of Democrats who support this Bill.
+- [56:58.930] So it's a bipartisan coalition. And we absolutely will take.
+- [57:02.330] More input, but only input that grows the coalition,
+- [57:05.530] not detracts from the ability for student athletes
+- [57:07.890] to get that structure that they and the schools need.
+- [57:10.680] That's what the SCORE Act does. We want to move on it soon,
+- [57:13.940] because I think we all recognize that we can't wait another year
+- [57:17.130] and have this wild, wild west continue,
+- [57:19.020] and it will take the Senate some time to start their own process.
+- [57:22.280] So I'm expecting we're going to be moving soon
+- [57:25.380] in hopefully the next few weeks on the SCORE Act
+- [57:27.790] in the House. Keep this conversation going.
+- [57:30.960] Keep growing this coalition to solve this problem.
+- [57:33.670] Mr. President, thank you.
+- [57:34.870] The President: Thank you, Steve, and we have to move it quickly,
+- [57:36.790] otherwise you're going to have another season
+- [57:39.620] that's a disaster.
+- [57:40.870] And it's not affordable by colleges.
+- [57:44.540] Next to you, Steve.
+- [57:45.940] You had something to say? Thank you.
+- [57:48.380] Jim Phillips: I did. Thank you, President Trump.
+- [57:49.760] My name is Jim Phillips. I'm the Commissioner of the ACC.
+- [57:52.420] We welcome Kai this fall. I'll be your commissioner,
+- [57:55.510] so we'll look forward to seeing you out watching her play.
+- [57:59.260] I went on a college campus 30 some years ago
+- [58:02.180] and never left until I became commissioner.
+- [58:04.560] And I will tell you, we need your help.
+- [58:06.770] We need everybody's in this room.
+- [58:10.410] There are six areas that the SCORE Act is the right...
+- [58:14.570] Piece of legislation. First, as been mentioned,
+- [58:16.940] there's a national law versus state legislation and patchwork.
+- [58:21.210] We have thirty-seven disparate laws across the country,
+- [58:24.740] so what you can do in one state is different
+- [58:26.590] than what you could do in another state.
+- [58:27.950] That just doesn't work when you have inter
+- [58:29.970] and interstate competition, as Greg mentioned so well.
+- [58:33.550] The student athletes want to know
+- [58:34.820] that they're lining up against somebody that's abiding
+- [58:37.520] by the same rules, NIL, RevShare and the rest.
+- [58:41.580] Second. It's a reaffirmation that these are student athletes.
+- [58:45.600] Not one of the commissioners in this room
+- [58:48.210] has had a student athlete come up to them
+- [58:49.930] and say, we would like to be an employee.
+- [58:52.500] They're smart enough to understand what that means.
+- [58:55.370] Third, limited liability protection.
+- [58:57.780] The lawsuits are killing us.
+- [58:59.720] They're absolutely crushing college sports.
+- [59:02.900] If you don't like a rule, you just go to the local judge
+- [59:06.320] and the local judges deems you eligible.
+- [59:09.290] Fourth, degree completion.
+- [59:11.540] It's never been better to be a student athlete.
+- [59:14.080] You can come back to school and get a degree.
+- [59:16.270] You have a chance to be pro and you leave early,
+- [59:18.410] we want you to come back. Fifth, medical care.
+- [59:23.090] The medical care is as good as I've ever seen in my 30 years,
+- [59:26.400] ever, and it's mental health
+- [59:28.050] as well as physical health and wellbeing.
+- [59:31.490] Finally, the codification of the House case,
+- [59:33.420] and I heard the mention of hurting women's sports.
+- [59:38.480] I will say in the ACC, similar to the SEC.
+- [59:41.770] Big 12 and Big 10, we have added 942 new scholarships
+- [59:46.440] because of the House case.
+- [59:48.060] 56% in the ACC of those scholarships
+- [59:51.390] have gone to women's sports.
+- [59:53.220] So the House cases not hurt women's sport.
+- [59:55.570] It is not. And the idea that we can sustain
+- [01:00:00.980] this has been expressed is just not feasible.
+- [01:00:04.280] So we need your help.
+- [01:00:05.570] We thank you for taking your time
+- [01:00:08.050] and assembling this crew
+- [01:00:09.610] and we look forward to working together.
+- [01:00:11.840] The President: So the concept of what we're doing
+- [01:00:14.090] with your great experience is a pretty good start.
+- [01:00:19.060] If you could pass that around, it would be great.
+- [01:00:21.210] This is a summary of the SCORE Act,
+- [01:00:23.990] which I think people should see.
+- [01:00:25.610] So, you like the concept of what we're doing?
+- [01:00:29.410] Very good. Yeah, it sounds --
+- [01:00:30.800] Jim Phillips: Yes, sir.
+- [01:00:32.100] The President: Thank you very much.
+- [01:00:33.730] Please.
+- [01:00:35.600] Tim Pernetti: Tim Pernetti,
+- [01:00:36.960] the Commissioner of the American Conference.
+- [01:00:38.610] Mr. President, thank you
+- [01:00:40.120] for putting this incredible meeting together.
+- [01:00:42.460] And more personally,
+- [01:00:43.760] thank for your support of the Army Navy game.
+- [01:00:45.880] Army Navy, you're members of the America Conference.
+- [01:00:48.140] Thank you.
+- [01:00:49.350] Like a lot of people have said in this room,
+- [01:00:51.090] I had the same experience.
+- [01:00:52.380] College football changed my life.
+- [01:00:53.600] I couldn't afford college.
+- [01:00:54.880] I got a scholarship, and it changed everything.
+- [01:00:56.880] And I won't reiterate all the reasons why score makes sense,
+- [01:01:01.560] because there's a lot about it that makes sense.
+- [01:01:04.200] But what we have to remind ourselves,
+- [01:01:05.740] and there's a lot of business people in the room,
+- [01:01:08.070] is we're not solving the economic crisis as part of it.
+- [01:01:12.380] Because we are in a real economic crisis
+- [01:01:14.660] in college sports. We have complex challenges.
+- [01:01:17.230] The mission is completely out of focus.
+- [01:01:18.810] This thing was about education through sport.
+- [01:01:21.290] That's what it was supposed to be,
+- [01:01:22.670] to what Coach Saban said.
+- [01:01:24.080] It still is that, so long as we put it back in focus.
+- [01:01:27.480] But we can get through score. Create more consistency,
+- [01:01:32.360] because the industry has a lack of consistency from eligibility
+- [01:01:35.490] all the way down the line,
+- [01:01:38.130] but we have to examine other ways
+- [01:01:39.750] to solve the economic crisis.
+- [01:01:41.560] And these things shouldn't impede each other,
+- [01:01:43.840] and I know it is a very hot-wired topic,
+- [01:01:48.090] but looking at the opportunity for the industry
+- [01:01:50.680] to bring together
+- [01:01:52.000] valuable commercial resources in the future,
+- [01:01:54.370] such as unifying their media rights,
+- [01:01:56.750] is something that should be examined.
+- [01:01:58.530] And we're not making that decision today.
+- [01:02:01.270] If the Sports Broadcasting Act
+- [01:02:02.610] can be amended to provide college football,
+- [01:02:05.360] the antitrust protection that the pro leagues
+- [01:02:08.190] have to be able to unify their media rights,
+- [01:02:10.540] that gives the industry an option,
+- [01:02:13.160] which is the important word in the future.
+- [01:02:15.870] And that's really what the industry will need.
+- [01:02:18.450] This is an expense problem, but there are revenue paths
+- [01:02:22.260] that we haven't ventured down yet.
+- [01:02:25.100] The reality of all this is going to take bold steps.
+- [01:02:27.540] It's going to take guts.
+- [01:02:28.760] And this has become a transactional.
+- [01:02:32.170] Business where commitment is flying out the window,
+- [01:02:34.540] but it's not everybody.
+- [01:02:35.800] The top 1%, which is how the industry's been designed,
+- [01:02:39.000] to serve the top 1%.
+- [01:02:41.130] 99 out of 100 student athletes in our league
+- [01:02:44.100] don't want to be employees, to what Jim Phillips said,
+- [01:02:47.240] and they signed up for a great experience.
+- [01:02:49.440] Our responsibility is to make sure we reinforce the mission
+- [01:02:52.980] and create resources around them to have the experience.
+- [01:02:55.810] But that conversation, whatever side of it you're on,
+- [01:02:58.810] should be had.
+- [01:03:00.090] To see if there's an option in the future
+- [01:03:01.540] to dramatically improve the economics for the industry.
+- [01:03:05.150] Thank you so much, Mr. President.
+- [01:03:06.470] The President: Well, thank you,
+- [01:03:07.760] and thank you for mentioning the Army-Navy game,
+- [01:03:10.050] because as you know, we -- I signed an executive order
+- [01:03:13.050] to protect that time slot so that during that --
+- [01:03:17.000] from, like, 3 o'clock to 6 o' clock,
+- [01:03:19.890] or 6.30, I guess -- we protect that space, that airspace.
+- [01:03:24.500] So nobody can play a football game,
+- [01:03:27.020] and we have the Army Navy game protected,
+- [01:03:29.840] because the kind of money that's being thrown around,
+- [01:03:31.950] they were a little bit concerned that the Army Navy game,
+- [01:03:34.720] as great as it is, May not. May not do so well.
+- [01:03:38.740] I think it would actually do pretty well,
+- [01:03:40.160] but we protected the time spot anyway
+- [01:03:42.780] so that during that little period of time,
+- [01:03:45.830] it won't have any of this competition
+- [01:03:48.110] where lots of money is being thrown around.
+- [01:03:50.760] I think that was a worthwhile protection
+- [01:03:52.860] because it really is a special,
+- [01:03:54.910] it is a very special time and a special very special game.
+- [01:03:59.140] So thank you very much. Great job. Anybody else around?
+- [01:04:02.430] Speaker Johnson: Mr. President,
+- [01:04:03.770] could I just before you're being handed a you're given a handout
+- [01:04:07.500] that just has a quick summary bullet points
+- [01:04:09.180] of the composition of the score act
+- [01:04:10.640] for those that aren't familiar with it.
+- [01:04:12.560] And let me just apologize.
+- [01:04:14.540] I think NIL has been abused and my staff put my name
+- [01:04:17.120] and image on the top of it really big
+- [01:04:18.640] and that was sort of ironic and not intended.
+- [01:04:21.250] Sorry about that. I didn't get paid anything for it, yeah.
+- [01:04:24.170] Yield back.
+- [01:04:27.720] The President: Anybody else, please?
+- [01:04:30.320] Cody, please.
+- [01:04:31.770] Cody: Mr. President,
+- [01:04:33.050] I would like to express my gratitude
+- [01:04:34.730] for your involvement, interest in all of this,
+- [01:04:36.610] and especially personally, the opportunity to be involved
+- [01:04:40.850] in helping to find the solution. Because college sports,
+- [01:04:44.940] as many have said, changed my life,
+- [01:04:47.640] made me a better businessman, a better husband, better father,
+- [01:04:51.670] and made me better at life in general.
+- [01:04:54.670] This is a complex issue. It's multifaceted.
+- [01:04:58.440] There are a lot of different perspectives
+- [01:05:00.250] on how it should be solved.
+- [01:05:01.790] There are a lot of different agendas
+- [01:05:03.320] that are represented in this room.
+- [01:05:05.380] And the Square Act is a good start.
+- [01:05:07.490] It gives us a place that we can build on.
+- [01:05:10.840] But as we move into the Senate,
+- [01:05:12.680] the political dynamics are going to change.
+- [01:05:16.040] And many of the agendas that are represented in the room
+- [01:05:18.690] and outside of this room
+- [01:05:20.390] are going come into conflict with one another.
+- [01:05:23.430] The reality is nobody's going to get everything that they want.
+- [01:05:28.140] If we're going to come to a solution on this,
+- [01:05:29.860] we have to find a place
+- [01:05:31.100] where we're all sort of equally unhappy, so to speak.
+- [01:05:34.230] That's just like any other business deal.
+- [01:05:36.640] And I think what's key is that we are all willing
+- [01:05:40.080] to come the table and compromise and work together,
+- [01:05:42.980] recognize that the small schools are important,
+- [01:05:45.150] the big schools are, women's sports are important.
+- [01:05:47.520] Olympic sports are,
+- [01:05:48.920] it's not just about big time college football.
+- [01:05:51.500] And so that may require you twisting some arms
+- [01:05:54.560] along the way to make sure that people work together.
+- [01:05:57.110] And are willing to give a little bit.
+- [01:05:59.300] And I understand that this whole ecosystem of college sports
+- [01:06:02.700] belongs to all of us. It's a national treasure.
+- [01:06:05.540] It's the public trust, as I've heard Clay Travis say before.
+- [01:06:08.480] And I think it's very accurate.
+- [01:06:10.340] And so it belongs to the all the American people,
+- [01:06:13.640] and all the Americans people should share in it.
+- [01:06:15.220] And so I would just encourage all of everyone here.
+- [01:06:18.150] And I that might even be a commitment
+- [01:06:19.690] that you could ask everyone to make
+- [01:06:21.030] is that they will work together. They are a compromise.
+- [01:06:23.530] Come to the table and be constructive.
+- [01:06:25.480] The President: So, Cody,
+- [01:06:26.850] I know you have worked very hard on this,
+- [01:06:29.390] and frankly, you've been working on it long and hard,
+- [01:06:33.320] maybe harder than anybody else.
+- [01:06:34.800] I've heard your name mentioned more than anybody.
+- [01:06:37.540] Could you use this as a base,
+- [01:06:39.010] and we all get together, maybe as a smaller group,
+- [01:06:42.010] and ultimately report back to the larger group
+- [01:06:45.610] and come up with something?
+- [01:06:46.890] Do you think this is a good base?
+- [01:06:48.350] Cody: Yes sir, I think it's certainly a good base.
+- [01:06:50.260] It's a great starting point.
+- [01:06:52.130] Again, the dynamics will be different in the Senate
+- [01:06:54.280] and we'll have to build on it from there.
+- [01:06:55.970] And again, a lot of these tougher issues
+- [01:06:57.910] are going to come to the surface once we get there.
+- [01:07:00.270] But absolutely, we should convene a smaller group
+- [01:07:03.930] that can work on those things and work on the compromise
+- [01:07:06.380] that needs to be made to be able to have a bill
+- [01:07:09.400] that can get 60 votes in the senate.
+- [01:07:12.330] The President: Is there any way we could go back
+- [01:07:13.840] to the old system, which I thought was fantastic,
+- [01:07:17.020] and do something with some compensation for the players
+- [01:07:21.400] and simplify things
+- [01:07:22.690] so that you'd go back to a scholarship system
+- [01:07:25.370] plus some compensation, more minimal
+- [01:07:29.480] but, you know, a lot for a player?
+- [01:07:32.020] I mean, for the most part,
+- [01:07:33.930] they would consider it to be a lot,
+- [01:07:36.710] whether it was $75,000 or $50,000
+- [01:07:40.430] or maybe more than that.
+- [01:07:42.140] But you go back to that wonderful system
+- [01:07:46.360] that I thought we had until this judge decided
+- [01:07:48.920] to just throw everything out the window.
+- [01:07:51.870] And it's been worked at for years and years,
+- [01:07:54.590] and it was finally honed.
+- [01:07:57.650] And then all of a sudden we're sitting in this crazy
+- [01:08:00.250] Neverland
+- [01:08:01.480] where colleges are losing hundreds of millions of dollars,
+- [01:08:05.360] and in many cases not even putting out competitive teams.
+- [01:08:08.300] It's incredible.
+- [01:08:10.020] Is there any way that could work, Coach?
+- [01:08:12.540] We were together, and you had some pretty strong ideas.
+- [01:08:15.890] How would you feel about that?
+- [01:08:18.270] Charlie Baker: You know, as a coach, well, first of all,
+- [01:08:19.910] thanks for having us. Thank you, Coach.
+- [01:08:21.780] I speak on behalf of so many of my former colleagues
+- [01:08:24.430] that I visit them now, and they're a mess.
+- [01:08:27.020] You know I don't see coaches sticking around longer.
+- [01:08:29.590] You know the coaches are getting paid for it all,
+- [01:08:31.420] so they leave and enjoy their life
+- [01:08:34.300] because what they're dealing with
+- [01:08:35.600] is the loss of a locker room.
+- [01:08:37.730] You take away team, and our country's in trouble.
+- [01:08:41.440] My two girls played college volleyball,
+- [01:08:43.010] and one of the greatest interviews
+- [01:08:44.350] I've ever witnessed is she's at Georgia Tech
+- [01:08:46.280] and said, I learned so much more on the volleyball court
+- [01:08:49.050] than I ever learned in any classroom,
+- [01:08:50.510] which I agree with.
+- [01:08:51.900] So I actually think it's a simple fix.
+- [01:08:55.680] And it's not simple unless we get antitrust protection,
+- [01:09:00.160] because the NCAA, when I was growing up in the profession,
+- [01:09:04.830] if you violated a rule, that was a problem.
+- [01:09:07.100] You'd lose your job, and that was made very clear.
+- [01:09:10.910] Throughout litigation and other issues,
+- [01:09:13.520] the NCAA has become, they don't have subpoena power.
+- [01:09:16.900] And every time they make a decision, they get litigated.
+- [01:09:19.420] And I get it. I mean, I see, I witness it.
+- [01:09:22.030] And as a result, and we know this
+- [01:09:24.520] from some of the policies you put in place,
+- [01:09:27.180] rules without enforcement equals chaos.
+- [01:09:30.990] You don't need new rules. We got plenty of rules.
+- [01:09:33.080] Enforce them. So if we get antitrust,
+- [01:09:35.810] then you now will not get litigator.
+- [01:09:37.530] And I would eliminate,
+- [01:09:38.780] the only thing I dislike about the SCORE
+- [01:09:41.950] Act is that and Coach Stave and I have visited about this,
+- [01:09:45.460] Mac Brown and I visited about his.
+- [01:09:48.240] Get rid of the collectives, that's cheating.
+- [01:09:51.920] When donors -- so everyone understands
+- [01:09:54.050] what a collective is. Donors put money in a pot,
+- [01:09:57.110] it's distributed to players through the coach
+- [01:09:59.730] and the general manager according to your talent level.
+- [01:10:02.750] That's not allowed, not supposed to do that.
+- [01:10:05.710] That's called pay for play.
+- [01:10:07.460] So there's a revenue share that the universities
+- [01:10:10.850] get through their television contracts
+- [01:10:12.390] and I know it goes up every year.
+- [01:10:13.970] That's their only financial,
+- [01:10:15.280] that's the only thing they're allowed to do
+- [01:10:16.810] for their student athletes.
+- [01:10:18.020] They can distribute that however they want.
+- [01:10:19.840] That's still pay for play. But any NIL, conversations,
+- [01:10:24.590] which NIL I think we all got to quit calling it that.
+- [01:10:27.460] It's not name and likeness.
+- [01:10:29.350] These players are getting paid millions of dollars
+- [01:10:32.050] in some of the stories I hear
+- [01:10:34.470] and they're posting an Instagram for twice
+- [01:10:38.830] and then they're getting paid 1.5 million dollars.
+- [01:10:40.820] So the NIL to me.
+- [01:10:43.200] NIL in its purest form is America.
+- [01:10:46.820] It's called capitalism.
+- [01:10:48.200] If you can make money on your name,
+- [01:10:51.190] you should have a right to do that.
+- [01:10:52.690] If you're a gymnast, a volleyball player,
+- [01:10:54.830] a swimmer, a football player,
+- [01:10:57.140] and a car dealership wants to work with you
+- [01:11:01.070] legally in a business world, do it.
+- [01:11:04.240] That's what NIL should be. That's not what it is.
+- [01:11:07.240] So you get rid of the collective becomes an illegal.
+- [01:11:11.520] Entity, there's no such thing, even to this day,
+- [01:11:15.450] that makes my skin curl when I hear collective.
+- [01:11:19.190] Get the donors out of it.
+- [01:11:20.780] If a business owner wants to hire Jeremiah Smith
+- [01:11:23.820] and pay him a certain amount of money,
+- [01:11:25.380] he's certainly allowed to do that.
+- [01:11:26.660] That's called capitalism.
+- [01:11:28.200] But the universities cannot arrange that and set that up.
+- [01:11:31.150] The universities can simply make sure that kids go to school,
+- [01:11:35.010] make sure they graduate.
+- [01:11:37.070] Treat them fairly, make sure the women's sports,
+- [01:11:39.790] the Title IX, I'm all in favor of all that,
+- [01:11:42.230] but they cannot get involved
+- [01:11:44.200] in the financial marketing of your players.
+- [01:11:48.190] Let the market take care of itself.
+- [01:11:50.300] That's called the market, that's called Kaplan.
+- [01:11:52.370] The collective, I think if the collective goes away,
+- [01:11:56.730] college sports gets better immediately
+- [01:11:58.950] when you say that, if we have antitrust.
+- [01:12:02.680] The President: You know, it's just sitting around
+- [01:12:05.080] and having watched college sports
+- [01:12:07.010] for so long with no problems. No problems.
+- [01:12:10.910] What this incompetent judge did to this game,
+- [01:12:15.120] knowing nothing at all about sports,
+- [01:12:18.740] about anything that we're talking about today,
+- [01:12:21.130] is a disgrace.
+- [01:12:24.190] And it's going to be a very hard thing to put back together.
+- [01:12:26.770] We'll get it done.
+- [01:12:28.220] But what this person did to college sports is a disgrace,
+- [01:12:33.800] I say it.
+- [01:12:35.320] And we've seen plenty of those type of opinions.
+- [01:12:38.130] I had one recently, and it's gross incompetence,
+- [01:12:41.810] is my opinion, and everybody suffers,
+- [01:12:45.100] including student athletes, including women.
+- [01:12:48.390] Women are really taking the brunt of it,
+- [01:12:51.460] as what you were saying before. It was so perfect for women.
+- [01:12:55.790] It was great for women the way it was,
+- [01:12:57.730] and now we have to come up with a whole new scheme.
+- [01:13:02.270] To satisfy people, and they're going to be some unhappy people.
+- [01:13:07.180] And it was working before.
+- [01:13:10.560] A person that knew absolutely nothing about sports
+- [01:13:13.390] made a ruling, and she turned the whole thing upside down.
+- [01:13:18.760] And it's really a disgrace.
+- [01:13:20.730] You want to know the damn disgrace.
+- [01:13:23.430] But we are where we are, and we'll figure something out.
+- [01:13:27.200] And it won't be easy.
+- [01:13:29.010] And it won't be as good, in my opinion,
+- [01:13:30.690] it won't be as what you had before,
+- [01:13:32.710] including for the students that were getting great scholarships.
+- [01:13:36.030] And, you know, some went on to professional sports
+- [01:13:38.750] and most of them didn't.
+- [01:13:40.650] But they got great education, they got it for free.
+- [01:13:43.760] And they had a lot of fun going to college
+- [01:13:46.670] and they learned a lot. And they have great coaches,
+- [01:13:49.670] many of whom are around the table.
+- [01:13:51.240] They learned more from those coaches in many cases
+- [01:13:53.530] than they learned in the classroom.
+- [01:13:56.270] So, yeah. I appreciate what you say.
+- [01:13:58.370] I don't forget when these donors or collectors
+- [01:14:01.330] or whatever you want to,
+- [01:14:02.700] all different names for different people.
+- [01:14:04.370] But as that money comes in,
+- [01:14:06.470] that's also money colleges aren't going to get.
+- [01:14:08.590] You know, they're giving money to players
+- [01:14:11.470] as opposed to giving maybe to the college
+- [01:14:13.800] to keep a lot of colleges going. And that's pretty tough also.
+- [01:14:18.610] But it's just a shame because I got involved just recently
+- [01:14:23.210] and I looked at what's happened to colleges
+- [01:14:27.580] and to college sports.
+- [01:14:28.900] And it is colleges, because the colleges
+- [01:14:31.390] are going to go out of business, many of these colleges.
+- [01:14:34.220] When I look at what a person that's a judge
+- [01:14:37.570] was able to do to destroy colleges and college sports
+- [01:14:42.160] that was so good, no problems, it's very, very sad.
+- [01:14:46.860] And in some ways,
+- [01:14:48.110] I'd like to just go exactly back to what we had
+- [01:14:52.330] and ram it through a court if we have to.
+- [01:14:55.190] Because I'm not sure you're ever going to come up
+- [01:14:57.350] with a system that's comparable to what you had.
+- [01:15:00.990] And you know, in life, you like to get better, not worse.
+- [01:15:04.400] You like to go forward, not backward.
+- [01:15:06.860] No matter what you come up with, you've gone backward,
+- [01:15:09.400] a long way backward in many cases.
+- [01:15:12.290] Mr. President. Yeah, please.
+- [01:15:14.530] Ted Cruz: Mr. President.
+- [01:15:18.330] I want to thank you and echo the thanks
+- [01:15:20.310] for bringing this group together,
+- [01:15:21.940] and I want to in particular underscore
+- [01:15:23.880] the urgency that we have heard around this table.
+- [01:15:27.330] College sports is an absolute crisis.
+- [01:15:30.570] Every single week, we're seeing another program being canceled,
+- [01:15:34.950] we are seeing another women's team being canceled.
+- [01:15:37.380] We're seeing Olympic teams being canceled
+- [01:15:40.280] and the current chaos,
+- [01:15:43.050] if Congress doesn't we are very quickly going to be
+- [01:15:47.450] in a world of 30 to 50 college football teams
+- [01:15:52.100] that are basically a mini NFL.
+- [01:15:54.820] And the Division II and Division III schools
+- [01:15:57.070] are going to left behind.
+- [01:15:59.130] And the millions of college athletes
+- [01:16:01.610] who right now scholarships provide an avenue
+- [01:16:04.100] for them to get an education that they never would have had,
+- [01:16:06.910] that'll go away.
+- [01:16:08.160] And that would be an absolute travesty if we let that happen.
+- [01:16:13.020] I will say Several people around this table
+- [01:16:16.020] said this is a bipartisan issue
+- [01:16:18.480] and we have bipartisan consensus.
+- [01:16:21.100] I agree it should be a bipartisan issues,
+- [01:16:24.510] but it's worth speaking realistically.
+- [01:16:26.800] The challenge is simple. You asked about the SCORE Act.
+- [01:16:29.140] I think the SCORE Act has many good elements.
+- [01:16:30.980] I think it is a very good first step,
+- [01:16:35.210] but the challenge is for this to be passed into law
+- [01:16:37.650] and put on your desk, we need 60 votes in the Senate,
+- [01:16:41.240] which means we need at least seven Senate Democrats.
+- [01:16:45.110] Right now, there are zero Senate Democrats
+- [01:16:47.550] who support the SCORE Act. I've spent the last three years
+- [01:16:50.930] negotiating with Senate Democrats on this issue.
+- [01:16:54.490] And I will say for some time
+- [01:16:56.040] we have been to use a football analogy
+- [01:16:58.000] at the two-yard line, but not able to push.
+- [01:17:01.850] And there are interest groups on the left,
+- [01:17:04.540] in particular, trial lawyers and unions.
+- [01:17:08.120] That have resulted in Democrat senators
+- [01:17:10.390] that are actively lobbying against the SCORE Act
+- [01:17:13.060] and don't want to see legislation passed.
+- [01:17:15.110] And so my hope, there are a lot of people around this table
+- [01:17:18.210] who care desperately about college sports.
+- [01:17:20.730] My hope is that you speak out to Democrat senators and urge them,
+- [01:17:25.520] let's come together and solve this together.
+- [01:17:29.340] And I think a solution,
+- [01:17:30.630] part of a solution needs to be on the cost side.
+- [01:17:33.640] And I think part of the solution should be discussing
+- [01:17:35.580] and looking at the revenue side.
+- [01:17:36.820] I think both of those are important parts of a solution.
+- [01:17:40.120] There are a number of Senate Democrats who care about this
+- [01:17:42.790] but have not quite gotten to the point of getting the yes.
+- [01:17:45.970] That's the single biggest challenge.
+- [01:17:48.090] And I the collective voices around this table
+- [01:17:51.320] adding to the urgency that if we wait another year,
+- [01:17:53.980] if we waited another two years,
+- [01:17:55.710] the programs in your state are going away
+- [01:17:58.440] and the students in your State are losing their scholarships.
+- [01:18:01.900] And it would be an absolute travesty if we let that happen.
+- [01:18:06.340] Male Speaker: Thank you. And I want to underscore
+- [01:18:07.770] that sense of urgency on the Senate side.
+- [01:18:09.430] I do think there's a growing number of senators
+- [01:18:11.160] that do understand that if we're here a year from now,
+- [01:18:15.600] we're in a much worse place.
+- [01:18:16.860] If we're two years from now college sports
+- [01:18:19.720] looks entirely different, and it would be a disaster.
+- [01:18:22.040] So I do -- you think that that growing sense
+- [01:18:23.710] of urgency is important.
+- [01:18:24.940] I do appreciate you convening this.
+- [01:18:26.850] You have unique credibility on this,
+- [01:18:28.330] not just being president, but...
+- [01:18:29.600] We've spent time at the Super Bowl,
+- [01:18:30.950] watching the Super bowl, playing golf.
+- [01:18:32.550] You love sports.
+- [01:18:33.760] You have credibility on it. You care about it.
+- [01:18:35.460] And I think that authenticity matters
+- [01:18:37.490] for the leadership that we need.
+- [01:18:38.950] I do think that if we're serious about this,
+- [01:18:42.360] the antitrust exemption matters for the governance side,
+- [01:18:45.540] but I think the revenue side
+- [01:18:46.760] is inextricably linked to the success of this.
+- [01:18:49.310] If you are losing money on football,
+- [01:18:51.180] and I'm from Missouri, we love -- we're in the SEC.
+- [01:18:54.690] If you're losing money on your football program,
+- [01:18:56.990] you're not going to be able to subsidize
+- [01:18:58.740] the women's sports and the Olympic sports.
+- [01:19:00.180] So I do think that we can come together.
+- [01:19:02.050] I am hopeful and optimistic by the people
+- [01:19:04.270] who are represented in this room and as we move forward
+- [01:19:06.270] that we can find a solution, we have to.
+- [01:19:08.500] This is not just because we like watching sports on TV,
+- [01:19:11.460] why this is important.
+- [01:19:12.820] There are lives that can be changed forever
+- [01:19:14.880] if we do the right thing.
+- [01:19:16.330] And I think you've got the right people in the room
+- [01:19:18.050] and I think that you're the right guy to lead this effort.
+- [01:19:19.650] We're here to support those efforts in the Senate.
+- [01:19:23.710] The President: Could I ask Charlie Baker, Charlie,
+- [01:19:25.340] do you think we could come back to a solution
+- [01:19:28.040] or get a solution that was as good as what we had before
+- [01:19:31.460] or almost as good as what be we had before or maybe better?
+- [01:19:36.870] I don't think better, but maybe.
+- [01:19:39.100] Would you say that's possible, Charlie?
+- [01:19:41.030] You're in the position to be able to tell
+- [01:19:43.610] maybe better than anybody else.
+- [01:19:45.460] Charlie Baker: Well, I certain first of all.
+- [01:19:49.260] I appreciate the question
+- [01:19:51.280] because it's at the end of the day,
+- [01:19:52.560] the one we all care about the most,
+- [01:19:54.010] which is can we create a system going forward
+- [01:19:57.170] that's better than the one we have now?
+- [01:19:59.130] And I think the focus people, the thing about the SCORE
+- [01:20:04.730] Act that everybody needs to remember here
+- [01:20:06.570] is it's a comprehensive piece of legislation
+- [01:20:09.500] that deals with a whole series of things
+- [01:20:11.650] that I think everybody would agree are a problem.
+- [01:20:17.930] The place where the discussion gets a little more complicated
+- [01:20:20.300] is the issue about the cost and the revenue side
+- [01:20:22.500] and the implications of those two issues.
+- [01:20:25.980] And if I were to say to this group,
+- [01:20:29.110] where's the place to go, it would probably be there.
+- [01:20:31.570] And do I think if you could get that resolved,
+- [01:20:33.620] you could create something that most people
+- [01:20:35.230] would view as better than what we had before?
+- [01:20:39.460] I think you'd certainly be heading in that direction.
+- [01:20:41.330] The big thing we all have to remember here
+- [01:20:43.540] is that the way it was before, and I'm almost 70,
+- [01:20:50.590] so I remember those days quite well.
+- [01:20:56.160] Sports and media played a completely different role
+- [01:20:59.670] in our society than the one they play now.
+- [01:21:03.110] And the money piece in particular
+- [01:21:04.990] is got to be part of the conversation
+- [01:21:07.230] and that's got to involve the student athletes.
+- [01:21:09.610] And your point, Mr. President,
+- [01:21:10.950] about coming up with a more structured way
+- [01:21:13.350] of dealing with that I think is a good one,
+- [01:21:15.540] but that's got to be part of the dialog
+- [01:21:17.650] for the same reason that the revenue piece
+- [01:21:19.600] has to be part of dialog as well.
+- [01:21:23.400] The President: So much money was paid to students
+- [01:21:26.540] in the form of scholarships.
+- [01:21:28.790] What was the exact number that you said, Charlie, before?
+- [01:21:32.380] Charlie Baker: 4.1 billion last year.
+- [01:21:34.010] The President: $4.1 billion was paid
+- [01:21:35.450] to the students in the form of scholarships,
+- [01:21:37.690] and everybody was happy. Everybody was happy,
+- [01:21:42.280] and now you got yourself a mess,
+- [01:21:45.530] and I think you should just go back to where you have
+- [01:21:50.780] and let some judge tell you you can't do it,
+- [01:21:53.560] and you appeal it up and you win at some point,
+- [01:21:57.140] because I think what you had was a great system, $4,1 billion.
+- [01:22:01.890] Everybody was happy.
+- [01:22:04.020] Now you have a thing that you're never going to solve.
+- [01:22:06.240] You have a jigsaw puzzle
+- [01:22:07.490] that's not going to be put back together.
+- [01:22:10.860] And colleges are going to go out of business.
+- [01:22:13.790] And I think you go back and the players
+- [01:22:17.790] that got the $12 million,
+- [01:22:19.390] a 17-year-old quarterback, they got $12,000,000.
+- [01:22:21.860] One got $14,000 I hear they're negotiating one
+- [01:22:25.090] at $18,000 dollars.
+- [01:22:28.510] They don't know if he's got an accurate arm,
+- [01:22:30.140] but he's got to strong arm, coach.
+- [01:22:32.720] Accuracy counts too.
+- [01:22:34.270] They have no idea they're going to give me $18 million.
+- [01:22:37.550] And you know what? Those guys that already signed contracts,
+- [01:22:40.410] you know what, call that the lotto.
+- [01:22:42.420] They hit the jackpot. Let them have their money.
+- [01:22:44.330] You can't do anything about it.
+- [01:22:46.470] But I'd like to see, and I'll tell you,
+- [01:22:49.090] I just don't think it's right that a judge
+- [01:22:52.060] is allowed that knows nothing,
+- [01:22:53.740] is allowed to destroy college sports and colleges.
+- [01:22:58.990] And I'd to see you go back to where you were,
+- [01:23:02.010] Enhance it a little bit. Through some compensation.
+- [01:23:08.280] Let them take you to court, because no matter what you do,
+- [01:23:10.600] you're going to be sued. You can do 100.
+- [01:23:12.860] You could give everybody everything.
+- [01:23:15.260] And you're gonna end up back in court.
+- [01:23:17.960] And you'll probably have a judge that doesn't know a damn thing.
+- [01:23:23.040] It's a mess. It's mess.
+- [01:23:26.800] And I don't know whether or not that decision was appealed.
+- [01:23:29.350] Was that decision ever appealed? Does anyone know?
+- [01:23:35.740] Because I heard it was not appealed.
+- [01:23:37.830] Laurie Trahan: I believe the House settlement
+- [01:23:39.180] is being litigated now because it violates --
+- [01:23:42.490] The President: No, but was it appealed, the decision?
+- [01:23:45.670] Laurie Trahan: The House settlement I think --
+- [01:23:46.920] The President: The original decision
+- [01:23:48.280] by the judge from California, was that appealed?
+- [01:23:53.410] Laurie Trahan: Okay, I'm sorry. I misunderstood.
+- [01:23:55.360] Greg: Yeah, the answer is no.
+- [01:23:56.650] It was settled because it was, I think, the third case.
+- [01:23:59.200] The President: Somebody appeal it.
+- [01:24:00.920] Greg: The prior case, which is Alston versus the NCAA,
+- [01:24:03.450] was appealed to the Supreme Court,
+- [01:24:04.920] and the Supreme court found 9-0 against the college position
+- [01:24:08.130] to defend the old system.
+- [01:24:10.070] So that's, I think the answer is the antitrust piece
+- [01:24:13.450] is the inherent problem
+- [01:24:15.590] in trying to create caps and limits.
+- [01:24:17.080] That's it.
+- [01:24:18.350] The President: So the Supreme Court was responsible for this?
+- [01:24:22.730] Greg: I'm not the one who's going to say that.
+- [01:24:24.150] I'm not bold enough to say it,
+- [01:24:25.410] but I'll at least acknowledge it.
+- [01:24:26.790] The President: Nine nothing.
+- [01:24:28.080] Nine nothing with Kavanaugh supporting.
+- [01:24:29.380] Was the Supreme Court responsible for this?
+- [01:24:31.660] Nine nothing and Kavanaugh supported.
+- [01:24:35.300] It's a shame. It's shame. Yes sir, please.
+- [01:24:38.320] Charlie Baker: Mr. President,
+- [01:24:39.570] thank you for bringing this esteemed group together.
+- [01:24:42.840] I have a bit of a unique perspective
+- [01:24:44.510] because for most of my career I was in professional sports.
+- [01:24:47.920] I became the commissioner three and a half years ago.
+- [01:24:51.520] I found a system that quickly was defined
+- [01:24:55.130] by unlimited free agency
+- [01:24:56.660] and no salary cap and complete chaos.
+- [01:25:00.630] I am, and representing the Big 12,
+- [01:25:03.180] we are very much in favor of the score act.
+- [01:25:06.340] I like to say it's progress over perfection.
+- [01:25:09.890] And it provides,
+- [01:25:11.880] no different than what Commissioner Phillips said,
+- [01:25:13.790] the core principles of what we need to move this thing forward.
+- [01:25:17.450] One thing that we didn't discuss so far today
+- [01:25:20.080] was athlete protection rights,
+- [01:25:21.340] which is obviously part of the SCORE Act.
+- [01:25:24.130] And there's a component there about regulating sports agents
+- [01:25:28.920] that we need really look at.
+- [01:25:31.960] Now, I know we have some agents in the room
+- [01:25:33.580] and I have a lot of respect for that industry.
+- [01:25:36.910] But right now, they are taking full advantage
+- [01:25:39.960] of our student athletes. Usually in the NBA or the NFL,
+- [01:25:43.710] it's a 3% to 4%, maybe 5% commission.
+- [01:25:46.390] In some cases, they're charging over 20%.
+- [01:25:49.250] We talked about the portal.
+- [01:25:51.270] Most agents are pushing our student athletes
+- [01:25:53.030] into the portal,
+- [01:25:54.230] and the recent numbers show that over 40%
+- [01:25:56.870] don't even find a home once they get into the portals.
+- [01:26:00.880] And because they're being pushed into the Portal,
+- [01:26:03.480] And Mr. Sankey said it earlier.
+- [01:26:06.210] They're losing credits towards their degrees.
+- [01:26:09.510] So we have a problem on our hands, obviously.
+- [01:26:12.160] And I don't believe in perfection.
+- [01:26:14.950] I do believe in progress. And I think the SCORE Act
+- [01:26:17.920] is a great first step for us to move forward.
+- [01:26:21.830] And on behalf of the Big 12 Conference,
+- [01:26:23.550] we are all in favor of it.
+- [01:26:25.470] And we'd like to see a sense of urgency.
+- [01:26:27.520] We need something done soon.
+- [01:26:30.280] Because if not, our university is going to suffer.
+- [01:26:32.870] Our student athletes will suffer.
+- [01:26:34.210] And we need help.
+- [01:26:35.660] So we appreciate you bringing us together today.
+- [01:26:37.130] The President: Well, it's an honor to do it.
+- [01:26:38.360] I just hate to see what you're going through.
+- [01:26:39.980] I hate to what's happening to our country, essentially,
+- [01:26:44.060] because this is our country. This is the youth of our country
+- [01:26:46.670] and it's a terrible thing that's happening because,
+- [01:26:49.350] you know, these crazy payments that are being made to colleges
+- [01:26:55.020] are not going to be able to help themselves.
+- [01:26:57.090] Just like the NFL owners would not be able to help them
+- [01:27:00.990] if they didn't have a cap.
+- [01:27:02.670] But you have a much bigger problem than a cap,
+- [01:27:05.940] And you have a complexity problem,
+- [01:27:07.730] and you have a problem where women
+- [01:27:09.980] are being thrown out of sports
+- [01:27:12.430] like at levels never seen before,
+- [01:27:15.620] and you're going to have other things that come up
+- [01:27:17.510] that nobody's even thinking about right now.
+- [01:27:21.820] You're not going to be able to solve these problems.
+- [01:27:24.800] You're just not going to be to solve these problems you know
+- [01:27:27.090] Ted said something before that the Democrats
+- [01:27:29.740] I think Eric was alluding to it
+- [01:27:31.890] but you have a lot of Democrats in the Senate
+- [01:27:34.210] that I hear are opposed to almost anything
+- [01:27:36.890] so if you do and I have to deal with these people
+- [01:27:39.440] all the time okay you saw him the other night
+- [01:27:43.650] they wouldn't stand up for a soldier
+- [01:27:46.620] that was a great hero the Congressional Medal of Honor.
+- [01:27:50.310] They sat there. They wouldn't stand up.
+- [01:27:52.040] They wouldn't even smile. They wouldn't clap.
+- [01:27:55.280] For a woman that lost her daughter,
+- [01:27:57.190] whose throat was slashed,
+- [01:27:58.660] they wouldn't stand up, they sat,
+- [01:28:00.760] and they didn't stand up, and didn't do anything.
+- [01:28:03.560] And we have to deal with these people.
+- [01:28:04.950] But, Ted, you said that there are seven Democrats
+- [01:28:07.360] that will not vote, yes.
+- [01:28:09.780] Eric, you know the situation better
+- [01:28:11.480] than almost anybody in the room.
+- [01:28:14.660] Except maybe me, I have to deal with it even more than you.
+- [01:28:18.840] You know, if you've got all these hardline Democrats
+- [01:28:21.660] that want to see everything fail, it's a problem.
+- [01:28:25.340] You know for a fact these people would vote no?
+- [01:28:27.750] Ted Cruz: What we need at least seven who will get to yes,
+- [01:28:30.850] because that's how we get to 60.
+- [01:28:33.140] Right now the score act has zero.
+- [01:28:36.460] So I'm glad the House is moving it
+- [01:28:38.610] and they've got some Democrats in the House.
+- [01:28:40.500] That's beneficial and I think when the House passes it,
+- [01:28:43.520] that momentum is helpful.
+- [01:28:45.650] And there are a number of Senate Democrats,
+- [01:28:47.090] I mean I've spent literally thousands of hours
+- [01:28:49.320] negotiating with my Democrat colleagues
+- [01:28:51.630] and there are number who want to address it.
+- [01:28:56.190] It is their political leadership that is telling them to stop,
+- [01:28:59.640] and so what has got to happen is the folks in each of the states
+- [01:29:04.710] need to say to your elected Democrats,
+- [01:29:07.010] if you don't act, we're going to lose
+- [01:29:09.590] what is so extraordinary about college sports.
+- [01:29:12.650] And it needs to be something
+- [01:29:14.300] that is in the middle that's a compromise.
+- [01:29:15.950] The President: Ted, you've already lost it.
+- [01:29:17.850] You've already lose it.
+- [01:29:19.200] Colleges are losing $400, $500 million,
+- [01:29:23.430] and they haven't even started yet.
+- [01:29:26.570] So you've all ready lost it, in the true sense.
+- [01:29:29.530] And you've lost something else.
+- [01:29:31.040] It's like it's ugly what's happened to sports in college.
+- [01:29:35.020] Before, it was beautiful.
+- [01:29:36.360] It was a beautiful thing, and now it's very ugly.
+- [01:29:39.030] It's become very ugly And I think you're right.
+- [01:29:42.070] You're going to have people that will never vote for anything,
+- [01:29:44.280] no matter what you agree.
+- [01:29:45.510] You could agree to everything that's perfect,
+- [01:29:48.210] and they will never voted.
+- [01:29:50.590] And I'm not doing this as a practical person.
+- [01:29:56.240] No matter what, you agree to. You have people in the Senate
+- [01:29:59.550] and in the House that will not vote for it,
+- [01:30:02.750] even if it's good for our country.
+- [01:30:04.550] Even if it is great for the player,
+- [01:30:06.090] great for college, and great for our county.
+- [01:30:08.710] And they will still vote no.
+- [01:30:11.500] Because they're cuckoo. They've got problems.
+- [01:30:15.600] Maybe it's problems at home, Cody, but they have problems.
+- [01:30:19.800] So that gives us problems. And I think what I'm going to do
+- [01:30:23.800] is I'm going to sit down with some of the people in this room.
+- [01:30:30.500] Urban-like coach, a very fine coach.
+- [01:30:35.650] Nick, who won a lot? He won a a lot.
+- [01:30:38.460] How many, six national championships?
+- [01:30:41.780] You could have done better. You had a couple of games.
+- [01:30:44.560] Did you win seven? What did you, six?
+- [01:30:46.540] Seven. Seven.
+- [01:30:48.730] All right, so I think he qualifies, right?
+- [01:30:51.010] But I'd like to sit down with some of the very talented people
+- [01:30:55.040] in this room, and we'll pick them out.
+- [01:30:56.710] If you'd like to volunteer, volunteer.
+- [01:30:59.490] And I'd like to sign an executive order
+- [01:31:03.190] that I'll write myself, based on common sense.
+- [01:31:07.610] And it'll be something that people
+- [01:31:10.270] will be sort of happy about.
+- [01:31:12.430] Some will be, sort of happy. Others will be.
+- [01:31:15.790] Sort of happy, and maybe that's a good thing.
+- [01:31:21.440] There'll be a few people that won't like anything.
+- [01:31:25.390] I'd like to write an executive order
+- [01:31:27.370] based on some of the very great talent in this room.
+- [01:31:31.220] And we will be sued, and we'll go before a court.
+- [01:31:34.630] And maybe, maybe we'll have a judge
+- [01:31:37.890] that's realistic, reasonable,
+- [01:31:40.300] and wants to do a favor for the country,
+- [01:31:42.140] because that's the only way this is going to be solved.
+- [01:31:45.410] So I'm going to sit down,
+- [01:31:47.390] and I'm going to write it executive order,
+- [01:31:49.070] based on many of the statements made today,
+- [01:31:51.340] many of the statements I've been hearing over the last
+- [01:31:54.060] Yeah about what a disaster this is for colleges,
+- [01:31:57.690] for the players, for the families,
+- [01:31:59.900] ruining families, ruining everything.
+- [01:32:02.700] And we're going to do a very well-thought-out
+- [01:32:08.480] executive order.
+- [01:32:10.720] A lot of you are going to be involved in that.
+- [01:32:13.160] Anybody that would like to, just let me know.
+- [01:32:16.360] And that will be placed before the courts.
+- [01:32:19.830] And hopefully, a judge who's a real judge
+- [01:32:23.470] A compassionate judge and a judge with common sense
+- [01:32:26.470] will get it approved.
+- [01:32:28.700] And maybe it won't. And maybe won't hold up.
+- [01:32:30.750] Maybe they'll say you can't do an executive order,
+- [01:32:33.250] in which case you say,
+- [01:32:35.110] welcome to the court system of this country,
+- [01:32:38.040] which has gone totally out of control,
+- [01:32:41.600] totally out control, and maybe not.
+- [01:32:46.280] But that's the only way you're going to get this done.
+- [01:32:48.820] So I'm going to write an executive border.
+- [01:32:51.760] And the executive order
+- [01:32:53.040] is going to be based on great common sense,
+- [01:32:55.930] and it's going to let colleges survive and players survive,
+- [01:32:59.930] and let a lot of people be very, very happy.
+- [01:33:02.990] And let's see if we can get it through the court system,
+- [01:33:06.170] which we might not be able to do,
+- [01:33:08.380] in which case I guess we'll have to meet again,
+- [01:33:12.320] and we'll probably be through the same system.
+- [01:33:15.610] Look, if this doesn't work, colleges are going to destroyed.
+- [01:33:20.840] Women's sports are going to be destroyed first,
+- [01:33:23.300] before anything, before anybody, before anything.
+- [01:33:26.650] Women's sport are already being cut in every college.
+- [01:33:30.260] The first thing they're cutting,
+- [01:33:31.720] which is very unfair, is women's sports.
+- [01:33:35.510] And then they're cuttting lesser sports.
+- [01:33:37.770] Sports that are very good sports,
+- [01:33:40.250] great sports, are being cut.
+- [01:33:43.180] And you're going to left with football,
+- [01:33:45.240] and the football is going to lose so much money
+- [01:33:47.870] that the colleges are all going to go bankrupt.
+- [01:33:50.590] All because of a bad number of decisions made by courts,
+- [01:33:55.190] including, I guess, the Supreme Court.
+- [01:33:57.660] If you say it was a bad decision in the Supreme Court,
+- [01:34:01.670] I think the Supreme court ought to be ashamed of itself
+- [01:34:04.400] for a lot of reasons, okay?
+- [01:34:05.960] A lot of reasons. I got to live with these people.
+- [01:34:08.740] And I say this, and they'll only vote bad,
+- [01:34:11.350] and I couldn't care less at this point.
+- [01:34:13.480] They have hurt this country so badly
+- [01:34:16.110] because they haven't had the guts to do what's right.
+- [01:34:19.290] So, and I can tell you about other things too, not just this.
+- [01:34:23.270] So, we're going to do an executive order,
+- [01:34:25.170] and I think it's going to be an executive order
+- [01:34:27.400] that the people in this room
+- [01:34:30.090] and the students and the colleges will be proud of.
+- [01:34:34.020] Whether or not it holds up in court, I can't tell you that.
+- [01:34:37.690] But you're not going to get it through the Senate,
+- [01:34:39.950] and you're probably not going to get anything through the House
+- [01:34:42.980] because you have a bunch of lunatics
+- [01:34:44.810] that you have to deal with, Mike,
+- [01:34:46.030] and better you than me. Go ahead.
+- [01:34:49.900] Speaker Johnson: I applaud the effort for an executive order,
+- [01:34:52.530] and I think everybody around the table is grateful for that.
+- [01:34:55.370] Might I suggest, Mr. President,
+- [01:34:56.830] that while you're using the Article 2 authority,
+- [01:34:59.940] that we still work in the lane of Article 1,
+- [01:35:03.000] the playbook has to be wider than that, I think.
+- [01:35:05.010] And so what I would suggest, and humbly before everyone here,
+- [01:35:09.050] is that we take,
+- [01:35:10.400] I think almost everyone around the Table we've heard today
+- [01:35:12.660] believes that at least the score act is a base to work from.
+- [01:35:17.130] Can we still continue to try to work through
+- [01:35:18.900] that we do have some democrat support
+- [01:35:20.810] and as was said we got we've got some fine points to get to.
+- [01:35:23.240] Laurie Trahan: We'd love to work with you on it.
+- [01:35:25.270] Speaker Johnson: And what I think is,
+- [01:35:27.080] and what I was hopeful for,
+- [01:35:28.700] is that the leaders around this table,
+- [01:35:30.480] representing such a broad array of interests and groups
+- [01:35:34.320] around the country and both parties,
+- [01:35:37.080] that the influence, collective influence of the,
+- [01:35:38.950] I hate the word collective, Coach Meyer,
+- [01:35:40.610] I'm sorry, I keep saying Coach,
+- [01:35:41.880] but the influence of all the people around this table
+- [01:35:44.330] could help us get some of those critical,
+- [01:35:47.070] you know, Democrat votes in the Senate.
+- [01:35:48.500] And I don't think we should or could abandon that effort,
+- [01:35:50.970] we'd try it. I'm an optimist.
+- [01:35:52.500] The President: I think you go both ways.
+- [01:35:53.960] Yes. Let me do an executive order.
+- [01:35:56.460] You go ahead and play games with these people. Okay?
+- [01:36:00.530] Speaker Johnson: We'll give it the quarterback
+- [01:36:01.780] (inaudible).
+- [01:36:03.010] The President: And maybe the fact that we do the one
+- [01:36:04.770] helps you get the votes in the other.
+- [01:36:06.540] Okay? Does that sound okay, Randy?
+- [01:36:09.810] Randy Levine: Yeah, I think so.
+- [01:36:11.300] And I think at the end of the day, Mr. President,
+- [01:36:14.640] as you've heard here, we need an antitrust exemption.
+- [01:36:17.960] And the only people who can do it are the Congress.
+- [01:36:22.300] And I heard from all the senators
+- [01:36:24.540] and the representatives, and I agree
+- [01:36:27.110] the SCORE Act is a start. But with your leadership,
+- [01:36:29.970] I really do believe we can move the ball.
+- [01:36:32.370] I have ideas.
+- [01:36:33.570] Brilliant people here have ideas where we can add on it.
+- [01:36:37.240] And based on my conversations with Democrats
+- [01:36:41.480] I think they want to do this
+- [01:36:42.870] I think the congresswoman said that
+- [01:36:44.660] and I think that there's a way to do this
+- [01:36:47.250] and Your executive order again showing leadership
+- [01:36:51.690] stepping out is good, but I think we go on both -
+- [01:36:53.940] The President: Don't forget,
+- [01:36:55.210] the executive order can then be put before Congress,
+- [01:36:58.270] and Congress can vote on it.
+- [01:37:00.740] Change it a little bit, vote on it,
+- [01:37:02.950] but I'm looking to do it straight
+- [01:37:05.290] and let Congress go a different path.
+- [01:37:10.340] You may get a judge that understands what's happening
+- [01:37:14.300] and you may get some very good opinions
+- [01:37:15.960] coming out of a very smart judge
+- [01:37:17.610] who will be beloved all over our country
+- [01:37:20.210] as opposed to hated and disrespected.
+- [01:37:22.750] So that's it.
+- [01:37:24.070] So Randy, could I ask you to do the following?
+- [01:37:27.470] Either a sampling or get everybody in some form,
+- [01:37:32.180] come up with a proposal, play with the SCORE
+- [01:37:36.240] Act or do something different than the SCORE Act
+- [01:37:38.460] but maybe you use the score act as a base.
+- [01:37:40.760] I separately will get some of the people in this room,
+- [01:37:44.020] and we're going to do a really good executive order.
+- [01:37:47.010] And maybe Jim will put that executive order
+- [01:37:49.360] in front of the Senate and the House.
+- [01:37:52.090] And who knows?
+- [01:37:53.290] Maybe we get a vote, and maybe we don't.
+- [01:37:57.340] But I'm talking about not even going before
+- [01:38:00.330] the Senate and the house,
+- [01:38:01.710] just having an executive order where we'll be sued,
+- [01:38:05.740] and we'll go before the courts, and here we go again.
+- [01:38:08.330] But I think at the same time, you go down a separate track.
+- [01:38:11.190] Is that all right? Okay? Is that okay?
+- [01:38:14.570] Good. Other than that, we've had a great time.
+- [01:38:19.620] The press will take one or two questions. Please.
+- [01:38:25.540] The Press: It sounds like the Russians are helping Iran.
+- [01:38:31.870] The President: That's an easy problem
+- [01:38:33.430] compared to what we're doing here.
+- [01:38:36.120] But can I be honest?
+- [01:38:38.460] It's just I have a lot of respect for you.
+- [01:38:42.570] You've always been very nice to me.
+- [01:38:43.870] What a stupid question that is to be asking at this time.
+- [01:38:47.620] We're talking about something else.
+- [01:38:49.020] Can we keep this maybe a little bit?
+- [01:38:52.590] Go ahead, please.
+- [01:38:54.660] The Press: My question is for, on eligibility,
+- [01:38:58.230] as you know my son, Joe,
+- [01:39:01.150] is a high-level D1 athlete, third year, will he get --
+- [01:39:05.840] The President: How would I know that?
+- [01:39:07.580] He said, as you know, I didn't even know who the guy is.
+- [01:39:10.840] That's all right.
+- [01:39:14.790] The Press: As you know, is a disaster in the NCAA division,
+- [01:39:29.300] the second division, D2
+- [01:39:32.270] is passing a blinded five year eligibility
+- [01:39:35.950] without medical, without (inaudible)
+- [01:39:38.150] just a five year eligibility. That can be solved in D1
+- [01:39:42.270] with the commissioners in this room right now.
+- [01:39:45.150] Why don't we solve that?
+- [01:39:47.100] The President: Thank you very much.
+- [01:39:48.590] I'd like to know the same thing.
+- [01:39:50.490] You know why you're not going to solve it?
+- [01:39:52.150] Because we've had some very, very bad, incompetent decisions.
+- [01:39:57.320] Things that were routine before, that were solved long before,
+- [01:40:01.360] now you're into a brand new system.
+- [01:40:03.000] Yes, ma'am.
+- [01:40:04.210] The Press: Hi, Mr. President, thank you.
+- [01:40:05.790] Could you tell us what went into your decision
+- [01:40:08.400] to replace Secretary Noem with Senator Markwayne Mullin?
+- [01:40:13.910] The President: Is it possible to stay on this subject
+- [01:40:15.890] just for once?
+- [01:40:17.350] You know, just for one. Boy, oh, boy.
+- [01:40:19.750] Anybody have any questions on this topic?
+- [01:40:23.890] Timeline for either the executive order
+- [01:40:26.320] that you just mentioned or the legislation
+- [01:40:28.460] that the members I will have
+- [01:40:29.820] an I will have an executive order within one week.
+- [01:40:32.880] And it'll be very, it'll very all encompassed.
+- [01:40:37.650] And we're going to put it forward,
+- [01:40:39.790] and we're going to get sued,
+- [01:40:41.370] and we going to see how it does, okay?
+- [01:40:43.590] But I'll have an executive order
+- [01:40:44.980] which will solve every problem in this room,
+- [01:40:47.210] every conceivable problem within one week.
+- [01:40:51.410] And we'll put it foreword. We will get sued.
+- [01:40:54.790] That's the only thing I know for sure in life.
+- [01:40:57.390] And we will see how we do in the court system.
+- [01:40:59.820] Would it take effect, sir?
+- [01:41:01.090] But the courts have destroyed the courts.
+- [01:41:04.850] Think about it, the courts, a bad court system
+- [01:41:07.960] has destroyed college sports and colleges in this country
+- [01:41:12.010] and a lot of lives. Yeah, please.
+- [01:41:14.830] The Press: How will your executive
+- [01:41:16.100] order be different from the one that you released in July?
+- [01:41:20.250] The President: You mean than the SCORE Act?
+- [01:41:22.040] Well, it'd be a lot different
+- [01:41:23.420] because I don't necessarily agree with the SCORE Act.
+- [01:41:27.090] I don't know it as well as some people in this room,
+- [01:41:29.390] but I disagree with some of the things in the SCORE Act.
+- [01:41:32.640] The Press: I know that the executive
+- [01:41:33.960] order you released in July,
+- [01:41:35.300] how will this one that you're writing this week be different?
+- [01:41:37.880] The President: It'll be more comprehensive.
+- [01:41:40.180] That was put out as a test, as a feeler.
+- [01:41:44.450] This will be much more comprehensive,
+- [01:41:46.190] because we've all learned a lot in the last
+- [01:41:49.710] pretty long period of time, six months or so period of time.
+- [01:41:54.320] I think we could do a very good document.
+- [01:41:57.840] I think, we could a document
+- [01:41:59.100] that works from a common sense standpoint,
+- [01:42:01.040] whether or not it's going to hold up in court or not.
+- [01:42:04.410] It honestly would depend on the judge.
+- [01:42:07.970] Maybe we'll get a wise judge. There were wise judges, too.
+- [01:42:11.290] We got some very brilliant wise judges.
+- [01:42:13.670] Maybe, we'll be lucky.
+- [01:42:15.950] The Press: Why aren't there any student athletes in the room?
+- [01:42:17.840] Randy Levine: In the class. Would you like?
+- [01:42:19.400] Why aren't any student athletes in the room?
+- [01:42:27.160] The President: Do you want to answer that question, Randy?
+- [01:42:34.820] Randy Levine: We've made it clear,
+- [01:42:36.140] and I thought I said it before, that we have agents here.
+- [01:42:41.820] There are a lot of student athlete groups.
+- [01:42:44.790] There's a limited room here, and after this meeting we intend
+- [01:42:48.060] to talk to all of the interested student athlete group
+- [01:42:52.190] to get their input,
+- [01:42:53.490] because this can't be done without them.
+- [01:42:56.430] But at the end of the day,
+- [01:42:58.890] we had to kick this off and start it.
+- [01:43:01.620] This is the beginning.
+- [01:43:03.120] This isn't the end I've talked to a lot of people
+- [01:43:06.250] who represent student athletes,
+- [01:43:09.730] and there are certain interest groups
+- [01:43:11.940] that I'm sure would have liked to be here,
+- [01:43:13.440] but they'll have their opportunity.
+- [01:43:15.410] The President: And they're very well represented.
+- [01:43:16.880] You know why? Because people like Nick Saban and Urban Myers
+- [01:43:21.720] and some of the people,
+- [01:43:22.970] all the people that I know in the room,
+- [01:43:26.040] and the people probably that I don't know,
+- [01:43:27.770] they all care very much about the student athlete,
+- [01:43:30.190] more so than they care about themselves.
+- [01:43:32.520] So I think they're really here in that sense.
+- [01:43:34.830] They're represented very well.
+- [01:43:36.060] Peter, I'll give you one more chance
+- [01:43:37.390] because that was a bad question you asked before.
+- [01:43:39.120] Go ahead.
+- [01:43:40.640] The Press: We've already got a lot of soundbites
+- [01:43:43.010] about the sports, Can I ask one off topic --
+- [01:43:48.010] The President: On topic.
+- [01:43:49.220] The Press: On topic.
+- [01:43:50.860] The President: Which is unusual.
+- [01:43:56.030] The Press: What is motivating you to do this right now
+- [01:43:58.730] because there is a lot of other stuff going on in the world?
+- [01:44:03.350] The President: There's a lot we're doing very,
+- [01:44:04.980] by the way, in Iran, we're doing very well.
+- [01:44:09.720] Somebody said, how would you score it from zero to 10?
+- [01:44:13.370] I said, I'd give it a 12 to a 15.
+- [01:44:17.560] Their army is gone. They're just about.
+- [01:44:19.630] Look, their Navy is gone,
+- [01:44:21.610] their communications are gone, their leaders are gone.
+- [01:44:26.340] Two sets of their leaders have gone.
+- [01:44:27.750] They're down to their third set.
+- [01:44:30.740] The Air Force is wiped out entirely.
+- [01:44:34.130] They have 32 ships.
+- [01:44:36.490] All 32 are at the bottom of the ocean.
+- [01:44:39.980] Other than that, they're doing very well, Coach.
+- [01:44:43.330] Very well. We're doing --
+- [01:44:45.990] our military is doing phenomenally.
+- [01:44:49.040] That's the big thing for this week.
+- [01:44:50.600] We seem to have a new thing every week.
+- [01:44:52.210] But the situation with a very bad
+- [01:44:55.970] and very sick group of leaders
+- [01:44:58.940] who were killing a lot of people --
+- [01:45:00.390] a lot of our people were being killed.
+- [01:45:01.860] They were being maimed. They were being.
+- [01:45:04.270] Destroyed with their bombs all over, planted in roads.
+- [01:45:09.990] And we call them the roadside bombs,
+- [01:45:12.550] walking around without legs, without arms, face blasted.
+- [01:45:17.040] Killed many, many people. And we had a choice.
+- [01:45:20.980] We could take it and go on like that for years
+- [01:45:24.090] and do something about it.
+- [01:45:25.320] And we did something about and people
+- [01:45:28.360] are very impressed with our military
+- [01:45:29.980] and they admire our military with.
+- [01:45:32.660] What happened in Venezuela and what's happening now,
+- [01:45:35.310] what's happened with the B-2 bombers before this,
+- [01:45:38.160] where they took out the nuclear capability or potential of Iran.
+- [01:45:45.740] I think we're, right now, we're a country
+- [01:45:47.710] that's more respected than we've ever been respected before.
+- [01:45:52.180] I saw what was happening with college sports
+- [01:45:54.430] and it doesn't sound very important compared
+- [01:45:57.520] to what's happen in Iran and other places, but.
+- [01:46:01.890] It is very important to me. And if I can get it done,
+- [01:46:04.830] I'll get it done through a bad system.
+- [01:46:11.830] It's a bad, system through a bad legal system.
+- [01:46:14.480] You want to know the truth.
+- [01:46:16.190] We have a situation that is almost unsolvable,
+- [01:46:20.300] and we'll see if we can solve it.
+- [01:46:22.590] And you know, Peter, the fact is we're talking about colleges
+- [01:46:27.940] that are going to go out of business, bye.
+- [01:46:30.260] Many, many colleges are going to be out of business.
+- [01:46:32.320] This isn't just about student athletes.
+- [01:46:34.860] This is about our whole educational system
+- [01:46:38.640] is going to go out of businesses because of this.
+- [01:46:41.880] So I understand what you're saying
+- [01:46:44.290] in terms of the level of importance,
+- [01:46:45.910] but to me this is very important.
+- [01:46:47.850] Very, very important, thank you.
+- [01:46:49.850] Okay, thank all very much. Thank you.
+- [01:46:52.610] Male Speaker: Thank you, Mr. President.
+- [01:46:55.220] (applause)
+- [01:47:02.010] ♪ (orchestral "God Bless America")♪

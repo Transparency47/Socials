@@ -1,0 +1,464 @@
+<!-- source: https://www.youtube.com/watch?v=FXkke7nTqDo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: FXkke7nTqDo -->
+<!-- date_published: 2025-09-16T17:11:53+00:00 -->
+<!-- date_accessed: 2026-06-02T01:15:40.815781+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Before Departing the White House, Sep. 16, 2025
+
+- [00:11.970] The President: Just signed Stephen Miran's commission.
+- [00:15.430] So he is now on the Fed.
+- [00:16.980] I'm going to call him in a few minutes from the helicopter.
+- [00:20.030] And he's a good man. Most of you know him.
+- [00:21.730] He's very talented.
+- [00:24.150] He'll have a big influence on this --
+- [00:26.150] on too late getting his rates down, I guess.
+- [00:27.790] Who knows?
+- [00:29.030] You never know with too late, but he's done a lousy job.
+- [00:32.540] The rates should be much lower, much, much lower.
+- [00:35.560] But I've just signed his document and all of the papers.
+- [00:40.690] And Steve Miran is now on.
+- [00:43.970] The Press: (inaudible)
+- [00:46.170] essentially is now under way, (inaudible) your reaction.
+- [00:49.020] The President: Well we're going to see what happens,
+- [00:50.580] because I hear Hamas is trying to use
+- [00:53.510] the old human shield deal.
+- [00:55.270] And if they do that, they're going be in big trouble.
+- [00:58.160] They're going in big trouble. They put it out two days ago
+- [01:01.420] that they're going to use the hostages as human shields.
+- [01:04.890] And that's something that hasn't been done
+- [01:06.290] for a long time, you know?
+- [01:08.170] The Press: (inaudible)
+- [01:11.040] The President: Let me tell you,
+- [01:12.290] if they do that they're in big trouble.
+- [01:18.090] The Press: Do you believe the Federal Reserve
+- [01:19.290] is an independent body?
+- [01:20.490] What do you think about the independence of the Fed?
+- [01:21.960] The President: Oh, it should be. It should be,
+- [01:23.180] but I think they should listen to smart people like me.
+- [01:25.910] I think I have a better instinct than him.
+- [01:27.560] If you look, all the economists got it wrong.
+- [01:30.100] I got it right, along with one other people out of a hundred.
+- [01:33.550] So they should to listen to people that are smart.
+- [01:35.810] Nothing wrong with that.
+- [01:37.240] But they have to make their own choice.
+- [01:38.760] But they should listen.
+- [01:42.125] The Press: (inaudible).
+- [01:43.930] The President: No, I didn't.
+- [01:45.320] The Press: (inaudible)
+- [01:46.610] the idea of Israel beginning its ground offensive in Gaza City.
+- [01:49.310] Do you support that?
+- [01:51.790] The President: Well, I have to see.
+- [01:53.170] I mean, I don't know too much about it.
+- [01:54.720] I can tell you that if they put the hostages in front of them,
+- [01:58.790] Hamas, as protection, and they call them bodyguards,
+- [02:03.550] Hamas is going to have hell to pay.
+- [02:08.120] The Press: What's your hope for the U.K. today?
+- [02:12.140] What do you hope to achieve?
+- [02:13.870] The President: Well, my relationship
+- [02:15.130] is very good with the UK.
+- [02:16.460] And Charles, as you know, who's now king, is my friend.
+- [02:19.800] And it's the first time this has ever happened,
+- [02:21.930] where somebody was honored twice,
+- [02:23.470] so it's a great honor. And this one's at Windsor.
+- [02:26.170] They've never used Windsor Castle for this before.
+- [02:28.590] They used Buckingham Palace.
+- [02:30.390] And I don't want to say one's better than the other,
+- [02:33.210] but they say Windsor castle is the ultimate, right?
+- [02:35.630] So it's going to be nice.
+- [02:36.960] But basically, they're also on trade.
+- [02:39.800] They want to see if they can refine
+- [02:41.140] the trade deal a little bit.
+- [02:42.380] We made a deal, and it's a great deal.
+- [02:45.030] And I'm into helping them.
+- [02:46.810] Our country is doing very well. We've never done this well.
+- [02:49.850] We're making -- we're having trillions of dollars
+- [02:52.260] coming because of the tariffs.
+- [02:54.170] They'd like to see if they could get a little bit better deal,
+- [02:56.370] so we'll talk to them.
+- [02:57.590] But primarily, it's to be with Prince Charles and Camilla.
+- [03:01.570] They're friends of mine for a long time,
+- [03:03.100] long before he was king.
+- [03:05.140] And it's an honor to have him as king.
+- [03:06.530] And, you know, he's --
+- [03:08.510] I think he represents the country so well.
+- [03:11.260] I've watched. He's such an elegant gentleman,
+- [03:13.820] and he represents the country so well.
+- [03:16.800] The Press: Actor Robert Redford passed away today,
+- [03:19.070] did you hear about that?
+- [03:20.390] The President: Oh, he did. Wow.
+- [03:21.590] The Press: (inaudible) in his sleep at his home.
+- [03:23.800] The President: Well, that's a good way to go, I guess.
+- [03:25.380] But I'll tell you, Robert Redford was great.
+- [03:27.190] He had a series of years that he was -- there was nobody better.
+- [03:33.300] This just happened, I guess? Wow.
+- [03:35.610] The Press: He died in h(inaudible) is sleep.
+- [03:38.350] What movie would you say you like the best in?
+- [03:40.040] The President: Well, you have a lot of them.
+- [03:41.260] Honestly, he made --
+- [03:42.550] I'd say he made seven or eight great movies.
+- [03:44.390] They were really great.
+- [03:45.590] There was a period of time when he was the hottest.
+- [03:48.420] I thought he was great.
+- [03:49.630] The Press: On TikTok.
+- [03:52.580] Are you going to delay the TikTok ban?
+- [03:55.130] The President: Well, we have a deal on TikTok.
+- [03:56.640] I've reached a deal with China.
+- [03:58.040] I'm going to speak to President Xi on Friday
+- [04:00.600] to confirm everything up. We made a very good trade deal,
+- [04:04.240] and I hope good for both countries.
+- [04:06.420] But a very different deal that they've made in the past.
+- [04:10.370] The Press: What companies are going to --
+- [04:11.600] The President: We'll be announcing that.
+- [04:12.810] We have a group of very big companies that want to buy it.
+- [04:15.520] And, you know, the kids wanted it so badly.
+- [04:17.550] I had parents calling me up.
+- [04:18.790] They don't want it for themselves.
+- [04:20.130] They want it for their kids.
+- [04:21.370] They say, if I don't get it done,
+- [04:23.030] they're in big trouble with their kids,
+- [04:25.250] and I think it's great.
+- [04:26.900] I hate to see value like that thrown out the window.
+- [04:29.470] The Press: So, on auto (inaudible) --.
+- [04:30.710] The President: You know, you're talking about tens
+- [04:33.760] of billions of dollars.
+- [04:35.090] The Press: Some auto executives are concerned
+- [04:37.070] that compromising the 15 percent for auto tariffs
+- [04:40.060] coming in hurts American automakers.
+- [04:42.070] What do you say?
+- [04:43.370] The President: Well, I haven't compromised anything.
+- [04:45.140] Where did I compromise?
+- [04:46.470] The Press: Going down to 15 percent.
+- [04:48.150] The President: Going down to 15 percent?
+- [04:50.370] (inaudible) well.
+- [04:52.520] And where did the 25 come from? It came from there.
+- [04:56.380] Just so you know, they paid nothing for years.
+- [05:02.180] Now they're paying 15 percent.
+- [05:04.120] And some things can pay more, like chips could pay more.
+- [05:07.310] Pharmaceuticals could pay for more.
+- [05:08.820] You know, there's a bigger margin.
+- [05:10.800] For the car, you have to make 15 percent
+- [05:12.730] before you make a profit.
+- [05:14.590] Pretty tough. But we had a good deal.
+- [05:17.780] Don't forget, the European Union is paying our country,
+- [05:20.170] because of tariffs, $950 billion.
+- [05:24.350] Think of that. We're talking about a year.
+- [05:26.990] Nine hundred and fifty billion dollars.
+- [05:29.350] Japan is paying us six hundred and fifty billion dollars.
+- [05:32.470] These are countries -- these are countries
+- [05:34.120] that paid us nothing until I came along.
+- [05:37.210] And China's paying us a tremendous tariff.
+- [05:40.110] You know what the tariff is, right?
+- [05:41.730] You know the tarif they're paying?
+- [05:43.150] The Press: Yes. The President: What?
+- [05:44.460] The Press: So it's 30 percent for the fentanyl
+- [05:46.420] as well as whatever for the 301.
+- [05:48.660] The President: Twenty percent for the fentanyl.
+- [05:50.070] But the overall is about 55 percent.
+- [05:54.720] That's as opposed to nothing,
+- [05:57.060] would you say that's a difference?
+- [06:00.590] We have a big decision coming up
+- [06:02.810] and if the Supreme Court rules the way,
+- [06:05.630] hopefully they will because, I mean, every legal expert
+- [06:08.950] said we win that case, but you still have to watch.
+- [06:12.300] And the Supreme court's been terrific, you know,
+- [06:14.400] I think they're very fair.
+- [06:15.790] All I want to say is that we win.
+- [06:18.050] But if we win the Supreme Court case,
+- [06:20.410] which is the finalization of tariffs --
+- [06:23.020] we will be, by far, the richest country anywhere in the world.
+- [06:25.920] And we'll be able to help our people more,
+- [06:28.110] and we'll able to other countries when we want to.
+- [06:30.950] But I will say, if we win that case, our country --
+- [06:35.310] you see what we've taken in just on a temporary basis --
+- [06:38.510] we've take it in trillions of dollars --
+- [06:40.390] trillions -- with a T.
+- [06:42.300] And we will be by far the richest
+- [06:44.990] in the country in the world.
+- [06:46.350] There'll be nothing (inaudible). And, you know, one other thing,
+- [06:50.310] We'll have tremendous power to negotiate.
+- [06:53.150] The use of tariffs. I settled seven wars.
+- [06:55.710] Four of them was because I was able to use tariffs.
+- [07:00.360] The Press: Pope Leo the other day did an interview criticized
+- [07:03.440] the fact that some CEO's make hundreds of times
+- [07:06.500] more in salary than average workers.
+- [07:08.920] He's worried about polarization. Do you share that concern?
+- [07:12.750] The President: Well, I do say there's a big gap. I do.
+- [07:16.100] Don't forget, I'm a popularist. There's a big gap.
+- [07:20.060] The Press: (inaudible) with Vladimir Putin in Alaska.
+- [07:23.790] (inaudible)
+- [07:25.050] do you think that meeting accomplished
+- [07:26.310] what you hoped it would?
+- [07:27.520] The President: Yeah, it accomplished a lot,
+- [07:28.760] but it takes two to tango also. You know, those are two people,
+- [07:32.800] Zelensky and Putin, that hate each other.
+- [07:35.690] And it looks like I have to sit in the room with them
+- [07:38.020] because they can't sit in a room together.
+- [07:40.000] There's great hatred there.
+- [07:41.450] But, no, that meeting accomplished a lot.
+- [07:43.740] The Press: (inaudible) confidence in Kash Patel.
+- [07:46.850] And what are you hoping comes from his testimony
+- [07:48.870] on the Hill today?
+- [07:50.090] The President: Well, first of all,
+- [07:51.310] I think that Pam Bondi has done an unbelievable job,
+- [07:53.970] and everybody agrees with that.
+- [07:55.770] And Kash, you know, take a look at what he did with respect
+- [08:00.550] to this horrible person that he just got to.
+- [08:03.530] He did it in two days.
+- [08:05.310] It took other similar cases, four days,
+- [08:07.910] five days, four years, if you look at certain shooters.
+- [08:12.170] Now, I have confidence in everybody in the administration.
+- [08:16.330] My administration -- and a lot of people are saying it,
+- [08:19.170] not just me --
+- [08:20.500] it's, so far, the best administration ever formed.
+- [08:24.070] You look at our financial people.
+- [08:25.960] Our country is making a fortune. We have to keep tariffs
+- [08:29.730] because our country has become successful because of tariffs.
+- [08:34.270] We have the case in the Supreme Court.
+- [08:36.780] That's a very vital case for the success of our country.
+- [08:39.770] It's very vital to negotiate with other countries.
+- [08:42.510] And remember, other countries charge us tariff.
+- [08:45.510] That's very, very big case.
+- [08:47.460] And if we win that case, our country will be,
+- [08:50.480] by far, the richest country anywhere in the world.
+- [08:52.930] And then we can help our people. We'll get rid of debt.
+- [08:56.220] We'll rid of everything. We can help our people,
+- [08:58.710] and we can even help other countries where they need it.
+- [09:01.280] The Press: Mr. President, narcotics in Venezuela.
+- [09:03.500] Narcotics in Venezuela. President Maduro in Venezuela
+- [09:06.790] says that he's getting ready to invade this country.
+- [09:09.490] What is your message to him?
+- [09:11.420] The President: Well, I would say this right away.
+- [09:13.210] Stop sending Tren de Aragüe into the United States.
+- [09:17.180] Stop sending drugs into the United States!
+- [09:20.560] We knocked off, actually, three boats.
+- [09:22.510] Not two, but you saw two.
+- [09:24.570] And the problem is, there are very few boats out in the water.
+- [09:27.670] There are not a lot of boats out in the water.
+- [09:29.330] I can't imagine why. Not even fishing boats.
+- [09:31.440] There's nobody. Nobody wants to go take a fish.
+- [09:34.810] So, it's one of those things.
+- [09:36.030] But I would to say to him very strongly,
+- [09:39.440] stop sending people from your prisons into our country.
+- [09:43.880] They're sending their prisoners. They've done that already.
+- [09:47.090] So, the numbers just came out.
+- [09:49.280] Another month with zero people getting into our country.
+- [09:52.980] And these are (inaudible)
+- [09:54.250] with people like you that would like me to do badly.
+- [09:58.220] Nobody has ever done on the border like I've done.
+- [10:01.290] The Press: Mr. President, what (inaudible)?
+- [10:05.280] The President: Well, he's going to have to get going
+- [10:06.780] and make a deal. He's going have to make a deals.
+- [10:09.230] Zelensky is going to make the deal.
+- [10:11.210] And Europe has to stop buying oil from Russia.
+- [10:16.350] Okay? You know, they talk,
+- [10:18.860] but they have to stop buying oil for Russia.
+- [10:21.460] The Press: (inaudible).
+- [10:27.670] The President: I hope so.
+- [10:28.880] The Press: (inaudible).
+- [10:30.170] Well (inaudible)
+- [10:34.400] the deals I made for the most part,
+- [10:36.130] other than what my kids are doing.
+- [10:37.630] You know, they're running my business.
+- [10:39.270] But most of the deals that I've made were made before.
+- [10:41.880] And that's what I've done for a life.
+- [10:43.190] I've built buildings.
+- [10:44.680] Like I'm building a building here.
+- [10:46.040] You know where I'm build -- you know what?
+- [10:47.610] You see that area?
+- [10:49.380] That is going to be the greatest ballroom anywhere in the world.
+- [10:52.570] And for a hundred and fifty --
+- [10:53.870] so it gives me pleasure to do it for the country.
+- [10:57.100] And I'm paying for it. I'm pay ingfor it.
+- [10:59.940] The country is not -- and that's an expensive ballroom.
+- [11:03.310] I think it will cost $250 million,
+- [11:05.880] and it will be, I think, the finest
+- [11:08.390] (inaudible).
+- [11:09.590] So, for 150 years, John, do you know this?
+- [11:12.070] They've wanted the ballroom.
+- [11:13.590] And now they're going to finally have it.
+- [11:15.390] And it's going to knock your socks off.
+- [11:17.650] The Press: (inaudible)
+- [11:20.660] office to be engaged in so much business activity.
+- [11:23.770] The President: Well, I'm really not.
+- [11:25.040] My kids are running the business.
+- [11:27.210] You know what the activity -- where are you from?
+- [11:29.480] The Press: I'm from the Australian
+- [11:30.950] (inaudible).
+- [11:33.600] The President: You're hurting Australia right now.
+- [11:35.490] In my opinion, you are hurting Australia very much right now.
+- [11:39.170] And they want to get along with me.
+- [11:40.570] You know, your leader is coming over to see me very soon.
+- [11:44.600] I'm going to tell them about you.
+- [11:46.040] You set a very bad tone. Go ahead, John.
+- [11:48.370] Maybe you could send a nicer guy.
+- [11:51.100] Excuse me. Quiet.
+- [11:53.800] The Press: Mr. President, what are you hearing
+- [11:55.220] about the operation in Gaza,
+- [11:56.550] the Israeli operation? Are you concerned?
+- [11:58.300] The President: Well, I'm hearing that they want to go in,
+- [11:59.910] and I'm also hearing that Hamas wants to take our 20 hostages.
+- [12:03.640] Plus dead bodies, you know, they have about 32 of them,
+- [12:06.780] and they want to put them in the way of any attack.
+- [12:10.000] And nobody is happy about that situation.
+- [12:13.490] It came out yesterday. I'm sure you saw that.
+- [12:15.270] They want to -- supposedly,
+- [12:17.000] they've taken the hostages out of deep caves and tunnels,
+- [12:20.390] and they're bringing them, putting them on the front line.
+- [12:23.800] Nobody has heard of that one for a few centuries.
+- [12:27.070] The Press: You saw that the UN said
+- [12:28.320] that Israel is guilty of genocide,
+- [12:30.220] that they've committed acts of genocide in Gaza.
+- [12:32.320] The President: They voted on that?
+- [12:33.570] The Press: They have a new report out saying
+- [12:34.960] multiple acts of genocide.
+- [12:36.190] The President: When it comes to a vote, we'll see what happens.
+- [12:38.310] That'll come to a vote, but we'll see what happens.
+- [12:40.700] The Press: And what do you make Pam Bondi
+- [12:41.950] saying she's going to go after hate speech?
+- [12:44.520] Is that, I mean, a lot of people,
+- [12:45.720] a lot of your allies say hate speech is free speech.
+- [12:48.260] The President: She'll probably go after people like you,
+- [12:50.200] because you treat me so unfairly. It's hate.
+- [12:52.610] You have a lot of hate in your heart.
+- [12:54.490] Maybe they'll come after ABC.
+- [12:56.510] Well, ABC paid me $16 million recently
+- [12:59.270] for a form of hate speech, right?
+- [13:01.770] Your company paid me 16 million dollars
+- [13:04.650] for a form of a hate speech.
+- [13:06.000] So maybe they'll have to go after you.
+- [13:08.100] Look, we want everything to be fair.
+- [13:10.160] It hasn't been fair.
+- [13:11.550] And the radical left has done tremendous damage
+- [13:13.910] to the country. But we're fixing it.
+- [13:16.130] We have right now the hottest country anywhere in the world.
+- [13:19.540] And remember, one year ago, our country was dead.
+- [13:23.900] And now Washington, D.C. is sick, and I fix it.
+- [13:28.960] The mayor was fine.
+- [13:31.050] The mayor -- the mayor was just fine, okay?
+- [13:34.540] The mayor has a sick city for many years.
+- [13:36.840] He's been mayor for many year.
+- [13:38.740] The one that fixed it was me and my people, and it is so safe.
+- [13:43.390] You should take your beautiful wife tonight
+- [13:45.120] and have dinner down there.
+- [13:46.410] You won't be shot. You won't be accosted.
+- [13:48.410] You won't even be looked at incorrectly by anybody.
+- [13:52.010] Washington, D.C. is safe. Now we're going to Memphis,
+- [13:54.690] where it's pretty rough, to put it mildly.
+- [13:57.450] And then we'll have to go --
+- [13:58.770] a friend of mine, who is a big railroader,
+- [14:01.390] he stops in all the cities. He knows every city.
+- [14:03.770] He said, Sir, you have to save Chicago.
+- [14:07.130] So, I'm going to go to Chicago early against Pritzker.
+- [14:10.720] Pritzker is nothing.
+- [14:11.930] If Pritzker is smart, he'd say, please come in.
+- [14:15.040] So, last week, over the last week and a half,
+- [14:17.790] 11 people in Chicago were killed, murdered,
+- [14:21.670] and 38 were shot. And then Pritz --
+- [14:24.890] and, by the way, this is going on constantly.
+- [14:27.380] If they lose less than six or seven people a week with murder,
+- [14:31.500] they're doing a great job, in their opinion.
+- [14:33.850] Chicago is a death trap.
+- [14:36.330] And I'm going to make it just like I did with D.C.,
+- [14:38.720] just like how I'll do with Memphis.
+- [14:41.040] Now, remember this.
+- [14:42.820] So, a man comes into my office, one of the biggest businessmen.
+- [14:46.920] I'll tell you, he runs Union Pacific.
+- [14:49.060] Is that big? Biggest railroad in the world, I guess.
+- [14:52.440] And he started off as a railroader.
+- [14:55.420] He was running a railroad, a little caboose.
+- [14:57.940] He was in a caboose, and now he runs the whole damn thing.
+- [15:00.780] Forty-five years ago, he started up in a caboose.
+- [15:04.030] I don't know what that's all about.
+- [15:05.840] And he became the top, so that's a good place to start.
+- [15:08.590] But he came in. He knows the country intimately.
+- [15:11.860] He's looking to do a merger by another railroad,
+- [15:14.610] the one that we're at the little problem
+- [15:17.500] in East Palestine, right?
+- [15:19.500] And they want to buy that railroad, as you know.
+- [15:21.760] It's pretty public.
+- [15:23.080] But I sat with him and I talked. I said, so you know every city.
+- [15:25.830] Yes, sir, I go into every city, and I have for 45 years.
+- [15:29.610] I said where would you go next?
+- [15:31.960] He said St. Louis is in big trouble.
+- [15:34.440] He said but Chicago is a great city.
+- [15:37.590] You can save Chicago, sir. Don't let Chicago die.
+- [15:42.980] This is a guy telling me with great knowledge,
+- [15:44.960] he said, don't let Chicago die, sir, it's dying.
+- [15:49.320] Don't, let it die. I'm going to Chicago next. T.
+- [15:56.410] The Press: (inaudible)
+- [16:01.160] The President: Well, I just want something to happen,
+- [16:02.930] whether it's federal, state, or most likely,
+- [16:05.670] it's going to be state.
+- [16:07.130] The question is whether or not we overlap with a federal judge.
+- [16:10.210] So they're looking at that. But the state is very confident.
+- [16:13.170] The governor is doing a very good job.
+- [16:15.080] As you know, they have the death penalty.
+- [16:17.310] It's a tough death penalty, too, as you know.
+- [16:19.410] But they have to death penalty still.
+- [16:22.430] As to whether or not we judge, we will be working with them.
+- [16:25.710] We may or may not be able to judge.
+- [16:29.270] The Press: What do you make of his overall message
+- [16:31.090] of non-violence?
+- [16:32.310] The President: Well, I agree with it 100 percent.
+- [16:34.480] But most of the violence is on the left.
+- [16:37.420] The Press: (inaudible) social media is a cancer.
+- [16:39.570] The President: What?
+- [16:40.790] The Press: Do you agree with that?
+- [16:42.030] The Utah governor said that social media is a cancer
+- [16:44.780] and more people should log off.
+- [16:47.080] The President: Well, it's not a cancer in all respects.
+- [16:49.480] In some respects it's great. But there are segments,
+- [16:53.070] there are deep, dark holes that are cancerous, absolutely.
+- [16:56.660] Beyond cancer, they're death.
+- [16:58.500] The Press: (inaudible)
+- [17:09.560] The President: Well, that was a great decision.
+- [17:11.220] It was a rigged case to start off with.
+- [17:14.810] It's great. He supports this (inaudible) disaster.
+- [17:19.670] Disaster with the boyfriend. The boyfriend
+- [17:22.010] that she paid a million dollars for his expertise,
+- [17:25.060] but he never did it before. Now, she should be prosecuted.
+- [17:28.560] She was a -- what she did to people --
+- [17:30.310] forget about me --
+- [17:31.560] what Fannie Willis did to innocent people,
+- [17:34.270] patriots that love our country.
+- [17:36.280] What she did them by indicting them and destroying them.
+- [17:41.370] She should be put in jail. She's a criminal.
+- [17:43.760] Fannie -- Fannie Willis is a criminal.
+- [17:47.780] The Press: Will you apply more pressure to EU
+- [17:50.560] and NATO countries not to purchase Russian oil?
+- [17:55.830] The President: I do, but here's the problem.
+- [17:58.380] You know the problem, they're purchasing Russian oil.
+- [18:01.810] I don't want them purchasing Russian oil,
+- [18:04.160] and they've got to stop immediately.
+- [18:05.810] Not fair to us. They're purchasing Russia oil,
+- [18:08.840] and we have to, you know, do things.
+- [18:10.770] Now, the nice part.
+- [18:12.690] We don't -- it doesn't cost us anything anymore.
+- [18:14.870] You know that. They're paying --
+- [18:16.470] they are buying everything from us.
+- [18:18.210] Unlike Biden, who gave away $350 billion.
+- [18:22.170] We actually make money, but I don't want to make money.
+- [18:24.230] You know what I want? I want that war to stop.
+- [18:26.540] Because last week, 7,018 people got killed.
+- [18:30.460] The Press: (inaudible)
+- [18:37.300] The President: Where are you from?
+- [18:38.620] The Press: (inaudible)
+- [18:39.910] The President: What will come?
+- [18:41.140] The Press: (inaudible) Ukraine. Two months ago.
+- [18:48.030] The President: Look, let me just tell you, I love Ukraine.
+- [18:50.780] I love the people of Ukraine. That's why I asked.
+- [18:53.030] I thought that was a little Ukrainian accent,
+- [18:54.930] but the country is in serious trouble.
+- [18:56.470] It should have never happened.
+- [18:57.780] It's a war that shouldn't have ever happened.
+- [19:00.370] The country's in very serious trouble,
+- [19:04.730] but I'm going to get it stopped. I've done seven countries.
+- [19:08.430] I've stopped seven wars in the last eight months.
+- [19:11.700] I mean, I thought that would have been the easiest,
+- [19:13.860] because I know Putin, but it's not.
+- [19:16.450] Because there's tremendous hatred
+- [19:17.840] between Zelensky and Putin.
+- [19:19.990] Tremendous hatred between Zelensky and Putin,
+- [19:22.710] but we're going to get it stopped.

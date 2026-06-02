@@ -1,0 +1,658 @@
+<!-- source: https://www.youtube.com/watch?v=O9rCTRL6vmQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: O9rCTRL6vmQ -->
+<!-- date_published: 2025-05-23T18:31:03+00:00 -->
+<!-- date_accessed: 2026-06-02T02:49:21.722439+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders in the Oval Office,  May 23, 2025
+
+- [00:09.670] The President: Well, thank you very much.
+- [00:10.920] We have a very big announcement today.
+- [00:12.710] It has to do with nuclear, energy, and other things.
+- [00:16.360] And this is all nuclear. It's a hot industry.
+- [00:20.700] It's a brilliant industry. You have to do it right.
+- [00:23.460] And it's become very safe and environmental.
+- [00:26.140] Yes, 100 percent.
+- [00:28.010] So I'm going to ask Doug Burgum
+- [00:30.530] to talk about it a little bit to start.
+- [00:33.950] And maybe Will, you'll follow him up.
+- [00:36.660] And we're going to have Pete Hegseth
+- [00:38.940] speak from a military standpoint,
+- [00:40.570] but this is very all-inclusive.
+- [00:42.640] We're signing tremendous executive orders today
+- [00:46.300] that really will make us the real power in this industry,
+- [00:50.580] which is a big industry. Doug, why don't you go ahead.
+- [00:54.360] Secretary Burgum: Well, thank you, President Trump.
+- [00:55.680] This is a huge day for the nuclear industry.
+- [00:58.330] Mark this day on your calendar.
+- [01:00.260] This is going to turn the clock back
+- [01:01.810] on over 50 years of overregulation of an industry.
+- [01:05.290] America has always –
+- [01:06.760] American greatness has always come from innovation,
+- [01:08.950] and we were very innovative.
+- [01:10.170] We led post-World War II in all things nuclear,
+- [01:13.590] but then we've been stagnated,
+- [01:14.920] we've choked it with over-regulation.
+- [01:17.670] Today, Will is going to walk us
+- [01:19.040] through a series of four executive orders.
+- [01:21.540] Each of these help attack separate issues
+- [01:25.150] that have held back this industry.
+- [01:26.950] And with us today, we got a number of CEOs from the industry
+- [01:29.720] representing some of our largest nuclear providers,
+- [01:32.300] but also a big change.
+- [01:34.010] This is a time when capital and competition
+- [01:36.640] has finally come to this industry.
+- [01:38.080] We've got venture capital,
+- [01:39.590] we've got startups coming into all aspects
+- [01:41.680] of small modular nuclear, and we've also got an EO
+- [01:44.610] that's talking about the importance of us
+- [01:46.620] having a secure supply chain of being able
+- [01:48.720] to get that fuel load here in the United States
+- [01:51.410] as opposed from foreign sources.
+- [01:53.380] This has impacts on national security, on our defense.
+- [01:57.060] And again, President Trump here today
+- [01:59.460] has committed to energy dominance.
+- [02:02.750] And part of that energy dominance
+- [02:04.050] is that we've got enough electricity
+- [02:05.880] to win the AI arms race with China.
+- [02:08.660] What we do in the next five years related to electricity
+- [02:11.420] is going to determine the next 50,
+- [02:13.010] because this is the first time in history
+- [02:14.490] where electricity can be translated into intelligence.
+- [02:18.370] And we need that intelligence for every aspect of our economy,
+- [02:21.850] but also for defense.
+- [02:23.780] Pete Hegseth in the Department of Defense
+- [02:25.670] has been a key part of this, and this going to help us
+- [02:28.900] make sure that we're providing the defense
+- [02:31.430] we need where we need that AI, need the electricity,
+- [02:33.710] but also to secure our bases here at home
+- [02:35.710] and around the world. Secretary?
+- [02:38.410] Secretary Hegseth: Sure, I'll just add to that
+- [02:39.770] before going to Will.
+- [02:41.170] Energy security is national security.
+- [02:43.980] If we don't have reliable energy for our basing,
+- [02:49.730] for our troops, whether forward deployed
+- [02:51.360] or domestically, we're vulnerable.
+- [02:53.140] So by having small modular nuclear capabilities,
+- [02:55.900] which are rapidly being fielded,
+- [02:57.840] that we can use on our bases here and around the world,
+- [03:00.500] we are creating an environment
+- [03:01.920] where if things happen elsewhere,
+- [03:04.380] the military can be relied upon. Also, we need --
+- [03:07.240] we're including artificial intelligence
+- [03:09.800] in everything we do.
+- [03:11.050] If we don't, we are not fast enough.
+- [03:12.890] We're not keeping up with adversaries.
+- [03:14.580] You need the energy to fuel it.
+- [03:16.150] Nuclear is a huge part of that, modular or otherwise.
+- [03:19.740] So we're going to have the lights on and AI operating
+- [03:22.600] when others do not, faster than everybody else,
+- [03:24.940] because of nuclear capability.
+- [03:26.810] So this is a big game changer for us as well.
+- [03:29.420] The President: And we're also talking about the big plants,
+- [03:31.610] the very, very big, the biggest.
+- [03:33.660] We're going to be doing them also,
+- [03:35.490] but we're going start off a little bit.
+- [03:38.170] I think the focus today is the smaller module,
+- [03:41.360] but included in this group,
+- [03:43.540] we're also doing big plants where needed.
+- [03:46.690] They won't be needed too much,
+- [03:47.890] but they'll literally be able to do it in an entire state.
+- [03:51.100] And you've read a lot about cost overruns
+- [03:53.070] in a couple of states that were pretty significant,
+- [03:55.380] but we not going to have cost over runs.
+- [03:57.580] The technology has come a long way,
+- [03:59.160] both in safety and cost and everything else.
+- [04:01.970] Would a couple of you guys like to talk about your companies
+- [04:05.260] and you want to say anything?
+- [04:07.710] Secretary Burgum: Joe, why don't you kick it off?
+- [04:09.400] Joe Dominguez: My name is Joe Dominguez.
+- [04:10.600] I run Constellation Energy.
+- [04:12.390] We have about 25% of the nation's fleet.
+- [04:15.470] We're the largest publicly
+- [04:16.740] traded nuclear company in the world.
+- [04:19.060] We're in the middle of a merger with Calpine.
+- [04:21.710] And once completed, we will be the largest electric
+- [04:24.280] producing company in the word.
+- [04:26.970] About enough power to produce a to cover
+- [04:29.960] all of Mexico, actually.
+- [04:31.370] The President: I didn't know that while we talked.
+- [04:32.770] You were so modest. I can't believe it.
+- [04:35.360] Joe Dominguez: That's normally not said about me,
+- [04:36.830] Mr. President.
+- [04:38.120] The President: I'm very impressed.
+- [04:41.510] So you think it's got a great future?
+- [04:43.350] Joe Dominguez: Yeah, well absolutely we do.
+- [04:45.480] And the big change here
+- [04:46.780] is not only the technology has come around,
+- [04:49.280] but we have some of the largest companies in the world,
+- [04:51.850] the hyperscalers, who need this energy for AI,
+- [04:55.050] who are now working with us to fund the development
+- [04:58.100] and construction of the next generation nuclear.
+- [05:01.620] Nuclear is a 24-7 resource. These data centers run 24- 7.
+- [05:07.770] Some of them will cost two, three hundred billion dollars
+- [05:11.190] and they want to run them all the time.
+- [05:13.250] So we can't use intermittent resources.
+- [05:15.170] We need something that's always on 24-7,
+- [05:18.530] and nothing does that better than nuclear.
+- [05:21.130] The problem in the industry
+- [05:22.440] has historically been regulatory delay.
+- [05:25.240] Mr. President, you know this
+- [05:26.570] because you're the best at building big things.
+- [05:30.020] Delay in regulations
+- [05:31.770] and permitting will absolutely kill you,
+- [05:34.430] because if you can't get the plant on,
+- [05:36.110] you can get revenue,
+- [05:37.400] and the interest costs are horrible.
+- [05:39.890] We're wasting too much time on permitting.
+- [05:43.090] And we're answering silly questions,
+- [05:45.180] not the important ones.
+- [05:46.620] For example, let me give you an example.
+- [05:48.540] In three places in this country,
+- [05:50.310] we're trying to license new reactors
+- [05:53.120] at sites that already have reactors.
+- [05:56.120] Yet I have to spend $35 billion at each site
+- [06:00.550] just for the NRC to do an analysis that says,
+- [06:03.820] this is a good place for nuclear.
+- [06:05.240] Well, guess what?
+- [06:06.550] We've been running nuclear in that community for four decades.
+- [06:09.560] Why are we even asking that question?
+- [06:11.860] I'd rather spend that $35 million,
+- [06:14.780] three times $105 million, perfecting the design,
+- [06:18.270] start building the foundation and getting going.
+- [06:21.310] We need to do this for America.
+- [06:23.370] The President: Are we doing something
+- [06:24.620] about the regulatory in here.
+- [06:26.670] Joe Dominguez: Oh, yes, sir. You are.
+- [06:29.680] Yes, sir, that issue I just described
+- [06:32.630] will be addressed in this EO
+- [06:34.570] and many other issues that we don't have time
+- [06:37.920] with the President to cover today.
+- [06:39.340] The President: But you say it's very --
+- [06:40.760] we've contemplated just about everything.
+- [06:43.290] Joe Dominguez: Well, this, Mr. President,
+- [06:45.390] this Energy Dominance Council that you have created
+- [06:49.300] is something I haven't seen in 30 years.
+- [06:51.650] It brings together all the pieces of government
+- [06:54.110] in one place to expedite the process.
+- [06:57.580] Under Secretary Burgum's leadership,
+- [06:59.390] this has been an amazing, amazing thing.
+- [07:02.220] It used to be the case that I'd have to run to
+- [07:04.750] about five different places in Washington and get one answer.
+- [07:09.050] And now it's all together in one place.
+- [07:11.570] All I know about Secretary Burgum and Secretary Wright
+- [07:14.290] is if we haven't gotten it right,
+- [07:15.940] we'll get it right shortly,
+- [07:17.260] and there'll be another order for you to sign.
+- [07:18.950] Thank you so much for your time. The President: Is that --
+- [07:20.390] something you were going to say, something?
+- [07:21.910] Female Speaker: Well, I was just going to say,
+- [07:23.150] commercial nuclear, a bit of an unsung hero.
+- [07:25.240] And I just want to thank you, Mr. President,
+- [07:27.430] Secretary Burgum, Secretary Wright,
+- [07:29.350] for bringing this attention to commercial nuclear.
+- [07:32.550] We have the largest and most safe fleet
+- [07:35.630] right here in the United States.
+- [07:37.240] And upon that, we have fantastic innovation
+- [07:40.540] that's being brought forward.
+- [07:42.310] And it's going to come in all shapes and sizes.
+- [07:45.370] And it's going to actually be coming through
+- [07:47.060] some of these companies that you see represented here.
+- [07:49.810] We're going to have great jobs,
+- [07:51.310] we're going to have wonderful energy,
+- [07:52.750] and we're going to be ready.
+- [07:54.020] So thank you, Mr. President, for leaning in.
+- [07:56.180] The President: Appreciate it. Great job you've done, too.
+- [07:58.210] How about talking about your company
+- [08:00.170] and the job you're going to do?
+- [08:01.540] Jacob DeWitt: Yes, thank you Mr. President.
+- [08:02.810] Well, first of all, a little MIT nuclear connection
+- [08:04.710] that goes back and is familiar for you.
+- [08:06.210] So, yeah, we're working on small reactors.
+- [08:08.490] I'm Jacob DeWitt, CEO, co-founder at Oklobe.
+- [08:11.270] Working on small next generation reactors
+- [08:12.940] that take technology America invented,
+- [08:14.580] developed, and pioneered, and bringing it to the market
+- [08:16.600] after it sat on the shelves of history for about 40 years.
+- [08:19.700] And it's because of the actions that you're doing today
+- [08:21.420] that we're going to help unleash that.
+- [08:23.410] Changing the permitting dynamics
+- [08:24.620] is going to help things move faster.
+- [08:26.220] We're seeing private investment flow into this space
+- [08:28.050] like we've never seen before. We went public about a year ago.
+- [08:32.300] One of the most successful actually go public
+- [08:34.310] outcomes for transaction like that for a small nuclear company
+- [08:36.600] because the market needs this and wants this.
+- [08:38.330] And under your leadership
+- [08:39.600] creating that that dominance council I mean,
+- [08:41.660] it's hard to overstate the value of that
+- [08:44.260] and nuclear is a manifestation of energy dominance.
+- [08:46.930] In fact a golf ball of uranium metal,
+- [08:48.670] which this is not but it's a golf ball,
+- [08:51.430] has enough energy confidence
+- [08:52.860] to power your entire life's energy needs.
+- [08:54.580] I mean, it doesn't get any better than that.
+- [08:56.430] And to get back to building,
+- [08:57.690] nuclear uses the fewest materials, right?
+- [08:59.710] The fewest, the least amount of concrete, of steel,
+- [09:02.220] of fuel, the amount of energy it produces.
+- [09:04.060] So it should be the cheapest, the most scalable,
+- [09:05.910] the more sustainable,
+- [09:07.120] just like you mentioned, Mr. President,
+- [09:08.490] about the importance of doing that right.
+- [09:10.150] The physics are on our side, and these things help unleash
+- [09:12.810] this innovation to actually realize that.
+- [09:14.480] So, it's never been more exciting.
+- [09:17.370] The President: Very exciting indeed. Go ahead please.
+- [09:19.080] Scott Nolan: Hi, I'm Scott Nolan,
+- [09:20.320] CEO of General Matter.
+- [09:21.540] We're an American enrichment company
+- [09:23.830] trying to bring back the US's lead
+- [09:26.060] in producing nuclear fuel.
+- [09:27.490] So just like car engines need fuel,
+- [09:29.350] nuclear reactors need fuel.
+- [09:31.110] Right now, the U.S. is completely dependent
+- [09:32.870] on other countries
+- [09:34.110] to make the key step of enrichment in this field.
+- [09:36.820] And these executive orders
+- [09:38.080] are going to pave the way for the U.S.
+- [09:39.340] To regain its lead. So we're really proud of it.
+- [09:41.680] The President: Will you be doing the AI plants?
+- [09:43.420] Because we have a lot of them going up now,
+- [09:45.320] and or soon going up,
+- [09:46.910] and they need tremendous electricity.
+- [09:48.570] Are you going to be involved in many of these plants?
+- [09:50.470] Jacob DeWitt: Yes.
+- [09:51.680] The President: Will a lot them be using nuclear,
+- [09:54.060] or some are using oil and gas, some are different things?
+- [09:57.170] Jacob DeWitt: Many of them will be, I think.
+- [09:58.650] The President: It just makes a lot of sense.
+- [09:59.940] Jacob DeWitt: Nuclear is a perfect solution
+- [10:01.310] and that's where most of them are interested.
+- [10:03.790] The President: Good luck. That would be great.
+- [10:06.860] Okay, Will, please.
+- [10:08.310] Will Scharf: The first executive order
+- [10:09.600] we have for you relates to the issue
+- [10:11.890] that Secretary Hegseth was speaking to,
+- [10:13.640] which is the need for incredible amounts of power
+- [10:16.890] at defense installations
+- [10:18.530] and also at AI-focused installations.
+- [10:21.560] What this executive order will do
+- [10:23.030] is speed up the approval and adoption process
+- [10:25.890] for specialized nuclear reactors at these sorts of sites.
+- [10:29.510] It also involves the Department of Energy
+- [10:31.210] making available the necessary fuel stock.
+- [10:34.140] It also creates a special envoy position
+- [10:37.110] and a strategy around nuclear technology export,
+- [10:40.430] the idea being that we can grow American industry
+- [10:42.700] on the back of foreign purchasers
+- [10:44.380] who are interested in this sort of technology as well.
+- [10:47.040] The President: I'm just thinking,
+- [10:48.250] as you say that, I just said, what about auto-pens?
+- [10:52.040] Could I use an auto-pen? What did Biden do?
+- [10:53.970] Did he have an auto pen at the desk?
+- [10:56.560] No, he didn't do it, but he used nuclear power.
+- [11:00.400] You know, he did do events like this, I guess.
+- [11:03.020] And so, otherwise, you know.
+- [11:06.530] You walk into the other side of the room,
+- [11:07.910] have an autopen sign it, right? Here it is. It's phase one.
+- [11:12.050] Very big phase, very important phase.
+- [11:15.490] (applause)
+- [11:22.500] Will Scharf: Sir, this next executive order is intended
+- [11:24.900] to reform the Nuclear Regulatory Commission.
+- [11:27.170] You heard a few of the people here
+- [11:28.490] speak about the complex regulatory processes
+- [11:31.530] that have really held the nuclear industry back.
+- [11:34.240] Before 1978, there were 133 reactors
+- [11:38.760] built in the United States.
+- [11:40.120] Since 1978, only two new commercial reactors
+- [11:43.250] have come online.
+- [11:44.510] That's because of overregulation.
+- [11:46.500] And the goal of this executive order
+- [11:48.890] is bringing that regulatory process into line
+- [11:51.920] with the actual needs of the industry and public safety
+- [11:55.080] with an end goal of quadrupling
+- [11:57.090] the amount of nuclear power production
+- [11:58.730] in the next two and a half decades.
+- [12:00.120] The President: It's fantastic. Exciting, right?
+- [12:04.830] (applause)
+- [12:11.060] There you go.
+- [12:12.380] Will Scharf: This next executive order relates
+- [12:14.070] to nuclear reactor testing, sir. The degree of over-regulation
+- [12:18.510] and governmental inaction in this space in particular
+- [12:21.510] has had the effect of throttling development
+- [12:23.780] of new highly modernized nuclear reactors
+- [12:26.340] that could really revolutionize
+- [12:27.790] the field of nuclear power generation.
+- [12:31.040] So this executive order, it orders a revised regulatory
+- [12:35.030] process to speed this whole process
+- [12:37.500] while preserving obviously core safety concerns.
+- [12:40.490] It also creates a new pilot program with an expectation
+- [12:43.940] that we will have three experimental reactors online
+- [12:47.350] by July 4th next year.
+- [12:50.240] (applause)
+- [12:58.950] Lastly, sir, we have an executive order
+- [13:00.670] on reinvigorating the nuclear industrial base
+- [13:03.900] There are a number of core issues here
+- [13:05.520] including the issue with fuel feedstock
+- [13:08.710] that one of the speakers mentioned before.
+- [13:11.730] This executive order among other actions
+- [13:14.190] includes an indication of the Defense Production
+- [13:17.070] Act in order to spur a closer collaboration
+- [13:19.760] with private industry
+- [13:20.960] to ensure that we have the fuel supplies we need
+- [13:23.830] for a modernized nuclear energy sector.
+- [13:27.960] In addition to that, it includes crucial provisions
+- [13:30.270] relating to the development
+- [13:31.480] of a nuclear energy sector workforce
+- [13:34.550] and a number of other key building blocks
+- [13:37.340] to the overall nuclear industry that we're trying to spur here.
+- [13:42.290] (applause).
+- [13:51.110] We have one more for you here, sir.
+- [13:52.720] This doesn't directly relate to nuclear energy,
+- [13:55.580] but it's on a similar subject.
+- [13:58.080] This executive order is entitled Restoring Gold Standard Science.
+- [14:03.050] One of the issues that we've had in recent decades
+- [14:05.580] is that government policy
+- [14:07.310] has been made on the back of junk science.
+- [14:09.880] Scientific studies and findings that have included
+- [14:12.820] conflicts of interest or scientific misconduct.
+- [14:15.910] The purpose of this executive order is to re-center policy
+- [14:19.200] making around gold standard science,
+- [14:21.490] scientific efforts
+- [14:22.690] that have followed appropriate scientific methods
+- [14:25.440] that don't include those sorts of conflicts of interest,
+- [14:28.110] and to ensure that when departments and agencies
+- [14:30.320] are relying on scientific studies to promulgate rules,
+- [14:34.180] to promulgate regulations,
+- [14:35.910] that the science that they're relying on
+- [14:37.700] is highly, highly reliable and available to the public.
+- [14:42.290] The President: He did a very good job, didn't he?
+- [14:44.690] How many people here could have done that?
+- [14:46.330] I don't know. I think a lot. Good job, Will.
+- [14:51.050] Will Scharf: Thank you, Mr. President.
+- [14:58.370] The President: Is that it?
+- [14:59.610] Will Scharf: That's all we have for you now.
+- [15:01.230] (applause)
+- [15:06.610] The President: Do you have any questions
+- [15:08.070] for these brilliant people?
+- [15:09.500] They are brilliant people, actually.
+- [15:10.990] The Press: Mr. President, on nuclear, sir.
+- [15:14.700] A lot of the concern over the years
+- [15:16.720] (inaudible) about safety.
+- [15:18.970] Are you satisfied with those safety concerns?
+- [15:20.750] The President: Yeah, we are. It's become a very safe.
+- [15:22.870] Actually, it's become very safe
+- [15:24.260] and Tremendous works been done on that more than anything else.
+- [15:28.070] And it's really the automatic shutoffs.
+- [15:30.380] There's so many different things that they have now
+- [15:32.150] that they would have never had,
+- [15:33.780] you know, my uncle was a great nuclear person years ago
+- [15:37.730] and that was a different --
+- [15:39.410] if you would have asked that question
+- [15:40.950] probably it would have been a much different answer.
+- [15:43.520] But they have tremendous shutoff power and other powers that --
+- [15:49.030] and very redundant as I understand it like
+- [15:51.450] at a level that nobody's ever seen before so it's safe.
+- [15:54.880] And we're going to do a lot of the small ones
+- [15:56.430] and we're going to do some of the big ones.
+- [15:57.910] But yeah, very safe -- safe and clean.
+- [16:02.280] Let's keep it on this for a little while.
+- [16:05.120] Let's keep in on the nuclear,
+- [16:06.440] and if you want to ask something else,
+- [16:08.270] which you might, we'll do that.
+- [16:10.120] The Press: I'll be clear, Mr. President,
+- [16:12.290] what do you say to folks who are concerned
+- [16:13.710] with speeding up licensing or even doing fuel processing
+- [16:17.580] (inaudible) and proliferation?
+- [16:19.030] The President: Yeah, we're going to get it very fast
+- [16:20.810] and we're going to get it very safe
+- [16:22.200] and we going to get the people in and out
+- [16:24.590] and they're going to do plants.
+- [16:26.190] In many cases, they'll do three or four smaller ones
+- [16:28.400] and put them together. That's what France has done.
+- [16:30.830] France has done a good job of this for years.
+- [16:33.570] And they, as I understand it, they had basically one plant.
+- [16:38.370] And if they needed more, they do three,
+- [16:39.760] or four or five of them.
+- [16:41.000] I don't know we have to go that far.
+- [16:42.560] But, you know, there's something about building one big one,
+- [16:45.720] but we'll build the big ones too.
+- [16:47.080] We're going to have, I think we'll be --
+- [16:49.370] I would say we'll be second to none
+- [16:51.260] because we're starting very strong,
+- [16:53.820] but it's time for nuclear,
+- [16:56.310] and we're going to do it very big.
+- [16:57.710] Yeah, please.
+- [16:58.940] The Press: Mr. President, what about the European Union?
+- [17:01.010] You said that negotiations are going nowhere.
+- [17:04.120] Where are the --
+- [17:06.960] The President: I've been saying to everybody,
+- [17:08.180] they've treated us very badly over the years.
+- [17:10.180] It was formed in order to hurt the United States,
+- [17:12.410] in order to take advantage of the United States,
+- [17:15.930] and they've done that. We have a big deficit with them.
+- [17:19.780] They sell millions and millions of cars, as you know,
+- [17:22.350] Mercedes and BMW and Volkswagen and many others.
+- [17:25.990] And we were restricted from,
+- [17:29.400] essentially restricted from selling cars
+- [17:31.790] into the European which is not nice.
+- [17:34.820] And I just said, it's time that we play the game the way
+- [17:39.020] I know how to play the game, you know?
+- [17:40.460] Nobody -- they've taken advantage of other people
+- [17:43.710] representing this country,
+- [17:44.940] and they're not going to do that any longer.
+- [17:46.430] The Press: Because, Mr. President,
+- [17:47.680] you are a deal-maker, deal-breaker.
+- [17:50.340] What are you hoping to achieve
+- [17:52.010] with a 50 percent tariff on the EU?
+- [17:54.460] The President: Well, I think this is --
+- [17:56.680] there is no tariff, because what they'll do
+- [17:58.370] is they'll send their companies into the U.S.
+- [18:00.900] And build their plant. You know, we have, I guess,
+- [18:03.830] over $12 trillion practically committed.
+- [18:06.560] You look at other presidents,
+- [18:07.880] they haven't had a trillion dollars for a year,
+- [18:10.940] for two years, for three years.
+- [18:13.120] We have numbers -- nobody's ever seen numbers like we have.
+- [18:15.670] And if they build their plants here,
+- [18:18.000] then they have no tariffs at all.
+- [18:19.380] The Press: I mean, you're looking
+- [18:20.590] for a deal in nine days. Will you be able to do this?
+- [18:24.190] The President: I'm not looking for a deal.
+- [18:25.510] I mean, we've set the deal. It's at 50 percent.
+- [18:28.540] But again, there is no tariff if they build their plant here.
+- [18:32.300] Now, if somebody comes in and wants to build a plant here,
+- [18:34.680] I can talk to them about a little bit of a delay.
+- [18:37.380] But, you know, while they're building their plant,
+- [18:39.400] which is something I think that would be appropriate,
+- [18:41.890] maybe we'll determine that.
+- [18:44.310] The Press: Is there anything the EU can do?
+- [18:46.190] The President: I don't know, we're going to see what happens,
+- [18:47.680] but right now it's going on on June 1st,
+- [18:51.130] and that's the way it is.
+- [18:52.360] No, they haven't treated us properly.
+- [18:53.830] They haven't treat our country properly.
+- [18:56.120] They banded together to take advantage of us,
+- [18:59.680] and the people behind me know,
+- [19:02.110] because they have some of that with their industry,
+- [19:04.430] but generally, you know, we signed a great deal
+- [19:07.450] with United Kingdom.
+- [19:10.890] We have numerous other deals that are ready to be signed.
+- [19:13.750] We have -- we've signed a deal with China.
+- [19:16.430] We have some really amazing deals.
+- [19:19.460] But the European Union --
+- [19:21.160] I mean, the sole purpose was really to --
+- [19:24.410] not to hurt us, but to take advantage of us.
+- [19:26.760] And we're not going to be taking advantage of.
+- [19:31.260] The Press: On Apple, you said this morning
+- [19:33.290] that if they don't make their iPhones in the U.S.
+- [19:35.870] You're going to hit them with a 25 percent tariff.
+- [19:38.660] Do you have the power to tariff one single company?
+- [19:41.650] Why would you want to hurt an American company in that way?
+- [19:44.140] The President: It would be more, it would be also
+- [19:45.590] Samsung and anybody that makes that product,
+- [19:48.070] otherwise it wouldn't be fair.
+- [19:49.760] So anybody that make that product and that'll start on,
+- [19:52.910] I guess, the end of June, it'll come out,
+- [19:55.450] I think we have that appropriately done
+- [19:57.550] by the end June.
+- [19:58.810] So if they make that product, now again,
+- [20:02.610] when they build their plant here, there's no tariff.
+- [20:06.010] So they're going to be building plants here,
+- [20:08.000] but I had an understanding with him
+- [20:09.660] that he wouldn't be doing this.
+- [20:10.990] He said he's going to India to build plants.
+- [20:12.950] I said, that's okay to go to India,
+- [20:14.460] but you're not going to sell into here without tariffs.
+- [20:17.200] And that's the way it is. Yeah?
+- [20:21.490] The Press: What makes you confident, sir,
+- [20:22.880] that Apple can build in the United States
+- [20:25.280] at a price on American consumers?
+- [20:26.910] The President: Oh, they can. No, they cannot.
+- [20:28.550] A lot of it is so computerized now.
+- [20:30.780] These plants are amazing if you look at them,
+- [20:32.870] but they can do that.
+- [20:34.100] And, you know, actually, as you know
+- [20:36.090] Apple's coming in with $500 billion.
+- [20:40.100] So are the chip companies.
+- [20:41.440] We have all of the chip company's coming.
+- [20:43.620] And the biggest $500, $200, $250 billion they're spending.
+- [20:48.940] But we're talking about the iPhone now.
+- [20:50.840] And, the iPhone, if they're going to sell it in America,
+- [20:54.770] I want it to be built in the United States.
+- [20:57.500] They're able to do that.
+- [20:58.710] The Press: When you say that Wal-Mart
+- [20:59.920] should keep the cost of the tariffs,
+- [21:01.620] is that an acknowledgement that it is U.S. Companies
+- [21:04.420] that bear the profit tariffs, not foreign companies?
+- [21:07.170] The President: Sometimes the country will eat it,
+- [21:08.810] sometimes Walmart will eat it,
+- [21:11.140] and sometimes there'll be something to pay,
+- [21:13.540] something extra.
+- [21:14.760] I've always been a fan and I've always believed,
+- [21:16.950] and if you look, take a look at what I did four years ago.
+- [21:21.080] We had the greatest economy and we had no inflation.
+- [21:24.660] Remember that. We had no inflation
+- [21:26.630] and yet we had hundreds of billions of dollars of tariffs
+- [21:30.790] that I put on China,
+- [21:32.200] yet we have no inflation, we had no big cost differential.
+- [21:36.700] Oftentimes, and I don't like it when a department's doing it
+- [21:40.720] because they'll do a lot of business,
+- [21:42.100] but you know, they announce record profits
+- [21:43.660] and everything else,
+- [21:44.880] they have to take out some of their profits.
+- [21:46.470] They'll make a little bit less money,
+- [21:48.230] but I don't want the consumer to pay.
+- [21:51.960] The Press: But why post tariffs that you know
+- [21:54.210] are hurting American businesses?
+- [21:55.570] The President: They're not hurting, they're helping,
+- [21:56.960] because they're creating jobs in America.
+- [21:58.870] We're creating tremendous amounts of jobs in America
+- [22:01.150] like you've never seen.
+- [22:02.700] We're having investment in America,
+- [22:04.370] we're not getting ripped off by every country in the world.
+- [22:06.630] We've been ripped off every country in the word.
+- [22:08.970] They're making their product, they sell it.
+- [22:11.360] They don't give our people the jobs,
+- [22:12.790] they make them with other countries' jobs.
+- [22:15.460] And we will have something that nobody will ever see again,
+- [22:19.280] I think.
+- [22:20.480] I think we have a potential to do numbers
+- [22:23.670] that we never envisioned in the wildest year.
+- [22:25.800] Look at what's happening.
+- [22:27.890] Ten to $12 trillion in literally a couple of months.
+- [22:33.170] It's not -- nothing like that's ever happened.
+- [22:35.940] It's a very special -- we're doing a very special thing.
+- [22:39.170] We want -- if they're going to sell it here,
+- [22:40.780] generally speaking -- not for all products.
+- [22:42.490] There are some products we don't want to make.
+- [22:44.610] And, frankly, we're much better off getting them elsewhere.
+- [22:47.220] But for certain products, we want cars.
+- [22:49.390] We want to make cars.
+- [22:50.610] We don't want to have -- and I like Canada very much.
+- [22:53.060] But we don't want to have Canada making our cars.
+- [22:54.840] We want to make our cars. Oh, it's a phone call.
+- [22:57.540] Do you mind? Okay, it's only a congressman.
+- [23:08.980] The Press: Are you considering stopping other universities
+- [23:11.570] from taking foreign students?
+- [23:12.820] The President: Well, it's a different congressman.
+- [23:16.510] They're all congratulating us.
+- [23:20.960] Yeah, it is lucky it is. Okay, let's go.
+- [23:24.230] The Press: Are you considering stopping other universities
+- [23:26.380] besides Harvard from accepting foreign students?
+- [23:28.170] The President: Well, we're taking a look
+- [23:29.380] at a lot of things. And as you know,
+- [23:31.890] billions of dollars has been paid to Harvard.
+- [23:34.890] How ridiculous is that? Billions.
+- [23:37.810] And they have $52 billion as an endowment.
+- [23:40.450] They have$ 52 billion.
+- [23:42.750] And this country is paying billions
+- [23:45.400] and billions of dollars, and then gives student loans,
+- [23:48.120] and they have to pay back the loans.
+- [23:49.450] So Harvard's going to have to change its ways.
+- [23:53.380] And so are some others.
+- [23:54.880] The Press: On that note,
+- [23:56.430] on that note a lot of CEOs in the United States,
+- [24:00.380] big companies, are foreign. What is that going to do?
+- [24:04.010] The President: I'm fine with that.
+- [24:05.560] I'm not fine with it. No, we want to do that.
+- [24:08.250] We're actually going to be doing something in the near future
+- [24:11.700] that's going to make it possible
+- [24:12.980] for people to come into this country and come in
+- [24:15.340] and, you know, have a road toward citizenship.
+- [24:18.200] And I think it'll be very exciting,
+- [24:19.430] but it's too soon to speak.
+- [24:21.660] The Press: Why would you not want the best and brightest
+- [24:24.120] from around the world to come to Harvard?
+- [24:25.510] The President: I do.
+- [24:26.710] I do, but a lot of the people need remedial math.
+- [24:30.010] Did you see that?
+- [24:31.480] Where these students can't add two and two,
+- [24:34.660] and they go to Harvard. They want remedial math,
+- [24:38.180] and they're going to teach remedial math at Harvard.
+- [24:41.060] Now, wait a minute. So why would they get in?
+- [24:42.960] How can somebody that can't add or has very basic skills,
+- [24:47.870] how do they get into Harvard? Why are they there?
+- [24:49.860] And then you see those same people picketing and screaming
+- [24:52.890] at the United States and screaming at,
+- [24:55.020] you know, their anti-Semitic or their something.
+- [24:58.710] We don't want troublemakers here,
+- [25:00.950] but how do people that can't --
+- [25:02.650] when Harvard comes out with a statement
+- [25:04.330] that they're going to teach some of their students remedial math,
+- [25:07.710] that's basic math. That's not the deal. Okay.
+- [25:14.370] The Press: Are there other countries you're considering
+- [25:17.140] shortening the 90-day pause on tariffs for?
+- [25:19.890] And then are there specific steps
+- [25:21.490] you're looking for the EU to take?
+- [25:22.700] The President: We know where we have a lot of requests
+- [25:25.180] and, you know, you don't have the people to handle it,
+- [25:27.310] frankly. Everybody wants to make a deal.
+- [25:29.540] I'm sure now the European Union wants to make a deal very badly,
+- [25:33.100] but they just, they don't do it right.
+- [25:36.030] They don't go about it right.
+- [25:37.650] The other thing they do is they sue our companies all the time.
+- [25:40.250] You know, they have suits where their judges,
+- [25:44.100] I don't know if they're appointed by them,
+- [25:45.570] but they're definitely Europe-centric
+- [25:48.940] and we're not going to stand for it.
+- [25:51.000] They won a $17 billion lawsuit for Apple.
+- [25:55.660] And I read that case,
+- [25:56.900] and that's not a case that should have been won.
+- [25:58.980] They're suing other of our companies.
+- [26:00.430] They use this as a weapon,
+- [26:02.590] but they use it really to raise funds for what they do.
+- [26:05.200] It's almost like a fundraising mechanism.
+- [26:07.250] So we add that to the fact that they do the non-monetary tariffs
+- [26:11.840] and lots of other trading.
+- [26:13.810] You would call them trading barriers.
+- [26:15.950] They don't take our cars. They don't take our agriculture.
+- [26:19.680] They don't take anything, but we take their cars by the millions.
+- [26:23.090] And therefore, they have the jobs,
+- [26:25.190] they get the money, and we get closed plants.
+- [26:27.400] It's not going to happen that way anymore.
+- [26:28.900] Thank you very much, everybody. Thank you very much, everybody.
+- [26:30.590] Female Speaker: Thank you, press.
+- [26:31.810] Thank you, press.

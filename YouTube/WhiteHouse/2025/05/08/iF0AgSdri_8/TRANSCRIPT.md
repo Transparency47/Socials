@@ -1,0 +1,414 @@
+<!-- source: https://www.youtube.com/watch?v=iF0AgSdri-8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: iF0AgSdri-8 -->
+<!-- date_published: 2025-05-08T20:34:55+00:00 -->
+<!-- date_accessed: 2026-06-02T02:50:33.906594+00:00 -->
+
+# Transcript: First Lady Melania Trump Participates in a Barbara Bush Stamp Unveiling Event
+
+- [00:03.620] Announcer: Gentlemen, the First Lady of the United
+- [00:05.931] States, accompanied by Judy Dade Torrick,
+- [00:08.940] Alice Yates and Doral Bush Cook.
+- [00:12.940] ♪[patriotic music playing]♪
+- [00:57.940] Judy Dade Torrick: Thank you for everyone at the White House
+- [00:59.874] for holding this wonderful event.
+- [01:03.350] And my sincere gratitude goes out to the
+- [01:05.605] First Lady for being our special host today.
+- [01:08.290] Thank you.
+- [01:17.990] It is an honor to be here with all of
+- [01:20.628] you and a privilege to unveil the United
+- [01:23.481] States Postal Service's stamp
+- [01:25.656] commemorating the life, memory,
+- [01:29.515] and legacy of one of America's most
+- [01:31.590] prominent women, First Lady Barbara Bush.
+- [01:35.215] Today we recognize Mrs. Bush, not only as
+- [01:38.358] a beloved First Lady, but as a
+- [01:40.576] remarkable American in her own right.
+- [01:45.010] She charted a legacy for herself and
+- [01:47.545] did it with conviction, determination, and compassion.
+- [01:53.940] Barbara Bush was known for her drive to help others.
+- [01:58.120] A drive forged her through her own
+- [02:00.233] life experiences and tragedies.
+- [02:03.580] The loss of her daughter, Robin,
+- [02:05.620] to leukemia at the age of three,
+- [02:07.880] left an indelible mark on her heart,
+- [02:10.251] and one that instilled profound empathy
+- [02:13.170] for individuals and families marked by illness.
+- [02:18.690] In 1989, Mrs. Bush visited a hospice
+- [02:22.295] and cradled a child dying from AIDS.
+- [02:26.700] At that time, even touching someone with
+- [02:29.436] AIDS was not only stigmatized but feared.
+- [02:33.060] In that moment, she encouraged the country
+- [02:36.215] to look past the disease and see the suffering child.
+- [02:41.340] In that vision, she helped shift people's
+- [02:44.570] perceptions about the disease and changed
+- [02:48.100] an entire nation's conversation.
+- [02:50.880] When that her son, George W.
+- [02:52.440] Bush, would later continue in his presidency.
+- [02:57.625] In seeing her son Neil's struggle with
+- [03:00.293] dyslexia, she took on the challenge of
+- [03:02.961] illiteracy, a defining pillar of her social platform.
+- [03:07.850] She established the Barbara Bush
+- [03:09.702] Foundation for Family Literacy in 1989,
+- [03:12.905] and championed the now National Literacy Act in 1991.
+- [03:18.080] Through her tenure as First Lady, she hosted Mrs.
+- [03:20.930] Bush's story time,
+- [03:22.500] a national radio broadcast encouraging
+- [03:25.101] adults to read aloud to children.
+- [03:29.180] These efforts helped equip young Americans
+- [03:31.805] with a core skill needed to succeed in life.
+- [03:35.800] The book she wrote, inspired by her
+- [03:38.130] beloved dogs, taught bestseller lists and
+- [03:40.861] proceeds were used to further fund literacy programs.
+- [03:44.990] Her name now graces schools from Texas to
+- [03:47.799] Arizona, a children's hospital in Maine,
+- [03:50.800] and most probably to her literacy plaza in Houston.
+- [03:54.460] All symbols of her lifelong mission to
+- [03:57.382] connect families and communities
+- [03:59.900] to the power of knowledge.
+- [04:03.420] As you can see, the personal struggles marking Mrs.
+- [04:07.036] Bush's life did not harden her.
+- [04:10.130] They inspired her, and deepened
+- [04:11.897] her connection to the Americans.
+- [04:13.721] She served.
+- [04:15.860] They revealed what truly matters,
+- [04:18.754] family, compassion, and service.
+- [04:22.820] Through those lessons, she became a
+- [04:25.440] national example of strength, humility, and grace.
+- [04:30.880] Perhaps what Mrs. Bush is most remembered
+- [04:33.553] for is her plane spoken honesty,
+- [04:37.000] sharp and often self deprecating
+- [04:38.968] sense of humor, and often sedency.
+- [04:41.810] She never pretended to be someone she wasn't.
+- [04:45.720] She spoke her mind, laughed at herself,
+- [04:48.362] and stayed grounded, even as history
+- [04:50.950] unfolded around her.
+- [04:52.900] Her legacy lives on, not just in the
+- [04:55.287] buildings that bear her name, but in the
+- [04:58.090] lives changed through education,
+- [04:59.957] in the compassion that she modeled,
+- [05:02.400] and in the lessons that she left behind.
+- [05:05.820] In a moment, we will unveil the
+- [05:07.450] first-class male forever stamp
+- [05:09.021] honoring First Lady Barbara Bush.
+- [05:11.700] The image, which is a detail from
+- [05:13.331] her, official White House portrait, shows Mrs.
+- [05:16.070] Bush wearing one of her
+- [05:17.198] signature multi-strand pearl necklaces.
+- [05:20.000] Her portrait, an oil on canvas painting,
+- [05:22.878] was created in 1995 by artist Chase Fagan,
+- [05:26.520] who famously painted oil portraits of all 45 U.S.
+- [05:30.900] presidents.
+- [05:32.640] First Lady Barbara Bush represented
+- [05:34.600] the very best of America.
+- [05:36.840] We are so proud to honor her life, and
+- [05:39.391] her many contributions to our great
+- [05:41.741] nation, with this beautiful piece of art.
+- [05:45.970] And now, the moment we've all been waiting for, Mrs.
+- [05:49.508] Yates, Mrs. Cook, we do the honors, please.
+- [05:56.180] Okay, everyone, are we ready?
+- [05:59.720] One, two, three.
+- [06:03.720] [applause]
+- [06:33.910] On behalf of the United States Postal
+- [06:35.803] Service, I am pleased to commemorate her
+- [06:38.050] legacy of service to our nation,
+- [06:39.588] through the First Lady Barbara Bush postage stamp.
+- [06:42.510] And it is now my pleasure to
+- [06:43.721] introduce Alice Yates, the chief
+- [06:45.977] executive officer of the George and
+- [06:47.255] Barbara Bush Foundation.
+- [07:00.840] Alice Yates: What a special opportunity for family,
+- [07:02.909] friends, and loved ones.
+- [07:04.810] Former staff members to gather here
+- [07:07.285] and honor First Lady Barbara Bush.
+- [07:09.810] Wow, that's really beautiful.
+- [07:11.830] Here at the White House.
+- [07:13.350] Mrs. Trump, your kindness and generous
+- [07:15.507] hospitality is so appreciated.
+- [07:17.970] Thank you.
+- [07:19.090] Our thanks to Judy, the kind
+- [07:20.770] introduction, and your remarks.
+- [07:22.910] were just so lovely.
+- [07:24.930] And all the men and women of the
+- [07:26.357] United States Postal Service.
+- [07:27.710] Thank you for recognizing Mrs.
+- [07:29.958] Bush in such a meaningful way
+- [07:32.185] during her centennial year.
+- [07:34.610] I can only imagine, and we talked about
+- [07:36.828] it a little bit, the memories that are
+- [07:38.991] flooding the minds of the members of the
+- [07:40.926] Bush family, to be back here in the White
+- [07:43.610] House, to reflect on your mother,
+- [07:46.269] on your ganny, your beloved friend,
+- [07:49.200] your mentor, how nostalgic it must feel.
+- [07:52.460] and what a privilege to join
+- [07:54.821] you for an honor such as this.
+- [07:57.430] I want to take a moment to recognize President Mrs.
+- [08:00.519] Bush's son, Neil,
+- [08:02.050] and daughter, Doro Bush Cook.
+- [08:05.590] You, along with your siblings, know best that George H.W. Bush
+- [08:09.820] was the love of Barbara Bush's life.
+- [08:13.230] I love so evident they lived out 73 years of marriage.
+- [08:19.620] And many would say that there wouldn't be a president,
+- [08:22.215] President George H.W. Bush
+- [08:23.630] if it wasn't for Barbara Bush.
+- [08:26.110] So we know that.
+- [08:27.355] In fact, as your father did so well,
+- [08:30.448] and he wrote in a letter, he said,
+- [08:33.590] you have given me joy that few men know.
+- [08:37.820] He wrote, I have climbed perhaps
+- [08:39.551] the highest mountain in the
+- [08:40.942] world, but even that cannot hold a
+- [08:43.386] candle to being Barbara's husband.
+- [08:46.930] She was by her husband's side throughout
+- [08:49.725] his historic public service career.
+- [08:52.920] culminating with his elections as vice
+- [08:54.915] president, ultimately president of the United States.
+- [08:58.310] Barbara Bush was well prepared
+- [09:00.043] for life as America's First Lady.
+- [09:02.350] And as First Lady, you heard so many of
+- [09:04.690] the amazing accomplishments, but
+- [09:06.736] she was a powerful force for change.
+- [09:09.510] Always.
+- [09:10.010] One of her most enduring contributions
+- [09:12.221] was her tireless advocacy for literacy,
+- [09:15.540] believing in her words that education is a civil right.
+- [09:18.690] No matter one's age.
+- [09:20.700] She played a key role as George H.W. Bush 172 00:09:22,151 --> 00:09:22,150 173 00:09:22,151 --> 00:09:22,150
+- [09:22.200] As you mentioned, behind the scenes for
+- [09:24.350] the National Literacy Act, the bipartisan
+- [09:26.760] passage of that legislation.
+- [09:28.810] And this legislation elevated the needs
+- [09:30.955] of adult learners, which was often an overlooked group.
+- [09:35.030] And firmly placed literacy at
+- [09:36.690] the heart of American policy.
+- [09:38.630] So today's event is a reminder.
+- [09:41.730] It reminds us of her inspiring legacy
+- [09:45.029] of integrity, grace, service, grit.
+- [09:49.820] And at the George and Barbara
+- [09:50.918] Bush Foundation, it's our honor.
+- [09:52.131] For every day, we are dedicated to
+- [09:53.953] preserving the legacy of President and Mrs.
+- [09:57.664] Bush, caring for their selfless
+- [09:59.530] service and commitment to traditional American values.
+- [10:03.050] So whether through our guest at
+- [10:04.525] the Presidential Library at Museum,
+- [10:06.550] the students at the Bush School
+- [10:08.148] of Government and Public Service,
+- [10:10.870] or through the literacy education programs
+- [10:14.476] throughout the nation, every day that we
+- [10:17.911] collectively share the legacy of
+- [10:19.887] George and Barbara Bush with others.
+- [10:22.760] It's a good day for our country.
+- [10:24.920] So thank you for that opportunity today
+- [10:27.723] and for joining us in that effort through
+- [10:30.970] this beautiful tribute to First Lady Barbara Bush.
+- [10:34.255] We look forward to the first day of issue.
+- [10:36.930] June 10th.
+- [10:38.225] And the continued impact that we will
+- [10:40.630] see as a new generation experiences,
+- [10:43.830] someone that is held so beloved
+- [10:45.700] for all of us that are here today.
+- [10:48.210] First Lady Barbara Bush.
+- [10:49.750] It's now my honor to introduce the beloved daughter.
+- [10:52.685] of George and Barbara Bush.
+- [10:55.950] Dora Bush Cook: Thank you so much, Alice.
+- [11:04.640] Mrs. Trump, Mrs. Datorack, distinguished guest.
+- [11:09.380] Thank you for being part of this special day.
+- [11:13.085] Mrs. Trump, we are so grateful to you
+- [11:15.730] for hosting us at the White
+- [11:17.596] House on this momentous occasion.
+- [11:20.810] Being here brings back so many
+- [11:22.955] memories for me and my family.
+- [11:25.920] My mom always loved to come back and visit
+- [11:28.710] and I know she's watching over us today
+- [11:31.500] and reminding me to keep these remarks short.
+- [11:36.370] Thank you to the Postal Service.
+- [11:39.060] The stamp perfectly captures mom's poise and dignity.
+- [11:44.015] Mom would be so happy that she is featured
+- [11:46.942] with her favorite portrait by the great
+- [11:49.661] American artist, Chast Fagan, who is here today.
+- [11:54.180] I'd also like to thank our friend Stuart
+- [11:56.833] McLaurin and the White House
+- [11:58.698] Historical Association for all they've
+- [12:01.315] done to support today's event.
+- [12:04.070] Their work is so important to keeping
+- [12:06.782] the White House and its amazing
+- [12:09.069] history available for all Americans.
+- [12:13.400] Barbara Bush, known to many as mom,
+- [12:16.855] ganny, the silver fox, or most famously in
+- [12:21.200] our family, the enforcer, will forever be
+- [12:24.746] remembered for her strength, a bounding
+- [12:28.121] love for family, quick wit and
+- [12:30.407] deep commitment to literacy.
+- [12:33.430] At just 16 years old, mom met
+- [12:36.138] the only man she would ever kiss.
+- [12:45.710] I watched Susan Ford and I saw her burst
+- [12:48.623] into tears when her mother's stamp was
+- [12:51.415] unveiled and I said, I'm not going to do that.
+- [12:57.950] But anyway, let's see.
+- [13:01.650] Okay, the only man she would ever kiss at a school dance.
+- [13:06.090] Two years later she was engaged to George H.W. Bush,
+- [13:09.310] beginning a partnership that would
+- [13:12.468] span decades and help shape history.
+- [13:15.610] Little did she know the adventures ahead.
+- [13:19.370] Life with George Bush was never boring.
+- [13:23.130] Mom lived through six children, 21
+- [13:26.329] grandchildren, at least 27 moves from
+- [13:30.110] California to China, seven wars,
+- [13:33.064] three dress sizes, two governors,
+- [13:37.170] seven parachute jumps, and two presidents.
+- [13:41.040] When she became First Lady, she
+- [13:42.940] transformed the White House into a true home.
+- [13:46.890] She hosted hundreds of guests,
+- [13:48.884] regularly invited our children and her
+- [13:51.411] grandchildren for sleepovers and even
+- [13:54.487] welcomed six spirited springer spaniels into the mix.
+- [13:59.800] Mom told her staff she wanted to do
+- [14:02.055] something every day to help others.
+- [14:05.300] So that's what she did.
+- [14:07.125] She scheduled many events and visits
+- [14:09.428] that highlighted a need, helped encourage
+- [14:12.051] volunteerism or focused on literacy.
+- [14:15.730] Her signature cause was literacy.
+- [14:18.960] She believed that all of the problems in
+- [14:22.054] the world would be solved if every man,
+- [14:25.110] woman, and child could read, write, and comprehend.
+- [14:29.475] In one defining moment, Mom helped shift
+- [14:32.864] the national dialogue around HIVAs.
+- [14:36.330] During a visit to grandma's house hospice
+- [14:39.421] in Washington, D.C., she cradled baby
+- [14:42.211] Donovan, an infant with HIV, at a time
+- [14:45.535] when fear and stigma were rampant,
+- [14:49.150] that simple, compassionate act,
+- [14:51.235] captured in a photo that made national
+- [14:53.791] headlines, spoke louder than words could ever could.
+- [14:58.150] Mom was never one to shy away from
+- [15:00.477] speaking the truth or taking a stand.
+- [15:03.530] Her 1990 commencement speech at Wellesley
+- [15:06.998] College initially met with resistance when
+- [15:10.551] on to become one of the most celebrated
+- [15:13.200] speeches of the 20th century.
+- [15:15.795] In it, she encouraged graduates to pursue
+- [15:18.605] meaningful relationships over material
+- [15:21.410] success, saying, at the end of your life,
+- [15:24.383] you will never regret not having passed
+- [15:27.410] one more test, not winning one more
+- [15:30.296] verdict, or not closing one more deal.
+- [15:34.100] You will regret time not spent with a
+- [15:36.594] husband, a child, a friend, or a parent.
+- [15:40.930] With her signature white hair and pearls,
+- [15:44.093] she became an icon in her own right.
+- [15:47.530] And yet, even as a former First Lady,
+- [15:49.877] she remained humble and humorous,
+- [15:52.855] when recognized at Sam's Club in Houston,
+- [15:55.856] she'd often respond, no, I'm much younger,
+- [15:59.150] I'm prettier.
+- [16:02.245] Our family is a measurly blast
+- [16:04.707] to call Barbara Bush, our mom.
+- [16:07.490] Her legacy lives on not only in history
+- [16:09.988] books, but in the hearts of everyone she touched.
+- [16:13.775] It's unlikely that mom ever
+- [16:15.890] pictured herself on a postage stamp.
+- [16:19.730] And it's very likely that she would be
+- [16:21.899] wondering what all this fuss is about today.
+- [16:25.010] But on behalf of my entire family, I
+- [16:27.829] can assure you that we are all very
+- [16:30.571] proud and grateful for this special tribute.
+- [16:34.245] It is now my privilege and honor to
+- [16:36.712] introduce the First Lady of the United
+- [16:39.540] States Melania Trump.
+- [16:58.260] The First Lady: Welcome,
+- [16:59.844] everyone, and welcome Bush family.
+- [17:02.450] It's nice to have you here.
+- [17:06.300] Thank you, Dora, for a beautiful
+- [17:08.192] introduction, and welcome back to the White House.
+- [17:11.280] As we honor the life and legacy of
+- [17:14.077] your mother, First Lady Barbara Bush.
+- [17:18.020] Barbara's unwavering conviction,
+- [17:20.708] dignity, and deeply loyal to her loved
+- [17:24.150] ones, have left, an unreliable
+- [17:27.165] mark on our hearts and history.
+- [17:31.020] Your mother's values can be seen in her
+- [17:33.947] family, friends, and former staff who also
+- [17:37.101] join us here today and continue her legacy.
+- [17:41.130] Many thanks to Alice Yates, CEO of the
+- [17:44.545] George and Barbara Bush Foundation for
+- [17:48.260] joining us today.
+- [17:49.800] Along with the Barbara Bush Foundation for
+- [17:52.924] family literacy, you are helping current
+- [17:55.901] and future generations to navigate
+- [17:58.318] the world with confidence and dignity.
+- [18:02.070] And I would like to thank the White House
+- [18:05.029] Historical Association and the United
+- [18:07.701] States Postal Service, especially Judy
+- [18:11.035] Datorock, who made today's event possible.
+- [18:21.290] Strong American families are the
+- [18:23.964] foundation of a healthy society and serve
+- [18:27.391] as a stepping stone towards building a better world.
+- [18:31.495] The dynamics within American households
+- [18:34.679] shape our nation's core values,
+- [18:37.910] strengths, and collective wisdom.
+- [18:41.050] It is within the privacy of our homes
+- [18:43.773] and the principles of morality, ambition,
+- [18:47.090] and empathy take root.
+- [18:49.850] The family unit serve as our first line of
+- [18:53.160] foresight, often more influential than the
+- [18:56.471] decision made in Washington, D.C.
+- [18:59.790] Barbara's Bush's iconic commencement
+- [19:03.055] address and Wellesley College in 1990
+- [19:06.510] remains an important moment in the
+- [19:09.294] conversation surrounding women's role in society.
+- [19:14.350] Her message which emphasized the
+- [19:16.418] importance of family and personal
+- [19:18.600] integrity encouraged women to
+- [19:21.554] carve their own paths in life.
+- [19:25.030] Mrs. Bush's has claimed, your success as
+- [19:28.932] a family, our success as a society depends
+- [19:33.031] not on what happens in the White House,
+- [19:36.292] but on what happens inside your house.
+- [19:40.490] The First Lady further inspired the
+- [19:43.090] audience by highlighting the importance of
+- [19:46.211] pursuing personal dreams stating the
+- [19:49.334] winner of the hoop race will be
+- [19:52.095] the first to realize her dream.
+- [19:54.930] Not society dreams, her own personal dream.
+- [19:59.600] Who knows, somewhere out in this audience
+- [20:02.758] may even be someone who will one day
+- [20:05.531] follow in my footsteps and preside over
+- [20:08.999] the White House, and I wish him well.
+- [20:14.390] Over 35 years have passed since Barbara
+- [20:17.490] Bush made a call for a female American
+- [20:20.511] president, a reflection of her forward-thinking vision.
+- [20:26.140] As a devoted mother and one of only two
+- [20:28.979] first ladies who have sung also ascended
+- [20:32.290] to the presidency, she embodied the
+- [20:35.162] complex interplay of ambition and
+- [20:37.871] indentity that defies us all.
+- [20:41.730] Mrs. Bush's legacy is marked by her
+- [20:44.512] respect for tradition while
+- [20:46.706] also breaking with convention.
+- [20:49.770] While she is known for championing
+- [20:52.199] literacy, she also supported women's
+- [20:54.771] empowerment, changed the national
+- [20:57.336] conversation on AIDS, and took
+- [20:59.823] a stand supporting gay rights.
+- [21:02.480] I applaud Mrs. Bush's mark defending our
+- [21:05.952] society's vital need for women across all
+- [21:09.760] avenues, whether CEO or homemaker.
+- [21:14.620] We have, can and will build better
+- [21:17.181] families and run innovative businesses at
+- [21:20.271] the same time, ultimately shaping a brighter future.
+- [21:25.520] The unveiling of this commemorative stamp
+- [21:28.515] honors Barbara Bush's contributions as
+- [21:31.291] First Lady and her enduring impact on our nation.
+- [21:36.350] May this tribute inspire us to lead with
+- [21:39.270] compassion, act with strength and uphold
+- [21:42.191] the values that direct us all
+- [21:44.588] us toward meaningful existence.
+- [21:47.710] Thank you.
+- [21:50.540] [applause]
+- [22:00.265] Announcer: Ladies and gentlemen, please remain in
+- [22:01.919] your seats and so the first lady departs the East Room.
+- [22:04.540] Thank you.

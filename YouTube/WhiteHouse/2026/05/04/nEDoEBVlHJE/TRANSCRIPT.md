@@ -1,0 +1,1744 @@
+<!-- source: https://www.youtube.com/watch?v=nEDoEBVlHJE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: nEDoEBVlHJE -->
+<!-- date_published: 2026-05-04T21:00:36+00:00 -->
+<!-- date_accessed: 2026-06-02T02:34:28.012334+00:00 -->
+
+# Transcript: President Trump Participates in a Small Business Summit
+
+- [00:13.480] Announcer: Ladies and gentlemen, the President
+- [00:15.248] of the United States, Donald J. Trump.
+- [00:19.252] ♪ (Hail to the Chief) ♪
+- [00:44.110] (applause)
+- [00:48.681] The President: Well, we have a great group of
+- [00:50.850] people outside.
+- [00:51.451] I just looked at their wearers and it's beautiful
+- [00:54.521] stuff, made in America.
+- [00:56.423] It's great, great stuff.
+- [00:57.657] Please, sit down.
+- [01:03.263] I'm thrilled to be with you and welcome you to the
+- [01:06.733] most fabulous place, the White House.
+- [01:08.735] There's nothing quite like it.
+- [01:11.070] People come from all over the world.
+- [01:12.705] The King and Queen were just here and they looked
+- [01:15.708] and they said, this place is just amazing.
+- [01:18.344] When they came into the Oval Office, they said,
+- [01:22.115] this is something, and they've seen some very
+- [01:24.684] nice places.
+- [01:25.985] They've seen some great rooms.
+- [01:28.354] But it is a very special place as we celebrate
+- [01:32.459] National Small Business Week.
+- [01:33.993] So let me begin by saying congratulations to the
+- [01:37.730] small business people of the year from all 50
+- [01:41.901] states.
+- [01:42.569] It's a big deal.
+- [01:43.536] It's a big deal, and you can be proud of yourself.
+- [01:46.840] Our country is made up of a lot of small businesses,
+- [01:50.510] and that ends up being a really big business.
+- [01:53.546] As small business owners and operators, the people
+- [01:56.149] in this room represent the 36 million small
+- [01:58.918] businesses who create 40 percent of all economic
+- [02:02.222] activity in the United States.
+- [02:04.357] Think of that.
+- [02:05.024] A group of people added together, you're
+- [02:09.462] essentially the most important factor, business
+- [02:12.365] wise, in the whole -- in the whole country.
+- [02:14.667] And this country is leading the whole world.
+- [02:16.936] We are now, that I can tell you, by a lot.
+- [02:20.807] You're the lifeblood of the American economy and
+- [02:24.010] with your help, we're truly making America great
+- [02:27.180] again.
+- [02:27.847] It's -- we're doing record business.
+- [02:30.383] We have a stock market that hit -- even with this
+- [02:35.288] military operation, call it whatever you want.
+- [02:37.824] We can't let Iran have a nuclear weapon.
+- [02:41.094] We hit all new highs, and I said, we have to take
+- [02:43.129] care of business because we can't let that happen.
+- [02:45.164] So we did a little detour and it's working out very
+- [02:48.234] nicely.
+- [02:48.902] They have no navy.
+- [02:49.869] They have no air force.
+- [02:51.638] They have no anti-aircraft equipment.
+- [02:55.275] They have no radar.
+- [02:56.309] They have no nothing.
+- [02:57.343] They have no leaders, actually.
+- [02:58.578] The leaders -- the leaders happen to be gone also,
+- [03:02.015] but we can't let them have a nuclear weapon or you're
+- [03:05.785] going to have -- you'd have problems like nobody
+- [03:08.855] would believe, and it's going very well.
+- [03:12.225] We're also pleased to be joined this afternoon by
+- [03:14.527] secretary of energy, Chris Wright, who's been
+- [03:18.364] amazing.
+- [03:19.032] Where's Chris?
+- [03:20.099] Except we were -- everybody was wrong.
+- [03:23.069] They thought that energy would be at $300.
+- [03:25.204] Right, $300 a barrel?
+- [03:25.872] And it's like at $100 and I think going down.
+- [03:27.206] And I see it going down very substantially when
+- [03:30.743] this is over, Chris.
+- [03:37.250] And I think -- I think very rapidly too, at
+- [03:39.986] levels that you've never seen, because there's --
+- [03:42.622] there's a lot of energy out there, of ships all
+- [03:45.024] over the world that are loaded up with it.
+- [03:46.726] They can't do much with it because they got kidnaped
+- [03:51.497] by a pretty evil place.
+- [03:53.266] But we're taking care of it.
+- [03:55.501] We have Administrator Kelly Loeffler, who's
+- [03:58.004] incredible, and is the head of the Small Business
+- [04:01.441] Administration.
+- [04:02.275] We're thinking about a name change, but I don't
+- [04:04.611] know.
+- [04:05.278] It's still pretty good, a pretty good name.
+- [04:07.714] And I always say it's the small business is a giant
+- [04:10.283] business because when you add up your whole
+- [04:11.951] department, that's not a small business.
+- [04:14.320] That's a really big business, the biggest.
+- [04:16.723] Under the last administration and their
+- [04:18.791] radical left allies in Congress, small businesses
+- [04:21.327] were brutally crushed by the worst inflation in
+- [04:24.597] American history.
+- [04:25.398] We had the worst inflation under Biden that we've
+- [04:28.267] ever had.
+- [04:28.935] And I always say, I always like to correct because if
+- [04:32.105] I don't correct, then the papers, the media goes
+- [04:35.642] crazy, he made a mistake.
+- [04:37.644] Well, the official number is 48 years.
+- [04:40.947] I say the worst in -- because I don't believe
+- [04:42.615] the 48 years.
+- [04:43.483] I say it was worse than that.
+- [04:44.651] But in many ways, 48 years sounds worse than in
+- [04:48.588] history.
+- [04:49.255] I don't know why.
+- [04:50.423] But it was 48 years or worse.
+- [04:53.626] It was Biden inflation.
+- [04:55.361] They had -- this is what I inherited.
+- [04:57.764] And now we had it down where, just prior to the
+- [05:00.967] war, the inflation was 1.4 percent and -- for three
+- [05:05.438] months, over three month, four month period.
+- [05:08.107] It took me a little while to get it down from the
+- [05:10.843] levels it reached.
+- [05:12.612] Biden added $6 trillion worth of new regulations
+- [05:16.816] and created an estimated 356 hours of paperwork
+- [05:20.987] every year for small businesses.
+- [05:22.622] You know what that means better than anybody, it
+- [05:24.891] means no good.
+- [05:26.459] Their policies punished hardworking citizens and
+- [05:29.095] our policies protect you and reward you.
+- [05:32.098] And also, we have to have something else that I
+- [05:35.334] think is good for your businesses.
+- [05:37.203] We are respected all over the world now again, as a
+- [05:39.706] country.
+- [05:40.373] We were laughed at.
+- [05:41.040] We were a joke.
+- [05:41.708] We were a total joke.
+- [05:44.377] Right, Rick?
+- [05:45.044] I see Rick, my television star over here.
+- [05:47.447] He's been with us from the beginning, haven't you,
+- [05:49.315] like, maybe from the first speech, a long time,
+- [05:52.485] right?
+- [05:53.152] Thank you.
+- [05:53.920] Thank you very much.
+- [05:54.854] Well, I think we're doing good for you, Rick, right?
+- [05:57.190] And you're doing good with your shop?
+- [05:58.624] And --
+- [05:59.292] Rick Harrison: Everything's (Inaudible)
+- [06:00.626] The President: I know you're doing good on the
+- [06:01.994] television camera, so that's -- that's maybe
+- [06:04.530] more --
+- [06:05.198] Rick Harrison: (Inaudible) like ten years.
+- [06:06.566] The President: Ah, that's good.
+- [06:07.233] That's great.
+- [06:07.900] Thank you, Rick.
+- [06:08.901] Last summer, I proudly signed the Great, Big,
+- [06:11.704] Beautiful Bill, the largest tax cuts in the
+- [06:13.840] history of our country, and boosting millions of
+- [06:16.976] small businesses.
+- [06:17.877] Thank you.
+- [06:18.544] Yep.
+- [06:26.586] Boosting millions of small businesses.
+- [06:28.688] We passed no tax on tips, no tax on overtime and no
+- [06:32.992] tax on Social Security for our seniors.
+- [06:36.062] That's big stuff.
+- [06:36.929] And we add that to the package that we approved
+- [06:40.233] in my first term.
+- [06:40.933] We had the best financial years in the history of
+- [06:44.403] our country, my first term, and I think we're
+- [06:46.038] going to blow them away this term.
+- [06:48.541] In this term, we have $18 trillion being invested in
+- [06:51.744] our country.
+- [06:53.012] And if you look at the last administration, they
+- [06:55.615] had less than $1 trillion for four years.
+- [06:58.484] We have $18 trillion during 11 months.
+- [07:00.887] The 12th month hasn't come in yet in terms of the the
+- [07:04.590] numbers, but in 11 months, $18 trillion of
+- [07:08.060] investments.
+- [07:08.728] We have auto plants being built all over the
+- [07:11.063] country, AI plants.
+- [07:12.431] We're doing -- and we're leading China in AI.
+- [07:15.501] And I'm going to go see President Xi in two weeks.
+- [07:17.703] I look forward to that but I'll say, I'm leading.
+- [07:19.872] We have -- We have friendly -- we have very
+- [07:23.176] friendly competition, but it'll be -- actually,
+- [07:27.747] it'll be a very important trip.
+- [07:29.649] We provided 100 percent expensing and bonus
+- [07:33.386] depreciation, which is tremendous, one of the --
+- [07:36.355] the biggest things that you have.
+- [07:37.723] I mean, it's -- people have no idea how big that
+- [07:40.126] is.
+- [07:40.793] The businesses do.
+- [07:41.828] So that businesses can deduct 100 percent of the
+- [07:44.831] cost of new facilities, equipment and capital
+- [07:47.633] investment in the first year.
+- [07:48.868] It used to take 38 years of deduction.
+- [07:51.103] Now you get it done in one.
+- [07:52.538] You can take one, so you can expand.
+- [07:54.941] I think that's what made us so successful in the
+- [07:57.844] first term.
+- [07:58.511] But now we have it for a 10-year period, so you
+- [08:00.847] have it for a while.
+- [08:01.747] I really was going to make it for a one year period.
+- [08:03.616] That would mean you spend all your money
+- [08:04.984] immediately.
+- [08:06.152] Now, unfortunately, I gave you too much time.
+- [08:09.055] I was sort of against that.
+- [08:10.323] I said, let's do it for a shorter period of time,
+- [08:12.258] but we did it.
+- [08:13.125] It's the right thing.
+- [08:14.660] And this way, when I get out of office in, let's
+- [08:18.331] say, eight or nine years from now, I'll be able to
+- [08:22.034] use it -- I'll be able to use it myself.
+- [08:31.377] And to ensure that you and your family can keep your
+- [08:34.680] businesses in the family, we virtually eliminated
+- [08:38.050] the unfair estate tax or death tax for farmers and
+- [08:41.354] for small businesses.
+- [08:42.521] So, you know, oftentimes, you build -- I mean, I
+- [08:45.591] just met some incredible people.
+- [08:47.093] They have beautiful businesses, small
+- [08:48.661] businesses.
+- [08:49.695] They want to have their children -- Those
+- [08:51.697] businesses were all long-term.
+- [08:53.199] It was -- the father was there, right?
+- [08:55.134] We were just talking about with the beautiful
+- [08:57.470] pretzels.
+- [08:58.137] I said, pretzels, oh, those look good.
+- [08:59.705] I wanted to take some right now, but I didn't
+- [09:01.507] want to be rude and rip -- rip your bag apart.
+- [09:04.744] But the businesses were -- they've been in business
+- [09:08.281] for a long time, almost every one of them.
+- [09:11.117] And you pass away, you want to have your children
+- [09:15.254] take over your business.
+- [09:16.322] They work in your business and they got hit with
+- [09:18.858] estate tax, or we call it the death tax, but we call
+- [09:21.560] it both.
+- [09:22.228] It does the same thing.
+- [09:23.896] And they couldn't afford it.
+- [09:25.765] They went out, they take the business, they
+- [09:27.667] mortgage it up to pay the tax and they end up losing
+- [09:30.436] the business.
+- [09:31.103] They end up going bankrupt.
+- [09:32.772] They end up, in many cases, committing suicide.
+- [09:35.641] We have a lot of that.
+- [09:37.243] You have a lot -- especially farms.
+- [09:38.978] You know, they want to be on that farm.
+- [09:41.013] They don't want to lose their farm, and its land
+- [09:44.016] rich and cash poor.
+- [09:45.851] And they go out and they borrow and borrow and keep
+- [09:48.287] borrowing.
+- [09:48.955] We ended that.
+- [09:49.622] No more estate taxes on farms and small
+- [09:52.091] businesses, so I hope everyone's appreciative.
+- [09:55.394] Now, if you don't like your children, it doesn't
+- [09:57.263] mean anything.
+- [09:57.930] But if you do like to leave them to somebody
+- [10:00.800] that you love, then it's a big deal for them.
+- [10:03.903] You have other problems.
+- [10:05.705] But for them, it's a big deal.
+- [10:07.974] And I want to say, thanks to these tax cuts, 12
+- [10:11.877] million American small businesses got an average
+- [10:14.447] tax cut of over $7,000.
+- [10:16.916] And our pass through deduction alone is
+- [10:19.618] delivering an average of $4,600 in savings to eight
+- [10:23.622] million entrepreneurs, and is projected to generate
+- [10:26.826] $750 billion in economic growth for the country.
+- [10:31.297] And so many -- It's very -- really amazing.
+- [10:33.699] I see it on the television.
+- [10:36.335] I don't call this fake news because this is real
+- [10:38.337] fake news, but when -- when you look at some of
+- [10:41.707] the things that have taken place, we don't get
+- [10:44.110] covered correctly.
+- [10:45.011] But in terms of the truth, we -- we're having $5,000,
+- [10:49.081] $6000, $7,000, $10,000, $11,000 with no tax on
+- [10:53.886] tips and no tax on Social Security, no tax on
+- [10:57.056] overtime.
+- [10:58.124] And people are making sometimes $11,000 -- I
+- [11:00.993] mean, I've seen it just where they're asking
+- [11:03.129] people virtually on the street, how is it doing?
+- [11:06.032] And everyone's surprised, including me.
+- [11:08.134] I didn't know it was going to be as much, but I knew
+- [11:10.036] it was going to be a lot.
+- [11:11.003] But you have people that make an extra $7,000,
+- [11:14.140] $8,000, $9,000 a year between the no tax on
+- [11:17.376] tips, no tax on overtime is a big one.
+- [11:20.546] It's a big one.
+- [11:21.213] But the no tax on tip -- tips was great.
+- [11:24.250] I won -- I won the -- you know, typically, I don't
+- [11:32.925] know -- I don't know why.
+- [11:33.626] I can't imagine people voting for the other side
+- [11:35.795] with their policies on everything beyond this,
+- [11:37.830] long beyond this.
+- [11:38.564] But we won Nevada by a lot and typically Democrats
+- [11:42.835] win that state.
+- [11:43.736] And no tax on tips, a lot of people getting tips in
+- [11:47.673] Nevada.
+- [11:48.374] So it had a big impact on people and much bigger
+- [11:51.877] than they thought.
+- [11:52.645] And they're just now starting to realize how
+- [11:54.947] big and -- and how really wonderful the Great, Big,
+- [11:57.917] Beautiful -- I call it the Great, Big, Beautiful Bill
+- [12:00.052] is, because we -- we -- really, it should be
+- [12:03.189] called the great, big, beautiful tax cut bill and
+- [12:06.859] regulation cut bill.
+- [12:08.194] Uh, we put everything in four years -- if we didn't
+- [12:11.697] pass another bill, which won't happen because you
+- [12:15.501] always want to keep going, but everything was put
+- [12:18.137] into this one bill.
+- [12:19.405] That's why it's called the Great, Big, Beautiful
+- [12:21.607] Bill.
+- [12:22.274] And one of the one of the things that happened is we
+- [12:25.344] were going to do it over 17 different bills.
+- [12:28.414] And I said, let's give it a shot, put everything in
+- [12:31.417] one bill.
+- [12:32.084] And thank goodness we did it because the Democrats
+- [12:35.488] don't approve anything.
+- [12:37.089] They don't -- you can have the best thing it can be
+- [12:39.492] for security, look at the security.
+- [12:41.660] They want to defund ICE.
+- [12:43.195] They want to defund our incredible Border Patrol.
+- [12:47.633] They want to -- essentially, they wanted
+- [12:49.401] to defund the police, but they don't want to say it.
+- [12:51.670] It's crazy what's going on.
+- [12:53.005] So we put it all at the beginning.
+- [12:55.307] We have a little honeymoon period, a tiny little
+- [12:57.810] honeymoon period, in this case, and we got it all
+- [12:59.912] approved.
+- [13:02.014] Late at night, it got approved.
+- [13:03.649] And this was really done as a four year bill,
+- [13:06.652] Kelly.
+- [13:07.319] You know that very well.
+- [13:07.987] You were a big part of it.
+- [13:09.121] And we got it done and everybody was surprised.
+- [13:12.324] They thought we had to do it in little tranches.
+- [13:13.993] I don't know that we would have gotten the little
+- [13:15.461] tranches done.
+- [13:16.495] There was so much in here that people had to approve
+- [13:20.466] it, and if we would have done it individually, I'm
+- [13:23.169] not sure it would have gotten done.
+- [13:24.503] Plenty of those individual elements would not have
+- [13:27.273] gotten done.
+- [13:27.940] And almost as important as the tax cuts, we've
+- [13:30.676] slashed a record number of job-crushing regulations.
+- [13:32.912] That includes for you, and that includes tremendous
+- [13:36.815] numbers of environmental regulations, which stop
+- [13:39.652] your businesses.
+- [13:40.352] But they didn't do anything and they had no
+- [13:42.188] impact.
+- [13:42.855] If anything, they made the environment worse.
+- [13:45.357] But we eliminated 129 old regulations for every new
+- [13:49.028] one that was approved.
+- [13:50.729] It was supposed to be 1 in 10, and it's turning out
+- [13:53.999] to be 129.
+- [13:56.068] So for every regulation, think of that, 129.
+- [14:00.606] We lose them, we get rid of them.
+- [14:02.575] It was supposed to be 1 in 10.
+- [14:04.009] We would have been happy with -- we did 1 in 12.
+- [14:06.845] We -- we started off 1 in 7 with my last
+- [14:10.149] administration.
+- [14:10.883] We got it up to about 1 in 12.
+- [14:12.318] Now I see we have a 1 in 129.
+- [14:15.888] So we're getting rid of 129 nonsense regulations
+- [14:19.858] for every new one that we pass.
+- [14:21.894] And thanks to these pro-growth policies, our
+- [14:23.996] economy is roaring and factory construction is --
+- [14:26.799] is way up.
+- [14:28.234] Consumer confidence is way up.
+- [14:30.436] Business investment is more than triple compared
+- [14:33.772] to that of just a short time ago.
+- [14:36.342] And before I took office, nobody can believe it.
+- [14:38.944] And nobody can believe the $18 trillion number that
+- [14:41.714] we gave you, because it's a record for any country,
+- [14:44.650] not just here, it's for any country.
+- [14:46.452] A lot of that had to do with November 5th, but a
+- [14:49.154] lot of it had to do with tariffs.
+- [14:51.056] We charged tariffs to companies when they come
+- [14:54.026] in.
+- [14:54.693] A couple of you were just saying to me that you're
+- [14:57.062] getting hurt by China and other countries making a
+- [15:00.699] product that's not as good, but it's less money
+- [15:03.502] because of the fact that there were no guards, no
+- [15:06.405] safeties for you.
+- [15:07.306] And we've changed a lot of it.
+- [15:09.074] Some -- some have said you've -- you've
+- [15:10.809] absolutely saved our business.
+- [15:13.078] But because of the use of tariffs, we have all this
+- [15:15.681] money, because if they come in and build a
+- [15:17.383] business here, if they build their plant here,
+- [15:19.885] there are no tariffs.
+- [15:21.654] Jobless claims just hit the lowest level since
+- [15:24.423] 1969.
+- [15:26.125] And more Americans are working today than at any
+- [15:28.560] time in the history of our country.
+- [15:30.062] So we have more people working today than at any
+- [15:33.632] time in the history of our country.
+- [15:36.635] That's a beautiful -- That's a beautiful -- I
+- [15:39.405] mean, what could be better than that?
+- [15:40.873] You say -- like, somebody was saying, oh, will AI
+- [15:43.309] take our jobs?
+- [15:44.176] Well, we have a lot of AI up.
+- [15:45.844] They said, it's going to take jobs.
+- [15:47.179] I said, well, you're probably right, maybe a
+- [15:48.647] little bit, but it's going to create a lot of jobs.
+- [15:50.382] And did you know that more people are working in the
+- [15:52.918] United States right now than ever before?
+- [15:55.321] They said, no, is that true, really?
+- [15:57.289] That goes -- that's the end of that argument.
+- [15:59.825] And a lot of good things are happening.
+- [16:01.193] And leading in AI is very important because that's a
+- [16:04.530] tremendously big industry and we want to be able to
+- [16:08.233] lead.
+- [16:08.934] Primarily, it's China, but others -- other countries
+- [16:11.236] are very much active in it also.
+- [16:13.572] Under the last administration, 1 in 4 new
+- [16:16.008] jobs was a government job, but since my inauguration,
+- [16:19.645] 100 percent -- think of that, 100 percent of all
+- [16:23.248] new jobs have been in the private sector, 100
+- [16:26.819] percent.
+- [16:27.486] We cut a lot of government jobs.
+- [16:34.126] And two of the three new jobs have been in small
+- [16:36.729] businesses.
+- [16:37.396] But I just want to say, so think of that, 100 percent
+- [16:42.468] of new jobs are in the private sector.
+- [16:44.503] Now, to do that, we cut tremendous numbers of
+- [16:48.574] governmental jobs.
+- [16:49.708] And I feel sorry for everyone.
+- [16:52.745] And I -- you know, it's a hard thing to do.
+- [16:54.613] Many of those people voted for me, but now they like
+- [16:57.449] me because they went out, they got private sector
+- [16:59.518] jobs that they like better.
+- [17:00.786] And it's paying them sometimes two and three
+- [17:02.788] times more money, so it's worked out the right way,
+- [17:06.458] but you have to do that.
+- [17:07.493] You can't just give -- I mean, we had jobs.
+- [17:09.595] We had government jobs where you have 10 people
+- [17:13.065] doing the job of one person.
+- [17:15.033] And it just -- it's -- you can't make America great
+- [17:19.571] that way.
+- [17:20.239] So we did it the hard way, but the correct way and
+- [17:25.511] the correct way.
+- [17:26.178] Big difference, right, Kelly?
+- [17:27.246] You see it.
+- [17:28.313] It's -- nobody's ever seen anything quite like it and
+- [17:30.849] it was -- especially working here, it's tough
+- [17:35.187] because, you know, this is the home of federal jobs.
+- [17:39.258] I wouldn't say I got tremendous -- I mean, you
+- [17:41.660] know we won the election in a landslide.
+- [17:43.862] We got -- we won all seven swing states.
+- [17:46.565] We did all the things that you've heard so many
+- [17:48.434] times.
+- [17:49.101] With counties, which is a big count.
+- [17:51.470] That's why you see the map is all red practically
+- [17:53.739] when you look at it.
+- [17:54.907] We won 86 percent of the counties in the country.
+- [17:57.576] But here is a little bit different, but now if you
+- [18:00.913] look at those people, some of them have left.
+- [18:03.715] And by the way, speaking of that, Washington, DC,
+- [18:07.085] which was very unsafe a year ago, a little more
+- [18:10.422] than a year ago, is now one of the safest cities
+- [18:13.492] in the United States, so pretty good.
+- [18:21.300] So we had to cut the jobs because we were way
+- [18:23.669] bloated with federal jobs.
+- [18:25.137] And, you know, I could make -- I could with one
+- [18:27.706] swipe of the pen, I could say, let's have no
+- [18:29.975] employment and I'll hire a million people or two
+- [18:32.110] million people.
+- [18:32.811] I say, we just hired a million people and we have
+- [18:35.247] absolutely no employment and that's what they would
+- [18:37.683] do.
+- [18:38.417] They'd have bad numbers coming up, so they'd hire
+- [18:40.519] a couple of hundred thousand people and the
+- [18:43.055] numbers would look OK.
+- [18:44.656] With me, it's the exact opposite.
+- [18:46.291] We terminate a lot of federal jobs that are
+- [18:49.294] unnecessary.
+- [18:50.796] And they don't like me for doing it, but a year
+- [18:53.665] later, they like me because they end up having
+- [18:56.034] a much better job, oftentimes in a place
+- [18:59.171] where they'd much rather live.
+- [19:00.639] You know, they go to the place that they want to
+- [19:02.107] go.
+- [19:02.774] They're not stuck in Washington or someplace
+- [19:05.277] else, and they do much better.
+- [19:08.981] And in the end -- I mean, I've had a lot of people
+- [19:10.682] come up they say, I was so angry at you, but now I'm
+- [19:12.985] making sometimes two or three times the money in a
+- [19:15.854] job that I really like.
+- [19:16.922] So you got to do what you have to do you have to.
+- [19:20.125] Politically, I don't know if it's good, bad or
+- [19:22.261] indifferent.
+- [19:22.928] I think it's probably bad, maybe politically.
+- [19:24.863] But in the meantime, I'm in the White House, so
+- [19:27.566] maybe it's good.
+- [19:28.600] A lot of times -- a lot of times -- You know, as you
+- [19:36.108] probably heard, the fake news media treats me very,
+- [19:38.877] very badly.
+- [19:39.578] 93 percent of the stories I get are bad, and yet I
+- [19:42.981] won in a landslide.
+- [19:43.949] How do you win all seven swing states when you get
+- [19:46.084] only bad press?
+- [19:46.985] It's fake press.
+- [19:48.353] They give me fake polls.
+- [19:49.688] They tell me about polls and this -- you know, it's
+- [19:52.391] -- it's interesting.
+- [19:53.058] They did a poll on the war with Iran, and they said
+- [19:58.397] only 32 percent of the people like it.
+- [20:00.399] Well, I don't like it and I don't like war at all
+- [20:02.634] but we're equipped better than -- we have the
+- [20:04.803] greatest military in the world.
+- [20:06.004] You saw what happened with Venezuela.
+- [20:07.706] You see what happens with everything.
+- [20:09.508] But they said 32 percent of the people are against
+- [20:12.911] President Trump.
+- [20:13.712] Well, when you explain it, like, is it OK for Iran to
+- [20:18.250] have a nuclear weapon?
+- [20:20.018] It wouldn't be 32 percent.
+- [20:21.687] But even if you said that, there'd be a 32 percent
+- [20:24.156] because the polls are fake.
+- [20:25.223] I mean, they're totally fake.
+- [20:26.892] And when you take a look at what's really going on
+- [20:30.095] -- the other day I made a speech in a great Florida
+- [20:33.832] senior citizens' community, and I made
+- [20:36.568] another one at the Kravis Center, two in one day.
+- [20:38.704] It was wonderful.
+- [20:39.504] I go out and make a speech, then I say, all
+- [20:42.040] right, let's go home.
+- [20:43.208] Sir, you're making another speech and this one is in
+- [20:45.744] front of the richest people in the world.
+- [20:47.312] I went from an unbelievable group of
+- [20:50.349] seniors.
+- [20:51.016] Now, of course, I'm not a senior.
+- [20:52.351] I'm far younger than a senior.
+- [20:53.552] It's true.
+- [20:54.920] I feel like -- I feel the same as I felt 50 years
+- [20:57.990] ago.
+- [20:58.657] I don't know.
+- [20:59.324] There'll be a -- there'll be a period of time when I
+- [21:00.993] don't tell you that.
+- [21:01.893] There'll be -- because I'm honest.
+- [21:03.662] I'll say, it's not looking good.
+- [21:05.464] I have to be careful.
+- [21:06.198] If I said, as an example, I'm not feeling well, OK,
+- [21:10.736] they put on, Donald Trump is not feeling well,
+- [21:13.171] because they'll just -- They won't know that I'm
+- [21:16.141] using that as just a reference point and
+- [21:18.110] they'll say, listen to this.
+- [21:20.312] And I'll say, I'm not feeling well.
+- [21:22.447] Well, someday I might say that to you and you'll be
+- [21:25.617] the first to know.
+- [21:26.284] Actually, I won't have to say it, because you'll be
+- [21:28.720] able to see it, just like you did in the last
+- [21:30.756] administration, you know?
+- [21:34.159] You know, one of the things I said is that we
+- [21:37.062] should have, in my opinion, anybody running
+- [21:39.765] for president or vice president should take a
+- [21:41.700] cognitive test.
+- [21:43.268] And no president has ever taken one except me.
+- [21:47.773] I've taken three of them, and I've aced each one,
+- [21:51.009] one in the first administration, two over
+- [21:54.012] here.
+- [21:54.680] And whenever they get a little sassy, like, does
+- [21:56.415] he still have it?
+- [21:57.716] Does he still have what it takes?
+- [22:00.118] I say, all right, I'll take another one.
+- [22:01.653] And they are hard.
+- [22:02.721] There are many people in this room I know that are
+- [22:04.456] smart; they're not going to ace them.
+- [22:06.324] There are many people standing back there, the
+- [22:08.193] fake news media there.
+- [22:09.327] (Laughter) I'd like to have them -- you know, the
+- [22:11.797] first question is very easy, and they always show
+- [22:14.066] the first question, it's, you have a lion, a bear,
+- [22:18.236] an alligator and a -- what's another good -- a
+- [22:22.507] squirrel, OK.
+- [22:24.409] Which is the squirrel.
+- [22:25.977] So, they show that question and then the
+- [22:29.614] first four or five questions, they get a
+- [22:31.683] little more difficult.
+- [22:32.718] By the time you get to the middle, they're tough.
+- [22:34.886] By the time you get to the end, I don't want to be
+- [22:37.656] insulting, but there won't be -- I'm not going to do
+- [22:39.391] what Gavin Newsom said.
+- [22:40.759] You saw him?
+- [22:41.960] He said, everybody in here is stupid, and he's
+- [22:43.895] stupid, when he -- I think it was the worst political
+- [22:47.966] interview I've ever seen.
+- [22:49.101] He said, he's stupid, he's dumb, he gets bad marks on
+- [22:52.003] everything.
+- [22:52.671] He can't read his speech.
+- [22:53.572] And nobody wants to report that.
+- [22:56.608] It was the worst.
+- [22:57.275] But I won't say that because I think everyone
+- [23:00.579] in this room is brilliant, but nobody's going to get
+- [23:02.948] all 30 questions correct, nobody.
+- [23:06.351] Because when you get to those last questions,
+- [23:08.854] they're pretty hard, you've got to be pretty
+- [23:10.956] sharp.
+- [23:11.623] But every time -- so, I've taken three.
+- [23:13.325] No president, think of this, has ever taken one.
+- [23:17.496] How do you think Biden would have done?
+- [23:19.064] I don't think -- he might not have gotten that first
+- [23:21.333] question right.
+- [23:23.735] Anyway.
+- [23:24.503] And Obama would have done poorly.
+- [23:26.138] They would have done very poorly.
+- [23:28.173] But I think you should have it.
+- [23:30.575] As soon as I said that they say it's
+- [23:32.077] unconstitutional.
+- [23:34.212] And I said, why?
+- [23:35.547] They say it's unconstitutional to give a
+- [23:37.482] cognitive test like that.
+- [23:39.551] But Rick, I do it any time they start getting a
+- [23:41.486] little sassy.
+- [23:42.154] And you know, it quiets them down for almost a
+- [23:43.922] year when they hear the result.
+- [23:46.758] One doctor said, it's the first time I've ever seen
+- [23:49.427] anyone get all questions right.
+- [23:52.631] That's a doctor who does this stuff for a living,
+- [23:54.900] and I did it three times.
+- [23:56.635] So, I don't know, I think I'm done with those days.
+- [23:59.337] I'm tired of taking that test.
+- [24:01.573] You sit before a group of doctors and they ask you
+- [24:04.009] questions.
+- [24:04.676] I said to Ronny Jackson, he was original, right?
+- [24:06.044] First time.
+- [24:06.711] I said, so, what do you think, Ronny?
+- [24:08.914] They call me -- they call me a genius who's going to
+- [24:14.452] destroy the country.
+- [24:15.921] Then they said, he's a genius who's taken over
+- [24:18.557] the entire world.
+- [24:20.258] Then they said he's a total moron; this guy is
+- [24:23.094] so stupid.
+- [24:24.462] And then -- so, whenever I hear that one, I say,
+- [24:26.598] let's take the cognitive test.
+- [24:28.867] But I really think it would be a great thing if
+- [24:32.003] you could do that.
+- [24:32.737] They say it's not constitutional, but I
+- [24:34.873] think it would be good.
+- [24:36.308] And I can tell you, a lot of the people that run
+- [24:38.176] these small businesses, you could take the
+- [24:40.712] cognitive test, and you could do a lot better than
+- [24:42.881] some of the people that we talk about.
+- [24:45.083] But I really believe it; I think it's so important
+- [24:46.918] for our country.
+- [24:47.586] We have to make sure we have the right people
+- [24:49.487] leading this country.
+- [24:51.223] Like we have a war right now, and we're into like
+- [24:55.560] what, six weeks?
+- [24:57.028] They said, what's taking so long.
+- [24:58.797] We were in Vietnam 19 years.
+- [25:01.299] We were in Iraq for many years, 10 years, 12 years.
+- [25:06.471] We're in all these different wars, Korea,
+- [25:08.840] seven years; I won't even mention World War II,
+- [25:11.910] that's a big baby.
+- [25:13.578] But you had the wrong person up here, you'll be
+- [25:15.614] in World War III as sure as you're sitting there.
+- [25:19.551] You have the wrong person up there, it's nasty and
+- [25:21.953] tricky.
+- [25:22.787] It's tricky out there.
+- [25:23.955] We have to have we have to have the right people, and
+- [25:26.558] they have to be sharp, and they have to be smart.
+- [25:28.693] Because one thing about your businesses, small
+- [25:30.829] businesses are great, but if you don't have the
+- [25:33.198] platform, meaning the country, meaning the right
+- [25:35.634] principles, the right everything.
+- [25:37.535] Our country is booming now, despite the fact that
+- [25:39.838] we're in a -- I call it a mini war because that's
+- [25:42.540] all they are.
+- [25:43.775] They don't have a Navy anymore.
+- [25:45.944] Think of it, they had 159 ships.
+- [25:49.381] How many do they have left, Kelly, out of 159?
+- [25:51.950] Take a guess.
+- [25:53.118] She's very smart, zero.
+- [25:55.487] 159 ships -- in the first two weeks, 159 ships.
+- [26:00.859] I actually got very upset.
+- [26:02.127] I said, how quality were the ships?
+- [26:03.695] They were very good.
+- [26:04.362] I said, why didn't you just take the ship?
+- [26:06.564] Why do you have to send it to the bottom of the sea?
+- [26:08.800] We could have had -- we could have had -- and
+- [26:10.635] let's say out of the 159, we could have taken 59.
+- [26:14.105] We would have had 59.
+- [26:15.106] But they liked -- they'd rather blow them up than
+- [26:17.575] save them.
+- [26:18.243] I would have preferred saving them, but these are
+- [26:20.178] minor details.
+- [26:21.746] But one of the small business owners who can
+- [26:25.951] tell us firsthand how our tax cuts are boosting
+- [26:29.154] revenue is someone you may have heard, and I made
+- [26:31.823] mention of the fact.
+- [26:32.624] He has been with me -- I don't know, maybe he
+- [26:34.492] doesn't like me, or maybe he loves me.
+- [26:38.229] I think I'd rather be liked than loved by him.
+- [26:41.399] Although he is a very handsome man, I would say.
+- [26:44.302] But he's somebody that we all know and I really -- I
+- [26:46.471] think he's a fantastic guy.
+- [26:47.772] And he has, he's been to so many rallies, so many
+- [26:50.675] speeches.
+- [26:51.376] And I love being able to introduce him because he's
+- [26:54.646] a champion, he's a winner.
+- [26:56.348] You know, to go on television and to make it,
+- [26:58.283] he made it big.
+- [26:59.517] But to go on television -- I don't know if you know
+- [27:02.220] this, Rick.
+- [27:03.054] 5 percent of the shows make it, 2 percent of the
+- [27:06.257] shows make it pretty good, 1 percent of the shows
+- [27:08.426] make it.
+- [27:09.127] So, it's very risky to do a television show because
+- [27:12.430] -- and I did The Apprentice, and that was
+- [27:14.165] one of the great hits of a long time.
+- [27:17.502] But you did your show.
+- [27:19.471] And I've just always admired -- I admire people
+- [27:24.743] that will go against the odds.
+- [27:26.478] And when you do a television show, you're
+- [27:28.079] gone because very, very few of them make it, and
+- [27:31.116] you made it big.
+- [27:31.983] So, I'd like to have Rick Harrison come up.
+- [27:34.552] It's a gold and silver pawn shop in Las Vegas and
+- [27:39.324] you know his show very well.
+- [27:41.960] And say a few words, Rick, come on up.
+- [27:45.864] You're looking good.
+- [27:47.165] Thank you, Rick.
+- [27:48.500] Come on up thank you.
+- [27:50.668] Rick Harrison: All right, you know, usually I like
+- [27:53.538] announcement rallies; they give you like three
+- [27:55.240] minutes notice and I can't come up with a speech.
+- [27:56.941] And they like, literally just told me a couple of
+- [27:58.810] hours ago to take a little speaking.
+- [28:00.845] I just want to say he's amazing, he's done so
+- [28:03.782] much.
+- [28:04.449] I mean, so much for all of us.
+- [28:06.051] I mean, the backbone of this country is small
+- [28:08.086] business, plain and simple.
+- [28:09.587] And the last guy at office, all we heard was
+- [28:12.757] that we were the evil people.
+- [28:14.659] We were the bad people, everything else like that.
+- [28:17.529] We don't pay our fair share, whatever that's
+- [28:20.065] supposed to be, and he made it tough.
+- [28:22.634] And this guy, the Big, Beautiful Bill, absolutely
+- [28:25.170] amazing, you know what I mean?
+- [28:26.304] God bless you for letting me get 100 percent
+- [28:28.973] depreciation, it really helps out.
+- [28:30.675] And all I can say is this is literally -- I mean,
+- [28:34.646] I'm a history buff, and I know a lot about this
+- [28:36.414] White House thing and everything.
+- [28:37.849] Literally, he's going to go down as maybe the best
+- [28:40.185] president ever.
+- [28:40.852] I love this guy.
+- [28:46.191] The President: Wow, wow.
+- [28:51.763] I'm glad we didn't tell you because, actually,
+- [28:54.099] that was much better than when you're fully
+- [28:55.800] prepared.
+- [28:56.801] When he comes up fully prepared -- no, that was
+- [29:00.271] great.
+- [29:00.939] Thank you very much and a very special guy.
+- [29:03.475] Thank you.
+- [29:04.542] Very nice.
+- [29:05.844] One of the strongest -- and by the way, right
+- [29:08.313] behind me, see this?
+- [29:09.647] I call it -- you call it a room.
+- [29:12.250] This is the biggest room in the White House, not
+- [29:13.818] big enough to have anything.
+- [29:15.687] We had the king here, we had like 102 people, and
+- [29:18.857] we could have had 2,000 people, literally.
+- [29:22.026] But this is, I call it a knockout panel.
+- [29:24.896] See, some people would say, oh, that's a curtain,
+- [29:27.532] underneath that curtain is a window, outside of that
+- [29:30.135] window is the new ballroom.
+- [29:31.636] So, I said, I'll leave -- I'll get out of here and
+- [29:34.772] I'll let you guys, if you want to see a beautiful
+- [29:37.742] structure going up, complex, safe, things that
+- [29:42.213] could never happen like happened a week ago.
+- [29:45.483] That was a pretty bad situation.
+- [29:48.353] You can't have a thousand units over the ballroom
+- [29:50.488] with an entrance right next to where you are for
+- [29:52.957] a lot of reasons.
+- [29:53.758] So, if you want, we're going to open that up; I
+- [29:56.594] think later on you'll open it up, let the people take
+- [29:58.897] a look.
+- [29:59.664] And it would be pretty good.
+- [30:00.665] Not as exciting as looking at oil wells like Chris
+- [30:03.434] gets to do all day long, right?
+- [30:05.403] And speaking of that, we're doing well in
+- [30:07.138] Venezuela, right?
+- [30:08.139] It's working good.
+- [30:08.840] Chris Wright: Yes, we are, Mr. President.
+- [30:10.441] The President: Yeah, that was good.
+- [30:11.776] That war took us approximately 48 minutes.
+- [30:16.014] And actually, and we have a great relationship and
+- [30:21.119] -- you know what?
+- [30:22.987] I heard the other day that the people of Venezuela
+- [30:28.092] are really happy.
+- [30:28.860] They're seeing things happen that they haven't
+- [30:30.395] seen in 20 years.
+- [30:32.130] They're working and they're just -- there's a
+- [30:34.199] spirit in Venezuela that they haven't had in many,
+- [30:37.702] many years.
+- [30:38.369] And the big companies are coming in now, and they're
+- [30:40.905] building these giant rigs because there's a lot of
+- [30:43.474] oil in Venezuela, a lot of other things too, and a
+- [30:46.211] lot of great people.
+- [30:47.779] And we have people in charge that are doing a
+- [30:49.847] fantastic job, and they're working with you and you
+- [30:52.617] are doing a fantastic job.
+- [30:54.052] So, thank you very much, Rick, good job.
+- [30:55.720] Proud of you.
+- [30:56.421] Chris Wright: The people of Venezuela are very
+- [31:01.359] thankful for your proud and bold leadership to
+- [31:06.297] change the trajectory of their lives.
+- [31:10.001] The President: Come here.
+- [31:12.470] This was so good I said, you'd better come up.
+- [31:18.643] Chris Wright: No, no, I want to say, as you engage
+- [31:21.913] with the people of Venezuela and the
+- [31:23.348] businesses, I will tell you that President Trump
+- [31:26.417] is incredibly popular with the people of Venezuela --
+- [31:29.787] it's a nation of 30 million people going the
+- [31:31.956] wrong way for 25 years.
+- [31:34.826] And the bold leadership of this president changed the
+- [31:38.296] trajectory of that country, changing the
+- [31:40.932] futures of all those people, wanted millions of
+- [31:43.468] Venezuelans abroad to go back to that country.
+- [31:45.903] American businesses are stampeding in to invest in
+- [31:49.974] that country.
+- [31:51.042] 25 years trying everything going the wrong way.
+- [31:54.178] His bold leadership and creative thinking changed
+- [31:56.748] the game.
+- [31:57.582] Thank you, Mr. President.
+- [31:58.549] The President: Wow, thank you.
+- [32:06.457] We have a great relationship.
+- [32:08.559] We have hundreds of millions of barrels of oil
+- [32:11.896] coming out of Venezuela, going to Houston and
+- [32:14.299] different places to have it refined.
+- [32:16.467] And we're sort of -- it's almost really a
+- [32:19.404] partnership.
+- [32:20.705] The man you just heard speaking, Chris, has been
+- [32:23.608] -- he wasn't my choice.
+- [32:26.544] He was -- I had somebody else for Department of
+- [32:30.148] Energy, a fantastic man, Doug Burgum.
+- [32:33.084] And I said, I want you to head up energy.
+- [32:35.153] He says, no, there's one person better than me,
+- [32:37.989] he's better than anybody.
+- [32:39.157] I said, who the hell is that?
+- [32:40.458] Chris Wright?
+- [32:41.859] I said, who's Chris Wright, tell me.
+- [32:43.328] And he's like the number one guy in the whole world
+- [32:47.265] at this subject.
+- [32:49.067] And I said, well, let's talk to him.
+- [32:50.501] I don't know, he probably makes a lot of money if
+- [32:52.370] he's doing that, and he was.
+- [32:54.272] He's taken one of the largest salary cuts in
+- [32:56.341] history, I'll tell you, without question, but he's
+- [32:59.210] done a fantastic job.
+- [33:00.845] These are the people we have.
+- [33:01.779] We have great people.
+- [33:02.647] And Doug is great; he was the governor of North
+- [33:04.615] Dakota.
+- [33:05.583] He ran an incredible state.
+- [33:07.285] He was very successful in business.
+- [33:09.354] He started with a small business.
+- [33:10.855] He sold it for $1 billion to Microsoft, and he
+- [33:14.759] wanted to do what Trump did.
+- [33:15.960] He said, I want to be a business guy, and now I
+- [33:18.096] want to run -- I made a lot of money, I want to
+- [33:19.797] run.
+- [33:20.565] So, Doug Burgum ran and he became a great governor
+- [33:23.034] for eight years, he was term limited.
+- [33:25.236] And I saw him at a session, a speaking
+- [33:29.374] session and sort of a debating session, I
+- [33:31.409] thought he was great.
+- [33:32.777] And I said, if I win, I'm going to get that guy in.
+- [33:35.747] And he's now heading up -- he's now the largest
+- [33:39.117] landlord in the world, I guess you could say,
+- [33:40.985] right?
+- [33:41.652] Department of Interior, and he's been fantastic.
+- [33:44.021] But he wanted Chris to be energy.
+- [33:46.357] So, he's got all the power of the energy, but he
+- [33:48.059] doesn't have the land.
+- [33:49.394] Doug has none of the power of him, but he has the
+- [33:52.764] land.
+- [33:53.531] So, I merged them.
+- [33:55.166] It's a friendly merger, we don't have any papers,
+- [33:57.168] they just get along together, right?
+- [33:59.203] And we've I think today we've announced we're
+- [34:01.739] drilling more oil, by far, than we ever have in the
+- [34:06.344] history of our country.
+- [34:07.412] More oil and gas by far.
+- [34:09.580] And this was just said, but this took place almost
+- [34:14.452] from the beginning, right?
+- [34:15.553] We got it started very, very early.
+- [34:17.054] So, you're doing a great job, Doug was right.
+- [34:19.524] And we're also very happy with Doug because he's
+- [34:21.526] doing a fantastic job.
+- [34:22.693] Thank you very much, Chris, appreciate it.
+- [34:28.332] So, one of one of the strongest effects of our
+- [34:31.436] tax cuts and tariffs is the Trump manufacturing
+- [34:35.706] boom is what they're calling it, because that's
+- [34:37.442] what we have.
+- [34:38.109] We have never had anything like what's happening now.
+- [34:40.445] And when I talk about, again, the $18 trillion
+- [34:42.613] that's coming in and building places.
+- [34:46.083] And as we speak, American companies are ordering
+- [34:49.554] core capital goods for factory construction and
+- [34:51.989] operation expansion.
+- [34:53.558] And you saw the construction numbers.
+- [34:55.827] Now the plants will be opening over the next
+- [34:58.663] period of time, pretty soon but, you know, we
+- [35:00.998] just got started.
+- [35:02.433] And these plants are going to be opening -- right now
+- [35:04.635] the big number is the construction jobs in the
+- [35:07.004] country are going through the roof.
+- [35:08.873] And ultimately, when the plants open, then you're
+- [35:11.108] going to have manufacturing jobs.
+- [35:12.610] Because right now, the plants, many of them
+- [35:14.812] haven't opened, but they're under
+- [35:16.147] construction.
+- [35:16.814] When you see the final numbers, you're not going
+- [35:19.350] to even believe what you are seeing because there's
+- [35:22.286] never been any construction boom of
+- [35:24.255] factories like we have right now.
+- [35:25.923] We lost our car industry, we lost 54 percent of our
+- [35:29.393] car industry to Canada, Mexico, Germany, Japan,
+- [35:34.999] South Korea, other countries.
+- [35:37.535] 54 percent over the years, over a period of probably
+- [35:40.972] 30-35 years.
+- [35:43.074] And they're all coming back, they're all coming
+- [35:45.543] back.
+- [35:46.210] And they're coming back at levels that has never been
+- [35:48.646] seen before.
+- [35:49.413] It's pretty amazing, wait till you see, you'll see
+- [35:52.183] it.
+- [35:52.884] It can't be disguised by our friends that would --
+- [35:55.520] I guess -- I don't know.
+- [35:56.787] I see so many of them smiling and having a good
+- [36:00.458] time that I actually think they probably like us.
+- [36:03.094] I think their bosses say treat Trump as badly as
+- [36:06.597] you possibly can.
+- [36:08.065] But they have so many good faces and so many -- they
+- [36:10.801] are a lot of professionals there.
+- [36:13.237] But it's the highest rate in over four decades.
+- [36:16.407] And under four years of the Biden administration,
+- [36:19.477] real wages for manufacturing workers
+- [36:21.712] fell.
+- [36:22.780] It fell $840.
+- [36:26.450] Under one year of Trump, wages for factory workers,
+- [36:30.254] manufacturing factory workers increased by
+- [36:33.858] $2,500.
+- [36:36.727] So, think of that -- under Biden, it fell $840, and
+- [36:41.599] under Trump it went up $2,500.
+- [36:43.935] That's quite a difference.
+- [36:45.603] And as I said, you haven't seen the real effect
+- [36:54.145] because these factories are being built right now.
+- [36:56.314] When they open, you're going to see numbers that
+- [36:57.915] are much greater than that.
+- [37:00.418] And a lot of these government workers,
+- [37:02.119] government workers, good people and, you know, I
+- [37:04.956] don't blame them for liking what they had.
+- [37:07.258] But they're going to all be in the system and
+- [37:09.427] they're going to be making double and triple what
+- [37:11.162] they were making in government.
+- [37:12.363] We have a country, again, because you can't have a
+- [37:14.865] country that works where you have, literally, 10
+- [37:18.769] people to do one job.
+- [37:21.305] You can't have it, you can't you can't have a
+- [37:23.407] great country.
+- [37:24.075] Earlier this year, I visited Coosa Steel in
+- [37:26.844] Rome, Georgia.
+- [37:27.612] Before I took office, China and other countries
+- [37:30.047] were taking more of our industry all the time,
+- [37:32.850] just more and more.
+- [37:33.851] And Coosa was hit very hard.
+- [37:35.853] Their core business dropped from two shifts to
+- [37:38.856] six days a week, and the two shifts were during my
+- [37:42.360] administration, by the way.
+- [37:44.295] But now it's down to a very -- and then
+- [37:47.732] ultimately is down to one shift, operating three
+- [37:51.736] days and it was going down to one day and they
+- [37:53.804] expected to go out of business, there was no
+- [37:55.573] stopping it.
+- [37:56.807] And now, thanks to the tax cuts and the steel tariffs
+- [38:01.045] that I put on, Coosa is thriving like never
+- [38:03.848] before.
+- [38:04.515] I just heard from them and they're at now full
+- [38:07.451] shifts, two full shifts, six days a week and they
+- [38:11.389] may go to a third shift round the clock.
+- [38:14.692] Think of that, round the clock.
+- [38:17.094] They've never had that before and they have a
+- [38:19.263] backlog of seven months long of things that
+- [38:22.767] they're building, steel products, great.
+- [38:25.002] And they said -- I was with the gentleman that
+- [38:27.738] owns the company, he thought he was going out
+- [38:29.306] of business, and now he's -- he said, now I have a
+- [38:31.409] great business in just a period of literally a year
+- [38:34.311] and a half.
+- [38:34.979] We thought we couldn't stop it.
+- [38:38.749] And he said, all of my friends up and down the
+- [38:40.918] line, they have different businesses, factories, big
+- [38:43.254] businesses, but they all thought they were going
+- [38:45.656] out of business, and now they're all doing better
+- [38:47.358] than they've ever done before.
+- [38:49.393] And they've gone from employing, in this case,
+- [38:51.362] Coosa, 50 people to 125 people, and the 50 people
+- [38:55.533] is going down to about 14 or 15, and now they're at
+- [38:58.836] 125, and they're looking for additional people to
+- [39:01.405] work.
+- [39:02.273] And I want to thank their President, Andrew Saville,
+- [39:06.677] who I think maybe is here.
+- [39:07.978] Andrew, are you here someplace?
+- [39:09.747] Where are you, Andrew?
+- [39:10.648] Wow, you want to say something?
+- [39:13.617] Come on up here.
+- [39:16.420] He's so got -- he really understood what was
+- [39:19.724] happening and I think it would be nice.
+- [39:21.125] You weren't supposed to speak so I hope you're not
+- [39:22.893] nervous.
+- [39:23.561] Come here.
+- [39:24.762] Andrew Saville: No, you make it easy.
+- [39:26.597] The President: Thank you very much.
+- [39:28.265] Andrew Saville: The thing that took us right to the
+- [39:30.234] top was your tariffs.
+- [39:31.535] I think everybody in here that runs a small
+- [39:34.004] business, the tariffs had an effect on you one way
+- [39:37.141] or another and that is just taking us -- all the
+- [39:39.643] jobs that were going to China, you brought them
+- [39:41.912] back and it really took us to the next level.
+- [39:44.982] And we were honored to have you come down to our
+- [39:54.492] company.
+- [39:55.292] So, thank you for having me back here.
+- [39:56.794] I wasn't prepared to speak, so I'm going to get
+- [39:59.063] off the stage.
+- [39:59.730] Thank you, Mr. President.
+- [40:00.564] The President: You do better when you don't know
+- [40:05.736] you're speaking.
+- [40:07.304] You know what?
+- [40:08.272] There's a little truth to that, Rick.
+- [40:09.940] When you -- sometimes you don't think you're going
+- [40:12.710] to introduce somebody, you know they're in the
+- [40:14.445] audience, but they don't know and they end up doing
+- [40:16.881] better because they speak from the heart.
+- [40:19.216] They have no choice.
+- [40:21.152] They can't think about all night long what am I going
+- [40:23.053] to say?
+- [40:23.721] And then you get up and you bore the place.
+- [40:25.890] No, it's very good.
+- [40:27.124] You speak from the heart and that's true, tariffs
+- [40:31.829] we're a very big part.
+- [40:32.797] We had an unfortunate ruling out of the Supreme
+- [40:34.965] Court, but the good news is I'm able to do it a
+- [40:38.035] different way.
+- [40:38.702] They said use the other way.
+- [40:39.837] There was no reason for that, it was terrible --
+- [40:41.806] actually terrible.
+- [40:42.773] But it will have no impact other than I hate to pay
+- [40:47.711] people back tariffs.
+- [40:49.280] $159 billion I have to pay them back when a little
+- [40:51.849] half sentence -- any money taken in to this point
+- [40:53.184] does not have to be paid back.
+- [40:53.851] We would have saved $159 billion.
+- [40:55.186] And I cannot figure it out.
+- [40:55.853] How could anybody do that?
+- [40:56.720] But they did it.
+- [41:07.398] We have other ways of tariffing, as you know,
+- [41:10.634] we're already doing it.
+- [41:12.803] And actually, they're more tested, they're stronger,
+- [41:15.372] a little bit more complex.
+- [41:17.174] I like to keep it as simple as possible, and in
+- [41:19.977] many ways, they'll be better.
+- [41:21.212] It'll be better.
+- [41:21.946] I just want you to not to think that because of that
+- [41:23.881] decision, we don't do the tariffs will actually be
+- [41:26.483] higher it's turning out; they're going to be even
+- [41:28.719] higher, but it's made our country rich, really rich.
+- [41:33.557] And it's like Andrew said, I mean, we -- without
+- [41:36.827] them, there would be nothing we could do to
+- [41:38.562] save your country, nothing.
+- [41:40.264] It's the greatest word.
+- [41:41.298] Remember, I used to say it's my favorite word in
+- [41:43.567] the dictionary, the word tariff.
+- [41:44.969] And then the fake news got on me.
+- [41:46.937] They said, well, what about God?
+- [41:49.573] What about your wife?
+- [41:50.407] What about your family?
+- [41:52.009] What about -- so they were just killing me because I
+- [41:54.612] said, it's my favorite word.
+- [41:55.913] I said, all right, it's my fifth favorite word.
+- [41:57.982] I put -- so it's my fifth favorite word.
+- [42:01.252] But because of tariffs and, you know, the proper
+- [42:03.821] use of tariffs, you have to use them in a certain
+- [42:06.056] way, but, you know, we've been ripped off in this --
+- [42:08.459] I've been talking about it for years.
+- [42:09.793] We've been ripped off in this country for decades.
+- [42:13.030] We lost our car industry.
+- [42:14.498] Think of it.
+- [42:15.532] There's a person here making utensils, beautiful
+- [42:18.769] forks and knives and things.
+- [42:20.304] Where is that person?
+- [42:21.405] Where is -- around here somewhere.
+- [42:22.773] Stand up.
+- [42:23.974] And -- and he was telling me, he said, China's
+- [42:25.876] coming in and they're ripping us and -- and we
+- [42:28.312] have a tariff.
+- [42:28.979] It's 25 percent.
+- [42:29.980] But it's not enough because, you know, they
+- [42:32.850] have certain advantages that you're not going to
+- [42:36.353] have and -- but the advantage you have is you
+- [42:38.689] have a higher quality product.
+- [42:40.958] And I'm going to be able to take care of that very
+- [42:43.060] easily, you know, just by putting it up.
+- [42:44.995] You'll have -- you'll be treated fairly.
+- [42:47.131] It's just really tough.
+- [42:48.732] And it's amazing you've done as well as you've
+- [42:50.834] done, but you did that because of the quality of
+- [42:53.337] your product.
+- [42:54.004] We have such quality.
+- [42:54.939] North Carolina, if you take a look, I'm going to
+- [42:57.274] put tremendous tariffs on -- it's -- that process
+- [43:00.311] has already started.
+- [43:01.245] It takes me longer now because of the Supreme
+- [43:03.147] Court decision to have to go through a process.
+- [43:05.616] It's ridiculous.
+- [43:06.617] But we don't like it.
+- [43:08.886] We like to do what's right and get it done, instead
+- [43:11.155] of having to do a report, which is going to come out
+- [43:14.458] and say the exact same thing that everyone knows.
+- [43:16.460] But you can tell the people in North Carolina
+- [43:18.862] that -- uh, you know, we used to have a great
+- [43:21.365] furniture business.
+- [43:22.066] I built a lot of hotels and a lot of different
+- [43:24.335] buildings where I need furniture.
+- [43:25.669] I would go to North Carolina.
+- [43:26.904] These were great artists.
+- [43:28.272] And China essentially put them out of business
+- [43:31.141] because we never had -- we didn't have a president
+- [43:33.544] that was willing to do it, happened before my -- my
+- [43:36.146] term.
+- [43:36.814] They've been out of business for a long time.
+- [43:38.182] I used to go down there and see these people.
+- [43:40.351] They were artists with wood.
+- [43:42.653] I'd say, I'd like to make the handle a little bit
+- [43:44.588] slimmer, ding, ding, ding, ding, ding.
+- [43:47.057] It's like -- it was like magic and we lost that
+- [43:50.027] whole thing.
+- [43:50.894] You can see it's coming back because we're putting
+- [43:52.830] tariffs on furniture where you'll be able to more
+- [43:56.000] than compete.
+- [43:57.234] We're going to protect -- we have to protect our
+- [43:58.836] businesses.
+- [43:59.503] Same thing with you in the utensil business.
+- [44:02.072] Your stuff is so beautiful, but it's very
+- [44:04.208] tough when you're competing against
+- [44:06.210] something that is cheap and, you know, because of
+- [44:09.880] the lack of protection that you've been given.
+- [44:12.649] It just puts you out of business.
+- [44:14.051] So you actually said, thank you for the tariffs,
+- [44:16.453] but the tariffs really aren't high enough, in my
+- [44:18.322] opinion, in that particular thing.
+- [44:20.257] But with the furniture, we're going to bring all
+- [44:22.259] the furniture back to North Carolina and you're
+- [44:24.962] going to see, uh -- it'll be as robust as it was 25,
+- [44:29.700] 30 years ago, the greatest furniture people in the
+- [44:33.404] world.
+- [44:34.438] And they got stolen.
+- [44:36.206] They really didn't take them.
+- [44:37.941] They found people in China that could do it and all
+- [44:40.644] those people got put out of jobs and their -- their
+- [44:43.047] kids have that same ability.
+- [44:45.115] And you watch what happens, how good it is in
+- [44:47.284] North Carolina, because I've been -- I've had to
+- [44:49.853] go through a process to get that approved, but now
+- [44:52.489] it's approved and you're going to be, again, the
+- [44:55.225] furniture capital of the world, because nobody can
+- [44:57.694] do that quality.
+- [44:58.529] And I know the quality.
+- [44:59.463] I buy a lot of things from China and -- because I was
+- [45:02.699] forced to.
+- [45:03.367] You know, when I was in the hotel business, I was
+- [45:04.902] forced to buy from China because of pricing,
+- [45:08.138] because of pricing and because of -- for other
+- [45:10.374] reasons.
+- [45:11.308] What I wasn't getting was the kind of quality that
+- [45:13.977] we were getting here.
+- [45:15.579] And now you'll have a combination of both, so
+- [45:17.714] you can let that be known.
+- [45:18.882] I don't know if that's breaking news or not for
+- [45:20.451] these people, but, to me, it's very important.
+- [45:23.187] I've been wanting to do it for a long time, and now
+- [45:25.222] we have it pretty well ready.
+- [45:28.225] So -- and we love North Carolina.
+- [45:31.495] My administration is also committed to ensuring that
+- [45:34.698] American small businesses have access to the credit
+- [45:38.102] and capital that they need under Administrator
+- [45:41.238] Loeffler, who's phenomenal.
+- [45:42.973] She is phenomenal.
+- [45:50.047] And she's got a great husband, Jeff, and he's a
+- [45:52.516] friend of mine and he's a very successful man and
+- [45:55.219] he's a great man, and he's got a great wife.
+- [45:57.855] And I'm so happy getting her in this position.
+- [46:01.358] She replaced a woman who was a very legendary
+- [46:04.161] woman, Linda McMahon, who's now in education.
+- [46:06.396] She's doing a great job.
+- [46:07.397] She's moving education back to the states, where
+- [46:09.733] it belongs, and Kelly is doing great.
+- [46:14.738] But last year, Kelly, our Small Business
+- [46:16.673] Administration issued $7 billion in loans to 11,000
+- [46:21.011] new startups, as well as $1.3 billion in loans to
+- [46:24.882] 3,000 veteran-owned small businesses and $3.2
+- [46:28.752] billion -- yeah, big business, you know, that's
+- [46:31.355] why I say, how can we call it small business?
+- [46:34.057] $3.2 billion to American manufacturers helping
+- [46:37.427] restore those beautiful words, made in the USA,
+- [46:40.964] where we're using them more and more.
+- [46:42.366] We have things being made here that nobody thought
+- [46:44.801] it was even possible for it to come back, like
+- [46:47.437] you'll see in North Carolina with the
+- [46:48.939] furniture.
+- [46:49.606] It'll come back very, very rapidly.
+- [46:52.075] So, Kelly, I'd like to ask you to say a few words,
+- [46:54.211] please.
+- [46:54.878] Kelly Loeffler: Thank you.
+- [46:58.582] Thank you, Mr. President.
+- [47:03.053] First of all, you are the most pro-growth, pro small
+- [47:06.423] business president in American history.
+- [47:08.792] Thank you.
+- [47:11.094] It's such an honor to join you here at the White
+- [47:16.033] House to recognize National Small Business
+- [47:18.202] Week.
+- [47:18.869] And you're the greatest commander in chief ever,
+- [47:22.105] but also one of America's greatest businessmen and
+- [47:25.676] small businesses know that.
+- [47:28.245] They see that this administration is shifting
+- [47:30.714] power and capital from fraudsters and Washington
+- [47:35.319] bureaucrats back to Main Street job creators, just
+- [47:38.855] like we have gathered in this room today.
+- [47:41.124] Fair trade deregulation and the working family tax
+- [47:44.962] cuts in the One Big, Beautiful Bill, they are
+- [47:47.564] powering real opportunity that I see all over as I
+- [47:50.834] travel this country, especially after four
+- [47:54.037] crushing years of Bidenomics and decades of
+- [47:58.008] shipping our jobs and our industries overseas,
+- [48:01.979] hollowing out our local communities.
+- [48:03.981] The President: That is ending.
+- [48:06.650] As I travel the country each week and,
+- [48:08.552] Mr. President, I've traveled with you from
+- [48:10.654] Iowa's Machine Shed restaurant to Georgia's
+- [48:13.490] Coosa steel factory, America first policies are
+- [48:17.160] restoring the American Dream on Main Street to
+- [48:19.863] new heights, at generational businesses
+- [48:23.133] like Jimmy's Famous Seafood, at industrial
+- [48:26.403] innovators like Prince Manufacturing in Georgia
+- [48:29.339] and Blue Patriot in Nebraska, who are building
+- [48:32.442] big, beautiful, new buildings thanks to the
+- [48:35.846] working family tax cuts.
+- [48:37.814] Kelly Loeffler: Today, 98 percent of US
+- [48:39.683] manufacturers are small businesses.
+- [48:42.452] They're a critical part of securing our supply chains
+- [48:45.989] and while they contribute to national strength
+- [48:48.892] across all kinds of industries, from energy to
+- [48:52.562] agriculture to defense and aerospace, America's big
+- [48:57.200] manufacturers rely on these producers and their
+- [49:00.003] skilled workers.
+- [49:00.937] And that's why President Trump's economic agenda
+- [49:03.707] means Made in America is coming back, and it's
+- [49:06.310] coming back fast.
+- [49:16.086] Now, at the Trump SBA, we're helping to fuel that
+- [49:18.989] growth.
+- [49:19.823] As the most free enterprise agency in the
+- [49:22.292] federal government, in 2025 alone, we guaranteed
+- [49:26.897] a record $45 billion in lending to 85,000 small
+- [49:32.302] businesses through local banks.
+- [49:34.338] That's an all-time record at the SBA, and we did it
+- [49:37.808] with 53 percent fewer staff at the agency.
+- [49:41.078] That capital is driving the job creation that you
+- [49:50.554] see, record small business formation this year,
+- [49:54.791] record small business formation and growth in
+- [49:58.362] communities all across America.
+- [50:00.564] It's such an honor to highlight the award
+- [50:02.632] winners that are here today, and the vital role
+- [50:05.369] of hardworking small businesses that do their
+- [50:08.505] jobs every single day.
+- [50:10.974] They are America's backbone, from our farms
+- [50:14.044] and restaurants to our construction companies and
+- [50:16.580] our manufacturers and our trucking companies.
+- [50:19.349] Thank you, Mr. President, for recognizing that small
+- [50:22.319] business is big business.
+- [50:24.654] 250 years ago, our founding fathers were also
+- [50:28.358] entrepreneurs, small businessmen.
+- [50:31.228] With the America first agenda, that legacy
+- [50:33.997] continues.
+- [50:35.132] America is open for business again.
+- [50:38.335] Thank you, Mr. President.
+- [50:39.469] Thank you.
+- [50:40.137] The President: Thank you, darling.
+- [50:42.773] Thank you.
+- [50:44.074] That's a great job.
+- [50:46.710] I just want to sort of end by -- I'll give you a
+- [50:51.648] little common sense business.
+- [50:54.084] So a lot of you run your business for a couple of
+- [50:59.890] reasons, talent, brilliance in many cases,
+- [51:03.126] but also common sense.
+- [51:05.162] And I'll give you just one little anecdote.
+- [51:08.598] We have a beautiful, potentially beautiful
+- [51:10.901] built in 1922, it's a long time ago, reflecting pond
+- [51:14.304] in between the Washington Monument and the Lincoln
+- [51:19.176] Memorial.
+- [51:20.177] It's the long -- it's 2,500 feet long.
+- [51:23.313] That's taller than, I think, any building in the
+- [51:25.982] world.
+- [51:26.650] Uh, that would be if you lay it sideways.
+- [51:29.052] It's two Empire State buildings, more than that,
+- [51:31.988] and very wide, 167 feet.
+- [51:35.025] And for years, they've wanted to fix it, rebuild
+- [51:37.894] it.
+- [51:38.562] It's granite.
+- [51:39.629] The stone is good granite.
+- [51:40.730] It's great.
+- [51:41.398] But it was leaking because it's -- little pieces of
+- [51:44.668] granite very, very expensive when they did
+- [51:47.037] it, but it always leaked from the day they built it
+- [51:50.407] in 19 -- think of that, 1922.
+- [51:53.243] And it leaked and leaked badly.
+- [51:54.544] And they've looked at fixing it for decades,
+- [51:59.282] really fixing it.
+- [52:00.951] And it wasn't working; it was too expensive.
+- [52:03.153] And the final price we got fairly recently was to fix
+- [52:08.225] it, it's $350 million because they were going to
+- [52:10.827] take the granite out, and they were going to replace
+- [52:13.897] it with new granite, new stone, tighter joints, all
+- [52:16.900] that.
+- [52:17.567] It was going to take three and a half years.
+- [52:21.204] And I heard about it, and I called Doug Burgum and I
+- [52:23.573] said, Doug, what do you think?
+- [52:25.542] I built a lot of swimming pools, hundreds of
+- [52:27.711] swimming pools in different jobs.
+- [52:30.113] I said, let me look at that surface.
+- [52:32.716] So it's granite, so granite is virtually
+- [52:35.752] indestructible, but it was filthy, dirty.
+- [52:38.121] It started because I called it because it was
+- [52:40.156] so dirty.
+- [52:40.824] It was disgusting.
+- [52:42.425] People called me and they'd say, you know, it's
+- [52:43.927] a shame.
+- [52:44.594] I'm looking at the Washington Monument and
+- [52:46.563] this thing is terrible.
+- [52:48.565] The water is dirty, there's cartons of stuff
+- [52:52.202] in it, and everything is just so horrible.
+- [52:55.038] And I said, wow, that's terrible.
+- [52:56.606] We can't have that.
+- [52:57.440] I actually had Secret Service -- I said, drive
+- [52:59.943] over there, I want to see it.
+- [53:01.211] Sir, we won't be able to -- I said, just do it.
+- [53:04.281] And I went, it was terrible.
+- [53:06.082] I looked at it, terrible.
+- [53:07.817] So think of that, so it was going to cost $350
+- [53:10.353] million because they were going to take the granite
+- [53:11.955] out, put new granite and think -- you know,
+- [53:13.456] consider it like as tall as the tallest building in
+- [53:16.526] the world, if not taller and laying on its side.
+- [53:20.430] And I said, wow, that's terrible, $350 million.
+- [53:24.167] It's going to take three and a half years, three
+- [53:26.403] and a half years.
+- [53:27.304] It'll be -- and, you know, three and a half years
+- [53:28.972] means five years.
+- [53:30.240] $350 million means $500 million to fix a thing.
+- [53:36.046] And I said, you know, I built all these swimming
+- [53:37.647] pools and they're phenomenal.
+- [53:39.382] They're 20 years.
+- [53:40.417] I have one up the road where it's a great club on
+- [53:44.621] the Potomac River and I bought it, I bet
+- [53:46.990] 20-something, 21 years ago.
+- [53:48.992] And I built a beautiful Olympic-sized pool.
+- [53:51.394] And I asked the other day, I said, how good is the
+- [53:53.296] pool?
+- [53:53.964] Oh, it's beautiful, sir.
+- [53:54.998] I looked at it.
+- [53:55.665] It looks like it's brand-new.
+- [53:56.333] It's done 20 years ago.
+- [53:57.834] So I have some very good contractors, some good --
+- [54:01.171] one or two in particular.
+- [54:02.739] And I sent the two of the -- actually, the three
+- [54:04.941] best.
+- [54:05.875] I said, do me a favor, fellas, go take a look at
+- [54:09.346] the reflecting pool that sits in between Lincoln
+- [54:12.415] and Washington, the beautiful, what should be
+- [54:14.751] beautiful reflecting pool.
+- [54:16.720] And one of them who came back, who's really, I
+- [54:19.155] would say the best, but they're all good.
+- [54:21.758] He came back, he said, what an exciting job, sir.
+- [54:24.861] I said, so how long would it take you to redo it?
+- [54:29.799] He said, well, we have to fix the surface a little
+- [54:32.669] bit, create something good and solid underneath.
+- [54:36.139] That'll take about a week.
+- [54:37.374] (Laughter) And -- and let's say it'll take me to
+- [54:41.277] put the new material -- now the swimming pool is
+- [54:44.614] good, but he said, sir, I'd get commercial grade.
+- [54:47.517] What is that?
+- [54:48.184] He said, that's much stronger, much heavier,
+- [54:52.222] meant for commercial.
+- [54:54.491] Uh, it actually looks better.
+- [54:56.993] It's more expensive, sir.
+- [54:58.294] I said, that's OK.
+- [55:00.363] I said, how much will it cost?
+- [55:02.265] I think we can do it for about $1.9 million.
+- [55:05.669] So he said, what color would you like, sir?
+- [55:09.739] And I said, well, you know that beautiful color that
+- [55:12.842] we have in Florida?
+- [55:14.577] He said, this isn't Florida, sir.
+- [55:16.646] We don't have that green, blue around here.
+- [55:18.948] We have blue water, but he gave me a choice of 50
+- [55:22.552] colors.
+- [55:23.219] Now I'm going crazy.
+- [55:23.953] I'm saying -- now think of it, if we put the granite,
+- [55:26.556] you know what your color is?
+- [55:27.657] It was gray.
+- [55:29.325] It was gray.
+- [55:30.660] Not a good looking color.
+- [55:31.795] So even if you did it, it's not good.
+- [55:34.597] So he said, we'll do a beautiful job.
+- [55:37.067] I think that -- I'd like to recommend a color that
+- [55:40.103] I've used before.
+- [55:41.905] Uh, it's beautiful.
+- [55:43.373] What's it called?
+- [55:44.374] It's called American Flag Blue.
+- [55:46.843] I said, that's the color I want, because how can you
+- [55:48.745] have it better?
+- [55:49.412] Right?
+- [55:50.080] I said, how can you have a better color than American
+- [55:53.550] flag?
+- [55:54.217] We had a gray, disgusting, dirty, it showed all the
+- [56:00.790] dirt, it showed all the everything.
+- [56:03.326] So we -- we finished it about two or three days
+- [56:06.930] ago.
+- [56:07.597] They ripped the hell -- you know, they roughen the
+- [56:10.633] surface.
+- [56:11.301] They left all -- everything there.
+- [56:12.635] The demolition would have cost $60 million to take
+- [56:15.605] the stone out and put new stone in.
+- [56:18.675] So we cleaned it.
+- [56:19.642] We steam cleaned it.
+- [56:20.877] We sandblasted it.
+- [56:22.445] We pebble blasted.
+- [56:23.680] You know, pebble blasting, that's a serious
+- [56:26.649] sandblast.
+- [56:27.650] That's -- really, because it's granite, it's so
+- [56:29.486] strong.
+- [56:30.353] We roughen the stone, so it's a good surface.
+- [56:32.355] Got it immaculate and it's beautiful and -- but it
+- [56:35.158] still has the lines in between.
+- [56:36.726] You're going to have leaks all over the place.
+- [56:38.928] And we filled in some areas.
+- [56:40.697] And the work started a few days ago.
+- [56:44.634] And I wanted to go today.
+- [56:45.835] I said, let me see these small business people and
+- [56:47.904] then I want to go over and see the contractors to see
+- [56:50.573] how they're doing.
+- [56:51.241] But Secret Service was not thrilled.
+- [56:54.611] They were not thrilled of me standing in the middle
+- [56:56.546] of a pool with lots of buildings looking down.
+- [56:58.715] You know, we have to be a little conscious of that,
+- [57:00.950] right, Chris, or you'll have a new boss someday.
+- [57:04.888] And I don't know if you'd like that.
+- [57:06.523] So so here's the story just in a nutshell.
+- [57:11.628] For a much better job, $1.9 million, one week,
+- [57:19.102] because I don't call the -- you know, actually, the
+- [57:21.337] Parks Department did a great job.
+- [57:23.206] They cleaned.
+- [57:23.873] I mean, a lot of men cleaning.
+- [57:25.308] They're scrubbing the scum off, years and years of
+- [57:29.512] decay and bacteria and everything else you can
+- [57:32.415] think of.
+- [57:33.082] It was terrible, actually.
+- [57:34.484] It was worse than the people would tell me.
+- [57:36.085] They say how bad it looked.
+- [57:37.120] It was much worse.
+- [57:38.855] The Parks Department did a fantastic job they got it
+- [57:40.990] down to the surface, and these guys came in and
+- [57:43.693] made the surface really, really good.
+- [57:46.396] And now the beautiful -- the fun starts and they're
+- [57:48.364] putting it down.
+- [57:49.465] So ready, $1.9 million versus $350 million.
+- [57:54.571] Right?
+- [57:55.238] Common sense, common sense.
+- [58:02.011] A great, beautiful blue color, American flag blue,
+- [58:06.950] as opposed to gray, right?
+- [58:09.319] What is not gray, right, but it's one of those
+- [58:11.821] things.
+- [58:13.156] And instead of three and a half years, instead of
+- [58:16.960] three and a half years, it's one week.
+- [58:20.730] So think of that, one week.
+- [58:23.199] So everybody say, well, yeah, but you can't
+- [58:25.735] compare this -- yeah, you can.
+- [58:27.303] It's much better.
+- [58:27.971] It's a much better job.
+- [58:29.606] This will last for at least 50 years and you'll
+- [58:31.574] never have a leak.
+- [58:32.375] It's very strong.
+- [58:33.409] You couldn't -- if you had a knife -- I don't want to
+- [58:35.745] give anybody ideas.
+- [58:37.347] If you had a knife, you can't even cut it, so
+- [58:39.515] strong, so powerful.
+- [58:40.884] It's a powerful rubber.
+- [58:42.919] It is beautiful, sealed.
+- [58:45.488] And I looked at just one of the little pieces that
+- [58:47.724] they did, the finish, it's like a piece of glass,
+- [58:49.993] beautiful color, beautiful everything.
+- [58:51.828] You could never get any -- anything like that.
+- [58:54.764] And just think of it, so for a tiny fraction of the
+- [58:58.668] cost and a tiny fraction of the time, we end up
+- [59:02.872] with the most beautiful thing that you'll ever
+- [59:04.741] see.
+- [59:05.408] And I look so forward to that opening up.
+- [59:07.310] And it's sort of a business thing, it's a
+- [59:08.845] common sense thing.
+- [59:09.846] First thing I thought of when I heard $350 million,
+- [59:13.049] because I'm the one that said, let's get it done.
+- [59:15.585] But they had done studies for years because they
+- [59:17.420] wanted to get it done, never got done.
+- [59:19.155] Probably so expensive, they couldn't afford to do
+- [59:21.057] it, really.
+- [59:21.724] But there's a thing, common sense, right, a
+- [59:25.028] swimming pool.
+- [59:25.695] I said, well, swimming pool looks so beautiful,
+- [59:28.231] wouldn't that be nice?
+- [59:29.599] So for a tiny fraction of the time, a tiny fraction
+- [59:32.402] of the cost, we end up with a much better
+- [59:36.306] product.
+- [59:37.273] And this is what you people do with small
+- [59:39.442] businesses all the time.
+- [59:40.576] It's what Kelly does in running this.
+- [59:42.011] She comes to me a lot of times with ideas for less
+- [59:45.114] money.
+- [59:45.815] It's a better -- it's a better job.
+- [59:47.884] So I just -- I thought I'd tell you that because this
+- [59:50.353] just happened.
+- [59:51.287] This just happened.
+- [59:52.055] If you go down, if you'd like to see them doing it
+- [59:54.791] on your way back home, take a trip down to the
+- [59:57.794] reflecting pond, or -- they call it the
+- [01:00:00.163] reflecting pool.
+- [01:00:01.197] Some people call it the reflecting lake, but the
+- [01:00:03.533] word reflecting is always a part of it.
+- [01:00:06.002] They call it different things, but reflecting is
+- [01:00:08.037] always a part.
+- [01:00:08.771] Uh, last but not least, we have someone who is
+- [01:00:12.675] helping us lead the revival in American
+- [01:00:15.311] manufacturing, this year's National Small Business
+- [01:00:18.348] Person of the year.
+- [01:00:19.782] I want to hire him.
+- [01:00:20.717] How big is his business?
+- [01:00:21.884] I want to get him.
+- [01:00:23.252] Mark Lamoncha.
+- [01:00:24.787] And he's a fantastic guy and he's the owner of
+- [01:00:28.691] Humtown Products, a metal casting and 3D printing
+- [01:00:31.694] company near Youngstown, Ohio.
+- [01:00:33.396] I hear it's amazing, what he's done.
+- [01:00:35.798] In 2008, the company was nearing bankruptcy.
+- [01:00:38.534] It looked like it couldn't be saved.
+- [01:00:40.370] But that's when Mark patented a system to boost
+- [01:00:42.972] productivity at the company by more than 400
+- [01:00:46.743] percent.
+- [01:00:47.410] Mark, we'd like to use you in government.
+- [01:00:49.312] How would you -- if you could use that system in
+- [01:00:51.781] government, that would be very nice.
+- [01:00:53.883] He transformed Humtown into a pioneer in 3D
+- [01:00:56.853] printing, and he's leading everybody.
+- [01:00:59.822] And today, they're North America's leading producer
+- [01:01:02.225] of 3D-printed sand cores and molds, which is a big
+- [01:01:05.561] business.
+- [01:01:06.596] And Mark, we're here to honor you today.
+- [01:01:08.965] And if you could come up, we're going to give you a
+- [01:01:11.167] little something.
+- [01:01:11.868] Come on up.
+- [01:01:13.269] Hey, Mark.
+- [01:01:14.504] Mark Lamoncha: Thank you, Mr. President.
+- [01:01:18.107] The President: Wow.
+- [01:01:19.909] Thank you very much.
+- [01:01:22.345] That's beautiful.
+- [01:01:23.546] I want to get one of them for myself.
+- [01:01:26.916] I'll honor myself.
+- [01:01:27.884] That's -- that's very nice.
+- [01:01:31.988] Would you like to say a few words, Mark?
+- [01:01:34.357] Mark Lamoncha: I would.
+- [01:01:35.358] The President: Go ahead.
+- [01:01:36.359] I'll hold it for you.
+- [01:01:37.593] Mark Lamoncha: Mr. President and
+- [01:01:39.695] Administrator Loeffler, I would like to thank you
+- [01:01:42.799] for the opportunity and the privilege to represent
+- [01:01:45.501] the 36 million small business people, to be an
+- [01:01:48.805] ambassador for the largest part of our economy.
+- [01:01:53.242] And I would like to thank you from the Humtown
+- [01:01:55.745] Products Industrial Athletes team that I have
+- [01:01:59.449] the privilege of serving every day as their head
+- [01:02:02.051] coach.
+- [01:02:03.352] But even more, I would like to thank you,
+- [01:02:05.054] Mr. President, for restarting and rebooting
+- [01:02:07.857] our economy.
+- [01:02:09.492] And manufacturing used to be 38 percent of our
+- [01:02:13.162] economy, and it's down to nine percent.
+- [01:02:16.065] And I know that you love America, and I know that
+- [01:02:18.134] you want to restart that.
+- [01:02:19.302] You know, in the last three months, the PMI
+- [01:02:23.206] index has gone up three months in a row because of
+- [01:02:27.243] that restart.
+- [01:02:28.845] We have 10 percent increase in hiring, and
+- [01:02:32.582] we'll be able to buy more of those million-dollar
+- [01:02:35.618] printers that we're able to print the fight, fight,
+- [01:02:40.289] fight Trump statue that was in Butler with Corey.
+- [01:02:44.827] So I want to thank you from the bottom of my
+- [01:02:47.096] heart for loving America.
+- [01:02:47.763] And, you know, manufacturing is my
+- [01:02:49.098] favorite sport, so let's make America manufacture
+- [01:02:50.433] again.
+- [01:02:51.100] The President: That's good.
+- [01:02:51.767] (Inaudible) That's a great job and I heard it's a
+- [01:02:53.102] great company.
+- [01:02:53.769] You've done a fantastic job with it.
+- [01:02:55.104] Thank you very much.
+- [01:02:55.805] And you're right, we lost our manufacturing
+- [01:02:59.275] business.
+- [01:02:59.942] And I used to listen to President Obama say,
+- [01:03:03.913] you'll never get manufacturing back.
+- [01:03:11.587] It's the biggest business in the world, if you get
+- [01:03:26.936] it back, and we're heading to that.
+- [01:03:31.407] I think we'll be higher than at any time fairly
+- [01:03:33.643] soon.
+- [01:03:34.744] When these places open, I think we'll be higher than
+- [01:03:37.246] at any time in the history of our country.
+- [01:03:39.048] And we used to be a manufacturing capital.
+- [01:03:42.451] We were the manufacturing capital of the world and
+- [01:03:45.021] then it got taken away.
+- [01:03:47.356] Uh, it went to -- the chips, went to Taiwan, and
+- [01:03:50.293] all they had to do is say, if you sell your product
+- [01:03:52.962] back into the country, there's going to be 100
+- [01:03:54.664] percent tariff and nobody would have left.
+- [01:03:57.400] And, you know, I made an investment Intel, a chip
+- [01:04:01.470] maker, the biggest in the world, and then it got
+- [01:04:03.639] taken away because of bad politics, actually,
+- [01:04:06.209] because of politicians, the presidents.
+- [01:04:08.411] No president protected that industry so, all of a
+- [01:04:11.414] sudden, you have this superpower over in Taiwan,
+- [01:04:15.351] but they're coming back.
+- [01:04:16.352] As you know, we have the biggest companies coming
+- [01:04:18.354] into -- they're pouring into this country.
+- [01:04:19.989] They know that the tariffs go to a certain extent,
+- [01:04:22.725] and then they go up, up, up as we go.
+- [01:04:25.061] But I will -- I will say that it's so sad to see
+- [01:04:29.732] what's happened, but it makes me so happy to say
+- [01:04:31.834] we're bringing it back.
+- [01:04:32.635] And as sure as you're sitting there, I mean,
+- [01:04:34.503] these are companies that are fully committed.
+- [01:04:36.739] There are many under construction; they're on
+- [01:04:38.741] their way.
+- [01:04:39.775] And when I look at what happened to our country --
+- [01:04:42.011] I used to make speeches as a private person.
+- [01:04:44.981] I was -- I always loved politics, but I never
+- [01:04:47.650] thought I'd be doing this.
+- [01:04:49.218] But as a private person doing well, I used to just
+- [01:04:51.654] marvel at the fact that the car companies were
+- [01:04:54.290] leaving Detroit and leaving our country at
+- [01:04:57.026] levels that were just -- I mean, I said, you're not
+- [01:04:58.861] going to have any cars soon, if you don't do
+- [01:05:00.997] something.
+- [01:05:02.064] And all they had to do is say, you can leave our
+- [01:05:04.367] country, you can have lots of fun building your cars,
+- [01:05:07.169] but if you think you're going to sell it back into
+- [01:05:09.372] our country for no cost, you're wrong.
+- [01:05:13.876] But nobody said that, not one president, even
+- [01:05:17.613] presidents I liked.
+- [01:05:19.515] But they were bad on trade.
+- [01:05:21.317] You've never had a good president on trade, and
+- [01:05:24.153] now you do.
+- [01:05:24.954] And we're bringing them back at levels never seen
+- [01:05:27.523] before.
+- [01:05:28.224] So we're going to have something.
+- [01:05:29.558] And as far as small business is concerned, you
+- [01:05:32.561] are really the driver.
+- [01:05:34.430] I love that story because that's the kind of story
+- [01:05:36.666] that half of the people -- I'm not sure about all of
+- [01:05:38.768] them.
+- [01:05:39.435] I'm not sure about Rick, but most of the people in
+- [01:05:42.271] this room would have thought of that.
+- [01:05:43.606] They would have said, well, what about surfacing
+- [01:05:45.708] that stone, that existing stone?
+- [01:05:48.044] But it's just, you know, one example, it's such a
+- [01:05:51.213] great one because it's massive amounts of money
+- [01:05:53.949] and time and a disaster of construction.
+- [01:05:57.019] For years, they'll be building and building and
+- [01:05:59.255] building, a mess.
+- [01:06:01.257] Uh, what common sense is all about.
+- [01:06:03.059] And you people, more than anything, I know you all
+- [01:06:06.762] indirectly.
+- [01:06:07.430] If I don't know you, I still know you.
+- [01:06:09.565] But the fact is, it's -- it's common sense.
+- [01:06:12.635] And if you didn't have common sense, you would
+- [01:06:14.236] not have a good business and you wouldn't have a
+- [01:06:16.072] good small business, big business or any other
+- [01:06:18.174] business.
+- [01:06:18.841] So I just want to congratulate -- Mark, I
+- [01:06:21.344] want to congratulate, it's a great tribute, really.
+- [01:06:23.913] You've done an amazing job.
+- [01:06:25.147] But I want to congratulate everybody in the room.
+- [01:06:27.249] You're fantastic people.
+- [01:06:29.352] And we are -- uh, really, this is the golden age of
+- [01:06:32.355] America.
+- [01:06:33.022] I really believe it.
+- [01:06:33.789] Last year, we were scoffed at.
+- [01:06:36.025] I tell -- I tell the story often, that the king of
+- [01:06:38.361] Saudi Arabia, a year, a year and a half ago when I
+- [01:06:41.230] was over there, he said, you know, America was a
+- [01:06:46.035] dead country.
+- [01:06:47.470] We didn't think it would be investing.
+- [01:06:48.904] We didn't think it would be appropriate to invest
+- [01:06:50.940] there.
+- [01:06:51.607] We were a dead country.
+- [01:06:52.808] And now, president, you have the hottest country
+- [01:06:55.778] anywhere in the world.
+- [01:06:56.645] That was seven or eight months ago.
+- [01:06:57.980] We're a lot hotter than we were then.
+- [01:07:00.216] We had to do this little excursion but the
+- [01:07:02.051] excursion is -- the stock markets higher now than it
+- [01:07:04.920] was when I -- I assumed the market would be down
+- [01:07:07.490] 25 percent, and that was worth it to get rid of
+- [01:07:10.893] lunatics that would have nuclear weapons, that can
+- [01:07:14.597] wipe out countries with the push of a button.
+- [01:07:17.299] You can't do that.
+- [01:07:18.634] So I had to do it, because it should have been done
+- [01:07:22.071] 47 years -- it should have been done by many
+- [01:07:24.907] presidents or other countries.
+- [01:07:27.810] Should have been done a long time ago but we're
+- [01:07:29.612] doing it and we have no choice and I'm very proud
+- [01:07:31.747] to be doing it.
+- [01:07:32.648] But the amazing thing, I thought would be down 20,
+- [01:07:34.984] 25 percent.
+- [01:07:35.885] I thought the market would be down.
+- [01:07:37.553] The market's at new highs despite all of it.
+- [01:07:41.257] And so the market is genius and they see what's
+- [01:07:43.826] happening and they get it.
+- [01:07:45.394] But I just want to say it's an honor to be with
+- [01:07:47.296] you and keep going.
+- [01:07:49.432] Small businesses, you're -- some of your small
+- [01:07:52.101] businesses, like yours, are going to be large
+- [01:07:53.936] businesses very soon and it's an honor to be with you.
+- [01:07:56.972] And Kelly and Chris and all of the people that
+- [01:07:59.508] work with me, what a great job you do.
+- [01:08:01.710] We appreciate it.
+- [01:08:02.511] Thank you very much.
+- [01:08:03.579] Thank you.
+- [01:08:04.613] (applause)
+- [01:08:10.918] ♪ (orchestral "God Bless America") ♪

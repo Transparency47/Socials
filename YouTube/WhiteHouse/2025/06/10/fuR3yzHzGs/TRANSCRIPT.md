@@ -1,0 +1,819 @@
+<!-- source: https://www.youtube.com/watch?v=_fuR3yzHzGs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _fuR3yzHzGs -->
+<!-- date_published: 2025-06-10T21:50:14+00:00 -->
+<!-- date_accessed: 2026-06-02T01:24:37.279191+00:00 -->
+
+# Transcript: President Trump Attends a Briefing on the 2025 Hurricane and Wildfire Season Outlook & Preparedness
+
+- [00:00.030] The President: And we're doing it much more so now.
+- [00:02.070] And we can save a lot of lives, but a lot cost, a lot damage,
+- [00:06.250] a lot everything. And with me, as you know,
+- [00:10.240] Marco is doing something very, very important right now.
+- [00:13.670] So I'll take a pass on Marco Rubio,
+- [00:16.070] but he's with us in spirit.
+- [00:18.790] Kristi Noem, Doug Burgum, Brooke Rollins,
+- [00:21.740] and a couple of other very well-known people
+- [00:24.600] are standing behind me. They're going to say a few words
+- [00:26.820] as to what they're doing with respect to response on wildfires
+- [00:31.380] and stopping wildfires
+- [00:33.450] due to proper management, proper forest management.
+- [00:36.770] And I just want to thank you all for being.
+- [00:38.450] And maybe, Brooke, I'll ask you to start.
+- [00:43.860] Secretary Rollins: First of all, thank you, Mr. President,
+- [00:45.560] for inviting us here to the White House
+- [00:47.740] to provide an update on our coordinated efforts
+- [00:50.540] across your federal government to ensure our nation's wildland
+- [00:54.330] firefighting system is focused on fighting wildfires
+- [00:57.520] quickly and effectively.
+- [01:00.010] Sir, you have made it clear
+- [01:01.570] from the beginning that strong leadership and decisive action
+- [01:05.140] and the protection of American lives and communities
+- [01:07.790] are the top priorities for both Secretary Burgum
+- [01:10.560] and for me this fire season.
+- [01:13.210] As you can see from the red areas
+- [01:15.120] on the map over here on the President's left,
+- [01:18.200] this is going to be an above-normal fire season,
+- [01:21.890] which is why we wanted to, sir,
+- [01:23.540] ensure that we were taking direction from you
+- [01:25.580] and moving forward.
+- [01:26.870] This means that a higher likelihood of large
+- [01:30.020] and intense wildfires
+- [01:31.390] than typically expected for this time of year
+- [01:34.060] for the next few months.
+- [01:35.490] This means that people, homes, communities,
+- [01:37.910] and landscapes are at risk, and the need for firefighters
+- [01:41.120] and fire support personnel is clear.
+- [01:44.200] America has the largest and the most well-respected wildland
+- [01:48.820] firefighting force in the world.
+- [01:51.400] Secretary Burgum and I already have given direction
+- [01:53.860] to our firefighting organizations
+- [01:55.930] to take whatever actions are necessary
+- [01:58.690] to ensure that we are operationally ready.
+- [02:01.930] The Department of Interior and the Department of Agriculture
+- [02:04.710] employ over 17,000 federal wildland firefighters
+- [02:08.860] every year at the peak of fire capacity.
+- [02:11.990] We are surge with their interagency tribal state
+- [02:14.800] local will have approximately
+- [02:16.670] 13,000 additional wildfire personnel.
+- [02:20.650] We know that the best and most cost-effective way
+- [02:23.560] to stop these terrible fires
+- [02:25.390] is to remove the fuel load that feeds them,
+- [02:29.040] and we can talk a little bit about the timber executive order
+- [02:31.680] and the timber leadership the president has led on.
+- [02:34.300] We are working at both of our agencies
+- [02:36.460] to eliminate all red tape, cut costs,
+- [02:39.060] and increase our timber sales and active management
+- [02:42.020] to reduce the intensity of these wildfires when they start.
+- [02:45.550] We are increasing timber production by 25 percent
+- [02:49.240] thanks to President Trump with the goal
+- [02:51.110] of not only supporting our industry partners
+- [02:53.110] and our rural communities,
+- [02:54.550] but also reducing the number of catastrophic wildfires.
+- [02:58.870] Finally, both the Forest Service,
+- [03:00.790] reducing hazardous fuels on our 4.2 million acres
+- [03:04.880] and the Department of Interior
+- [03:06.100] on their 2.4 million acres annually,
+- [03:09.250] getting rid of the low value overgrown trees
+- [03:12.510] and brush crowding of our forest.
+- [03:14.670] One final point, we are 96 percent capacity
+- [03:18.580] in terms of our firefighting hiring,
+- [03:21.700] and this is actually ahead
+- [03:23.640] of where President Biden and his team was a year ago.
+- [03:26.940] So I want to make sure that's very clear.
+- [03:28.550] We are all on board and moving forward
+- [03:30.860] with a fully operational.
+- [03:32.330] We will be more ready than ever before for this season.
+- [03:34.750] Thank you so much.
+- [03:37.550] Secretary Burgum: Well, thank you, Mr. President,
+- [03:38.920] and thank you Secretary Rollins for the partnership
+- [03:42.090] that we have between the U.S. Forest Service
+- [03:46.750] and the Department of Interior.
+- [03:48.400] There's over 700 million acres of surface land
+- [03:52.300] that the federal government manages in this country.
+- [03:56.250] And under President Trump's orders,
+- [03:57.660] we are now actually managing that land.
+- [04:00.170] When we get back into timber production, as driven by his EO,
+- [04:03.870] we're actually then helping rural communities.
+- [04:06.760] We're helping people that are in the lumber business,
+- [04:08.900] helping bring those lumber products back home.
+- [04:11.640] As we stepped away from this industry,
+- [04:13.660] President Trump is now bringing it back.
+- [04:15.940] And we, as a nation, we're now, before President Trump back,
+- [04:20.400] we were burning more timber
+- [04:21.860] than we were harvesting in this country.
+- [04:24.020] When we've spent a dollar on prevention,
+- [04:26.590] we save hundreds of dollars on the back end on firefighting.
+- [04:30.850] This is going to save Americans dollars
+- [04:33.280] when we're out there preventing fires and stopping fires
+- [04:36.130] when they begin versus letting these fires become huge
+- [04:39.830] and then causing the destruction we have.
+- [04:42.230] With the growth of our country around urban areas
+- [04:44.090] there's been a 30 percent growth
+- [04:45.590] of what's called the wild lands and urban interface.
+- [04:49.370] When this happens people start building homes like the tragedy
+- [04:52.630] that President Trump visited in California
+- [04:54.800] where so many people lost their lives
+- [04:56.370] but this is where we're essentially
+- [04:57.660] creating cities in the middle of forests
+- [04:59.710] but not doing the forest management
+- [05:02.010] and creating that deadly fire load out of there,
+- [05:04.800] but now we intermix communities with above ground power lines,
+- [05:08.610] this can lead to dangerous situations.
+- [05:10.680] So President Trump committed to us doing fire management,
+- [05:14.100] we'll reduce that fire load.
+- [05:16.240] In addition to that, there's a proposal
+- [05:19.150] which Russ has included in the President's OMB budget
+- [05:22.860] for the unification because between Secretary Rollins
+- [05:26.610] and the U.S. Forest Service across Interior,
+- [05:29.540] we have four different firefighting groups
+- [05:31.390] across U.S. Fish and Wildlife, the Bureau of Land Management,
+- [05:36.600] the Bureau Indian Affairs, the National Park Service.
+- [05:39.500] These five groups, under the proposal,
+- [05:41.780] are going to be unified in terms of their leadership.
+- [05:43.910] And so we've got consistent strategies
+- [05:45.620] and consistent tactics.
+- [05:47.220] But then when we have these thousands of people that are out
+- [05:49.960] there fighting fires and putting their lives at work
+- [05:51.960] to protect our communities, we also have to step up,
+- [05:54.670] as President Trump knows with our military,
+- [05:56.860] we've got to make sure that these brave firefighters are out
+- [05:59.530] there actually have the same equipment.
+- [06:01.680] In some cases we're decades behind in terms of giving them
+- [06:05.300] the technology they need for either early detection
+- [06:08.040] or for saving their own lives.
+- [06:09.820] We've got some great examples of where we have good collaboration
+- [06:12.700] going between the federal government in Alaska,
+- [06:16.060] the state of Alaska for example,
+- [06:17.910] and then also at the National Interagency Fire Center in Idaho
+- [06:22.230] where we are already coordinating.
+- [06:23.780] Brooke and I have already held a joint briefing
+- [06:26.510] with the fire leaders about this fire season.
+- [06:28.840] So we'll continue to unify this work.
+- [06:30.970] But we have to work with the states
+- [06:33.210] because this year there have been 1.2 million acres
+- [06:36.470] already burned.
+- [06:37.770] Only 25 percent of that's been on federal.
+- [06:40.030] The other 75 percent has been on state lands or private lands.
+- [06:43.800] And so, together, we have work to protect America's resources.
+- [06:47.440] And under President Trump's leadership,
+- [06:49.310] we've got the guidance through the EOs to make that happen.
+- [06:53.180] The President: Thank you very much.
+- [06:54.780] He's doing a great job. They all are. Russell, a word?
+- [06:57.670] Russell Vought: Thank you.
+- [06:58.870] Mr. President. From a funding perspective,
+- [07:01.290] the accounts that support the important work
+- [07:03.590] that these Cabinet Secretaries are doing are funded.
+- [07:06.740] They're flushed.
+- [07:08.000] The main one, the Disaster Relief Fund, has $13 billion.
+- [07:11.600] It's projected to get us all the way
+- [07:13.090] into the end of the fiscal year. So we're in a very good place.
+- [07:16.010] And we've been -- the President has personally been
+- [07:18.720] a steward of the taxpayer resources
+- [07:20.590] on every one of the expenses that the states have come in for
+- [07:24.320] to put us in the position where we are ready for this season.
+- [07:26.550] Thank you.
+- [07:27.760] The President: Great job. Thanks, Russ.
+- [07:28.990] Secretary Noem: Mr. President,
+- [07:30.330] we are in hurricane season right now.
+- [07:32.410] It will last for the next several months.
+- [07:34.710] And we are prepared for what is coming.
+- [07:37.610] We are anticipating that we will have a higher
+- [07:40.290] than usual activity during this hurricane season.
+- [07:43.520] We could have three to five major storms
+- [07:45.920] up to a dozen other hurricane level thresholds
+- [07:50.050] that we'll meet throughout this season.
+- [07:51.910] And FEMA stands prepared and has been working
+- [07:54.150] with all of our regions on training,
+- [07:56.360] pre-deploying resources,
+- [07:58.380] making sure that individuals are out there
+- [08:00.460] ready to respond to each state
+- [08:02.590] as they bring the necessary resources
+- [08:04.230] to take care of their people.
+- [08:05.570] But also, sir, you've been very clear
+- [08:07.680] that you want to see FEMA eliminated as it exists today.
+- [08:11.170] So I'm preparing all of these governors
+- [08:13.060] that they will have more control over the decisions
+- [08:15.760] on how they respond to their communities
+- [08:18.010] so that it can happen faster,
+- [08:20.440] that they can pre- deploy resources
+- [08:22.930] and help coordinate on communication as well.
+- [08:25.610] So while we are running this hurricane season,
+- [08:29.100] making sure that we have pre-staged
+- [08:30.550] and worked with the regions
+- [08:31.840] that are traditionally hit in these areas,
+- [08:34.540] we're also building communication
+- [08:36.980] and mutual aid agreements
+- [08:39.080] among states to respond to each other
+- [08:41.480] so that they can stand on their own two feet
+- [08:43.530] with the federal government
+- [08:44.770] coming in in catastrophic circumstances with funding.
+- [08:48.100] But we all know from the past that FEMA has failed thousands,
+- [08:51.450] if not millions, of people.
+- [08:53.070] And President Trump does not want to see
+- [08:54.560] that continue into the future.
+- [08:56.030] So this agency fundamentally needs to go away as it exists.
+- [09:00.190] And we need to have a response to states that supports them
+- [09:04.230] when terrible things come
+- [09:05.860] and when the worst day of their lives
+- [09:07.330] happens to where the financial resources are there,
+- [09:10.550] but they have decision-making power
+- [09:12.190] right there in the state to respond.
+- [09:13.710] So the next several months,
+- [09:15.380] we expect it to be high activity,
+- [09:17.520] and the federal government is here
+- [09:18.800] to support the people of the United States.
+- [09:21.090] With President Trump's leadership
+- [09:22.490] while he's doing that. He's also going to make sure
+- [09:25.080] that they're better set up for the future,
+- [09:26.730] so that they have the ability
+- [09:28.430] to really take care of their families
+- [09:29.850] when a crisis or a terrible storm does hit.
+- [09:32.240] We've got many governors that just recently had terrible
+- [09:34.710] tragic losses from tornadoes,
+- [09:37.740] from other events that went through their states.
+- [09:40.840] And FEMA was extremely responsive,
+- [09:42.270] and they've all been very happy.
+- [09:43.560] I think, Mr. President, you even spoke
+- [09:45.290] to one of those governors this morning who is very happy,
+- [09:49.280] and the Missouri governor as well, who is happy.
+- [09:52.190] I, as soon as something happens in their state,
+- [09:54.330] I'm in direct communication with the governors
+- [09:56.250] to make sure they have what they need,
+- [09:58.000] but also making sure that they have the ability
+- [10:00.080] to make decisions to respond
+- [10:01.650] to the people that live in their states.
+- [10:04.030] The President: Thank you, everybody.
+- [10:05.950] So, we want to wean off of FEMA
+- [10:10.620] and we want to bring it down to the state level.
+- [10:12.730] A little bit like education,
+- [10:14.050] we're moving it back to the states
+- [10:16.460] so the governors can handle it.
+- [10:17.820] That's why they're governors now.
+- [10:19.100] If they can't handle it, they shouldn't be governor,
+- [10:21.570] but these governors can handle it
+- [10:23.020] and they'll work in conjunction with other governors.
+- [10:25.520] They'll give each other a hand.
+- [10:27.510] But the FEMA thing has not been a very successful experiment.
+- [10:31.410] Very, very expensive, and it doesn't get the job done.
+- [10:33.570] You saw what happened in North Carolina
+- [10:35.230] under the past administration.
+- [10:37.360] And when we got in, we did a great job for North Carolina.
+- [10:39.890] Brought it back. But it was a disaster, FEMA.
+- [10:43.090] And it has not worked out well. It's extremely expensive.
+- [10:47.450] And again, when you have a tornado or a hurricane
+- [10:50.180] or you have problem of any kind,
+- [10:52.760] in a state, that's what you have governors for.
+- [10:54.910] They're supposed to fix those problems.
+- [10:57.400] And it's much more local. They'll develop a system,
+- [11:00.670] and I think it'll be a great system.
+- [11:02.870] And also, when it comes to forest fires.
+- [11:06.080] So for years, I've been meeting with heads of other countries,
+- [11:11.210] and they are forest countries.
+- [11:13.030] They call themselves forest -- Austria and others.
+- [11:16.350] And they say, We're a forest nation.
+- [11:18.480] We live in a forest, and they don't have forest fires."
+- [11:21.600] And in one case, he said, you know,
+- [11:23.520] our trees are much more flammable than California.
+- [11:26.470] But we don't have forest fires because we cleaned the floor.
+- [11:28.890] We sweeped the floor of leaves, of dead debris,
+- [11:33.250] of trees that fall, because after 18 months,
+- [11:36.000] the tree is like real -- it's like tinderwood,
+- [11:38.700] and it goes up virtually exposed.
+- [11:40.990] Well, we don't take the trees out.
+- [11:43.250] California is a disaster, what they've done in California.
+- [11:46.110] They don't do anything. And if you did, you wouldn't --
+- [11:48.670] you almost would not have forest fires.
+- [11:50.690] And you can say you -- in theory,
+- [11:52.360] you shouldn't have any forest fires.
+- [11:54.370] We spend billions and billions of dollars a year
+- [11:56.750] because people don't clean the forests.
+- [11:59.190] And we're going to clean the forest.
+- [12:00.700] We're going start cleaning them.
+- [12:02.130] We're gonna get rid of dead wood.
+- [12:03.820] The environmentalists say, oh, no, let it regenerate.
+- [12:06.640] It doesn't regenerate, it just sits there
+- [12:08.500] and it usually catches fire.
+- [12:10.820] And we are going to have a whole new system,
+- [12:12.990] and it's called forest management.
+- [12:15.120] And if you look at some of these countries in Europe
+- [12:18.230] and other places that literally live in forests,
+- [12:21.340] they're very flammable forests,
+- [12:23.240] and they don't have problems. And they call me.
+- [12:25.470] They don't even know how it's possible
+- [12:27.010] that we can have the fires that we have.
+- [12:29.600] And the people behind me know that very well.
+- [12:31.610] And we're going to start working on that system.
+- [12:33.960] And we'll save a lot of trees.
+- [12:36.400] We're also going to cut down trees
+- [12:37.740] and replant new trees.
+- [12:39.460] And that whole industry is going to be growing
+- [12:41.420] because we don't need the help of anybody.
+- [12:43.800] We have just about more or as much
+- [12:45.600] but more than almost anybody else
+- [12:47.770] in terms of lumber and wood. So, we're going to be doing some
+- [12:52.300] Great work having to do with forest fires.
+- [12:54.330] It's going to start effective.
+- [12:56.220] Really, it started a few months ago.
+- [12:58.420] And it's forest management.
+- [13:00.570] And, Doug, I think you're really the head of that.
+- [13:03.880] Interior is -- I guess you're the largest landlord,
+- [13:07.300] perhaps anywhere in the world, I understand.
+- [13:09.240] That's a very good -- that's a nice position.
+- [13:12.210] You may want to just give a few words
+- [13:14.190] on the cleaning of the floor of the forest.
+- [13:17.450] Doug: Well, happy to do that,
+- [13:18.670] and of course, as President Trump had said,
+- [13:20.740] yes, between Interior and Forest Service,
+- [13:24.830] it was just part of USDA.
+- [13:27.150] 700 million acres of surface area.
+- [13:29.820] Much of that is in forest land. That is a tremendous resource.
+- [13:34.850] It's part of America's balance sheet.
+- [13:36.780] When we let it burn, then we actually have to spend money
+- [13:39.890] coming through FEMA and other places.
+- [13:41.390] So we spend taxpayer dollars cleaning up a mess
+- [13:44.090] that could have been prevented. Under President Trump,
+- [13:46.590] when we get back into the timber business,
+- [13:49.140] which up to 30 years ago,
+- [13:50.840] we were one of the great timber producers in the world.
+- [13:52.980] Communities thrived in these rural communities
+- [13:55.120] we had lumber mills we had we had manufacturing,
+- [13:58.690] we had furniture makers in this country.
+- [14:01.320] All of that went away when we stopped harvesting
+- [14:03.580] our own timber and today
+- [14:05.340] we import about as much timber as we used to harvest ourselves.
+- [14:10.370] If we can get back in the timber business
+- [14:12.730] that can really help on the balance of trade reduce
+- [14:15.030] imports from foreign countries and have American jobs.
+- [14:18.600] But to make that all happen,
+- [14:20.690] again under President Trump's leadership,
+- [14:22.160] we have to get in the timber business
+- [14:23.820] and get back in the game
+- [14:25.250] and when we do that we have to make sure
+- [14:26.770] that we're doing prevention not just fighting fires
+- [14:29.250] after they all get out of control.
+- [14:31.180] And so again working with OMB
+- [14:33.190] and others to make sure that we've got the budget
+- [14:35.180] for doing the prevention work
+- [14:36.990] and the forest management up front reduces the expense
+- [14:39.990] and the cost on the back end of fighting these massive fires.
+- [14:43.580] But again coordinating across all of our five different
+- [14:46.180] major firefighting groups
+- [14:47.480] today it's like having five generals in field.
+- [14:51.060] They may have different strategies
+- [14:52.350] and different tactics.
+- [14:53.640] They even had different pay levels.
+- [14:55.630] Brooke and I are working to make sure
+- [14:57.000] that regardless of which service of branch that you're in that
+- [15:00.330] you are going to have a similar pay,
+- [15:01.680] that we're going to everybody equipped
+- [15:03.340] with the right technology
+- [15:04.570] to protect them when they're out in the field.
+- [15:07.080] Just basic stuff that they don't have today
+- [15:09.670] that we were giving our military 20 years ago in terms of
+- [15:13.650] and then using technology to be able to identify fires
+- [15:17.140] when they first start.
+- [15:18.470] I mean, with the infrared satellite, drones,
+- [15:22.210] I mean there's technology where we can pick out a fire
+- [15:24.760] when it just barely begins
+- [15:26.170] and it costs us nothing to put it out versus
+- [15:28.480] when it scales up and becomes these massive fires
+- [15:31.170] that endanger communities, lives, and our firefighters.
+- [15:34.520] So, President Trump, of course, has got a common sense strategy.
+- [15:38.000] He's empowering all of the leadership
+- [15:39.700] that's standing up here today for us to go get this job done.
+- [15:43.150] It's going to get America back in the timber business,
+- [15:45.150] we're going to put out when they're small and as opposed to
+- [15:47.830] when we can't control them when they are large.
+- [15:49.750] And we're going to have revenue coming into
+- [15:51.260] the federal government.
+- [15:52.490] From those timber sales as opposed to those timber leases
+- [15:55.610] to the private companies as opposed to revenue
+- [15:57.800] going out through FEMA
+- [15:59.630] after the fact when we're cleaning up a mess.
+- [16:01.900] So the whole thing makes complete sense and Brooke
+- [16:05.350] and I and Kristi and Russ we're all excited to go out
+- [16:09.150] and implement the President's vision.
+- [16:11.070] The President: And we have some of the best timber
+- [16:12.750] anywhere in the world,
+- [16:13.990] and we don't use it. We've freed it up.
+- [16:15.940] Lee Zeldin has done an incredible job,
+- [16:18.200] in that regard,
+- [16:19.410] from environmental restrictions that are ridiculous.
+- [16:22.890] And a lot of it has been freed up.
+- [16:24.330] The rest of it is being freed up,
+- [16:26.400] some areas we'll protect, continue to protect.
+- [16:29.080] But we're going to be freeing up most of it.
+- [16:31.350] And again, we have of the some of best in the world.
+- [16:33.450] And when I hear you say that we lost more in fires
+- [16:37.310] than we produce, it's so crazy.
+- [16:39.990] Because we shouldn't lose very much at all.
+- [16:42.050] I mean, I could say we shouldn't lose any if it was perfect,
+- [16:45.100] but it should not be ever like what we've seen.
+- [16:48.320] We're sending billions of dollars to California
+- [16:50.440] all the time because,
+- [16:51.970] obviously, in California, they are not doing a good job
+- [16:55.410] in any way, shape, or form, any other thing either.
+- [16:59.130] So, with that, I'm heading to Fort Bragg right now.
+- [17:01.870] I think the helicopter is landing as we speak.
+- [17:04.520] But if you want, we'll take a few questions.
+- [17:06.000] The Press: (inaudible)
+- [17:07.210] invoke the Insurrection Act
+- [17:09.340] to deal with the situation in California?
+- [17:11.320] The President: If there's an insurrection,
+- [17:12.660] I would certainly invoke it. We'll see.
+- [17:15.010] But I can tell you, last night was terrible.
+- [17:19.360] The night before that was terrible.
+- [17:21.060] We have, as you've seen, it was on most of your networks,
+- [17:24.600] people with big, heavy hammers pounding the concrete
+- [17:27.960] and pounding curbs, pounding it, breaking it up
+- [17:31.260] and handing these big chunks of concrete to people.
+- [17:34.770] And they were taking that concrete, going up in bridges
+- [17:37.090] and dropping it into the roof of a car.
+- [17:39.460] They were throwing it at our police,
+- [17:41.020] they were throwing in at our soldiers that are there.
+- [17:44.240] And we got it stopped, and we have them in custody right now.
+- [17:48.900] Look, if we didn't get involved,
+- [17:52.660] right now Los Angeles would be burning,
+- [17:55.440] just like it was burning a number of months ago
+- [17:57.430] with all the houses that were lost.
+- [17:59.430] Los Angeles right now would be on fire.
+- [18:02.170] And we have it in great shape. We're not playing around.
+- [18:05.270] The Press: How will you determine whether or not
+- [18:07.200] there is an insurrection --
+- [18:08.920] The President: I mean, take a look at what's happening.
+- [18:10.610] I mean I could tell you there were certain areas
+- [18:12.680] of that of Los Angeles that you could have called it
+- [18:15.790] an insurrection. It was terrible.
+- [18:18.550] But these are paid insurrectionists.
+- [18:20.480] These are paid troublemakers. They get money.
+- [18:23.760] And when you take a look at what they do.
+- [18:25.700] Where they show up and everyone would say, what's he doing?
+- [18:27.770] He's pounding the curbs.
+- [18:28.990] There's one guy who's pounding the curb,
+- [18:30.720] breaking the curb and handing big pieces of granite.
+- [18:34.140] In some cases, it's granite, granite
+- [18:36.770] and concrete to other people, and they're running out with it.
+- [18:41.280] And then we watch the other people
+- [18:43.340] and they try and throw it into the face of the soldiers,
+- [18:45.750] throw it into face of the police.
+- [18:48.180] And they hurt some people very badly.
+- [18:50.150] They go up on bridges, they drop it down on the cars
+- [18:52.730] as the cars are moving. They're not breaking the curb
+- [18:55.450] because they're doing a demolition service.
+- [18:58.850] They're breaking it to hand out to people as a weapon.
+- [19:02.290] That's bad. It's bad stuff. I've never seen that before.
+- [19:04.520] The Press: Mr. President,
+- [19:05.830] how soon do you want to see FEMA eliminated?
+- [19:08.730] And what's your message to the governors
+- [19:10.310] about how much more of an expense
+- [19:12.270] is going to fall to states for disaster response?
+- [19:13.960] The President: Well, it's not going to be so much the states.
+- [19:15.590] We're going to give out less money.
+- [19:17.130] We're going to give it out directly.
+- [19:18.490] It'll be from the President's office.
+- [19:20.110] We'll have somebody here. Could be Homeland Security.
+- [19:23.890] But we're going give it through a method where it's given out.
+- [19:27.490] As an example, I just gave out $71 million to a certain state.
+- [19:32.060] They were looking to do about 120.
+- [19:35.030] They were very happy with the $71 billion.
+- [19:38.040] We did a little cutting,
+- [19:39.480] and they were very happy with it.
+- [19:41.430] So we're going to do it much differently.
+- [19:43.770] We think after this --
+- [19:45.420] Kristi, I'd say after the hurricane season,
+- [19:46.990] we'll start phasing it out.
+- [19:48.230] Secretary Noem: Yes, sir. You've set up a FEMA council.
+- [19:49.760] Over the next couple of months, we'll be working on reforms
+- [19:53.190] and what FEMA will look like in the future
+- [19:54.990] as a different agency
+- [19:56.600] as under the Department of Homeland Security
+- [19:59.040] to the President's vision and it will empower governors
+- [20:02.410] to go out and respond to emergency situations
+- [20:06.260] and what the President does best is to make sure
+- [20:08.780] that the taxpayers are only fulfilling the need
+- [20:12.260] to which is appropriate and that people are responsible
+- [20:15.450] to respond to their own people closest to home
+- [20:17.290] So --
+- [20:18.530] The President: If a certain state,
+- [20:19.740] as an example, gets hit by a hurricane or tornado,
+- [20:21.920] that's what a governor, you know,
+- [20:23.170] a governor should be able to handle it.
+- [20:24.570] And frankly, if they can handle it, the aftermath,
+- [20:27.610] then maybe they shouldn't be governor.
+- [20:29.660] The Press: Hey Mr. President,
+- [20:30.980] when was the last time you spoke with Governor Newsom?
+- [20:35.990] The President: A day ago.
+- [20:37.880] Called him up to tell him got to do a better job.
+- [20:40.410] He's doing a bad job, causing a lot of death
+- [20:43.110] and a lot a lot potential death.
+- [20:45.790] If we didn't send out the National Guard,
+- [20:48.830] and last time we gave him a little additional help,
+- [20:51.860] you would have Los Angeles would be burning right now.
+- [20:55.030] Los Angeles, would be not a lot different
+- [20:57.780] than what you saw take place in California
+- [21:00.790] and Los Angeles just a little while ago.
+- [21:03.540] And, you know, you got to remember,
+- [21:05.000] we have the Olympics coming.
+- [21:07.160] And we don't want people looking at Los Angeles like it was,
+- [21:09.950] like it would have been. It would have bad.
+- [21:12.120] Last night, they had total control.
+- [21:14.720] If we didn't have the military in there, the National Guard.
+- [21:17.560] And then we also sent in some Marines.
+- [21:19.640] We had some bad people.
+- [21:21.570] We have people, they look in your face
+- [21:22.970] and they spit right in your faces. They're animals.
+- [21:25.680] And these are paid insurrectionists.
+- [21:27.410] These are paid troublemakers. They're agitators. They're paid.
+- [21:32.430] Do you think somebody walks up to a curb
+- [21:34.250] and starts hammering pieces out, has all the equipment necessary,
+- [21:38.910] and starts handing it out to people to use as a weapon?
+- [21:43.070] These are paid insurrectionists or agitators or troublemakers.
+- [21:47.570] You can call it whatever you want.
+- [21:49.650] And we ended it, and we have in custody some very bad people.
+- [21:53.370] Some very bad people.
+- [21:54.660] The Press: Mr. President.
+- [21:55.880] The President: Did you see the guy
+- [21:57.100] throwing the rocks at the police cars
+- [21:59.200] as they went by and crushing their windows
+- [22:01.910] and endangering our police?
+- [22:04.920] We're not going to let that happen. Yeah.
+- [22:07.640] The Press: On those Marines, Governor Newsom
+- [22:09.160] has described them as political pawns.
+- [22:11.160] I'm curious for your reaction to that
+- [22:12.680] and what you see as the Marines' role
+- [22:14.020] and what are their rules of engagement?
+- [22:15.510] The President: All I want is safety.
+- [22:17.380] I just want a safe area. We have --
+- [22:20.270] Los Angeles was under siege until we got there.
+- [22:23.370] The police were unable to handle it.
+- [22:25.010] You could speak to the chief.
+- [22:26.220] He said it on television three nights ago.
+- [22:28.780] He said, let's just -- this is more than we can handle.
+- [22:31.900] They said that. And the L.A. Police --
+- [22:34.640] I know a lot of the police in L.
+- [22:35.910] A, they're good -- they're great people.
+- [22:37.870] But they're given instructions not to do this, not to that.
+- [22:41.830] But in this case, they were trying their best.
+- [22:44.420] They were not able to handle it. It was out of control.
+- [22:47.230] When we got there -- and I -- you have to remember,
+- [22:50.260] I've been here before. And I went right by every rule,
+- [22:55.050] and I waited for governors to say,
+- [22:57.160] send in the National Guard. They wouldn't do it.
+- [22:59.250] They wouldn't do it, and they just wouldn't.
+- [23:01.460] It kept going on and on. It got worse and worse.
+- [23:04.680] And in Minneapolis, that city was burning down seven days,
+- [23:09.200] and I said, I don't care. The governor, who is a governor
+- [23:12.660] that just happened to be running for Vice President -- a total --
+- [23:16.270] you talk about an incompetent governor.
+- [23:17.860] He's an incompetent person that he was picked.
+- [23:20.950] Well, I was actually very happy he was picked for other reasons.
+- [23:24.350] But this guy wouldn't call the National Guard.
+- [23:28.610] And we ultimately just sent in the National Guard.
+- [23:30.900] We stopped it. But that was after seven days.
+- [23:33.350] And I said to myself, if that stuff happens again,
+- [23:37.310] we've got to make faster decisions
+- [23:38.660] because they don't want to do it.
+- [23:39.940] The radical left. It's usually radical left,
+- [23:43.690] and it's usually governors that are Democrat,
+- [23:47.060] and they don't want to call them in.
+- [23:48.560] They don't want to save lives,
+- [23:50.550] they don't t want to say property,
+- [23:51.840] they want to call them in. I don't know what it is.
+- [23:54.100] We sent them in not early,
+- [23:55.760] we sent them late as far as I'm concerned,
+- [23:58.170] but big problems as you know three nights ago,
+- [24:00.760] big problems were ensuing.
+- [24:02.850] If we didn't send in the National Guard quickly,
+- [24:05.700] right now Los Angeles would be burning to the ground.
+- [24:09.900] The Press: The Marines is, a lot of people think,
+- [24:11.300] an escalatory step, though. These are guys who fight wars.
+- [24:13.640] Are you at all concerned that things could get out of hand
+- [24:15.760] with Marines in the American city?
+- [24:17.690] The President: When I see people throwing concrete into cars,
+- [24:20.720] when I see people, the kind of people
+- [24:22.310] that I saw on your network doing danger to the police
+- [24:26.080] and to the military and to National Guard.
+- [24:29.440] No, it's okay. You know, you start running out of people,
+- [24:32.930] but you have 2,000 people from a National Guard standpoint.
+- [24:36.270] We have a very big military.
+- [24:38.410] But the National Guard, they needed a little extra help,
+- [24:42.070] and we sent them a little --
+- [24:43.400] and we did a great job last night.
+- [24:45.540] We had -- well, you got a lot of cars
+- [24:48.210] go up in smoke and flame, and you had a lot bad scenes.
+- [24:51.090] But it was pretty minor by comparison.
+- [24:54.900] This morning, it's very calm. We'll see what happens later.
+- [24:58.210] But they know, if they go there,
+- [24:59.590] they're not going to get anywhere,
+- [25:00.920] because we have the National Guard.
+- [25:02.230] Though we backed it up with a number of Marines.
+- [25:05.450] The Press: Mr. President, do you agree with Governor Abbott
+- [25:07.830] soon signing legislation to mandate
+- [25:09.530] the Ten Commandments in school classrooms?
+- [25:11.850] The President: Having to do with what?
+- [25:13.490] The Press: Governor Abbott is soon going to sign legislation
+- [25:15.550] to mandate displays of the Ten Commandments
+- [25:17.510] in school classrooms. Do you support him?
+- [25:19.600] The President: I have to take a look at it.
+- [25:20.890] I'm going to have to look at.
+- [25:22.130] The Press: Will the National Guard be in California indefinitely?
+- [25:24.920] How long will they be there until you think that --
+- [25:26.750] The President: Until there's no danger. It's easy.
+- [25:30.390] Look, it's common sense you ask me that question
+- [25:33.010] when there's no danger, they'll leave.
+- [25:37.180] You would have had a horrible situation
+- [25:40.300] had I not sent them and -- horrible.
+- [25:42.990] You'd be reporting on a lot of death
+- [25:45.170] and a lot destruction that's not going to take place.
+- [25:47.890] I think if you look every night it got less and less.
+- [25:51.100] They were met with a very strong force,
+- [25:52.900] the bad people the bad sick people that do what they do.
+- [25:56.510] But these are paid people in many cases --
+- [25:58.440] not in all cases, but in many cases.
+- [26:00.380] And they really are. They're agitators.
+- [26:04.940] The Press: I was wondering if you had any response
+- [26:07.280] to Mexican President Scheinbaum,
+- [26:09.150] who condemned the violence there.
+- [26:10.440] Have you been in touch with her at all?
+- [26:11.890] The President: Say what?
+- [26:13.110] The Press: I was wonder if you have any response
+- [26:15.800] to what Mexican President Claudine Sheinbaum said in --.
+- [26:18.660] The President: What did she say?
+- [26:20.050] The Press: She condemned the violence in L.A.
+- [26:21.620] The President: Oh, I do, too.
+- [26:22.820] The Press: Have you ever been in contact with her?
+- [26:24.590] The President: What you think I don't condemn it?
+- [26:26.490] I condemn the violence in L.A., ladies and gentlemen.
+- [26:29.780] But I also stopped the violence, in L,A.
+- [26:31.870] And by doing what I did, I stopped the violence in LA.
+- [26:35.520] That would have been --
+- [26:36.720] I think maybe I'd ask Kristi to speak to that.
+- [26:39.700] That would've been an unbelievable tragedy.
+- [26:42.940] We would be talking --
+- [26:44.200] I don't know, that would even be here right now.
+- [26:46.350] It would've be so bad. I'd probably maybe be out there.
+- [26:49.400] I don't know. But, Kristi, could you speak to it?
+- [26:51.600] Secretary Noem: Absolutely, so in 2020
+- [26:53.150] I was a governor of a neighboring state to Tim Walz
+- [26:55.860] and watched him let his city burn and the President
+- [26:58.800] and I've talked about this in the past
+- [27:00.140] and he was not going to let that happen to another city
+- [27:03.120] and to another community where a bad governor
+- [27:05.090] made a bad decision. So Claudia Scheinbaum came out
+- [27:08.640] and encouraged more protests in LA
+- [27:10.930] and I condemn her for that.
+- [27:12.560] She should not be encouraging violent protests
+- [27:14.360] that are going on.
+- [27:15.590] If people are allowed to peacefully protest,
+- [27:18.650] but the violence that we're seeing is not acceptable,
+- [27:21.030] and it's not going to happen in America.
+- [27:23.220] This President is standing up for the average American
+- [27:25.630] who wants to walk their child to school every day safely,
+- [27:28.860] run their small business, and provide for their families.
+- [27:31.790] That's the action that he's taking.
+- [27:33.170] He has every authority under the Constitution
+- [27:35.780] to send these National Guard under Title 10
+- [27:39.040] into these communities
+- [27:40.280] and make sure that operations go smoothly,
+- [27:42.580] that law enforcement officers are protected,
+- [27:45.000] that they can continue to do their work
+- [27:47.330] without fear of being injured or killed or disrespected
+- [27:51.110] and that they can go home to their families at night.
+- [27:53.010] So I'm incredibly proud of the President
+- [27:55.210] for activating the National Guard
+- [27:56.640] and for sending in these Marines
+- [27:58.500] because these Marines are specifically trained
+- [28:00.770] to meet the need that we have on the ground in L.A.
+- [28:02.790] Right now. And Governor Newsom has done a disservice
+- [28:06.300] to the status of California for many years.
+- [28:09.310] The people there should never elect him
+- [28:10.830] into a leadership position ever again.
+- [28:13.050] The President: The governor is a nice guy,
+- [28:14.370] but he's grossly incompetent.
+- [28:16.450] When it comes to his railroad that he's building,
+- [28:18.300] where it's like 30 times over budget,
+- [28:20.140] nobody's ever seen anything like it.
+- [28:22.020] Now it doesn't even go to San Francisco and L.A.
+- [28:24.410] It's way short of it.
+- [28:25.790] After years of work and overruns like nobody's --
+- [28:29.820] those contractors are some of the wealthiest people
+- [28:32.200] in the world, I guarantee you that.
+- [28:33.880] Because that money goes to those contractors.
+- [28:35.860] They just -- they just did a number
+- [28:37.760] on the wallet of the people of California.
+- [28:40.730] That train -- you should look at that train.
+- [28:43.170] That is the greatest -- I've never seen cost overruns.
+- [28:45.710] I've seen cost-overruns and great incompetence over my life.
+- [28:49.310] I've ever seen anything like that.
+- [28:50.710] The Press: Mr. President,
+- [28:51.910] these protests obviously started in reaction
+- [28:53.850] to these large-scale ICE operations in Los Angeles.
+- [28:56.400] Should people expect to see similar operations
+- [28:58.340] in the rest of the country?
+- [28:59.620] And would similar protests see similar response?
+- [29:01.420] The President: As you know,
+- [29:02.660] we're moving murderers out of our country
+- [29:04.590] that were put here by Biden or the auto pen.
+- [29:07.160] The auto pen really did.
+- [29:08.460] I mean, the people, whether it's Lisa Monaco
+- [29:10.680] or whoever operated the auto-pen.
+- [29:12.770] These are criminals. The people are criminals
+- [29:15.290] that allowed these criminals into our country.
+- [29:17.990] And I don't think that Biden knew what the hell he was doing.
+- [29:20.620] I don't think he even knew about it.
+- [29:22.560] But when they opened up our borders
+- [29:24.380] for the whole world to come in,
+- [29:25.630] yeah, we're going to get them out.
+- [29:27.430] We're getting them out,
+- [29:28.690] we are starting to get acknowledgement
+- [29:30.540] from the courts that. You know, there's a system.
+- [29:33.780] They come in without courts, and they go out.
+- [29:35.990] They want trials and everything else.
+- [29:37.380] I think that's starting to work out now.
+- [29:39.470] Judges are starting to see what a terrible situation it is.
+- [29:42.870] Many of those people that you saw on television last night
+- [29:47.130] are criminals that were allowed into our country by Biden.
+- [29:50.740] And they want to stay. And we don't want them.
+- [29:53.620] And they come from jails,
+- [29:54.820] and they come for mental institutions,
+- [29:56.690] and they come all over the world,
+- [29:58.350] not just South America.
+- [30:00.240] And we're not going to let them stay.
+- [30:02.540] And this is the first, perhaps, of many, or perhaps --
+- [30:06.570] you know, if we didn't attack this one very strongly,
+- [30:09.320] you'd have them all over the country.
+- [30:10.750] But I can inform the rest of the country
+- [30:12.810] that when they do it -- if they do,
+- [30:15.160] they're going to be met with equal or greater force
+- [30:17.820] than we met right here. We did a great job.
+- [30:20.320] The people -- you, Christie, and Tom Holman,
+- [30:23.120] and all of the people -- Pete Hegseth --
+- [30:26.130] all of people involved did an amazing job.
+- [30:28.420] We stopped a disaster.
+- [30:30.910] And it looks like a planned disaster.
+- [30:32.910] Not just -- this didn't just happen.
+- [30:34.990] They had weapons, they had tools,
+- [30:36.680] they had everything you needed.
+- [30:39.500] I mean, they were throwing iced water in bottles --
+- [30:43.790] in glass bottles -- at officers and at soldiers.
+- [30:49.400] These are -- you could not use the word insurrection,
+- [30:52.650] but you could also use the word.
+- [30:54.310] These are very dangerous people. They're bad people.
+- [30:56.800] They were met with heavy force, and they folded.
+- [31:00.110] And they may be there a little bit tonight.
+- [31:01.810] They may be a little there a bit.
+- [31:03.640] But it seems to be getting less and less
+- [31:05.260] because they're going there
+- [31:06.540] and they're met with a very heavy force.
+- [31:08.500] And if they weren't, you would have that city
+- [31:10.900] right now would be on fire. It would be burning down.
+- [31:13.900] The rest of it, what's left over.
+- [31:16.240] Because the other fire was started
+- [31:17.480] because they wouldn't allow water into L.A.
+- [31:19.350] They wouldn't allow water into California
+- [31:21.990] because they had it all shifted out to the Pacific Ocean.
+- [31:25.320] And I turned it around.
+- [31:27.210] And I told them to do it in my first term,
+- [31:31.150] and they didn't do it.
+- [31:32.920] We had COVID and they did not do it,
+- [31:35.730] and I told him to do it. We did it in the second.
+- [31:37.850] Now we have billions of gallons of water flowing down.
+- [31:40.950] But Newsom should have done this.
+- [31:42.160] He's an incompetent man and an incompetent governor.
+- [31:44.680] Okay, any other questions?
+- [31:45.930] The Press: Mr. President, do you have any message
+- [31:47.300] to adversaries
+- [31:48.590] as the Army kicks off 250 year birthday celebration?
+- [31:51.760] The President: I just think it's amazing.
+- [31:53.130] We're going to have a fantastic June 14th parade, Flag Day.
+- [31:57.790] It's going to be an amazing day.
+- [31:59.210] We have tanks. We have planes. We have all sorts of things.
+- [32:03.890] And I think it is going to great.
+- [32:05.260] We're going to celebrate our country for a change.
+- [32:07.300] You know, recently, as you know, with World War II,
+- [32:11.230] the victory of World War Two.
+- [32:12.640] I called up France and they were celebrating the victory.
+- [32:16.900] But we helped them a lot, as, you know.
+- [32:18.500] I don't have to get into that. But I called up other countries
+- [32:21.480] that were all celebrating the victory.
+- [32:23.460] We're the only country that didn't celebrate the
+- [32:25.750] And we're the one that won the war.
+- [32:27.320] If it wasn't for us, that war,
+- [32:29.330] you would be speaking German right now.
+- [32:31.060] Okay? We won the War.
+- [32:34.340] And you might be speaking Japanese, too.
+- [32:36.730] I mean, you might speaking a combination of both.
+- [32:39.910] We won the war, and we're The only country
+- [32:42.660] that didn't celebrate it.
+- [32:44.520] And we're going to be celebrating big on Saturday.
+- [32:46.440] We're going have a lot of --
+- [32:47.680] and if there's any protests that want to come out,
+- [32:49.670] they will be met with very big force.
+- [32:51.870] By the way, for those people that want a protest,
+- [32:54.350] they're going be met with very big force --
+- [32:56.100] and I haven't even heard about a protest,
+- [32:58.450] but, you know, this is people that hate our country.
+- [33:02.260] But they will met with a very heavy force.
+- [33:05.610] Thank you very much, everybody.

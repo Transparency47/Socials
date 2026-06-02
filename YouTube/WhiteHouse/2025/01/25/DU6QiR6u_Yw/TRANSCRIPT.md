@@ -1,0 +1,1451 @@
+<!-- source: https://www.youtube.com/watch?v=DU6QiR6u_Yw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: DU6QiR6u_Yw -->
+<!-- date_published: 2025-01-25T15:50:59+00:00 -->
+<!-- date_accessed: 2026-06-02T01:30:58.058900+00:00 -->
+
+# Transcript: President Trump Delivers Remarks in California
+
+- [00:01.450] The President: Well, thank you very much, everybody.
+- [00:04.150] This is an honor to be with you.
+- [00:06.680] Unfortunately, it's a very sad period.
+- [00:10.290] But what makes you feel good is I met so many of the homeowners
+- [00:13.110] and every one of them. A lot of them.
+- [00:15.760] And every one of them said to me, they want to rebuild.
+- [00:18.710] I said, will you go elsewhere?
+- [00:20.110] No, no, no, no. It wasn't even like a question.
+- [00:23.990] They love the area. They love the people.
+- [00:26.490] It's like a family.
+- [00:28.390] It's incredible, actually, when you see some things like that.
+- [00:30.810] We just left North Carolina
+- [00:32.570] and we had just a similar type of disaster.
+- [00:37.390] It was water instead of fire,
+- [00:38.810] but boy, that water did damage like I've never seen before.
+- [00:43.080] And then you come here and you see this,
+- [00:45.880] but the people are so amazing.
+- [00:47.350] And your fire department was so beautiful.
+- [00:50.660] Every one of us in perfect physical shape.
+- [00:52.790] They said, what do you guys do?
+- [00:54.030] They have very high standards, I could tell you.
+- [00:56.750] And we took pictures with all of them, but very nicely.
+- [01:00.340] They gave us a little helmet and I said,
+- [01:04.250] Are you really you wear this here? Is this real?
+- [01:07.750] And they said, Yeah. I said, It's awfully heavy.
+- [01:09.430] You have to be very strong to wear that.
+- [01:11.890] But that's the original, right? So it's pretty good.
+- [01:15.420] But I just want to thank everybody.
+- [01:17.370] We're going to be with you.
+- [01:19.090] Your governor met us at the plane
+- [01:22.180] and we had a good talk, very, very positive talk.
+- [01:24.820] We have to work together to get this really worked out.
+- [01:28.580] I don't think you can realize how how rough it is,
+- [01:32.750] how devastating it is until you see it.
+- [01:35.780] I didn't realize I mean,
+- [01:37.030] I saw a lot of bad things on television,
+- [01:39.270] but the extent of it, the size of it,
+- [01:41.790] we flew over it in a helicopter.
+- [01:44.220] We flew to a few of the areas and it is devastation.
+- [01:49.120] It's incredible. Is it really an incineration?
+- [01:52.450] Even some of the chimneys came down.
+- [01:54.440] Okay. When you have the chimneys come down,
+- [01:57.350] you know, that's pretty hot stuff.
+- [01:58.900] And a lot of them were down. That was a bad sign, too.
+- [02:03.100] But I just want to commiserate. And we're going to celebrate.
+- [02:08.520] We'll be back to celebrate one day soon, I hope soon.
+- [02:12.090] The federal government standing behind you 100%.
+- [02:16.090] The first lady and I are in California
+- [02:18.690] to express a great love for the people of California.
+- [02:22.480] We we've had I've had great support always in California.
+- [02:28.170] We did very well recently, as you know,
+- [02:30.720] relatively speaking, at least I can say.
+- [02:33.960] And it's been it's been amazing.
+- [02:35.920] I have property in California not too far away, actually,
+- [02:39.070] right up the road in Palos Verdes is a big property.
+- [02:42.400] And I've always loved it. I've always loved being here.
+- [02:46.270] But we have to grieve for the 28 Californians
+- [02:48.510] who have tragically perished.
+- [02:50.920] And sadly, you're going to be finding more.
+- [02:54.250] And that's going to be very sad
+- [02:56.910] because I know people are missing.
+- [02:59.710] And when you look at that kind of incineration,
+- [03:02.350] you know what's going to happen. You're going to find some more.
+- [03:05.770] But with all that we've gone through,
+- [03:09.510] I watched your firefighters
+- [03:11.960] and they were really fighting at a big disadvantage.
+- [03:14.180] I got to know a lot of them just now.
+- [03:16.200] And they're incredible people. They were so happy.
+- [03:19.320] They were saying, congratulations, sir.
+- [03:21.110] You know, they're thinking about country
+- [03:23.210] maybe even before this location that they all love.
+- [03:27.510] But I'm pleased to be joined
+- [03:28.780] by many of the great California leaders,
+- [03:32.970] both Democrat and Republican.
+- [03:36.820] And it's an honor to meet some of you.
+- [03:38.930] I didn't know, but I know every one of you by name.
+- [03:41.360] L.A. County Supervisor Kathryn Barger,
+- [03:43.770] thank you very much. Mayor Karen Bass.
+- [03:48.750] Thank you, Karen. It's nice to meet you.
+- [03:51.710] Representatives Jay Oubre Nulty. Where's Jay.
+- [03:56.830] Hi, Jay. It's been a tough period.
+- [03:58.930] Jay Right.
+- [04:00.500] Vince Fong, Kevin Kiley, Vince, Vince and Kevin.
+- [04:05.140] Hi. Hi, Vince.
+- [04:09.000] A man I know very well. I know him too well, actually.
+- [04:14.380] And I say that actually with love because he's a great
+- [04:17.530] he's actually been a great congressman for a long time
+- [04:20.050] and he's a great leader
+- [04:21.510] and he loves the area as much as anybody.
+- [04:24.600] Right, Darrell? So Darrell Issa and young Kim.
+- [04:30.660] Cohen, congratulations on an excellent career.
+- [04:33.880] Appreciate it.
+- [04:35.260] Another one I know pretty well is,
+- [04:37.760] to put it mildly, is Tom McClintock.
+- [04:40.670] And he's with he's been with us for a long time.
+- [04:43.150] We have some interesting things going on in Washington.
+- [04:46.530] And it's an honor that you have that you guys are here.
+- [04:49.060] Thank you, Darrell, very much. Tom.
+- [04:51.720] George Whitesides. Good.
+- [04:55.610] George thinks it's a great name, too, by the way.
+- [04:58.600] Brad Sherman. I know Brad Well, I know Brad Pitt.
+- [05:02.400] That's when we're on the same side of this one.
+- [05:05.140] I know that. We'll work together.
+- [05:06.490] Brad Very well. A lot of respect.
+- [05:09.510] And presidential envoy Rick Grenell,
+- [05:12.900] who's done a fantastic job for me over the years.
+- [05:16.020] He was ambassador to Germany and he was fantastic.
+- [05:20.580] So two and a half weeks ago, over 100 mile an hour winds
+- [05:23.780] transform the Palisades fire and other areas, too,
+- [05:28.760] into absolute infernos of death and destruction.
+- [05:32.760] And this is already the most expensive natural disaster
+- [05:37.120] they say, in American history. That's that's pretty amazing.
+- [05:42.380] The numbers are going to be staggering.
+- [05:45.070] Most importantly, we have to get it built
+- [05:46.970] and we have to hopefully find as few people as possible.
+- [05:50.080] We have already too many. Too many.
+- [05:53.850] 28. At least, they say.
+- [05:57.820] We're going to work very hard with the mayor,
+- [06:00.500] the governor, the supervisor and everybody
+- [06:02.730] and get the resources behind you.
+- [06:06.850] And we have some amazing people
+- [06:09.460] and we have some amazing fighters for things like this.
+- [06:13.470] I also had the concept
+- [06:15.010] of getting some of the best developers in the country.
+- [06:18.030] I've had so many calls from developers
+- [06:21.090] and they want to come in. They don't want anything.
+- [06:22.830] They just want to come in and help
+- [06:24.110] and they really know how to get things done
+- [06:25.700] and get things built.
+- [06:27.950] I would ask that the local officials,
+- [06:30.940] because we're going to waive
+- [06:32.510] just about essentially waive all federal permits.
+- [06:35.400] We're going to have you go very quickly,
+- [06:37.660] because a federal permit can take ten years.
+- [06:39.610] We're not going to do that. We're not going to --
+- [06:41.470] we don't want to take ten days. I would.
+- [06:51.500] So we're declaring this a national emergency.
+- [06:53.670] By doing that, I can give you immediate,
+- [06:55.580] like immediate permits.
+- [06:57.110] I'd ask that the local permitting process be the same.
+- [07:02.270] Some of the people were saying they're going to have to they're
+- [07:04.440] going to be forced to wait 18 months for their permits.
+- [07:07.640] And I don't think you're going to do that.
+- [07:09.290] I can't imagine that.
+- [07:10.570] So they are literally in a position right now.
+- [07:13.370] They'd like to start tonight
+- [07:14.660] and they'll they'll clean their site.
+- [07:16.920] They'll do everything. They just want to start.
+- [07:20.110] And they were very concerned with the 18 months.
+- [07:22.180] So I'm sure you can get it down to,
+- [07:25.380] I would say not even 18 days. They are ready, Mayor.
+- [07:29.260] They are ready to start their. I met so many of them.
+- [07:33.540] The fire took place. It's nice and cool there now.
+- [07:37.470] And and they want to start taking the debris.
+- [07:40.000] They want to take the debris. They want to do everything.
+- [07:42.010] They'll get rid of everything.
+- [07:43.290] They're going to do it by by their own hand.
+- [07:46.810] And you're going to see some amazing things happen.
+- [07:48.880] So we're waiving the federal permits,
+- [07:51.490] either waived them or give them to you so rapidly,
+- [07:53.770] it's not going to it's going to be essentially the same thing.
+- [07:56.160] We're going to try and just wave them
+- [07:58.340] and we'll rely on the local.
+- [07:59.800] But the local, I hope, is going to do the same exact thing.
+- [08:02.750] They're literally ready to start right away tonight.
+- [08:06.570] So if you could do almost the same thing
+- [08:09.200] or the same thing would be great for a building permit,
+- [08:11.160] you're going to have to,
+- [08:12.440] you know, check things out a little bit.
+- [08:13.750] A lot of them, every single one of them
+- [08:15.910] said they're going to rebuild.
+- [08:18.010] I didn't have one person say they're selling
+- [08:19.960] or they're leaving or they're disgusted.
+- [08:22.730] They love their community. And it's incredible.
+- [08:25.600] We even had one from your neck of the woods, Right?
+- [08:29.770] Do you want to stand up?
+- [08:31.010] It was so nice the way you they she greeted.
+- [08:36.820] She greeted my wife and in a very different
+- [08:40.460] in a very different language. And it was very nice to see.
+- [08:44.990] And you're staying and you're going to rebuild and everything.
+- [08:47.550] Yeah, everybody. Everybody. So it's really good.
+- [08:50.060] So I'm signing an executive order
+- [08:52.470] to open up the pumps and valves in the north.
+- [08:56.820] We want to get that water pouring down here
+- [08:58.710] as quickly as possible.
+- [09:00.850] Hundreds of millions of gallons of water flow down
+- [09:03.320] into southern California,
+- [09:05.550] and that'll be a big benefit to you.
+- [09:08.090] Look, if you don't want it, you're going to tell me.
+- [09:10.760] But just I can't imagine it.
+- [09:13.370] I tell you, who does like it is the fire department.
+- [09:15.490] When I said that, they were very happy with that.
+- [09:18.000] They didn't mind hearing that.
+- [09:19.940] But we have a lot of water that is available,
+- [09:23.620] and I hope you can work that out among yourselves.
+- [09:26.890] But I think this will show that we we have to have that water.
+- [09:31.510] We have to have that water.
+- [09:33.230] You're talking about unlimited water
+- [09:35.190] coming up from the Pacific Northwest,
+- [09:38.170] even coming up from parts of Canada.
+- [09:41.810] And it pours down naturally. It has for a million years.
+- [09:44.880] For a million years at Portsdown,
+- [09:46.560] you'll never run out. You'll never have shortages
+- [09:49.380] and you'll you won't have things like this.
+- [09:52.270] And when you do, you'll have a lot of water to put it out.
+- [09:55.580] So I'm going to ask that you figure that out.
+- [09:57.930] But I am I really strongly recommended
+- [10:02.160] this seven years ago,
+- [10:05.220] and I think I'm going to just do it.
+- [10:08.790] If you have big problems, you're going to let me know.
+- [10:10.460] But I just can't even imagine it.
+- [10:12.600] But we're also surging federal resources and assistance
+- [10:17.470] to the state,
+- [10:19.020] and California must adopt the common sense policies
+- [10:22.270] to prevent fires. And we all know that.
+- [10:24.930] You know, we were talking 7 or 8 years ago.
+- [10:27.540] I was talking to people from Austria, people from Finland,
+- [10:32.590] people that live in forests. And one of the gentlemen,
+- [10:37.680] the top one of the great leaders of Austria,
+- [10:40.060] said we don't have forest fires,
+- [10:41.490] that we have trees that are actually far more flammable
+- [10:45.830] than they have in California.
+- [10:47.110] But they they literally rake their forests.
+- [10:49.910] They take down if a tree comes down,
+- [10:51.970] they take it down and they say, you have 18 months after that.
+- [10:54.310] It's like a matchstick.
+- [10:56.450] And I know environmentally some environmental groups
+- [10:59.220] like the trees to just melt into the ground.
+- [11:01.220] But when they do melt into the ground, they become an inferno.
+- [11:05.190] So I think you're going to have to change your ways
+- [11:06.950] in terms of that. You have 30 years of leaves
+- [11:11.240] and those leaves are dry as a bone and they they burn.
+- [11:14.390] You know, interestingly, because I was at Paradise,
+- [11:17.060] who's a hero, right.
+- [11:18.880] Long time ago. How is it? Paradise?
+- [11:20.790] What a beautiful Paradise that it was.
+- [11:23.040] And how is it doing, by the way? Are they rebuilding? Right.
+- [11:27.800] Remember when he said European president,
+- [11:30.980] I went there, I never saw anything like it.
+- [11:32.680] But you know what amazes me? I'll never forget it.
+- [11:35.970] The trees were okay because the trees are loaded with water.
+- [11:39.960] They sucked that water out of the ground.
+- [11:41.780] And this was an inferno,
+- [11:43.020] just like I would say, no different than this.
+- [11:46.150] And it was also the wind that caused a lot of problem.
+- [11:49.050] I mean, you had tremendous winds
+- [11:50.430] that there's not a lot you're going to do with it.
+- [11:52.140] Was it up to 100 mile an hour winds? It's unheard of.
+- [11:56.360] But when I was in Paradise, I noticed that the trees
+- [11:59.180] that were dark on the bottom, but they were absolutely living
+- [12:02.460] and they lived because they're soaking wet.
+- [12:05.950] But the trees that were on the ground
+- [12:08.690] within 12 to 18 months,
+- [12:10.340] they say 18 months at a maximum, you have to cut them up,
+- [12:13.130] take them away because they're matchsticks.
+- [12:15.590] But we saw that. You saw that with me.
+- [12:17.340] I commented at the time. I said, look at this.
+- [12:19.230] The house is burned down and the tree is standing.
+- [12:21.390] And it's other than being a little different color
+- [12:24.010] on the bottom. And it went through an inferno.
+- [12:26.290] It's amazing, soaking wet. So I think they have to do it.
+- [12:30.010] It's called management of of the floor.
+- [12:33.120] And when the gentleman from Austria
+- [12:36.100] and also Finland and other countries,
+- [12:38.810] they said we manage the the forest floor
+- [12:41.190] very, very carefully.
+- [12:42.390] And we don't have forest fires here.
+- [12:43.890] They just don't have them.
+- [12:45.650] So I'm sure you're going to do the same thing.
+- [12:49.020] So there can be no golden age without the Golden State.
+- [12:52.270] It's a great state. It's a fantastic place.
+- [12:57.110] And we're going to have a we're going to have
+- [13:00.460] a big celebration soon. We're going to come back
+- [13:02.650] and we'll come back as much as you need.
+- [13:05.460] And we're going to turn it around
+- [13:06.720] and we're going to open the coffers.
+- [13:08.770] You know, America wants us to be taken care of.
+- [13:12.540] They they this was a horrible thing to watch
+- [13:14.840] and the way it just kept going and going.
+- [13:16.580] And then they'd find another area was like
+- [13:19.300] it was like a genius on the other side.
+- [13:23.160] The fire was a genius the way it kept moving.
+- [13:26.220] But we're not going to stand for it.
+- [13:28.710] I just met with the Olympic people
+- [13:31.110] and they're all set to do a real job.
+- [13:34.230] So we have the Olympics.
+- [13:35.430] And I got them, you know, is very interesting.
+- [13:38.350] I made the deal with the Olympics.
+- [13:39.800] I was called by your former mayor and he said,
+- [13:42.870] Would you call the Olympics? Because I must tell you,
+- [13:45.410] the Democrats, as you know, were not calling.
+- [13:48.120] They wouldn't do it. There was a bad experience somehow.
+- [13:51.180] And I did.
+- [13:52.520] And I got along great with the Olympic Committee
+- [13:54.390] and we got the Olympics and then we got you the World Cup.
+- [13:58.500] That one I focused on with Johnny and Johnny
+- [14:02.270] was great, the head of it. And so you have that coming.
+- [14:05.570] And then we have the 250 years coming up,
+- [14:08.770] which is going to be a great celebration.
+- [14:11.650] But I'll never forget when I got the Olympics
+- [14:13.680] and then I got the well, I was president when I got them,
+- [14:16.940] I said, boy, it's too bad I won't be president.
+- [14:20.130] Who knew this was going to happen, right?
+- [14:22.930] I said I won't be president
+- [14:24.390] because it would have been the four years and in fact,
+- [14:27.460] I'd be retired by four days right now, I guess.
+- [14:29.850] Right. So anyway, so I got him
+- [14:32.760] and at least I'll be able to celebrate the Olympics,
+- [14:35.120] the World Cup and and the 250 years
+- [14:37.780] is going to be a very big deal.
+- [14:39.220] So we have the three biggest there are.
+- [14:41.640] And it was an honor to get.
+- [14:43.950] If you have any questions, please let me know.
+- [14:47.380] And and if you have a statement to make,
+- [14:48.970] I'd love to have politically if you'd like to make a statement.
+- [14:51.560] Brad, go ahead. President Okay.
+- [14:53.670] Male Speaker: Mr. President, thank you for coming.
+- [14:55.250] Thank you to the 32nd Congressional District.
+- [14:58.710] Make me feel good.
+- [15:01.250] Most people don't have adequate insurance
+- [15:04.330] because they couldn't get it.
+- [15:06.530] One company dropped 600 policies just in the last six months.
+- [15:11.170] We've got 16 times as much property damage
+- [15:14.920] here as from Hawaii.
+- [15:17.130] And I'm hoping that we get at least
+- [15:19.380] 16 times the federal appropriation
+- [15:23.160] for the CDBG program that helps people rebuild.
+- [15:28.180] And I know you've talked about policies of California
+- [15:31.710] that you're not a fan of.
+- [15:34.530] But I've been in Congress for 28 years.
+- [15:37.020] I really disagree with Louisiana on their abortion policy.
+- [15:41.810] I disagree with them on their campaign finance policy.
+- [15:44.410] I disagree with North Dakota on their gun policy.
+- [15:48.070] And I would never turn to somebody from Louisiana and say,
+- [15:53.470] you keep living on your your cousin's couch
+- [15:57.620] because we're not going to help you rebuild
+- [15:59.500] until Louisiana agrees with me on a woman's right to choose.
+- [16:03.650] So I'm hoping that we can get these funds
+- [16:06.560] and that we don't punish individuals
+- [16:09.410] for the policies of their state. You can disagree with them,
+- [16:12.830] and I think you've got some ideas.
+- [16:15.420] I look forward to us listening.
+- [16:17.940] Also on tariffs, I often agree with you on tariffs,
+- [16:21.340] but how about no tariffs on building materials
+- [16:23.940] for the next three years?
+- [16:25.160] The President: Well, we'll take a look at that, actually.
+- [16:27.000] Female Speaker: Mr. President.
+- [16:28.320] The President: Please.
+- [16:29.580] Female Speaker: Yes. First of all,
+- [16:30.820] let me just take the opportunity
+- [16:32.200] to officially welcome you to Los Angeles.
+- [16:34.800] Really appreciate you coming and especially you come
+- [16:37.720] just a few days after your inauguration.
+- [16:39.970] So thank you.
+- [16:41.170] I want you to know that your presence here
+- [16:42.850] is very much appreciated.
+- [16:44.400] Let me also say that I know you had an opportunity
+- [16:46.600] to see the devastation. You've seen the extreme loss,
+- [16:50.370] the grief that people are going through here.
+- [16:52.990] And we are 100%
+- [16:55.020] committed to getting this neighborhood rebuilt again.
+- [16:59.140] You mentioned a couple of things in terms of us expediting.
+- [17:03.540] So I signed executive directives right away
+- [17:06.450] so that we could cut the red tape.
+- [17:08.400] We could get people back building as fast as possible.
+- [17:12.700] And we're going to continue doing that.
+- [17:14.670] The President: The one thing is they are saying
+- [17:16.920] they will not be allowed to start for 18 months.
+- [17:19.380] Female Speaker: No. That will not be the case.
+- [17:20.830] The President: I just hope.
+- [17:22.100] Female Speaker: That you can hold me to it.
+- [17:23.830] The President: Four groups said that no,
+- [17:25.550] that would be that they shouldn't be able to do it.
+- [17:27.300] They should be able to start tonight.
+- [17:28.920] Female Speaker: That will not be the case.
+- [17:30.180] You know, first we have to take care to make sure
+- [17:32.760] that there's not the getting rid of the hazardous waste,
+- [17:35.860] cleaning things up so that people can start right away.
+- [17:38.600] And just like you said,
+- [17:39.890] if somebody had their house was destroyed
+- [17:42.340] and they're going to rebuild essentially the same
+- [17:44.750] maybe a little bit longer, a little bit higher,
+- [17:47.340] they really shouldn't have to go through much of a process.
+- [17:49.590] So I want you to know that we are expediting,
+- [17:51.480] that We absolutely need your help.
+- [17:53.800] We need the federal help.
+- [17:55.010] The President: You've got it.
+- [17:56.210] I tell you, you will have no permit problem.
+- [17:58.740] There will be zero delay.
+- [18:00.470] And as far as I'm concerned, you already have the promise.
+- [18:05.180] I am more worried because I met
+- [18:09.270] at least eight groups of homeowners.
+- [18:12.470] And I, you know, much more worried about the fact
+- [18:15.420] that they said it's 18 months. Exactly.
+- [18:18.860] And they were devastated. They want to start now.
+- [18:20.860] They want to start removing things
+- [18:22.170] and not allowed to do it now.
+- [18:23.410] And you mentioned hazardous waste.
+- [18:25.400] Well, they've hazardous waste. What's hazardous waste?
+- [18:28.620] I mean, you're going to have to define that.
+- [18:30.270] We're going to go through a whole series of questions
+- [18:34.200] on determining what's happening. No, no.
+- [18:36.400] I just think you have to allow the people to go on their site
+- [18:39.130] and start the process tonight.
+- [18:40.630] Female Speaker: And we will.
+- [18:41.850] The President: Okay, good.
+- [18:43.080] Female Speaker: Mr. Beck and Chuck.
+- [18:44.280] Ms. Chu: Mr. President? Yes? I'm Congressmember Judy Chu,
+- [18:48.010] and I represent the areas of Altadena and Pasadena.
+- [18:52.590] That's the each in fire.
+- [18:54.320] And there is a world of hurt there.
+- [18:57.070] I know that you've gone to the Palisades
+- [18:59.280] and you've seen the devastation,
+- [19:01.820] but it's apocalyptic in Altadena.
+- [19:04.810] And thank goodness I have a partner
+- [19:06.810] with Supervisor Kathryn Barger
+- [19:09.460] in working to help people get back to normal and to rebuild.
+- [19:16.050] But right now, they have nothing.
+- [19:18.500] And there have been 9500 structures burned.
+- [19:22.020] Most of the deaths have occurred in our area.
+- [19:24.990] You have the heat and fire
+- [19:26.440] and thousands of people are without homes.
+- [19:30.100] And these are working people. These are working class people.
+- [19:33.760] They are people like Dr. Jackie Jacobs,
+- [19:36.230] who was an educator all her life
+- [19:39.020] and then finally became the first black administrator
+- [19:42.150] of her educational institution,
+- [19:44.130] Pasadena City College, and then retired.
+- [19:48.000] Now 88 years old
+- [19:50.700] and then her home of 30 years burned in Altadena.
+- [19:54.910] Yeah. She has nothing.
+- [19:56.580] She left without with only the clothes on her back.
+- [19:59.860] She has nothing. And so they need this help.
+- [20:03.650] And I just want to make sure
+- [20:05.720] that you remember the people in Altadena and Pasadena
+- [20:10.650] and that you can come there
+- [20:13.070] and see how terrible the devastation has been there
+- [20:16.690] so that they can get the help that they need.
+- [20:19.610] The President: Just remember one thing and.
+- [20:22.490] I like the way you express yourself beautifully, actually.
+- [20:25.940] But I've only been here three days
+- [20:29.160] and I'll do a great job.
+- [20:32.010] But we had another president, and this took place
+- [20:35.850] during the life of another president, not me.
+- [20:40.210] But I'm going to be the president
+- [20:41.650] that's going to help you fix it
+- [20:43.060] because he would not have been able to help you fix it.
+- [20:45.350] Okay. So will take care of the roads.
+- [20:49.600] Okay. And we'll work closely. Yeah, we'll work closely.
+- [20:54.430] And I know your community was really devastated.
+- [20:57.060] Incredibly so. We understand that. Thank you.
+- [20:59.280] Male Speaker: Mr. President, I'm just going to follow up.
+- [21:01.320] The President: Yes, go ahead.
+- [21:02.610] Male Speaker: And I also represent Alpha.
+- [21:03.880] And what I tell people is people have been
+- [21:06.490] are the exact people you talk to when you were running.
+- [21:10.390] You've got individuals from every. Every walk of life.
+- [21:15.420] And it is the actually.
+- [21:18.710] At one time was the only place African-Americans
+- [21:21.440] could purchase homes. It was red line.
+- [21:23.430] And so you've got a lot of generational wealth there.
+- [21:25.420] And one of the commitments I've made
+- [21:27.570] and we've had meetings with some of the people in HUD
+- [21:30.410] that you've got there now to work with them
+- [21:33.560] and work with your administration
+- [21:34.790] to see how we can help.
+- [21:37.200] And I've been pleasantly surprised.
+- [21:39.230] I know in HUD we've got.
+- [21:42.460] Some asked that we are going to be working with with the yuan.
+- [21:47.640] But more importantly, I just really want to emphasize
+- [21:49.900] what Congresswoman Chu said,
+- [21:51.400] and that is that these are individuals
+- [21:53.860] who are feeling forgotten. And what I tell them is
+- [21:58.630] And when we invited you out here,
+- [22:01.040] I told when I went to the AME church,
+- [22:04.240] this president was talking to you when he was running.
+- [22:07.280] You understand the difficulty in making ends meet.
+- [22:10.070] You understand the high cost of living.
+- [22:13.490] And now their biggest fear
+- [22:14.840] is that that's going to impact their ability to rebuild.
+- [22:17.020] And I have made them this commitment
+- [22:18.610] because this is my last term. That for the next four years.
+- [22:22.240] You talk about 18, 18 months. I've told our county staff
+- [22:27.810] that if you're going to get in the way,
+- [22:29.600] then get another job because we are an all hands on deck.
+- [22:36.620] And quite frankly, if the bureaucracy
+- [22:38.700] can't get out of the way, we'll just roll over it.
+- [22:40.610] And we've said that and we've made it
+- [22:42.110] clear the governors waived sequa,
+- [22:46.310] which I feel should be completely reformed,
+- [22:51.680] if not eliminated.
+- [22:52.910] And if it's being eliminated for this, how.
+- [22:55.620] The President: Are they doing with Sequa?
+- [22:57.000] Male Speaker: How are they doing?
+- [22:58.200] The President: How is it? What's what's been the attitude
+- [23:00.590] of the people running that whole situation?
+- [23:02.990] Male Speaker: It adds sometimes years
+- [23:04.810] on to an application can't.
+- [23:06.240] The President: Do it again.
+- [23:07.470] Male Speaker: And the governors.
+- [23:08.700] The President: And Coastal Commission also wave that.
+- [23:10.380] They're going to have to override the Coastal Commission
+- [23:12.640] because I've dealt with the Coastal Commission
+- [23:14.960] for a long time. And they are they are considered
+- [23:18.320] the most difficult in the entire country.
+- [23:21.080] And we cannot have them play their games
+- [23:22.930] and wait ten years to give somebody a permit.
+- [23:25.940] In fact, I'm going to override the Coastal Commission.
+- [23:28.230] I'm not going to let them get away with it, their antics.
+- [23:31.480] Male Speaker: Well, okay. Thank you.
+- [23:36.280] The President: Thank you, Bill.
+- [23:39.090] Male Speaker: Mr. President, I just want to I just want
+- [23:41.150] to thank you for your leadership on California water policy.
+- [23:43.630] You made it a priority from day one.
+- [23:45.260] For those of us in the Central Valley and northern California,
+- [23:47.930] we have kind of started wildfires as well.
+- [23:50.260] California is a wildfire prone area.
+- [23:51.900] So ensuring reliable, stable water supplies is critical.
+- [23:55.740] And so your leadership, your executive order,
+- [23:57.920] moving more water maximizing flows throughout
+- [24:00.730] the state of California, building more water storage
+- [24:02.590] and more conveyance coordinating.
+- [24:04.940] The President: It would have a great impact.
+- [24:06.660] I know your area very well.
+- [24:08.150] It would have an unbelievable impact on your area.
+- [24:10.330] Male Speaker: Absolutely. We just want to thank you
+- [24:11.770] for making it a priority.
+- [24:13.340] The President: You know, even beyond the fire stuff,
+- [24:15.350] the farms I drive up,
+- [24:17.390] I was driving up with congressmen a few years ago
+- [24:20.850] because they were complaining they had no water.
+- [24:23.180] And I was driving up
+- [24:24.410] and you'll see all of this incredible land,
+- [24:26.780] but it's absolutely bone dry.
+- [24:29.420] And then you'll see little green patches.
+- [24:31.610] And the green patches are so beautiful.
+- [24:33.260] You know, they have that land.
+- [24:34.460] It's they say it's as good as Iowa farmland,
+- [24:37.560] but it has no water and it's artificial, has no water.
+- [24:40.890] They send the water out into the Pacific Ocean.
+- [24:43.180] And when we let that water come through the valleys
+- [24:46.300] and down to Los Angeles,
+- [24:47.870] and you're going to have a different place,
+- [24:49.670] it's going to be a whole different place.
+- [24:51.720] And you guys have to get together and say, we want it.
+- [24:54.680] It's the craziest thing I've ever seen.
+- [24:56.950] So at least you said that.
+- [24:58.980] And I appreciate because you farmers will be able to,
+- [25:02.330] instead of having one acre out of 100, which is all they have,
+- [25:05.950] they'll be able to have 100 acres out of 100.
+- [25:08.100] And it's among the best.
+- [25:09.720] They say it's the best farmland just about in the country,
+- [25:12.210] as good as any place there is. So.
+- [25:14.590] But you can't it's no good without water.
+- [25:16.460] So that's beyond the fire stuff.
+- [25:17.960] But today we're talking about fire.
+- [25:21.690] But it's good for everything. So I hope you can lead a group.
+- [25:24.250] And Daryl, if you can lead a group,
+- [25:25.850] I know how you feel and, you know,
+- [25:29.550] support what I'm doing is what I'm doing,
+- [25:32.220] I guess is controversial.
+- [25:33.550] I don't know what's I don't know what's controversial
+- [25:35.930] about sending millions of dollars,
+- [25:38.650] sending millions and millions of gallons
+- [25:40.880] of beautiful fresh water from the Pacific Northwest
+- [25:44.740] and further up than even that into an area that's bone dry.
+- [25:48.860] We have to you know, I have a house in Beverly Hills
+- [25:52.310] and you get notices every once in a while.
+- [25:54.630] They want you to go down to 38 gallons per person
+- [25:58.040] or something per house per person.
+- [26:00.440] I say, you mean you can only have, you know, 38 gallons?
+- [26:04.510] Sounds like a lot. It's not a lot.
+- [26:06.740] And they want to do that every once in a while.
+- [26:08.900] And you just think it's ridiculous
+- [26:10.290] when you have you have like
+- [26:11.620] just about as much water as anybody in the country.
+- [26:14.090] And we shouldn't be in a position
+- [26:15.550] where you have tumbleweed that's dry as a bone,
+- [26:19.730] that even tumbleweed can be nice and green and rich
+- [26:22.530] and loaded up with water and it's not going to burn.
+- [26:24.560] You don't even have to remove it.
+- [26:25.930] It's not going to burn, but it's just dry.
+- [26:28.560] So I hope you can all get together and say,
+- [26:31.520] I'm so happy with the water that's going to be flowing down
+- [26:34.020] because I just don't see anything.
+- [26:36.260] They talk about the Delta smelt, which is a fish.
+- [26:38.550] That's his big. But it is it is really not.
+- [26:41.480] Does it have to be protected because it's in other areas.
+- [26:44.310] It's in numerous other areas.
+- [26:45.860] So it doesn't have to be protected.
+- [26:48.540] The people of California have to be protected.
+- [26:52.460] Mr. President.
+- [26:57.370] Mr. Kiley: Mr. President.
+- [26:58.660] Mr. President, could I just speak for a moment?
+- [27:00.880] Kevin Kiley, California. Yes. First of all,
+- [27:02.530] you're absolutely right about the Coastal Commission.
+- [27:04.400] I've introduced legislation to rein them in.
+- [27:06.430] We've been talking with Ric about this.
+- [27:07.780] The President: They're out of control.
+- [27:09.110] Mr. Kiley: Absolutely out of control.
+- [27:10.400] It's insane the things they've been getting away with.
+- [27:12.020] The President: I think they thrive on it, actually.
+- [27:13.690] I think it's so ridiculous.
+- [27:15.400] Mr. Kiley: That's right. They even tried to stop Space X
+- [27:17.480] from launching rockets.
+- [27:18.690] The President: It's true.
+- [27:20.950] Mr. Kiley: But you mentioned your predecessor
+- [27:22.530] and how he didn't fix the situation,
+- [27:24.070] which is absolutely right. Not only that, during the call
+- [27:26.860] Under fire, which is a few years ago, which was in my district,
+- [27:29.660] 600 people lost their homes in a town called Grizzly Flat.
+- [27:32.840] He came and he promised that he would help them out.
+- [27:35.110] But he broke that promise. Many times.
+- [27:37.670] He never delivered them the individual assistance
+- [27:39.580] they were asking for. So this has underscored for me
+- [27:43.120] the importance of helping the victims,
+- [27:44.760] making sure this situation and every fire
+- [27:46.960] we get money to the victims
+- [27:48.520] and we make sure that nothing stands in the way of that.
+- [27:51.130] But I just want to thank you for your focus
+- [27:54.100] on bringing sanity to California Water and fire policy.
+- [27:57.420] There's no place that needs a revolution
+- [27:59.150] in commonsense quite like California.
+- [28:00.760] The President: You have so much water,
+- [28:04.470] use it and be happy about it.
+- [28:06.820] Mr. Polock: Mr. President. Happy.
+- [28:08.260] Mr. President, My name is Joel Pollock
+- [28:10.220] and I am a journalist with Breitbart News.
+- [28:13.360] But I happen to live in the Pacific Palisades,
+- [28:16.330] as do other colleagues.
+- [28:19.340] One colleague, John Conn, wrote the song Fighter,
+- [28:22.070] which you played at your campaign rallies.
+- [28:24.290] He lost his house and the studio.
+- [28:25.760] He wrote that song. And we were lucky
+- [28:28.600] because I was able to fight the fire on my fence.
+- [28:32.110] But when I got to my house, there was no water in the pipes.
+- [28:36.210] So I got inside and I picked up the flower vases
+- [28:40.130] because I give my wife flowers every week.
+- [28:42.330] And there was water there. And we started with that.
+- [28:44.860] Then I found my son's bucket of baseballs
+- [28:47.620] and I dumped the baseballs on the ground,
+- [28:49.550] and I used the bucket. But there was still no water
+- [28:52.540] except for the water in the gutter
+- [28:53.800] coming from the burnt homes uphill.
+- [28:57.520] So I went to and fro to my gutter
+- [29:01.320] and my friends with my bucket. Two guys showed up in a truck.
+- [29:04.510] Two neighbors. We found two more buckets.
+- [29:07.030] Bucket after bucket after bucket.
+- [29:10.300] Many of my neighbors, including some here,
+- [29:12.900] tried to fight the fires. They couldn't.
+- [29:14.510] We were lucky our house was saved.
+- [29:17.840] But we should not have to rely on buckets to put out a fire.
+- [29:21.620] The President: That's right.
+- [29:22.830] Mr. Polock: You can't stop an 80 mile per hour wind
+- [29:24.950] or 100 mile per hour wind.
+- [29:26.280] But there were many things that went wrong here
+- [29:28.740] that are basic and small.
+- [29:31.620] We did not have traffic police to guide the evacuation.
+- [29:34.820] So there was gridlock on Sunset.
+- [29:36.510] They've removed the vehicles now,
+- [29:38.310] but there were dozens of vehicles
+- [29:39.870] that were abandoned by drivers who fled for their lives
+- [29:43.190] because there were no traffic cops available.
+- [29:46.380] The fire department wasn't pre-deployed,
+- [29:48.330] even though there was an extreme wind event coming.
+- [29:51.990] And. Many of my neighbors lost their fire insurance
+- [29:56.100] in the days before the blaze.
+- [29:58.900] So I asked my neighbors, what would they want to know?
+- [30:02.500] If I could ask the president a question.
+- [30:04.000] And the number one thing was insurance.
+- [30:07.040] Can you work with the insurance companies
+- [30:09.730] to get people back to where they were
+- [30:12.130] before they lost the coverage
+- [30:13.470] because of California's regulations?
+- [30:15.990] And can you make California change its rules
+- [30:19.470] so that when we build again,
+- [30:21.310] we can get fire insurance and we don't have to worry?
+- [30:24.320] And there's one other point I want to make.
+- [30:26.090] I really appreciate my congressman
+- [30:27.680] advocating for money.
+- [30:28.950] We need the money from the federal government.
+- [30:31.240] But I also understand Americans who are tired of spending money
+- [30:35.380] on California and disasters happen.
+- [30:38.460] And the California government passes $50 million
+- [30:41.370] to oppose your policies.
+- [30:42.710] So they have 50 million for that,
+- [30:44.150] but not for moving people into rental homes
+- [30:47.200] or helping people relocate or rebuild.
+- [30:50.560] I would like to ask you to follow
+- [30:51.830] the 911 Commission precedent and appoint a special master
+- [30:57.350] to watch the money to make sure that every federal dollar
+- [31:01.180] that gets spent here is spent on fire relief
+- [31:03.560] and rebuilding and not on everything else.
+- [31:10.590] The President: Good idea.
+- [31:13.200] This is a good one right over here.
+- [31:14.960] I don't know if you do. We all like. He's very busy.
+- [31:17.420] Ambassador to Germany. He was fantastic.
+- [31:21.730] Angela Merkel's happiest day ever in her history.
+- [31:24.960] And she had a long history.
+- [31:26.540] Was the day I removed him from there
+- [31:28.920] and put him in charge of a very high level
+- [31:31.340] of intelligence and intelligent people.
+- [31:33.500] But they were not intelligent enough to fool him.
+- [31:36.480] But Rick Grenell has been fantastic and he lives here.
+- [31:40.490] And I don't know if you want to either think about it
+- [31:42.770] or recommend some people or get together
+- [31:44.860] and recommend some people as a group, which is fine.
+- [31:47.690] But Rick would be somebody that I would certainly consider.
+- [31:51.180] And Breitbart is fantastic, by the way.
+- [31:53.280] Congratulations on that.
+- [31:56.180] And I was so impressed with the firefighters I met before and.
+- [32:01.680] They said that, you know,
+- [32:03.220] I asked them how many of the pumps,
+- [32:04.930] how many of the hydrants were working.
+- [32:06.520] And it was a you know, large percentage of them
+- [32:09.750] were not working at all. They had no water.
+- [32:11.480] And the ones who did have water didn't have a lot of pressure.
+- [32:14.770] And one of the things that was missing,
+- [32:17.010] many of you have sprinklers in over your living room
+- [32:19.800] and your bathroom in your kitchen.
+- [32:21.790] I mean, if those sprinklers worked with some pressure,
+- [32:25.500] you would have had a lot of you
+- [32:26.890] would have had a much different outcome.
+- [32:28.610] So we're going to work on that. I think in terms of that,
+- [32:32.970] Rick Grenell would be good or Rick,
+- [32:34.720] you'll head up a group of people
+- [32:36.050] that would recommend a few people to me,
+- [32:37.770] maybe a commission set up a commission.
+- [32:39.550] I like it because we're talking about a lot of money.
+- [32:42.420] The other one is Kelly Loeffler
+- [32:44.320] is now the head of small business and small businesses.
+- [32:48.830] Big business. It's one of the it's actually
+- [32:51.140] one of the biggest banks in the world.
+- [32:52.660] We call it the Small Business Administration.
+- [32:55.500] And she's a cabinet member, full cabinet member.
+- [32:59.000] She's fantastic.
+- [33:00.670] Her husband is the head of the New York Stock Exchange.
+- [33:03.160] So they know something about money and other exchanges,
+- [33:05.680] actually fantastic people. And she wants to come here
+- [33:10.170] almost immediately after she gets approved.
+- [33:12.060] She wants to come here and open up small business to the area
+- [33:15.970] because you can have they have a lot of a lot of money.
+- [33:19.870] I always say the small business is actually very big business
+- [33:22.930] when you add it all up and she's going to come here
+- [33:25.640] and it's a very important thing.
+- [33:26.930] I want to thank also the first lady,
+- [33:29.560] because she wanted to come here.
+- [33:32.240] She wanted to be here. She has so many friends
+- [33:34.230] and she also wanted to see North Carolina
+- [33:37.280] because that was another disaster that was so bad,
+- [33:39.970] so different, but so bad.
+- [33:41.280] And and she just wanted to go there.
+- [33:44.500] We said we're going to stop at one
+- [33:45.740] and then we're going to the other.
+- [33:49.030] In many respects, it was a depressing day,
+- [33:51.140] but in many respects it was a beautiful day
+- [33:52.850] because the spirit is so incredible.
+- [33:55.360] North Carolina and here very, very similar situation.
+- [34:00.800] Different for so different and yet so similar, actually.
+- [34:04.290] And so I just thought it was very nice you wanted to be here.
+- [34:07.260] And we appreciate you shaking.
+- [34:17.410] Jay.
+- [34:42.160] Is that local? Yeah. You got it. You got it.
+- [34:46.840] I don't want to be the only one to give you permits,
+- [34:48.990] like in one day.
+- [34:50.600] And then I find out that the cities,
+- [34:52.670] the towns and the state
+- [34:54.400] is not going to give you a permit because.
+- [34:56.190] And you know the problem with permits, it only takes one.
+- [34:59.190] You might need seven different permits.
+- [35:00.840] You shouldn't have any at this point.
+- [35:02.440] You should just let them build.
+- [35:03.640] But and you know, you're only as good as the weakest one.
+- [35:06.790] So if you have one that's going to hold you up,
+- [35:09.100] but the others are going to give it to you in 24 hours,
+- [35:11.680] it's not going to help you very much.
+- [35:13.210] So they have to work on that. That's what everybody said.
+- [35:22.740] Female Speaker: Well, and let me just tell you
+- [35:24.260] that we are going to do everything we can,
+- [35:26.290] slashing regulations, expediting everything
+- [35:29.460] so that people can begin the process right away.
+- [35:32.350] You know, we have the disaster recovery center
+- [35:34.860] on Pico in Westwood.
+- [35:36.470] We have building and safety there.
+- [35:38.020] People are already contacting the local agencies.
+- [35:41.530] We're bringing our our city departments together
+- [35:44.610] so that people don't get caught
+- [35:46.480] in the loop of going from one room to the next.
+- [35:49.090] We want them all to be in the same room
+- [35:51.740] so that you can get busy rebuilding ASAP.
+- [35:57.760] Absolutely. Yes. Yes.
+- [36:01.720] And we will clear the lots. Absolutely.
+- [36:04.070] In the city and in the county. We are working together.
+- [36:07.390] Both levels of government are working in unity.
+- [36:19.030] Yes.
+- [36:22.060] The President: Six months ago. No good.
+- [36:29.430] Female Speaker: And the number one thing
+- [36:30.760] that we were going to do immediately
+- [36:32.470] and you will see this happen is to clear out the debris.
+- [36:36.560] And, you know, we're concerned right now over the weekend
+- [36:39.190] because of the potential rain.
+- [36:41.120] But we are going to move as fast as we can.
+- [36:44.500] But we want you to be safe
+- [36:46.300] and we want you to be back in your homes immediately.
+- [36:49.170] The President: But the people are willing
+- [36:50.520] to clean out their own debris.
+- [36:51.970] It Yes, they can. You should let them do it,
+- [36:54.590] because I know the time you hire contractors
+- [36:56.750] is going to be two years.
+- [36:58.800] Female Speaker: If if a family --
+- [37:00.240] The President: People are willing to get a dumpster
+- [37:03.560] and do it themselves and clean it out.
+- [37:05.370] And they can, there's not that much left.
+- [37:06.800] It's all incinerated.
+- [37:08.020] Female Speaker: That's right.
+- [37:09.310] The President: And, you know,
+- [37:10.530] it's just going to take a long time
+- [37:11.860] if you can do some of it. But a lot of these people
+- [37:14.320] I know that guy right there that's talking.
+- [37:16.650] I know my people.
+- [37:18.010] You'll be on that thing tonight throwing this stuff away
+- [37:20.600] and your site will be it'll look perfect within 24 hours.
+- [37:23.720] And that's what he wants to do.
+- [37:25.040] He doesn't want to wait around for seven months
+- [37:26.980] till the city hires some demolition contractor
+- [37:29.810] and it's going to charge him $25,000 to do his lot.
+- [37:33.550] Yeah, I think you have to.
+- [37:35.330] You have emergency powers just like I do,
+- [37:37.630] and I'm exercising my emergency powers.
+- [37:40.750] You have to exercise them. Also.
+- [37:42.350] Female Speaker: I did exercise.
+- [37:43.570] The President: Because I look, I mean,
+- [37:44.840] you have a very powerful emergency power
+- [37:46.680] and you can do everything within 24 hours. Yes.
+- [37:50.620] Female Speaker: And if individuals want to clear
+- [37:52.240] out their property, they can.
+- [37:57.410] Well, yes, but you know that you will be able to go back soon.
+- [38:00.170] And.
+- [38:01.390] The President: Mr. President.
+- [38:02.590] Female Speaker: We think within a week.
+- [38:06.540] The President: That's a long time.
+- [38:07.770] A week. I'll be honest.
+- [38:08.990] To me, everyone standing in front of their house,
+- [38:10.750] they want to go to work and they're not allowed to do it.
+- [38:12.580] And the. Female Speaker: Most.
+- [38:13.870] The President: A week is a long.
+- [38:15.110] Female Speaker: Time to be safe.
+- [38:17.310] The President: This safe. This safe.
+- [38:18.670] You know what? They're not safe. They're not safe now.
+- [38:21.280] They're going to be much safer. A week.
+- [38:24.420] A week is actually a long time. The way I look at it,
+- [38:27.480] I watched hundreds of people standing in front of their lots
+- [38:31.840] and they're not allowed to go in.
+- [38:33.530] It's all burned. It's gone. It's done.
+- [38:36.280] Nothing's going to happen to it's not going to burn anymore.
+- [38:38.240] There's nothing to burn. There's almost nothing to burn.
+- [38:41.100] And they want to go in.
+- [38:42.390] The people are all over the place.
+- [38:44.210] They're standing. And I say, Why aren't you going in?
+- [38:46.460] We're trying to get a permit
+- [38:47.960] and the permit is going to take them.
+- [38:49.670] Everybody said 18 months. You said 18 months.
+- [38:52.890] You said 18 months last. And that was last night on that.
+- [39:00.220] Mr. Polock: Yeah, right.
+- [39:04.070] Right. He was the first yesterday.
+- [39:07.890] Mr. President, we're going to be together next week.
+- [39:11.490] And during the interim,
+- [39:13.020] many of us are involved in and Tom McClintock,
+- [39:16.350] who, you know, has been an expert on this for years.
+- [39:18.210] The President: That's right.
+- [39:19.490] Mr. Polock: We are going to be putting conditions on the money
+- [39:22.640] to do two things require that it be done timely and affordable.
+- [39:27.990] And then secondly, that we protect those
+- [39:31.150] who will come afterwards.
+- [39:33.100] As we speak, there are 6000 acres
+- [39:35.080] burning in my district on the Mexican border.
+- [39:37.880] There will be more fires until we include
+- [39:42.170] in any disaster relief items which will prevent it
+- [39:45.990] or at least mitigate it from happening again.
+- [39:48.440] So you're going to see us proposing both of those.
+- [39:51.640] The President: Like. Like water. Little things like water.
+- [39:56.180] You know, the party of common sense.
+- [39:57.720] See where the Brad with the party of common sense.
+- [39:59.910] You're not. In all fairness, we like water to put out fires.
+- [40:04.010] It's really quite efficient. All right.
+- [40:05.980] Mr. Polock: Thank you, Mr. President.
+- [40:07.250] Speaker 7 Mr. President. I'm Jay Ober.
+- [40:10.510] And also, my district is just a bit east of here.
+- [40:12.240] The President: Yeah.
+- [40:13.530] Speaker 7 And you were talking about the need
+- [40:15.380] to better manage our forests and our wild lands
+- [40:17.970] to prevent this from happening again.
+- [40:20.100] And you were so right about that. Just last year.
+- [40:24.360] A couple of months ago in October, they put out a fire.
+- [40:26.790] The line fire in my district
+- [40:28.450] was over twice as big as the Palisades Fire,
+- [40:31.630] and they put it out less than a mile from my house in an area
+- [40:35.690] where we had done the thinning
+- [40:37.610] and they stopped the fire, Mr. President,
+- [40:40.010] on a firebreak that we had built a couple of years ago.
+- [40:42.770] Right. We have an area just on the other side of my community
+- [40:45.990] that hasn't been thinned in decades
+- [40:47.550] because it's being held up by a lawsuit
+- [40:51.250] from an environmental group
+- [40:52.570] that says we're going to reduce habitat.
+- [40:54.370] Mr. President, we need to,
+- [40:56.300] in addition to getting resources and boots
+- [40:58.590] on the ground to do this treatment,
+- [41:00.420] we need to reform our legal system
+- [41:02.410] to prevent these lawsuits from tying up these projects
+- [41:05.620] for years and years and years.
+- [41:07.310] And not to say that they should, the merit shouldn't be heard,
+- [41:09.270] but we need to hear them and we can move on, resolve them.
+- [41:11.680] The President: Is this a state group, state or federal group?
+- [41:14.410] Speaker 7 This is a local group, actually, Mr. President.
+- [41:16.620] But they have help from the state.
+- [41:17.820] The President: They use the environment
+- [41:19.040] to make themselves feel good
+- [41:20.630] and they're destroying our country.
+- [41:22.640] And you've got to at some point,
+- [41:23.900] you've got to put your foot down.
+- [41:25.160] I don't know exactly what you're talking.
+- [41:26.590] You have local and state groups
+- [41:28.330] and you have federal groups, too,
+- [41:30.480] and you got to fight them the right way because,
+- [41:33.430] you know, you will never even have the mayor
+- [41:36.060] gives you're going to have a local group come in and sue.
+- [41:38.220] You're not allowed to go in your property.
+- [41:40.450] They're going to talk about asbestos and every other thing.
+- [41:43.460] They want to go on their property
+- [41:45.230] and they want to clean out their property.
+- [41:47.730] And you cannot let anything get in their way.
+- [41:49.810] And you'll have this place built up quickly.
+- [41:51.830] Beautiful. It'll be more beautiful than before.
+- [41:54.580] And I would do one other thing.
+- [41:55.970] I'd give them a 10%, 15% bonus on their house
+- [41:59.880] because they went through hell
+- [42:01.570] and they should be allowed to build a little bit,
+- [42:03.290] give them a little bit flatline bonus,
+- [42:04.930] give them a bonus on size, maybe a little bonus on height.
+- [42:09.120] They went through hell, you know,
+- [42:11.030] some of them had houses where they were restricted.
+- [42:13.720] They have to have an eight foot ceiling.
+- [42:15.350] You let them have a ten foot ceiling,
+- [42:17.750] let them build a nice house,
+- [42:19.120] a nicer house than they had before.
+- [42:21.140] But I would give them a 10 or 15% bonus on on their plants.
+- [42:26.460] And I think it would be it would be very well-received
+- [42:29.830] because they'll be able to build a little bit nicer.
+- [42:32.460] House Do you like that idea, by the way?
+- [42:35.200] Yeah, they do. They deserve it. Because you know what?
+- [42:39.100] It's not their fault that this fire took place.
+- [42:41.120] This fire took place. Could have been stopped.
+- [42:43.390] It's not their fault. It's not the homeowners fault.
+- [42:46.340] And I think they should they should be entitled
+- [42:48.480] to a bonus on their house.
+- [42:49.890] Female Speaker: Okay.
+- [42:51.120] Mr. Polock: Please go ahead. Thank you.
+- [42:53.950] Some good news from Paradise.
+- [42:55.530] We stood together there six years ago,
+- [42:57.170] along with the governor. That was that 34 home.
+- [43:00.970] 3400 homes have been rebuilt out of the 18,000 lost,
+- [43:04.950] and there's 400 more in the wings.
+- [43:06.700] And so FEMA was very helpful.
+- [43:09.090] Now, my colleague who has Altadena here,
+- [43:11.270] probably a very similar situation,
+- [43:13.230] clearing the lots are probably going to have to clear
+- [43:15.470] about a foot worth of soil underneath those foundations.
+- [43:18.180] Right. To get the toxicity out.
+- [43:19.880] So they'll need a lot of help. Those are working class folks.
+- [43:22.510] The President: And and we did a good job with you.
+- [43:24.440] Mr. Polock: FEMA was extremely helpful.
+- [43:26.290] The President: That was the old days when FEMA was good.
+- [43:28.260] FEMA is no good anymore. That was when we ran it.
+- [43:30.940] FEMA was very good. But now FEMA is not good.
+- [43:33.220] Mr. Polock: We've got to get them on track but on the water.
+- [43:35.130] Thanks so much for your strong efforts on that right now.
+- [43:39.550] Lake Chasse, which is in my district,
+- [43:41.410] is dumping more water than what is coming in.
+- [43:43.870] So is Folsom Lake.
+- [43:45.550] And those are federal projects that should be building up
+- [43:48.250] because we're ladder January, ladder, January here.
+- [43:51.870] And there's not you can't count on the rain and the snow coming.
+- [43:55.740] Yeah. Every year.
+- [43:57.360] And so if we don't fill those projects,
+- [43:59.410] then my colleague in San Joaquin Valley
+- [44:01.460] isn't going to get his water for his farmers.
+- [44:02.960] Well, maybe you're right.
+- [44:04.200] Up in the north, they aren't going to get it.
+- [44:05.860] And then the water needs to go through Aqueduct
+- [44:07.510] for Southern Cal to refill maybe the Santa Ynez Reservoir
+- [44:10.680] that was empty during the year.
+- [44:12.030] The President: Don't even need reservoirs.
+- [44:13.340] With the water coming down, you don't need the reservoir.
+- [44:15.610] You have so much water, you don't need it.
+- [44:17.190] You only have reservoirs because you're trying to hold water,
+- [44:20.740] but you have natural water coming down along the coast.
+- [44:25.590] It's 4 million years it's been coming.
+- [44:27.430] You know that, right? Yeah.
+- [44:28.750] In addition to that, you have a lot of half pipe.
+- [44:30.990] In other words, you have the half pipe that's built
+- [44:33.350] and it hasn't been used. You see it's bone dry.
+- [44:36.690] No water has been in that half pipe for years and years.
+- [44:40.700] Just closed up years.
+- [44:42.170] Mr. Polock: Ago at the reservoir.
+- [44:43.780] The President: Yeah.
+- [44:45.070] Mr. Polock: Yeah.
+- [44:46.310] You had the reservoir above Senate say it's been full.
+- [44:49.790] They wouldn't have run out of water in a few hours.
+- [44:51.580] It would have gone for at least a few days
+- [44:53.080] with 40, 40 acre feet out of 600,000.
+- [44:56.950] The President: Reservoirs been empty for a long time.
+- [44:59.210] Yeah, it shouldn't have been empty.
+- [45:00.660] Okay. Any other questions? Yes, please.
+- [45:03.130] Female Speaker: Mr. President. My name is Tracy Park.
+- [45:05.470] I represent the people of the Pacific Palisades
+- [45:08.650] on the L.A. City Council.
+- [45:10.710] I wanted to thank you for your loyal support
+- [45:13.390] to our military, our police officers,
+- [45:16.170] and especially our firefighters.
+- [45:25.010] That. My top priority going forward
+- [45:31.890] is to get these men and women home
+- [45:34.100] as soon as possible and open up the pathway
+- [45:37.110] to begin their rebuilding process.
+- [45:39.650] It was the Army Corps of Engineers
+- [45:42.240] who announced last night that it would be 18 months.
+- [45:45.960] I am fully committed to doing my part on the ground
+- [45:48.790] with our state agencies and our city
+- [45:51.200] and our county partners to speed this up.
+- [45:53.720] Could I just ask for your ongoing partnership with FEMA
+- [45:57.160] and the EPA and our other federal agencies
+- [46:00.500] to make sure that we have a commitment
+- [46:02.770] across all layers of government to get these people back home?
+- [46:07.190] Thank you, sir.
+- [46:08.460] The President: I do. I do. Thank you very much.
+- [46:10.560] It's well said.
+- [46:11.810] I do have to say FEMA's a big disappointment.
+- [46:14.910] We had it working well. We had great people.
+- [46:16.730] But FEMA's not good anymore. What FEMA did in North Carolina,
+- [46:19.700] you know, they still haven't even gone to certain areas.
+- [46:21.830] They don't know what they're doing.
+- [46:23.180] And I say. You don't need FEMA.
+- [46:26.920] You need a good state government.
+- [46:28.980] And when you have a problem in Los Angeles
+- [46:30.990] or when you have a problem, even in the state of California,
+- [46:33.650] you have your own essentially FEMA, you fix it yourself.
+- [46:37.480] You don't have somebody coming in
+- [46:38.870] from a state where they have no idea, like Florida.
+- [46:41.080] They come in from hurricanes.
+- [46:42.940] They have people staying in Alaska,
+- [46:45.010] and now they see, this is very nice.
+- [46:47.410] But by the time they get familiar with it,
+- [46:49.200] they don't know anything. The FEMA is a very expensive,
+- [46:52.990] in my opinion, mostly failed situation.
+- [46:55.800] We had great people. We did some great jobs.
+- [46:57.980] But each state should take care of their problem
+- [47:00.810] and get money from the federal government.
+- [47:02.630] It would be so much better, so much more efficient.
+- [47:05.530] So we're looking at that because we have had.
+- [47:08.340] And you're going to have problems with FEMA, too.
+- [47:10.090] You've already had problems with FEMA.
+- [47:12.180] FEMA doesn't even show up.
+- [47:13.640] It takes weeks before they even show up.
+- [47:16.650] And what happens is the state then relies on FEMA
+- [47:20.120] and nobody doesn't think there's FEMA doesn't show up.
+- [47:22.570] So it's not a good situation.
+- [47:24.600] So we'll make some recommendations on that.
+- [47:27.010] But you have to push like hell to get the permits
+- [47:28.950] because I'm just hearing things that I don't like to hear.
+- [47:33.110] I think you're not going to get your permits
+- [47:34.860] as fast as people are saying we have to get them in.
+- [47:38.340] If I can help you at all in that regard, you let me know.
+- [47:40.560] But you're going to have all your federal permits.
+- [47:42.410] That's going to be the easy part,
+- [47:43.910] which, by the way, is the by far the hardest part.
+- [47:47.640] You know, controls your water is Department of Commerce.
+- [47:50.080] And I already have that approval.
+- [47:52.100] And that's usually a very long process.
+- [47:54.530] But that's that's the hard part was the federal.
+- [47:57.820] But we already have that done.
+- [48:00.380] So anything I can do, please let me know.
+- [48:02.160] Please go ahead.
+- [48:19.640] You lost all your schools, you lost four,
+- [48:22.870] you lost your four schools.
+- [48:45.710] Where they completely burned down the schools.
+- [48:48.530] Well, all of them. All of them.
+- [48:59.730] All. No, you can't. No.
+- [49:02.020] Female Speaker: That's right.
+- [49:15.940] The President: Well, I'm going to ask Rick to set,
+- [49:18.700] I think, right from this table.
+- [49:20.470] You might put a couple of the fire guys back there
+- [49:22.680] on that I just met. Okay.
+- [49:24.570] Because they're really good. But get a group and figure out
+- [49:28.610] how we can do the processing faster.
+- [49:30.390] Mr. Polock: Just.
+- [49:31.710] Mr. President, if I can just defend FEMA a little bit.
+- [49:34.780] Yeah. They brought thousands of people in.
+- [49:39.830] I don't know how they're doing in other states.
+- [49:41.620] They're doing a good job for us here.
+- [49:44.130] They've got a huge center that's open from nine
+- [49:46.810] in the morning till eight at night.
+- [49:49.040] But also, when you have a disaster this size,
+- [49:51.520] you need to be able to deploy thousands of people,
+- [49:54.080] which they've been able to do.
+- [49:56.010] Now, California, if we did it on our own,
+- [49:57.920] maybe we'd have thousands of people.
+- [49:59.890] You do. But but if Rhode Island has a Palisades disaster,
+- [50:04.340] are they then supposed to keep How.
+- [50:05.850] The President: Many people do you have in California?
+- [50:07.490] 36. How many? How many million? How many?
+- [50:10.190] How many million people you have?
+- [50:11.530] But you have 40 million people.
+- [50:13.540] You're not going to get a few thousand people.
+- [50:15.670] The problem with FEMA is they come from all over the country.
+- [50:19.110] They end up in arguments with the people from California
+- [50:22.050] because they want to do it a totally different way.
+- [50:24.770] And they're getting I can live either way.
+- [50:26.860] But you haven't gotten very much done with FEMA workers.
+- [50:29.570] And all you have to do is look at North Carolina.
+- [50:31.870] It's one of the great disasters of all time.
+- [50:34.050] Mr. Polock: And, Mr. President, you can't have Rhode Island
+- [50:36.320] maintain a staff of thousands and thousands of people
+- [50:39.350] waiting to see if they have a disaster.
+- [50:42.000] The President: You know who came in and fixed
+- [50:43.540] North Carolina or in the process?
+- [50:45.570] Other states, people from all over the country came.
+- [50:48.200] And you have the same thing.
+- [50:49.470] You have a lot of people from all over the country.
+- [50:51.730] Getting the people is not a problem.
+- [50:53.730] Getting the organization is a big problem.
+- [50:56.030] FEMA's incompetently run and it costs
+- [50:58.180] about three times more than it should cause.
+- [51:00.070] I'm hoping we can spend money on schools
+- [51:02.090] instead of giving money to bureaucracy.
+- [51:04.810] It takes you so much longer.
+- [51:08.850] Mr. President, I thank you so much.
+- [51:11.430] Mr. Polock: For helping our people.
+- [51:12.770] The President: FEMA has a standard red,
+- [51:14.930] and I'm a builder. I build.
+- [51:16.200] It was a good, very good builder.
+- [51:18.470] FEMA has a standard that's so slow.
+- [51:22.000] They want permit on permit or permit,
+- [51:24.410] and then they want permits on top of that.
+- [51:26.800] If you use FEMA, you'll be here for a long time.
+- [51:30.090] What I'm saying is get the city get the state
+- [51:34.510] to give you immediate 24 hour permits.
+- [51:36.930] These people are going to build their own homes.
+- [51:38.540] They're going to get them built fast.
+- [51:40.560] How many of the three Could I ask you one question?
+- [51:43.030] How many of the people what are people going to do
+- [51:45.570] for financing? What are people going to do?
+- [51:47.340] How many people can build a percentage was like
+- [51:50.840] where they don't have to go out and get funds.
+- [51:54.730] Some people, it's just not going to be able to rebuild their home
+- [51:57.080] because they have a beautiful home, but they don't have cash.
+- [51:59.990] Right. So what what are people looking to do in that case?
+- [52:03.130] You're going to have a big percentage,
+- [52:05.000] I would assume, bread like that.
+- [52:06.780] What are they going to do? Go ahead.
+- [52:10.270] Mr. Polock: Mr. President, without your help,
+- [52:11.810] they're only going to get $43,000
+- [52:13.770] from the federal government,
+- [52:15.170] even if they have a half million dollars.
+- [52:17.700] The President: Something red with every insurance company
+- [52:20.120] in the country left California.
+- [52:22.560] That's why you have no insurance,
+- [52:23.880] because you made it so impossible.
+- [52:25.480] People that think like you made it so impossible and.
+- [52:29.650] Mr. Polock: Crashed me.
+- [52:31.020] The President: Every company. I don't know.
+- [52:33.470] Mr. Polock: I don't know. I'll tell you that. My thing.
+- [52:35.500] The President: I've never seen a state
+- [52:37.390] where almost nobody has insurance.
+- [52:38.940] And they said what happened?
+- [52:40.200] And they said, like six months ago they all left.
+- [52:42.890] And two years ago they had different quadrants,
+- [52:46.490] but they left.
+- [52:47.750] And you have very little insurance here.
+- [52:49.370] I mean, I've never seen anything like it.
+- [52:51.110] Mr. Polock: We had a lot of insurance companies pull out.
+- [52:52.830] But I have.
+- [52:54.050] The President: My insurance companies actually have been
+- [52:55.790] warning you now.
+- [52:57.030] I'm not a big fan of insurance companies.
+- [52:58.880] Okay. They have their big drawbacks, too.
+- [53:00.810] But the insurance company I've been reading,
+- [53:03.110] I read the papers very well.
+- [53:04.480] And, you know, they've been warning California
+- [53:06.520] for a long time.
+- [53:08.070] They've also been saying, we want water.
+- [53:10.030] You don't have water.
+- [53:11.300] You know, you're supposed to get fire insurance.
+- [53:13.680] And the insurance company goes,
+- [53:15.390] you don't have any water in you fire hydrants.
+- [53:18.260] So it's a tough situation.
+- [53:19.890] I'm not a big fan of insurance companies. I get that.
+- [53:23.120] Mr. Polock: They're but they're pulling out of Florida.
+- [53:24.840] The President: And you lost your insurance company six months ago
+- [53:27.550] because the state wouldn't give them what they had to have.
+- [53:30.990] You know, and Mr. President.
+- [53:32.250] Mr. Polock: I remember the.
+- [53:33.470] The President: Police got.
+- [53:38.620] Mr. Polock: I'm editing from the California Policy Center.
+- [53:40.750] And in the matter of prevention of fires,
+- [53:44.790] no matter of the cost of rebuilding,
+- [53:47.790] both of which affect insurance rates,
+- [53:50.120] I think, one,
+- [53:51.680] to support something one of the other participants said,
+- [53:54.950] a reform you might consider and it could be an act of Congress,
+- [53:58.600] is that the losers in environmentalist lawsuits
+- [54:03.260] pays the legal fees.
+- [54:04.900] And I think that would be a big step in the right direction.
+- [54:08.580] The losers of.
+- [54:12.660] The President: You mean loser pays?
+- [54:13.950] I love that. Well, if you did, loser pays.
+- [54:17.030] You could cut your courts in about one hour,
+- [54:20.020] but you could cut them down about 90%.
+- [54:22.850] Loser pays. You know what would also benefit medical?
+- [54:26.090] If you had a loser pays for medical,
+- [54:28.030] your medical costs would go down by 50%.
+- [54:31.410] That's an interesting thing. You know, I bring that up.
+- [54:33.680] But, you know, the only problem,
+- [54:34.970] the strongest lobby in the world,
+- [54:36.860] you know what it is? The lawyer lobby.
+- [54:40.460] So when you go back to your local congressman.
+- [54:43.160] Hello, Congressman.
+- [54:44.420] How about how about going against the lawyers
+- [54:46.990] for a little while now? Loser pays, you know, very good.
+- [54:49.650] In Europe, they use it in certain parts of Europe
+- [54:52.460] and they have very little litigation, right?
+- [54:54.820] Yes, please.
+- [54:56.660] Mr. Polock: Mr. President,
+- [54:57.880] I represent the 27th Congressional District,
+- [55:00.390] which is on the north side of the north San Fernando Valley
+- [55:03.040] through Santa Clarita and Lancaster and Palmdale.
+- [55:05.890] I just wanted to tell you a story of heroism.
+- [55:08.290] Yesterday we had another big fire.
+- [55:10.450] We had several big fires across and this fire was moving fast.
+- [55:14.880] It's moving 1000ft per minute. But what these heroes did,
+- [55:21.280] the firefighters and the sheriffs
+- [55:23.170] and the law enforcement officials,
+- [55:24.550] they mobilized 4000 people. Within about six hours,
+- [55:28.550] they mobilized 20 air attack aircraft and helicopters,
+- [55:32.410] and they saved the city of Castaic.
+- [55:34.670] And so I just wanted to ask you to join us
+- [55:36.350] in recognizing those. I love.
+- [55:37.800] The President: That. I love that we we.
+- [55:44.660] Mr. Polock: I think the thing that we all
+- [55:46.820] and I'm very encouraged by your words,
+- [55:48.960] we are all here to help the folks here.
+- [55:51.440] Yeah, right. That's right.
+- [55:52.700] And your words about building quickly.
+- [55:56.270] Building well, but building quickly
+- [55:58.700] is what I think we are all here to do.
+- [56:01.610] And I think if we can take that spirit out of today,
+- [56:04.470] it is really important that you and your wife are here.
+- [56:08.280] If we can take that spirit,
+- [56:09.770] we're going to help these people as quickly as possible,
+- [56:12.220] get them back on their feet
+- [56:13.470] and recreate these amazing communities.
+- [56:15.460] The President: And you'll you'll take the word spirit.
+- [56:17.130] Such a great word. Such an important word.
+- [56:18.790] You'll take their guts away. You'll take their spirit away.
+- [56:21.080] If you don't give them preference,
+- [56:22.790] you're going to take their guts. They're going to say, we.
+- [56:25.840] All of a sudden they'll started looking for houses
+- [56:27.890] and your whole thing is going to blow up on you.
+- [56:30.280] These people want to get going. This place can go quickly,
+- [56:33.580] but you don't want to take this spirit away.
+- [56:35.380] And that will take this bear of. I see. You're 100% right.
+- [56:38.280] Yes, sir. Thank you.
+- [56:44.360] Mr. Polock: Their home. Thanks.
+- [56:56.990] Mr. Polock: You already have interests now.
+- [57:02.260] The President: Right. You're expanding the market.
+- [57:05.230] Is that right? Yeah, we do. You like.
+- [57:12.710] You notice that? Look at this guy.
+- [57:14.460] He studies that now. Bank of America.
+- [57:17.030] They're not nice. Sounds very nice.
+- [57:19.310] The Bank of America. They're not nice.
+- [57:22.410] Mr. Polock: Banks to pay off pressure.
+- [57:27.820] The President: Well, we're starting to do.
+- [57:29.320] We're doing numbers on banks. Yeah, we're doing.
+- [57:31.580] Is that Leonard Bucks are next to you?
+- [57:33.740] Well. We have Leonard. We have on this Skip.
+- [57:37.780] I have them all here. Look at Skip.
+- [57:40.470] I haven't seen you in a long time.
+- [57:41.950] You used to be a very good golfer.
+- [57:43.330] You still good golfer, And he's a good guy.
+- [57:47.250] Too high, Skip. You got them all.
+- [57:49.860] How good, Leonard? Skip. Thank you. Go ahead, please.
+- [57:56.710] Mr. Polock: Mr. President, I just wanted to say.
+- [57:58.040] Paradise is coming back because of the help that you gave us.
+- [58:01.410] And we really want to thank you for that.
+- [58:03.560] And that's why we're here also, is because we want.
+- [58:05.850] The President: To help our.
+- [58:07.050] We did a good job with Paradise and what a fire that was.
+- [58:10.570] It was a time where you had many, many people were found
+- [58:13.690] and only the the certain type of German shepherd
+- [58:18.130] could even find it. Right.
+- [58:19.590] You could you could not tell the dog would go right up.
+- [58:23.290] There's the body.
+- [58:24.850] And the incineration was so horrible, so horrible.
+- [58:28.250] Mr. Polock: And when we see what we see,
+- [58:29.570] the same devastation.
+- [58:30.840] The President: So Paradise is going good, Red.
+- [58:32.160] Mr. Polock: It's going good. We're coming.
+- [58:33.380] The President: Back.
+- [58:34.580] Mr. Polock: And it's because of the help.
+- [58:35.790] And we want to help our brothers and sisters here in L.A.
+- [58:38.040] to come back to.
+- [58:39.600] And I know that's what you're going to do.
+- [58:41.510] And so we really appreciate that.
+- [58:43.490] Mr. Polock: But from Paradise to the Palisades, the problem.
+- [58:45.860] Mr. Polock: Is fuel is the fuel,
+- [58:47.660] the vegetation, the dry grasses.
+- [58:49.550] Mr. Polock: The the chaparral.
+- [58:52.030] Mr. Polock: It's there's a tremendous amount of it.
+- [58:53.950] The President: And when you got to remove it,
+- [58:55.230] you got to remove it and you got to remove it
+- [58:57.300] and you got to do the other things
+- [58:58.870] that we've said ten times.
+- [59:00.080] I mean, you got to remove it. You just can't have it.
+- [59:02.310] I see it even now. I saw the fire.
+- [59:04.260] We flew over it and you got a lot of dry stuff.
+- [59:07.100] It's bone dry.
+- [59:08.940] Mr. Polock: And the environmental and, you.
+- [59:10.290] The President: Know, I predicted this seven years ago.
+- [59:12.050] I said, do it, get it done. And nobody everybody laughed.
+- [59:15.910] They thought it was I said, forest management.
+- [59:18.370] They thought it was such a funny term.
+- [59:19.880] Ha ha ha. That's so funny.
+- [59:22.120] Now it's not funny anymore. You know, we were right.
+- [59:24.220] Mr. Polock: It's number one.
+- [59:25.600] Mr. Polock: Cause of these fires, number one.
+- [59:27.340] The President: Cause you wouldn't have any fires, right?
+- [59:29.420] Mr. Polock: And if we just removed.
+- [59:30.640] Mr. Polock: Those environmental.
+- [59:31.880] Mr. Polock: Regulations, Nepa secure.
+- [59:34.030] Mr. Polock: At the state level,
+- [59:35.340] they get in the way of us doing those.
+- [59:36.610] The President: Projects. It's all a con job.
+- [59:38.390] You know that, right? So very, very kind of.
+- [59:40.750] Mr. Polock: Town of Berry Creek in my district.
+- [59:42.200] Yeah. Sequel.
+- [59:43.440] Stop them from doing a fuel reduction project.
+- [59:46.010] Mr. Polock: They said 18 months.
+- [59:47.250] Mr. Polock: That's where 18 months comes from
+- [59:48.760] because at least 18.
+- [59:50.000] Mr. Polock: Months on a sequel review,
+- [59:51.690] that community is no longer here.
+- [59:53.200] Mr. Polock: Today because of the North complex fire.
+- [59:54.980] Mr. Polock: We didn't build that project.
+- [59:56.630] We need to make sure that never happens again.
+- [59:58.890] We have to stop those things from happening so we don't have.
+- [01:00:01.940] The President: It will happen here.
+- [01:00:03.530] It's unless you're very strong as a group of people and demand
+- [01:00:07.030] that you have the right to go onto your property
+- [01:00:09.530] and start the process immediately, like tomorrow.
+- [01:00:13.070] How many people that I see on your street
+- [01:00:15.340] where they're standing in front of their lot,
+- [01:00:17.450] the houses, there's really not much demolition.
+- [01:00:20.100] It's incinerated, right? So it's not like a lot of stuff.
+- [01:00:23.900] It's not like you have three stories worth of concrete.
+- [01:00:26.510] It's all incinerated.
+- [01:00:28.290] And all of the people were standing there
+- [01:00:30.300] and they weren't allowed to even go onto their lot.
+- [01:00:33.130] You got to let them do If you if you can do that,
+- [01:00:36.030] you're going to see this thing go like wildfire.
+- [01:00:37.840] And if you don't, you're going to have
+- [01:00:39.610] you're going to have those lots for years
+- [01:00:41.120] because people are going to leave.
+- [01:00:42.400] They're going to as much as you love your location
+- [01:00:44.370] and your place and you're in the real estate business,
+- [01:00:47.280] as much as you love your location and your your site,
+- [01:00:50.470] your house, housing sites, they're going to leave.
+- [01:00:53.910] They're going to leave. They're going to find other things.
+- [01:00:55.840] They're not going to put up with it.
+- [01:00:57.440] They have spirit now, but in a year from now,
+- [01:01:00.170] they won't have spirit if you don't let them go.
+- [01:01:01.960] So just harness it.
+- [01:01:04.230] Well, I think look, I'm going to give you everything you want.
+- [01:01:07.390] I'm going to give you more than any president
+- [01:01:09.000] would have ever given you.
+- [01:01:10.200] If most presidents wouldn't be here, number one,
+- [01:01:12.600] they certainly wouldn't be here for three days.
+- [01:01:14.940] They would not be here.
+- [01:01:16.200] Mr. Polock: I can tell you that. And.
+- [01:01:22.770] The President: We're going to override all of permitting.
+- [01:01:25.360] The only thing you have to do is get your state people,
+- [01:01:27.270] which should be very easy,
+- [01:01:28.480] because that's literally so easy to do.
+- [01:01:30.610] And I know the mayor and I know she's working very hard,
+- [01:01:33.240] but she's got a very powerful emergency.
+- [01:01:36.670] It's called an emergency petition.
+- [01:01:38.990] And you can you can petition very quickly.
+- [01:01:41.650] And I just hope you can give them,
+- [01:01:43.300] because it's very rare that the federal government would be
+- [01:01:46.550] ahead of the state government because the federal government,
+- [01:01:48.890] federal permits are much tougher.
+- [01:01:51.050] But you essentially already have your permits.
+- [01:01:53.540] You can just go and go wild,
+- [01:01:56.720] read as soon as you can get those permits,
+- [01:01:58.520] Whatever you can do, if you can put that genius of yours
+- [01:02:01.010] to work on getting a permit, you'll be doing much better
+- [01:02:03.340] than some of the other things you've said.
+- [01:02:05.590] Okay. And but we do appreciate you.
+- [01:02:09.520] So Mayor, could I just leave you with that?
+- [01:02:12.130] It's a big permitting deal. We're going to be back
+- [01:02:14.720] and we're going to I'm going to put Rick in charge of
+- [01:02:18.020] just representing me for a period of time
+- [01:02:19.800] until we figure out exactly who we want to do it,
+- [01:02:23.110] whether we want a commission or an individual.
+- [01:02:25.210] You know, if you have a good individual,
+- [01:02:27.270] if you have a really good individual and they are rare,
+- [01:02:30.550] but if you have a really good individual,
+- [01:02:32.270] it's always better than a commission
+- [01:02:34.980] because a commission gets bogged down a little bit there.
+- [01:02:37.370] All right. So it's if you had the right individual
+- [01:02:41.100] and I know we do,
+- [01:02:42.840] we have a lot of great individuals in this community,
+- [01:02:45.000] but it's an honor to be with you.
+- [01:02:47.310] It was an honor to be with your firemen
+- [01:02:49.040] before and your policemen. We met some great people.
+- [01:02:52.130] And these are people that are leaders
+- [01:02:54.050] and they're just fantastic.
+- [01:02:56.170] It's a fantastic group of people and they were very brave.
+- [01:02:59.090] I want to tell you, fire people are so well thought of.
+- [01:03:04.060] You had big fires and it was hard to put them out.
+- [01:03:06.110] But boy, were they brave.
+- [01:03:07.480] They were really fighting against a tough thing.
+- [01:03:10.120] And everybody in the country knows.
+- [01:03:12.750] Mr. Polock: Everybody in the country knows.
+- [01:03:16.000] And it was an honor to be with you.
+- [01:03:17.890] So I'll be back and.
+- [01:03:20.970] The President: Will work very hard.
+- [01:03:22.270] And I hope you guys can start doing your cleanup
+- [01:03:24.620] starting like tomorrow at around 12:00.
+- [01:03:27.160] Okay. Thank you all very much. Thank you very much.
+- [01:03:30.300] Mr. Polock: Thank you. Thanks.
+- [01:03:41.990] Thank you.
+- [01:03:43.230] The President: Thank you, everybody.
+- [01:03:44.460] Thank you. Thank you, Tony.

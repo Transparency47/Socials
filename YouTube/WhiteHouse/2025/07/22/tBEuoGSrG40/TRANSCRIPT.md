@@ -1,0 +1,799 @@
+<!-- source: https://www.youtube.com/watch?v=tBEuoGSrG40 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: tBEuoGSrG40 -->
+<!-- date_published: 2025-07-22T16:17:57+00:00 -->
+<!-- date_accessed: 2026-06-02T02:46:49.313836+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Philippines
+
+- [00:09.555] >> The President: Well, thank you very much, everybody.
+- [00:10.910] It's a great honor to have President Ferdinand Marcos, Jr.
+- [00:14.760] of the Philippines. A great family.
+- [00:17.680] Great family legacy and highly respected in this country.
+- [00:21.910] I know that because there are many friends in the Philippines,
+- [00:24.220] and it's great respect.
+- [00:26.030] Or I couldn't say it, so congratulations.
+- [00:27.500] >> President Marcos: Thank you.
+- [00:28.730] >> The President: We're going to be talking about trade.
+- [00:29.970] We're gonna be talking about war and peace.
+- [00:33.680] They're a very important nation, militarily.
+- [00:36.650] And we've had some great drills lately.
+- [00:38.940] We’re back with them.
+- [00:40.350] I think I can say that the last administration
+- [00:43.950] was not getting along with them too well.
+- [00:46.980] They didn't get along with anybody. They didn't know.
+- [00:49.430] Honestly, they didn't know what they were doing.
+- [00:51.550] But we have some fantastic military relationships
+- [00:55.660] with the Philippines, and that's been reinstituted.
+- [00:58.660] And, Pete, I would say that you were –
+- [01:00.940] you couldn't be happier, right, with the relationship?
+- [01:02.850] >> Pete Hegseth: Absolutely. Great partners.
+- [01:04.070] >> The President: So, I just want to say
+- [01:06.070] it's an honor to have you.
+- [01:07.380] We're going to talk about trade today.
+- [01:09.570] And we're very close to finishing a trade deal.
+- [01:12.340] Big trade deal, actually.
+- [01:14.070] And we do a lot of business with you.
+- [01:15.640] It's a lot of income coming in for both groups.
+- [01:20.520] But I was surprised to see the kind of numbers.
+- [01:22.540] They're very big, and they're going to get bigger
+- [01:25.260] under what we're doing and what we are proposing.
+- [01:28.600] And I just want to thank you for being with us.
+- [01:30.540] It's great honor. You and your representatives.
+- [01:32.280] It's really a great, great honor.
+- [01:34.620] We have a big announcement.
+- [01:36.700] AstraZeneca, the big drug company,
+- [01:39.240] is going to spend $50 billion --
+- [01:41.860] just announced – $50 billion in the United States
+- [01:45.270] in order to build various places all over the country.
+- [01:47.970] Big manufacturing plants,
+- [01:50.160] pharmaceutical plants all over the country.
+- [01:52.520] So that's an honor.
+- [01:54.080] And he said they did that because of the election
+- [01:56.820] and because of the fact that the tariffs are placed.
+- [01:59.780] So they're building their facilities in New York.
+- [02:02.450] 50 billion. That's a big investment.
+- [02:05.430] And it's going to be a very good investment.
+- [02:08.610] I have no doubt about it. So, thank you to AstraZeneca.
+- [02:12.780] And with that, I'd like to have you say a few words, please.
+- [02:15.710] >> President Marcos: Thank you very much, Mr. President.
+- [02:18.010] Of course, we're all very happy to be here to, once again,
+- [02:21.650] reaffirm the very strong ties
+- [02:24.550] between the Philippines and the United States.
+- [02:26.950] Ties that have gone back over 100 years.
+- [02:30.200] And considering the context in which we live these days,
+- [02:33.590] especially in my part of the world, this has become –
+- [02:37.160] this has evolved into as important a relationship
+- [02:40.940] as is possible to have.
+- [02:42.790] We must remember that the United States
+- [02:44.800] is our only treaty partner in the Philippines.
+- [02:50.810] And that has stood us in good stead over the years through –
+- [02:59.160] certainly through the Second World War.
+- [03:01.180] And the cultural memory of all Filipinos
+- [03:06.250] down to even the school children is that our strongest, closest,
+- [03:12.330] most reliable ally has always been the United States.
+- [03:16.650] That is something that we value, that we are grateful for,
+- [03:20.730] and that we will continue to foster as we go on.
+- [03:25.300] With the leadership of President Trump,
+- [03:28.250] I am very confident that we'll be able to achieve that.
+- [03:31.850] I think it is worthwhile to remember
+- [03:35.840] that it was President Trump who, in his first term,
+- [03:39.850] characterized the relationship between the Philippines
+- [03:43.490] and the United States as ironclad.
+- [03:46.660] And that has been necessarily the case
+- [03:50.480] since that time that you made that statement, sir.
+- [03:54.620] And it is a one –
+- [03:56.120] it is something that the Philippines
+- [03:57.960] will always hold close to its heart.
+- [04:00.320] Thank you once again. We are honored.
+- [04:03.340] And it's our great pleasure to be here
+- [04:06.250] and to visit with the President of the United States.
+- [04:07.950] Thank you, sirs.
+- [04:09.230] >> The President: Thank you very much.
+- [04:10.450] It is my great honor. Any questions?
+- [04:13.030] [crosstalk]
+- [04:14.680] Yeah. Please go ahead. Go ahead.
+- [04:16.070] >> Speaker 1: Mr. President.
+- [04:17.890] Do you think that Fed Chair Jerome Powell should resign?
+- [04:21.860] >> The President: I think he's doing a bad job,
+- [04:23.390] but he's going to be out pretty soon anyway.
+- [04:25.830] In eight months he'll be out.
+- [04:29.080] But he’s – I call him too late. He's too late all the time.
+- [04:31.890] He should have lowered interest rates many times.
+- [04:34.060] Europe lowered their rate 10 times. We lowered ours none.
+- [04:37.700] And it's causing a problem for people that want to buy a home.
+- [04:40.590] Look, our economy is so strong now
+- [04:42.530] we're blowing through everything.
+- [04:43.950] We're setting records. You know that. You see that.
+- [04:47.660] Whether it's the Philippines or anyone else.
+- [04:49.160] We're setting records at levels
+- [04:50.600] that nobody has ever seen before.
+- [04:51.870] But you know what? People aren't able to buy a house
+- [04:55.310] because this guy is a numbskull. He keeps the rates too high.
+- [04:59.870] And probably doing it for political reasons.
+- [05:02.500] The only time I remember him cutting rates – I mean,
+- [05:04.540] he cut the rates just before the election to try and help Kamala
+- [05:08.690] or whoever he was trying to help.
+- [05:10.160] He probably didn't know.
+- [05:11.830] And he's building a building. It's $2.7 billion.
+- [05:15.280] You have a $900 million overrun. What is it?
+- [05:19.160] And that was given by Biden. That was another Biden deal.
+- [05:22.850] And this guy is building
+- [05:24.060] this building that's severely overrun,
+- [05:27.270] and what does he need a building for?
+- [05:29.040] Why does he – he needs space for more people?
+- [05:31.500] So they did a big study the other day,
+- [05:33.460] and they called all of the great intellects
+- [05:35.780] and the great economists and all of the great everything.
+- [05:39.850] And they – it was 71. And only two got it right.
+- [05:43.210] Me and another gentleman that happens to be very smart.
+- [05:47.980] Sixty-nine people got it wrong,
+- [05:49.690] and the Fed got it more wrong than anybody.
+- [05:52.850] And, you know, he has these think tanks,
+- [05:54.400] and they build buildings for people that think.
+- [05:57.410] And it's really not thinking.
+- [05:58.720] It's a little bit of combination of thinking,
+- [06:01.000] but it's something you sort of have or you don't have.
+- [06:05.400] They don't – this – the job he's done is just terrible.
+- [06:09.160] He ought to raise interest rates.
+- [06:10.600] You know, we would – we should be at one percent.
+- [06:14.170] We should be leading the world.
+- [06:16.280] Instead, we're paying four percent.
+- [06:18.830] And if you look at what that means,
+- [06:20.570] that's over a trillion dollars in interest that we have to pay.
+- [06:24.450] That with the striking of a pen,
+- [06:27.330] we would be saving more than $1 trillion.
+- [06:30.140] Is that right, Scott? Do you have anything to say about it?
+- [06:33.120] >> Scott Bessent: Yes, sir.
+- [06:34.510] I called yesterday and this morning for the Fed
+- [06:37.920] to do a big internal investigation to understand
+- [06:42.130] not their monetary policy, but everything else.
+- [06:44.880] The Fed has had big mission creep,
+- [06:47.020] and that's where a lot of the spending is going.
+- [06:49.450] That's why they're building these new –
+- [06:52.080] or refurbishing these buildings.
+- [06:54.140] And I think they've got to stay in their lane.
+- [06:56.730] And I think that based on the way they cut rates last fall,
+- [07:02.320] they should be cutting rates now.
+- [07:04.220] >> The President: It's inconceivable.
+- [07:05.520] I know the Fed very well that they can be spending
+- [07:08.470] 2.7 billion to build a building. They don't do anything.
+- [07:12.350] They just, I mean, it's the greatest job.
+- [07:13.850] You show up one day, a half a day,
+- [07:16.100] you make a little speech. The economy is doing well.
+- [07:18.260] The economy's not doing well, we're going to raise interest.
+- [07:21.050] And he's got it wrong. That's why I call him too late.
+- [07:23.060] T-O-O. Too late. And it's really too bad.
+- [07:27.280] But it is affecting people that want to buy houses.
+- [07:30.120] And that shouldn't happen. >> Speaker 1: And Mr. President.
+- [07:31.890] [crosstalk]
+- [07:33.090] >> The President: And, you know, he should lower it.
+- [07:34.320] He should lower them.
+- [07:35.610] Those rates should be three points lower.
+- [07:37.250] That’s where they should be.
+- [07:38.500] Three points lower. Maybe more than that.
+- [07:40.800] [crosstalk]
+- [07:42.380] >> Speaker 2: I would like to ask both of you one question.
+- [07:44.730] Mr. President Marcos. Next year,
+- [07:47.860] Philippines is going to be the rotating chair of ASEAN.
+- [07:50.780] I wonder how do you plan to balance your relationship
+- [07:53.970] between the United States and China?
+- [07:56.190] And for President Trump. Kremlin yesterday said,
+- [07:59.300] if you are going to Beijing in September,
+- [08:01.610] they wouldn't rule out a meeting between you and President Putin.
+- [08:05.650] Is such a meeting possible?
+- [08:07.200] And how soon do you plan to visit China?
+- [08:10.100] >> The President: Well, we have a lot of meetings possible.
+- [08:12.000] President Xi has invited me to China,
+- [08:14.850] and we'll probably be doing that in the not-too-distant future.
+- [08:17.960] A little bit out, but not too distant.
+- [08:20.240] And I've been invited by a lot people,
+- [08:22.940] and we will make those decisions pretty soon.
+- [08:25.750] Please.
+- [08:28.700] >> President Marcos: Well, as you say,
+- [08:32.720] we are chairing ASEAN for – in 2026.
+- [08:39.210] There is no need, in a sense, to balance, as you characterize it.
+- [08:45.420] To balance our relationship with the United States and China,
+- [08:49.010] simply because our foreign policy is an independent one.
+- [08:52.410] And we are essentially concerned
+- [08:55.500] with the defense of our territory
+- [08:58.540] and the exercise of our sovereign rights.
+- [09:01.130] Now whether we do this not alone.
+- [09:07.060] We need to do this with our partners
+- [09:09.620] and again our strongest partner
+- [09:11.850] has always been the United States
+- [09:14.020] but of course we are trying to form coalitions
+- [09:17.780] and multilateral relations.
+- [09:19.340] So that we, those like-minded nations
+- [09:23.030] who share the same values as we do,
+- [09:25.240] who hew to the international law,
+- [09:29.670] most specifically the UNCLOS,
+- [09:33.110] present that position very clearly to anyone
+- [09:38.100] who has intentions of unilaterally
+- [09:40.650] changing the world order. And that is how we are guided.
+- [09:46.250] >> The President: And I don't mind
+- [09:47.540] if he gets along with China,
+- [09:49.960] because we're getting along with China very well.
+- [09:52.010] We have a very good relationship.
+- [09:53.440] In fact, the magnets,
+- [09:55.020] which is a little complex piece of material,
+- [09:59.000] but the magnets are coming out, you know, very well.
+- [10:02.250] They're sending them in record numbers.
+- [10:04.430] We're getting along with China very well.
+- [10:05.980] And I don't mind if the President dealt with China.
+- [10:10.420] You know, that's meant because I think he has to do
+- [10:12.480] what's right for his country.
+- [10:13.680] I've always said, you Make the Philippines great again.
+- [10:16.530] Do whatever you need to do.
+- [10:17.790] But your dealing with China wouldn't bother me at all.
+- [10:21.200] >> President Marcos: Well, no, it is something
+- [10:22.810] that we have to do in any case, yeah, certainly.
+- [10:25.530] [crosstalk]
+- [10:28.800] >> Speaker 3: Mr. President,
+- [10:30.000] do you support the Justice Department
+- [10:31.590] seeking a new interview with Ghislaine Maxwell
+- [10:33.350] and did you urge the Attorney General to seek one?
+- [10:35.950] >> The President: I don't know a thing about it.
+- [10:37.150] They're gonna what? Meet her?
+- [10:38.390] >> Speaker 3: They're going to
+- [10:39.770] – your deputy attorney general is reached out
+- [10:43.120] to Galen Maxwell's attorney asking for a new interview.
+- [10:45.650] >> The President: Yeah, I don't know about it.
+- [10:46.910] But I think it's something that would be,
+- [10:48.760] sounds appropriate to do, yeah.
+- [10:49.980] >> Speaker 3: Do you have any concern
+- [10:51.230] that your Deputy Attorney General,
+- [10:52.800] who's your former attorney,
+- [10:54.710] would be conducting the interview,
+- [10:55.990] given your relationship with Pat?
+- [10:59.070] >> The President: He's a very talented person.
+- [11:00.430] He's very smart.
+- [11:01.960] I didn't know that they were going to do it.
+- [11:03.390] I don't really follow that too much.
+- [11:06.170] It's sort of a witch hunt.
+- [11:08.540] Just a continuation of the witch hunt.
+- [11:10.170] The witch hunt that you should be talking about
+- [11:12.340] is they caught President Obama absolutely cold.
+- [11:15.570] Tulsi Gabbard.
+- [11:17.850] What they did to this country in 2016,
+- [11:21.050] starting in 2016 but going up all the way
+- [11:23.720] – going up to 2020 of the election.
+- [11:26.730] They tried to rig the election, and they got caught.
+- [11:30.400] And there should be very severe consequences for that.
+- [11:33.430] You know, when we caught Hillary Clinton,
+- [11:34.950] I said, you know what? Let's not go too far here.
+- [11:39.320] It's the ex-wife of a president,
+- [11:41.700] and I thought it was sort of terrible.
+- [11:43.680] And I let her off the hook, and I'm very happy I did.
+- [11:47.700] But it's time to start – after what they did to me.
+- [11:51.870] And whether it's right or wrong, it's to go after people.
+- [11:56.280] Obama's been caught directly.
+- [11:58.780] So people say, oh, you know, a group.
+- [12:00.400] It's not a group, it's Obama.
+- [12:02.440] His orders are on the paper. The papers are signed.
+- [12:05.320] The papers came right out of their office.
+- [12:07.040] They sent everything to be highly classified.
+- [12:09.670] Well, the highly classified has been released.
+- [12:12.410] And what they did in 2016 and in 2020 is very criminal.
+- [12:18.700] It's criminal at the highest level.
+- [12:20.840] So that's really the things you should be talking about.
+- [12:23.360] I know nothing about the other,
+- [12:24.570] but I think it's appropriate that they do go.
+- [12:26.760] >> Speaker 4: May I ask you about that, Mr. President?
+- [12:28.740] Tulsi Gabbard has submitted a criminal referral
+- [12:31.800] to the Department of Justice.
+- [12:33.740] From your perspective, who should the DOJ target
+- [12:37.160] as part of their investigation?
+- [12:38.710] What specific figures in the Obama administration?
+- [12:42.660] >> The President: Well, based on what I read,
+- [12:44.520] and I read pretty much what you read,
+- [12:47.430] it would be President Obama. He started it.
+- [12:50.120] And Biden was there with him,
+- [12:51.860] and Comey was there, and Clapper.
+- [12:54.530] The whole group was there. Brennan.
+- [12:57.580] They were all there in a room. Right here, this was the room.
+- [13:01.290] This is much more beautiful than it was then, but that's okay.
+- [13:04.510] I have nice pictures up. They came out of the vaults.
+- [13:07.470] They were there for 100 years. This is much more beautiful.
+- [13:11.600] We have the Declaration of Independence
+- [13:13.520] now in the room, which wasn't here.
+- [13:15.420] I guess people didn't feel too good about putting it here,
+- [13:18.120] but I do.
+- [13:19.350] But you know what? If you look at those papers,
+- [13:22.790] they have them stone cold, and it was President Obama.
+- [13:26.960] It wasn't lots of people all over the place.
+- [13:29.830] It was them, too.
+- [13:31.080] But the leader of the gang was President Obama,
+- [13:34.560] Barack Hussein Obama. Have you heard of him?
+- [13:37.410] And except for the fact that he gets shielded
+- [13:39.740] by the press for his entire life.
+- [13:42.680] That's the one they
+- [13:45.110] – Look, he's guilty. It's not a question.
+- [13:47.140] You know, I like to say, let's give it time.
+- [13:51.210] It's there. He's guilty.
+- [13:53.900] This was treason. This was every word you can think of.
+- [13:58.480] They tried to steal the election.
+- [14:01.050] They tried obfuscate the election.
+- [14:03.630] They did things that nobody's ever even imagined,
+- [14:06.360] even in other countries.
+- [14:08.100] You've seen some pretty rough countries.
+- [14:09.680] This man has seen some rough countries,
+- [14:11.910] but you've never seen anything like it.
+- [14:13.680] And we have all of the documents.
+- [14:16.270] And from what Tulsi told me,
+- [14:18.860] she's got thousands of additional documents coming.
+- [14:22.810] So President Obama, it was his concept, his idea,
+- [14:28.360] but he also got it from crooked Hillary Clinton.
+- [14:31.400] Crooked as a $3 dollar bill.
+- [14:33.990] Hillary Clinton and her group, the Democrats,
+- [14:37.450] spent $12 million to Christopher Steele
+- [14:41.360] to write up a report that was a total fake report.
+- [14:43.830] Took two years to figure that out,
+- [14:46.090] but it came out that it was a totally fake report.
+- [14:49.250] It was made up fiction. And they used that.
+- [14:52.660] The one thing they weren't able to do was to –
+- [14:55.550] and probably the only thing
+- [14:56.900] I respect about the press in years,
+- [14:58.750] is the press refused to write it before the election.
+- [15:03.390] They refused to put it in.
+- [15:05.220] The Steele report was a disaster.
+- [15:07.480] All lies, all fabrication, all admitted.
+- [15:10.650] And admitted fraud.
+- [15:12.630] She paid $12 million and the Democrats
+- [15:16.030] for that report to a wise guy named Christopher Steele.
+- [15:19.280] He wrote a phony report.
+- [15:21.680] And they wanted to get that report in before the election.
+- [15:25.150] And I'll tell you what, I talk about all the time
+- [15:27.410] the fake news, how bad it is.
+- [15:29.210] But in this case, they wouldn't do it.
+- [15:32.530] They saw it, they read it, and they said, we don't believe it.
+- [15:37.430] And it was only after, substantially, like a month
+- [15:39.810] and a half after the election that it got printed,
+- [15:42.420] and it was a big wisp.
+- [15:43.640] It was just like a bang of nothing
+- [15:45.870] because the election had ended.
+- [15:47.740] If that report had gotten published
+- [15:51.370] by the New York Times or somebody.
+- [15:53.140] And I respect the Times, for maybe only this,
+- [15:55.570] because they're crooked as you can be.
+- [15:57.300] They're a terrible paper. A crooked, corrupt paper.
+- [16:01.140] But for this one moment, they said, this is bullshit.
+- [16:05.020] We can't put this in. And neither could any other.
+- [16:07.910] Wall Street Journal is a lousy paper.
+- [16:09.680] Very, very dishonest paper.
+- [16:12.010] As you see, I'm suing them for a lot of money
+- [16:13.740] because they do things very badly.
+- [16:16.580] It's a really – it's got a nice name,
+- [16:18.290] but it's really, in my opinion, it is a terrible paper.
+- [16:22.290] It can be corrupt. But just so you know.
+- [16:25.760] They didn’t take the Steele report.
+- [16:28.530] It was the dossier. Remember the famous dossier?
+- [16:31.470] I called it the fake news dossier.
+- [16:33.940] The news wouldn't publish it.
+- [16:36.460] And I'm amazed, they had two and a half months,
+- [16:39.000] it was finished, two and half months.
+- [16:41.270] That was supposed to be what was going to happen.
+- [16:43.900] And it got published a couple of months after the election.
+- [16:47.600] And frankly, nobody cared too much about it.
+- [16:49.950] But that was a big thing.
+- [16:51.220] No, no, we caught Hillary Clinton.
+- [16:53.430] We caught Barack Hussein Obama. They're the ones.
+- [16:57.030] And then you have many, many people under them.
+- [16:59.440] Susan Rice. They're all there.
+- [17:02.190] The names are all there, and I guess they figured
+- [17:05.490] they're going to put this in classified information,
+- [17:08.310] and nobody will ever see it again.
+- [17:10.010] But it doesn't work that way.
+- [17:12.370] And it's the most unbelievable thing I think I've ever read.
+- [17:15.290] So you ought to take a look at that
+- [17:17.990] and stop talking about nonsense, because this is big stuff.
+- [17:22.080] Never has a thing like this happened
+- [17:24.010] in the history of our country.
+- [17:25.780] And by the way, it morphed into the 2020 race.
+- [17:29.350] And the 2020 race was rigged, and it was a rigged election.
+- [17:33.370] And because it was rigged,
+- [17:34.710] we have millions of people in our country.
+- [17:36.500] We have – we had inflation. We solved the inflation problem.
+- [17:40.900] But millions and millions of people
+- [17:42.550] came into our country because of that.
+- [17:44.880] And people that shouldn't have been –
+- [17:46.670] people from gangs and from jails and from mental institutions.
+- [17:52.120] People that we don't want in our county.
+- [17:53.820] People that were getting out.
+- [17:55.350] Dangerous people, 11,888 murderers,
+- [17:59.810] many of them 50%, more than 50%, murdered more than one person.
+- [18:06.220] I hate to say this with such a distinguished guest,
+- [18:08.380] but, you know, they asked me a question.
+- [18:10.490] I gotta answer the question.
+- [18:12.390] No, Barack Hussein Obama is the ringleader.
+- [18:17.380] Hillary Clinton was right there with him,
+- [18:19.070] and so was Sleepy Joe Biden, and so were the rest of them.
+- [18:22.050] Comey, Clapper, the whole group.
+- [18:24.580] And they tried to rig an election, and they got caught.
+- [18:27.900] And then they did rig the election in 2020.
+- [18:30.760] And then because I knew I won that election by a lot,
+- [18:33.000] I did it a third time, and I won in a landslide.
+- [18:35.430] Every swing state won the popular vote.
+- [18:38.470] But I won it all the same way in 2020
+- [18:41.540] and look at the damage that was caused.
+- [18:44.070] [crosstalk]
+- [18:49.060] >> Speaker 5: How crucial is the ammunition hub
+- [18:50.760] that the U.S. Plans to build in Subic and the Nuzon corridor
+- [18:53.960] considering that these will be built in areas
+- [18:56.710] that host strategic ports as well as military air bases?
+- [19:00.650] >> The President: Is that for ammunition?
+- [19:02.180] >> Speaker 5: Yes, the U.S. House Congressional Committee
+- [19:05.130] on Appropriations approved the budget.
+- [19:06.450] >> The President: Well, it’s very important.
+- [19:07.690] >> Speaker 5: Sorry?
+- [19:08.900] >> The President: Otherwise, we wouldn't have approved it.
+- [19:10.400] >> Speaker 5: Sorry?
+- [19:10.670] >> The President: Yeah, it's very important.
+- [19:11.940] Otherwise, we wouldn't. We need ammunition.
+- [19:13.830] We're going to end up, in a few months,
+- [19:15.250] we'll have more ammunition than any country has ever had.
+- [19:18.280] We're gonna have more missiles than any country has ever had.
+- [19:21.480] We're going to have all the speedy missiles.
+- [19:23.150] We'll have the speed ones, the slow ones,
+- [19:25.020] the accurate ones, the ones that are slightly less accurate.
+- [19:28.120] We have everything.
+- [19:29.440] But we will have more ammunition than any country's ever had,
+- [19:33.200] it is very important to me.
+- [19:34.760] [crosstalk]
+- [19:37.160] Go ahead, please, [unintelligible].
+- [19:38.890] >> Speaker 6: Sir, when you say that you're close
+- [19:40.390] to making a trade deal,
+- [19:41.770] what gaps remain? And for President Marcos, sir,
+- [19:45.090] I was just wondering, do you not think
+- [19:46.680] that perhaps the Philippines hosting U.S. missile systems
+- [19:51.310] could be considered escalatory by China,
+- [19:53.320] especially because they can strike even mainland China?
+- [19:56.450] Thank you.
+- [19:57.650] >> The President: Well, it's an honor to be
+- [20:00.530] with this gentleman. You know, I've known him,
+- [20:02.310] and I've known his family, actually, but I've known him.
+- [20:05.800] And he's — I assume you're from the Philippines?
+- [20:07.350] Are you from the Philippine?
+- [20:08.580] >> Speaker 6: Yes, sir.
+- [20:09.850] >> The President: It's good. You're very lucky to be
+- [20:11.240] from the Philippines. It's a great place.
+- [20:13.800] But we're going to have a very good relationship.
+- [20:16.660] I mean, I know you had some problems with another President,
+- [20:20.890] and it was not your fault. It was the President's fault.
+- [20:23.680] And the country was maybe tilting toward China,
+- [20:27.910] but we untilted it very, very quickly.
+- [20:30.600] But, you know, you did have – you had a country
+- [20:32.300] that was tilting towards China for a period of time,
+- [20:34.490] and I just don't think that would have been good for you.
+- [20:36.700] You can deal with China. We should deal with China,
+- [20:39.330] but when I got elected, everything changed,
+- [20:43.180] and they came right back to us.
+- [20:45.070] [crosstalk]
+- [20:48.340] >> The President: Say it again. Yeah, Brian. Go ahead.
+- [20:49.840] >> Speaker 7: Oh, Mr. President,
+- [20:51.070] I just wanted to piggyback off housing –
+- [20:52.340] >> Speaker 6: Sorry. I had a question to President Marcos.
+- [20:53.720] [crosstalk]
+- [20:54.930] >> President Marcos: Yes, yes, I'm sorry,
+- [20:56.150] what was the question again?
+- [20:57.440] >> Speaker 6: It was about whether having US missiles
+- [21:00.540] hosted in the Philippines
+- [21:01.770] could be considered escalatory by China.
+- [21:04.450] >> President Marcos: All of what we consider
+- [21:07.080] part of the modernization of the Philippine military
+- [21:10.010] is really as a response to the circumstances
+- [21:13.420] that surround the situation around the South China Sea
+- [21:17.380] and now what we used to refer to the Asian Pacific,
+- [21:20.770] which we have expanded now to the Indo-Pacific.
+- [21:23.570] And if we would, certainly, like any kind of military spending,
+- [21:29.840] we would wish that it wasn't necessary, but it is.
+- [21:33.720] And so that is what we are doing.
+- [21:35.380] And as an adjunct to the question
+- [21:37.600] about the ammunition production.
+- [21:41.650] This is actually the United States
+- [21:43.410] is assisting the Philippines
+- [21:46.370] in what we call our self-reliance defense program,
+- [21:50.630] which is to allow us to be self-reliant
+- [21:53.980] and to be able to stand on our own two feet
+- [21:56.280] whatever the circumstances that occur in the future
+- [22:01.310] and the reason that we have all –
+- [22:03.540] we have encouraged more interaction
+- [22:06.770] with the United States
+- [22:08.240] is because it is again, it is necessary.
+- [22:10.610] And it is not just with the United States.
+- [22:12.920] It is with all our neighboring countries
+- [22:14.990] and even countries as far afield
+- [22:19.540] as Scandinavian countries, the EU.
+- [22:21.930] And so this is an ongoing process.
+- [22:25.990] And again, I will stress the point that we do this
+- [22:30.490] because we feel it is necessary.
+- [22:31.690] [crosstalk]
+- [22:33.000] >> The President: And don’t forget.
+- [22:34.350] Don't forget,
+- [22:35.590] just as a tantamount to what you're asking,
+- [22:40.260] the Philippines were loaded up with ISIS
+- [22:42.630] and a lot of terrorists,
+- [22:44.330] and they were at a very, very dangerous point.
+- [22:47.370] And during my administration, we went in
+- [22:49.600] and we wiped them out.
+- [22:51.260] Working with the Philippines, but we wiped him out.
+- [22:54.380] But if we didn't get in, I don't know what would have happened.
+- [22:56.720] I don't know who would be your President right now.
+- [23:00.710] But we spent a lot of time and a lot of talent
+- [23:03.890] on going into the Philippines and wiping out terrorists.
+- [23:06.750] They had a tremendous problem –
+- [23:08.290] >> President Marcos: We did.
+- [23:09.500] >> The President: During my administration.
+- [23:11.170] And we cleaned it up. We got them out.
+- [23:12.840] And now you really have a good, solid country again.
+- [23:14.720] >> President Marcos: I believe so.
+- [23:15.980] Yes
+- [23:17.270] [crosstalk]
+- [23:18.510] >> Speaker 7: Mr. President I want to follow up
+- [23:19.740] on the housing question. We've got no tax on tips,
+- [23:22.320] no tax in overtime, no tax on social security.
+- [23:25.010] How important is it we have no tax on home
+- [23:27.910] sales, capital gains, to unleash the housing market?
+- [23:30.960] >> The President: Well, we're thinking about that,
+- [23:32.440] but would also unleash it just by lowering the interest rates.
+- [23:35.800] If the Fed would lower the rates,
+- [23:37.130] we wouldn't even have to do that.
+- [23:38.440] But we are thinking about no tax on capital gains on houses.
+- [23:42.780] And I'm very impressed that you asked that question,
+- [23:44.850] because nobody knew that.
+- [23:46.110] How did you find that out? That's very good.
+- [23:47.330] >> Speaker 7: Well I wonder why there’s [unintelligible]
+- [23:48.690] very close [unintelligible].
+- [23:49.910] >> The President: There's a leaker. There’s a leaker.
+- [23:51.160] [laughter]
+- [23:52.360] >> Speaker 7: I've also got a question.
+- [23:54.010] I find it a very interesting world
+- [23:56.240] that we know more about two people at a Coldplay concert,
+- [23:59.540] just hours after that viral video,
+- [24:02.220] than we know of Thomas Crooks,
+- [24:03.980] one year after attempting to assassinate you.
+- [24:06.930] What is holding back the investigation on Thomas Crooks?
+- [24:10.140] >> The President: Well, they've reported to me
+- [24:11.490] and they've told me things, and they really say they haven't
+- [24:15.230] found anything that was abnormal.
+- [24:17.370] I would say this. The Secret Service was very brave
+- [24:21.270] because they, you know, they were right there
+- [24:23.540] and they jumped on me. They made a mistake.
+- [24:25.350] They should have had somebody on that roof
+- [24:27.400] and they should have communication
+- [24:28.740] with the local police, who also.
+- [24:30.130] I mean, they did a very good job.
+- [24:32.310] But they made some mistakes.
+- [24:33.690] And we have a whole different group of people now.
+- [24:37.460] I don't think any – look. Anything can happen.
+- [24:41.150] But I think we have the best people
+- [24:42.730] anywhere in the world right now, and I think they've learned.
+- [24:45.270] And you know they went into him very, you know, great detail.
+- [24:48.690] They gave me the whole thing and what can I do?
+- [24:52.460] They say that it was just a nut job
+- [24:55.980] that was looking to do this.
+- [24:57.450] And I spoke with the FBI. The new FBI.
+- [25:02.220] I spoke to the FBI, who was the old FBI.
+- [25:04.990] I wouldn't have believed a thing they said
+- [25:06.470] because the old FBI under Comey was crooked as hell.
+- [25:09.560] He was one of the most crooked.
+- [25:11.020] Everybody should read the Horowitz report.
+- [25:13.710] Unfortunately, Bill Barr didn't use it.
+- [25:16.030] But the Horowitz report, not appointed by me.
+- [25:19.200] It was a report on Comey and the FBI.
+- [25:22.150] It is one of worst shots at a human
+- [25:26.420] being I think I've ever seen.
+- [25:27.770] In fact, the New York Times did an editorial
+- [25:30.930] that was one the worst editorials
+- [25:32.390] I've ever seen about anybody. That was about Comey.
+- [25:35.220] You have to go back and get – and Barr didn't use it
+- [25:37.890] because he didn't have the guts to use it or something happened,
+- [25:40.930] I don't know. Too bad.
+- [25:42.660] He went to Mr. Durham. Instead of during the Durham,
+- [25:46.310] all that they had to use the Horowitz Report.
+- [25:48.540] And I always felt badly for Horowitz, frankly,
+- [25:50.580] because he's a Democrat, I guess.
+- [25:53.680] He was appointed by a Democrat.
+- [25:55.790] But that report has gotten lost and it shouldn't be lost.
+- [26:00.190] You should all go back. It should be mandatory reading.
+- [26:03.350] Go back and read the Horowitz Report on Comey and his cronies.
+- [26:09.020] And you'll see exactly
+- [26:10.520] – we're going to add that to all the stuff that we found.
+- [26:14.140] It just confirms it.
+- [26:15.850] But what we found is even more so.
+- [26:17.920] Now, we found absolute – this isn't like evidence or –
+- [26:21.490] this is like proof, irrefutable proof,
+- [26:25.000] that Obama was seditious.
+- [26:28.640] That Obama led – was trying to lead a coup.
+- [26:33.180] And it was with Hillary Clinton, with all these other people.
+- [26:36.030] But Obama headed it up.
+- [26:37.930] And, you know, I get a kick when I hear everyone talking
+- [26:40.680] about people I'd never even heard of.
+- [26:42.110] Was this – No, no. It was Obama. He headed it up.
+- [26:46.130] And it says so right in the papers.
+- [26:48.140] It's got everything. Got everything.
+- [26:50.920] This is the biggest scandal in the history of our country.
+- [26:55.190] And it really goes on to even the auto pen,
+- [26:58.830] because it all relates to the same thing.
+- [27:01.050] It all started the same sick minds.
+- [27:03.430] You have an auto pen, which is a tremendous –
+- [27:05.250] well, we don't have a president.
+- [27:06.460] We have an autopen that signs everything.
+- [27:08.370] I'll bet you sign everything. You don't have autopen.
+- [27:10.420] [laughter]
+- [27:11.680] Everybody, who doesn't sign?
+- [27:12.900] You're the president of a country.
+- [27:14.750] But it's all that whole thing.
+- [27:17.290] Leading right up to the end of it is the autopen,
+- [27:20.590] and the autopen was used by people.
+- [27:23.110] And Biden knew nothing about it. Biden knew nothing about it.
+- [27:26.630] They were signing documents that he knew nothing about.
+- [27:29.550] As an example, they released the Unselect Committee of Liability.
+- [27:35.300] The Unselect Committee spent two years grilling everybody,
+- [27:38.960] and then they destroyed all the evidence.
+- [27:41.070] You know why? Because the evidence made them guilty,
+- [27:44.000] and he gave them all a pardon.
+- [27:45.750] The Cheney, all the scum that was on the Unselect Committee.
+- [27:50.780] Kryan, Adam, Kinzinger, and Democrats.
+- [27:54.160] And he gave him a pardon.
+- [27:55.450] Do you have something else? Go ahead.
+- [27:56.860] >> Speaker 7: I was just going to add
+- [27:58.150] one more thing on Adam Schiff.
+- [28:00.100] Director Pulte reports that Adam Schiff claims
+- [28:03.950] he lived in a one-bedroom apartment.
+- [28:06.020] How does a family of four, and you're a developer,
+- [28:07.910] a very southern developer,
+- [28:09.410] how does a families of four live in a 1-bed room apartment?
+- [28:12.070] >> The President: Now, it looks like Adam Schiff
+- [28:14.830] really did a bad thing. They have him.
+- [28:19.180] Now, let's see what happens. It's not up to me.
+- [28:21.440] It's up to – I stay out of it purposely.
+- [28:24.190] But it's mortgage loan fraud. It's a big deal.
+- [28:28.130] He defrauded banks and insurance companies
+- [28:31.690] and the federal government.
+- [28:33.440] But it is very simple. It's mortgage-loan fraud.
+- [28:36.120] And you're right, it's a lot of people to live
+- [28:38.470] in a one-bedroom apartment, right?
+- [28:40.020] But he put it down.
+- [28:41.230] But he has a lot of other things far worse than that.
+- [28:43.290] So, no, Adam Schiff,
+- [28:45.590] they have him 100 percent on mortgage fraud.
+- [28:50.260] Now, if there's anybody else in this room
+- [28:52.250] except you, you would have no problem.
+- [28:55.180] But anybody else, in this room, you'd have a problem.
+- [28:58.360] I'd have problem. Yeah, please.
+- [29:00.170] >> Speaker 8: Sir, there was a hearing yesterday
+- [29:01.710] in the Harvard case.
+- [29:02.960] Would you allow Harvard to get their federal dollars back
+- [29:05.650] as a part of any agreement with the administration?
+- [29:08.110] >> The President: No, I'm not giving
+- [29:09.800] – Harvard's been given $7 billion.
+- [29:12.850] Can you believe it by the fact? Seven billion.
+- [29:15.410] And we want money to go to all universities, not Harvard.
+- [29:18.510] Harvard got more than anybody else.
+- [29:20.570] They have $52 billion.
+- [29:23.060] They get huge tax incentives and tax breaks on that $52 billion.
+- [29:27.200] But they have $52 billion,
+- [29:29.420] and they got $7 million over a short period of time.
+- [29:32.800] And we have a very hostile judge
+- [29:34.400] appointed by Barack Hussein Obama.
+- [29:37.030] A very, very hostile judge who knows exactly right from wrong.
+- [29:42.440] But, you know, we don't – we expect to win it on appeal.
+- [29:45.290] She hasn't given a decision yet. But she's very hostile.
+- [29:48.830] And she's been – she was put by Barack Hussein Obama.
+- [29:52.340] And, generally speaking, anybody that does that, it's going to
+- [29:55.660] – we're going to have problems with.
+- [29:57.200] So we don't expect to have – we won the case yesterday.
+- [30:01.200] Anybody that was there that was a neutral would say
+- [30:04.430] we easily won the case. But a lot of the case,
+- [30:07.890] and a big part of it is going to be,
+- [30:10.210] how much money Harvard gets in the future.
+- [30:12.920] That's not part of the case
+- [30:14.260] and they're not going to get very much.
+- [30:15.740] [crosstalk]
+- [30:16.940] >> Speaker 9: Sir. Where are we in terms of negotiating
+- [30:21.280] about the reciprocal tariff?
+- [30:22.830] How far are we from – >> The President: With who?
+- [30:24.260] >> Speaker 9: With the Philippines.
+- [30:25.540] Yes, sir. How far –
+- [30:26.740] >> The President: Are you from the Philippines?
+- [30:27.940] >> Speaker 9: Yes, right.
+- [30:29.180] From the Philippines, how far are you from achieving –
+- [30:30.880] >> The President: Well, it's tough,
+- [30:32.080] he's a very tough negotiator.
+- [30:33.790] So far, we're not there because he's negotiating too tough.
+- [30:37.110] In fact, I used to like him better than I do now.
+- [30:38.820] [laughter]
+- [30:40.020] He's too tough, but we'll probably agree to something.
+- [30:42.640] But he is.
+- [30:43.900] He is a strong negotiator, he loves your country.
+- [30:47.260] [crosstalk]
+- [30:49.330] >> Speaker 10: When are you [unintelligible]
+- [30:50.530] >> The President: No, no. Please.
+- [30:51.740] >> Speaker 11: You talk a lot about sever consequences
+- [30:54.330] of those who were involved in the Russia hoax must face.
+- [30:56.940] In your view sir, what are the next steps,
+- [30:59.480] now that these documents are out there from Tulsi Gabbard.
+- [31:01.730] >> The President: Well, the Justice Department
+- [31:02.950] would have to act.
+- [31:04.540] And we have a very competent, very good, very loyal
+- [31:08.030] to our country person in Pam Bondi.
+- [31:11.230] Very respected. And she – it's going to be her decision.
+- [31:16.320] >> Speaker 11: It's – follow-up to that, sir.
+- [31:17.960] Kristi Noem is in New York City visiting an off duty CPP office
+- [31:21.650] who was allegedly shot this weekend
+- [31:23.020] by an illegal alien who came into the country
+- [31:24.860] during the previous administration.
+- [31:26.150] >> The President: Right.
+- [31:27.370] >> Speaker 11: What is your message to any local leader
+- [31:29.220] to continue to push sanctuary city policies
+- [31:33.250] after this nearly tragic incident?
+- [31:35.820] >> The President: So, the only thing I don't understand,
+- [31:37.490] because you like to understand things,
+- [31:38.990] and we're all smart people and all that.
+- [31:42.130] Why would they allow 21 million people into our country,
+- [31:46.760] unvetted, unchecked?
+- [31:48.180] You don't allow it. You wouldn't allow people in. He's tough.
+- [31:51.770] No, their country is run properly.
+- [31:54.250] Biden and his group of thugs. And I don't think it was Biden.
+- [31:56.760] I think it's the people that surrounded
+- [31:58.300] that beautiful resolute desk right behind you.
+- [32:02.690] They allowed 21 million people, probably much more than that.
+- [32:05.580] And many of them came from jails and gangs
+- [32:09.360] and drug dealers and mental institutions, insane asylums.
+- [32:14.520] Many of them are very sick.
+- [32:16.670] 21 million, probably 25 million, probably even more than that.
+- [32:20.930] And we're getting them out.
+- [32:22.270] Many were murderers, as I said. They killed people.
+- [32:24.880] Many killed more than one person.
+- [32:26.830] Stone-cold murders.
+- [32:28.650] I don't understand why they would have allowed that.
+- [32:31.450] There's only two reasons.
+- [32:32.790] The vote – because they want voters?
+- [32:35.220] That's one reason.
+- [32:36.490] I don't think they would have done it for that
+- [32:37.880] because they cheat.
+- [32:39.100] You know, they're so good at cheating, they don't need that.
+- [32:41.000] But the vote.
+- [32:42.290] And the second reason is they hate our country.
+- [32:45.240] I think they hate our country, I actually do.
+- [32:47.860] And it's the biggest problem.
+- [32:49.220] I mean, much of our time is spent with – you know,
+- [32:52.840] we have the strongest border anywhere in the world now.
+- [32:56.220] Maybe even stronger than your border, if you can believe it.
+- [32:58.240] We have no people came in last month.
+- [33:00.440] Zero. Which is pretty –
+- [33:02.170] I'm not even sure I can believe that.
+- [33:03.660] But liberals are the ones that do that calculation.
+- [33:06.390] So – but we had no people come in.
+- [33:10.110] A year ago, we had hundreds of thousands of people come in.
+- [33:13.020] Hundreds of thousands of people. And they floated.
+- [33:16.770] And if it wasn't for the election,
+- [33:18.990] it would have been millions of people came in last year.
+- [33:21.240] So, millions of people prior to election time,
+- [33:24.500] they allowed millions
+- [33:25.780] and millions of people to come into our.
+- [33:27.960] I mean, you saw it. They're opening the gates.
+- [33:30.310] If you took an Alabama LSU football game
+- [33:33.420] that holds 128,000 people. I was there, 128,00 people.
+- [33:38.620] And I liked them, and they liked me.
+- [33:40.740] But if you took that and doubled it,
+- [33:43.520] that's what used to flow into our country on a daily basis.
+- [33:46.880] It's not even believable. And we're getting them out,
+- [33:49.910] and we're starting with the worst ones.
+- [33:51.400] And we had a man shot yesterday, a police officer,
+- [33:53.960] who was a great gentleman. Shot right here at the throat.
+- [33:57.780] Probably won't be able to speak again.
+- [34:00.390] But he was brave, and he shot the other guy,
+- [34:02.910] and they ended up getting him. And you saw the scene
+- [34:04.850] where his friend took him to a hospital
+- [34:07.280] and dumped him down on the sidewalk.
+- [34:09.050] The whole thing was crazy.
+- [34:11.920] But why would anybody do to our country
+- [34:15.960] what these Democrats have done?
+- [34:18.380] And honestly, we can never forget it.
+- [34:21.240] We can never forget it. What they have done,
+- [34:23.150] the damage that they've done to America is very, very sad.
+- [34:27.010] Thank you very much, everybody.
+- [34:28.610] [crosstalk]

@@ -1,0 +1,116 @@
+<!-- source: https://www.youtube.com/watch?v=8QxwK5ICziA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8QxwK5ICziA -->
+<!-- date_published: 2025-07-24T21:33:49+00:00 -->
+<!-- date_accessed: 2026-06-02T01:19:53.021108+00:00 -->
+
+# Transcript: President Trump Tours the Federal Reserve
+
+- [00:00.640] Mr. President is here today.
+- [00:02.720] >> Well, thank you very much. We're looking
+- [00:04.000] at the construction and we're with the
+- [00:07.279] chairman as you know. Come on over and
+- [00:10.800] we're just taking a look at what's
+- [00:12.320] happening. You know, it's a it's a tough
+- [00:14.240] construction job. They're building
+- [00:16.000] basements where they didn't exist or
+- [00:18.640] expanding them. A lot of very expensive
+- [00:20.640] work. There's no question about it. And
+- [00:23.519] uh Tim has been with me for a long time
+- [00:26.160] and you're in charge of the committee.
+- [00:27.760] >> Indeed. One of the reasons I wanted to
+- [00:29.279] see it was the overruns of the expenses.
+- [00:31.519] Wanted to figure out why.
+- [00:35.120] >> So, we're taking a look and uh it looks
+- [00:37.920] like it's about 3.1 billion. Went up a
+- [00:40.320] little bit or a lot. Uh so the 2.7 is
+- [00:44.160] now 3.1.
+- [00:46.079] >> I'm not aware of that.
+- [00:46.960] >> Yeah, it just came out.
+- [00:48.879] >> Yeah, I haven't heard that from anybody.
+- [00:52.800] Just
+- [00:57.039] >> our about 3.1 as well.
+- [00:59.280] >> 3.1.2.
+- [01:00.800] >> This came from us.
+- [01:02.160] >> Yes.
+- [01:03.280] >> I don't know who that is.
+- [01:07.280] >> You're including the mark. You just add
+- [01:10.320] >> You just You just added in a third
+- [01:11.920] building. So that's a third building.
+- [01:14.000] >> No, but it's it's a building that's
+- [01:15.439] being built.
+- [01:16.240] >> No, it's been it was built five years
+- [01:17.840] ago. We finished Martin 5 years ago.
+- [01:20.479] >> It's part of the overall
+- [01:22.640] So,
+- [01:24.720] >> so we're going to take a look. We're
+- [01:26.720] going to see what's happening. Uh, and
+- [01:28.880] it's got a long way. Do you expect any
+- [01:31.200] more additional crossovers?
+- [01:33.840] >> Don't expect them. Uh, we're we're ready
+- [01:35.920] for them, but we we have a little bit of
+- [01:37.920] a reserve that we we may use, but no, we
+- [01:40.079] don't expect to be finished in 2027.
+- [01:43.200] Um, we're well along as you can see.
+- [01:46.240] Uh, nice to take these off every once in
+- [01:48.320] a while when we're not under too much
+- [01:50.479] danger. Uh, so any questions?
+- [01:54.399] >> Real estate developer, real estate
+- [01:56.320] developer, what would you do with a
+- [01:58.159] project manager who would be over
+- [02:00.079] budget?
+- [02:01.920] >> Uh, generally speaking, what would I do?
+- [02:04.399] I'd fire him.
+- [02:05.200] >> Do you think if you president to do
+- [02:07.439] that?
+- [02:08.800] >> Well, I'm here just really with the
+- [02:10.879] chairman. He's showing us around,
+- [02:12.319] showing us the work, and so I don't want
+- [02:14.239] to get that. But I don't want to be
+- [02:15.280] personal. I just uh would like to see it
+- [02:17.760] get finished. And in many ways, it's too
+- [02:20.480] bad it started, but it did start and uh
+- [02:24.720] it's been under construction for a long
+- [02:26.560] time. It'll be it's going to be a real
+- [02:29.200] long time because it looks like it's got
+- [02:30.800] a long way to go. So, Mr. President, are
+- [02:33.280] there things are there things the
+- [02:34.800] chairman can say to you today that would
+- [02:36.560] make you back off some of the earlier
+- [02:38.319] criticism?
+- [02:39.120] >> Well, I'd love him to lower interest
+- [02:40.800] rates.
+- [02:42.319] Other than that, what can I tell you? Uh
+- [02:44.400] the country is doing really well. I just
+- [02:46.080] briefed the chairman on the deal we made
+- [02:47.680] with Japan. Japan is putting up $550
+- [02:50.959] billion dollars in order to lower their
+- [02:52.800] tariffs a little bit. That way they have
+- [02:54.319] a little bit lower tariff. And they also
+- [02:57.120] opened their country to free trade,
+- [02:59.360] which nobody thought was even a
+- [03:00.959] possibility. And uh we get a zero tariff
+- [03:05.360] in the free trade. We don't pay tariffs.
+- [03:07.360] And uh they're going to pay 15% on
+- [03:09.920] everything they send into our country.
+- [03:11.599] So it's great. But they put up uh as you
+- [03:14.959] could call it uh seed money. Let's call
+- [03:16.879] it seed money. You could call it
+- [03:18.319] anything you want, but it's uh five it's
+- [03:20.640] a total of 550 billion dollars. So
+- [03:24.159] nobody thought any of that was possible
+- [03:26.080] and it's wonderful. And we're doing
+- [03:28.239] pretty well with the European Union
+- [03:30.400] likewise. Uh and we have some others who
+- [03:32.879] are all really big and our country is
+- [03:34.879] going to make a lot of money. We would
+- [03:36.319] be helped if interest rates would come
+- [03:37.840] down, but we're going to see how the
+- [03:39.200] board rules on that soon. I'd love to
+- [03:41.680] see him come down a lot, but uh we have
+- [03:44.720] a country that's thriving. Uh we had a
+- [03:47.280] dead country one year ago. Today we have
+- [03:49.200] the hottest country anywhere in the
+- [03:51.200] world. And we'll get this one finished.
+- [03:53.120] >> Mr. That ben

@@ -1,0 +1,141 @@
+<!-- source: https://www.youtube.com/watch?v=zyM6IyDl7rw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zyM6IyDl7rw -->
+<!-- date_published: 2025-10-28T04:28:54+00:00 -->
+<!-- date_accessed: 2026-06-02T01:12:03.380413+00:00 -->
+
+# Transcript: President Trump Participates in an Extended Bilateral Meeting with the Prime Minister of Japan
+
+- [00:32.500] Prime Minister Takaichi: (Speaking Japanese)
+- [00:42.860] Translator: So to the press core,
+- [00:45.140] I'm very sorry how that we kept waiting.
+- [00:47.940] As a matter of fact, Mr. President and I myself
+- [00:51.070] just enjoyed watching the Major League
+- [00:54.150] Baseball match. Actually Dodgers versus
+- [00:57.070] Blue Jays and Dodgers is now having a one point lead
+- [01:01.120] and we really enjoyed the match.
+- [01:03.370] Prime Minister Takaichi: (Speaking Japanese)
+- [01:18.410] Translator: So President Trump, let me extend a very warm
+- [01:21.920] welcome upon your visit to Japan.
+- [01:24.690] As I convey to you over the phone,
+- [01:27.870] I thank you for your congratulatory message to me
+- [01:30.760] right after my party, LDP's presidential election,
+- [01:34.920] and I have been very much looking forward
+- [01:36.990] to seeing you in person here in Japan.
+- [01:39.720] Prime Minister Takaichi: (Speaking Japanese)
+- [01:52.650] Translator: First of all,
+- [01:54.160] thank you for your enduring friendship
+- [01:56.600] with Prime Minister Abe over the years.
+- [01:59.610] In addition, thank you for extending gracious hospitality
+- [02:03.260] to Mrs. Akiye Abe at the end of last year.
+- [02:06.720] Prime Minister Takaichi: (Speaking Japanese)
+- [02:30.040] Translator: As a matter of fact, Prime Minister
+- [02:32.470] Abe often told me about your dynamic diplomacy.
+- [02:36.940] Most recently, Mr. President succeeded
+- [02:39.560] in securing a ceasefire deal between Thailand and Cambodia
+- [02:44.390] and contributed to ensuring peace in Asia.
+- [02:47.940] Also, the deal you have recently achieved in the Middle East
+- [02:52.560] is an unprecedented historic achievement.
+- [02:56.560] Prime Minister Takaichi: (Speaking Japanese)
+- [03:10.220] Translator: In such a short period of time,
+- [03:13.140] the world started to enjoy more peace on the ground.
+- [03:17.640] And in this context,
+- [03:18.910] I highly value your unwavering commitment
+- [03:22.350] towards peace and stability. I myself was so impressed
+- [03:27.750] and inspired by you, Mr. President.
+- [03:30.420] Prime Minister Takaichi: (Speaking Japanese)
+- [03:41.020] Translator: Now both Japan and the United States
+- [03:43.380] have developed the greatest alliance in the world,
+- [03:47.410] and together with you,
+- [03:49.010] Japan is ready to contribute towards peace and stability.
+- [04:10.060] On diplomacy, I am determined
+- [04:12.370] to restore dynamic Japan's diplomacy
+- [04:15.550] to protect Japan's own national interest.
+- [04:19.130] In addition, I am ready to promote further collaboration
+- [04:22.680] with you and with the United States
+- [04:25.010] toward our shared goal of achieving a free and open
+- [04:29.120] Indo Pacific.
+- [04:30.360] Prime Minister Takaichi: (Speaking Japanese)
+- [04:43.780] Translator: So let me share with you my determination.
+- [04:46.550] I will continue to strive as a leader of Japan
+- [04:50.430] to strengthen Japan's national power,
+- [04:53.490] namely diplomacy, defense capabilities,
+- [04:56.740] economic power,
+- [04:58.080] technology, intelligence and human resources.
+- [05:02.090] Prime Minister Takaichi: (Speaking Japanese)
+- [05:25.040] Translator: Next year, the United States will mark
+- [05:27.400] the semi quincentennial anniversary.
+- [05:30.460] Japan and I would like to join the United States
+- [05:33.490] to have a magnificent celebration.
+- [05:36.720] We will extend a gift of two hundred fifty cherry trees
+- [05:41.290] to Washington DC.
+- [05:43.130] In addition, I understand that fireworks from Japan,
+- [05:46.720] from Akita Prefecture,
+- [05:48.350] will be shown in Washington, D.C.
+- [05:50.590] On July 4th, next year.
+- [05:53.150] Prime Minister Takaichi: (Speaking Japanese)
+- [06:06.490] Translator: Through these efforts,
+- [06:07.840] together with you, Mr. President,
+- [06:10.090] I would like to realize a new golden age of Japan,
+- [06:14.380] US alliance, where both Japan and the United States
+- [06:18.290] will become stronger and also more prosperous.
+- [06:21.600] Thank you.
+- [06:26.690] The President: Well I want to thank you very much
+- [06:28.340] and I want to congratulate you.
+- [06:30.490] As you know, Shinzo Abe was a great friend of mine
+- [06:35.050] and I was very saddened to see what happened.
+- [06:40.270] It was so shocking.
+- [06:42.330] But he spoke so well of you even before we knew
+- [06:45.000] what was going to happen and your ascension.
+- [06:48.560] He spoke so well of you long before we met
+- [06:52.180] and I'm not surprised to see
+- [06:53.650] that you are now the Prime Minister
+- [06:56.010] and he would be very happy to know
+- [06:57.900] that and I congratulate you on behalf of the United States
+- [07:01.660] of America.
+- [07:02.930] Prime Minister Takaichi: (Speaking Japanese)
+- [07:40.450] The President: I know that you are increasing
+- [07:44.030] your military capacity very substantially
+- [07:47.030] and we've received your orders
+- [07:49.300] for a very large amount of new military equipment
+- [07:53.110] and you know that we make the best military equipment
+- [07:55.440] in the world,
+- [07:56.680] the jets, the missiles and everything else,
+- [07:58.500] and hopefully we don't have to use them very much,
+- [08:00.690] if at all. But we appreciate that order
+- [08:03.470] and we very much appreciate the trade.
+- [08:06.430] We're going to do tremendous trade together,
+- [08:08.260] I think more than ever before.
+- [08:10.720] We're just signing a new deal and it's a very fair deal
+- [08:13.990] and we look forward to welcoming Japan
+- [08:17.400] into the United States in a continuation
+- [08:20.410] and it's something that everybody is very,
+- [08:22.890] very excited about.
+- [08:24.610] Prime Minister Takaichi: (Speaking Japanese)
+- [09:02.770] The President: I have always had a great love of Japan
+- [09:05.490] and a great respect of Japan.
+- [09:07.830] And I will say that this will be a relationship
+- [09:10.750] that will be stronger than ever before
+- [09:12.930] and I look forward to working with you.
+- [09:14.430] And on behalf of our country
+- [09:17.550] I want to just let you know any time you have any question,
+- [09:20.690] any doubt, anything you want, any favors you need,
+- [09:24.450] anything I can do to help Japan, we will be there.
+- [09:27.210] We are an ally at the strongest level,
+- [09:30.760] and it's a great honor to be with you,
+- [09:32.440] especially so early in what will be,
+- [09:35.270] I think, one of the greatest prime ministers.
+- [09:37.660] I think you will be one of the great --
+- [09:39.090] everything I know, from Shinzo and others,
+- [09:40.970] you will be one of the great prime ministers.
+- [09:43.280] I'd also like to congratulate you
+- [09:45.860] on being the first woman prime minister.
+- [09:48.730] That's a big deal. That's a big deal,
+- [09:51.190] and I want to congratulate you on that.
+- [09:52.700] I think that has to be called out.
+- [09:55.030] And you're going to do a fantastic job
+- [09:57.720] and we're going to have a fantastic relationship.
+- [09:59.880] Thank you very much.
+- [10:01.340] Prime Minister Takaichi: (Speaking Japanese)
+- [10:45.060] The President: Thank you. Thank you very much.

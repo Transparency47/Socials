@@ -1,0 +1,477 @@
+<!-- source: https://www.youtube.com/watch?v=LX_3YJbYZqI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: LX_3YJbYZqI -->
+<!-- date_published: 2025-04-15T20:36:18+00:00 -->
+<!-- date_accessed: 2026-06-02T02:51:50.369685+00:00 -->
+
+# Transcript: President Trump Participates in a Commander-in-Chief Trophy Presentation to the Navy Midshipmen
+
+- [00:00.800] [Music]
+- [00:08.400] Ladies and gentlemen, the President of
+- [00:10.559] the United States
+- [00:12.420] [Music]
+- [00:40.399] Thank you very much. Thank you very much
+- [00:42.480] everybody.
+- [00:45.800] Please good to be with
+- [00:48.440] you. Good-looking people behind me. Too
+- [00:51.920] many good-looking people. Never like
+- [00:53.840] that many. You look great. We had a
+- [00:56.320] wonderful team here yesterday, Ohio
+- [00:58.480] State. They also had a incredible season
+- [01:01.680] as you know. And we had the Dodgers
+- [01:04.080] here. They just won the World Series
+- [01:06.560] last year, World Series. So, we have a
+- [01:09.040] lot of people celebrating at the White
+- [01:10.479] House is no place like it. Very special.
+- [01:13.360] Very, very special. And it's an honor to
+- [01:15.600] have you all. And I want to say number
+- [01:17.280] one, at ease. Just enjoy yourself. You
+- [01:20.320] can take it. I'm the boss here. You can
+- [01:22.159] take it. So, you don't have to listen to
+- [01:23.759] them for that. just you're going to have
+- [01:25.600] a good day and if it's okay uh I'm going
+- [01:28.720] to invite you over to the Oval Office
+- [01:30.880] when we're finished and present you with
+- [01:33.200] a little something special. Okay, sir.
+- [01:36.000] Finish up and we'll uh head over to the
+- [01:38.400] Oval Office together.
+- [01:40.920] Okay, today it's a great honor to
+- [01:43.360] officially present the
+- [01:44.560] Commander-in-Chief's Trophy to the 2024
+- [01:47.759] Navy Midshipen football team. A great
+- [01:50.320] team. Really great team. Great people.
+- [01:58.860] [Applause]
+- [02:01.719] Congratulations. And we're thrilled to
+- [02:03.520] be joined by a proud Marine Corps
+- [02:06.399] veteran, vice president, J. D. Vance. J
+- [02:09.160] D. Where is J D? What the hell happened
+- [02:12.879] to J D? Because you he was just here. He
+- [02:15.599] must have gotten a call from China.
+- [02:19.440] He's he'll be
+- [02:20.840] here along with Secretary of Defense
+- [02:24.160] Pete Hegathth. Thank you, Pete, very
+- [02:26.080] much. You're doing a great job,
+- [02:27.800] too. The Houthies aren't doing very
+- [02:30.239] well, but you're doing well, aren't you?
+- [02:32.640] Secretary of the Navy, John Failen,
+- [02:35.040] friend of mine, great guy, very
+- [02:36.720] successful person, by the way. Our new
+- [02:39.120] chairman of the Joint Chiefs of Staff,
+- [02:41.519] Dan Raisen. Where is he? There he is. I
+- [02:45.280] I talked about him in my speeches for
+- [02:47.120] years. Who knew I was going to be
+- [02:48.400] appointing him to be the top? And it's
+- [02:51.360] an honor. It's a real honor. Everything
+- [02:53.200] you did with me was perfect. I said,
+- [02:55.360] "What happened to that guy raising Kane?
+- [02:57.280] I want him." And that's what happened.
+- [02:59.519] And so, you're going to do a great job.
+- [03:01.360] I have no doubt about it. Thanks, Dan.
+- [03:03.840] Acting Chief of Naval Operations,
+- [03:05.840] Admiral James Kilby. Admiral, thank you.
+- [03:10.080] Congratulations.
+- [03:11.760] and superintendent of the Naval Academy,
+- [03:13.920] Vice Admiral Ivet
+- [03:17.720] Davids. Oh,
+- [03:19.800] helloette. How are you, Avette? But I
+- [03:23.040] especially want to thank and
+- [03:24.319] congratulate athletic director Chad
+- [03:27.200] Gladuk who will soon retire after 24. I
+- [03:30.400] looked at him, I said, "This is a youngl
+- [03:31.840] looking guy. I don't like this
+- [03:33.040] retirement stuff." But after 24 years
+- [03:36.159] and uh he's going to do other things. I
+- [03:38.319] guarantee you that'll also be
+- [03:40.560] incredible. But it's going to be very
+- [03:42.000] hard to top what he's done as athletic
+- [03:45.200] director. He's had the honor of four
+- [03:48.480] national championships, 251 conference
+- [03:51.920] titles, and 352 All-American athletes.
+- [03:56.080] That's not bad. Where are you? Where are
+- [03:58.920] you? That is not bad.
+- [04:07.599] So, you had all of these all-American
+- [04:09.720] athletes. Any name athlete that really
+- [04:12.640] stands out or were they just all great
+- [04:14.560] athletes?
+- [04:16.239] Everyone, as far as you're concerned,
+- [04:17.519] they're all the same, right? Great job
+- [04:19.840] you've done. What a record that is. Who
+- [04:21.680] has a record like that? I also want to
+- [04:23.360] thank some of the newly appointed
+- [04:25.600] members of the Naval Academyy's Board of
+- [04:28.120] Visitors. Sean Spicer is here and Walt
+- [04:31.520] Na. Now, Walt could be uh you know, he's
+- [04:34.880] thinking about going to Guam someday and
+- [04:37.440] he'll be taking over as governor, but we
+- [04:39.759] won't mention that right now. Walt, will
+- [04:41.720] we? He's fant he's he's been with me for
+- [04:44.320] a long time and he's great. And Sean,
+- [04:46.160] where's Sean Spicer? Sean,
+- [04:48.040] congratulations. This is it's a great
+- [04:50.560] honor. I can tell you every a lot of
+- [04:52.160] people wanted that position. So, you
+- [04:54.479] guys are going to do it well. I have no
+- [04:56.080] doubt about it. The story of this
+- [04:58.320] incredible season began last February
+- [05:01.040] when the Navy football team entered the
+- [05:03.440] weight room for the winter workouts. I
+- [05:06.080] wish I could have joined you, but I just
+- [05:07.919] never was I was never too much into
+- [05:10.080] lifting weights. I should have I should
+- [05:12.400] have done it. I could have been
+- [05:13.919] president someday if I did. After four
+- [05:17.360] disappointing seasons, it was so
+- [05:19.479] disappointed your coach, Brian Newberry,
+- [05:22.160] plastered pictures of this magnificent
+- [05:24.320] trophy on every wall to remind you of
+- [05:27.039] the ultimate prize. And in 2024, you
+- [05:30.639] lived up to Coach Newberry's vision and
+- [05:33.199] you showed the world the midshipman and
+- [05:35.360] that you know how to fight, fight, fight
+- [05:37.199] and win, win, right? And that's what you
+- [05:39.919] did. That's what you did. That's a
+- [05:42.600] Wow, that's a hell of a trophy. How much
+- [05:46.240] does that weigh? I don't know. Am I
+- [05:47.520] supposed to carry that? I don't think it
+- [05:49.120] can be done. I hear it. It's quite
+- [05:50.800] heavy, actually. Uh, you won 10 of 13
+- [05:54.080] games, including nine by double digits.
+- [05:56.960] You beat Air Force, you beat Army, and
+- [05:59.600] now this 170B trophy, that's what it is,
+- [06:02.880] is yours once again. And I have to tell
+- [06:06.479] you, you had some brilliant players on
+- [06:09.039] offense. You were led by an incredible
+- [06:11.520] fullback team co- captain Daba Fauana.
+- [06:15.759] Where is Daba? Where are
+- [06:18.070] [Applause]
+- [06:21.560] you?
+- [06:26.520] So, is he hard, coach? Is he a hard guy
+- [06:29.520] to tackle? Could I tackle him
+- [06:32.680] running? You don't suggest it, right?
+- [06:35.840] You want to say something? Come on.
+- [06:45.360] I'm just going to say we couldn't have
+- [06:46.639] done it without Brian Newberry here, uh,
+- [06:48.720] my co- captain here, uh, Colin Ramos,
+- [06:50.880] and just everyone buying into the
+- [06:52.160] mission. And I'm excited. Uh, praise the
+- [06:55.280] Lord.
+- [07:03.240] That's great player, huh? That's great.
+- [07:06.400] Thank you very much. It's really
+- [07:07.800] beautiful. Uh we have uh on offense we
+- [07:11.440] have a quarterback who is also very very
+- [07:14.560] special. I hear he's great. Blake
+- [07:16.639] Horvath. Blake, where are you? Blake,
+- [07:19.520] come on up.
+- [07:27.120] He said both strong and accurate on
+- [07:29.199] please. Oh, appreciate it. Appreciate
+- [07:31.440] it. No, it's it's an honor, right, to
+- [07:33.360] share this stage with President Trump
+- [07:34.560] and you know I speak for the team when I
+- [07:36.720] say that. So, thank you for having us
+- [07:38.000] and you know it's all about the team.
+- [07:39.280] Trophy's a team team. So, you know,
+- [07:41.199] great honor. Thank you, sir. Are you
+- [07:42.880] being back or are you Yes, sir. I'll be
+- [07:44.560] back next year. Oh, I'm going to be
+- [07:46.000] watching.
+- [07:51.440] I hear you. Fantastic. Thank you very
+- [07:53.360] much, Blake. We're going to all be
+- [07:55.479] watching. This year, Blake tied the
+- [07:57.840] school record for touchdown passes in a
+- [08:00.000] single season. rushed for more than
+- [08:01.960] 1,200 yards. Wow, that's pretty good.
+- [08:05.199] And set a new school record for the
+- [08:06.960] longest rushing touchdown when he faked
+- [08:09.599] a handoff during a read option, carrying
+- [08:12.479] the ball 95 yards into the end zone to
+- [08:16.000] help beat Oklahoma. That's a serious
+- [08:18.160] team. We're not playing games here,
+- [08:19.680] coach.
+- [08:21.199] Wow, that's Is he a pretty good runner?
+- [08:23.919] Is he fast? That's amazing. 95 yards for
+- [08:27.680] a quarterback. I'd say that's pretty
+- [08:29.199] good. But because of your teamwork, the
+- [08:31.919] midshipman had the sixth best rushing
+- [08:34.320] offense and the number one red zone
+- [08:36.560] touchdown offense. That's a big deal in
+- [08:39.120] all of college football. A truly amazing
+- [08:42.279] achievement. But to succeed, you have to
+- [08:44.880] excel on both sides of the ball. And the
+- [08:47.040] midshipman had the number four ranked
+- [08:49.120] red zone defense led by one of the best
+- [08:51.920] tacklers in college football, linebacker
+- [08:54.160] and defensive captain Colen Ramos.
+- [09:04.000] I'll say a couple. Uh, it's an absolute
+- [09:07.519] honor to be here. Um, it was an amazing
+- [09:09.680] season. Um, I'm so proud of these guys
+- [09:11.920] and thank you, President Trump, for
+- [09:13.279] having us. Really an honor. Thank you. I
+- [09:14.720] bet you're a tough guy. You got to do
+- [09:17.519] that. You got to be tough to make.
+- [09:20.200] Congratulations. That's beautiful.
+- [09:24.880] Great, huh? Opposing teams feared your
+- [09:28.399] secondary, especially the first ever
+- [09:30.959] Midshipman with two pick sixes in a
+- [09:34.080] single game. Come back. It was a big uh
+- [09:37.480] comeback to Shawn Peele.
+- [09:41.000] [Applause]
+- [09:49.320] Uh yeah, we're just very grateful to be
+- [09:52.000] here.
+- [09:53.080] Um, yeah, that's it
+- [09:59.560] really. Great job.
+- [10:05.279] It's called the strong silent type,
+- [10:08.600] right? Thank you very much, Desan. And
+- [10:11.120] no one can forget contributions of the
+- [10:13.440] all-star safety special teams player of
+- [10:15.600] the year and I guess an NFL prospect. A
+- [10:18.880] number of them are Ray Lane. Ray.
+- [10:29.440] Yeah. I just want to say it's an honor
+- [10:30.800] to be here. Thank you for the support.
+- [10:32.640] You know, go Navy. Beat Army.
+- [10:34.850] [Applause]
+- [10:42.000] In December, I was honored to personally
+- [10:44.560] attend the 125th Army Navy game in a
+- [10:48.079] battle that would be one of the uh one
+- [10:51.200] of the best ever between the schools.
+- [10:53.600] Really went down in the history books.
+- [10:55.680] Coach, after you held the lead all game,
+- [10:58.399] the fourth quarter Army offense prepared
+- [11:01.200] to tie it up. They were getting right
+- [11:03.600] down there. I was there to watch. And
+- [11:06.560] you showed something that was amazing.
+- [11:08.320] You showed a very brilliant game time,
+- [11:11.279] coach IQ, I guess you'd call that, huh?
+- [11:13.680] Were you happy with the end? Yes, you
+- [11:15.360] were very happy. Were you Did you think
+- [11:17.200] you were going to win the game at that
+- [11:18.480] point? Okay, he's got to say that. But
+- [11:21.040] it was uh it was pretty amazing,
+- [11:22.800] actually. You faked the fourth down punt
+- [11:25.839] and gave the ball to the 6-ft tall
+- [11:28.839] 285-lb noseguard Landon Robinson who
+- [11:33.360] found the seam and rumbled 29 yards down
+- [11:36.160] the field to clinch the victory and to
+- [11:38.640] beat Army. Okay, where are you now?
+- [11:41.360] Where
+- [11:42.710] [Applause]
+- [11:46.040] are Wow, I wouldn't want to tackle him.
+- [11:50.880] Thank you, sir. Uh first off, I just
+- [11:52.720] like to say thank you to Mr. President
+- [11:53.920] for inviting us. Super thankful. Uh
+- [11:56.000] wouldn't be here without my teammates,
+- [11:57.360] you know, without my coaches for, you
+- [11:58.959] know, calling the play and making sure
+- [12:00.880] that it was open for us to run it. So
+- [12:02.640] super thankful and excited for years to
+- [12:04.399] come. So great job. Thank you, sir.
+- [12:06.320] Appreciate that.
+- [12:12.320] That' be a hard guy to tackle, wouldn't
+- [12:13.920] it, K? It's painful. It's called
+- [12:16.680] painful. Great job. With the win, this
+- [12:19.839] trophy, you secure your spot as one of
+- [12:22.320] the greatest teams in Navy football
+- [12:24.720] history. That's a tremendous honor.
+- [12:26.320] You've had some great teams. As
+- [12:28.560] president, I've no higher honor than
+- [12:31.040] serving as the commander-in-chief of the
+- [12:33.760] America's armed forces. And uh I I have
+- [12:37.279] to tell you that uh I've gotten to know
+- [12:39.360] so many of the people at the academy,
+- [12:41.920] not only football players, just people
+- [12:43.680] generally. Roger Starbach, who's a
+- [12:46.800] friend of mine and a great person. Uh,
+- [12:49.920] played golf with him and the last shot,
+- [12:52.160] last time I played with him, he hit a
+- [12:53.920] shot looked like we were in trouble and
+- [12:56.480] he came out of from behind a tree from
+- [12:59.040] about 130 yards away. He had no shot to
+- [13:01.519] the green and it ended up about six
+- [13:03.120] inches from the hole. And I said, "Well,
+- [13:04.639] that's Roger Starbach, you know, right?
+- [13:06.880] That's him." He was great. I tell you
+- [13:08.560] when he played he was uh he'd dropped
+- [13:11.040] back and he was just he was in a
+- [13:13.839] different league. He was really amazing.
+- [13:15.519] What a player. What a player. What a
+- [13:17.680] great guy he is. But uh he loves he
+- [13:20.160] loves your place. Since I took the oath
+- [13:22.720] of office, the spirit of our military
+- [13:24.800] has soared to new heights. Today I'm
+- [13:27.279] proud to announce that in February the
+- [13:29.120] US Navy had its best recruiting numbers
+- [13:31.760] since 2002. That's a long time ago. And
+- [13:35.440] under my administration, the Navy is on
+- [13:37.600] track to have the best recruiting year
+- [13:39.680] since the start of the war and uh the
+- [13:43.279] war on terror. But going back further
+- [13:45.839] than that, probably 25 to 30 years. So I
+- [13:49.839] can say this strongly about uh seven
+- [13:53.680] months ago, Pete, they were having
+- [13:55.920] numbers that were a
+- [13:57.560] disaster. And over the last two months,
+- [14:01.120] two and a half months, the numbers have
+- [14:03.360] gone through the roof. So, it's uh
+- [14:05.519] great. Michael, same thing. And uh the
+- [14:09.120] numbers went through the roof. And it's
+- [14:11.440] also true with uh all of the armed
+- [14:14.160] forces and it's true with our police,
+- [14:16.160] with our firemen. There's a lot of
+- [14:17.760] spirit right now in the country that we
+- [14:19.440] didn't have six months ago. So, that's
+- [14:21.920] an honor. But you have your highest
+- [14:23.519] recruiting numbers in uh in about 20
+- [14:26.560] years. And that's fantastic. That's
+- [14:28.720] pretty good, Sean, when you hear that,
+- [14:30.160] right? Pretty good. You can be proud.
+- [14:32.639] Within this amazing group of young men
+- [14:34.560] are 23 seniors who will graduate next
+- [14:36.880] month, including 13 Navy Enson and 10
+- [14:39.920] Marine Corps second lieutenants. Over
+- [14:42.639] the past four years, they've grown
+- [14:44.160] morally, mentally, and physically in
+- [14:46.079] preparation for their service to our
+- [14:47.920] nation. They're not just great football
+- [14:50.399] players. And you can see this that they
+- [14:52.160] are just amazing people. They're true
+- [14:54.399] American warriors and future submarine
+- [14:56.800] captains and fighter pilots and Marine
+- [14:59.199] infantry and Navy Seals. And uh we have
+- [15:02.760] the I I shouldn't say this too loud
+- [15:05.519] because some people aren't thrilled, but
+- [15:07.199] I'm thrilled. We have the largest budget
+- [15:10.160] we've ever had. We're buying gorgeous
+- [15:12.320] new ships. Gorgeous new. And John,
+- [15:14.320] you're going to be working on that. He's
+- [15:15.839] a great John Failen's a great
+- [15:18.079] businessman. One of the best. And uh
+- [15:20.639] you're going to get that job done. And
+- [15:22.160] we're going to make them beautiful
+- [15:23.279] looking ships, too. The look is very
+- [15:25.040] important to me, John. You know, a lot
+- [15:27.440] of times they'll show me a a ship or a
+- [15:29.360] plane and they I say, "That doesn't look
+- [15:31.519] good." They say, "Well, it's stealth." I
+- [15:33.760] said, "I don't care if it's stealth or
+- [15:35.199] not. We're going to change it if we have
+- [15:37.360] to. I'm not sure I believe so much in
+- [15:39.600] the stealth thing, but we want the most
+- [15:41.680] beautiful equipment, the best equipment.
+- [15:43.600] That's what we're going to get. And
+- [15:44.720] you're going to lead the way, and I'll
+- [15:45.920] help you, too, because I like doing that
+- [15:47.519] stuff. And we're going to get a lot of
+- [15:48.720] ships, a lot of planes. and for all of
+- [15:51.279] the armed services. So, I appreciate it,
+- [15:53.360] John. Do a job. And I just say to uh the
+- [15:57.279] general behind me, your commitment is
+- [16:00.000] something very special. And as long as
+- [16:01.920] I'm commander-in-chief, the United
+- [16:03.680] States will always have the strongest,
+- [16:05.440] fiercest, and most powerful navy on the
+- [16:08.160] sea. And again, we're going to restock
+- [16:10.480] it like it hasn't been restocked before.
+- [16:13.040] We're going to have a trillion dollar
+- [16:14.320] budget. Think of it. You know, it's like
+- [16:16.160] crazy. It's crazy, but uh more than
+- [16:18.720] anybody else by double and we're going
+- [16:21.680] to be in a league. I rebuilt I rebuilt
+- [16:24.959] our armed forces in my first term. Got
+- [16:27.680] them almost entirely rebuilt. Then we
+- [16:30.560] had a catastrophe known as Biden and in
+- [16:33.680] uh in Afghanistan. He gave so much of
+- [16:36.000] the equipment away, but still it was
+- [16:37.680] only a small fraction of what we had
+- [16:39.720] done. And uh we're restocking it now.
+- [16:43.440] And we're going to have something that
+- [16:44.880] nobody's ever had before. So, I'm
+- [16:46.560] counting on all of you people in the
+- [16:48.160] front to get to get out there and we got
+- [16:50.399] to get the best equipment in the world.
+- [16:52.079] And we, you know, we're going to pay the
+- [16:53.519] price, but we're going to get the best
+- [16:55.199] equipment in the world. We have to have
+- [16:56.880] it. Lots of ammunition, too. We get a
+- [16:59.040] little low on ammunition. I came into
+- [17:01.360] office and they said, first time they
+- [17:02.880] said, "Sir, we're very low on
+- [17:04.000] ammunition." I said, "Don't say that to
+- [17:05.679] the enemy. I don't want the enemy to
+- [17:07.679] hear that." I came in this time and they
+- [17:09.919] said, "Sir, you're low on ammunition
+- [17:11.439] again. We gave a lot of it away. You
+- [17:13.039] know that. But we have to keep a lot of
+- [17:15.039] it. We have to keep it for ourselves
+- [17:16.640] also. So, we're going to work together
+- [17:18.640] and we're going to do something great,
+- [17:19.919] Pete. And you're going to do a fantastic
+- [17:21.600] job doing the job you're already doing.
+- [17:23.520] You've made a big impact. So, I'd like
+- [17:25.760] to now introduce a very special man, a
+- [17:28.000] great coach. You would rate him great,
+- [17:30.000] right? Good or great. Good. Oh, boy. Am
+- [17:32.480] I glad you said that. Would I be would I
+- [17:35.200] be in trouble if he said anything, but
+- [17:36.799] there's nothing much you can say because
+- [17:38.320] we see his record. So, coach, could you
+- [17:40.320] say a couple of words, please? Brian
+- [17:42.000] Nubber. Thank you.
+- [17:51.600] Good afternoon. Thank you, Mr.
+- [17:53.600] President. Thank you. And uh many thanks
+- [17:56.559] to your staff for uh taking care of us
+- [17:58.559] today and hurting us around the
+- [17:59.840] building. Appreciate that. And many
+- [18:02.640] thanks to everyone here in attendance um
+- [18:05.200] to honor these special young men here
+- [18:06.880] today. We're humbled uh and grateful to
+- [18:09.679] be here. The highest honor and the most
+- [18:12.480] important tangible goal in our program
+- [18:15.360] is to be standing here in the White
+- [18:17.440] House with our
+- [18:19.000] commander-in-chief and all of you here
+- [18:21.080] today, proudly representing the United
+- [18:24.000] States Naval Academy, the entire Brigade
+- [18:26.720] of Midshipman, and all the men and women
+- [18:29.120] serving in our Navy, and our Marine
+- [18:31.280] Corps, both past and present. The young
+- [18:33.840] men here on the stage and some of them
+- [18:35.760] out here in in the audience are some of
+- [18:37.919] the best and the brightest that our
+- [18:39.360] country has to offer. In a little over a
+- [18:41.679] month, these 23 seniors, these
+- [18:44.799] incredible young men standing behind me,
+- [18:46.400] will graduate and commission as officers
+- [18:49.120] in United States Navy and Marine Corps
+- [18:51.280] under your command, Mr. President. And
+- [18:53.760] they will do so with tremendous
+- [18:55.039] character and the core values of duty,
+- [18:58.080] honor, courage, and commitment. I know
+- [19:01.120] there've been a lot of great teams. You
+- [19:02.400] mentioned some of those earlier come
+- [19:03.600] through here. Collegiate, professional,
+- [19:06.320] world champions, national
+- [19:08.200] champions that have been honored here at
+- [19:10.160] the White House. But Mr. President, this
+- [19:12.480] is your team. This is America's team.
+- [19:15.120] The CIC Trophy is the most coveted and
+- [19:17.919] honorable trophy in all of college
+- [19:19.280] sports. And it's our objective to come
+- [19:21.120] back here and get to know you a little
+- [19:22.720] bit better over the course of your
+- [19:24.520] tenure. This time, I'd like to bring up
+- [19:26.480] our two captains, Daba Fana and Colin
+- [19:28.480] Ramos, to present you, Mr. President,
+- [19:30.559] with a couple of nice gifts. Thank you
+- [19:31.919] very much. Thank you. Thank you. Go
+- [19:34.400] Navy. Beat everyone.
+- [19:42.880] Wow. That's a That's a
+- [19:47.080] beauty. That's fantastic. Let me do
+- [19:49.280] this. Come on
+- [19:50.840] up. You come on over. Come on over,
+- [19:53.360] coach.
+- [20:05.200] Thank you very
+- [20:19.400] much. Thank you all very
+- [20:23.320] much.
+- [20:33.840] [Music]
+- [20:41.960] Heat. Heat.
+- [20:48.030] [Music]

@@ -1,0 +1,931 @@
+<!-- source: https://www.youtube.com/watch?v=byAC6eBknSg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: byAC6eBknSg -->
+<!-- date_published: 2025-10-05T21:06:58+00:00 -->
+<!-- date_accessed: 2026-06-02T02:44:00.690520+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at Navy 250 Celebration
+
+- [00:04.490] Announcer: Ladies and gentlemen, please welcome the First Lady
+- [00:08.160] of the United States, Melania Trump.
+- [00:11.910] ♪ (Rock music playing) ♪
+- [01:28.150] The First Lady: Hooyah, Navy!
+- [01:29.700] Audience: Hooyah!
+- [01:32.140] The First Lady: Hooyah, Navy!
+- [01:34.250] Audience: Hooyah!
+- [01:36.140] The First Lady: Hooyah, Navy!
+- [01:37.950] Audience: Hooyah!
+- [01:40.230] It is an honor to be with you to celebrate the 250th year
+- [01:46.670] since the United States Navy was officially established.
+- [01:51.900] Generations of sailors have kept America free
+- [01:56.720] because of their presence on the high seas.
+- [02:01.320] Your strength, bravery, and sacrifice inspires us all.
+- [02:09.050] The President and I just attended
+- [02:11.450] an extraordinary demonstration, an inspiring display of skills
+- [02:17.260] that reflects the very best of our Navy.
+- [02:22.110] For me, it brought up the fond memories of my visit
+- [02:27.440] to the USS George H.W. Bush in 2018.
+- [02:33.360] I will always remember the pride and professionalism
+- [02:37.000] of the sailors I met on that vessel.
+- [02:40.960] I witnessed the enduring spirit of America's Navy,
+- [02:45.160] which propels every mission
+- [02:47.570] and lives on to every sailor who serves.
+- [02:53.780] Now, it is my privilege to introduce someone
+- [02:58.520] who holds our military close to his heart,
+- [03:02.970] not only as the Commander-in-Chief,
+- [03:06.210] but as a proud American who believes deeply in the men
+- [03:10.640] and women who wear the uniform.
+- [03:14.830] Please join me in welcoming my husband,
+- [03:18.600] the 45th and 47th President of the United States,
+- [03:25.220] Donald J. Trump.
+- [03:27.970] (Cheers and Applause)
+- [03:33.947] ♪ (Hail to the Chief) ♪
+- [04:19.300] ♪ ("God Bless the U.S.A." playing) ♪
+- [06:45.600] The President: God bless the United States Navy.
+- [06:50.450] (Cheers)
+- [07:00.440] (Audience chanting "U.S.A.")
+- [07:09.980] Well, that was good timing wasn't it?
+- [07:12.000] We had to get that right.
+- [07:13.790] We had to get that right. But they always get it right.
+- [07:17.200] But I was just given a display with our wonderful First Lady,
+- [07:21.280] the likes of which I think few people have ever seen before.
+- [07:24.150] We were a few minutes away and the display of strength
+- [07:28.890] was absolutely incredible. We appreciate it.
+- [07:31.210] Thank you, Navy. Thank you very much.
+- [07:36.660] And I want to thank our magnificent
+- [07:38.550] First Lady for that introduction.
+- [07:41.030] People love our First Lady. Thank you.
+- [07:46.730] And let me say to all of the incredible sailors on this pier,
+- [07:50.190] it's great to be with the fleet. The fleet.
+- [07:57.280] And let's also give a very special
+- [07:59.180] thanks to the shipmates who put on
+- [08:01.710] that spectacular display of Navy dominance.
+- [08:05.310] That's what it was. It was dominance and Bravo Zulu.
+- [08:09.530] You know what that is? Bravo Zulu.
+- [08:11.830] You know. A lot of people don't.
+- [08:14.640] And it's a true honor to be here
+- [08:16.300] with the thousands of our nation's finest sailors
+- [08:19.970] at the largest naval facility in the entire world.
+- [08:24.120] It's the largest.
+- [08:25.550] And I would say, more importantly, it's the best.
+- [08:27.770] Okay? It's both. The Norfolk Naval Base.
+- [08:30.720] Thank you very much. The largest and it's the best.
+- [08:34.690] We're gathered on this storied waterfront
+- [08:36.630] to celebrate 250 years of strength, tenacity,
+- [08:40.180] and unwavering courage
+- [08:42.130] by the greatest fighting force ever.
+- [08:44.610] And that's true.
+- [08:45.810] No matter where you go, no matter where you go,
+- [08:49.010] no matter what you even think about,
+- [08:50.650] there's nothing like the fighting force that we have.
+- [08:53.880] Roam the seas.
+- [08:55.090] It's called the United States Navy
+- [08:57.810] and there's nothing in the world like it.
+- [08:59.640] Nothing. Not even close.
+- [09:00.850] You read stories, they don't have it.
+- [09:03.300] Let me tell you, we check it closely.
+- [09:05.910] We check it closely.
+- [09:07.810] Docked beside us today
+- [09:09.210] are a combined 150,000 tons of pure
+- [09:13.280] American naval supremacy and two colossal reasons
+- [09:17.640] why no one should ever want to start a fight with the USA.
+- [09:20.740] They won't fight.
+- [09:22.020] We're putting out a lot of fights, so do you see that?
+- [09:24.200] We're going to be close to number eight.
+- [09:26.280] Number eight.
+- [09:27.980] We don't want to send you into battle
+- [09:30.220] unless it's necessary, right?
+- [09:34.840] We're putting out a lot of fires,
+- [09:36.740] maybe some of you will be angry.
+- [09:39.140] You'll say, what's he doing? We want to fight.
+- [09:41.230] You know what? If we can solve them the way
+- [09:43.000] I'm solving them, we solve seven,
+- [09:45.490] we have another one that's taken 3,000 years
+- [09:47.830] and we're pretty close,
+- [09:49.080] but I don't want to talk about it until it's done.
+- [09:52.440] But let's give a big round of applause
+- [09:54.240] to the men and women of the majestic USS Kearsarge.
+- [09:59.770] (Cheers)
+- [10:02.150] Thank you. And let's hear it for the sailors
+- [10:07.540] of the USS Harry S. Truman.
+- [10:11.850] (Cheers)
+- [10:22.800] Those who call this carrier home live by a motto
+- [10:25.830] that captures the spirit of America's Navy.
+- [10:29.310] It's very simple.
+- [10:30.620] The words "Give them hell," and we do give them hell.
+- [10:36.000] For two and a half centuries,
+- [10:37.610] that is what every generation of American sailors have done.
+- [10:42.030] You've conquered raging oceans and brave, ferocious storms
+- [10:45.480] to vanquish America's enemies on the high seas
+- [10:48.570] and distant shores.
+- [10:50.850] You've beaten mighty warships into twisted wrecks of steel.
+- [10:55.080] You've splintered vast armadas
+- [10:57.000] and sent the mangled pride of empire sinking into oblivion.
+- [11:02.010] You've surged the waters thick in danger, blood, brine.
+- [11:06.370] And through it all, the United States Navy
+- [11:08.790] has kept the stars and stripes soaring high and proud
+- [11:12.140] above those big, magnificent waves.
+- [11:15.410] You love doing it, too.
+- [11:16.630] There's not a thing in the world that you'd rather do, is there?
+- [11:19.800] Is there? No.
+- [11:24.890] I like your life better than mine,
+- [11:26.590] I have to be honest with you.
+- [11:28.290] Sailing on those beautiful waters all the time,
+- [11:30.820] you're so lucky.
+- [11:32.700] Because the American sailor never quits, never fails,
+- [11:36.820] and never, ever lets us down.
+- [11:39.190] They've never let us down. Thank you. Thank you.
+- [11:45.270] And we're honored to be joined today by service members
+- [11:48.190] representing every part of this great naval tradition.
+- [11:51.250] Our incredible surface warriors are the reason America's enemies
+- [11:55.500] tremble at the sight of a Navy ship haze gray or underway.
+- [12:03.060] The instant U.S. carrier, cruiser,
+- [12:05.890] or destroyer breaks across the horizon,
+- [12:08.610] every tyrant and adversary on the planet
+- [12:11.340] knows their choice is very simple.
+- [12:13.840] It's leave America in peace
+- [12:16.410] or be blown up in fire and fury never seen before.
+- [12:24.680] All over the world, people know of the skill,
+- [12:27.050] nerve, swagger, and sheer attitude of the boldest
+- [12:30.050] and most daring pilots on the sea,
+- [12:32.640] the U.S. naval aviators,
+- [12:34.900] and I just got to witness it with Melania.
+- [12:37.870] They land screaming jets on pitching decks
+- [12:40.390] in the dark of night with no room for error.
+- [12:43.250] There's no room for error.
+- [12:44.590] The greatest pilots in the world.
+- [12:47.180] And while Navy pilots rain down pain from above,
+- [12:50.160] the greatest adversaries fear the daring deeds
+- [12:53.040] of our silent service below.
+- [13:05.320] They prowl and strike from crushing depths,
+- [13:09.000] unseen, undetected, and unstoppable.
+- [13:12.410] They are our brave submariners.
+- [13:15.340] Where are the submariners? And they are brave.
+- [13:22.610] The most lethal weapon in the world, I will tell you,
+- [13:25.640] nobody knows where it is and what it carries.
+- [13:27.930] There's nothing that carries weaponry like that.
+- [13:31.230] And we're 25 years ahead of any other country
+- [13:33.810] when it comes to submarines.
+- [13:35.080] Nobody's even close. Nobody can match us.
+- [13:37.700] No roll call of Navy warriors would be complete
+- [13:41.550] without recognizing some of the fiercest
+- [13:43.920] and most elite commandos in the history of war.
+- [13:48.270] They are the toughest. And is nobody tougher?
+- [13:51.560] It's just nobody. That's what they tell me.
+- [13:53.130] Is nobody tougher? They're called the Navy SEALs.
+- [13:56.120] What do you think about the Navy SEALs?
+- [13:58.490] Where are the Navy SEALs?
+- [14:00.760] We're not going to mess with the Navy SEALs.
+- [14:02.670] They are great. Thank you very much.
+- [14:05.140] Incredible people.
+- [14:06.400] And of course, our enemies have learned to dread
+- [14:08.870] that special cast of warriors who have charged forward
+- [14:12.100] almost everywhere America has seized a stronghold
+- [14:15.190] or stormed a beachhead.
+- [14:17.610] They call themselves the Leathernecks,
+- [14:19.860] the Jarheads, the Devil Dogs.
+- [14:22.640] But we revere them as the United States Marines.
+- [14:32.690] Incredible people. Incredible people.
+- [14:36.770] With us today are some of those
+- [14:38.380] who have led these exceptional men and women.
+- [14:41.890] They've led them like nobody else.
+- [14:44.550] And I'll tell you, a person I'm very, very proud of,
+- [14:47.880] he has stepped up and he's hitting home run after home run.
+- [14:51.310] They love him.
+- [14:52.760] I want to introduce, again, a man who's just exceptional.
+- [14:57.310] I'm so happy with this choice. Secretary of War Pete Hegseth.
+- [15:02.940] (applause)
+- [15:06.740] Thank you, Pete. Good job.
+- [15:11.080] I said, "Pete, what do you think?
+- [15:12.390] You know, we used to call it Secretary of War,
+- [15:15.600] the Department of War, the War Department.
+- [15:19.040] Now we call it Defense.
+- [15:21.250] And I don't know, would you ever want to?
+- [15:23.300] You know, we won World War One. We won World War Two.
+- [15:28.070] We won everything in between. We won everything before.
+- [15:33.080] And all of a sudden, they decide to change the name.
+- [15:35.140] They weren't woke then, too, you know.
+- [15:36.700] Woke is a long-term word.
+- [15:39.780] I said, what do you think about changing it
+- [15:41.570] to the Department of War?" He said, "I love it, sir."
+- [15:45.320] That was about the end of it, right?
+- [15:48.400] That was the end of it.
+- [15:50.230] Thank you, Pete. Great job. He's a great leader.
+- [15:52.980] Also, Secretary of the Navy, a very, very successful man.
+- [15:56.860] He gave it all up to do this. And we're designing more ships.
+- [16:00.590] We have more ships being built shortly.
+- [16:02.730] We're going to be able to have more great ships being built
+- [16:05.550] than we've ever had being built in the history of the Navy.
+- [16:09.140] John Phelan. John, thank you. Great job, John.
+- [16:15.710] He made a lot of money in the private sector.
+- [16:17.800] And I said, "You want to do this, John?
+- [16:19.390] We need a lot of ships, and we need them fast."
+- [16:21.260] And he said, "I want to do it."
+- [16:22.550] He gave up a lot. Gave up everything to do this.
+- [16:26.080] But he's loving it, and he's doing a fantastic job.
+- [16:29.000] Chief of Naval Operations, Admiral Daryl Caudle.
+- [16:34.110] Admiral, thank you. Great.
+- [16:35.890] Great job. Rear Admiral Gavin Duff.
+- [16:47.480] And along with so many different people here,
+- [16:49.660] that I could introduce them all day long.
+- [16:52.810] I don't want to do that because we got to get to business,
+- [16:55.250] talking a little bit about war and peace.
+- [16:58.210] But along with your great officers
+- [16:59.750] here at Norfolk Naval Base, Vice Admirals John Gumbelton.
+- [17:04.180] John. Thank you. Thank you, John.
+- [17:06.630] Great. Young guy. You're a young guy.
+- [17:11.020] Great. Doug Perry and Rob Goucher. Thank you.
+- [17:19.550] And a very special thanks to a man
+- [17:21.920] who just got a 93 percent approval.
+- [17:25.170] He runs the Veterans Everything, I call it.
+- [17:28.410] He's Veterans Everything.
+- [17:29.700] The VA Secretary, Doug Collins. He's doing great.
+- [17:33.690] Thank you, Doug. Doing a great job.
+- [17:38.010] Ambassador Monica Crowley. Monica, thank you very much.
+- [17:43.250] A man that everybody loves.
+- [17:45.680] He was my doctor in the White House,
+- [17:47.830] and I got to know him very well.
+- [17:49.960] He was also the doctor for Barack Hussein Obama.
+- [17:54.080] Have you heard of him?
+- [17:57.130] And he was the doctor for a man named Bush.
+- [18:01.460] And at a press conference, they asked him,
+- [18:04.410] "Who's in the best shape? Who's the healthiest?
+- [18:06.650] Who's the strongest?
+- [18:08.230] Who's the best physical specimen of the three?"
+- [18:10.870] He said, "That's easy, President Donald Trump."
+- [18:13.670] And I said, "I love this guy. I love him."
+- [18:21.070] Ronnie Jackson.
+- [18:22.330] He's now a congressman, as you know.
+- [18:23.930] So, he was an admiral. He was the chief doctor.
+- [18:26.790] He was the old boss of doctors.
+- [18:29.630] And now he's a very, very successful
+- [18:32.680] congressman from Texas. Thank you, Ronnie, very much.
+- [18:35.210] And I appreciate those words. I'll never forget them.
+- [18:38.600] Jen Kiggans. Jen, thank you. John McGuire.
+- [18:43.180] Rob Wittman. Dan Crenshaw. Derrick Van Orden.
+- [18:47.990] These are unbelievable, talented people that are with me,
+- [18:51.150] and they fight. Thank you very much, fellas.
+- [18:53.870] Thank you. Thank you very much, darling.
+- [18:56.970] These are great congress warriors.
+- [19:00.160] That's what you have to be today,
+- [19:01.590] in Congress, if you're going to make it.
+- [19:03.730] I also want to recognize all of
+- [19:05.440] the newly-pinned chief petty officers --
+- [19:07.610] you got a lot of them here today -- I had to approve it --
+- [19:11.770] who recently earned their anchors
+- [19:13.720] and now bear their venerable title, Navy Chief.
+- [19:17.670] Navy Chief. Thank you, Navy Chiefs.
+- [19:21.030] Let's also express the gratitude of our entire nation
+- [19:24.160] to every Navy veteran who has come out to honor
+- [19:27.620] this big anniversary. We see so many veterans.
+- [19:30.740] I saw backstage how we're shaking hands with veterans
+- [19:33.960] all over the place. And they are great.
+- [19:36.780] And they're respected and they're loved.
+- [19:38.600] Thank you very much. Stand up, if you'd like.
+- [19:41.130] Thank you very much. They're really loved.
+- [19:48.740] I saw it backstage. I saw so many veterans,
+- [19:53.850] and my hand will never be the same.
+- [19:57.040] Thank you very much. A great honor.
+- [19:58.660] And a very special thanks to the countless Navy
+- [20:02.080] families who support our sailors with such love and devotion.
+- [20:06.010] None of what are -- and think of this --
+- [20:09.220] without them, you wouldn't be celebrating today.
+- [20:11.270] Many of you would not be doing very well.
+- [20:13.390] Male or female, you wouldn't be doing very well.
+- [20:15.520] So, we want to thank our family members, right?
+- [20:18.020] All of them. Parents, husbands, wives.
+- [20:21.250] Thank you. Thank you very much.
+- [20:26.640] From the American Revolution until today,
+- [20:29.210] the story of the U.S. Navy
+- [20:30.660] is the tale of loyalty, sacrifice, and commitment
+- [20:34.140] stretching back 250 years. So, we're celebrating 250.
+- [20:39.380] I almost thought I wouldn't get to do that
+- [20:41.620] because I was President in 2016,
+- [20:46.210] and then they rigged the election on me.
+- [20:50.850] And then we caught him, didn't we? We caught him.
+- [20:52.930] But, you know, we had to run it again.
+- [20:54.400] I ran it again, and I got 250, and I got the World Cup,
+- [20:57.340] and I got the Olympics. Can you believe all of it?
+- [21:03.720] In my first term, I was the one that got the Olympics.
+- [21:06.310] I was the one that got the World Cup.
+- [21:08.630] And I said, you know, the sad part is,
+- [21:11.070] maybe I'll go, maybe I won't even be invited
+- [21:13.130] because it won't be during my term.
+- [21:14.700] I would say, if we're a Democrat,
+- [21:16.790] I might not be invited.
+- [21:18.090] They don't love me exactly too much.
+- [21:20.190] And then when this happened,
+- [21:21.440] now all of a sudden they got all three.
+- [21:23.210] But you know what's the most important?
+- [21:24.970] Two hundred and fifty years is the most important.
+- [21:28.310] We love World Cup, we love Olympics,
+- [21:31.210] but we got them all coming.
+- [21:34.890] And on June 14th, next year, we're going to have a big
+- [21:39.620] UFC fight at the White House, right at the White House,
+- [21:43.110] on the grounds of the White House.
+- [21:48.840] When the Continental Congress formed a fleet
+- [21:51.330] of just two ships in October 1775,
+- [21:55.710] many scoffed at their chances
+- [21:57.350] against the most powerful empire on Earth.
+- [22:00.080] That was the most powerful ever, relatively speaking.
+- [22:04.610] We had two ships.
+- [22:05.820] We had nothing other, but we had great heart.
+- [22:09.290] They didn't know the audacity
+- [22:10.780] and the grit of the American sailor.
+- [22:12.590] They had no idea. The War for Independence
+- [22:14.820] gave us some of the greatest American heroes of all time,
+- [22:18.510] including the father of the U.S. Navy,
+- [22:20.870] Captain John Paul Jones. You know that.
+- [22:25.020] When a far stronger British ship demanded his surrender,
+- [22:27.880] Jones yelled back that timeless battle cry right now.
+- [22:31.790] "I have not yet begun to fight." Don't ask me for that.
+- [22:35.690] Think of that. I could just say it.
+- [22:38.080] He's a wise guy. He's asking. I haven't even begun to fight.
+- [22:41.360] And he knocked the hell out of them.
+- [22:43.430] In the War of 1812, Captain James Lawrence
+- [22:46.340] shouted his final words to his crew.
+- [22:48.890] As blood streamed down from his mortal wounds,
+- [22:52.540] "Fight her till she sinks," he yelled.
+- [22:55.050] "Don't give up this ship. Don't give up the ship."
+- [22:58.200] These are all incredible, very, very famous statements now.
+- [23:02.300] With years and time, very famous.
+- [23:04.610] Don't give up the ship. I say it all the time.
+- [23:07.350] You're a little behind. I say, don't give up this ship.
+- [23:09.570] But we win. We all know how to win.
+- [23:12.500] Today, that eternal creed is written into the hearts
+- [23:15.180] of every sailor in the fleet.
+- [23:17.510] America's Navy never, ever gives up the ship, right?
+- [23:20.700] We never give it up.
+- [23:21.970] Another titan of the early Navy
+- [23:24.060] was the great Commodore Arthur Sinclair.
+- [23:27.830] He defeated the French in the Caribbean Battle.
+- [23:31.500] And then he went to work on the Barbary Pirates
+- [23:34.220] off the coast of Tripoli and raided British forces
+- [23:37.860] when they were so powerful in 1812.
+- [23:40.220] The War of 1812. He raided them.
+- [23:43.100] He was knocking them out one by one.
+- [23:45.120] Everyone said, where does this guy come from?
+- [23:48.030] And we're all descendants when you think of it.
+- [23:50.620] Commodore Sinclair went on to become the commanding officer
+- [23:54.140] here at the Naval Station Norfolk,
+- [23:55.920] right here, where he founded a nautical school for officers
+- [23:59.590] that eventually became the one and only U.S. Naval Academy.
+- [24:12.790] And I'm going to be at your Army-Navy game this year.
+- [24:16.160] Who am I going to root for, huh?
+- [24:20.720] You may be surprised.
+- [24:23.620] It's going to be great. We're going to be here.
+- [24:25.510] Generations of the Commodore's descendants
+- [24:28.030] have forged their own towering legacies of service in the Navy,
+- [24:32.470] and we're joined today by his fifth great-grandson,
+- [24:36.620] Commander Link Mustin. Where is Mustin?
+- [24:40.090] Commander Mustin, where are you? He's here.
+- [24:42.580] Wow, look at this handsome guy. That's good genetics.
+- [24:47.280] He's got good genes. Thank you very much.
+- [24:51.130] Commander, thank you for continuing a family tradition
+- [24:54.130] that has endured for two and a half centuries.
+- [24:57.320] Can you believe that, huh?
+- [24:59.140] I wonder if they were as good-looking as you.
+- [25:01.120] I doubt it. You just got better with age, right?
+- [25:04.120] Congratulations. Is that young man your boy?
+- [25:06.380] Wow. He beats you. They beat you.
+- [25:10.330] That's what we want to see.
+- [25:11.610] Over the generations,
+- [25:12.850] our Navy sailors raised Old Glory above the streets,
+- [25:15.730] and Veracruz sent the Spanish fleet
+- [25:18.460] to its watery grave in Manila Bay
+- [25:21.490] and buried the vicious German Wolfpacks
+- [25:24.320] at the bottom of the sea.
+- [25:25.650] Those were vicious, vicious Wolfpacks.
+- [25:28.590] They were brutal. They were hitting us hard,
+- [25:31.270] and then we came up with the answer, didn't we?
+- [25:33.220] We came up with a way to knock them out,
+- [25:35.010] and we were knocking them out so fast,
+- [25:36.700] they didn't know what to do. It was really the end,
+- [25:39.390] once we discovered the secret through some brilliant minds.
+- [25:43.230] A lot of them are descendants of the people here right now.
+- [25:47.510] In every era of conflict,
+- [25:48.910] the Navy has never failed to hunt, kill,
+- [25:51.430] and to win. Never failed. Never failed.
+- [25:54.590] In World War II, Admiral Bull Halsey's motto,
+- [25:58.100] "Hit hard, hit fast, hit often."
+- [26:00.570] And that is exactly what the sailors do.
+- [26:03.210] One of those warriors
+- [26:04.520] was Submarine Commander Eugene Fluckey,
+- [26:08.070] who sent more Japanese tonnage to the ocean floor
+- [26:10.770] than any other man in history.
+- [26:13.330] I don't like to talk about it too much now.
+- [26:14.990] You know, they've been a nice ally.
+- [26:16.350] But anybody from Japan here right now
+- [26:20.800] will get off the subject immediately.
+- [26:23.240] But think of it.
+- [26:24.480] Sent more tonnage to this bottom of the sea, one after one.
+- [26:28.650] Brought the famed USS Barb. He destroyed a Japanese tanker
+- [26:32.820] and a carrier with a single salvo to his men's chagrin.
+- [26:38.150] They were very concerned about it.
+- [26:39.720] They didn't think we could do that,
+- [26:40.990] and he just knocked them out one after another.
+- [26:44.450] And again, torpedoes were flying.
+- [26:46.540] But his greatest feat came when he spotted
+- [26:49.160] 30 enemy ships at port off the coast of China.
+- [26:52.670] You know that. A very famous story.
+- [26:54.380] Commander Flukey ordered his men
+- [26:57.140] to their battle stations, slipped into the harbor,
+- [26:59.750] and sank six vessels at one time
+- [27:02.810] before taking off into the beautiful,
+- [27:05.120] wild, blue ocean.
+- [27:07.650] He received four Navy Crosses, the Legion of Merit,
+- [27:10.600] and the Congressional Medal of Honor.
+- [27:13.720] That was a brave guy.
+- [27:15.530] In recognition of the incredible achievements
+- [27:17.920] of the USS Barb under his command,
+- [27:20.730] this December we will lay the keel
+- [27:23.100] of a brand-new Virginia-class submarine
+- [27:25.520] bearing that same legendary name.
+- [27:28.700] And his grandson, Tom, will be there to pick it up.
+- [27:33.250] Tom is with us today, and I want to thank you
+- [27:35.770] for keeping that great legacy around.
+- [27:38.170] Where is Tom? Oh, look, stand up, Tom.
+- [27:43.320] Great. Good, Tom. Thank you. That's good.
+- [27:48.000] That's good genes, too, Tom. Isn't it? That's good stuff.
+- [27:51.820] Thank you very much, both, for being here.
+- [27:54.510] From Midway to the Coral Sea, to Leyte Gulf,
+- [27:58.220] American sailors fought the most epic naval battles in history,
+- [28:02.330] and at Normandy, the Navy led the greatest armada ever formed
+- [28:05.750] to deliver the single largest invasion
+- [28:07.950] force the world has ever seen.
+- [28:11.590] One of the sailors who did it was Felix Maurizio,
+- [28:15.800] who enlisted at age 18 and trained right here in Norfolk.
+- [28:19.310] Trained right here. On D-Day, June 6th, 1944,
+- [28:25.310] Felix manned an amphibious landing craft
+- [28:28.430] that did six harrowing runs to Omaha Beach.
+- [28:31.780] You all know about it. These are all famous fights.
+- [28:35.140] He delivered hundreds of American troops
+- [28:37.160] into the battle, including his brother, Sal.
+- [28:40.300] Felix lost so many of his friends that day,
+- [28:42.320] but he kept fighting.
+- [28:43.570] He kept going out there, getting more soldiers,
+- [28:46.050] getting more of everything.
+- [28:48.750] He just kept coming. They couldn't stop him,
+- [28:50.970] and went on to serve in the Pacific
+- [28:53.210] under the great Admiral Nimitz.
+- [28:56.560] In February 1945, he spent his 21st birthday landing Marines
+- [29:01.210] on the blood-soaked sands of Iwo Jima,
+- [29:03.770] one of the bloodiest, toughest battles ever.
+- [29:08.070] Historic battle.
+- [29:09.660] Six months later, he was abroad the USS Talladega in Tokyo Bay.
+- [29:14.750] When Japan surrendered, they said,
+- [29:16.730] "I don't think we want Felix hitting us anymore."
+- [29:19.720] And he retired as a chief petty officer in 1966.
+- [29:24.240] This year, Felix celebrated his 100th birthday,
+- [29:28.460] and he is here this afternoon as a living testament
+- [29:31.440] to the glory of the United States Navy.
+- [29:34.210] Wow.
+- [29:36.110] (applause)
+- [29:59.030] That's great. He looks good.
+- [30:01.320] Felix, you look better than I do.
+- [30:02.910] I'm not happy about this, Felix.
+- [30:06.700] No, they don't want to mess around with him.
+- [30:08.720] And Felix, we salute you.
+- [30:10.180] Thank you very much. Incredible. 100 years.
+- [30:13.800] In Korea, American sailors and Marines
+- [30:15.940] carried out the daring landing in Inchon
+- [30:19.710] and flew more than a quarter of a million combat sorties
+- [30:23.700] against the enemy. It was an amazing effort.
+- [30:26.990] In Vietnam, the Navy unleashed Operation Rolling Thunder
+- [30:31.060] and deployed a brand new unit, the Navy SEALs,
+- [30:34.180] to tear up Mekong River Delta.
+- [30:36.820] The problem with Vietnam, we stopped fighting to win.
+- [30:41.390] We would have won easy.
+- [30:42.670] We would have won Afghanistan easy.
+- [30:44.460] We would have won every war easy.
+- [30:46.600] But we got politically correct. Let's take it easy.
+- [30:50.610] We're not politically correct anymore, just so you understand.
+- [30:53.640] We win. Now we win.
+- [30:58.670] We don't want to be politically correct anymore.
+- [31:02.190] And history will never forget that it was the SEALs
+- [31:04.780] who stormed the compound at Osama bin Laden
+- [31:09.290] and put a bullet in his head.
+- [31:11.220] Remember that. And please remember,
+- [31:13.230] I wrote about Osama bin Laden exactly one year ago,
+- [31:16.900] one year before he blew up the World Trade Center.
+- [31:20.570] And I said, "You got to watch Osama bin Laden."
+- [31:23.960] And the fake news would never let me get away
+- [31:25.980] with that statement unless it was true.
+- [31:27.620] But I said one year before to Pete Hegseth,
+- [31:30.250] I said one year before, where's Pete?
+- [31:33.400] In the book I wrote, whatever the hell the title,
+- [31:36.020] I can't tell you.
+- [31:37.520] But I can tell you there's a page in there
+- [31:39.500] devoted to the fact that I saw somebody named Osama bin Laden,
+- [31:43.680] and I didn't like it, and you got to take care of him.
+- [31:45.960] They didn't do it.
+- [31:47.320] And a year later, he blew up the World Trade Center.
+- [31:49.440] So we got to take a little credit
+- [31:51.570] because nobody else is going to give it to me.
+- [31:53.220] You know the old story?
+- [31:54.860] They don't give you credit, just take it yourself.
+- [31:58.020] And it was the U.S. Navy that dumped his wretched corpse
+- [32:01.230] off the decks of the Carl Vinson to sink into the dark abyss.
+- [32:06.250] The Navy's central role in the defense of our liberty
+- [32:08.790] continues to this day. Just a few months ago,
+- [32:12.270] the Ohio-class guided-missile submarine
+- [32:14.950] played an indispensable part
+- [32:16.760] in one of the most spectacular military feats
+- [32:19.840] the world has ever seen,
+- [32:21.190] the obliteration of Iran's nuclear sites
+- [32:24.460] in Operation Midnight Hammer.
+- [32:26.500] How did that work out? Pretty good, right?
+- [32:35.320] And we shot 30 Tomahawks, you know that?
+- [32:38.270] On top of -- and to the B-2.
+- [32:40.070] How about that? The B-2s, what they did,
+- [32:42.660] those beautiful flying wings, what they did,
+- [32:45.730] they hit every single target they hit.
+- [32:48.640] And just in case we shot 30 Tomahawks
+- [32:51.350] out of a submarine, every one of them hit, too.
+- [32:54.290] So I would say Iran was not particularly thrilled.
+- [32:57.470] They were going to have a nuclear weapon within a month.
+- [33:00.280] And now they can start the operation all over again,
+- [33:02.570] but I hope they don't because we'll have to take
+- [33:04.290] care of that, too, if they do.
+- [33:05.500] I let them know that. You want to do that, it's fine,
+- [33:08.320] but we're going to take care of that,
+- [33:09.690] and we're not going to wait so long.
+- [33:11.180] It should have been done long before I came along.
+- [33:14.850] You know that I had the pilots of the B-2s in my office,
+- [33:17.850] the famous Oval Office. I had them in the B-2s.
+- [33:22.230] They came in to the White House, and we talked about it.
+- [33:25.480] They said, "You know, sir, for 22 years,
+- [33:28.470] our predecessors and us trained for that hit.
+- [33:32.900] For 22 years, they were training
+- [33:34.470] to take out the nuclear potential of Iran."
+- [33:37.830] You said, "But it was only when you came along that we did it."
+- [33:41.550] And they were so happy that they did it.
+- [33:43.340] But they've been training for that hit for 22 years,
+- [33:45.650] but no president wanted to do it.
+- [33:48.250] They would have had a nuclear weapon within a month,
+- [33:50.410] probably within a month or shortly thereafter.
+- [33:52.890] And speaking to them would have been much more difficult.
+- [33:56.500] In recent weeks, the Navy has supported our mission
+- [33:59.110] to blow the cartel terrorists the hell out of the water.
+- [34:02.780] You see that?
+- [34:10.500] And you know, there are no boats in the water anymore.
+- [34:12.520] We can't find any. We're having a hard time finding them.
+- [34:16.130] But you know, it's a pretty tough thing we've been doing,
+- [34:19.520] but you have to think of it this way.
+- [34:21.580] Every one of those boats is responsible for the death
+- [34:25.660] of 25,000 American people and the destruction of families.
+- [34:31.070] So when you think of it that way,
+- [34:32.290] what we're doing is actually an act of kindness.
+- [34:36.810] But we did another one last night.
+- [34:39.150] Now we just can't find any. You know, it's the old story.
+- [34:42.190] We're so good at it that there are no boats --
+- [34:45.020] in fact, even fishing boats,
+- [34:46.350] nobody wants to go into the water anymore.
+- [34:48.140] Sorry to tell you that.
+- [34:50.050] But we're stopping drugs coming into America, if that's okay.
+- [34:54.030] We're stopping drugs at a level
+- [34:55.440] that nobody has ever seen before.
+- [34:57.800] Last year, we lost, I believe, 300,000 people.
+- [35:02.990] And that's not talking about the destruction to families.
+- [35:05.680] Every one of us knows families that have been destroyed
+- [35:08.340] because the son, daughter --
+- [35:09.690] even mothers and fathers are destroyed
+- [35:11.890] by the fentanyl pouring in and drugs pouring in.
+- [35:15.270] Well, they're not coming in by sea anymore,
+- [35:17.460] so now we'll have to start looking about the land,
+- [35:20.050] because they'll be forced to go by land.
+- [35:22.050] And let me tell you right now,
+- [35:23.370] that's not going to work out well for them either.
+- [35:26.190] And it was the Truman carrier strike group
+- [35:28.950] that unleashed American fury
+- [35:30.710] on the Houthi terrorists in the Red Sea.
+- [35:40.030] And as you know, they settled.
+- [35:42.360] But they settled because they made the statement,
+- [35:44.590] "We've never been hit like that ever before."
+- [35:47.770] And earlier this year, conducted the single largest airstrike
+- [35:51.440] from an American carrier in history.
+- [35:53.620] That was the largest ever.
+- [35:55.930] I want to express my personal thanks to every single sailor
+- [35:59.450] who contributed to these phenomenal victories.
+- [36:02.420] We only know victory.
+- [36:03.660] We're only going to know victory.
+- [36:06.020] We don't want to know the other -- the other word.
+- [36:08.430] We want to know victory.
+- [36:09.720] We're going to have great victories in the years to come.
+- [36:12.630] Well, at least for almost three and a half years,
+- [36:15.380] we're going to have great victories.
+- [36:16.910] I want to thank a group of women from North Carolina.
+- [36:19.530] Look at these great -- will you stand up, please?
+- [36:22.950] These beautiful women have followed me.
+- [36:26.530] This is number 151. You could call a rally.
+- [36:31.950] This is sort of a rally. Let's face it.
+- [36:33.750] This is a rally. This is a speech of love.
+- [36:36.810] We're all -- we all love our country.
+- [36:39.290] But that group is from North Carolina.
+- [36:42.170] They're up to about 151 visits. They have a whole group of them.
+- [36:47.330] I never see their husbands.
+- [36:48.560] I don't know what's going on with their husbands.
+- [36:51.250] I assume -- do they still love you, the husbands?
+- [36:53.290] Yes? Good. But I want to thank you. 151.
+- [36:56.440] They've been following me since 2016.
+- [36:59.580] And you look even better now than you did then.
+- [37:02.170] But I want to thank you very much. It's a really group.
+- [37:04.650] They love our country. They like Trump.
+- [37:06.380] But you know what they really do?
+- [37:07.700] They love our country.
+- [37:09.150] And we have the right policy, right?
+- [37:10.860] We have policy. We don't want crime.
+- [37:13.520] We don't want men playing in women's sports.
+- [37:16.350] We don't want transgender for everybody.
+- [37:19.660] We don't want to have open borders
+- [37:21.050] where millions of people come into our country from jails,
+- [37:24.100] from prisons, from mental institutions and insane asylums.
+- [37:28.760] Drug dealers, murderers --
+- [37:30.910] 11,788 murderers were allowed to come into our country.
+- [37:37.040] A lot of them are gone.
+- [37:39.080] And, by the way, Washington, D.C. is a safe place right now.
+- [37:42.600] It went from one of the most dangerous cities
+- [37:44.620] in our country -- can you believe that?
+- [37:46.790] -- to probably the safest -- among the safest in our country.
+- [37:50.270] Nobody is being hit anymore. It's very safe.
+- [37:54.950] And I want to thank you.
+- [37:56.180] A lot of the people here have helped.
+- [37:57.600] A lot of the people in the audience
+- [37:59.610] are people that have straightened them out.
+- [38:02.280] It took 12 days. Think of that.
+- [38:04.070] Now we're in Memphis.
+- [38:05.360] We're doing the same thing in Memphis.
+- [38:07.350] And we're going to Chicago.
+- [38:08.680] You know, we have a governor that thinks it's wonderful
+- [38:10.790] when 50 people in a short period of time
+- [38:13.390] were murdered in Chicago. Over 200 people were hit.
+- [38:17.840] And so we send in the National Guard.
+- [38:21.190] We send -- you know what?
+- [38:22.500] We send in what's ever necessary.
+- [38:24.350] People don't care. They want to --
+- [38:25.680] they don't want crime in their cities.
+- [38:28.660] And we're doing it, and we're doing it well.
+- [38:30.470] We're doing it like nobody's ever done it before.
+- [38:33.120] So I just want to tell you, you're very close to D.C.
+- [38:35.580] The restaurants are thriving. The restaurants were dying.
+- [38:39.470] They were closing one after another.
+- [38:41.300] Now they're thriving.
+- [38:42.590] They're opening up beautiful new restaurants.
+- [38:45.110] Washington, D.C. is safe.
+- [38:46.720] And I even went there and had dinner the other night,
+- [38:49.270] and I stood right smack in the middle of the street.
+- [38:52.400] Secret Service was thrilled.
+- [38:54.520] And I gave a news conference. It's a safe place now.
+- [38:57.780] Washington, D.C., it's always going to be.
+- [38:59.660] Our nation's capital is always going to be safe.
+- [39:02.730] We're never going to let that happen again.
+- [39:04.410] What happened there --
+- [39:05.920] one of the most beautiful places.
+- [39:07.650] And we're doing a big beautification program.
+- [39:09.780] It'll take me very little, very short.
+- [39:12.620] But we're doing a beautification program
+- [39:14.670] to go along with the security and safety.
+- [39:16.720] We're getting rid of the graffiti, the potholes,
+- [39:19.370] the broken medians between roads.
+- [39:22.080] We're doing a real job, and you'd be proud of it.
+- [39:24.250] I think everybody here is proud of it, frankly.
+- [39:26.490] That's our nation's capital.
+- [39:28.090] And that has to be clean, beautiful, and safe.
+- [39:30.970] The U.S. Navy always stands for America.
+- [39:33.890] As your Commander-in-Chief, I will always stand for you.
+- [39:36.840] I promise you that. You know that.
+- [39:38.760] That's why you voted for me in numbers
+- [39:41.210] that nobody's ever seen before. And I want you to know
+- [39:44.880] that despite the current Democrat-induced shutdown,
+- [39:49.330] we will get our service members every last penny.
+- [39:51.800] Don't worry about it. Don't worry about it.
+- [39:56.010] You'll worry about it. You'll worry about it.
+- [39:59.740] Do not worry about it. It's all coming. It's coming.
+- [40:03.200] And even more because I'm supporting
+- [40:05.180] the across-the-board pay raises for every sailor
+- [40:08.030] and service member of the United States Armed Forces.
+- [40:13.950] But we have to take care of this little gnat
+- [40:16.130] that's on our shoulder called the Democrats.
+- [40:18.100] They want to give all of our money
+- [40:19.510] to illegal aliens that pour into the country.
+- [40:22.210] And you know, I have a bigger heart than they do.
+- [40:24.090] But the problem is, when you do that,
+- [40:25.650] they come in by the millions.
+- [40:26.920] Everybody wants that, so you can't do it.
+- [40:29.660] But I've also pledged the largest-ever investment
+- [40:32.250] in our military's history. We're spending over $1 trillion.
+- [40:37.410] We've never had anything like that before.
+- [40:39.400] $1 trillion on our military, and that includes,
+- [40:43.460] along with your Secretary of the Navy and Pete Hegseth,
+- [40:46.970] we're going to be building lots of ships
+- [40:48.650] and doing a lot of things
+- [40:50.470] that you haven't seen happen for 35 years.
+- [40:54.680] We'll soon revitalize our once-great shipyards
+- [40:57.480] with hundreds of billions of dollars in new investments
+- [41:00.130] and people coming from all around the world.
+- [41:03.090] And they're going to build ships in America.
+- [41:05.070] We want them built in America.
+- [41:06.990] And as I told our generals and admirals last Tuesday,
+- [41:10.030] we are getting woken as the hell out of our military.
+- [41:12.740] It's gone. It's really gone.
+- [41:16.790] I don't know that it was ever really here.
+- [41:18.480] I think some of the top people had it.
+- [41:20.150] I knew a few of them that were really --
+- [41:21.990] they were major losers.
+- [41:23.580] But they were losers, unlike our great general,
+- [41:28.340] the Chairman of the Joint Chiefs of Staff,
+- [41:31.700] who may be here, Dan Raisinkane. You know Raisinkane?
+- [41:35.440] When I heard his name, I said, that's the guy I'm looking for.
+- [41:38.790] But he's been an amazing warrior,
+- [41:40.620] and he was the one headed up the attack on Iran.
+- [41:45.060] And everything he's touched has turned out great.
+- [41:47.490] He knocked out ISIS.
+- [41:49.030] So I was told it would take four to five years to beat ISIS.
+- [41:52.520] When he came on board, he did it in four weeks.
+- [41:55.430] We knocked him out in four weeks.
+- [41:56.670] One hundred percent of the ISIS caliphate.
+- [42:00.150] Is Dan Kane here? He is -- you know why?
+- [42:04.080] Because he's working. That's the one thing --
+- [42:07.450] we don't have to worry about him.
+- [42:09.250] But he is a fantastic man.
+- [42:10.680] That's the man I wanted right from the beginning.
+- [42:12.680] I said, if I ever do this again
+- [42:14.120] and if I could get lucky enough to win --
+- [42:16.500] because we have a base like nobody in history has had --
+- [42:18.920] I said, I'm going to pick Raisinkane as the chairman.
+- [42:22.580] And that's what we did. And he's been incredible.
+- [42:24.460] We will not be politically correct
+- [42:26.950] when it comes to defending American freedom.
+- [42:29.520] That's why we have renamed the Department of Defense
+- [42:32.480] the Department of War, as I said.
+- [42:34.440] And we have changed the name of the Gulf of Mexico
+- [42:38.560] to the Gulf of America.
+- [42:39.890] That was easy. That was an easy one.
+- [42:46.100] You know, for years, I've looked at it,
+- [42:47.740] and I figured we have 92 percent of the frontage.
+- [42:51.760] I said, how come we call it the Gulf of Mexico?
+- [42:54.420] I mean, I wouldn't say that Mexico is thrilled with me,
+- [42:56.810] but what are you going to do? It's the Gulf of America.
+- [42:59.620] And I love it now. I was watching, the other night,
+- [43:01.700] a report, and they said, very routinely,
+- [43:04.960] "in the Gulf of America" -- this is the --
+- [43:07.050] you know, they just went on to talk about it.
+- [43:09.380] They didn't do it with a smirk or a smile.
+- [43:11.340] They didn't say, "in the Gulf of America."
+- [43:14.050] No, it's called the Gulf of America now,
+- [43:16.260] and nobody is playing games with it.
+- [43:17.870] We got sued by the Associated Press, and they lost.
+- [43:22.700] In fact, the judge was so good,
+- [43:24.100] he said, he's calling it the Gulf of America.
+- [43:26.210] He's got all the approvals. You have to do that, too,
+- [43:29.230] to the very liberal Associated Press
+- [43:30.960] that got thrown out of court.
+- [43:32.340] In fact, they're almost not allowed to cover me anymore
+- [43:35.350] because of that. It was a big hit.
+- [43:38.180] So I'm very proud of that.
+- [43:39.810] Under our leadership, the spirit of the American forces
+- [43:43.270] is soaring like it has never soared before.
+- [43:46.030] I think, right now,
+- [43:47.760] we have more spirit than we've ever had before.
+- [43:50.270] After years of recruiting shortages,
+- [43:53.510] we couldn't get guys or gals to become soldiers.
+- [43:57.660] One year ago, they didn't want to be a soldier.
+- [44:00.790] Although, I must say, once I said, we're going to run,
+- [44:02.730] a lot of people -- it made it better.
+- [44:04.270] But let's go back two years, and it was even worse,
+- [44:07.990] because there was no hope.
+- [44:09.780] We had this horrible, horrible president
+- [44:12.320] who had no clue what the hell was happening.
+- [44:15.420] The chances of him walking down those stairs
+- [44:18.300] successfully were not good.
+- [44:22.660] I'm careful because one day I'm going to probably fall.
+- [44:27.560] No, the North Carolina women
+- [44:29.440] said that will never happen to you.
+- [44:32.000] I always say walk down the steps nice and slow.
+- [44:34.360] You ever notice I do nice.
+- [44:36.700] I don't have to bop down the stairs.
+- [44:38.200] Walk nice and slowly.
+- [44:40.430] But we have a waiting list. Think of this.
+- [44:43.330] We have a waiting list for people
+- [44:44.740] wanting to get into the United States Navy,
+- [44:48.680] the Army, Navy, Coast Guard, Marines, Space Force.
+- [44:53.590] Oh, we love Space Force. But think of it.
+- [44:56.660] We have a waiting list for every branch of government now,
+- [45:00.920] and that includes police, police and firemen.
+- [45:03.370] They didn't want to. Nobody wanted to be a policeman.
+- [45:06.680] Now they want to be a policeman. Now they want to be in the Navy.
+- [45:09.160] They want to be in the Air Force so badly.
+- [45:12.980] The Marines, the Army, they want to be in all of it.
+- [45:15.510] They love Space Force.
+- [45:16.780] I love Space Force because I created Space Force.
+- [45:19.090] That was my thing.
+- [45:20.770] Then it's going to turn out to be one of the most important.
+- [45:23.980] But one year ago, our country was dead.
+- [45:28.550] We had a dead country.
+- [45:30.570] People say, "Sir, you shouldn't say that.
+- [45:32.190] It's too stretch of a thought." We had a dead country.
+- [45:34.990] And today we have the hottest country
+- [45:36.690] anywhere in the world by far.
+- [45:38.910] One year. Think of it. One year ago, we were dead.
+- [45:44.690] The King of Saudi Arabia said to me,
+- [45:47.770] "President, one year ago, we thought we lost America.
+- [45:51.560] We thought it was a dead country.
+- [45:54.260] And now you have the hottest country anywhere in the world."
+- [45:56.920] He said that.
+- [45:58.140] I use this term. And I'm pleased to say that 2025
+- [46:02.580] was the Navy's single best recruiting year ever.
+- [46:07.900] Not bad.
+- [46:11.020] So you went from those embarrassing headlines
+- [46:13.700] of a year ago. Think of it.
+- [46:15.600] Nobody wants to go into the Navy.
+- [46:17.550] How does that make you feel?
+- [46:19.800] Now you have a different problem.
+- [46:21.190] You know what the problem is? Everybody wants your job.
+- [46:24.530] I like that better, right?
+- [46:26.550] No, but nobody's going to take your job.
+- [46:28.440] You were with us when it was not as nice.
+- [46:32.740] It wasn't as nice.
+- [46:33.970] Those are the people I like the best, too.
+- [46:36.500] The people that were with me when it wasn't looking so good,
+- [46:39.300] like these ladies from North Carolina.
+- [46:41.130] They were with me when it wasn't looking that good.
+- [46:44.130] A lot of fake scandals were created, all fake.
+- [46:48.860] One of those eager new recruits, 18-year-old Aiden Rollins,
+- [46:54.880] a recruit like I'm so proud of.
+- [46:57.590] Aiden's father was a sailor. His grandfather was a sailor.
+- [47:00.840] And after four years of Navy ROTC,
+- [47:04.450] it is Aiden's turn to carry on that tradition.
+- [47:08.120] When he enlisted in April, his father,
+- [47:09.910] Daniel, a Navy veteran,
+- [47:11.440] was so inspired that he decided to reenlist, too.
+- [47:16.560] Wow.
+- [47:17.890] I'm delighted to say that father and son are here with us today
+- [47:21.350] representing the future of this great fleet.
+- [47:23.770] Please, Aiden and your father, please stand up. Wow.
+- [47:36.680] Wow, that's a good-looking family.
+- [47:39.890] Thank you both. That's a great story. Beautiful.
+- [47:42.420] Your father looks pretty young, Aiden.
+- [47:45.050] He's a young-looking guy.
+- [47:47.300] Every sailor, aviator, submariner,
+- [47:49.790] and shipmate in the Navy
+- [47:51.870] inherits a tradition of excellence
+- [47:53.970] and daring, power, and glory
+- [47:55.510] unmatched in the long saga of mankind's voyage on the sea.
+- [48:00.860] From that first ship, the schooner Hannah,
+- [48:03.950] to the awesome sight of a modern carrier battle group underway,
+- [48:08.180] the U.S. Navy has always been the iron
+- [48:10.220] will of a proud and mighty nation
+- [48:12.120] pushing forward through the currents
+- [48:14.030] and over those big, beautiful waves.
+- [48:17.900] Through the spray of raging combat
+- [48:20.070] and the fog of naval war,
+- [48:23.310] America's sailors have proven time and again
+- [48:25.780] that our Navy does just the best job there is.
+- [48:30.360] Anything having to do with sailing the oceans,
+- [48:33.450] there's nobody to compete.
+- [48:35.430] We own the skies, we stalk the depths,
+- [48:38.480] and we rule the seas like nobody has ever ruled the seas.
+- [48:43.210] From Boston Harbor to Hampton Roads,
+- [48:46.750] from the Philippine Sea to the Red Sea,
+- [48:49.220] from Guadalcanal to the vast Great Atlantic Ocean,
+- [48:54.940] our sailors have seized triumph upon triumph.
+- [48:57.630] We don't know anything about defeat.
+- [49:00.710] We heaped honor upon honor and carved greatness
+- [49:04.690] and splendor into the pages of history.
+- [49:07.710] We only talk about the Navy and only use that word, splendor.
+- [49:12.400] We also say victory because that's the other.
+- [49:14.840] We have splendor and we have victory on gun decks
+- [49:17.850] and flight decks.
+- [49:19.610] In torpedo rooms and cockpits, they have poured out
+- [49:23.140] their blood, sweat, and tears and offered their very lives
+- [49:26.300] to defend this land between the seas.
+- [49:29.330] They have crossed icy canals, leapt from burning wreckage,
+- [49:33.570] plunged into frigid waters, soared into deadly skies,
+- [49:37.290] and slashed across the mine-infested bays
+- [49:41.030] to claim American victory
+- [49:42.750] and to defend the cause of liberty,
+- [49:47.130] to defend, quite frankly, the American flag.
+- [49:52.090] In every era and every part of this globe,
+- [49:55.150] our sailors have fought with courage in their hearts,
+- [49:57.880] patriotism in their souls, and salt water in their veins.
+- [50:02.650] Do you have that salt water? Don't let the doctors change it.
+- [50:07.170] Keep it because there's nothing like it.
+- [50:09.850] There's no blood like it.
+- [50:12.250] And standing before all of you today,
+- [50:14.370] I know that whenever our nation is threatened
+- [50:17.710] and whenever they need help, whenever duty calls,
+- [50:24.570] American sailors will hoist our flag high
+- [50:27.210] and they will rally to Admiral Farragut's immortal battle cry,
+- [50:31.350] "Damn the torpedoes, full speed ahead, go, you son of a gun."
+- [50:36.890] With your help, we will fight, fight, fight.
+- [50:39.840] We will win, win, win.
+- [50:42.310] Because of you, our Navy and our country will always be proud
+- [50:45.950] and righteous and mighty and free.
+- [50:48.680] Congratulations once again on 250 years of total dominance.
+- [50:54.520] Sail fast. Stay strong. Thank you.
+- [50:58.010] God bless our sailors and
+- [51:00.170] God bless the United States of America.
+- [51:02.300] Thank you very much, everybody.
+- [51:05.230] (Cheers and applause)
+- [51:11.340] ♪ ("YMCA" by the Village People) ♪

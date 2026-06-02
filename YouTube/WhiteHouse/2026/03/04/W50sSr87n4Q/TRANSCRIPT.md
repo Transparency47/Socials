@@ -1,0 +1,1253 @@
+<!-- source: https://www.youtube.com/watch?v=W50sSr87n4Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: W50sSr87n4Q -->
+<!-- date_published: 2026-03-04T21:16:49+00:00 -->
+<!-- date_accessed: 2026-06-02T02:37:04.504164+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable on Ratepayer Protection Pledge
+
+- [00:10.840] Announcer: Ladies and gentlemen,
+- [00:12.320] the President of the United States,
+- [00:14.490] Donald J. Trump.
+- [00:16.400] ♪ (Hail to the Chief) ♪
+- [00:57.070] The President: Well, thank you very much.
+- [00:58.320] These are exciting times.
+- [01:00.920] I think you probably want to speak about war
+- [01:03.160] rather than this, but this is very important.
+- [01:05.900] This is very important,
+- [01:07.230] and we're doing very well on the war front,
+- [01:11.290] to put it mildly, I would say.
+- [01:13.320] Somebody said on a scale of 10, where would you rate it?
+- [01:15.690] I said, about a 15 and we're going to continue to do well.
+- [01:20.220] We have the greatest military in the world by far,
+- [01:24.030] and that was a tremendous threat to us for many years.
+- [01:28.330] 47 years they've been killing our people
+- [01:30.370] and killing people from all over the world,
+- [01:32.200] and I think we have great support.
+- [01:34.500] And I think if we didn't do it first,
+- [01:36.580] they would have done it to Israel
+- [01:38.430] and give us a shot if that was possible.
+- [01:42.200] And if we didn't terminate the worst deal --
+- [01:44.080] one of the worst deals ever made,
+- [01:45.400] the Obama nuclear deal, I call it the Obama nuclear deal
+- [01:49.540] where he gave everything to Iran including a nuclear weapon.
+- [01:53.640] It was a road to a nuclear weapon.
+- [01:55.790] Bad things would have happened four years ago
+- [01:57.670] because they would have had a weapon four years ago
+- [01:59.470] if I didn't terminate that deal.
+- [02:01.930] So, we're in a very strong position now
+- [02:04.270] and their leadership is just rapidly going.
+- [02:08.910] Everybody that seems to want to be a leader,
+- [02:12.350] they end up dead and it's uh, it's an amazing,
+- [02:17.370] amazing thing that's taking place before your eyes
+- [02:20.010] because for 47 years, we were pushed around
+- [02:25.010] and we shouldn't have been.
+- [02:27.340] And I think I can say and you see it as well as I do,
+- [02:31.210] you see the tremendous progress that's being made.
+- [02:33.820] Their missiles are being wiped out rapidly.
+- [02:36.580] Their launchers are being wiped out,
+- [02:39.160] they're attacking their neighbors, they're attacking --
+- [02:41.210] they're in some cases allies or not so long ago allies
+- [02:46.350] and you know it's really a nation that was out of control.
+- [02:49.410] And they would have used it on us if we let them,
+- [02:51.960] if we waited any longer.
+- [02:54.180] A big -- a big factor was Soleimani,
+- [02:56.640] the killing of Soleimani in my first term.
+- [02:59.620] And maybe the biggest factor
+- [03:00.920] was the rebuilding of the military in my first term.
+- [03:04.900] And then the B-2s hit them and I use the word obliterate
+- [03:10.090] because it really was --
+- [03:11.390] it was a complete obliteration of their nuclear potential.
+- [03:16.660] And that set them back very, very seriously.
+- [03:20.310] If we didn't hit within two weeks,
+- [03:21.910] they would have had a nuclear weapon.
+- [03:23.340] If we didn't do the B-2 attack a number of months ago,
+- [03:26.420] they would have a nuclear weapon.
+- [03:28.310] And when crazy people have nuclear weapons,
+- [03:31.050] bad things happen. So we're in very good shape.
+- [03:34.080] Now I want to let you know that and we will continue forward.
+- [03:37.750] But it's a great display of military strength,
+- [03:40.880] and I'm very proud to have with some of the people in the room
+- [03:46.180] both senators and congressmen, we rebuilt -- and women,
+- [03:50.160] we rebuilt our military during the first term
+- [03:54.170] and we're using it a little bit more
+- [03:55.930] than I thought we would have to.
+- [03:57.310] Venezuela worked out really great.
+- [03:59.900] We have a wonderful relationship with the president
+- [04:02.350] and the various representatives
+- [04:04.610] and we're taking out hundreds of millions of barrels of oil
+- [04:09.380] and that goes to our benefit and to Venezuela's benefit.
+- [04:13.280] And they'll be doing better than they've ever done before.
+- [04:16.040] And we will get a big piece of that
+- [04:18.430] and we'll also make life wonderful
+- [04:21.030] for the people of Venezuela
+- [04:22.380] who have been very, very badly hit.
+- [04:23.870] So that's a lot said in a short period of time,
+- [04:27.590] but you can witness it for yourself.
+- [04:29.320] And now we'll get on to something that I'm very proud of
+- [04:32.180] because it was sort of my idea --
+- [04:34.700] sort of my idea like build your own power plant.
+- [04:38.710] And everybody thought I was kidding, they said really?
+- [04:42.000] You can do that? How would you do that?
+- [04:44.170] I said we'll get you fast permits
+- [04:46.550] and you'll build your own plants.
+- [04:48.060] But uh, we're going to discuss it in great detail
+- [04:50.980] with the biggest people in the industry
+- [04:52.670] and some of our great leaders and senators.
+- [04:55.250] And congratulations on the Medal of Honor
+- [04:58.010] for your 100-year soldier.
+- [05:00.790] You know 100 years old, 101 to be exact.
+- [05:05.290] And Darrell's been fighting
+- [05:06.600] that he got the Congressional Medal of Honor
+- [05:08.350] for many years, Darrell, right?
+- [05:11.520] Darrell Issa: Mr. President, I give you all the credit
+- [05:13.580] for overcoming the the lawyers in the Department of the Navy
+- [05:17.840] in a way that I thought was amazing.
+- [05:19.920] Yeah, and nobody could have done it, but you.
+- [05:22.650] The President: Maybe it'll be a long --
+- [05:23.910] we had a -- we had to get it to him a little bit quickly,
+- [05:26.480] but he looks like he's in good shape.
+- [05:27.910] He's got some years left, right?
+- [05:30.380] Darrell Issa: He's planning to come back here
+- [05:33.560] for your next Medal of Honor ceremony and --
+- [05:36.870] and he's also going to be the star at Tailhook this summer
+- [05:40.110] if you want to come to Reno.
+- [05:42.980] The President: Well, I congratulate you
+- [05:44.380] for that success. That was amazing.
+- [05:46.010] He didn't stop. I've known him a long time.
+- [05:48.530] He never stops. So congratulations, very nice.
+- [05:52.950] We're here this afternoon for a historic signing
+- [05:56.160] that will help keep down utility bills very,
+- [05:58.570] very substantially and electricity prices
+- [06:01.610] for millions of Americans
+- [06:03.330] and in many cases for a lot of people
+- [06:05.960] that don't really understand why they're going up,
+- [06:08.210] but they're not going to be going up.
+- [06:09.710] They're going to be actually going down.
+- [06:12.260] Today, we follow through on an announcement
+- [06:14.370] I made in my State of the Union address last week
+- [06:17.910] as America's largest tech companies
+- [06:20.050] officially signed the ratepayer protection pledge.
+- [06:23.720] It's a big deal.
+- [06:25.610] I'm going to have a tremendous impact on electricity costs.
+- [06:28.970] We're bringing down all of the costs.
+- [06:30.430] We have this little interlude to do what we have to do
+- [06:34.730] because we -- we had it going.
+- [06:36.790] But these are -- these interludes are very important,
+- [06:39.390] especially this one,
+- [06:41.230] but the economy has never been like this.
+- [06:43.560] We've never broke 50,000 on the Dow.
+- [06:46.280] People thought we wouldn't do that
+- [06:47.640] within the first four years, we did it in the first year
+- [06:51.450] and we brought seven on the S&P 7,000 on the S&P.
+- [06:55.960] They said that's even less likely to happen
+- [06:58.770] and we did that to all within the first year.
+- [07:00.810] Under this new agreement,
+- [07:02.950] Big Tech companies are committing
+- [07:05.020] to fully cover the costs of increased electricity production
+- [07:08.970] required for AI data centers and that would be prices
+- [07:13.750] for American communities will not go up,
+- [07:17.570] but in many cases will actually come down very substantially
+- [07:22.130] because you know the data centers
+- [07:23.690] and you people are so big,
+- [07:25.510] you're the -- the biggest in the world.
+- [07:27.330] But they've developed a little bit of a bad public --
+- [07:31.800] they have -- they need some PR help
+- [07:34.080] because people think that if a data center goes in there,
+- [07:37.310] electricity prices are going to go up.
+- [07:39.100] And that's not happening. It's not going to happen.
+- [07:41.240] And for the areas where it did happen,
+- [07:43.310] it won't happen anymore because they never had this alternative.
+- [07:47.430] It's actually going to mean the prices come down,
+- [07:49.430] you're going to see how badly they want,
+- [07:50.930] some, some centers were rejected by communities for that.
+- [07:54.570] And now I think it's going to be just the opposite.
+- [07:57.910] This means that the tech companies and the data centers
+- [08:01.160] will be able to get the electricity they need all
+- [08:03.900] without driving up electricity costs for consumers.
+- [08:08.180] This is a historic win for countless American families
+- [08:11.640] and will also make our electricity grid stronger
+- [08:15.340] and more resilient than ever before.
+- [08:17.070] So that's part of it. It's going to be strengthened up
+- [08:20.360] and they're going to be getting a lot of excess electricity
+- [08:22.950] from the data centers where they build their own plants.
+- [08:25.490] They're going to be creating their own electricity.
+- [08:29.390] We're pleased to be joined today by speaker, Mike Johnson,
+- [08:32.620] who's got a difficult job, but he does it as easy
+- [08:37.130] as anybody I've ever seen do that job.
+- [08:39.470] It's never easy when you have a majority of two
+- [08:42.380] or sometimes less.
+- [08:45.240] Yeah, I was going to say sometimes less, but he's --
+- [08:48.720] he's amazing.
+- [08:49.940] And Energy Secretary Chris Wright, who's worked so hard;
+- [08:53.790] and Senators Katie Britt, Bernie Moreno, Jon Husted,
+- [08:58.760] thank you everybody, really great. Thanks, Katie.
+- [09:02.130] Representative Darrell Issa and Derrick Van Orden,
+- [09:05.250] thank you both.
+- [09:06.500] And Derrick, thank you. Nice to see you.
+- [09:09.140] OSTP Director Michael Kratsios; AI and Crypto Czar David Sacks;
+- [09:16.790] as well as the commissioners of the Federal Energy Regulation
+- [09:20.690] and Regulatory Commission and an audience --
+- [09:23.470] in the audience.
+- [09:24.780] You have Laura Swett, David Rosner,
+- [09:27.620] Lindsay See and Judy Chang, all very well known people,
+- [09:31.750] especially in this group of geniuses.
+- [09:34.860] We have a lot of geniuses here and a lot of geniuses
+- [09:38.060] that are also very strong people representing labor.
+- [09:42.100] We love labor. We love these guys.
+- [09:45.040] I also want to recognize the industry leaders
+- [09:47.400] here to sign the pledge.
+- [09:49.240] And this is a pledge that's going to be
+- [09:50.620] a very important pledge to the country
+- [09:52.570] and to their companies also they benefit also very substantially
+- [09:57.140] including president of Google, Ruth Porat.
+- [10:02.160] That's a good company, that's big stuff,
+- [10:06.240] Google, that's --
+- [10:07.680] you know, it used to be US Steel and things like that.
+- [10:09.900] Now it's Google and other places.
+- [10:13.340] President of meta Dina Powell, who is with me --
+- [10:16.940] Dina Powell was with me for a long time
+- [10:19.810] and I called up Mark and I said congratulations,
+- [10:23.060] that was a good hire, right? That was a good hire.
+- [10:26.140] She's fantastic and her husband is fantastic.
+- [10:28.540] He was -- he's a great senator
+- [10:30.840] and he ran in a place called Pennsylvania.
+- [10:34.750] And he ran against somebody that was very tough to win.
+- [10:37.140] It was very, very tough to win and he won pretty easily.
+- [10:41.280] Actually people were shocked. I wasn't.
+- [10:43.810] You and I weren't surprised were we?
+- [10:46.160] But he's a spectacular man.
+- [10:49.050] President of Microsoft, Brad Smith.
+- [10:51.700] Thank you, Brad. It's good to see you.
+- [10:53.820] Microsoft is unbelievable.
+- [10:55.870] COO of OpenAI, Brad Lightcap. Brad, where are you, Brad?
+- [11:03.920] Brad, you're so young. Look at how young.
+- [11:08.330] I think you have to be young in that world, perhaps.
+- [11:11.580] Thank you, Brad.
+- [11:12.860] CEO of Amazon Web Services, Matt Garman.
+- [11:17.740] Matt, thank you, Matt, very well.
+- [11:20.480] Say hello to my friend, right, doing a good job.
+- [11:25.250] CEO of Oracle, Clay Magouyrk, Magouyrk.
+- [11:33.300] Is that fairly good? I don't know. I'm not --
+- [11:38.050] I'm not sure. I usually don't --
+- [11:40.730] I just go right over it and I say Magouyrk.
+- [11:43.910] But how are you?
+- [11:46.010] Thank you very much. I appreciate it.
+- [11:47.570] Clay Magouyrk: I give you a hard job,
+- [11:48.950] it's a hard name. You did -- you did.
+- [11:50.510] You did good, you did well for the difficulty of that name.
+- [11:53.250] The President: That's right, I think so.
+- [11:54.910] Thank you very much. And Gwynne Shotwell --
+- [11:58.900] Gwynne Shotwell of XAI, another real leader.
+- [12:04.170] Thank you very much. Thank you. Thank you very much.
+- [12:06.540] Appreciate it and say hello, right, to a special person.
+- [12:11.230] The last administration, their allies in Congress,
+- [12:14.120] gave us the worst inflation in,
+- [12:16.580] I say, the history of our country,
+- [12:18.040] but they say 48 years.
+- [12:20.110] So I'll take either one.
+- [12:21.320] It doesn't matter the press gets very upset.
+- [12:23.550] When I say in the history of our country.
+- [12:26.430] They get very angry about it.
+- [12:27.820] Actually they say it was only 48 years.
+- [12:30.970] They say, you know, in some ways 48 years sounds worse
+- [12:34.200] because it's very specific.
+- [12:36.370] But it sounds a little worse, but either way.
+- [12:38.330] Take either one and the ruinous energy policies
+- [12:40.920] were a big reason why many working families.
+- [12:43.880] Utility bills increased more than 30 percent
+- [12:46.820] during the Biden administration,
+- [12:49.020] the worst administration in the history of our country.
+- [12:52.430] That's why on day one,
+- [12:53.720] I declared a national energy emergency.
+- [12:56.630] We had no choice but to do that and signed an executive order
+- [13:00.990] to dramatically accelerate construction
+- [13:03.140] of new energy infrastructure
+- [13:04.740] which we are doing at record numbers
+- [13:08.250] and we're rapidly bringing down those costs.
+- [13:11.090] Very rapidly. We inherited a mess.
+- [13:13.800] I say it all the time we inherited a total mess
+- [13:17.490] and in many cases we fixed it,
+- [13:19.380] but we're fixing it and we'll always be fixing it.
+- [13:21.340] We're going to make it better and better and better.
+- [13:23.810] Many Americans are still concerned
+- [13:25.610] that the massive energy demand from AI data centers
+- [13:29.370] could drive up their electricity bills in the future
+- [13:32.100] and we understand that.
+- [13:34.380] By 2035 energy demand is expected to more than triple.
+- [13:37.450] Can you believe it?
+- [13:38.780] A lot of it is AI and it's also all these big plans
+- [13:42.400] that are being built all over the country.
+- [13:44.050] They're coming in from Canada and Mexico,
+- [13:47.590] from Germany, from Japan, from South Korea.
+- [13:51.890] They're all coming here to build cars again.
+- [13:54.150] You know, we lost 54 percent of our car industry
+- [13:57.440] because we had presidents -- presidents that,
+- [14:00.810] honestly, on trade and business,
+- [14:02.490] they didn't know what the hell they were doing.
+- [14:04.390] I could say the same thing for the chip industry.
+- [14:06.510] We lost the chip industry, but it's all coming back.
+- [14:09.300] He could have stopped it so easy.
+- [14:11.390] All you would have had to do is put a charge or a tariff on,
+- [14:15.900] if you want to leave the United States, that's fine.
+- [14:18.280] You can go to Taiwan or anywhere you want.
+- [14:20.170] But if you're going to make your product
+- [14:21.820] and sell it back in here, you're going to pay 100 percent
+- [14:24.880] or 200 or 300 percent tariff and nobody would have ever left.
+- [14:28.970] But they missed that opportunity,
+- [14:31.200] but it's not going to matter now because it's all coming.
+- [14:33.480] They're all coming back.
+- [14:35.120] By 2035, energy demand is expected to more than triple.
+- [14:39.340] Under the ratepayer protection pledge we're signing today
+- [14:42.900] the Big Tech companies
+- [14:44.180] are making five important commitments
+- [14:46.470] to keep utility prices down for American consumers.
+- [14:50.690] First, these companies are committing to provide or pay
+- [14:53.920] for all power generation and electricity
+- [14:57.130] needed for their AI projects,
+- [14:59.230] which is massive and where possible,
+- [15:02.070] they'll add capacity to the grid by building new power stations.
+- [15:05.600] So they're going to be making their own electricity.
+- [15:08.740] They're not going to be taking from the grid.
+- [15:10.480] And they will actually probably based on what I'm seeing,
+- [15:14.500] they're building over capacity and they'll be able to sell
+- [15:17.270] that over capacity at very low prices into the grid.
+- [15:21.750] In addition to that, we're fixing the grid.
+- [15:23.650] Now if we didn't do this -- this was,
+- [15:26.850] I believe, I don't know, nobody's going to challenge you
+- [15:29.370] or challenge me. I think this was my idea.
+- [15:31.180] I said, wait a minute, we can't --
+- [15:33.170] When I first got involved with AI,
+- [15:34.890] they said we will need triple the energy.
+- [15:37.970] Think of this triple the energy of what we have now.
+- [15:41.360] Some people said double, I said whether it's double or triple,
+- [15:44.940] that's crazy and that was just for AI.
+- [15:48.270] It is incredible.
+- [15:51.150] And when you see the buildings we're talking about,
+- [15:53.150] you start to understand it.
+- [15:54.390] But unless you saw buildings that go for miles,
+- [15:57.460] buildings that are so big buildings
+- [15:59.100] that cost $60 -- $ 60 billion, I said you mean $60 million.
+- [16:03.780] When I first got involved,
+- [16:05.420] they said we're building a $60 billion building.
+- [16:10.530] I said you mean $60 million -- $60 million is a big building.
+- [16:13.200] It's not that big, but it's pretty big nowadays.
+- [16:16.400] They said no, no, sir, we're going to spend $60 billion,
+- [16:18.740] but now it's like $100 billion and $150 billion
+- [16:22.130] and the bottom line
+- [16:23.400] it takes electricity like nobody's ever seen before.
+- [16:26.100] And I said, well, with an old grid,
+- [16:28.850] even if we fix it really well,
+- [16:30.320] which we're in the process of doing,
+- [16:31.690] you can't take that and double our electricity.
+- [16:35.190] They're going to have to build it themselves.
+- [16:36.660] And I told Mark -- I actually told Mark,
+- [16:41.390] I told Elon, I told people and nobody believed me,
+- [16:45.570] they said you're going to let us build our own electricity
+- [16:49.150] because they've been so used to being beaten down
+- [16:52.840] and to have people
+- [16:54.050] with no ideas, no ideas how to solve problems.
+- [16:56.680] And then the whole thing fails, it's a whole disaster.
+- [16:59.600] I said no, I'm serious.
+- [17:00.880] And in one case, they submitted plans
+- [17:03.940] and they didn't do what I told them
+- [17:06.690] and when I called them,
+- [17:07.920] they said why don't you have your plant here?
+- [17:10.630] We thought you were kidding. Are you serious?
+- [17:12.950] You really -- they couldn't believe it in a good way.
+- [17:15.770] They said it's too good to be true,
+- [17:18.310] and I said no, it's not. And here's the other thing.
+- [17:20.960] You'll have your approvals within two, three or four weeks.
+- [17:24.970] It used to take 20 years to get it prior to rejection.
+- [17:27.230] So in other words,
+- [17:28.430] you go 20 years prior to rejection, they'd vote.
+- [17:32.440] I've known many plants where they've been.
+- [17:34.590] I knew people they started off young --
+- [17:37.530] they were young trying to get approvals
+- [17:40.050] for a stupid plant, one plant.
+- [17:42.140] Their whole life was devoted to getting this plant
+- [17:45.310] and around 22 years,
+- [17:47.030] in one case, 22 years later he got rejected.
+- [17:50.770] I said that's not good.
+- [17:52.300] He wasted, let's say half of his working life
+- [17:55.960] on getting an approval and he didn't get.
+- [17:57.990] Now we get it in two weeks, three weeks, maybe four weeks.
+- [18:01.280] When I came in originally in my first term, we had two big
+- [18:04.940] LNG plants in Louisiana.
+- [18:07.500] They were in the 14th year of getting approvals
+- [18:09.880] and they had just been rejected and I got involved.
+- [18:13.820] They were tremendous plants. They were up now.
+- [18:16.090] They're working beautifully.
+- [18:17.310] They built the third one, they're magnificent.
+- [18:20.130] I mean, if you like pipes, this is a plant.
+- [18:23.120] The whole thing is you look inside all it is, is pipes.
+- [18:26.470] I've never seen anything quite like it.
+- [18:28.380] It's like lying two or three Empire State buildings
+- [18:31.140] on their side and doing nothing but putting pipes into it.
+- [18:34.710] So I didn't know exactly what it represented.
+- [18:37.390] All I knew is this is what they needed.
+- [18:38.930] So I got involved. The first one I got done in one day.
+- [18:43.930] The second one, I was a little bit slower that week
+- [18:46.870] and it took me one week.
+- [18:49.120] So I got the first one done in one day, got fully approved.
+- [18:52.130] They were -- and when they called up the head
+- [18:54.120] and I didn't want anything,
+- [18:55.320] I don't want anything for myself.
+- [18:56.610] I want it for the country when they called up
+- [18:58.830] the head of a company like a Microsoft
+- [19:03.020] or like any one of the people in this room,
+- [19:05.310] but they called up the heads. They said no, we got rejected.
+- [19:09.530] No, you just got approved. It was one day.
+- [19:12.000] And one week and they were built
+- [19:14.110] and they're in your state by the way, right?
+- [19:16.380] And they are big and they're doing great.
+- [19:18.430] Mike Johnson: Yes, sir. Lots of pipes.
+- [19:19.740] The President: And there are lots of pipes, right?
+- [19:21.450] That's all I noticed.
+- [19:22.650] I said I've never seen anything like that anyway.
+- [19:25.490] So for these companies committing to provide
+- [19:27.880] or pay for all power generation,
+- [19:29.800] electricity needed for their AI projects where possible,
+- [19:33.580] they will add capacity to the grid.
+- [19:35.980] They're going to be adding a lot of capacity
+- [19:37.700] and I think it's going to be really --
+- [19:39.580] and I've seen some power plants.
+- [19:41.770] I'm actually more interested in the power plant than I am --
+- [19:44.760] than I am in information I said.
+- [19:47.520] Where do you make the money for this?
+- [19:49.510] They said information. I said, OK, that's good.
+- [19:53.830] That's got to be a lot of information though, right?
+- [19:56.290] And it's turning out to be true.
+- [19:57.870] David, it better be true because you got a big bet.
+- [20:00.680] This country has a big bet on it,
+- [20:02.960] but it's it's incredible what they're doing
+- [20:06.330] and what they're coming up with.
+- [20:08.170] Second, they'll cover the costs of upgrading existing
+- [20:11.020] power delivery infrastructure
+- [20:12.500] and their energy demand as it requires further investment.
+- [20:16.490] So they'll be upgrading existing power delivery infrastructure.
+- [20:21.980] They will, third, negotiate separate rate structures
+- [20:25.760] with utilities to clearly and cleanly assign them
+- [20:29.590] to the costs of new capacity investments and commit to paying
+- [20:33.750] even if they do not end up using all of that electricity,
+- [20:37.390] they're going to make a commitment.
+- [20:39.320] So we're going to have a situation
+- [20:40.780] where you're not going to have increased electric bills
+- [20:44.010] for homes that are in the area or even outside of the area.
+- [20:47.960] And fourth, they'll invest in the local communities
+- [20:51.360] where they build and operate, provide workforce development
+- [20:54.360] and jobs for skilled Americans like those with us today.
+- [20:58.250] We have great, great skilled people, electricians, engineers,
+- [21:03.060] HVAC technicians, server and network technicians,
+- [21:07.200] power plant workers, plumbers, welders and many others.
+- [21:10.630] All people that I've hired all my life.
+- [21:12.380] I've been hiring you guys and you've done a great job.
+- [21:15.050] I built a lot of buildings, a lot of good ones.
+- [21:18.040] And finally they will use their infrastructure
+- [21:20.510] to contribute back up power to local grids
+- [21:23.900] during times of need.
+- [21:26.170] So they're going to have a lot of backup power.
+- [21:27.690] We're going to have a lot of excess.
+- [21:28.940] Basically, we're building massive amounts of electricity
+- [21:32.740] and you're not paying for it at all
+- [21:34.790] and the companies want to do it
+- [21:36.160] because this way they can, otherwise they couldn't build.
+- [21:38.330] I mean, the option really was not about cost.
+- [21:41.230] It was about -- there's no way of possibly taking the old grid
+- [21:44.830] and doubling it in a matter of months or years.
+- [21:50.020] So in short, America's largest and richest tech companies
+- [21:53.070] will be funding a colossal expansion
+- [21:55.150] of US energy will have --
+- [21:57.430] I read where China is building tremendous energy
+- [22:00.660] and I got to respect it,
+- [22:02.560] but we're building similar amounts.
+- [22:05.560] We're building what we need
+- [22:07.140] and we're building it through the private sector.
+- [22:09.200] We're building it through great companies
+- [22:10.760] and I've seen some of the plants
+- [22:12.820] that these geniuses they are real geniuses are showing
+- [22:16.800] and I say wow, that's really great.
+- [22:19.350] You're -- you're really doing things
+- [22:21.010] in terms of technology with electricity
+- [22:24.500] that frankly the standard, wonderful power companies
+- [22:29.170] probably aren't going to be getting there.
+- [22:30.920] Maybe as you build them, they'll be smart,
+- [22:33.430] but some of the plants that I've seen,
+- [22:35.070] Dina are -- are absolutely unbelievable.
+- [22:38.110] So they're going to be producing massive amounts
+- [22:40.310] of electricity and energy, the grid.
+- [22:43.290] So the American consumers aren't going to have
+- [22:45.900] to even think about it.
+- [22:48.220] And your electric costs are going to be going down.
+- [22:50.980] Now, unfortunately, it will take a little time to get there.
+- [22:54.070] So they'll say, well, you know,
+- [22:57.110] I don't know who's going to follow me,
+- [22:58.640] but whoever is going to follow me
+- [23:00.130] is going to have some big advantage.
+- [23:01.540] You know, it happened with Biden
+- [23:02.790] where we got a lot of approvals for things,
+- [23:05.400] but they take statutorily a year or two years.
+- [23:09.180] And I got one on medicine that was good,
+- [23:13.800] not as good as favored nations, which we just got, that's --
+- [23:16.960] that's 80 or 90 percent drops, OK?
+- [23:19.260] Nobody's going to believe it.
+- [23:20.890] But I got one on various medicines
+- [23:24.030] and it was good, but it doesn't kick in for two years.
+- [23:26.470] I said, I hope I win this election
+- [23:28.820] because I'm going to get so much credit.
+- [23:31.340] And the election was rigged and stolen
+- [23:33.660] and he stood up there one day getting credit.
+- [23:35.760] He didn't even know what the hell he was talking about.
+- [23:38.420] He got the credit. He was talking about how he did this
+- [23:41.150] and he had no idea what he was talking about,
+- [23:43.340] but we were the ones that got it. And I hate that.
+- [23:45.860] So this is going to happen again,
+- [23:47.550] because somebody's going to be
+- [23:48.900] getting a lot of credit into the future.
+- [23:50.700] But this is really the pretty, pretty current future.
+- [23:53.750] This is going very quickly.
+- [23:55.370] This going to happen almost immediately.
+- [23:57.950] The United States is leading the world in AI by a lot.
+- [24:00.840] We're leading China. We're leading everybody by a lot.
+- [24:03.300] Without this, you wouldn't even --
+- [24:04.670] I don't think you could build, Brad,
+- [24:06.670] you couldn't build a plant right Without this.
+- [24:08.800] I don't think you could -- you know,
+- [24:10.100] you'd have to rely on the grid
+- [24:11.410] and you wouldn't be able to do that.
+- [24:13.530] So the United States is leading by a lot.
+- [24:15.640] We're leading everybody.
+- [24:16.930] And -- and it's not only you know,
+- [24:19.150] other countries are very much into it,
+- [24:20.890] they all want it,
+- [24:22.240] but we're going to be dominant in this --
+- [24:24.040] in this field, which is very important.
+- [24:26.520] In crypto, we want to be dominant.
+- [24:28.190] We want to be dominant in everything we do.
+- [24:31.800] And this agreement will ensure that America can maintain
+- [24:35.210] the most advanced AI infrastructure on the planet
+- [24:38.340] without American families being forced to pick up the tab.
+- [24:42.140] And that's why the early ones they, you know,
+- [24:45.020] they hook up to the electric utilities
+- [24:48.010] and they can't produce the kind of numbers electric wise
+- [24:52.790] that they want and they end up raising the rates.
+- [24:55.970] It's not going to happen anymore
+- [24:58.040] and now it's going to go the opposite way.
+- [24:59.640] They'll make a lot of money and electric rates.
+- [25:02.750] We actually think they're not going to stay.
+- [25:04.320] I think they're going to -- actually, Chris,
+- [25:05.980] they're going to actually come down election.
+- [25:08.810] So your electric bills will actually come down.
+- [25:10.880] It'll take a little while but not long.
+- [25:13.370] So this new strategy never tried before in any country
+- [25:17.000] will pave the way for continued American dominance
+- [25:19.790] in energy and technology working together.
+- [25:23.300] So we have a very big key to what we're doing is Lee Zeldin.
+- [25:42.060] He's in charge of the environmental department
+- [25:45.200] and energy and the job he's done
+- [25:48.610] is incredible getting you fast approvals.
+- [25:51.140] So some of the plants are starting
+- [25:52.740] and they're coming in, I say, Lee,
+- [25:55.070] two weeks for natural gas. Don't worry about wind.
+- [25:58.950] Forget it, it's worthless, don't --
+- [26:01.060] you don't get approvals for wind.
+- [26:02.350] We don't do wind in this because it's a loser except for China.
+- [26:05.890] They make all the windmills, you know,
+- [26:07.220] China makes all the windmills.
+- [26:08.520] The only problem is they don't have wind farms.
+- [26:10.910] You ever think somebody is going to have to look at that.
+- [26:12.650] How many wind farms have you seen lately in China?
+- [26:15.750] They make the windmills,
+- [26:17.340] they sell them to the suckers over in Europe.
+- [26:19.490] Europe is buying them by the thousands
+- [26:22.650] and I told them for three years
+- [26:25.090] this is not going to work out well.
+- [26:27.270] And now they're saying I was right.
+- [26:29.330] But we are, I say natural gas, clean, beautiful coal.
+- [26:35.480] You know, we don't ever say in the Trump administration,
+- [26:38.150] you're not allowed to use the word coal
+- [26:40.850] unless you precede it by saying clean beautiful.
+- [26:43.830] And Chris made a beautiful speech about three weeks ago
+- [26:47.170] and he took me very, very seriously.
+- [26:49.130] And every time -- it was about coal
+- [26:51.490] and every time he mentioned coal,
+- [26:52.760] it's a clean, beautiful coal, clean, beautiful coal clean.
+- [26:55.720] I said, Chris, easy. It sort of --
+- [27:01.670] just sort of stepped on his speech a little bit.
+- [27:03.930] It was a -- it was a little much.
+- [27:05.460] But we got the point across
+- [27:07.520] they call this clean and beautiful.
+- [27:09.550] Well, look, it's so many of the nations
+- [27:12.320] that are working are using coal
+- [27:14.500] and you can do things with coal today
+- [27:16.170] that are incredible in terms of the environment
+- [27:18.210] and in terms of cleanliness.
+- [27:20.420] But I said to two weeks for oil and gas,
+- [27:23.380] coal and for nuclear power plant,
+- [27:26.620] maybe take two or three weeks.
+- [27:27.950] You can take add on an extra week.
+- [27:30.100] But Lee Zeldin has done an amazing job
+- [27:33.090] in getting you all of the permits that you need
+- [27:34.990] because normally that would take many, many years
+- [27:37.450] and they're already building the plants
+- [27:38.930] that are being built all over the country.
+- [27:40.520] And they are incredible.
+- [27:41.770] So with that, I'll introduce Chris Wright, who's --
+- [27:46.670] we were lucky to get him.
+- [27:47.870] Doug Burgum convinced me, he was the best guy.
+- [27:49.730] I wanted Doug Burgum for his position.
+- [27:52.400] And because I'm very impressed with Doug,
+- [27:54.070] he's doing a fantastic job. He said there's somebody
+- [27:56.220] that's better than me on energy, I said who?
+- [27:58.220] A guy named Chris Wright. He said biggest in the industry.
+- [28:02.560] He's the smartest, he's the best.
+- [28:04.600] I say really, he's better than you?
+- [28:06.120] And Doug has a very big ego.
+- [28:07.500] So for him -- for him to say that was not easy.
+- [28:11.350] But I met Chris and it was sort of love at first sight.
+- [28:15.850] He has done some job and so is Doug.
+- [28:19.000] We put Doug -- we gave him interior
+- [28:21.560] where they have all the oil
+- [28:23.240] and we gave him energy where they take it, right?
+- [28:26.250] So we sort of did a friendly merger
+- [28:27.830] without going through Congress
+- [28:29.260] because if we went through Congress,
+- [28:30.970] it would never get done
+- [28:32.200] unless the speaker wanted to get it done,
+- [28:34.550] in which case it would be all right.
+- [28:35.930] So, Chris, you could say a few words please.
+- [28:38.430] Chris Wright: You bet.
+- [28:39.750] First of all, thank you all for being here today.
+- [28:42.510] The reason we're here and the things that are going to happen
+- [28:44.760] are because of the people in this room.
+- [28:47.470] I want to thank you, Mr. President, for your leadership.
+- [28:50.570] Very early on, I mean, first week I'm in my new job,
+- [28:53.920] I haven't had a boss in 40 years and I'm in the Oval Office
+- [28:57.460] adjusting to this and the president
+- [28:59.390] says to me two things very clearly.
+- [29:00.690] He says number one, we have to lead in AI.
+- [29:03.310] We have to lead. This is a transformative technology.
+- [29:05.820] America must lead in AI and the old energy policies
+- [29:09.970] that were going on would not lead in AI.
+- [29:13.400] We need to lead in AI.
+- [29:15.180] Number two, the government and bureaucracy,
+- [29:17.760] it's always in the way of things it's been in the way of AI.
+- [29:20.830] We've got to run the government like a business.
+- [29:23.490] The businesses who want to invest are our partners
+- [29:26.340] and get them here right away
+- [29:28.370] and we've got to work with those partners and boy,
+- [29:31.070] we have seven incredible leaders in the room today.
+- [29:34.820] We're going to win in AI
+- [29:36.440] and we're going to stop the rise in electricity prices
+- [29:39.280] because of the seven leaders
+- [29:40.910] that are sitting around this table.
+- [29:43.390] The president said you're going to work with them
+- [29:45.140] like a business leaders.
+- [29:47.060] Ultimately this is not a negotiation
+- [29:48.960] where one side wins and one side loses.
+- [29:50.980] We have the same interest, the interest
+- [30:08.560] for our national defense and critical for our security.
+- [30:12.250] The nation that leads in AI will be the military superpower.
+- [30:16.940] That has been and must remain the United States of America.
+- [30:21.370] But this is a pivot and this is a transformation
+- [30:24.380] and it's the bold leadership of the president
+- [30:26.910] and the bold long term vision of the business leaders
+- [30:30.960] that I am very proud to call partners and friends
+- [30:33.890] around this table that have invested that money,
+- [30:36.320] that have developed those technologies,
+- [30:37.750] that are willing to invest those dollars
+- [30:40.530] and are also willing to fix the biggest problem.
+- [30:43.570] We had 30 percent electricity price rises
+- [30:46.410] during the Biden administration and we shrunk our amount
+- [30:49.730] of available dispatchable electricity.
+- [30:52.110] That is a train wreck waiting to happen.
+- [30:54.240] And the president recognized from the start,
+- [30:55.760] we have to lead an AI
+- [30:57.000] and we have to stop electricity price rise
+- [30:58.980] and those are not in contradiction.
+- [31:00.880] These companies are smart, they're powerful,
+- [31:02.540] they're strong,
+- [31:03.760] they can build power partner with them
+- [31:05.640] and that's exactly all of them embraced it.
+- [31:08.410] All of them have spent money to these noble causes.
+- [31:11.520] And as we heard, a number of states that have partnered
+- [31:13.700] with the people on this table
+- [31:15.160] have announced multiyear rate freezes.
+- [31:17.300] Indiana is the leader now in the first one filing
+- [31:19.840] for a rate reduction,
+- [31:22.030] but it is the partnership of these companies
+- [31:25.410] and a business focused on government
+- [31:27.280] focused on the American people that is the transformation.
+- [31:30.930] But I could not be more proud to be here.
+- [31:33.640] I've got to thank also our FERC commissioners
+- [31:36.770] that are here FERC -- FERC
+- [31:38.950] is a noble regulatory agency that just got
+- [31:44.550] We need to make things happen faster.
+- [31:46.100] The President: Could they stand up?
+- [31:47.370] Chris Wright: Yes. Could all the FERC commissioners stand up.
+- [31:49.310] The President: Because you know they're the most powerful people
+- [31:51.240] in the country and -- Thank you.
+- [32:00.190] I have had more people say, do you know FERC?
+- [32:03.200] I said, do I know FERC? What about FERC?
+- [32:05.460] And I learned so much about you
+- [32:07.070] and you are the most powerful people in the country.
+- [32:10.360] So we want to be very nice to you.
+- [32:12.360] Please get us approvals.
+- [32:14.080] Please get us those approvals.
+- [32:15.570] OK. Thank you all very much. Thank you.
+- [32:18.680] Chris Wright: The team has worked hard smartly
+- [32:21.240] and practically to --
+- [32:22.890] to enable the revolution that's going to happen,
+- [32:25.180] America leading in AI and stopping the price rises.
+- [32:28.510] Thank you all so much and boy,
+- [32:31.120] one of the other things I'm crazy lucky about
+- [32:33.210] is to work as a partner with a guy
+- [32:35.440] who has the hardest job in the world
+- [32:37.860] and does it with a smile, does it with charm
+- [32:40.070] and does it with grace, Speaker Mike Johnson.
+- [32:44.330] Mike Johnson: Well, thanks so much, Mr. Secretary.
+- [32:45.860] Thanks to you all. It's a great honor to be here
+- [32:47.780] with the leaders of tech and industry,
+- [32:49.410] the FERC commissioners. They are so very important
+- [32:51.500] and all these folks who help all this happen.
+- [32:54.840] Look, only President Trump has the gravitas
+- [32:57.980] to be able to assemble the leaders
+- [32:59.310] of all these great companies in one room and --
+- [33:01.380] and also to conceive of an idea
+- [33:02.910] like the ratepayer protection pledge.
+- [33:04.670] This is an idea whose time has come.
+- [33:06.750] I think it's going to be so well received around the country
+- [33:09.670] because let's be honest about it.
+- [33:11.530] There are concerns that people have had.
+- [33:13.620] There's a lot of misinformation out there, Mr. Secretary,
+- [33:16.090] about the rise in energy demand
+- [33:18.660] and what that's going to mean for our community.
+- [33:20.490] So it is so meaningful to have leaders,
+- [33:23.240] the titans to come in and say everybody be calm.
+- [33:25.920] This is going to be great.
+- [33:27.200] It's actually going to be better going forward.
+- [33:29.110] Not only is America going to stay on top and lead
+- [33:31.690] and be the strong superpower that we are --
+- [33:35.080] we're going to continue to lead on AI.
+- [33:36.840] We're going to continue to make the communities better.
+- [33:38.940] I'm in the state of Louisiana.
+- [33:40.210] A lot of this is happening in Louisiana, Mr. President.
+- [33:42.470] It's not just a bunch of beautiful pipes.
+- [33:44.670] Uh, it's also data centers. Meta is doing a big one.
+- [33:47.490] And of course, Amazon is working in Louisiana and Stack
+- [33:50.920] and so many of the other companies and our communities
+- [33:53.290] are so grateful to have that investment and also grateful
+- [33:56.390] because they're coming in as great corporate partners,
+- [33:58.920] community partners and they're acting responsibly.
+- [34:01.890] They're helping to build out the energy grid
+- [34:04.780] and they're making life better, not just with good paying jobs.
+- [34:08.410] They're actually making life better in these communities
+- [34:10.260] and in our state.
+- [34:11.470] And so we're so grateful for that.
+- [34:12.930] I like what you said a moment ago.
+- [34:14.380] This is a win, win, win across the board.
+- [34:16.650] You have everybody who's come to the table in good faith
+- [34:19.070] under the leadership of this extraordinary president
+- [34:21.810] to make this happen for the country.
+- [34:23.630] It's at the perfect time.
+- [34:24.940] Trust is not given by communities
+- [34:27.860] and local stakeholders. It's built over time
+- [34:30.160] and I think this pledge is a huge part of building
+- [34:32.950] that important foundation for the future.
+- [34:34.870] America is back, Mr. President.
+- [34:36.510] I'm so excited about that, excited to be a part of this.
+- [34:39.040] Thanks so much for letting us be it. Yeah.
+- [34:41.030] The President: Thank you.
+- [34:42.650] I think we'll go with John, is that all right? John Husted?
+- [34:46.480] Jon Husted: Thank you, Mr. President.
+- [34:47.750] In places like Ohio, this is a very, very big deal.
+- [34:51.530] Uh, I know that you know well
+- [34:53.030] that if we want to have economic dominance
+- [34:55.360] and national security dominance,
+- [34:57.180] we need to have technological dominance and --
+- [34:59.740] and AI and data centers are a big piece of that.
+- [35:03.140] And I know that the American people want to win.
+- [35:05.920] They want to win this just like you do.
+- [35:08.240] Uh, we want to be superior to our challengers like China.
+- [35:13.400] We want to have AI dominance
+- [35:15.010] because that helps give our military,
+- [35:18.150] our manufacturing, everybody across the country
+- [35:22.150] needs AI dominance if America wants to win.
+- [35:24.990] And I know you're the leader of the America First agenda.
+- [35:28.210] You want America to win,
+- [35:29.880] but so do the people in places like Ohio,
+- [35:32.480] but they're concerned about energy prices, right?
+- [35:35.430] They know that they like those -- those folks out there, the --
+- [35:39.670] the construction trades that build these,
+- [35:41.520] the plumbers, pipefitters, HVAC, electricians,
+- [35:46.790] the people that build the power plants,
+- [35:48.220] the laborers, the boilermakers like these
+- [35:49.990] are working people in places like Ohio
+- [35:52.010] that do amazing work to build the data centers
+- [35:55.840] to build the power plants,
+- [35:57.660] but people just are worried about their --
+- [35:59.590] their energy prices
+- [36:00.880] and what you're offering today with the -- the round.
+- [36:04.300] This round table with the ratepayer protection pledge,
+- [36:06.790] Mr. President, is great leadership
+- [36:08.720] because this solves the problem the people were worried about.
+- [36:12.510] Uh, and as the data centers build new power plants,
+- [36:15.910] it leads to energy stability,
+- [36:17.810] affordable, reliable electricity for American ratepayers,
+- [36:22.420] helping them win the affordability battle
+- [36:24.950] that you're leading on behalf of this great team
+- [36:28.150] that you've assembled.
+- [36:29.390] And I just want to say thank you for your leadership on this.
+- [36:32.090] The President: Thank you very much, Jon,
+- [36:33.360] and I hear you're doing very well in your race.
+- [36:35.720] He's running for a very important seat
+- [36:38.280] in a great state that I like a lot.
+- [36:40.560] It's always been good to me and it's going to be good to you
+- [36:42.710] and it has been good to you. So good luck with that.
+- [36:44.910] Jon Husted: Thank you, Mr. President.
+- [36:46.200] The President: Going to do well. Michael, please.
+- [36:48.050] Michael Kratsios: Thank you so much, Mr. President.
+- [36:49.540] You have been talking about this issue
+- [36:51.040] beginning as early as the campaign in July
+- [36:53.740] when we released the action plan.
+- [36:55.240] This was a focal point of the speech you gave,
+- [36:57.730] talked about it again at the State of the Union.
+- [36:59.300] So this is a culmination of --
+- [37:01.300] of this idea that you've been working on for quite some time.
+- [37:04.140] And the key to all of this is that American AI leadership
+- [37:07.580] should never come at the cost of hardworking Americans ability
+- [37:11.550] to pay their electricity bills and frontier AI
+- [37:15.540] that all of these great companies work on every day
+- [37:18.440] along with the data centers that underlie them
+- [37:21.390] are going to accelerate scientific discovery.
+- [37:23.380] They're going to unlock economic efficiencies,
+- [37:25.330] they're going to enable entire new industries
+- [37:27.380] to support the prosperity of all Americans
+- [37:30.560] and to continue to lead in AI
+- [37:32.310] these great companies need to make new data centers.
+- [37:34.730] We need new fabrication capacity,
+- [37:36.450] we need new manufacturing facilities
+- [37:38.010] and we need new power plants
+- [37:39.620] to be able to do all this great work.
+- [37:41.920] And today through this pledge,
+- [37:43.250] we are challenging all these companies to think bigger
+- [37:46.220] when it comes to data center construction.
+- [37:48.400] By identifying ways that we can drive down
+- [37:50.760] the overall electricity cost,
+- [37:52.880] ultimately strengthen grid resilience
+- [37:55.180] and to create more American jobs in the communities
+- [37:58.330] that choose to build all of these data centers.
+- [38:01.050] By signing this pledge, all these companies here
+- [38:03.780] are making themselves accountable to you,
+- [38:05.410] Mr. President, and to the American people
+- [38:07.600] as they strengthen their commitment
+- [38:09.490] to benefiting the communities in which they build
+- [38:12.120] and they operate.
+- [38:13.470] We as an administration are using every tool at our disposal
+- [38:17.220] to ensure that the US can build and maintain the largest,
+- [38:21.590] most powerful and most advanced AI infrastructure
+- [38:25.050] anywhere on the planet.
+- [38:26.530] And today, we recognize that building the future
+- [38:29.220] requires massive amounts of reliable energy
+- [38:32.180] and I'm grateful to you, Mr. President,
+- [38:33.940] for acting so decisively to ensure
+- [38:35.710] that the growing demands of energy
+- [38:37.510] that we have are never passed to the American households.
+- [38:40.190] Thank you.
+- [38:41.520] The President: Thank you very much. Dina.
+- [38:45.360] Dina Powell McCormick: Thank you, Mr. President.
+- [38:46.660] It's such an honor to be with you today.
+- [38:49.310] Um, I also want to thank your outstanding team
+- [38:51.810] for partnering with us.
+- [38:53.550] You know, um, it's been remarkable
+- [38:55.640] to watch this transformational moment
+- [38:58.180] and you positioning America to lead our country
+- [39:01.550] has had very big transformational moments
+- [39:04.760] before whether it was coming together World War II
+- [39:07.590] or the Industrial Revolution.
+- [39:09.360] But this is different the next three years
+- [39:12.090] in many ways sir are the whole game
+- [39:14.350] and those three years while you are president,
+- [39:16.880] you have positioned us to win.
+- [39:19.310] You have not only made sure that energy dominance is a key to --
+- [39:23.730] to how we will succeed in the compute needs we need,
+- [39:26.710] but you've also done something very important.
+- [39:29.250] You've made us all know that it's not about the products,
+- [39:32.690] it's about the people and at Meta,
+- [39:34.880] we are so proud of the jobs that we are creating,
+- [39:37.980] whether it is in Louisiana or in Ohio.
+- [39:40.990] So proud that it's not just extraordinary engineers,
+- [39:44.650] it is pipefitters.
+- [39:45.900] It is welders, it is electricians
+- [39:48.180] and I'm particularly proud today to announce that partnering
+- [39:51.850] with Senator Moreno and Senator Husted.
+- [39:54.270] We have launched a pilot in Ohio to train fiber technicians,
+- [39:59.170] some who are in this audience actually today,
+- [40:01.930] a very important skill set needed to build data centers.
+- [40:05.850] This four-week program is a new curriculum
+- [40:08.450] when you graduate,
+- [40:09.670] you have a license to be a fiber technician
+- [40:12.650] and a guaranteed job with Meta.
+- [40:15.750] We are also extremely proud to sign the ratepayer pledge today.
+- [40:20.660] Also in Louisiana, as the speaker just said,
+- [40:24.070] we have been able to lower the costs
+- [40:26.790] of so many Louisiana payers,
+- [40:29.610] energy payers an estimated $650 million over 15 years.
+- [40:35.810] So we are proud to say today
+- [40:37.540] that we want to fully cover the cost of the energy
+- [40:40.700] that we use in our data centers, create jobs and opportunity.
+- [40:45.170] But more than anything, sir, we are really proud
+- [40:48.480] that we're going to look back
+- [40:49.710] and have had the privilege to work with you
+- [40:52.290] and know that America won in such a critical time
+- [40:55.650] and that we did it really working with the American worker
+- [40:59.210] and so many others.
+- [41:00.450] So thank you, sir. Proud to be here with you.
+- [41:02.740] The President: It's so nice. Thank you, very much.
+- [41:04.240] Dina Powell McCormick: I also want to say, sir,
+- [41:05.460] I forgot to say it.
+- [41:06.730] You know, it was ten years ago way before we were talking about
+- [41:10.080] AI that you said there is honor and dignity in plumbers
+- [41:15.830] and in workforce skills training.
+- [41:17.850] And you asked Ivanka, as you know, to chair that.
+- [41:20.650] Ten years later, we could not have imagined
+- [41:23.360] how much we needed all of those jobs and those programs
+- [41:27.120] and you marshaled the entire government to do it.
+- [41:29.600] That is having an impact in cities across the country.
+- [41:31.920] So thank you very much.
+- [41:33.150] The President: Thank you, very much.
+- [41:34.350] Dina Powell McCormick: Thank you, sir.
+- [41:35.580] The President: Ruth, please.
+- [41:37.720] Ruth Porat: Thank you, Mr. President.
+- [41:39.720] Google is grateful for all that you and your administration
+- [41:43.760] are doing to secure America's continued leadership in AI.
+- [41:48.610] And to your point, it must be powered by abundant
+- [41:52.180] and affordable energy if it is to benefit all Americans.
+- [41:56.550] I'm pleased to be here to underscore Google's support
+- [41:59.850] for the Ratepayer Protection Pledge.
+- [42:02.060] We're committed to assist in all of your work
+- [42:04.350] to support American households,
+- [42:06.030] American businesses in this exceptional era of innovation.
+- [42:09.850] So four brief points how we will deliver on this for Americans.
+- [42:13.460] First, adding to energy capacity.
+- [42:16.400] Consistent with your call to build, bring or buy energy.
+- [42:21.320] We will meaningfully invest across America
+- [42:23.470] to bring new energy online as you have stressed
+- [42:26.330] so frequently to deliver this self-sufficiency
+- [42:29.540] that is core to this pledge.
+- [42:31.240] In Texas alone, we are adding --
+- [42:35.000] we have contracted to add more than 7800MW of net
+- [42:39.630] new energy generation and capacity to the grid
+- [42:43.110] as we grow our data center footprint
+- [42:45.330] and very much to your point,
+- [42:46.950] we're committed to continuing to invest
+- [42:49.020] to add capacity where we build and to that end,
+- [42:52.310] we will very shortly close on an acquisition of intersect power,
+- [42:56.720] which is going to enable us to build data centers
+- [42:59.130] right next to those new additional power generation
+- [43:02.770] capabilities where possible.
+- [43:04.790] Second, to protect American ratepayers were committed
+- [43:08.280] not only to pay for 100 percent of the energy we use,
+- [43:10.820] but very importantly the infrastructure to support
+- [43:13.330] that growth whether or not we end up using that energy.
+- [43:16.660] And I think one example that brings that to life,
+- [43:19.270] I recently had the privilege of being in Arkansas
+- [43:21.810] with Governor Sanders
+- [43:23.330] and our energy partner there, Entergy,
+- [43:25.740] announced that Google's investment covers
+- [43:28.280] the full energy costs associated with powering our data center,
+- [43:32.310] which contributes more than $1 billion back to Arkansas
+- [43:36.940] customers to reduce their electricity costs.
+- [43:39.590] I think this is precisely what you were saying.
+- [43:41.940] We need to do more of and we're committed to doing that.
+- [43:44.640] Third, I get very excited about the topic
+- [43:47.200] of workforce development, very much to your point
+- [43:49.770] and the important topic of job creation.
+- [43:52.290] Every one job that jobs across the community
+- [44:09.910] in schools and restaurants with small businesses.
+- [44:12.880] And we announced last week
+- [44:14.920] that we're providing free AI professional training
+- [44:18.170] for all small businesses across America.
+- [44:21.120] And given the clear need for electrical workers in America,
+- [44:24.830] we're particularly proud of the work
+- [44:26.290] we've led to create an electrician training program.
+- [44:30.250] And we're committed to training 100,000 electrical workers
+- [44:33.840] and 30,000 new apprentices across the country.
+- [44:37.840] On top of that, we're excited
+- [44:39.200] about significantly growing these programs.
+- [44:41.140] We've heard the pledge.
+- [44:42.690] Finally, Mr. President, as you said,
+- [44:45.200] the American grid needs to be more resilient
+- [44:48.100] and so we're investing here as well.
+- [44:49.690] Two quick things.
+- [44:50.900] We pioneered demand response with data centers.
+- [44:53.940] So we with technology will move workloads out of the way
+- [44:57.220] during extreme weather events to make room for the community.
+- [45:00.790] And second, we're applying AI itself to the grid
+- [45:03.960] to increase capacity in the grid.
+- [45:05.880] So again, I want to thank you.
+- [45:07.120] I want to thank you all for convening us.
+- [45:09.360] The benefits from AI responsibly delivered
+- [45:12.410] are immense for America's businesses,
+- [45:14.920] for America's communities and for its citizens.
+- [45:17.250] Thank you again for your leadership
+- [45:18.630] on this very important point.
+- [45:19.910] The President: Thank you, very much.
+- [45:21.150] You're doing a great job.
+- [45:22.350] Ruth Porat: Thank you, sir.
+- [45:23.590] The President: Gwynne?
+- [45:24.890] Gwynne Shotwell: Mr. President, I want to thank you for your --
+- [45:27.850] thank you -- and I want to thank you for your leadership
+- [45:31.880] because of your work on this issue,
+- [45:48.890] currently we're building one
+- [45:50.170] on the Tennessee Mississippi state line.
+- [45:52.790] As part of today's commitment,
+- [45:54.350] we will take extensive additional steps
+- [45:56.460] to continue to reduce costs of electricity for our neighbors.
+- [45:59.940] Mr. President, we want to be on your team
+- [46:01.850] to deliver a big win for the American people.
+- [46:04.500] xAI will therefore commit to develop 1.2GW of power
+- [46:08.770] as our supercomputers primary power source
+- [46:11.120] and that will be for every additional data center as well.
+- [46:14.230] We will expand what is already the largest
+- [46:16.760] global megapack power installation in the world.
+- [46:19.570] The installation will provide enough backup power to the city
+- [46:22.640] to power the city of Memphis
+- [46:24.210] and more than sufficient energy to power the town of Southaven,
+- [46:27.230] Mississippi where the data center resides.
+- [46:29.960] We will build new substations
+- [46:31.660] and invest in electrical infrastructure
+- [46:33.580] to provide stability to the area's grid.
+- [46:37.980] We will build state of the art --
+- [46:39.410] we haven't talked about that yet,
+- [46:40.670] but this is actually quite important.
+- [46:42.180] We will build state of the art water recycling plants
+- [46:45.430] that will protect approximately 4.7 billion gallons of water
+- [46:49.530] in the Memphis aquifer each year
+- [46:52.140] and we will employ thousands of American workers
+- [46:55.120] from around the city of Memphis
+- [46:56.470] on both sides of Tennessee, Mississippi border.
+- [46:59.210] We will also commit to deploying our AI technology
+- [47:02.630] to make people's lives better, creating a period of abundance
+- [47:05.720] where electricity becomes cheaper and people
+- [47:08.250] have access to the best goods and services
+- [47:10.700] humankind has ever seen. Finally, Mr. President,
+- [47:14.240] we commit to take these efforts into orbit.
+- [47:18.270] We are currently designing orbital data centers
+- [47:20.530] powered by the nuclear reactor in the sky.
+- [47:23.150] Launching supercomputers into space
+- [47:24.990] will mean even more energy on Earth
+- [47:27.400] as all the power plants
+- [47:28.630] that we're building now and power sources
+- [47:30.870] we've built will be available to the communities
+- [47:33.890] instead of the data centers. I've been in space --
+- [47:37.160] I've been in the space industry for nearly 40 years, sir,
+- [47:39.700] and I have never seen things move more quickly
+- [47:42.520] than under your administration.
+- [47:44.200] So thank you for that.
+- [47:45.980] Mr. President, you've been strong and clear
+- [47:47.440] about building AI that is --
+- [47:48.990] that benefits Americans and benefits American values
+- [47:53.110] including demanding that AI is consistent with American values.
+- [47:57.170] In July 2025,
+- [47:58.440] you signed an executive order directing agency heads
+- [48:01.050] to support only those AI models that are --
+- [48:03.730] that prioritize truth seeking and are ideologically neutral.
+- [48:07.990] We fully support that order and we're fully on board
+- [48:10.900] with the Ratepayer Protection Pledge
+- [48:12.960] and I'm really excited to be here.
+- [48:14.670] Thank you so much for your commitment.
+- [48:16.190] The President: Thank you very much.
+- [48:17.450] Thank you. Would anybody like to say something?
+- [48:20.170] We're finished with the official speakers,
+- [48:22.680] but we have the most important people in the room
+- [48:26.490] and great people, political and otherwise.
+- [48:29.000] Would anyone have anything? Please, Darrell?
+- [48:32.020] Darrell Issa: Perhaps as the California Representative here,
+- [48:36.230] I can tell you how excited I am about your proposals.
+- [48:39.090] First of all, all of you have major presence in California
+- [48:43.510] and not long ago I visited the largest site of one
+- [48:48.290] that's not here today, Apple.
+- [48:50.620] It's in Reno, Nevada, Mr. President.
+- [48:53.510] It is 1,700 acres.
+- [48:55.790] It goes on as you said forever with buildings.
+- [48:59.250] It is doing a great job. It is one of dozens.
+- [49:01.650] Most of you also have centers
+- [49:03.340] being put up in that same neighborhood
+- [49:05.750] just outside my state of California.
+- [49:08.870] The reason they're there is the availability of power
+- [49:13.850] and the story I just wanted to briefly say
+- [49:15.910] that says a lot about the current state versus
+- [49:18.820] where you're putting it with the help of industry.
+- [49:22.480] They have what you would call huge, beautiful power plants,
+- [49:29.440] one after another that they have --
+- [49:31.650] they built them for backup because in Nevada,
+- [49:33.900] they were able to get all the power they wanted,
+- [49:36.260] but they built in resilience there.
+- [49:39.200] They've only had to run them extensively
+- [49:41.930] when California calls
+- [49:43.230] and says we're having a blackout.
+- [49:45.540] Would you please turn on your power generators,
+- [49:48.440] so we don't go dark in San Jose miles away?
+- [49:52.670] That said so much to me about the responsibility
+- [49:56.080] of these companies already in the past,
+- [49:59.050] building backup power,
+- [50:00.860] but also the need to have the resilience
+- [50:04.010] that these plants will create as a result of your work
+- [50:08.040] and they won't be diesel plants, they'll be clean burning plants.
+- [50:12.060] They won't be temporary or backup.
+- [50:14.620] They'll be a positive.
+- [50:17.070] Lastly, my state has invested in solar so much
+- [50:20.190] so that we have it to burn during the day.
+- [50:23.150] Literally we burn it.
+- [50:24.500] We don't know what to do with it.
+- [50:26.500] The ability of these power plants to take solar
+- [50:30.300] when it's in excess and then provide that resilience 24/7
+- [50:35.980] all as a result of your leadership.
+- [50:37.820] And so as someone who is from a state
+- [50:40.550] that may build less of them
+- [50:42.960] but needs them more than any other state,
+- [50:45.170] I want to thank you for what you're doing
+- [50:47.350] because these companies now can be empowered to do a lot more
+- [50:51.850] than what they did so far on the edge of California
+- [50:55.740] to help California be part of winning the AI race.
+- [50:58.930] The President: Thank you very much.
+- [51:00.240] We'll go very quickly. David, please.
+- [51:04.210] David Sacks: Thank you, sir.
+- [51:05.780] As I think all of you know here, we have an AI boom going on.
+- [51:08.830] We also have a construction boom going on.
+- [51:11.010] Just the leading companies in the US
+- [51:12.970] are investing $650 billion this year,
+- [51:15.170] building out this infrastructure.
+- [51:16.840] That's a 2 percent tailwind to GDP
+- [51:19.240] and that is leading to job increases
+- [51:21.470] for construction workers
+- [51:23.080] and huge wage increases for construction workers
+- [51:25.570] like the fellows we got right up here.
+- [51:27.550] So this is a very important boom to sustain
+- [51:30.100] and thanks to your leadership, Mr. President, we're doing that
+- [51:32.240] and we're protecting residential ratepayers,
+- [51:34.230] making sure that their electricity prices
+- [51:36.680] will not go up. That's the combination we need.
+- [51:39.000] And I just want to contrast it if I may.
+- [51:40.630] With the approach of Democrats like Bernie Sanders,
+- [51:43.140] their approach is just to ban.
+- [51:44.820] They just want to ban the data centers
+- [51:46.480] so they want to stop the economic growth.
+- [51:48.030] They want to stop the wage increases for blue collars.
+- [51:50.520] They want to stop the construction,
+- [51:52.000] they want to stop progress.
+- [51:53.880] That's not the answer. There's a much better answer.
+- [51:55.860] You have found it, sir, and I just want to vouch
+- [51:57.850] for the fact that in one of our very first meetings you did say
+- [52:01.720] that you wanted to make our AI companies into energy companies.
+- [52:05.590] So that was true and I remember thinking
+- [52:07.110] that's a really good idea.
+- [52:08.920] The president knows more about AI than I do.
+- [52:11.090] So this is -- this is thanks to your leadership we're here today
+- [52:13.770] and I know this is something that you've been championing
+- [52:15.660] for a very long time. The President: Thank you.
+- [52:16.890] Thank you very much and Katie, thank you.
+- [52:18.320] Katie Britt: Yes, Mr. President,
+- [52:19.610] so this is something that we've not only
+- [52:21.170] just talked about obviously on the national stage,
+- [52:23.200] but we've been talking about and wrestling
+- [52:24.640] with in Alabama as well.
+- [52:26.490] Look, we understand the need to win the AI race
+- [52:29.820] and you have made sure that America
+- [52:31.600] is put first in every category
+- [52:33.360] and that means that we dominate there
+- [52:36.220] and we do it in a way though that helps every day Americans.
+- [52:41.100] So when we're looking at their safety and security
+- [52:43.020] and what that will ultimately prevail there,
+- [52:45.180] we don't want to do it at the expense of ratepayers.
+- [52:48.190] And you once again have taken an incredibly complex problem
+- [52:51.770] that everybody wants to talk about
+- [52:53.750] and you actually found a solution.
+- [52:55.520] You found a win-win.
+- [52:57.680] We're not only going to win the AI race
+- [53:00.170] as a result of what you're doing today,
+- [53:02.510] but you have said to every American, to every Alabamian,
+- [53:05.320] I see you and we're going to make sure that your energy costs
+- [53:08.400] not only does not go up as a result,
+- [53:10.210] but you even said today with the added capacity
+- [53:13.010] that it's actually going to go down.
+- [53:14.620] In addition to all of that,
+- [53:15.840] just want to say thank you to you
+- [53:17.620] for being willing to be good community partners.
+- [53:20.920] That's what makes all of this work.
+- [53:22.940] So the communities that you will ultimately reside in,
+- [53:26.500] you are saying we -- we want to build you up
+- [53:28.930] in every sense of the word, giving you greater opportunity
+- [53:32.840] as a result of this pledge today.
+- [53:34.620] So, Mr. President, thank you for making sure
+- [53:37.400] that Americans were put first
+- [53:39.820] and that this progress is not at their expense,
+- [53:42.380] but is rather at their -- to their benefit.
+- [53:44.220] The President: Yep, that's right.
+- [53:45.500] Very quickly, Derrick.
+- [53:46.800] Derrick Van Orden: Mr. President,
+- [53:48.070] I have to tell you something,
+- [53:49.290] you're the only person in the world
+- [53:50.500] that could put together this coalition.
+- [53:51.830] You are the only person in the world.
+- [53:53.210] I hope the American people understand
+- [53:54.490] what we're talking about here today.
+- [53:55.980] You're meshing high tech with the hammer.
+- [53:58.070] You're putting these guys with the hard hats with,
+- [54:00.410] with the 100-pound brain nerds.
+- [54:02.720] And that's going to -- that's going to be the future.
+- [54:04.610] Sorry, I love you guys. And so, Mr. President,
+- [54:09.120] the thing that the American people need to understand
+- [54:11.040] is that you're not thinking about an election cycle,
+- [54:12.730] you're thinking about the next generation.
+- [54:14.680] And what you're doing today
+- [54:15.990] by having this coalition of people is,
+- [54:18.640] is making sure that the future generations our children
+- [54:21.920] are not going to have to be concerned about losing a war.
+- [54:25.890] And that means so much especially in this time now
+- [54:28.100] if people really take a step back and appreciate this is --
+- [54:31.270] this is actual visionary leadership
+- [54:32.930] and it's going to take care long before
+- [54:34.880] or long after we're all gone, sir,
+- [54:36.610] your efforts today are going to make America great into the --
+- [54:39.800] into the foreseeable future.
+- [54:41.000] So thank you so much.
+- [54:42.240] The President: Thank you, Derrick.
+- [54:43.480] You're doing a great job. Bernie, I think you're okay.
+- [54:45.430] You want to say something really fast, Bernie.
+- [54:47.410] Bernie Moreno: Thank you.
+- [54:50.120] The President: He gets my vote. He gets my vote.
+- [54:56.930] I have to go back and look at the war.
+- [54:59.290] You know, I have a lot of things happening.
+- [55:01.680] Thank you, Bernie. You're doing a great job.
+- [55:04.280] Please. This is Will Scharf.
+- [55:07.770] Go ahead, Will. Do you have anything to say?
+- [55:10.130] Will Scharf: I think it's been pretty comprehensively covered
+- [55:12.200] by all the speakers you've had today, sir.
+- [55:13.690] But you're going to be signing a proclamation
+- [55:15.620] announcing the Ratepayer Protection Pledge.
+- [55:18.020] This is going to ensure American AI dominance
+- [55:20.190] in the years ahead,
+- [55:21.580] while also ensuring that American ratepayers,
+- [55:24.060] ordinary Americans paying their electric bills
+- [55:26.440] aren't paying anything more.
+- [55:27.810] And along with the proclamation that you're signing,
+- [55:30.450] each of the CEOs and industry representatives
+- [55:32.500] that we have present here will be signing
+- [55:34.680] an actual copy of the Ratepayer Protection Pledge,
+- [55:37.410] committing them to your vision for this industry going forward.
+- [55:40.420] The President: Pretty good, right?
+- [55:42.530] Chris Wright: And let me say to the press,
+- [55:43.820] thank you so much for being here.
+- [55:45.790] It was fantastic. After the pledges are signed,
+- [55:48.730] if we can have you move out of the room
+- [55:50.180] as quickly as you can so we can do a little bit of business.
+- [55:53.330] But thank you for being here at this thing
+- [55:55.500] and as you heard the summary of the Trump agenda
+- [55:57.750] is lower prices, higher wages.
+- [56:01.320] (applause)
+- [56:15.880] The President: Thank you very much.
+- [56:17.100] Thank you. Thank you, press.
+- [56:21.600] Thank you very much.

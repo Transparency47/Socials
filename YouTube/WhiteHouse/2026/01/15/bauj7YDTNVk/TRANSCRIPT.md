@@ -1,0 +1,356 @@
+<!-- source: https://www.youtube.com/watch?v=bauj7YDTNVk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: bauj7YDTNVk -->
+<!-- date_published: 2026-01-15T21:43:04+00:00 -->
+<!-- date_accessed: 2026-06-02T02:39:05.346201+00:00 -->
+
+# Transcript: President Trump Participates in a Visit of the 2025 Stanley Cup Champions The Florida Panthers
+
+- [00:12.330] Announcer: Ladies and gentlemen,
+- [00:13.540] the President of the United States,
+- [00:15.370] Donald J. Trump, accompanied by Vincent Viola,
+- [00:18.210] owner of the Florida Panthers, and Matthew Kachuck.
+- [00:22.160] ♪ (Hail to the Chief) ♪
+- [00:47.010] (applause)
+- [00:51.410] The President: What a team, what a great job.
+- [00:54.260] What a great job. Please, sit down.
+- [00:56.040] We'll spend a little time doing this
+- [00:58.430] because I watched some of those games
+- [01:00.250] and these guys know how to win,
+- [01:02.530] just like we knew how to win last week.
+- [01:04.820] We had a little victory.
+- [01:06.040] It was surgical, just like their victory, right, Duffy?
+- [01:10.090] It's an honor to welcome to the White House,
+- [01:14.160] the two-time defending Stanley Cup champions,
+- [01:16.610] the Florida Panthers.
+- [01:18.340] Unbelievable team, unbelievable athletes, players.
+- [01:21.860] These men are responsible for the greatest feats
+- [01:24.240] in Panthers' franchise history.
+- [01:25.930] And beyond that, I mean beyond that,
+- [01:28.380] I mean you compare them
+- [01:29.980] to some of the greatest hockey teams ever,
+- [01:32.680] including the first ever President Trophy,
+- [01:35.510] three straight final appearances.
+- [01:37.800] And the one that you didn't make,
+- [01:40.440] what the hell happened to you? You should have won that game.
+- [01:42.740] But it was good to do the little comeback, right?
+- [01:47.460] Come back's are wonderful, actually.
+- [01:49.660] But the three -- pretty good, right, Gary?
+- [01:55.330] And an incredible two straight Stanley Cup victories
+- [01:59.940] and I just want to congratulate the unbelievable players.
+- [02:04.100] They have something different,
+- [02:05.850] because I watched some of the games that it looked like
+- [02:08.330] it was going to be tough and you pulled them out.
+- [02:10.620] You pulled them out for years. Well, Vinnie's a winner.
+- [02:13.490] So you learn from the owner, I guess.
+- [02:16.280] And it's an honor to have Vinnie with us.
+- [02:19.090] Thank you very much going to speak in a couple of minutes.
+- [02:21.110] I always like to hear him speak because you never know
+- [02:23.830] what the hell is going to come out of his mouth.
+- [02:26.260] Where is he? You never know with Vinnie,
+- [02:29.060] but boy, you've done a job here, huh?
+- [02:30.670] You and your people.
+- [02:31.890] Vincent Viola: Thank you.
+- [02:33.090] The President: Your reps have been amazing.
+- [02:34.350] So we're grateful to be joined this afternoon by team owner,
+- [02:38.560] Vinnie Viola. And as you know,
+- [02:41.580] our general manager, Bill Zito, is fantastic.
+- [02:45.230] One of the greatest NHL head coaches of all time.
+- [02:50.110] Coach Paul Maurice -- where is Paul?
+- [02:53.290] Where is Paul? Boy, I'll tell you.
+- [02:55.420] I hope they're taking good care of you.
+- [02:57.870] Good care. That's a hell of a coach.
+- [03:01.040] Great coach.
+- [03:02.460] We're all so pleased to be joined by NHL commissioner
+- [03:05.670] Gary Bettman. Great job.
+- [03:07.770] I remember a long time ago when you got that job
+- [03:09.970] and I said, they picked the right guy.
+- [03:12.520] You know that, and you've really shown it.
+- [03:15.330] As well as Attorney General Pam Bondi,
+- [03:18.020] wherever Pam is. Pam?
+- [03:19.780] Hi, Pam. She's doing great. She's a special person.
+- [03:25.680] And secretaries Doug Burgum, Sean Duffy and Chris Wright,
+- [03:29.660] who I hear has a birthday today.
+- [03:32.230] Is it your birthday? What are you, about 32?
+- [03:34.530] He looks so young, and you're doing great.
+- [03:37.510] You know, Doug Burgum said,
+- [03:38.970] he's the greatest oil man in the world.
+- [03:41.020] I wanted Doug for the job.
+- [03:42.930] He said, no, there's one man better.
+- [03:44.460] He would only say one man. That's not -- you know,
+- [03:47.030] because he's a very unusual guy, but he said, Chris Wright.
+- [03:51.770] And we are now drilling more oil than any time,
+- [03:54.150] any country ever in history, right?
+- [03:56.540] And oil prices in many states are down to $1.99 a gallon.
+- [04:01.800] That's like a major tax cut.
+- [04:03.360] Right, Catherine? That's like a major tax cut.
+- [04:07.670] So what we did is we gave Doug the --
+- [04:10.300] which he probably liked better because he likes real estate.
+- [04:13.670] He's the biggest real estate person in history.
+- [04:15.630] He has the Department of the Interior.
+- [04:18.050] So he drills and he owns the land
+- [04:21.070] and the combination has been lethal, right?
+- [04:23.930] And they've been great and I appreciate it, too.
+- [04:26.840] We're also here with FBI Director Kash Patel,
+- [04:29.990] who's a person that loves sports, right?
+- [04:32.530] Kash, you love the sports and we love you.
+- [04:36.130] And Representatives, Randy Fine.
+- [04:37.930] Randy, you did a great job the other day.
+- [04:39.970] You did a great job the other day.
+- [04:41.420] You know what I'm talking about.
+- [04:42.650] You got up there, let them have it.
+- [04:45.270] Jimmy Patronis. Jimmy? Thank you, Jimmy.
+- [04:48.200] Jimmy Patronis: Yes, sir.
+- [04:49.460] The President: Good job. John Rutherford.
+- [04:52.210] John? Thank you. Thank you, John.
+- [04:56.010] And Michael Haridopolos, thank you, Michael.
+- [05:00.070] Thank you very much. So after a shortened off season
+- [05:06.240] and a regular season plagued by injuries,
+- [05:08.520] the Florida Panthers entered the 2025 playoffs
+- [05:11.600] with extraordinary pressure to defend the title.
+- [05:15.240] But they also had an amazing aura about them.
+- [05:18.420] It was called the aura of winning.
+- [05:20.800] There's something nice about it. And that's what they did.
+- [05:25.620] But not only did you live up to the sky-high expectations,
+- [05:28.850] you gave us perhaps the most dominant playoff
+- [05:31.770] run in NHL history.
+- [05:34.250] The Panthers scored 94 goals in the playoffs,
+- [05:36.960] more than any team in a generation.
+- [05:39.490] You won a record 10 times on the road.
+- [05:42.580] It was -- uh, nobody's ever done that one before.
+- [05:46.300] You led the finals for over 255 minutes,
+- [05:50.220] the most of any team in NHL history.
+- [05:53.750] And you denied Canada the Stanley Cup
+- [05:55.780] for the 32nd straight year by --
+- [06:04.850] I don't know. What -- what do you think about that?
+- [06:07.230] What do you think about that, Matthew?
+- [06:09.060] We have a little competition with Canada.
+- [06:11.610] No, they're great people, though. They're great people.
+- [06:14.970] We're doing much better than Canada, but that's OK, right?
+- [06:18.150] We want them to do well and they're going to do well.
+- [06:20.900] But 32nd straight year by defeating the Edmonton Oilers
+- [06:25.260] for the second year in a row.
+- [06:27.150] And they have a couple of really great players in that team
+- [06:30.820] and they have a superstar, still a superstar, right?
+- [06:35.430] How's he feeling about his game? You can't lose.
+- [06:37.630] You got to win, right? You're going to explain it, huh?
+- [06:40.560] But boy, I'll tell you, that was some game.
+- [06:43.360] On offense, no one was better than the man,
+- [06:46.150] the Edmonton Journal named public enemy
+- [06:49.120] number one star forward, Sam Bennett.
+- [06:52.340] Where's Sam Bennett?
+- [07:02.860] He's got a very powerful hand. He's a strong guy.
+- [07:08.960] Sam scored 15 playoff goals
+- [07:11.080] and earned the coveted Conn Smythe Trophy,
+- [07:14.690] making him the first skater in Panthers' history
+- [07:16.930] to be named tournament MVP.
+- [07:19.090] That's fantastic on Sam.
+- [07:21.260] And perhaps the greatest single game performance
+- [07:23.850] goes to Sam Reinhart. Where's Sam?
+- [07:35.390] Who became the first player in 103 years to score four goals
+- [07:39.450] in a Stanley Cup clinching win and that's four goals.
+- [07:44.180] So, they say hat trick, but what do they call four goals?
+- [07:46.690] They don't do it because nobody ever does it.
+- [07:49.250] How many people -- I've never heard of four goals in one game.
+- [07:51.670] I heard of a hat trick,
+- [07:52.910] but so did they have a nickname for that one?
+- [07:56.220] I don't know, just -- you know what it's called?
+- [07:58.010] Four goals, that's all -- you don't need a nickname.
+- [08:02.060] On the defensive side, legendary goalie --
+- [08:05.050] he's great -- Sergei Bobrovsky, also known as Bob.
+- [08:10.150] That's a nice one. That's a good concept.
+- [08:12.480] That was a good idea.
+- [08:14.940] Notched three shutouts in each of the first three series,
+- [08:18.230] including a key game, number four --
+- [08:20.740] shutout against Toronto in the second round.
+- [08:24.110] Played phenomenal, phenomenal hockey.
+- [08:27.090] Longtime Panther Blueliner Aaron Ekblad led the fellow --
+- [08:32.770] his fellow defensemen with a career
+- [08:34.700] high 13-point score, 19 playoff games
+- [08:38.730] and that's close to another record.
+- [08:40.810] And team Captain Aleksander Barkov
+- [08:43.030] known as Barky, was named the best defensive forward
+- [08:46.580] in the league for the third time in the second straight year.
+- [08:50.760] That's great. Where's Barky? Where are those two guys?
+- [09:05.620] Good looking people, young, beautiful people, I hate them.
+- [09:09.500] You hate standing here with all this power behind you.
+- [09:13.950] But I got power too, it's called the United States military.
+- [09:17.100] I don't care.
+- [09:23.860] At 37 years old, Brad Marchand recorded 10 assists
+- [09:29.190] and 10 goals in the playoffs,
+- [09:30.770] including the clutch double overtime winner
+- [09:33.930] in game two of the finals.
+- [09:36.040] And no skater had more ice time in the playoffs than Seth Jones,
+- [09:40.070] who was the workhorse on both sides of the puck.
+- [09:43.860] As we know, Seth will be representing
+- [09:46.170] America in the Milan Winter Olympics
+- [09:48.440] next month, alongside fellow Florida
+- [09:50.860] Panther Matthew Tkachuk, who is fantastic.
+- [09:53.710] I remember his father was very good.
+- [09:56.530] I don't know, I said did you top his father?
+- [09:59.340] He said, well, my father had 500 and some odd goals.
+- [10:01.790] How many did you say?
+- [10:03.330] A lot of goals? I said, well, he says
+- [10:07.610] (inaudible), but you will be.
+- [10:09.030] And your father would want you to be
+- [10:10.580] because I know your father,
+- [10:11.840] he would want you to be, it's fantastic.
+- [10:14.390] You don't see that too often where you have a father
+- [10:16.380] who's great and a son who's great.
+- [10:18.610] You don't see it very often, but this is a case where you do
+- [10:21.980] and say hello to your father for me, Matthew, okay?
+- [10:25.120] But he throws a big punch.
+- [10:27.650] I can see that. Is he a pretty tough cookie?
+- [10:31.600] Is he tough? They say he throws a big punch.
+- [10:34.130] How many people can take him in a fight?
+- [10:37.480] There are only a couple of hits.
+- [10:39.170] He says most of them, I don't know about that.
+- [10:41.500] Also joining them on Team USA staff will be Bill
+- [10:45.490] Zito and Panthers' equipment manager, Teddy Richards.
+- [10:48.630] That's great. That's great. Congratulations.
+- [10:53.170] Congratulations and we're counting on you
+- [10:57.050] to bring home the gold. You know, I got the Olympics
+- [10:59.290] and we got it brought to a very special place.
+- [11:03.250] We have the Olympics coming up very soon
+- [11:06.170] and we have the World Cup coming
+- [11:08.310] and we have the 250th year coming.
+- [11:11.490] So, when I got rigged, when you had a rigged election,
+- [11:14.640] I was really angry about it.
+- [11:15.870] Then I realized if I win the next time,
+- [11:17.480] I'll pick up the Olympics, the World Cup and the 250.
+- [11:20.240] And I said, you know what, Pam, I said this is a good thing.
+- [11:23.580] It's better than it would have been actually.
+- [11:25.410] So, it's pretty good,
+- [11:26.720] amazing the way things can work out, right?
+- [11:29.250] But I just want to say a very special congratulations,
+- [11:32.190] and I'm going to bring them down to the Oval Office,
+- [11:34.420] we did last time.
+- [11:36.010] And sometimes if I really like a team,
+- [11:37.720] I bring them to the Oval Office and we do some fun.
+- [11:40.520] We give them a little special --
+- [11:42.130] we give them a coin, a very special coin,
+- [11:43.750] the best coin there is and we have a little fun.
+- [11:46.760] But we're going to march on down;
+- [11:48.990] we're going to pass the Presidential Wall of Fame.
+- [11:53.200] So, I had a choice, Walk of Fame or Wall of Fame,
+- [11:57.080] and you know what I decided, right?
+- [11:58.690] I said walk because I think of the walk of shame.
+- [12:02.520] And I said this was an interesting --
+- [12:04.470] this was an interesting situation.
+- [12:06.320] So, I said -- that was the one reason I didn't want to do that
+- [12:09.250] because I said people are going to think about that.
+- [12:11.220] But I said, I'll do it anyway.
+- [12:12.960] But we have the Presidential Walk of Fame,
+- [12:15.710] and you'll get to see it.
+- [12:16.950] It's been quite an attraction for the White House.
+- [12:20.360] But I just want to congratulate everybody.
+- [12:22.390] These are special people, very, very hard to win,
+- [12:25.620] especially at the top level of sports.
+- [12:27.950] And this is the top, top level
+- [12:30.030] and it's an honor to have these guys with us.
+- [12:31.980] You know, I want my people to win.
+- [12:34.990] We have such incredible people.
+- [12:37.250] So many here, Congressmen, Senators and cabinet members
+- [12:40.850] and they've really produced --
+- [12:42.220] they're producing like we're having a year
+- [12:44.460] the likes of which --
+- [12:46.350] really so far, there's no comparison
+- [12:49.590] to any other first year for an administration.
+- [12:52.700] We have -- the tremendous crime numbers just came out.
+- [12:56.530] Did you see? The lowest crime ever recorded.
+- [13:00.310] Now you wouldn't see that when you see what's going on.
+- [13:02.570] But when you see what's going on in Minnesota,
+- [13:05.030] we're taking out the worst --
+- [13:07.270] some of the worst criminals in the world
+- [13:09.870] are being taken out of our country, murderers,
+- [13:12.610] drug dealers, some of the worst in the world.
+- [13:14.650] We have the lowest crime,
+- [13:15.920] the best crime numbers we've ever had.
+- [13:18.610] And we have something else that's very special.
+- [13:22.020] We have $18 trillion -- this is Vinnie -- for Vinnie,
+- [13:24.480] he'd understand this better than maybe anybody in the room.
+- [13:26.840] $18 trillion worth of investment in the United States,
+- [13:31.110] which is bigger than any number, bigger than any number.
+- [13:35.320] And we have -- again,
+- [13:36.970] we have today for the 49th time of --
+- [13:39.450] in 11 months here, a little more than 11 months.
+- [13:43.010] For the 48th day, we have the highest stock market in history,
+- [13:46.030] so that's pretty good. That makes you feel good
+- [13:48.090] because I know you have a couple of stocks.
+- [13:50.130] Makes everybody feel good because 401(k)s
+- [13:52.530] are the highest point they've ever been.
+- [13:53.940] Everybody -- everybody's happy and we're doing a job
+- [13:56.940] and they're doing a job.
+- [13:58.590] So, I'd like to ask Vinnie to say a few words
+- [14:00.960] and then Matthew to say a few words
+- [14:02.630] and then we'll figure it out.
+- [14:04.340] I heard they have a little surprise.
+- [14:05.800] Oh, that looks nice.
+- [14:07.040] I hope it's a stick and not just a shirt.
+- [14:09.510] That stick looks beautiful -- that looks beautiful.
+- [14:12.650] Maybe I get both. Who the hell knows.
+- [14:14.140] I'm president, I'll just take them.
+- [14:17.800] But then we do have that little surprise
+- [14:19.690] and I want to thank you all very much for being here.
+- [14:21.410] Very special. Vinnie, please go ahead.
+- [14:30.790] Vincent Viola: Mr. President,
+- [14:33.100] it really humbles me to be in your presence
+- [14:36.220] and the kindness you've shown me,
+- [14:40.310] my organization from a very long time ago,
+- [14:44.700] it's not lost on us.
+- [14:46.020] But the privilege to be at the White House with you
+- [14:48.570] while you're present is extra special.
+- [14:52.000] I'm going to make it pretty clear
+- [14:55.340] that we are honored to be here
+- [14:57.680] and we're honored to be here with you as the president.
+- [15:07.410] You talked about the Olympians.
+- [15:09.640] I think we're right up there having the most Olympic players,
+- [15:14.970] as much as any other team in the NHL
+- [15:17.260] or 10 Olympians behind me from I think four or five countries.
+- [15:23.250] It's a great testimony to a wonderful sport
+- [15:26.010] that really is a global sport.
+- [15:29.100] I speak on behalf of every Florida Panther fan
+- [15:32.600] all over the world.
+- [15:35.560] We're not going to stop. We're not going to stop.
+- [15:41.080] Thank you, Mr. President,
+- [15:42.390] Matthew would like to say a few words.
+- [15:44.710] And the players are super excited about the gifts
+- [15:48.020] that they've selected for you.
+- [15:50.000] I think I'm more excited actually.
+- [15:51.790] So, thank you very much and God bless you.
+- [16:01.820] Matthew Tkachuk: Well, I mean the two cups was pretty good,
+- [16:03.660] but that walk with you might have trumped it all there.
+- [16:05.650] That was pretty amazing.
+- [16:08.200] No, I just want to say on behalf of the whole organization
+- [16:11.220] and mainly the players, we were so honored
+- [16:13.690] to be here being an American.
+- [16:15.060] I know I said it last year, but I mean nothing beats this.
+- [16:17.970] I'm so proud to be an American
+- [16:19.190] and so proud to be here with you and everybody else.
+- [16:21.620] So, but like I said last year, winning --
+- [16:26.050] it takes a toll, you pay a price for it.
+- [16:28.790] And each one of these members behind me,
+- [16:31.000] like it really does take a village to make it happen.
+- [16:33.040] And each person played a very, very important part in it.
+- [16:36.060] And coming down to Florida,
+- [16:37.690] thanks to Vinnie Viola and Bill Zito
+- [16:40.590] has really changed my life.
+- [16:41.970] And I cannot believe that three years later
+- [16:44.260] we have two Stanley Cups
+- [16:45.570] and, like Vinnie said, we are not stopping now.
+- [16:47.500] But now we hope to be here next year.
+- [16:48.850] So that's the plan. And um, you know,
+- [16:52.770] representing you and the millions back here,
+- [16:55.430] um, next month in the Olympics
+- [16:56.740] will be one of the highlights of my life as well.
+- [16:58.520] So thank you.
+- [17:00.760] (applause)
+- [17:08.130] We do have a few gifts to give you.
+- [17:09.940] So uh, I'd like to call down Captain Sasha Barkov
+- [17:13.350] and then Seth Jones.
+- [17:14.900] And I think -- I think you're going to like the one
+- [17:17.280] that Seth gets you the most.
+- [17:51.965] (inaudible chatter)
+- [18:10.630] (applause)
+- [18:19.295] ♪ (orchestral "We are the Champions") ♪
