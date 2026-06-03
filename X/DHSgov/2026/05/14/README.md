@@ -1,0 +1,58 @@
+# X / DHSgov / 2026-05-14
+
+- Posts: 18
+
+- [23:32 UTC - During police week, we honor the brave men and women of @ICEgov. They are mothers and fath...](2055068844402569506/)
+  - Source: https://x.com/DHSgov/status/2055068844402569506
+  - During police week, we honor the brave men and women of @ICEgov. They are mothers and fathers, sons and daughters, friends and partners, who are willing to lay down their lives to...
+- [22:20 UTC - DALLAS: @ICEgov is asking local authorities to NOT RELEASE two illegal aliens facing felon...](2055050649532793085/)
+  - Source: https://x.com/DHSgov/status/2055050649532793085
+  - DALLAS: @ICEgov is asking local authorities to NOT RELEASE two illegal aliens facing felony charges for a shooting that resulted in the DEATH of an unborn baby. Keyner Ariel Calero...
+- [21:40 UTC - Patriot https://t.co/lMDBHRCscp](2055040638102462824/)
+  - Source: https://x.com/DHSgov/status/2055040638102462824
+  - Patriot https://t.co/lMDBHRCscp
+- [21:32 UTC - Repost of @DHSgov: You can run but you can’t hide. https://t.co/EEYAjDqnsZ](2055038475909333264/)
+  - Source: https://x.com/DHSgov/status/2055038475909333264
+  - Repost of @DHSgov: You can run but you can’t hide. https://t.co/EEYAjDqnsZ
+- [19:41 UTC - .@ICEgov has ARRESTED Nahn Tu Hoang, a Vietnamese illegal immigrant who MURDERED a woman i...](2055010581380292703/)
+  - Source: https://x.com/DHSgov/status/2055010581380292703
+  - .@ICEgov has ARRESTED Nahn Tu Hoang, a Vietnamese illegal immigrant who MURDERED a woman in her Texas home in 1996. Hoang shot Kathy Brown Arceneaux FIVE times and killed her. He w...
+- [19:00 UTC - You can run but you can’t hide. https://t.co/EEYAjDqnsZ](2055000297907363844/)
+  - Source: https://x.com/DHSgov/status/2055000297907363844
+  - You can run but you can’t hide. https://t.co/EEYAjDqnsZ
+- [18:28 UTC - FACT CHECK: On May 11, ICE released criminal illegal alien William Ortiz-Rivera with a GPS...](2054992223167500296/)
+  - Source: https://x.com/DHSgov/status/2054992223167500296
+  - FACT CHECK: On May 11, ICE released criminal illegal alien William Ortiz-Rivera with a GPS ankle monitor. Ortiz-Rivera has previous arrests for burglary and drug possession. He was...
+- [18:08 UTC - Repost of @USCG: Relentless operations to stop narco-terrorism. @USCGSoutheast crews aboar...](2054987238509883542/)
+  - Source: https://x.com/DHSgov/status/2054987238509883542
+  - Repost of @USCG: Relentless operations to stop narco-terrorism. @USCGSoutheast crews aboard CGC Tahoma and an embarked helicopter seized approximately 6,085 pounds of cocaine worth...
+- [17:44 UTC - Our borders are CLOSED to all lawbreakers. Do NOT cross into our nation illegally — you wi...](2054981234883699132/)
+  - Source: https://x.com/DHSgov/status/2054981234883699132
+  - Our borders are CLOSED to all lawbreakers. Do NOT cross into our nation illegally — you will face the consequences. https://t.co/tVTclId1SJ
+- [17:10 UTC - This tragedy was completely preventable. Stephanie Minter would still be here if not for t...](2054972542595506353/)
+  - Source: https://x.com/DHSgov/status/2054972542595506353
+  - This tragedy was completely preventable. Stephanie Minter would still be here if not for the insane policies of Fairfax sanctuary politicians that RELEASED Abdul Jalloh repeatedly...
+- [16:39 UTC - COURAGEOUS OCEAN RESCUE. @USCGSoutheast personnel rescued 11 people from the Atlantic Ocea...](2054964906290508103/)
+  - Source: https://x.com/DHSgov/status/2054964906290508103
+  - COURAGEOUS OCEAN RESCUE. @USCGSoutheast personnel rescued 11 people from the Atlantic Ocean after a plane crash off the coast of Florida. God bless these heroes. https://t.co/9YNQx...
+- [15:46 UTC - Repost of @SecMullinDHS: This Police Week, we recommit our support for the @CBP personnel ...](2054951463504245047/)
+  - Source: https://x.com/DHSgov/status/2054951463504245047
+  - Repost of @SecMullinDHS: This Police Week, we recommit our support for the @CBP personnel and their families who put their lives on the line to protect their fellow Americans every...
+- [15:37 UTC - “No family should have to bury their child like this. Stephanie’s life mattered, her voice...](2054949354029420675/)
+  - Source: https://x.com/DHSgov/status/2054949354029420675
+  - “No family should have to bury their child like this. Stephanie’s life mattered, her voice mattered, her future mattered…her life was taken in a way that should have never happened...
+- [15:05 UTC - Despite a more than 1,300% increase in assaults, a 3,300% increase in vehicular attacks, a...](2054941198293324161/)
+  - Source: https://x.com/DHSgov/status/2054941198293324161
+  - Despite a more than 1,300% increase in assaults, a 3,300% increase in vehicular attacks, and an 8,000% increase in death threats against them, the brave men and women of @ICEgov co...
+- [14:35 UTC - Marie-Therese Helene Ross entered the country in June 2025 under the Visa Waiver Program, ...](2054933565775745337/)
+  - Source: https://x.com/DHSgov/status/2054933565775745337
+  - Marie-Therese Helene Ross entered the country in June 2025 under the Visa Waiver Program, which permitted her to remain in the country for 90 days — she remained illegally in the U...
+- [14:11 UTC - TERRIFYING story out of Texas. This criminal illegal alien from Mexico is linked to TWO se...](2054927575428796616/)
+  - Source: https://x.com/DHSgov/status/2054927575428796616
+  - TERRIFYING story out of Texas. This criminal illegal alien from Mexico is linked to TWO separate murders over the course of six years. Thanks to cooperation between local authoriti...
+- [13:57 UTC - These claims are LUDICROUS. Smart wall construction in this area is located within 250 fee...](2054923962769891751/)
+  - Source: https://x.com/DHSgov/status/2054923962769891751
+  - These claims are LUDICROUS. Smart wall construction in this area is located within 250 feet of the southern border, well south of the Mount Cristo Rey cross and access road. The cr...
+- [12:26 UTC - Repost of @DHSgov: Report. Recon. Raid. https://t.co/Kcp2V3HPnA](2054901226236485886/)
+  - Source: https://x.com/DHSgov/status/2054901226236485886
+  - Repost of @DHSgov: Report. Recon. Raid. https://t.co/Kcp2V3HPnA

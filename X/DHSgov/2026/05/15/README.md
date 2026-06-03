@@ -1,0 +1,64 @@
+# X / DHSgov / 2026-05-15
+
+- Posts: 20
+
+- [23:42 UTC - NASSAU COUNTY, NEW YORK: @ICEgov has ARRESTED Elder Lopez-Avalos, a criminal illegal alien...](2055433767431405608/)
+  - Source: https://x.com/DHSgov/status/2055433767431405608
+  - NASSAU COUNTY, NEW YORK: @ICEgov has ARRESTED Elder Lopez-Avalos, a criminal illegal alien ARSONIST from Guatemala. Lopez-Avalos set fire to 10 cars in Freeport — and several of th...
+- [23:30 UTC - “Right now…in the Trump Administration, we’re really attacking this fraud problem — @POTUS...](2055430634357526645/)
+  - Source: https://x.com/DHSgov/status/2055430634357526645
+  - “Right now…in the Trump Administration, we’re really attacking this fraud problem — @POTUS is engaged, @VP is engaged.” DHS General Counsel James Percival https://t.co/ywM66lWwFv
+- [21:34 UTC - Repost of @DHSgov: John 1:5 Darkness will never extinguish the light. https://t.co/QlcIHPJ...](2055401554518196351/)
+  - Source: https://x.com/DHSgov/status/2055401554518196351
+  - Repost of @DHSgov: John 1:5 Darkness will never extinguish the light. https://t.co/QlcIHPJ8ML
+- [21:33 UTC - This Police Week and every day, we are thankful for the brave men and women of @ICEgov law...](2055401325781831794/)
+  - Source: https://x.com/DHSgov/status/2055401325781831794
+  - This Police Week and every day, we are thankful for the brave men and women of @ICEgov law enforcement for keeping America safe. Yesterday, the men and women of ICE risked their li...
+- [20:26 UTC - Virginia sanctuary politicians are fighting to protect criminals. We’re fighting to protec...](2055384335709044742/)
+  - Source: https://x.com/DHSgov/status/2055384335709044742
+  - Virginia sanctuary politicians are fighting to protect criminals. We’re fighting to protect Americans. https://t.co/8ood8674WG
+- [20:23 UTC - Repost of @SecMullinDHS: It’s National Police Week. I’m proud to stand with the 80,000 law...](2055383670936977878/)
+  - Source: https://x.com/DHSgov/status/2055383670936977878
+  - Repost of @SecMullinDHS: It’s National Police Week. I’m proud to stand with the 80,000 law enforcement officers at @DHSgov. These heroes put their lives on the line every single da...
+- [20:17 UTC - Repost of @ICEgov: As National Police Week draws to a close tomorrow, it is our privilege ...](2055382059720278446/)
+  - Source: https://x.com/DHSgov/status/2055382059720278446
+  - Repost of @ICEgov: As National Police Week draws to a close tomorrow, it is our privilege to honor those who willingly made the ultimate sacrifice for our safety, and we thank thos...
+- [20:02 UTC - These claims of subprime conditions are FALSE. Here are the facts: There has been NO spike...](2055378397359116346/)
+  - Source: https://x.com/DHSgov/status/2055378397359116346
+  - These claims of subprime conditions are FALSE. Here are the facts: There has been NO spike in deaths. Consistent with data over the last decade, as of April 30, death rates in cust...
+- [19:38 UTC - Under @GovernorVA and Virginia sanctuary politicians, Virginia has become a HOTBED for ill...](2055372297964245049/)
+  - Source: https://x.com/DHSgov/status/2055372297964245049
+  - Under @GovernorVA and Virginia sanctuary politicians, Virginia has become a HOTBED for illegal alien crime. @POTUS Trump and @SecMullinDHS are committed to removing criminals from...
+- [18:38 UTC - Repost of @SecMullinDHS: The 22,000 men and women of @ICEgov are working day in and day ou...](2055357221857308841/)
+  - Source: https://x.com/DHSgov/status/2055357221857308841
+  - Repost of @SecMullinDHS: The 22,000 men and women of @ICEgov are working day in and day out to remove criminal illegal aliens from our communities. This Police Week, I’m proud to s...
+- [17:46 UTC - John 1:5 Darkness will never extinguish the light. https://t.co/QlcIHPJ8ML](2055344068125675792/)
+  - Source: https://x.com/DHSgov/status/2055344068125675792
+  - John 1:5 Darkness will never extinguish the light. https://t.co/QlcIHPJ8ML
+- [17:35 UTC - .@SecMullinDHS joined @ICEgov law enforcement this morning in Virginia as they worked to R...](2055341405405348130/)
+  - Source: https://x.com/DHSgov/status/2055341405405348130
+  - .@SecMullinDHS joined @ICEgov law enforcement this morning in Virginia as they worked to REMOVE criminal illegal aliens from local communities. Instead of choosing to release crimi...
+- [16:50 UTC - AN UNSPEAKABLE CRIME. Two illegal aliens SHOT a pregnant woman in Dallas — resulting in th...](2055330107913363465/)
+  - Source: https://x.com/DHSgov/status/2055330107913363465
+  - AN UNSPEAKABLE CRIME. Two illegal aliens SHOT a pregnant woman in Dallas — resulting in the death of her unborn child. One of these monsters was RELEASED into our nation by the Bid...
+- [15:56 UTC - Repost of @SecMullinDHS: Twelve straight months of ZERO releases at the border. Under @POT...](2055316293394243763/)
+  - Source: https://x.com/DHSgov/status/2055316293394243763
+  - Repost of @SecMullinDHS: Twelve straight months of ZERO releases at the border. Under @POTUS Trump’s leadership, the days of catch and release are over. We are enforcing our nation...
+- [15:46 UTC - Repost of @FoxNews: DHS Secretary Markwayne Mullin joined ICE officers on the ground in Vi...](2055313988095803797/)
+  - Source: https://x.com/DHSgov/status/2055313988095803797
+  - Repost of @FoxNews: DHS Secretary Markwayne Mullin joined ICE officers on the ground in Virginia during an early morning operation that resulted in the arrest of a repeat criminal...
+- [15:16 UTC - “ICE is there for a reason. They’re supposed to be keeping these violent criminals out of ...](2055306295805202668/)
+  - Source: https://x.com/DHSgov/status/2055306295805202668
+  - “ICE is there for a reason. They’re supposed to be keeping these violent criminals out of our country.” —Angel Mom Cheryl Minter https://t.co/ewHnQEdxr1
+- [14:43 UTC - A NICE morning in Virginia. https://t.co/hdBWRJS5My](2055297981125935520/)
+  - Source: https://x.com/DHSgov/status/2055297981125935520
+  - A NICE morning in Virginia. https://t.co/hdBWRJS5My
+- [14:05 UTC - Repost of @SecMullinDHS: This morning, I was on the ground with the men and women of @iceg...](2055288474727489616/)
+  - Source: https://x.com/DHSgov/status/2055288474727489616
+  - Repost of @SecMullinDHS: This morning, I was on the ground with the men and women of @icegov law enforcement in Virginia. We arrested a criminal illegal, removed multiple times fro...
+- [12:59 UTC - .@SecMullinDHS was on the ground this morning with @ICEgov law enforcement in Virginia. Th...](2055271730252337301/)
+  - Source: https://x.com/DHSgov/status/2055271730252337301
+  - .@SecMullinDHS was on the ground this morning with @ICEgov law enforcement in Virginia. They arrested a criminal illegal whose criminal history includes multiple removals, drug pos...
+- [12:21 UTC - Repost of @MizellPreston: FIRST ON FOX: DHS Sec. Markwayne Mullin spoke with Fox News Digi...](2055262369387790786/)
+  - Source: https://x.com/DHSgov/status/2055262369387790786
+  - Repost of @MizellPreston: FIRST ON FOX: DHS Sec. Markwayne Mullin spoke with Fox News Digital early this morning after the arrest of an illegal migrant in Virginia, blasting VA Gov...
