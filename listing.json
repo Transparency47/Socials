@@ -1,6 +1,358 @@
 {
-  "generatedAt": "2026-06-02T21:40:27.963175+00:00",
+  "generatedAt": "2026-06-03T00:55:23.548453+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:bb36bc284d1f9e62",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:53:43.652769+00:00",
+        "datePublished": "2026-06-03T00:43:12.710000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116683400326307426"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683400326307426/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683400326307426/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683400326307426",
+      "summary": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is running to be the next Attorney General of the Wonderful State of Nevada. Adriana is strongly supported by many of the greatest MAGA Warriors in Nevada, including my friend, Governor Joe Lombard",
+      "title": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is runn..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:45c3bab884141ce8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:53:43.653550+00:00",
+        "datePublished": "2026-06-03T00:39:20.897000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116683385134135304"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683385134135304/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683385134135304/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683385134135304",
+      "summary": "Congratulations to Colombian Presidential Candidate, \u201cEl Tigre (THE TIGER),\u201d Abelardo de la Espriella, a Smart, Strong, and Tough Leader, on his decisive Victory in the first round of the Colombian Presidential Election! Abelardo fights tirelessly for, and loves, his Great Countr",
+      "title": "Congratulations to Colombian Presidential Candidate, \u201cEl Tigre (THE TIGER),\u201d Abelardo de l..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:9615cadb226823b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.465640+00:00",
+        "datePublished": "2026-06-03T00:36:00+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061970115344707584.jpg",
+            "remotePath": "archive/x/dhsgov/HJ2W5SaXsAA2_C7.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ2W5SaXsAA2_C7.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SaXsAA2_C7.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2061970115386638336.jpg",
+            "remotePath": "archive/x/dhsgov/HJ2W5SkXgAAwKK3.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ2W5SkXgAAwKK3.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SkXgAAwKK3.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2061970115378151424.jpg",
+            "remotePath": "archive/x/dhsgov/HJ2W5SiWAAAuswj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ2W5SiWAAAuswj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SiWAAAuswj.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2061970115332071424.jpg",
+            "remotePath": "archive/x/dhsgov/HJ2W5SXW4AAGfGB.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ2W5SXW4AAGfGB.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SXW4AAGfGB.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061970115344707584.jpg",
+          "media/02_image_2061970115386638336.jpg",
+          "media/03_image_2061970115378151424.jpg",
+          "media/04_image_2061970115332071424.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SaXsAA2_C7.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SkXgAAwKK3.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SiWAAAuswj.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ2W5SXW4AAGfGB.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061970120746881482"
+      },
+      "metadataPath": "X/DHSgov/2026/06/03/2061970120746881482/README.md",
+      "path": "X/DHSgov/2026/06/03/2061970120746881482/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061970120746881482",
+      "summary": "\ud83d\udea8Authorities have dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine.",
+      "title": "\ud83d\udea8Authorities have dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:20404eb55da87ffd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:53:43.653892+00:00",
+        "datePublished": "2026-06-03T00:09:39.689000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116683268082754210.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/9b25be0133e93d3f.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/683/268/082/754/210/original/9b25be0133e93d3f.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9b25be0133e93d3f.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116683268082754210.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9b25be0133e93d3f.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116683268398932119"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683268398932119/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683268398932119/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683268398932119",
+      "summary": null,
+      "title": "Truth Social post 116683268398932119"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:3b5fdb6807f33424",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:53:43.654194+00:00",
+        "datePublished": "2026-06-03T00:08:32.107000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116683263692719426.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/ffab1347c0322b31.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/683/263/692/719/426/original/ffab1347c0322b31.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ffab1347c0322b31.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116683263692719426.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ffab1347c0322b31.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116683263969861999"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683263969861999/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683263969861999/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683263969861999",
+      "summary": null,
+      "title": "Truth Social post 116683263969861999"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:84afde3c2929b5b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:53:43.654495+00:00",
+        "datePublished": "2026-06-03T00:08:20.548000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116683262907187278.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/f46c6cce89938ec9.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/683/262/907/187/278/original/f46c6cce89938ec9.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f46c6cce89938ec9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116683262907187278.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f46c6cce89938ec9.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116683263212441795"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683263212441795/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683263212441795/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683263212441795",
+      "summary": null,
+      "title": "Truth Social post 116683263212441795"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:8c4f4004d4401744",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.465920+00:00",
+        "datePublished": "2026-06-03T00:02:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061961679747866624.jpg",
+            "remotePath": "archive/x/dhsgov/HJ2PORXW4AA-cVx.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ2PORXW4AA-cVx.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ2PORXW4AA-cVx.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061961679747866624.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ2PORXW4AA-cVx.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061961682356728192"
+      },
+      "metadataPath": "X/DHSgov/2026/06/03/2061961682356728192/README.md",
+      "path": "X/DHSgov/2026/06/03/2061961682356728192/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061961682356728192",
+      "summary": "Sanctuary politicians must stop with the smears about Delaney Hall.",
+      "title": "Sanctuary politicians must stop with the smears about Delaney Hall. ICE is regularly audit..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:ccfd545cb2a7daad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.466076+00:00",
+        "datePublished": "2026-06-02T22:35:54+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061939895539581266"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061939895539581266/README.md",
+      "path": "X/DHSgov/2026/06/02/2061939895539581266/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061939895539581266",
+      "summary": "While sanctuary politicians and leftist agitators spread false smears about the Delaney Hall ICE facility, the brave men and women of @ICEgov are still hard at work removing criminal illegal aliens from New Jersey.",
+      "title": "While sanctuary politicians and leftist agitators spread false smears about the Delaney Ha..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:25f28bf98de8619b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.466219+00:00",
+        "datePublished": "2026-06-02T22:03:25+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061931721889927304"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061931721889927304/README.md",
+      "path": "X/DHSgov/2026/06/02/2061931721889927304/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061931721889927304",
+      "summary": "This is nothing more than already debunked nonsense. NO detainees were beaten or attacked by ICE agents.",
+      "title": "This is nothing more than already debunked nonsense. NO detainees were beaten or attacked ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:683f19033626e1e6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.466354+00:00",
+        "datePublished": "2026-06-02T21:52:22+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061928939308933332"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061928939308933332/README.md",
+      "path": "X/DHSgov/2026/06/02/2061928939308933332/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061928939308933332",
+      "summary": "Cristian Romario Saenz-Argueta, a SICK illegal alien from El Salvador, now faces felony charges for RAPING a girl under the age of 15.",
+      "title": "Cristian Romario Saenz-Argueta, a SICK illegal alien from El Salvador, now faces felony ch..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:ee76cfd016744142",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:45:30.466495+00:00",
+        "datePublished": "2026-06-02T21:48:23+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061922791067152385.jpg",
+            "remotePath": "archive/x/dhsgov/HJ1r2pvW8AEpPjK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ1r2pvW8AEpPjK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ1r2pvW8AEpPjK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061922791067152385.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ1r2pvW8AEpPjK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061927936958046426"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061927936958046426/README.md",
+      "path": "X/DHSgov/2026/06/02/2061927936958046426/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061927936958046426",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Illegal aliens & foreign fraudsters steal BILLIONS yearly from Amer..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-02",
@@ -35,6 +387,41 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116682597679775684",
       "summary": "We cannot allow this to happen to the Great State of Texas! President DONALD J. TRUMP",
       "title": "We cannot allow this to happen to the Great State of Texas! President DONALD J. TRUMP"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:5201b99616562d7f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.466623+00:00",
+        "datePublished": "2026-06-02T21:06:19+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061917263498776576.mp4",
+            "remotePath": "archive/x/dhsgov/qGgIvJmdXx66PQuX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061917263498776576/vid/avc1/960x540/qGgIvJmdXx66PQuX.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/qGgIvJmdXx66PQuX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061917263498776576.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/qGgIvJmdXx66PQuX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061917349914005737"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061917349914005737/README.md",
+      "path": "X/DHSgov/2026/06/02/2061917349914005737/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061917349914005737",
+      "summary": "\u201cWe\u2019re seeing a pattern where sanctuary cities create a safe haven for the worst of the worst to stay\u2026just cooperate with us. Why are we having to fight state officials and federal officials on enforcing the law?\u201d @SecMullinDHS https://t.co/2VnfYd7vuE",
+      "title": "\u201cWe\u2019re seeing a pattern where sanctuary cities create a safe haven for the worst of the wo..."
     },
     {
       "category": "X",
@@ -74,6 +461,146 @@
     {
       "category": "X",
       "date": "2026-06-02",
+      "id": "socials:af69b355977ba5eb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:45:30.466774+00:00",
+        "datePublished": "2026-06-02T20:21:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061905329286234112.mp4",
+            "remotePath": "archive/x/dhsgov/n33tqEy42n-ceqH1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061905329286234112/vid/avc1/1280x720/n33tqEy42n-ceqH1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/n33tqEy42n-ceqH1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061905329286234112.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/n33tqEy42n-ceqH1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061906121246306395"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061906121246306395/README.md",
+      "path": "X/DHSgov/2026/06/02/2061906121246306395/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061906121246306395",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@SecMullinDHS dispels false rumors about Delaney Hall: First,..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:029cacd6e1929735",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.466907+00:00",
+        "datePublished": "2026-06-02T20:13:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061903893177487360.mp4",
+            "remotePath": "archive/x/dhsgov/1uxssoLgRRkXNfbS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061903893177487360/vid/avc1/640x360/1uxssoLgRRkXNfbS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/1uxssoLgRRkXNfbS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061903893177487360.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/1uxssoLgRRkXNfbS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061903998219698321"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061903998219698321/README.md",
+      "path": "X/DHSgov/2026/06/02/2061903998219698321/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061903998219698321",
+      "summary": "For years, our @USCG was neglected.",
+      "title": "For years, our @USCG was neglected. Under @POTUS Trump, we\u2019ve secured the largest ever Coa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:7bf1740f8babe2c0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.467054+00:00",
+        "datePublished": "2026-06-02T19:51:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061898472295456768.mp4",
+            "remotePath": "archive/x/dhsgov/NCNfUVUhv5taX2na.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061898472295456768/vid/avc1/1280x720/NCNfUVUhv5taX2na.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/NCNfUVUhv5taX2na.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061898472295456768.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/NCNfUVUhv5taX2na.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061898528285397299"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061898528285397299/README.md",
+      "path": "X/DHSgov/2026/06/02/2061898528285397299/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061898528285397299",
+      "summary": "On May 28, the state of New Jersey\u2019s health inspectors went to Delaney Hall and they didn\u2019t find one single violation. Meanwhile, the New Jersey state prison system has \u201cDEPLORABLE\u201d conditions.",
+      "title": "On May 28, the state of New Jersey\u2019s health inspectors went to Delaney Hall and they didn\u2019..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:b8a7f7abdd9d87ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.467191+00:00",
+        "datePublished": "2026-06-02T19:42:30+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061896198265397248.mp4",
+            "remotePath": "archive/x/dhsgov/HmDd0wz-neXJ6cq6.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061896198265397248/vid/avc1/640x360/HmDd0wz-neXJ6cq6.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HmDd0wz-neXJ6cq6.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061896198265397248.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HmDd0wz-neXJ6cq6.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061896257942245767"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061896257942245767/README.md",
+      "path": "X/DHSgov/2026/06/02/2061896257942245767/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061896257942245767",
+      "summary": "Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threats from violent rioters in New Jersey.",
+      "title": "Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
       "id": "socials:6ef5790dbd5cab7f",
       "kind": "social_post",
       "metadata": {
@@ -105,6 +632,181 @@
       "sourceUrl": "https://x.com/POTUS/status/2061894297436275061",
       "summary": "Repost of @WhiteHouse:",
       "title": "Repost of @WhiteHouse: \"As I told Iran, 'It\u2019s time, one way or another, for you to make a ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:64e4ed448e3af372",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:45:30.467312+00:00",
+        "datePublished": "2026-06-02T19:26:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061892223327784960.mp4",
+            "remotePath": "archive/x/dhsgov/3hHtwTlqIaohPN5d.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061892223327784960/vid/avc1/1280x720/3hHtwTlqIaohPN5d.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/3hHtwTlqIaohPN5d.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061892223327784960.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/3hHtwTlqIaohPN5d.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061892309524816177"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061892309524816177/README.md",
+      "path": "X/DHSgov/2026/06/02/2061892309524816177/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061892309524816177",
+      "summary": "Thank you, boss.",
+      "title": "Thank you, boss. - DHS https://t.co/y7b1vzlE2g"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:e0c10398e3c9b26c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.290406+00:00",
+        "datePublished": "2026-06-02T19:23:38+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061891408563220480.mp4",
+            "remotePath": "archive/x/dhsgov/1rtrKOKxE755RA5f.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061891408563220480/vid/avc1/640x360/1rtrKOKxE755RA5f.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/1rtrKOKxE755RA5f.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061891408563220480.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/1rtrKOKxE755RA5f.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061891507339071826"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061891507339071826/README.md",
+      "path": "X/DHSgov/2026/06/02/2061891507339071826/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061891507339071826",
+      "summary": "\u201cWhen\u2026you start referring to our agents as being dangerous, unconstitutional, and lawless \u2014 that\u2019s why our agent death threats are up 8,000%. I know that\u2019s not what you want. But your political theatre, that\u2019s what it causes.\u201d @SecMullinDHS https://t.co/zFISDG9shT",
+      "title": "\u201cWhen\u2026you start referring to our agents as being dangerous, unconstitutional, and lawless ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:6bf2d9f062cceb84",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.290586+00:00",
+        "datePublished": "2026-06-02T19:22:46+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061890980177920000.mp4",
+            "remotePath": "archive/x/dhsgov/GNWQjWZ-ySvF4dmW.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061890980177920000/vid/avc1/1280x720/GNWQjWZ-ySvF4dmW.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/GNWQjWZ-ySvF4dmW.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061890980177920000.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/GNWQjWZ-ySvF4dmW.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061891289671479309"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061891289671479309/README.md",
+      "path": "X/DHSgov/2026/06/02/2061891289671479309/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061891289671479309",
+      "summary": "We would love to have body cameras, all you have to do is fund us. https://t.co/9fFZeYCBwz",
+      "title": "We would love to have body cameras, all you have to do is fund us. https://t.co/9fFZeYCBwz"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:c3ff40ac7309ffae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.290706+00:00",
+        "datePublished": "2026-06-02T19:18:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061889825423167488.mp4",
+            "remotePath": "archive/x/dhsgov/SI5QXCyJga4X-zaF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061889825423167488/vid/avc1/1280x720/SI5QXCyJga4X-zaF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/SI5QXCyJga4X-zaF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061889825423167488.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/SI5QXCyJga4X-zaF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061890130659381409"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061890130659381409/README.md",
+      "path": "X/DHSgov/2026/06/02/2061890130659381409/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061890130659381409",
+      "summary": "\"We\u2019re not picking and choosing which laws we enforce. We're simply enforcing the law. Period. Full stop.\" @SecMullinDHS",
+      "title": "\"We\u2019re not picking and choosing which laws we enforce. We're simply enforcing the law. Per..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:5764db09ac98e2b1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.290821+00:00",
+        "datePublished": "2026-06-02T19:01:14+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061885811772084224.mp4",
+            "remotePath": "archive/x/dhsgov/DVV07L5g6sulHT6b.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061885811772084224/vid/avc1/640x360/DVV07L5g6sulHT6b.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/DVV07L5g6sulHT6b.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061885811772084224.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/DVV07L5g6sulHT6b.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061885873738657965"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061885873738657965/README.md",
+      "path": "X/DHSgov/2026/06/02/2061885873738657965/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061885873738657965",
+      "summary": "\u201cSenator Murphy, the outlandish claims you made \u2014 they\u2019re just flat wrong. You start saying we\u2019re breaking the laws\u2026we\u2019re enforcing the laws that Congress did pass\u2026if you don\u2019t like the laws, you can change them.\u201d @SecMullinDHS https://t.co/0RdX3IkfVx",
+      "title": "\u201cSenator Murphy, the outlandish claims you made \u2014 they\u2019re just flat wrong. You start sayin..."
     },
     {
       "category": "X",
@@ -175,6 +877,41 @@
       "sourceUrl": "https://x.com/POTUS/status/2061880106876903803",
       "summary": "Repost of @WhiteHouse:",
       "title": "Repost of @WhiteHouse: President Trump on the rescheduled White House Correspondents\u2019 Dinn..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:1a83c578750291b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:46:29.290938+00:00",
+        "datePublished": "2026-06-02T18:34:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061574398029578240.mp4",
+            "remotePath": "archive/x/dhsgov/g4GOumjyEFfLnV1u.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061574398029578240/vid/avc1/1920x1080/g4GOumjyEFfLnV1u.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/g4GOumjyEFfLnV1u.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061574398029578240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/g4GOumjyEFfLnV1u.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061879153645818186"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061879153645818186/README.md",
+      "path": "X/DHSgov/2026/06/02/2061879153645818186/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061879153645818186",
+      "summary": "Repost of @HSI_HQ:",
+      "title": "Repost of @HSI_HQ: ICE @HSISanDiego is a proud member of the @HSTFNCC team investigating t..."
     },
     {
       "category": "TruthSocial",
@@ -292,6 +1029,41 @@
     {
       "category": "X",
       "date": "2026-06-02",
+      "id": "socials:ddb448ffbe69eda8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291048+00:00",
+        "datePublished": "2026-06-02T17:30:35+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061863052983619584.jpg",
+            "remotePath": "archive/x/dhsgov/HJ01hcCXUAAqDWu.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ01hcCXUAAqDWu.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJ01hcCXUAAqDWu.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061863052983619584.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJ01hcCXUAAqDWu.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061863058163511758"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061863058163511758/README.md",
+      "path": "X/DHSgov/2026/06/02/2061863058163511758/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061863058163511758",
+      "summary": "Sanctuary politicians are fighting for criminal illegal aliens.",
+      "title": "Sanctuary politicians are fighting for criminal illegal aliens. We\u2019re fighting for America..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
       "id": "socials:88fde8b108a54672",
       "kind": "social_post",
       "metadata": {
@@ -338,6 +1110,64 @@
     {
       "category": "X",
       "date": "2026-06-02",
+      "id": "socials:af05c1fcadb66fb0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291180+00:00",
+        "datePublished": "2026-06-02T15:59:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061840060744376646"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061840060744376646/README.md",
+      "path": "X/DHSgov/2026/06/02/2061840060744376646/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061840060744376646",
+      "summary": "This is a frivolous lawsuit. ICE is committed to transparency, and Delaney Hall complies with all required state and local laws.",
+      "title": "This is a frivolous lawsuit. ICE is committed to transparency, and Delaney Hall complies w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:6f5697a1a31f0a55",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291300+00:00",
+        "datePublished": "2026-06-02T15:24:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061831253171564544.mp4",
+            "remotePath": "archive/x/dhsgov/drIczLFr3e9CmGj0.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061831253171564544/vid/avc1/960x540/drIczLFr3e9CmGj0.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/drIczLFr3e9CmGj0.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061831253171564544.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/drIczLFr3e9CmGj0.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061831335761551369"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061831335761551369/README.md",
+      "path": "X/DHSgov/2026/06/02/2061831335761551369/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061831335761551369",
+      "summary": ".@ICEgov lodged a detainer for a PREVIOUSLY DEPORTED criminal illegal alien who carried out a SHOOTING in Texas this weekend.",
+      "title": ".@ICEgov lodged a detainer for a PREVIOUSLY DEPORTED criminal illegal alien who carried ou..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
       "id": "socials:4ec11dffcfbd69dc",
       "kind": "social_post",
       "metadata": {
@@ -369,6 +1199,29 @@
       "sourceUrl": "https://x.com/POTUS/status/2061807321617994182",
       "summary": "Repost of @WhiteHouse:",
       "title": "Repost of @WhiteHouse: NEW ANALYSIS CONFIRMS: The Working Families Tax Cuts just delivered..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:f2af2f1772a23844",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291418+00:00",
+        "datePublished": "2026-06-02T13:44:06+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061806061334544588"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061806061334544588/README.md",
+      "path": "X/DHSgov/2026/06/02/2061806061334544588/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061806061334544588",
+      "summary": "This violent rioter, who has a criminal history that includes distributing child pornography, savagely BIT an @ICEgov law enforcement officer outside of Delaney Hall.",
+      "title": "This violent rioter, who has a criminal history that includes distributing child pornograp..."
     },
     {
       "category": "TruthSocial",
@@ -668,6 +1521,41 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116678223440201502",
       "summary": "Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I love and WON BIG, THREE TIMES, in 2016, 2020, and 2024. I know Ashley well, and she is a WINNER! A Loving Wife and Proud Mother of two sons, Ashley is a wonderful person, has ALWAYS delivered f",
       "title": "Congresswoman Ashley Hinson is running for the United States Senate in Iowa, a State I lov..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:3fce34967a0a39c4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:46:29.291528+00:00",
+        "datePublished": "2026-06-02T02:04:11+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061628701561733120.mp4",
+            "remotePath": "archive/x/dhsgov/NNJlLs613R-xye4t.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061628701561733120/vid/avc1/1280x720/NNJlLs613R-xye4t.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/NNJlLs613R-xye4t.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061628701561733120.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/NNJlLs613R-xye4t.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061629924738269634"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061629924738269634/README.md",
+      "path": "X/DHSgov/2026/06/02/2061629924738269634/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061629924738269634",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: \u201cI even made a surprise visit this weekend, and walked into th..."
     },
     {
       "category": "TruthSocial",
@@ -1858,6 +2746,29 @@
       "title": "Truth Social post 116677891769590469"
     },
     {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:931dc1149e8db5bc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291638+00:00",
+        "datePublished": "2026-06-02T01:20:57+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061619043870683204"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061619043870683204/README.md",
+      "path": "X/DHSgov/2026/06/02/2061619043870683204/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061619043870683204",
+      "summary": "The message is clear: actions have consequences.",
+      "title": "The message is clear: actions have consequences. Rioting will not be tolerated."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-06-02",
       "id": "socials:3058b52c4c08e7a1",
@@ -1985,6 +2896,333 @@
       "title": "Pete Hegseth\u2019s anti-DEI speech at West Point is a template to save American lives: [https:..."
     },
     {
+      "category": "X",
+      "date": "2026-06-02",
+      "id": "socials:633221088e098165",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:46:29.291823+00:00",
+        "datePublished": "2026-06-02T00:16:43+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061602879576650177"
+      },
+      "metadataPath": "X/DHSgov/2026/06/02/2061602879576650177/README.md",
+      "path": "X/DHSgov/2026/06/02/2061602879576650177/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061602879576650177",
+      "summary": "Rioters will NOT slow us down from removing the worst of the worst from American neighborhoods.",
+      "title": "Rioters will NOT slow us down from removing the worst of the worst from American neighborh..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:74c3c795cef4faba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.096237+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061511489718988800.mp4",
+            "remotePath": "archive/x/dhsgov/ycR0Z_BfaSNghYbm.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061511489718988800/vid/avc1/1280x720/ycR0Z_BfaSNghYbm.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/ycR0Z_BfaSNghYbm.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061511489718988800.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/ycR0Z_BfaSNghYbm.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061511591393194430"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061511591393194430/README.md",
+      "path": "X/DHSgov/2026/06/01/2061511591393194430/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061511591393194430",
+      "summary": "\u201cWe\u2019re ready for hurricane season. This is something we do every year, it\u2019s in our DNA.\u201d \u2014Acting @FEMA Administrator Bob Fenton https://t.co/OGJxHDGqfE",
+      "title": "\u201cWe\u2019re ready for hurricane season. This is something we do every year, it\u2019s in our DNA.\u201d \u2014..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:17b4cd131fef0e90",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.954876+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061572408566308865.mp4",
+            "remotePath": "archive/x/dhsgov/WO3OBUTYMehSPTIw.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061572408566308865/vid/avc1/1280x720/WO3OBUTYMehSPTIw.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/WO3OBUTYMehSPTIw.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061572408566308865.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/WO3OBUTYMehSPTIw.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061572468049838413"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061572468049838413/README.md",
+      "path": "X/DHSgov/2026/06/01/2061572468049838413/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061572468049838413",
+      "summary": "\u201cWe lock down this stadium 10 days before the first game \u2014 meaning that it will be a completely secure site.\u201d @SecMullinDHS on FIFA Security preparations at AT&amp;T Stadium https://t.co/Vi7jcY0WNO",
+      "title": "\u201cWe lock down this stadium 10 days before the first game \u2014 meaning that it will be a compl..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:29539736557673b3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.954732+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061577816261500928.mp4",
+            "remotePath": "archive/x/dhsgov/jGs8IEG916MMZGMo.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061577816261500928/vid/avc1/1280x720/jGs8IEG916MMZGMo.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/jGs8IEG916MMZGMo.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061577816261500928.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/jGs8IEG916MMZGMo.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061577979239567426"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061577979239567426/README.md",
+      "path": "X/DHSgov/2026/06/01/2061577979239567426/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061577979239567426",
+      "summary": "\u201cWe are putting so much emphasis on drone defense. Anybody that is caught flying within our area\u2026we will prosecute you not with local, but with federal. It will come down on you hard.\u201d @SecMullinDHS on FIFA drone defense preparations. https://t.co/ishZBqN67W",
+      "title": "\u201cWe are putting so much emphasis on drone defense. Anybody that is caught flying within ou..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:8058ff7da5f7fbe8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.955065+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061545043639291904.mp4",
+            "remotePath": "archive/x/dhsgov/T1XObkhOAHcfdqWP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061545043639291904/vid/avc1/1280x720/T1XObkhOAHcfdqWP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/T1XObkhOAHcfdqWP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061545043639291904.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/T1XObkhOAHcfdqWP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061545136962634051"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061545136962634051/README.md",
+      "path": "X/DHSgov/2026/06/01/2061545136962634051/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061545136962634051",
+      "summary": "\u201cThese rioters are organized. These rioters are sponsored by somebody. We see Antifa flags out there. They\u2019re not just exercising the First Amendment.\u201d @SecMullinDHS on the violent New Jersey rioters. https://t.co/s3Zgqb48St",
+      "title": "\u201cThese rioters are organized. These rioters are sponsored by somebody. We see Antifa flags..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:fcac45f44dd4282b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.955969+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061539555556167680.mp4",
+            "remotePath": "archive/x/dhsgov/E1uGAvCCHAQ-joLy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061539555556167680/vid/avc1/640x360/E1uGAvCCHAQ-joLy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/E1uGAvCCHAQ-joLy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061539555556167680.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/E1uGAvCCHAQ-joLy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061539645624594627"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061539645624594627/README.md",
+      "path": "X/DHSgov/2026/06/01/2061539645624594627/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061539645624594627",
+      "summary": "\u201cICE and Border Patrol are on the front lines of not only defending American sovereignty, but keeping our communities safe and ensuring that murderers and rapists and gang bangers are not running loose within our neighborhoods.\u201d @RepBrandonGill https://t.co/gnkDmMbKEB",
+      "title": "\u201cICE and Border Patrol are on the front lines of not only defending American sovereignty, ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:54ae1df9fc9c3dd6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.956183+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061539091343085568.mp4",
+            "remotePath": "archive/x/dhsgov/K9A4xmovoK5uaJ8z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061539091343085568/vid/avc1/1280x720/K9A4xmovoK5uaJ8z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/K9A4xmovoK5uaJ8z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061539091343085568.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/K9A4xmovoK5uaJ8z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061539150332055979"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061539150332055979/README.md",
+      "path": "X/DHSgov/2026/06/01/2061539150332055979/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061539150332055979",
+      "summary": "\u201cEach day, we go after the worst of the worst, and that\u2019s what the ICE agents, DHS, and our other 21 components do on a daily basis. We focus on keeping our homeland safe, but today we get to pause for a little bit and recognize the best of the best.\u201d @SecMullinDHS",
+      "title": "\u201cEach day, we go after the worst of the worst, and that\u2019s what the ICE agents, DHS, and ou..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:2a0dff5d9247c7a3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.097315+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061491118974407116"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061491118974407116/README.md",
+      "path": "X/DHSgov/2026/06/01/2061491118974407116/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061491118974407116",
+      "summary": "https://t.co/31LOb17Nuq",
+      "title": "https://t.co/31LOb17Nuq"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:edf5cde4ed890ecf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.098005+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061470050582729130"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061470050582729130/README.md",
+      "path": "X/DHSgov/2026/06/01/2061470050582729130/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061470050582729130",
+      "summary": "https://t.co/2YzVImX37Y",
+      "title": "https://t.co/2YzVImX37Y"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:063aa8a6209247c6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.099701+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061274592790851587.mp4",
+            "remotePath": "archive/x/dhsgov/mUOqttkJar_f95k.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061274592790851587/vid/avc1/960x556/mUOqttkJar_f95k_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/mUOqttkJar_f95k.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061274592790851587.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/mUOqttkJar_f95k.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061274651154637086"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061274651154637086/README.md",
+      "path": "X/DHSgov/2026/06/01/2061274651154637086/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061274651154637086",
+      "summary": "ZERO tolerance for rioters. https://t.co/PlihmyVEJh",
+      "title": "ZERO tolerance for rioters. https://t.co/PlihmyVEJh"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:b7e89968fc5392a8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.956338+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061528640605618375"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061528640605618375/README.md",
+      "path": "X/DHSgov/2026/06/01/2061528640605618375/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061528640605618375",
+      "summary": "WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from the 2025 Dallas ICE Facility Sniper Attack https://t.co/n4DfxF0ADc",
+      "title": "WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from the 2025 Dallas ICE..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-06-01",
       "id": "socials:5858b1fddc5af512",
@@ -2017,6 +3255,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116676428101944121",
       "summary": null,
       "title": "Truth Social post 116676428101944121"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:a390dfbde0c5ae65",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.954576+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061587194314211328.mp4",
+            "remotePath": "archive/x/dhsgov/V688ceyqT8zolEvb.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061587194314211328/vid/avc1/640x360/V688ceyqT8zolEvb.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/V688ceyqT8zolEvb.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061587194314211328.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/V688ceyqT8zolEvb.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061587281681809439"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061587281681809439/README.md",
+      "path": "X/DHSgov/2026/06/01/2061587281681809439/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061587281681809439",
+      "summary": "Today, Jose Medina, the illegal alien monster arrested for murdering Sheridan Gorman, appeared in court.",
+      "title": "Today, Jose Medina, the illegal alien monster arrested for murdering Sheridan Gorman, appe..."
     },
     {
       "category": "TikTok",
@@ -2082,6 +3354,108 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116676087445077253",
       "summary": "Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for your attention to this matter! President DONALD J. TRUMP",
       "title": "Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for yo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:e7f67e478aef4317",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.097539+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061488797229936640.mp4",
+            "remotePath": "archive/x/dhsgov/yjEUHEKpzdtVi4iU.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061488797229936640/vid/avc1/1280x720/yjEUHEKpzdtVi4iU.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/yjEUHEKpzdtVi4iU.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061488797229936640.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/yjEUHEKpzdtVi4iU.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061488857330155845"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061488857330155845/README.md",
+      "path": "X/DHSgov/2026/06/01/2061488857330155845/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061488857330155845",
+      "summary": "Sanctuary politicians like @RepJeffries CONTINUE to promote hoaxes about Delaney Hall.",
+      "title": "Sanctuary politicians like @RepJeffries CONTINUE to promote hoaxes about Delaney Hall. Thi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:a4025f962b771de3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.100187+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061258651373805568.mp4",
+            "remotePath": "archive/x/dhsgov/s343pM3XXPB78lju.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061258651373805568/vid/avc1/1206x678/s343pM3XXPB78lju.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/s343pM3XXPB78lju.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061258651373805568.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/s343pM3XXPB78lju.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061258715995554157"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061258715995554157/README.md",
+      "path": "X/DHSgov/2026/06/01/2061258715995554157/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061258715995554157",
+      "summary": "Rioter ARRESTED. https://t.co/hekiOafov8",
+      "title": "Rioter ARRESTED. https://t.co/hekiOafov8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:5c226c082c856c03",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:48:29.097770+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061474270023233536.mp4",
+            "remotePath": "archive/x/dhsgov/cS5hcZwRvXUMF65y.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061474270023233536/vid/avc1/1080x1080/cS5hcZwRvXUMF65y.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/cS5hcZwRvXUMF65y.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061474270023233536.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/cS5hcZwRvXUMF65y.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061475648770580729"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061475648770580729/README.md",
+      "path": "X/DHSgov/2026/06/01/2061475648770580729/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061475648770580729",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Newark or anywhere in America, the message doesn\u2019t change: @ICEgov ..."
     },
     {
       "category": "X",
@@ -2339,6 +3713,201 @@
     {
       "category": "X",
       "date": "2026-06-01",
+      "id": "socials:3b3430dbd1c4c916",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:47:29.954399+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061590195762294784.jpg",
+            "remotePath": "archive/x/dhsgov/HJw9XDrW8AAKrNB.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJw9XDrW8AAKrNB.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDrW8AAKrNB.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2061590195716165632.jpg",
+            "remotePath": "archive/x/dhsgov/HJw9XDgXEAAWNCh.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJw9XDgXEAAWNCh.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDgXEAAWNCh.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2061590195732873216.jpg",
+            "remotePath": "archive/x/dhsgov/HJw9XDkWAAA_Dl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJw9XDkWAAA_Dl-.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDkWAAA_Dl.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2061590195711963137.jpg",
+            "remotePath": "archive/x/dhsgov/HJw9XDfW8AES18d.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJw9XDfW8AES18d.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDfW8AES18d.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061590195762294784.jpg",
+          "media/02_image_2061590195716165632.jpg",
+          "media/03_image_2061590195732873216.jpg",
+          "media/04_image_2061590195711963137.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDrW8AAKrNB.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDgXEAAWNCh.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDkWAAA_Dl.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJw9XDfW8AES18d.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061590361080741996"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061590361080741996/README.md",
+      "path": "X/DHSgov/2026/06/01/2061590361080741996/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061590361080741996",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Today we honored three @ICEgov heroes who rushed into action to s..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:71252dd0e99fe012",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:47:29.956504+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061523719084769684"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061523719084769684/README.md",
+      "path": "X/DHSgov/2026/06/01/2061523719084769684/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061523719084769684",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: This violent rioter who allegedly threatened to murder an @ICEgov..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:15fe566083226caf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:47:29.955728+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061540753189240832.mp4",
+            "remotePath": "archive/x/dhsgov/pEojvFK9cn8C9MbS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061540753189240832/vid/avc1/1920x1080/pEojvFK9cn8C9MbS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/pEojvFK9cn8C9MbS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061540753189240832.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/pEojvFK9cn8C9MbS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061543183247409470"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061543183247409470/README.md",
+      "path": "X/DHSgov/2026/06/01/2061543183247409470/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061543183247409470",
+      "summary": "Repost of @RepBrandonGill:",
+      "title": "Repost of @RepBrandonGill: ICE and Border Patrol are on the front lines: defending America..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:b4eaf7f7b9fc4d91",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:48:29.098676+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061466211162955927"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061466211162955927/README.md",
+      "path": "X/DHSgov/2026/06/01/2061466211162955927/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061466211162955927",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: Democrats continue to sit for Americans and stand for violent ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:34e5d918f152e552",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:47:29.955405+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061543494540197888.mp4",
+            "remotePath": "archive/x/dhsgov/rycLLXdgVTpyjKEE.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061543494540197888/vid/avc1/1280x720/rycLLXdgVTpyjKEE.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/rycLLXdgVTpyjKEE.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061543494540197888.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/rycLLXdgVTpyjKEE.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061543997311443424"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061543997311443424/README.md",
+      "path": "X/DHSgov/2026/06/01/2061543997311443424/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061543997311443424",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@SecMullinDHS on Delaney Hall: \"The governor wasn\u2019t allowing ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:c3a1b87b488b90ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:48:29.098164+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061469628946165868"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061469628946165868/README.md",
+      "path": "X/DHSgov/2026/06/01/2061469628946165868/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061469628946165868",
+      "summary": "Repost of @JackPosobiec:",
+      "title": "Repost of @JackPosobiec: THREAD: DHS Adds Another 5,000 entires to \u201cWorst of the Worst\u201d We..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
       "id": "socials:4d3ffe4c76fad703",
       "kind": "social_post",
       "metadata": {
@@ -2383,6 +3952,74 @@
     {
       "category": "X",
       "date": "2026-06-01",
+      "id": "socials:bf58a2902deabdcd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:48:29.095737+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061491867603136512.mp4",
+            "remotePath": "archive/x/dhsgov/DMa38AWg5AB16JOs.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2061491867603136512/pu/vid/avc1/720x1280/DMa38AWg5AB16JOs.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/DMa38AWg5AB16JOs.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061491867603136512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/DMa38AWg5AB16JOs.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061516023312908615"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061516023312908615/README.md",
+      "path": "X/DHSgov/2026/06/01/2061516023312908615/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061516023312908615",
+      "summary": "Repost of @CBPCommissioner:",
+      "title": "Repost of @CBPCommissioner: Today, I\u2019m proud to announce Rosario \u201cPete\u201d Vasquez as the @US..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:0135e94f2c15be72",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.100315+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061244229678989318.jpg",
+            "remotePath": "archive/x/dhsgov/HJsCtLlXAAYxmRU.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJsCtLlXAAYxmRU.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJsCtLlXAAYxmRU.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061244229678989318.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJsCtLlXAAYxmRU.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061244235328659787"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061244235328659787/README.md",
+      "path": "X/DHSgov/2026/06/01/2061244235328659787/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061244235328659787",
+      "summary": "Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. https://t.co/DNWDERKKXD",
+      "title": "Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
       "id": "socials:2eb0b3b994b92747",
       "kind": "social_post",
       "metadata": {
@@ -2413,6 +4050,40 @@
       "sourceUrl": "https://x.com/WhiteHouse/status/2061523159442960883",
       "summary": "Rampant fraud is being identified, prosecuted, and extinguished across America under the Trump Administration. https://t.co/HiGbWpKzQV",
       "title": "Rampant fraud is being identified, prosecuted, and extinguished across America under the T..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:f45ad11e21f8c6ed",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.098386+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061469184375009280.mp4",
+            "remotePath": "archive/x/dhsgov/XnjZ8zXhMK-sENBu.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061469184375009280/vid/avc1/640x360/XnjZ8zXhMK-sENBu.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/XnjZ8zXhMK-sENBu.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061469184375009280.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/XnjZ8zXhMK-sENBu.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061469241241411736"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061469241241411736/README.md",
+      "path": "X/DHSgov/2026/06/01/2061469241241411736/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061469241241411736",
+      "summary": "REMINDER: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions.",
+      "title": "REMINDER: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions. ALL..."
     },
     {
       "category": "X",
@@ -2449,6 +4120,67 @@
       "title": "President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0"
     },
     {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:628c86e7ee9418e3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.097054+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061493261693292544.jpg",
+            "remotePath": "archive/x/dhsgov/HJvlMwIXEAAZ-vk.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJvlMwIXEAAZ-vk.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwIXEAAZ-vk.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2061493261718499329.jpg",
+            "remotePath": "archive/x/dhsgov/HJvlMwOXsAEv4gy.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJvlMwOXsAEv4gy.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwOXsAEv4gy.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2061493261701718016.jpg",
+            "remotePath": "archive/x/dhsgov/HJvlMwKXoAAJ759.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJvlMwKXoAAJ759.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwKXoAAJ759.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2061493261714219008.jpg",
+            "remotePath": "archive/x/dhsgov/HJvlMwNWYAAHHgo.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJvlMwNWYAAHHgo.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwNWYAAHHgo.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061493261693292544.jpg",
+          "media/02_image_2061493261718499329.jpg",
+          "media/03_image_2061493261701718016.jpg",
+          "media/04_image_2061493261714219008.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwIXEAAZ-vk.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwOXsAEv4gy.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwKXoAAJ759.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJvlMwNWYAAHHgo.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061493264616673601"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061493264616673601/README.md",
+      "path": "X/DHSgov/2026/06/01/2061493264616673601/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061493264616673601",
+      "summary": "Order prevails.",
+      "title": "Order prevails. Rioters will face the full weight of the law. https://t.co/FpHi4iwGwI"
+    },
+    {
       "category": "YouTube",
       "date": "2026-06-01",
       "id": "socials:aecfb70422cd13d1",
@@ -2471,6 +4203,84 @@
       "title": "Newark or anywhere in America, the message doesn\u2019t change: ICE operations will NOT be deterred"
     },
     {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:e813c9005dc58fde",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.096584+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061508070304280576.jpg",
+            "remotePath": "archive/x/dhsgov/HJvyqugWcAAPmC8.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJvyqugWcAAPmC8.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJvyqugWcAAPmC8.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061508070304280576.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJvyqugWcAAPmC8.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061508073210958313"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061508073210958313/README.md",
+      "path": "X/DHSgov/2026/06/01/2061508073210958313/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061508073210958313",
+      "summary": "MORE MINNESOTA MADNESS: @GovTimWalz and Minnesota sanctuary politicians have PARDONED Jai Vang, a criminal illegal alien from Laos who was convicted for FELONY ROBBERY with a gun.",
+      "title": "MORE MINNESOTA MADNESS: @GovTimWalz and Minnesota sanctuary politicians have PARDONED Jai ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:b0e3a19fe803ae8c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:47:29.954124+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061591382255440140"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061591382255440140/README.md",
+      "path": "X/DHSgov/2026/06/01/2061591382255440140/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061591382255440140",
+      "summary": "Let this be a warning to anyone who attacks our law enforcement: we will find you, we will arrest you, and we will prosecute you to the fullest extent of the law.",
+      "title": "Let this be a warning to anyone who attacks our law enforcement: we will find you, we will..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:9cec5e162c2f4793",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.099924+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061270471883014549"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061270471883014549/README.md",
+      "path": "X/DHSgov/2026/06/01/2061270471883014549/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061270471883014549",
+      "summary": "LAW AND ORDER.",
+      "title": "LAW AND ORDER."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-06-01",
       "id": "socials:c59a03d7b41e4bba",
@@ -2491,6 +4301,62 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116673094140159291",
       "summary": "Iran really wants to make a deal, and it will be a good one for the U.S.A. and those that are with us. But don\u2019t the Dumocrats, and various seemingly unpatriotic Republicans, understand that it is MUCH tougher for me to properly do my job and negotiate, when political hacks keep ",
       "title": "Iran really wants to make a deal, and it will be a good one for the U.S.A. and those that ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:59cf77f7d8982ebf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.099508+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061275930367041606"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061275930367041606/README.md",
+      "path": "X/DHSgov/2026/06/01/2061275930367041606/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061275930367041606",
+      "summary": "If you riot, you will face the consequences. Law and order prevails.",
+      "title": "If you riot, you will face the consequences. Law and order prevails."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:f236b574544cf67d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.098940+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061448130550222848.mp4",
+            "remotePath": "archive/x/dhsgov/m_s0NMgVvb5Cn2J1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061448130550222848/vid/avc1/640x360/m_s0NMgVvb5Cn2J1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/m_s0NMgVvb5Cn2J1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061448130550222848.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/m_s0NMgVvb5Cn2J1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061448185864741158"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061448185864741158/README.md",
+      "path": "X/DHSgov/2026/06/01/2061448185864741158/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061448185864741158",
+      "summary": "If you riot, you will be ARRESTED.",
+      "title": "If you riot, you will be ARRESTED. Last night, our New Jersey law enforcement partners too..."
     },
     {
       "category": "TruthSocial",
@@ -2559,6 +4425,62 @@
       "title": "Has anyone ever seen a happy Dumocrat??? President DJT"
     },
     {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:ca755402eb0c67b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.099240+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061283838546919427.mp4",
+            "remotePath": "archive/x/dhsgov/4zCMrAfTMJQ87ppU.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061283838546919427/vid/avc1/1206x662/4zCMrAfTMJQ87ppU.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/4zCMrAfTMJQ87ppU.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061283838546919427.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/4zCMrAfTMJQ87ppU.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061283894020673747"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061283894020673747/README.md",
+      "path": "X/DHSgov/2026/06/01/2061283894020673747/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061283894020673747",
+      "summary": "Don\u2019t be this guy. https://t.co/jEIrBmsG88",
+      "title": "Don\u2019t be this guy. https://t.co/jEIrBmsG88"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:55f8334e21b62609",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.100065+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061267321331605664"
+      },
+      "metadataPath": "X/DHSgov/2026/06/01/2061267321331605664/README.md",
+      "path": "X/DHSgov/2026/06/01/2061267321331605664/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061267321331605664",
+      "summary": "Arrests are MOUNTING.",
+      "title": "Arrests are MOUNTING."
+    },
+    {
       "category": "TikTok",
       "date": "2026-06-01",
       "id": "socials:144e12df954bbe99",
@@ -2615,6 +4537,62 @@
       "title": "\"President Donald Trump\u2019s administration set out to clean up Washington, D.C., 14 months a..."
     },
     {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:48b9538ce1ae7e24",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.985318+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061139260061691904.mp4",
+            "remotePath": "archive/x/dhsgov/LUN0DDpBGD75rHD.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061139260061691904/vid/avc1/1280x720/LUN0DDpBGD75rHD_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/LUN0DDpBGD75rHD.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061139260061691904.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/LUN0DDpBGD75rHD.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061139327858401477"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061139327858401477/README.md",
+      "path": "X/DHSgov/2026/05/31/2061139327858401477/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061139327858401477",
+      "summary": "\ud83d\udea83 rioters were ARRESTED last night.",
+      "title": "\ud83d\udea83 rioters were ARRESTED last night. Our message is clear: lawlessness will NOT be tolerat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:65d25bf5106b76e7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:51:28.691497+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060899842449183078"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060899842449183078/README.md",
+      "path": "X/DHSgov/2026/05/31/2060899842449183078/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060899842449183078",
+      "summary": "With the cooperation of New Jersey state and local law enforcement, law and order will prevail.",
+      "title": "With the cooperation of New Jersey state and local law enforcement, law and order will pre..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-31",
       "id": "socials:e2358df76ca74fe4",
@@ -2635,6 +4613,28 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116671799302513930",
       "summary": "Welcome home to Justo Betancourt, whose Daughter, Arianne, fought very hard to free her father from Alligator Alcatraz. Enjoy your Freedom together!!! President DONALD J. TRUMP",
       "title": "Welcome home to Justo Betancourt, whose Daughter, Arianne, fought very hard to free her fa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:f89b5588af29d045",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.987071+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060915475324797416"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060915475324797416/README.md",
+      "path": "X/DHSgov/2026/05/31/2060915475324797416/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060915475324797416",
+      "summary": "WE WILL NOT BACK DOWN.",
+      "title": "WE WILL NOT BACK DOWN."
     },
     {
       "category": "TruthSocial",
@@ -2963,6 +4963,105 @@
       "title": "Truth Social post 116666939433642821"
     },
     {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:72581b6e6bd398df",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.986705+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060937219741720577.jpg",
+            "remotePath": "archive/x/dhsgov/HJnre2cWIAEq8U4.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJnre2cWIAEq8U4.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJnre2cWIAEq8U4.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2060937219754315776.jpg",
+            "remotePath": "archive/x/dhsgov/HJnre2fWUAADjH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJnre2fWUAADjH-.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJnre2fWUAADjH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060937219741720577.jpg",
+          "media/02_image_2060937219754315776.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJnre2cWIAEq8U4.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HJnre2fWUAADjH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2060937222891737416"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060937222891737416/README.md",
+      "path": "X/DHSgov/2026/05/31/2060937222891737416/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060937222891737416",
+      "summary": "Together with our state and local law enforcement partners, we have SECURED the area around Delaney Hall.",
+      "title": "Together with our state and local law enforcement partners, we have SECURED the area aroun..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:0e69edd92faef282",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.985935+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061108706457059330.jpg",
+            "remotePath": "archive/x/dhsgov/HJqHcsPWgAILkRH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJqHcsPWgAILkRH.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJqHcsPWgAILkRH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061108706457059330.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJqHcsPWgAILkRH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061108709464388009"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061108709464388009/README.md",
+      "path": "X/DHSgov/2026/05/31/2061108709464388009/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061108709464388009",
+      "summary": "Together we held the line.",
+      "title": "Together we held the line. The perimeter around Delaney Hall is SECURE and NO rioters brea..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:0b8043da1b7e5924",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.983946+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061173139065754108"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061173139065754108/README.md",
+      "path": "X/DHSgov/2026/05/31/2061173139065754108/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061173139065754108",
+      "summary": "To every single violent rioter who so much as lays a hand on our federal law enforcement: You will be found, you will be arrested, and you will be prosecuted to the FULLEST extent of the law.",
+      "title": "To every single violent rioter who so much as lays a hand on our federal law enforcement: ..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-31",
       "id": "socials:31b8f21bbd198671",
@@ -2983,6 +5082,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116667326723211656",
       "summary": "The results of my Physical Examination, taken at Walter Reed Military Medical Center, and just released, were extremely good. Unlike other U.S. Presidents, none of whom have ever taken an approved, high difficulty, Cognitive Test, I scored a perfect 30 out of 30, considered \u201cextr",
       "title": "The results of my Physical Examination, taken at Walter Reed Military Medical Center, and ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:b2f4882218e5c738",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.984768+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061146701902077953.mp4",
+            "remotePath": "archive/x/dhsgov/yXGf478GTzJjVw1y.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061146701902077953/vid/avc1/360x640/yXGf478GTzJjVw1y.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/yXGf478GTzJjVw1y.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061146701902077953.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/yXGf478GTzJjVw1y.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061146767551262911"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061146767551262911/README.md",
+      "path": "X/DHSgov/2026/05/31/2061146767551262911/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061146767551262911",
+      "summary": "The perimeter around Delaney Hall is FULLY closed and our @ICEgov operations continue UNDETERRED.",
+      "title": "The perimeter around Delaney Hall is FULLY closed and our @ICEgov operations continue UNDE..."
     },
     {
       "category": "TruthSocial",
@@ -3052,6 +5185,74 @@
     {
       "category": "X",
       "date": "2026-05-31",
+      "id": "socials:75e5b2ee061b6f25",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.986123+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061104853858848777.jpg",
+            "remotePath": "archive/x/dhsgov/HJqD8cMXEAkXOx8.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJqD8cMXEAkXOx8.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJqD8cMXEAkXOx8.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061104853858848777.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJqD8cMXEAkXOx8.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061105974291620146"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061105974291620146/README.md",
+      "path": "X/DHSgov/2026/05/31/2061105974291620146/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061105974291620146",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: STAND WITH ICE. STAND WITH LAW ENFORCEMENT. https://t.co/mqfwtyCoSp"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:9812d49b0025f19d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.984493+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061148776996196352.mp4",
+            "remotePath": "archive/x/dhsgov/ZvovHC4qpASc2_6Z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061148776996196352/vid/avc1/4096x2160/ZvovHC4qpASc2_6Z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/ZvovHC4qpASc2_6Z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061148776996196352.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/ZvovHC4qpASc2_6Z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061158290847928420"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061158290847928420/README.md",
+      "path": "X/DHSgov/2026/05/31/2061158290847928420/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061158290847928420",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Never Forget: Democrats are the party that REFUSED to stand for pro..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
       "id": "socials:65de3eb2543fc002",
       "kind": "social_post",
       "metadata": {
@@ -3082,6 +5283,176 @@
       "sourceUrl": "https://x.com/POTUS/status/2061151679156806088",
       "summary": "Repost of @WhiteHouse:",
       "title": "Repost of @WhiteHouse: Never Forget: Democrats are the party that REFUSED to stand for pro..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:612fd63fbcacac9a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.983747+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061181502671540229.mp4",
+            "remotePath": "archive/x/dhsgov/6tMO7RlywYiVzqOt.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061181502671540229/vid/avc1/1920x1080/6tMO7RlywYiVzqOt.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/6tMO7RlywYiVzqOt.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061181502671540229.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/6tMO7RlywYiVzqOt.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061184201966154076"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061184201966154076/README.md",
+      "path": "X/DHSgov/2026/05/31/2061184201966154076/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061184201966154076",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7Hysd..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:a6a2c6bfad535c87",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.985559+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061126733554655236.png",
+            "remotePath": "archive/x/dhsgov/HJqX2AaWIAQk6jM.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJqX2AaWIAQk6jM.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJqX2AaWIAQk6jM.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061126733554655236.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJqX2AaWIAQk6jM.png"
+        ],
+        "platform": "X",
+        "postId": "2061128203524075761"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061128203524075761/README.md",
+      "path": "X/DHSgov/2026/05/31/2061128203524075761/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061128203524075761",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Juan Custodio Norberto \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Selling cocaine \ud83d\udc49Fraud..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:5438e86a972b5a28",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.983586+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061183499827134464.png",
+            "remotePath": "archive/x/dhsgov/HJrLePQXwAAyf4.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJrLePQXwAAyf4_.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJrLePQXwAAyf4.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061183499827134464.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJrLePQXwAAyf4.png"
+        ],
+        "platform": "X",
+        "postId": "2061185812973203573"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061185812973203573/README.md",
+      "path": "X/DHSgov/2026/05/31/2061185812973203573/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061185812973203573",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Anderson Bastien \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Battery https://t.co/UU6R8EA..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:3992f7e4ca26bda3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:50:01.985044+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061139314319212544.png",
+            "remotePath": "archive/x/dhsgov/HJqjSTaWwAAGb6R.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJqjSTaWwAAGb6R.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJqjSTaWwAAGb6R.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061139314319212544.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJqjSTaWwAAGb6R.png"
+        ],
+        "platform": "X",
+        "postId": "2061139639272960391"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061139639272960391/README.md",
+      "path": "X/DHSgov/2026/05/31/2061139639272960391/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061139639272960391",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Alex Vinicius Castro Miranda \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Maintaining dang..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:bb1201c7d08dcd84",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:51:28.691935+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060875727705157635.mp4",
+            "remotePath": "archive/x/dhsgov/28CSjgWTgGRsc4vm.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060875727705157635/vid/avc1/1280x720/28CSjgWTgGRsc4vm.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/28CSjgWTgGRsc4vm.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060875727705157635.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/28CSjgWTgGRsc4vm.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060875788493218277"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060875788493218277/README.md",
+      "path": "X/DHSgov/2026/05/31/2060875788493218277/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060875788493218277",
+      "summary": "Reminder to all rioters: Obstructing and assaulting law enforcement is a crime and a felony. Anyone who assaults our officers will be arrested and prosecuted to the FULLEST extent of the law. https://t.co/rGGt62PYiN",
+      "title": "Reminder to all rioters: Obstructing and assaulting law enforcement is a crime and a felon..."
     },
     {
       "category": "TruthSocial",
@@ -3158,6 +5529,28 @@
       "title": "RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After spending this week review..."
     },
     {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:85ad540739427fac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.986505+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061089589981241692"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061089589981241692/README.md",
+      "path": "X/DHSgov/2026/05/31/2061089589981241692/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061089589981241692",
+      "summary": "RIOTERS WILL NOT SLOW US DOWN.",
+      "title": "RIOTERS WILL NOT SLOW US DOWN. The perimeter around Delaney Hall is FULLY closed. No riote..."
+    },
+    {
       "category": "YouTube",
       "date": "2026-05-31",
       "id": "socials:436c5e064027a660",
@@ -3178,6 +5571,106 @@
       "sourceUrl": "https://www.youtube.com/watch?v=ezvhx7jussA",
       "summary": "- [00:00.080] So, what does a good deal look like for - [00:02.480] you? - [00:03.120] >> Well, first of all, there's no deal - [00:04.560] that's good enough because the media - [00:06.080] will cover it. We're making a great - [00:07.520] deal. We're going to make a great deal.",
       "title": "President Trump talks Iran with Lara Trump \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:ee8225b4833f0f7b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.985743+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061120472419352966"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061120472419352966/README.md",
+      "path": "X/DHSgov/2026/05/31/2061120472419352966/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061120472419352966",
+      "summary": "Patriots stand with ICE \ud83c\uddfa\ud83c\uddf8",
+      "title": "Patriots stand with ICE \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:976a2f60276bfe30",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.986307+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061099654020731148"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061099654020731148/README.md",
+      "path": "X/DHSgov/2026/05/31/2061099654020731148/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061099654020731148",
+      "summary": "Our @ICEgov operations continue undeterred.",
+      "title": "Our @ICEgov operations continue undeterred. ANY attempts to obstruct law enforcement or di..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:46979386bd1de554",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:48:29.100512+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061232927258595329.mp4",
+            "remotePath": "archive/x/dhsgov/64nhARfYxJv2x96m.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061232927258595329/vid/avc1/2160x3840/64nhARfYxJv2x96m.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/64nhARfYxJv2x96m.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061232927258595329.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/64nhARfYxJv2x96m.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061233185371914565"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061233185371914565/README.md",
+      "path": "X/DHSgov/2026/05/31/2061233185371914565/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061233185371914565",
+      "summary": "Order will prevail.",
+      "title": "Order will prevail. The perimeter around our Delaney Hall facility is FULLY closed \u2014 and o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:6d2c356a6b2dee37",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.986894+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060922993862221929"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060922993862221929/README.md",
+      "path": "X/DHSgov/2026/05/31/2060922993862221929/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060922993862221929",
+      "summary": "ORDER WILL PREVAIL.",
+      "title": "ORDER WILL PREVAIL."
     },
     {
       "category": "TikTok",
@@ -3248,6 +5741,40 @@
       "title": "Last week, Vice President Vance invited Attorneys General from across the country to parti..."
     },
     {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:2ce406f8ccaca0b1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:51:28.691316+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060906706830311426.mp4",
+            "remotePath": "archive/x/dhsgov/03eVfZE0DlPznYzr.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060906706830311426/vid/avc1/1920x1080/03eVfZE0DlPznYzr.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/03eVfZE0DlPznYzr.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060906706830311426.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/03eVfZE0DlPznYzr.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060906781048496625"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060906781048496625/README.md",
+      "path": "X/DHSgov/2026/05/31/2060906781048496625/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060906781048496625",
+      "summary": "LAW AND ORDER WILL PREVAIL.",
+      "title": "LAW AND ORDER WILL PREVAIL. ANYONE who assaults our officers will be arrested and prosecut..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-31",
       "id": "socials:971b2bbcb1fccaac",
@@ -3290,6 +5817,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116671779106880540",
       "summary": "Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn\u2019t talk about Nuclear, when actually it states, very clearly, that Iran will not have a Nuclear Weapon. It then goes on, in very strong and lengthy detail, to discuss various other aspects of Nuclear. In fact, th",
       "title": "Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn\u2019t talk about Nuclear,..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:351eaa9dc9bbab22",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.983137+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2061204311401463808.jpg",
+            "remotePath": "archive/x/dhsgov/HJreZoaWgAAmY3q.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJreZoaWgAAmY3q.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJreZoaWgAAmY3q.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2061204311401463808.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJreZoaWgAAmY3q.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061204314413277388"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061204314413277388/README.md",
+      "path": "X/DHSgov/2026/05/31/2061204314413277388/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061204314413277388",
+      "summary": "FACT: No lawbreakers in the history of human civilization have been better treated than illegal aliens.",
+      "title": "FACT: No lawbreakers in the history of human civilization have been better treated than il..."
     },
     {
       "category": "TruthSocial",
@@ -3435,6 +5996,96 @@
       "title": "Congratulations to Congressman Gus Bilirakis, a great guy. He\u2019s MAGA all the way. His firs..."
     },
     {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:01e955a157075e5d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.984217+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2061161565110272000.mp4",
+            "remotePath": "archive/x/dhsgov/7q0S8jCw4vfVIOmO.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2061161565110272000/vid/avc1/1280x720/7q0S8jCw4vfVIOmO.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/7q0S8jCw4vfVIOmO.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2061161565110272000.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/7q0S8jCw4vfVIOmO.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061161646236877152"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061161646236877152/README.md",
+      "path": "X/DHSgov/2026/05/31/2061161646236877152/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061161646236877152",
+      "summary": "Alongside our New Jersey law enforcement partners, we will not allow violent rioters to slow @ICEgov down.",
+      "title": "Alongside our New Jersey law enforcement partners, we will not allow violent rioters to sl..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:99768c08ec48940b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:51:28.691611+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060893794447286275.mp4",
+            "remotePath": "archive/x/dhsgov/qxXZf67GwbIQV6j.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060893794447286275/vid/avc1/1280x720/_qxXZf67GwbIQV6j.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/qxXZf67GwbIQV6j.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060893794447286275.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/qxXZf67GwbIQV6j.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060893852857176160"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2060893852857176160/README.md",
+      "path": "X/DHSgov/2026/05/31/2060893852857176160/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060893852857176160",
+      "summary": "Actions have consequences.",
+      "title": "Actions have consequences. If you threaten, obstruct, or attack our law enforcement we wil..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:14e14cc21f7734c8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:50:01.983427+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2061187243356655729"
+      },
+      "metadataPath": "X/DHSgov/2026/05/31/2061187243356655729/README.md",
+      "path": "X/DHSgov/2026/05/31/2061187243356655729/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2061187243356655729",
+      "summary": "A reminder for @RepJeffries:",
+      "title": "A reminder for @RepJeffries: 1) DHS doesn\u2019t make the laws, Congress does. We don\u2019t pick an..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-30",
       "id": "socials:c871e2a0591e79c8",
@@ -3467,6 +6118,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116665810813312667",
       "summary": "With King Charles at the White House! President DONALD J. TRUMP",
       "title": "With King Charles at the White House! President DONALD J. TRUMP"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:2e4906121fab6356",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.067440+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060824229054926852.mp4",
+            "remotePath": "archive/x/dhsgov/2GqzbtKI3PAllmuz.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060824229054926852/vid/avc1/640x360/2GqzbtKI3PAllmuz.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/2GqzbtKI3PAllmuz.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060824229054926852.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/2GqzbtKI3PAllmuz.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060824321275122167"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060824321275122167/README.md",
+      "path": "X/DHSgov/2026/05/30/2060824321275122167/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060824321275122167",
+      "summary": "We will NOT tolerate rioting or assaults on law enforcement.",
+      "title": "We will NOT tolerate rioting or assaults on law enforcement. Alongside our law enforcement..."
     },
     {
       "category": "TruthSocial",
@@ -5125,6 +7810,40 @@
       "title": "Tom Brady is a great player, and great guy!President DJT"
     },
     {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:6a3262fb7f462329",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.066159+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060858944201920515.mp4",
+            "remotePath": "archive/x/dhsgov/msZcBmgXLhOo5W85.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060858944201920515/vid/avc1/640x360/msZcBmgXLhOo5W85.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/msZcBmgXLhOo5W85.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060858944201920515.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/msZcBmgXLhOo5W85.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060859018441011338"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060859018441011338/README.md",
+      "path": "X/DHSgov/2026/05/30/2060859018441011338/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060859018441011338",
+      "summary": "There is a coordinated campaign of violence against our @ICEgov officers in New Jersey.",
+      "title": "There is a coordinated campaign of violence against our @ICEgov officers in New Jersey. Wo..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-30",
       "id": "socials:b6183c853bc39fe5",
@@ -5395,6 +8114,142 @@
       "title": "Repost of @WhiteHouse: \"President Trump remains in excellent health... Cognitive and physi..."
     },
     {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:793e1b365090dd85",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:54:13.067321+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060809915665383425.png",
+            "remotePath": "archive/x/dhsgov/HJl3sxzWgAEbRTk.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJl3sxzWgAEbRTk.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJl3sxzWgAEbRTk.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060809915665383425.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJl3sxzWgAEbRTk.png"
+        ],
+        "platform": "X",
+        "postId": "2060824557385097275"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060824557385097275/README.md",
+      "path": "X/DHSgov/2026/05/30/2060824557385097275/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060824557385097275",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Yuneisy Fernandez-Fernandez \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Drug trafficking ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:fdde8cb4ac30976a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:54:13.065773+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060860103482322945.png",
+            "remotePath": "archive/x/dhsgov/HJmlWF_WsAEx65h.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJmlWF_WsAEx65h.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJmlWF_WsAEx65h.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060860103482322945.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJmlWF_WsAEx65h.png"
+        ],
+        "platform": "X",
+        "postId": "2060860432328355862"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060860432328355862/README.md",
+      "path": "X/DHSgov/2026/05/30/2060860432328355862/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060860432328355862",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Kulnoor Singh \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Drug trafficking &amp; possessi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:340ac1320991138f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:52:03.634431+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060866574387413002.png",
+            "remotePath": "archive/x/dhsgov/HJmrOv_WgAoGy9i.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJmrOv_WgAoGy9i.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJmrOv_WgAoGy9i.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060866574387413002.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJmrOv_WgAoGy9i.png"
+        ],
+        "platform": "X",
+        "postId": "2060867317639090449"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060867317639090449/README.md",
+      "path": "X/DHSgov/2026/05/30/2060867317639090449/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060867317639090449",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Anthony Pargas Escobar \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Assault \ud83d\udc49Simple assaul..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:e5e76ba3a203107f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T00:54:13.066862+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2060842109737820163.png",
+            "remotePath": "archive/x/dhsgov/HJmU-uEW4AMAjNd.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJmU-uEW4AMAjNd.png",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HJmU-uEW4AMAjNd.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2060842109737820163.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HJmU-uEW4AMAjNd.png"
+        ],
+        "platform": "X",
+        "postId": "2060843056446775487"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060843056446775487/README.md",
+      "path": "X/DHSgov/2026/05/30/2060843056446775487/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060843056446775487",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: Angel Jovanny Romero German \ud83d\udccdDELANEY HALL Rap sheet: \ud83d\udc49Violating a restr..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-30",
       "id": "socials:3e3e1e4c292372e8",
@@ -5629,6 +8484,92 @@
       "title": "PRESIDENT DONALD J. TRUMP vs. Kathy Hochul, New York\u2019s failed Governor who, if people are ..."
     },
     {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:fc2511f4b0bfd6e4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.067044+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060839057744355366"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060839057744355366/README.md",
+      "path": "X/DHSgov/2026/05/30/2060839057744355366/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060839057744355366",
+      "summary": "Our officers are facing a coordinated campaign of violence against them.",
+      "title": "Our officers are facing a coordinated campaign of violence against them. The First Amendme..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:98e565979de2974a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.066695+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060853238119669761.mp4",
+            "remotePath": "archive/x/dhsgov/aKA_p97a-yL9D1wV.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060853238119669761/vid/avc1/640x360/aKA_p97a-yL9D1wV.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/aKA_p97a-yL9D1wV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060853238119669761.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/aKA_p97a-yL9D1wV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060853305052455308"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060853305052455308/README.md",
+      "path": "X/DHSgov/2026/05/30/2060853305052455308/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060853305052455308",
+      "summary": "Our heroic @ICEgov law enforcement officers have been bitten, assaulted, and faced death threats from violent rioters in New Jersey.",
+      "title": "Our heroic @ICEgov law enforcement officers have been bitten, assaulted, and faced death t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:a7e49ccbfa574eb0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.067569+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": null,
+            "remotePath": null,
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060813519595991040/vid/avc1/2160x3840/aY4ayuVECQcXsY0m.mp4?tag=27",
+            "url": null
+          }
+        ],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2060813860181889191"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060813860181889191/README.md",
+      "path": "X/DHSgov/2026/05/30/2060813860181889191/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060813860181889191",
+      "summary": "One goal. One mission. Restore LAW AND ORDER.",
+      "title": "One goal. One mission. Restore LAW AND ORDER. We have ZERO tolerance for violent rioters w..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-30",
       "id": "socials:e7576b2aa777cdbe",
@@ -5727,6 +8668,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116664181157116570",
       "summary": "Can you imagine? A Barack Hussein Obama Judge named Christopher Cooper has stopped a magnificent structural and aesthetic rebuilding of The Trump Kennedy Center where Millions of Dollars of material, marble, furniture, steel, air conditioning, heating, and so much else was ordere",
       "title": "Can you imagine? A Barack Hussein Obama Judge named Christopher Cooper has stopped a magni..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-30",
+      "id": "socials:0fadbe160c237afd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T00:54:13.067190+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2060832313961824260.mp4",
+            "remotePath": "archive/x/dhsgov/iqT6xqqYdqkmkeFb.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2060832313961824260/vid/avc1/640x360/iqT6xqqYdqkmkeFb.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/iqT6xqqYdqkmkeFb.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2060832313961824260.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/iqT6xqqYdqkmkeFb.mp4"
+        ],
+        "platform": "X",
+        "postId": "2060832375077241087"
+      },
+      "metadataPath": "X/DHSgov/2026/05/30/2060832375077241087/README.md",
+      "path": "X/DHSgov/2026/05/30/2060832375077241087/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2060832375077241087",
+      "summary": "5 out of the 6 arrests last night were people from OUTSIDE of New Jersey.",
+      "title": "5 out of the 6 arrests last night were people from OUTSIDE of New Jersey. There is a coord..."
     },
     {
       "category": "TruthSocial",

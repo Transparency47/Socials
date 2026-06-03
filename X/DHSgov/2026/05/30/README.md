@@ -1,0 +1,37 @@
+# X / DHSgov / 2026-05-30
+
+- Posts: 11
+
+- [23:33 UTC - Repost of @ICEgov: Anthony Pargas Escobar 📍DELANEY HALL Rap sheet: 👉Assault 👉Simple assaul...](2060867317639090449/)
+  - Source: https://x.com/DHSgov/status/2060867317639090449
+  - Repost of @ICEgov: Anthony Pargas Escobar 📍DELANEY HALL Rap sheet: 👉Assault 👉Simple assault 👉Harassing communication https://t.co/jsOf5u4Z1E
+- [23:06 UTC - Repost of @ICEgov: Kulnoor Singh 📍DELANEY HALL Rap sheet: 👉Drug trafficking &amp; possessi...](2060860432328355862/)
+  - Source: https://x.com/DHSgov/status/2060860432328355862
+  - Repost of @ICEgov: Kulnoor Singh 📍DELANEY HALL Rap sheet: 👉Drug trafficking &amp; possession 👉Money laundering 👉Public order crimes https://t.co/jbOvwc5nsQ
+- [23:00 UTC - There is a coordinated campaign of violence against our @ICEgov officers in New Jersey. Wo...](2060859018441011338/)
+  - Source: https://x.com/DHSgov/status/2060859018441011338
+  - There is a coordinated campaign of violence against our @ICEgov officers in New Jersey. Working with our state and local partners, we will restore law and order and protect our law...
+- [22:38 UTC - Our heroic @ICEgov law enforcement officers have been bitten, assaulted, and faced death t...](2060853305052455308/)
+  - Source: https://x.com/DHSgov/status/2060853305052455308
+  - Our heroic @ICEgov law enforcement officers have been bitten, assaulted, and faced death threats from violent rioters in New Jersey. ANYONE who assaults our officers will be arrest...
+- [21:57 UTC - Repost of @ICEgov: Angel Jovanny Romero German 📍DELANEY HALL Rap sheet: 👉Violating a restr...](2060843056446775487/)
+  - Source: https://x.com/DHSgov/status/2060843056446775487
+  - Repost of @ICEgov: Angel Jovanny Romero German 📍DELANEY HALL Rap sheet: 👉Violating a restraining order 👉Assaulting an officer 👉Possession of about 25K fentanyl pills 👉Drunk driving...
+- [21:41 UTC - Our officers are facing a coordinated campaign of violence against them. The First Amendme...](2060839057744355366/)
+  - Source: https://x.com/DHSgov/status/2060839057744355366
+  - Our officers are facing a coordinated campaign of violence against them. The First Amendment protects speech and peaceful assembly – not rioting, assault and destruction. Let this...
+- [21:15 UTC - 5 out of the 6 arrests last night were people from OUTSIDE of New Jersey. There is a coord...](2060832375077241087/)
+  - Source: https://x.com/DHSgov/status/2060832375077241087
+  - 5 out of the 6 arrests last night were people from OUTSIDE of New Jersey. There is a coordinated campaign of violence against our @ICEgov law enforcement. Our ICE law enforcement...
+- [20:43 UTC - Repost of @ICEgov: Yuneisy Fernandez-Fernandez 📍DELANEY HALL Rap sheet: 👉Drug trafficking ...](2060824557385097275/)
+  - Source: https://x.com/DHSgov/status/2060824557385097275
+  - Repost of @ICEgov: Yuneisy Fernandez-Fernandez 📍DELANEY HALL Rap sheet: 👉Drug trafficking 👉Larceny 👉Shoplifting 👉Harboring a fugitive https://t.co/Knn8y6RZYv
+- [20:43 UTC - We will NOT tolerate rioting or assaults on law enforcement. Alongside our law enforcement...](2060824321275122167/)
+  - Source: https://x.com/DHSgov/status/2060824321275122167
+  - We will NOT tolerate rioting or assaults on law enforcement. Alongside our law enforcement partners in New Jersey, we remain committed to restoring law and order. Anyone who assaul...
+- [20:01 UTC - One goal. One mission. Restore LAW AND ORDER. We have ZERO tolerance for violent rioters w...](2060813860181889191/)
+  - Source: https://x.com/DHSgov/status/2060813860181889191
+  - One goal. One mission. Restore LAW AND ORDER. We have ZERO tolerance for violent rioters who assault law enforcement. Anyone who assaults law enforcement will be prosecuted to the...
+- [19:54 UTC - Repost of @SecMullinDHS: .@SenatorAndyKim we are getting murderers, pedophiles, rapists, a...](2060812144522760239/)
+  - Source: https://x.com/DHSgov/status/2060812144522760239
+  - Repost of @SecMullinDHS: .@SenatorAndyKim we are getting murderers, pedophiles, rapists, and gang members off of New Jersey streets. This is yet another example of defund the polic...

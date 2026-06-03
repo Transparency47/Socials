@@ -1,0 +1,76 @@
+# X / DHSgov / 2026-05-31
+
+- Posts: 24
+
+- [23:47 UTC - Order will prevail. The perimeter around our Delaney Hall facility is FULLY closed — and o...](2061233185371914565/)
+  - Source: https://x.com/DHSgov/status/2061233185371914565
+  - Order will prevail. The perimeter around our Delaney Hall facility is FULLY closed — and our @ICEgov operations continue UNDETERRED. Together with our New Jersey law enforcement pa...
+- [21:52 UTC - FACT: No lawbreakers in the history of human civilization have been better treated than il...](2061204314413277388/)
+  - Source: https://x.com/DHSgov/status/2061204314413277388
+  - FACT: No lawbreakers in the history of human civilization have been better treated than illegal aliens. ALL detainees receive FULL due process and are provided comprehensive medica...
+- [20:45 UTC - A reminder for @RepJeffries: 1) DHS doesn’t make the laws, Congress does. We don’t pick an...](2061187243356655729/)
+  - Source: https://x.com/DHSgov/status/2061187243356655729
+  - A reminder for @RepJeffries: 1) DHS doesn’t make the laws, Congress does. We don’t pick and choose which laws to enforce—and neither should you as a “lawmaker.” 2) It is a crime to...
+- [20:39 UTC - Repost of @ICEgov: Anderson Bastien 📍DELANEY HALL Rap sheet: 👉Battery https://t.co/UU6R8EA...](2061185812973203573/)
+  - Source: https://x.com/DHSgov/status/2061185812973203573
+  - Repost of @ICEgov: Anderson Bastien 📍DELANEY HALL Rap sheet: 👉Battery https://t.co/UU6R8EAfrv
+- [20:33 UTC - Repost of @WhiteHouse: Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7Hysd...](2061184201966154076/)
+  - Source: https://x.com/DHSgov/status/2061184201966154076
+  - Repost of @WhiteHouse: Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7HysdUuNVM https://t.co/8HsQ01qFyU
+- [19:49 UTC - To every single violent rioter who so much as lays a hand on our federal law enforcement: ...](2061173139065754108/)
+  - Source: https://x.com/DHSgov/status/2061173139065754108
+  - To every single violent rioter who so much as lays a hand on our federal law enforcement: You will be found, you will be arrested, and you will be prosecuted to the FULLEST extent...
+- [19:03 UTC - Alongside our New Jersey law enforcement partners, we will not allow violent rioters to sl...](2061161646236877152/)
+  - Source: https://x.com/DHSgov/status/2061161646236877152
+  - Alongside our New Jersey law enforcement partners, we will not allow violent rioters to slow @ICEgov down. The perimeter around Delaney Hall is FULLY closed and our operations cont...
+- [18:50 UTC - Repost of @WhiteHouse: Never Forget: Democrats are the party that REFUSED to stand for pro...](2061158290847928420/)
+  - Source: https://x.com/DHSgov/status/2061158290847928420
+  - Repost of @WhiteHouse: Never Forget: Democrats are the party that REFUSED to stand for protecting and putting AMERICAN CITIZENS first. Tells you everything you need to know. https:...
+- [18:04 UTC - The perimeter around Delaney Hall is FULLY closed and our @ICEgov operations continue UNDE...](2061146767551262911/)
+  - Source: https://x.com/DHSgov/status/2061146767551262911
+  - The perimeter around Delaney Hall is FULLY closed and our @ICEgov operations continue UNDETERRED. With cooperation from our New Jersey law enforcement partners, we will ensure ANYO...
+- [17:35 UTC - Repost of @ICEgov: Alex Vinicius Castro Miranda 📍DELANEY HALL Rap sheet: 👉Maintaining dang...](2061139639272960391/)
+  - Source: https://x.com/DHSgov/status/2061139639272960391
+  - Repost of @ICEgov: Alex Vinicius Castro Miranda 📍DELANEY HALL Rap sheet: 👉Maintaining dangerous drug facility 👉Manufacturing heroin/cocaine 👉Possession of dangerous drugs 👉Possessi...
+- [17:34 UTC - 🚨3 rioters were ARRESTED last night. Our message is clear: lawlessness will NOT be tolerat...](2061139327858401477/)
+  - Source: https://x.com/DHSgov/status/2061139327858401477
+  - 🚨3 rioters were ARRESTED last night. Our message is clear: lawlessness will NOT be tolerated. We will ensure anyone who attempts to obstruct or assault our law enforcement officers...
+- [16:50 UTC - Repost of @ICEgov: Juan Custodio Norberto 📍DELANEY HALL Rap sheet: 👉Selling cocaine 👉Fraud...](2061128203524075761/)
+  - Source: https://x.com/DHSgov/status/2061128203524075761
+  - Repost of @ICEgov: Juan Custodio Norberto 📍DELANEY HALL Rap sheet: 👉Selling cocaine 👉Fraud https://t.co/VXaHXKdziK
+- [16:19 UTC - Patriots stand with ICE 🇺🇸](2061120472419352966/)
+  - Source: https://x.com/DHSgov/status/2061120472419352966
+  - Patriots stand with ICE 🇺🇸
+- [15:33 UTC - Together we held the line. The perimeter around Delaney Hall is SECURE and NO rioters brea...](2061108709464388009/)
+  - Source: https://x.com/DHSgov/status/2061108709464388009
+  - Together we held the line. The perimeter around Delaney Hall is SECURE and NO rioters breached the perimeter last night. Alongside our New Jersey law enforcement partners, we will...
+- [15:22 UTC - Repost of @WhiteHouse: STAND WITH ICE. STAND WITH LAW ENFORCEMENT. https://t.co/mqfwtyCoSp](2061105974291620146/)
+  - Source: https://x.com/DHSgov/status/2061105974291620146
+  - Repost of @WhiteHouse: STAND WITH ICE. STAND WITH LAW ENFORCEMENT. https://t.co/mqfwtyCoSp
+- [14:57 UTC - Our @ICEgov operations continue undeterred. ANY attempts to obstruct law enforcement or di...](2061099654020731148/)
+  - Source: https://x.com/DHSgov/status/2061099654020731148
+  - Our @ICEgov operations continue undeterred. ANY attempts to obstruct law enforcement or disrupt our operations will NOT be tolerated.
+- [14:17 UTC - RIOTERS WILL NOT SLOW US DOWN. The perimeter around Delaney Hall is FULLY closed. No riote...](2061089589981241692/)
+  - Source: https://x.com/DHSgov/status/2061089589981241692
+  - RIOTERS WILL NOT SLOW US DOWN. The perimeter around Delaney Hall is FULLY closed. No rioters breached the perimeter last night. Our @ICEgov operations continue undeterred. ANYONE w...
+- [04:11 UTC - Together with our state and local law enforcement partners, we have SECURED the area aroun...](2060937222891737416/)
+  - Source: https://x.com/DHSgov/status/2060937222891737416
+  - Together with our state and local law enforcement partners, we have SECURED the area around Delaney Hall. ANYONE who attempts to obstruct law enforcement or disrupt our facility wi...
+- [03:15 UTC - ORDER WILL PREVAIL.](2060922993862221929/)
+  - Source: https://x.com/DHSgov/status/2060922993862221929
+  - ORDER WILL PREVAIL.
+- [02:45 UTC - WE WILL NOT BACK DOWN.](2060915475324797416/)
+  - Source: https://x.com/DHSgov/status/2060915475324797416
+  - WE WILL NOT BACK DOWN.
+- [02:10 UTC - LAW AND ORDER WILL PREVAIL. ANYONE who assaults our officers will be arrested and prosecut...](2060906781048496625/)
+  - Source: https://x.com/DHSgov/status/2060906781048496625
+  - LAW AND ORDER WILL PREVAIL. ANYONE who assaults our officers will be arrested and prosecuted to the FULLEST extent of the law. https://t.co/7hsPISwH7T
+- [01:43 UTC - With the cooperation of New Jersey state and local law enforcement, law and order will pre...](2060899842449183078/)
+  - Source: https://x.com/DHSgov/status/2060899842449183078
+  - With the cooperation of New Jersey state and local law enforcement, law and order will prevail. The message to rioters is clear: we will NOT tolerate rioting or assaulting law enfo...
+- [01:19 UTC - Actions have consequences. If you threaten, obstruct, or attack our law enforcement we wil...](2060893852857176160/)
+  - Source: https://x.com/DHSgov/status/2060893852857176160
+  - Actions have consequences. If you threaten, obstruct, or attack our law enforcement we will find you, we will arrest you — and you will face justice. https://t.co/T2MJgTfTnB
+- [00:07 UTC - Reminder to all rioters: Obstructing and assaulting law enforcement is a crime and a felon...](2060875788493218277/)
+  - Source: https://x.com/DHSgov/status/2060875788493218277
+  - Reminder to all rioters: Obstructing and assaulting law enforcement is a crime and a felony. Anyone who assaults our officers will be arrested and prosecuted to the FULLEST extent...

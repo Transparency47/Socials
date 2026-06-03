@@ -1,0 +1,70 @@
+# X / DHSgov / 2026-06-02
+
+- Posts: 22
+
+- [22:35 UTC - While sanctuary politicians and leftist agitators spread false smears about the Delaney Ha...](2061939895539581266/)
+  - Source: https://x.com/DHSgov/status/2061939895539581266
+  - While sanctuary politicians and leftist agitators spread false smears about the Delaney Hall ICE facility, the brave men and women of @ICEgov are still hard at work removing crimin...
+- [22:03 UTC - This is nothing more than already debunked nonsense. NO detainees were beaten or attacked ...](2061931721889927304/)
+  - Source: https://x.com/DHSgov/status/2061931721889927304
+  - This is nothing more than already debunked nonsense. NO detainees were beaten or attacked by ICE agents. On May 28, 2026, staff responded to a physical fight involving detainees at...
+- [21:52 UTC - Cristian Romario Saenz-Argueta, a SICK illegal alien from El Salvador, now faces felony ch...](2061928939308933332/)
+  - Source: https://x.com/DHSgov/status/2061928939308933332
+  - Cristian Romario Saenz-Argueta, a SICK illegal alien from El Salvador, now faces felony charges for RAPING a girl under the age of 15. Due to the reckless policies of @GovernorVA a...
+- [21:48 UTC - Repost of @WhiteHouse: Illegal aliens & foreign fraudsters steal BILLIONS yearly from Amer...](2061927936958046426/)
+  - Source: https://x.com/DHSgov/status/2061927936958046426
+  - Repost of @WhiteHouse: Illegal aliens & foreign fraudsters steal BILLIONS yearly from American taxpayers. @POTUS signed an EO to stop banks & financial institutions from aiding dru...
+- [21:06 UTC - “We’re seeing a pattern where sanctuary cities create a safe haven for the worst of the wo...](2061917349914005737/)
+  - Source: https://x.com/DHSgov/status/2061917349914005737
+  - “We’re seeing a pattern where sanctuary cities create a safe haven for the worst of the worst to stay…just cooperate with us. Why are we having to fight state officials and federal...
+- [20:21 UTC - Repost of @RapidResponse47: .@SecMullinDHS dispels false rumors about Delaney Hall: First,...](2061906121246306395/)
+  - Source: https://x.com/DHSgov/status/2061906121246306395
+  - Repost of @RapidResponse47: .@SecMullinDHS dispels false rumors about Delaney Hall: First, they said it was overcrowded. We have twice the square footage as the state penitentiary....
+- [20:13 UTC - For years, our @USCG was neglected. Under @POTUS Trump, we’ve secured the largest ever Coa...](2061903998219698321/)
+  - Source: https://x.com/DHSgov/status/2061903998219698321
+  - For years, our @USCG was neglected. Under @POTUS Trump, we’ve secured the largest ever Coast Guard investment through the One Big Beautiful Bill and recruitment and retention rates...
+- [19:51 UTC - On May 28, the state of New Jersey’s health inspectors went to Delaney Hall and they didn’...](2061898528285397299/)
+  - Source: https://x.com/DHSgov/status/2061898528285397299
+  - On May 28, the state of New Jersey’s health inspectors went to Delaney Hall and they didn’t find one single violation. Meanwhile, the New Jersey state prison system has “DEPLORABLE...
+- [19:42 UTC - Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threat...](2061896257942245767/)
+  - Source: https://x.com/DHSgov/status/2061896257942245767
+  - Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threats from violent rioters in New Jersey. The First Amendment protects speech and peaceful ass...
+- [19:26 UTC - Thank you, boss. - DHS https://t.co/y7b1vzlE2g](2061892309524816177/)
+  - Source: https://x.com/DHSgov/status/2061892309524816177
+  - Thank you, boss. - DHS https://t.co/y7b1vzlE2g
+- [19:23 UTC - “When…you start referring to our agents as being dangerous, unconstitutional, and lawless ...](2061891507339071826/)
+  - Source: https://x.com/DHSgov/status/2061891507339071826
+  - “When…you start referring to our agents as being dangerous, unconstitutional, and lawless — that’s why our agent death threats are up 8,000%. I know that’s not what you want. But y...
+- [19:22 UTC - We would love to have body cameras, all you have to do is fund us. https://t.co/9fFZeYCBwz](2061891289671479309/)
+  - Source: https://x.com/DHSgov/status/2061891289671479309
+  - We would love to have body cameras, all you have to do is fund us. https://t.co/9fFZeYCBwz
+- [19:18 UTC - "We’re not picking and choosing which laws we enforce. We're simply enforcing the law. Per...](2061890130659381409/)
+  - Source: https://x.com/DHSgov/status/2061890130659381409
+  - "We’re not picking and choosing which laws we enforce. We're simply enforcing the law. Period. Full stop." @SecMullinDHS WATCH IN FULL: Secretary Mullin opening testimony before th...
+- [19:01 UTC - “Senator Murphy, the outlandish claims you made — they’re just flat wrong. You start sayin...](2061885873738657965/)
+  - Source: https://x.com/DHSgov/status/2061885873738657965
+  - “Senator Murphy, the outlandish claims you made — they’re just flat wrong. You start saying we’re breaking the laws…we’re enforcing the laws that Congress did pass…if you don’t lik...
+- [18:34 UTC - Repost of @HSI_HQ: ICE @HSISanDiego is a proud member of the @HSTFNCC team investigating t...](2061879153645818186/)
+  - Source: https://x.com/DHSgov/status/2061879153645818186
+  - Repost of @HSI_HQ: ICE @HSISanDiego is a proud member of the @HSTFNCC team investigating this case. https://t.co/bE6qFbJCyJ
+- [17:30 UTC - Sanctuary politicians are fighting for criminal illegal aliens. We’re fighting for America...](2061863058163511758/)
+  - Source: https://x.com/DHSgov/status/2061863058163511758
+  - Sanctuary politicians are fighting for criminal illegal aliens. We’re fighting for Americans. https://t.co/bPA8Nq3f0F
+- [15:59 UTC - This is a frivolous lawsuit. ICE is committed to transparency, and Delaney Hall complies w...](2061840060744376646/)
+  - Source: https://x.com/DHSgov/status/2061840060744376646
+  - This is a frivolous lawsuit. ICE is committed to transparency, and Delaney Hall complies with all required state and local laws. Just last week on May 28, four representatives of t...
+- [15:24 UTC - .@ICEgov lodged a detainer for a PREVIOUSLY DEPORTED criminal illegal alien who carried ou...](2061831335761551369/)
+  - Source: https://x.com/DHSgov/status/2061831335761551369
+  - .@ICEgov lodged a detainer for a PREVIOUSLY DEPORTED criminal illegal alien who carried out a SHOOTING in Texas this weekend. Juan Ayala-Montero, an alien from Mexico, got into an...
+- [13:44 UTC - This violent rioter, who has a criminal history that includes distributing child pornograp...](2061806061334544588/)
+  - Source: https://x.com/DHSgov/status/2061806061334544588
+  - This violent rioter, who has a criminal history that includes distributing child pornography, savagely BIT an @ICEgov law enforcement officer outside of Delaney Hall. The Trump Adm...
+- [02:04 UTC - Repost of @RapidResponse47: “I even made a surprise visit this weekend, and walked into th...](2061629924738269634/)
+  - Source: https://x.com/DHSgov/status/2061629924738269634
+  - Repost of @RapidResponse47: “I even made a surprise visit this weekend, and walked into the cafeteria, and ate the same meal that the detainees around me were eating.” @RealTomHoma...
+- [01:20 UTC - The message is clear: actions have consequences. Rioting will not be tolerated.](2061619043870683204/)
+  - Source: https://x.com/DHSgov/status/2061619043870683204
+  - The message is clear: actions have consequences. Rioting will not be tolerated.
+- [00:16 UTC - Rioters will NOT slow us down from removing the worst of the worst from American neighborh...](2061602879576650177/)
+  - Source: https://x.com/DHSgov/status/2061602879576650177
+  - Rioters will NOT slow us down from removing the worst of the worst from American neighborhoods. This weekend, @ICEgov arrested murderers, registered sex offenders, sexual predators...

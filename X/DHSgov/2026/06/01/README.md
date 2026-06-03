@@ -1,0 +1,97 @@
+# X / DHSgov / 2026-06-01
+
+- Posts: 31
+
+- [23:31 UTC - Let this be a warning to anyone who attacks our law enforcement: we will find you, we will...](2061591382255440140/)
+  - Source: https://x.com/DHSgov/status/2061591382255440140
+  - Let this be a warning to anyone who attacks our law enforcement: we will find you, we will arrest you, and we will prosecute you to the fullest extent of the law.
+- [23:26 UTC - Repost of @SecMullinDHS: Today we honored three @ICEgov heroes who rushed into action to s...](2061590361080741996/)
+  - Source: https://x.com/DHSgov/status/2061590361080741996
+  - Repost of @SecMullinDHS: Today we honored three @ICEgov heroes who rushed into action to save illegal aliens’ lives amid sniper shots at the Dallas ICE facility on September 24, 20...
+- [23:14 UTC - Today, Jose Medina, the illegal alien monster arrested for murdering Sheridan Gorman, appe...](2061587281681809439/)
+  - Source: https://x.com/DHSgov/status/2061587281681809439
+  - Today, Jose Medina, the illegal alien monster arrested for murdering Sheridan Gorman, appeared in court. Sheridan was failed by open border policies and sanctuary politicians who R...
+- [22:37 UTC - “We are putting so much emphasis on drone defense. Anybody that is caught flying within ou...](2061577979239567426/)
+  - Source: https://x.com/DHSgov/status/2061577979239567426
+  - “We are putting so much emphasis on drone defense. Anybody that is caught flying within our area…we will prosecute you not with local, but with federal. It will come down on you ha...
+- [22:15 UTC - “We lock down this stadium 10 days before the first game — meaning that it will be a compl...](2061572468049838413/)
+  - Source: https://x.com/DHSgov/status/2061572468049838413
+  - “We lock down this stadium 10 days before the first game — meaning that it will be a completely secure site.” @SecMullinDHS on FIFA Security preparations at AT&amp;T Stadium https:...
+- [20:27 UTC - “These rioters are organized. These rioters are sponsored by somebody. We see Antifa flags...](2061545136962634051/)
+  - Source: https://x.com/DHSgov/status/2061545136962634051
+  - “These rioters are organized. These rioters are sponsored by somebody. We see Antifa flags out there. They’re not just exercising the First Amendment.” @SecMullinDHS on the violent...
+- [20:22 UTC - Repost of @RapidResponse47: .@SecMullinDHS on Delaney Hall: "The governor wasn’t allowing ...](2061543997311443424/)
+  - Source: https://x.com/DHSgov/status/2061543997311443424
+  - Repost of @RapidResponse47: .@SecMullinDHS on Delaney Hall: "The governor wasn’t allowing state police, and the mayor wasn't allowing local police to come in &amp; help with these...
+- [20:19 UTC - Repost of @RepBrandonGill: ICE and Border Patrol are on the front lines: defending America...](2061543183247409470/)
+  - Source: https://x.com/DHSgov/status/2061543183247409470
+  - Repost of @RepBrandonGill: ICE and Border Patrol are on the front lines: defending American sovereignty, keeping murderers and gang members off our streets, making sure America sta...
+- [20:05 UTC - “ICE and Border Patrol are on the front lines of not only defending American sovereignty, ...](2061539645624594627/)
+  - Source: https://x.com/DHSgov/status/2061539645624594627
+  - “ICE and Border Patrol are on the front lines of not only defending American sovereignty, but keeping our communities safe and ensuring that murderers and rapists and gang bangers...
+- [20:03 UTC - “Each day, we go after the worst of the worst, and that’s what the ICE agents, DHS, and ou...](2061539150332055979/)
+  - Source: https://x.com/DHSgov/status/2061539150332055979
+  - “Each day, we go after the worst of the worst, and that’s what the ICE agents, DHS, and our other 21 components do on a daily basis. We focus on keeping our homeland safe, but toda...
+- [19:21 UTC - WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from the 2025 Dallas ICE...](2061528640605618375/)
+  - Source: https://x.com/DHSgov/status/2061528640605618375
+  - WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from the 2025 Dallas ICE Facility Sniper Attack https://t.co/n4DfxF0ADc
+- [19:02 UTC - Repost of @SecMullinDHS: This violent rioter who allegedly threatened to murder an @ICEgov...](2061523719084769684/)
+  - Source: https://x.com/DHSgov/status/2061523719084769684
+  - Repost of @SecMullinDHS: This violent rioter who allegedly threatened to murder an @ICEgov law enforcement officer and his family is being brought to justice. Our ICE officers are...
+- [18:31 UTC - Repost of @CBPCommissioner: Today, I’m proud to announce Rosario “Pete” Vasquez as the @US...](2061516023312908615/)
+  - Source: https://x.com/DHSgov/status/2061516023312908615
+  - Repost of @CBPCommissioner: Today, I’m proud to announce Rosario “Pete” Vasquez as the @USBPChief of the U.S. Border Patrol. Pete has dedicated more than 26 years to securing our N...
+- [18:13 UTC - “We’re ready for hurricane season. This is something we do every year, it’s in our DNA.” —...](2061511591393194430/)
+  - Source: https://x.com/DHSgov/status/2061511591393194430
+  - “We’re ready for hurricane season. This is something we do every year, it’s in our DNA.” —Acting @FEMA Administrator Bob Fenton https://t.co/OGJxHDGqfE
+- [18:00 UTC - MORE MINNESOTA MADNESS: @GovTimWalz and Minnesota sanctuary politicians have PARDONED Jai ...](2061508073210958313/)
+  - Source: https://x.com/DHSgov/status/2061508073210958313
+  - MORE MINNESOTA MADNESS: @GovTimWalz and Minnesota sanctuary politicians have PARDONED Jai Vang, a criminal illegal alien from Laos who was convicted for FELONY ROBBERY with a gun....
+- [17:01 UTC - Order prevails. Rioters will face the full weight of the law. https://t.co/FpHi4iwGwI](2061493264616673601/)
+  - Source: https://x.com/DHSgov/status/2061493264616673601
+  - Order prevails. Rioters will face the full weight of the law. https://t.co/FpHi4iwGwI
+- [16:52 UTC - https://t.co/31LOb17Nuq](2061491118974407116/)
+  - Source: https://x.com/DHSgov/status/2061491118974407116
+  - https://t.co/31LOb17Nuq
+- [16:43 UTC - Sanctuary politicians like @RepJeffries CONTINUE to promote hoaxes about Delaney Hall. Thi...](2061488857330155845/)
+  - Source: https://x.com/DHSgov/status/2061488857330155845
+  - Sanctuary politicians like @RepJeffries CONTINUE to promote hoaxes about Delaney Hall. This is a DETENTION center. EVERYONE being held inside Delaney Hall broke the law by entering...
+- [15:51 UTC - Repost of @WhiteHouse: Newark or anywhere in America, the message doesn’t change: @ICEgov ...](2061475648770580729/)
+  - Source: https://x.com/DHSgov/status/2061475648770580729
+  - Repost of @WhiteHouse: Newark or anywhere in America, the message doesn’t change: @ICEgov operations will NOT be deterred. Riot, obstruct, or assault an officer and you will be arr...
+- [15:28 UTC - https://t.co/2YzVImX37Y](2061470050582729130/)
+  - Source: https://x.com/DHSgov/status/2061470050582729130
+  - https://t.co/2YzVImX37Y
+- [15:27 UTC - Repost of @JackPosobiec: THREAD: DHS Adds Another 5,000 entires to “Worst of the Worst” We...](2061469628946165868/)
+  - Source: https://x.com/DHSgov/status/2061469628946165868
+  - Repost of @JackPosobiec: THREAD: DHS Adds Another 5,000 entires to “Worst of the Worst” Website The WOW website was launched on December 8, 2025. It allows visitors to search throu...
+- [15:25 UTC - REMINDER: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions. ALL...](2061469241241411736/)
+  - Source: https://x.com/DHSgov/status/2061469241241411736
+  - REMINDER: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions. ALL detainees are provided with 3 meals a day, clean water, clothing, bedding, showers, soap,...
+- [15:13 UTC - Repost of @RapidResponse47: Democrats continue to sit for Americans and stand for violent ...](2061466211162955927/)
+  - Source: https://x.com/DHSgov/status/2061466211162955927
+  - Repost of @RapidResponse47: Democrats continue to sit for Americans and stand for violent illegal immigrants at Delaney Hall https://t.co/fTdOyQsDFs
+- [14:02 UTC - If you riot, you will be ARRESTED. Last night, our New Jersey law enforcement partners too...](2061448185864741158/)
+  - Source: https://x.com/DHSgov/status/2061448185864741158
+  - If you riot, you will be ARRESTED. Last night, our New Jersey law enforcement partners took action to arrest rioters. Lawlessness will NOT be tolerated. https://t.co/oBrQI0jJb2
+- [03:09 UTC - Don’t be this guy. https://t.co/jEIrBmsG88](2061283894020673747/)
+  - Source: https://x.com/DHSgov/status/2061283894020673747
+  - Don’t be this guy. https://t.co/jEIrBmsG88
+- [02:37 UTC - If you riot, you will face the consequences. Law and order prevails.](2061275930367041606/)
+  - Source: https://x.com/DHSgov/status/2061275930367041606
+  - If you riot, you will face the consequences. Law and order prevails.
+- [02:32 UTC - ZERO tolerance for rioters. https://t.co/PlihmyVEJh](2061274651154637086/)
+  - Source: https://x.com/DHSgov/status/2061274651154637086
+  - ZERO tolerance for rioters. https://t.co/PlihmyVEJh
+- [02:15 UTC - LAW AND ORDER.](2061270471883014549/)
+  - Source: https://x.com/DHSgov/status/2061270471883014549
+  - LAW AND ORDER.
+- [02:03 UTC - Arrests are MOUNTING.](2061267321331605664/)
+  - Source: https://x.com/DHSgov/status/2061267321331605664
+  - Arrests are MOUNTING.
+- [01:29 UTC - Rioter ARRESTED. https://t.co/hekiOafov8](2061258715995554157/)
+  - Source: https://x.com/DHSgov/status/2061258715995554157
+  - Rioter ARRESTED. https://t.co/hekiOafov8
+- [00:31 UTC - Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. ...](2061244235328659787/)
+  - Source: https://x.com/DHSgov/status/2061244235328659787
+  - Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. https://t.co/DNWDERKKXD
