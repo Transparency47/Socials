@@ -1,0 +1,52 @@
+# X / DHSgov / 2026-05-21
+
+- Posts: 16
+
+- [22:29 UTC - .@HSI_HQ’s apprehension of Lastres Morera delivers a powerful message that this administra...](2057589747304788207/)
+  - Source: https://x.com/DHSgov/status/2057589747304788207
+  - .@HSI_HQ’s apprehension of Lastres Morera delivers a powerful message that this administration can take prompt action to defend our homeland, safeguard our foreign policy interests...
+- [22:27 UTC - Repost of @HSI_HQ: 🚨 BREAKING: Today, HSI successfully apprehended Adys Lastres Morera, an...](2057589172781650271/)
+  - Source: https://x.com/DHSgov/status/2057589172781650271
+  - Repost of @HSI_HQ: 🚨 BREAKING: Today, HSI successfully apprehended Adys Lastres Morera, an alien from Cuba in lawful permanent resident status, after @SecRubio issued a determinati...
+- [22:03 UTC - “Nothing matters more to the future of this Nation than insuring that our young men and wo...](2057583078134956373/)
+  - Source: https://x.com/DHSgov/status/2057583078134956373
+  - “Nothing matters more to the future of this Nation than insuring that our young men and women learn to believe in themselves and believe in their dreams." – President Richard M. Ni...
+- [21:36 UTC - From day one, @ICEgov has been delivering on @POTUS Trump’s promise to the American people...](2057576360101462422/)
+  - Source: https://x.com/DHSgov/status/2057576360101462422
+  - From day one, @ICEgov has been delivering on @POTUS Trump’s promise to the American people to arrest and deport the worst of the worst. Yesterday, ICE arrested criminal illegal ali...
+- [21:17 UTC - Repost of @fema: 🚨 Fraud is never acceptable. FEMA disaster funds are for survivors, NOT p...](2057571405030363402/)
+  - Source: https://x.com/DHSgov/status/2057571405030363402
+  - Repost of @fema: 🚨 Fraud is never acceptable. FEMA disaster funds are for survivors, NOT personal gain. Stealing disaster relief funds is a crime—period. Under @POTUS , @VP and @Se...
+- [20:06 UTC - While Governor Spanberger fights to protect criminal illegal aliens, DHS will continue wor...](2057553543213568126/)
+  - Source: https://x.com/DHSgov/status/2057553543213568126
+  - While Governor Spanberger fights to protect criminal illegal aliens, DHS will continue working every day to keep the American people SAFE. These are just a few of the MONSTERS our...
+- [19:52 UTC - It is gross that the state of Colorado is actively weaponizing official law enforcement bu...](2057549992638779641/)
+  - Source: https://x.com/DHSgov/status/2057549992638779641
+  - It is gross that the state of Colorado is actively weaponizing official law enforcement bulletins to promote dangerous anti-ICE conspiracy theories. Comparing recruitment efforts a...
+- [18:39 UTC - 🚨TWO PEOPLE KILLED BY AN ILLEGAL ALIEN SEMI-TRUCK DRIVER. Manvir Singh, a criminal illegal...](2057531744681693281/)
+  - Source: https://x.com/DHSgov/status/2057531744681693281
+  - 🚨TWO PEOPLE KILLED BY AN ILLEGAL ALIEN SEMI-TRUCK DRIVER. Manvir Singh, a criminal illegal alien from India, veered off the road, hit a guardrail and triggered a crash that killed...
+- [17:31 UTC - FRANKLIN COUNTY, VIRGINIA: @GovernorVA must NOT RELEASE this criminal illegal PEDOPHILE. J...](2057514755649060903/)
+  - Source: https://x.com/DHSgov/status/2057514755649060903
+  - FRANKLIN COUNTY, VIRGINIA: @GovernorVA must NOT RELEASE this criminal illegal PEDOPHILE. Jorge Enrique Garcia-Rodriguez, an illegal alien from Mexico, has been charged with forcibl...
+- [16:47 UTC - Repost of @EROPhiladelphia: On May 19, while executing a search warrant, @EROPhiladelphia,...](2057503522015351230/)
+  - Source: https://x.com/DHSgov/status/2057503522015351230
+  - Repost of @EROPhiladelphia: On May 19, while executing a search warrant, @EROPhiladelphia, @USMS_Philly and @FBIPhiladelphia arrested Gilberto Martinez Geronimo, a criminal illegal...
+- [16:47 UTC - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Luis Angel Sanchez-Velasco, an illegal...](2057503509986099674/)
+  - Source: https://x.com/DHSgov/status/2057503509986099674
+  - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Luis Angel Sanchez-Velasco, an illegal alien from Mexico 🇲🇽 💥Criminal history includes a conviction for statutory rape in Hattie...
+- [16:47 UTC - Repost of @ERODenver: ICE Denver arrested Erick Ponciano-Martinez a criminal alien from Me...](2057503499894571042/)
+  - Source: https://x.com/DHSgov/status/2057503499894571042
+  - Repost of @ERODenver: ICE Denver arrested Erick Ponciano-Martinez a criminal alien from Mexico. He has pending charges for DUI, driving without a license or insurance. He will be h...
+- [15:44 UTC - SANCTUARY CALIFORNIA: @ICEgov is calling on @GovernorCA and California sanctuary politicia...](2057487749960131006/)
+  - Source: https://x.com/DHSgov/status/2057487749960131006
+  - SANCTUARY CALIFORNIA: @ICEgov is calling on @GovernorCA and California sanctuary politicians to NOT RELEASE this criminal illegal alien truck driver who KILLED TWO PEOPLE. Manvir S...
+- [14:50 UTC - This NEVER should have happened. Criminal illegal alien Manvir Singh was behind the wheel ...](2057474055930798369/)
+  - Source: https://x.com/DHSgov/status/2057474055930798369
+  - This NEVER should have happened. Criminal illegal alien Manvir Singh was behind the wheel of a semi-truck when he caused a crash that KILLED two innocent people. This is ANOTHER ex...
+- [14:23 UTC - https://t.co/9Z1LOHSlnU](2057467404590969089/)
+  - Source: https://x.com/DHSgov/status/2057467404590969089
+  - https://t.co/9Z1LOHSlnU
+- [04:08 UTC - Repost of @DHSgov: Americans are the inheritors of the most incredible civilization that h...](2057312490866819373/)
+  - Source: https://x.com/DHSgov/status/2057312490866819373
+  - Repost of @DHSgov: Americans are the inheritors of the most incredible civilization that has ever existed. Our job is to defend it. https://t.co/POk7vLxRc7

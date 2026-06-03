@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-22
 
-- Posts: 3
+- Posts: 22
 
 - [23:09 UTC - This is the Biden Administration’s legacy. Never forget what they did to our country.](2057962022193492042/)
   - Source: https://x.com/DHSgov/status/2057962022193492042
@@ -11,3 +11,60 @@
 - [21:21 UTC - "No family should have to become experts in immigration failures, release policies, warran...](2057934934292005125/)
   - Source: https://x.com/DHSgov/status/2057934934292005125
   - "No family should have to become experts in immigration failures, release policies, warrants, sanctuary laws, and enforcement breakdowns because their daughter was killed by someon...
+- [21:14 UTC - Repost of @RapidResponse47: Remembering Sheridan Gorman ❤️ https://t.co/lCCrxtg7IH](2057933179973964282/)
+  - Source: https://x.com/DHSgov/status/2057933179973964282
+  - Repost of @RapidResponse47: Remembering Sheridan Gorman ❤️ https://t.co/lCCrxtg7IH
+- [21:11 UTC - “Her life was stolen by a man who should have never been in this country…no family should ...](2057932423157924213/)
+  - Source: https://x.com/DHSgov/status/2057932423157924213
+  - “Her life was stolen by a man who should have never been in this country…no family should ever have to bury a child because public officials failed to put innocent American lives f...
+- [20:41 UTC - If you come to our country illegally and break our laws, we will find you, arrest you, and...](2057924733996290472/)
+  - Source: https://x.com/DHSgov/status/2057924733996290472
+  - If you come to our country illegally and break our laws, we will find you, arrest you, and you will NEVER return. Yesterday, the courageous men and women of @ICEgov were hard at wo...
+- [20:33 UTC - Yes — it’s commonsense 🇺🇸](2057922939215872238/)
+  - Source: https://x.com/DHSgov/status/2057922939215872238
+  - Yes — it’s commonsense 🇺🇸
+- [19:30 UTC - Repost of @USCG: Always ready for the call, on and off the pitch. From protecting waterfro...](2057906941481898312/)
+  - Source: https://x.com/DHSgov/status/2057906941481898312
+  - Repost of @USCG: Always ready for the call, on and off the pitch. From protecting waterfront stadiums to interdicting illicit activity, the Coast Guard is layering maritime securit...
+- [19:20 UTC - Repost of @DHSgov: WATCH: SMUGGLING ATTEMPT STOPPED. @CBPAMO, Border Patrol, and @HSI_HQ i...](2057904378724421982/)
+  - Source: https://x.com/DHSgov/status/2057904378724421982
+  - Repost of @DHSgov: WATCH: SMUGGLING ATTEMPT STOPPED. @CBPAMO, Border Patrol, and @HSI_HQ intercepted a vessel off the coast of Puerto Rico transporting 64 migrants. The aliens, 58...
+- [18:51 UTC - It’s a love story, baby, just say “ICE” Meet Michell Chase and Timothy Stone, a married @I...](2057897276920520843/)
+  - Source: https://x.com/DHSgov/status/2057897276920520843
+  - It’s a love story, baby, just say “ICE” Meet Michell Chase and Timothy Stone, a married @ICEgov couple who met in 2019 while working in Domestic Operations. Both are lifelong law e...
+- [18:05 UTC - Repost of @USCG: “It’s one team, one fight.” On Tuesday, @SecWar visited @USCG HQ, the 1st...](2057885588003385790/)
+  - Source: https://x.com/DHSgov/status/2057885588003385790
+  - Repost of @USCG: “It’s one team, one fight.” On Tuesday, @SecWar visited @USCG HQ, the 1st such visit by a Secretary of War in our 236-year history. Alongside @SecMullinDHS, Secret...
+- [17:57 UTC - The message from @GovKathyHochul and her fellow sanctuary politicians is clear: criminal i...](2057883513706143906/)
+  - Source: https://x.com/DHSgov/status/2057883513706143906
+  - The message from @GovKathyHochul and her fellow sanctuary politicians is clear: criminal illegal aliens are WELCOME in New York. These policies make New Yorkers less safe. These ar...
+- [17:35 UTC - Repost of @USCIS: USCIS is applying long-standing law and prior court decisions to require...](2057878012553527612/)
+  - Source: https://x.com/DHSgov/status/2057878012553527612
+  - Repost of @USCIS: USCIS is applying long-standing law and prior court decisions to require certain aliens with temporary visas who decide they want to permanently reside in the U.S...
+- [16:55 UTC - Repost of @RapidResponse47: .@zakahler: “From now on, an alien who is in the U.S. temporar...](2057868046799167619/)
+  - Source: https://x.com/DHSgov/status/2057868046799167619
+  - Repost of @RapidResponse47: .@zakahler: “From now on, an alien who is in the U.S. temporarily and wants a Green Card must return to their home country to apply, except in extraordi...
+- [16:50 UTC - WATCH: SMUGGLING ATTEMPT STOPPED. @CBPAMO, Border Patrol, and @HSI_HQ intercepted a vessel...](2057866733906501703/)
+  - Source: https://x.com/DHSgov/status/2057866733906501703
+  - WATCH: SMUGGLING ATTEMPT STOPPED. @CBPAMO, Border Patrol, and @HSI_HQ intercepted a vessel off the coast of Puerto Rico transporting 64 migrants. The aliens, 58 Dominican nationals...
+- [16:07 UTC - The Biden Administration unleashed unprecedented chaos on our nation. For four years, they...](2057855822219083815/)
+  - Source: https://x.com/DHSgov/status/2057855822219083815
+  - The Biden Administration unleashed unprecedented chaos on our nation. For four years, they allowed MILLIONS of illegal aliens, including violent criminals like this rapist, into ou...
+- [15:14 UTC - “There are many who loudly advocate for limitless immigration policies…Yet many of these s...](2057842538191421531/)
+  - Source: https://x.com/DHSgov/status/2057842538191421531
+  - “There are many who loudly advocate for limitless immigration policies…Yet many of these same voices will never personally suffer the consequences of the policies they promote. The...
+- [13:33 UTC - An alien who is in the U.S. temporarily and wants a Green Card must return to their home c...](2057817233200418837/)
+  - Source: https://x.com/DHSgov/status/2057817233200418837
+  - An alien who is in the U.S. temporarily and wants a Green Card must return to their home country to apply. This policy allows our immigration system to function as the law intended...
+- [12:50 UTC - .@ICEgov is working everyday to arrest violent, depraved criminals who NEVER should have b...](2057806363137327313/)
+  - Source: https://x.com/DHSgov/status/2057806363137327313
+  - .@ICEgov is working everyday to arrest violent, depraved criminals who NEVER should have been in our country in the first place. Under @POTUS Trump and @SecMullinDHS, we will conti...
+- [12:38 UTC - Repost of @WhiteHouse: "One of the most prestigious military academies anywhere in the wor...](2057803192197329030/)
+  - Source: https://x.com/DHSgov/status/2057803192197329030
+  - Repost of @WhiteHouse: "One of the most prestigious military academies anywhere in the world... God bless the Coast Guard Academy, the class of 2026, God bless the United States mi...
+- [00:35 UTC - Repost of @SecMullinDHS: It was a pleasure meeting with @Claudiashein and @USAmbMex today....](2057621406616092801/)
+  - Source: https://x.com/DHSgov/status/2057621406616092801
+  - Repost of @SecMullinDHS: It was a pleasure meeting with @Claudiashein and @USAmbMex today. We discussed key U.S. priorities, including: ➡️Strengthening Mexico’s efforts against nar...
+- [00:12 UTC - CHILD RAPIST SENTENCED: Brayanne Escobar-Guarnizo, an illegal alien RELEASED into the U.S....](2057615567662539054/)
+  - Source: https://x.com/DHSgov/status/2057615567662539054
+  - CHILD RAPIST SENTENCED: Brayanne Escobar-Guarnizo, an illegal alien RELEASED into the U.S. by the Biden administration, has been sentenced to 25 years in prison for RAPING AND IMPR...

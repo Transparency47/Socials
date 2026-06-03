@@ -1,0 +1,46 @@
+# X / DHSgov / 2026-05-20
+
+- Posts: 14
+
+- [23:49 UTC - Repost of @SecMullinDHS: Today, I had the privilege of joining @POTUS Trump at the @USCGAc...](2057247403195908523/)
+  - Source: https://x.com/DHSgov/status/2057247403195908523
+  - Repost of @SecMullinDHS: Today, I had the privilege of joining @POTUS Trump at the @USCGAcademy graduation as we paid tribute to the 2026 class of cadets. These men and women are h...
+- [23:36 UTC - Repost of @SecMullinDHS: Today, @POTUS Trump and I honored the @USCG Academy 2026 graduati...](2057244120301596711/)
+  - Source: https://x.com/DHSgov/status/2057244120301596711
+  - Repost of @SecMullinDHS: Today, @POTUS Trump and I honored the @USCG Academy 2026 graduating class of cadets. These men and women embody the best of America — a selfless commitment...
+- [22:22 UTC - Americans are the inheritors of the most incredible civilization that has ever existed. Ou...](2057225541757903141/)
+  - Source: https://x.com/DHSgov/status/2057225541757903141
+  - Americans are the inheritors of the most incredible civilization that has ever existed. Our job is to defend it. https://t.co/POk7vLxRc7
+- [22:18 UTC - LOS ANGELES, CALIFORNIA: A criminal illegal alien arrested by @HSILosAngeles for producing...](2057224521547944038/)
+  - Source: https://x.com/DHSgov/status/2057224521547944038
+  - LOS ANGELES, CALIFORNIA: A criminal illegal alien arrested by @HSILosAngeles for producing and possessing child pornography has been SENTENCED to 50 years in prison. The illegal al...
+- [22:12 UTC - Every day, our @ICEgov law enforcement officers are out on the street arresting criminal i...](2057222863996768369/)
+  - Source: https://x.com/DHSgov/status/2057222863996768369
+  - Every day, our @ICEgov law enforcement officers are out on the street arresting criminal illegal aliens. Yesterday, these brave men and women arrested murderers, child rapists, coc...
+- [21:30 UTC - Repost of @SecMullinDHS: No surprise: Governor Spanberger continues to put illegal alien c...](2057212411275317437/)
+  - Source: https://x.com/DHSgov/status/2057212411275317437
+  - Repost of @SecMullinDHS: No surprise: Governor Spanberger continues to put illegal alien criminals over her own constituents.
+- [19:42 UTC - Repost of @WhiteHouse: KIND REMINDER: If you’re here illegally, please self-deport via the...](2057185204859498824/)
+  - Source: https://x.com/DHSgov/status/2057185204859498824
+  - Repost of @WhiteHouse: KIND REMINDER: If you’re here illegally, please self-deport via the CBP Home App &amp; get a free trip home. 🤗
+- [19:32 UTC - This illegal alien PREDATOR was RELEASED into our nation by the Biden administration. Than...](2057182656731689171/)
+  - Source: https://x.com/DHSgov/status/2057182656731689171
+  - This illegal alien PREDATOR was RELEASED into our nation by the Biden administration. Thanks to the heroic men and women of @ICEgov, he will NEVER be able to victimize another inno...
+- [19:04 UTC - As ICE and our Florida Highway Patrol partners were arresting one illegal alien, ANOTHER i...](2057175596933812513/)
+  - Source: https://x.com/DHSgov/status/2057175596933812513
+  - As ICE and our Florida Highway Patrol partners were arresting one illegal alien, ANOTHER illegal alien crashed right next to them — and was swiftly apprehended. Partnerships like t...
+- [18:20 UTC - This illegal alien MONSTER hit a child with his car — and California sanctuary politicians...](2057164473455026370/)
+  - Source: https://x.com/DHSgov/status/2057164473455026370
+  - This illegal alien MONSTER hit a child with his car — and California sanctuary politicians RELEASED HIM. @CAgovernor and his fellow sanctuary politicians must STOP putting American...
+- [17:55 UTC - .@USCG Commandant Admiral Lunday at @USCGAcademy: “You will serve at a time of historic co...](2057158238827671610/)
+  - Source: https://x.com/DHSgov/status/2057158238827671610
+  - .@USCG Commandant Admiral Lunday at @USCGAcademy: “You will serve at a time of historic consequence. The maritime domain is more complex, contested, and more vital to American secu...
+- [16:26 UTC - .@SecMullinDHS at the @USCGAcademy: “You’re the one percent that will stand up and defend ...](2057135862350045480/)
+  - Source: https://x.com/DHSgov/status/2057135862350045480
+  - .@SecMullinDHS at the @USCGAcademy: “You’re the one percent that will stand up and defend our freedoms, defend our Constitution, you defend our homeland, you defend our nation.” ht...
+- [15:54 UTC - Repost of @RapidResponse47: .@SecMullinDHS introduces @POTUS at the @USCGAcademy: "You're ...](2057127753065923006/)
+  - Source: https://x.com/DHSgov/status/2057127753065923006
+  - Repost of @RapidResponse47: .@SecMullinDHS introduces @POTUS at the @USCGAcademy: "You're our first line of defense to protecting the homeland, and our president, our Commander-in-...
+- [15:43 UTC - Repost of @MargoMartin47: .@SecMullinDHS arrives to the United States Coast Guard Academy ...](2057125065397784877/)
+  - Source: https://x.com/DHSgov/status/2057125065397784877
+  - Repost of @MargoMartin47: .@SecMullinDHS arrives to the United States Coast Guard Academy 🇺🇸 https://t.co/vEmKkVoXZy
