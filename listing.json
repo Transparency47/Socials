@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-03T01:27:38.446233+00:00",
+  "generatedAt": "2026-06-03T01:29:24.702759+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -31921,6 +31921,40 @@
       "title": "\ud83d\udea8DALLAS: @ICEgov is asking local authorities to NOT RELEASE Luis Benitez-Gonzalez, a crimi..."
     },
     {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:ce708bed2ed6d266",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.382331+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054630788474277888.mp4",
+            "remotePath": "archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054630788474277888/vid/avc1/1280x720/JDcjPyKe1DCEA3In.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054630788474277888.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054630843616735650"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054630843616735650/README.md",
+      "path": "X/DHSgov/2026/05/13/2054630843616735650/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054630843616735650",
+      "summary": "\u201cLove the people, love the call.\u201d @SecMullinDHS",
+      "title": "\u201cLove the people, love the call.\u201d @SecMullinDHS Thank you @ICEgov law enforcement officers..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-05-13",
       "id": "socials:1f48ada6d6345591",
@@ -31955,6 +31989,40 @@
       "title": "scariest"
     },
     {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:9113a351029d29ad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.382178+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054640055507918848.mp4",
+            "remotePath": "archive/x/dhsgov/HIOMPpnWoAASl8G.mp4",
+            "sourceUrl": "https://video.twimg.com/tweet_video/HIOMPpnWoAASl8G.mp4",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIOMPpnWoAASl8G.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054640055507918848.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIOMPpnWoAASl8G.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054640061564567942"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054640061564567942/README.md",
+      "path": "X/DHSgov/2026/05/13/2054640061564567942/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054640061564567942",
+      "summary": "https://t.co/IW4sr10Kde",
+      "title": "https://t.co/IW4sr10Kde"
+    },
+    {
       "category": "TikTok",
       "date": "2026-05-13",
       "id": "socials:6d356c863fd86eb3",
@@ -31987,6 +32055,28 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7639374568037092622",
       "summary": "Wheels down in Beijing!",
       "title": "Wheels down in Beijing!"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:6c1a642516f6007a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.382578+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054614881651896762"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054614881651896762/README.md",
+      "path": "X/DHSgov/2026/05/13/2054614881651896762/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054614881651896762",
+      "summary": "WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https://t.co/ZDIpQXknA7",
+      "title": "WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https://t.co/ZDIpQXknA7"
     },
     {
       "category": "YouTube",
@@ -32455,6 +32545,108 @@
     {
       "category": "X",
       "date": "2026-05-13",
+      "id": "socials:dd5339a62c190044",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.382040+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054643567981682688.mp4",
+            "remotePath": "archive/x/dhsgov/x34hlY5uR9Cd2fvL.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054643567981682688/vid/avc1/960x540/x34hlY5uR9Cd2fvL.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/x34hlY5uR9Cd2fvL.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054643567981682688.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/x34hlY5uR9Cd2fvL.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054643620188459432"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054643620188459432/README.md",
+      "path": "X/DHSgov/2026/05/13/2054643620188459432/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054643620188459432",
+      "summary": "Sanctuary Virginia continues to be a HOTBED for illegal alien crime.",
+      "title": "Sanctuary Virginia continues to be a HOTBED for illegal alien crime. Just this month, @ICE..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:01c6c2ac493bc560",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:27:00.382904+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054605557844045825.jpg",
+            "remotePath": "archive/x/dhsgov/HINs3nzWcAElx7p.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINs3nzWcAElx7p.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HINs3nzWcAElx7p.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054605557844045825.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HINs3nzWcAElx7p.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054609325331497326"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054609325331497326/README.md",
+      "path": "X/DHSgov/2026/05/13/2054609325331497326/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054609325331497326",
+      "summary": "Repost of @USCG:",
+      "title": "Repost of @USCG: This #NationalPoliceWeek, the #USCG honors all federal, state, local, & t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:4c0260f69cd54e3b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:27:00.381820+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054655523664900096.mp4",
+            "remotePath": "archive/x/dhsgov/XXvEr6_fnoRodbGN.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054655523664900096/vid/avc1/2160x3840/XXvEr6_fnoRodbGN.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/XXvEr6_fnoRodbGN.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054655523664900096.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/XXvEr6_fnoRodbGN.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054657159997087909"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054657159997087909/README.md",
+      "path": "X/DHSgov/2026/05/13/2054657159997087909/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054657159997087909",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: We are 30 days out from @FIFAWorldCup. \u26bd\ufe0f\ud83c\udfc6 \u00a0 Earlier this week, m..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
       "id": "socials:7cbdc712941f20a5",
       "kind": "social_post",
       "metadata": {
@@ -32512,6 +32704,28 @@
       "sourceUrl": "https://x.com/DHSgov/status/2054702358018289830",
       "summary": "Repost of @SecMullinDHS:",
       "title": "Repost of @SecMullinDHS: Today, we honored the @ICEgov law enforcement personnel who made ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:920bd6db773058e7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:27:00.382750+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054614010499117111"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054614010499117111/README.md",
+      "path": "X/DHSgov/2026/05/13/2054614010499117111/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054614010499117111",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: https://t.co/scuOhl4xmY"
     },
     {
       "category": "X",
@@ -32640,6 +32854,62 @@
     {
       "category": "X",
       "date": "2026-05-13",
+      "id": "socials:400cf087006dff16",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:29:03.512309+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054592485922336768.mp4",
+            "remotePath": "archive/x/dhsgov/UAuS250hHJQ_ouL5.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054592485922336768/vid/avc1/1152x648/UAuS250hHJQ_ouL5.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/UAuS250hHJQ_ouL5.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054592485922336768.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/UAuS250hHJQ_ouL5.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054592561654775997"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054592561654775997/README.md",
+      "path": "X/DHSgov/2026/05/13/2054592561654775997/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054592561654775997",
+      "summary": "HEROES IN ACTION.",
+      "title": "HEROES IN ACTION. After a plane crashed off the coast of Melbourne, Florida, the heroic me..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:60428942c55d5aa1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:29:03.513412+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054584655928516861"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054584655928516861/README.md",
+      "path": "X/DHSgov/2026/05/13/2054584655928516861/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054584655928516861",
+      "summary": "FACT CHECK: @ICEgov has placed a detainer on Cleon Ortille Williams, a criminal illegal alien from Jamaica.",
+      "title": "FACT CHECK: @ICEgov has placed a detainer on Cleon Ortille Williams, a criminal illegal al..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
       "id": "socials:423254756e527c30",
       "kind": "social_post",
       "metadata": {
@@ -32680,6 +32950,74 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116565066757116256",
       "summary": "CNBC incorrectly reported that the Great Jensen Huang, of Nvidia, was not invited to the incredible gathering of the World\u2019s Greatest Businessmen/women proudly going to China. In actuality, Jensen is currently on Air Force One and, unless I ask him to leave, which is highly unlik",
       "title": "CNBC incorrectly reported that the Great Jensen Huang, of Nvidia, was not invited to the i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:25950c4e15af2d74",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:29:03.512852+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054586342705672192.jpg",
+            "remotePath": "archive/x/dhsgov/HINbZJ1XMAA8Zbk.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINbZJ1XMAA8Zbk.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HINbZJ1XMAA8Zbk.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054586342705672192.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HINbZJ1XMAA8Zbk.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054586345268404674"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054586345268404674/README.md",
+      "path": "X/DHSgov/2026/05/13/2054586345268404674/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054586345268404674",
+      "summary": ".@ICEgov has ARRESTED Dinh Quy Nguyen, a criminal illegal alien from Vietnam, who was convicted of attempted murder of a POLICE OFFICER in 1989.",
+      "title": ".@ICEgov has ARRESTED Dinh Quy Nguyen, a criminal illegal alien from Vietnam, who was conv..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:bafa142d6e9281fa",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.382468+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054630588963778560.mp4",
+            "remotePath": "archive/x/dhsgov/kg2E26haXGKH7tzo.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054630588963778560/vid/avc1/1280x720/kg2E26haXGKH7tzo.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/kg2E26haXGKH7tzo.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054630588963778560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/kg2E26haXGKH7tzo.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054630646715171293"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054630646715171293/README.md",
+      "path": "X/DHSgov/2026/05/13/2054630646715171293/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054630646715171293",
+      "summary": "\"There isn't one single law enforcement agent or officer out there that doesn't have family that loves them... They want them to come home, but they also know that the duty that they swore to do was to make sure that everybody else gets home first.\" @SecMullinDHS https://t.co/znk",
+      "title": "\"There isn't one single law enforcement agent or officer out there that doesn't have famil..."
     },
     {
       "category": "TruthSocial",

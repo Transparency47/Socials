@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-13
 
-- Posts: 5
+- Posts: 17
 
 - [23:16 UTC - Repost of @SecMullinDHS: Today, we honored the @ICEgov law enforcement personnel who made ...](2054702358018289830/)
   - Source: https://x.com/DHSgov/status/2054702358018289830
@@ -17,3 +17,39 @@
 - [20:27 UTC - During Police Week, we’re highlighting some of the worst of the worst @ICEgov law enforcem...](2054659942695809489/)
   - Source: https://x.com/DHSgov/status/2054659942695809489
   - During Police Week, we’re highlighting some of the worst of the worst @ICEgov law enforcement arrested. This week, the men and women of ICE arrested multiple criminal aliens convic...
+- [20:16 UTC - Repost of @SecMullinDHS: We are 30 days out from @FIFAWorldCup. ⚽️🏆   Earlier this week, m...](2054657159997087909/)
+  - Source: https://x.com/DHSgov/status/2054657159997087909
+  - Repost of @SecMullinDHS: We are 30 days out from @FIFAWorldCup. ⚽️🏆 Earlier this week, myself and @AndrewHGiuliani, Executive Director of @WHTaskForceFIFA, had the privilege of wel...
+- [19:23 UTC - Sanctuary Virginia continues to be a HOTBED for illegal alien crime. Just this month, @ICE...](2054643620188459432/)
+  - Source: https://x.com/DHSgov/status/2054643620188459432
+  - Sanctuary Virginia continues to be a HOTBED for illegal alien crime. Just this month, @ICEgov arrested a criminal illegal alien DRUG TRAFFICKER in Newport News. Criminal illegal al...
+- [19:08 UTC - https://t.co/IW4sr10Kde](2054640061564567942/)
+  - Source: https://x.com/DHSgov/status/2054640061564567942
+  - https://t.co/IW4sr10Kde
+- [18:32 UTC - “Love the people, love the call.” @SecMullinDHS Thank you @ICEgov law enforcement officers...](2054630843616735650/)
+  - Source: https://x.com/DHSgov/status/2054630843616735650
+  - “Love the people, love the call.” @SecMullinDHS Thank you @ICEgov law enforcement officers for risking your lives every single day to make our communities safer. https://t.co/R0R8u...
+- [18:31 UTC - "There isn't one single law enforcement agent or officer out there that doesn't have famil...](2054630646715171293/)
+  - Source: https://x.com/DHSgov/status/2054630646715171293
+  - "There isn't one single law enforcement agent or officer out there that doesn't have family that loves them... They want them to come home, but they also know that the duty that th...
+- [17:28 UTC - WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https://t.co/ZDIpQXknA7](2054614881651896762/)
+  - Source: https://x.com/DHSgov/status/2054614881651896762
+  - WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https://t.co/ZDIpQXknA7
+- [17:25 UTC - Repost of @ICEgov: https://t.co/scuOhl4xmY](2054614010499117111/)
+  - Source: https://x.com/DHSgov/status/2054614010499117111
+  - Repost of @ICEgov: https://t.co/scuOhl4xmY
+- [17:06 UTC - Repost of @USCG: This #NationalPoliceWeek, the #USCG honors all federal, state, local, & t...](2054609325331497326/)
+  - Source: https://x.com/DHSgov/status/2054609325331497326
+  - Repost of @USCG: This #NationalPoliceWeek, the #USCG honors all federal, state, local, & tribal law enforcement officers who keep our communities safe. We proudly serve alongside y...
+- [16:00 UTC - HEROES IN ACTION. After a plane crashed off the coast of Melbourne, Florida, the heroic me...](2054592561654775997/)
+  - Source: https://x.com/DHSgov/status/2054592561654775997
+  - HEROES IN ACTION. After a plane crashed off the coast of Melbourne, Florida, the heroic men and women of @USCGSoutheast RESCUED all 11 people onboard. Thank you to these heroes and...
+- [15:35 UTC - .@ICEgov has ARRESTED Dinh Quy Nguyen, a criminal illegal alien from Vietnam, who was conv...](2054586345268404674/)
+  - Source: https://x.com/DHSgov/status/2054586345268404674
+  - .@ICEgov has ARRESTED Dinh Quy Nguyen, a criminal illegal alien from Vietnam, who was convicted of attempted murder of a POLICE OFFICER in 1989. After being taken into ICE custody...
+- [15:28 UTC - FACT CHECK: @ICEgov has placed a detainer on Cleon Ortille Williams, a criminal illegal al...](2054584655928516861/)
+  - Source: https://x.com/DHSgov/status/2054584655928516861
+  - FACT CHECK: @ICEgov has placed a detainer on Cleon Ortille Williams, a criminal illegal alien from Jamaica. His EXTENSIVE criminal history includes convictions for trafficking in c...
+- [14:16 UTC - If you enter the United States illegally, you will face the consequences, including FINES....](2054566389172568302/)
+  - Source: https://x.com/DHSgov/status/2054566389172568302
+  - If you enter the United States illegally, you will face the consequences, including FINES. These fines include: ➡️$100-$500 for unlawful entry or attempted entry ➡️$1,992 to $9,970...
