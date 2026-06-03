@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-20
 
-- Posts: 19
+- Posts: 20
 
 - [23:49 UTC - Repost of @SecMullinDHS: Today, I had the privilege of joining @POTUS Trump at the @USCGAc...](2057247403195908523/)
   - Source: https://x.com/DHSgov/status/2057247403195908523
@@ -59,3 +59,6 @@
 - [13:33 UTC - “That murder was absolutely preventable.” — Fairfax County Police Chief Kevin Davis on the...](2057092404990169173/)
   - Source: https://x.com/DHSgov/status/2057092404990169173
   - “That murder was absolutely preventable.” — Fairfax County Police Chief Kevin Davis on the murder of Stephanie Minter by illegal alien Abdul Jalloh. Stephanie Minter would still be...
+- [00:25 UTC - God has blessed us to call the greatest nation in history home. We must fight for America....](2056894104106086877/)
+  - Source: https://x.com/DHSgov/status/2056894104106086877
+  - God has blessed us to call the greatest nation in history home. We must fight for America. https://t.co/WxGQuVq9VV
