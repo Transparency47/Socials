@@ -1,6 +1,6 @@
 # Social Media - Mirror
 
-This repository is a read-only mirror of public posts from configured social media accounts. It is part of the Restoring American Sovereignty Project and exists to preserve source material in a structured local archive.
+This repository is a read-only mirror of public posts from configured social media accounts. It is part of Citizens for Government Transparency and exists to preserve source material in a structured local archive.
 
 The archive is organized by platform, account, publication date, and source post ID:
 
