@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-03T01:18:30.723781+00:00",
+  "generatedAt": "2026-06-03T01:20:01.354438+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -23452,6 +23452,40 @@
       "title": ".@SecMullinDHS at the @USCGAcademy: \u201cYou\u2019re the one percent that will stand up and defend ..."
     },
     {
+      "category": "X",
+      "date": "2026-05-19",
+      "id": "socials:4583db9569335c42",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:18:43.565022+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2056549960791818240.mp4",
+            "remotePath": "archive/x/dhsgov/3V5ldrio9WZoq4O4.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2056549960791818240/vid/avc1/640x360/3V5ldrio9WZoq4O4.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/3V5ldrio9WZoq4O4.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2056549960791818240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/3V5ldrio9WZoq4O4.mp4"
+        ],
+        "platform": "X",
+        "postId": "2056550038382264408"
+      },
+      "metadataPath": "X/DHSgov/2026/05/19/2056550038382264408/README.md",
+      "path": "X/DHSgov/2026/05/19/2056550038382264408/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056550038382264408",
+      "summary": "\u201cEvery single day, Sean, I get a report of criminals that were convicted and released by sanctuary cities and sanctuary states. They were rapists, they were child molesters, they were murderers, they were drug dealers.\u201d @SecMullinDHS",
+      "title": "\u201cEvery single day, Sean, I get a report of criminals that were convicted and released by s..."
+    },
+    {
       "category": "TikTok",
       "date": "2026-05-19",
       "id": "socials:28ce63ca2464c6cd",
@@ -23965,6 +23999,40 @@
     {
       "category": "X",
       "date": "2026-05-19",
+      "id": "socials:afd4de108973f2da",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:16:24.515751+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056752217747488768.jpg",
+            "remotePath": "archive/x/dhsgov/HIsNPrHWAAABhFK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIsNPrHWAAABhFK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIsNPrHWAAABhFK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056752217747488768.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIsNPrHWAAABhFK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056752220645802133"
+      },
+      "metadataPath": "X/DHSgov/2026/05/19/2056752220645802133/README.md",
+      "path": "X/DHSgov/2026/05/19/2056752220645802133/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056752220645802133",
+      "summary": "SECURING OUR BORDER.",
+      "title": "SECURING OUR BORDER. In April, illegal apprehensions were 94% LOWER than the daily average..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-19",
       "id": "socials:a6f662bd0ebeca6b",
       "kind": "social_post",
       "metadata": {
@@ -24029,6 +24097,40 @@
       "sourceUrl": "https://x.com/DHSgov/status/2056787959513321872",
       "summary": "Repost of @SecMullinDHS:",
       "title": "Repost of @SecMullinDHS: 7 out of the 10 safest cities cooperate with @ICEgov Sanctuary po..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-19",
+      "id": "socials:119de3c54ae51d55",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:18:43.564511+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2056747809756311552.mp4",
+            "remotePath": "archive/x/dhsgov/MC1ti-SOcwxRF6Xm.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2056747809756311552/pu/vid/avc1/720x1280/MC1ti-SOcwxRF6Xm.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/MC1ti-SOcwxRF6Xm.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2056747809756311552.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/MC1ti-SOcwxRF6Xm.mp4"
+        ],
+        "platform": "X",
+        "postId": "2056751073956647221"
+      },
+      "metadataPath": "X/DHSgov/2026/05/19/2056751073956647221/README.md",
+      "path": "X/DHSgov/2026/05/19/2056751073956647221/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056751073956647221",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: @ICEgov &amp; ICE @HSI_HQ will be working with local and federal partne..."
     },
     {
       "category": "X",
@@ -24446,6 +24548,40 @@
       "title": "HEARTBREAKING. A 9-year-old girl was killed after her mother, an illegal alien from Mexico..."
     },
     {
+      "category": "X",
+      "date": "2026-05-19",
+      "id": "socials:2d04d7898ba3843f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:18:43.564775+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2056739249798385664.mp4",
+            "remotePath": "archive/x/dhsgov/gzy5OEAhrprtP9H.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2056739249798385664/vid/avc1/960x540/-gzy5OEAhrprtP9H.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/gzy5OEAhrprtP9H.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2056739249798385664.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/gzy5OEAhrprtP9H.mp4"
+        ],
+        "platform": "X",
+        "postId": "2056739314046742587"
+      },
+      "metadataPath": "X/DHSgov/2026/05/19/2056739314046742587/README.md",
+      "path": "X/DHSgov/2026/05/19/2056739314046742587/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056739314046742587",
+      "summary": "DISGUSTING story out of Florida.",
+      "title": "DISGUSTING story out of Florida. This criminal illegal alien REPEATEDLY had sex with a 12-..."
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-19",
       "id": "socials:3de942d6d42a9666",
@@ -24466,6 +24602,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116603236399876536",
       "summary": "Can you imagine \u201cCongressman\u201d Thomas Massie putting out a many years ago Endorsement of him, by me, when he knows that he wasn\u2019t endorsed, but that I proudly endorsed Ed Gallrein? The reason is that Massie has turned out to be the Worst Congressman in the Republican Party. This s",
       "title": "Can you imagine \u201cCongressman\u201d Thomas Massie putting out a many years ago Endorsement of hi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-19",
+      "id": "socials:7e99ab3c4c62c69a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:18:43.564897+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2056735305617563650.mp4",
+            "remotePath": "archive/x/dhsgov/xbryA57333vpnpWb.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2056735305617563650/vid/avc1/640x360/xbryA57333vpnpWb.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/xbryA57333vpnpWb.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2056735305617563650.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/xbryA57333vpnpWb.mp4"
+        ],
+        "platform": "X",
+        "postId": "2056735360147730868"
+      },
+      "metadataPath": "X/DHSgov/2026/05/19/2056735360147730868/README.md",
+      "path": "X/DHSgov/2026/05/19/2056735360147730868/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056735360147730868",
+      "summary": "CALIFORNIA CAVE RESCUE.",
+      "title": "CALIFORNIA CAVE RESCUE. 8 people were rescued in Santa Cruz after they were trapped in a c..."
     },
     {
       "category": "X",
@@ -24578,6 +24748,28 @@
       "sourceUrl": "https://www.youtube.com/watch?v=REqL7qXJcIg",
       "summary": "- [00:03.410] Announcer: Ladies and gentlemen, please welcome - [00:05.770] the Vice President of the United States, JD Vance. - [00:10.810] (cheers and applause) - [00:26.075] \u266a (rock music playing) \u266a - [00:37.340] (cheers and applause) - [00:43.605] (Audience chants \"USA\") - [0",
       "title": "Vice President JD Vance Delivers Remarks in Kansas City, Missouri"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:2346e8987c684747",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:18:43.565143+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2056518009976414641"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056518009976414641/README.md",
+      "path": "X/DHSgov/2026/05/18/2056518009976414641/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056518009976414641",
+      "summary": "Under @POTUS Trump and @SecMullinDHS, ICE law enforcement never takes a day off \u2014 even during the weekends.",
+      "title": "Under @POTUS Trump and @SecMullinDHS, ICE law enforcement never takes a day off \u2014 even dur..."
     },
     {
       "category": "TruthSocial",
@@ -25150,6 +25342,40 @@
       "sourceUrl": "https://www.youtube.com/watch?v=qCf6OPSGvac",
       "summary": "- [00:03.690] Announcer: Ladies and gentlemen, - [00:05.190] the President of the United States, - [00:07.390] Donald J. Trump. - [00:10.180] (applause) - [00:16.250] The President: Well, thank you very much. - [00:17.670] It's great to be here on this very beautiful day. - [00:2",
       "title": "President Trump Participates in a Healthcare Affordability Event, May 18, 2026"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:3c83e308597b88fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.321688+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056503848223539200.jpg",
+            "remotePath": "archive/x/dhsgov/HIorWqiWgAA5GA9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIorWqiWgAA5GA9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIorWqiWgAA5GA9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056503848223539200.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIorWqiWgAA5GA9.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056503853022097427"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056503853022097427/README.md",
+      "path": "X/DHSgov/2026/05/18/2056503853022097427/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056503853022097427",
+      "summary": "MARTIN COUNTY, FLORIDA: @ICEgov is asking local authorities to NOT RELEASE an illegal alien monster who repeatedly sexually abused a 12-YEAR-OLD.",
+      "title": "MARTIN COUNTY, FLORIDA: @ICEgov is asking local authorities to NOT RELEASE an illegal alie..."
     },
     {
       "category": "YouTube",
@@ -26054,6 +26280,164 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116596787690387334",
       "summary": "Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG in 2016, 2020, and 2024! As Governor, Brad is fighting tirelessly to Champion Idaho Values, Promote our Great Farmers and Ranchers, Grow the Economy, Cut Taxes and Regulations, Keep our Bor",
       "title": "Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:ffaa3f118baccd4f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.321922+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056426307940958208.jpg",
+            "remotePath": "archive/x/dhsgov/HInk1OeWwAAmX0H.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HInk1OeWwAAmX0H.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HInk1OeWwAAmX0H.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056426307940958208.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HInk1OeWwAAmX0H.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056426310986015134"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056426310986015134/README.md",
+      "path": "X/DHSgov/2026/05/18/2056426310986015134/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056426310986015134",
+      "summary": "ATTICA, NEW YORK: @EROBuffalo has ARRESTED a criminal illegal MS-13 GANG MEMBER.",
+      "title": "ATTICA, NEW YORK: @EROBuffalo has ARRESTED a criminal illegal MS-13 GANG MEMBER. Josue Cor..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:19e922bc6804c036",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.322257+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2056372040022524244"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056372040022524244/README.md",
+      "path": "X/DHSgov/2026/05/18/2056372040022524244/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056372040022524244",
+      "summary": "AMERICA IS CLOSED TO LAWBREAKERS.",
+      "title": "AMERICA IS CLOSED TO LAWBREAKERS. If you enter our country illegally, you WILL face the co..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:2cf43c481bce6286",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.322041+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056396377861533696.jpg",
+            "remotePath": "archive/x/dhsgov/HInJnEPWMAAPLSJ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HInJnEPWMAAPLSJ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HInJnEPWMAAPLSJ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056396377861533696.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HInJnEPWMAAPLSJ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056396380847948104"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056396380847948104/README.md",
+      "path": "X/DHSgov/2026/05/18/2056396380847948104/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056396380847948104",
+      "summary": ".@ICEgov law enforcement put their lives on the line to remove CRIMINALS from our neighborhoods.",
+      "title": ".@ICEgov law enforcement put their lives on the line to remove CRIMINALS from our neighbor..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-18",
+      "id": "socials:0534b82be79cc002",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.322153+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056383729010929666.jpg",
+            "remotePath": "archive/x/dhsgov/HIm-GzmW8AIMZRJ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIm-GzmW8AIMZRJ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIm-GzmW8AIMZRJ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056383729010929666.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIm-GzmW8AIMZRJ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056383731833639305"
+      },
+      "metadataPath": "X/DHSgov/2026/05/18/2056383731833639305/README.md",
+      "path": "X/DHSgov/2026/05/18/2056383731833639305/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056383731833639305",
+      "summary": ".@CBP is keeping Americans SAFE.",
+      "title": ".@CBP is keeping Americans SAFE. In fiscal year 2026, agents seized enough lethal doses of..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-17",
+      "id": "socials:cbcf53d2b28fbb50",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:19:30.322359+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2056069692758913024.jpg",
+            "remotePath": "archive/x/dhsgov/HIigffZXcAAz9ek.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIigffZXcAAz9ek.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIigffZXcAAz9ek.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2056069692758913024.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIigffZXcAAz9ek.jpg"
+        ],
+        "platform": "X",
+        "postId": "2056069696663773611"
+      },
+      "metadataPath": "X/DHSgov/2026/05/17/2056069696663773611/README.md",
+      "path": "X/DHSgov/2026/05/17/2056069696663773611/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2056069696663773611",
+      "summary": "\u201cBut grow in grace, and in the knowledge of our Lord and Savior Jesus Christ. To him be the glory both now and forever. Amen.\u201d 2 Peter 3:18",
+      "title": "\u201cBut grow in grace, and in the knowledge of our Lord and Savior Jesus Christ. To him be th..."
     },
     {
       "category": "TruthSocial",

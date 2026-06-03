@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-19
 
-- Posts: 9
+- Posts: 13
 
 - [20:47 UTC - Under @POTUS Trump and @SecMullinDHS, ICE will continue to arrest and remove violent crimi...](2056839210108088454/)
   - Source: https://x.com/DHSgov/status/2056839210108088454
@@ -29,3 +29,15 @@
 - [15:01 UTC - SECURING OUR BORDER. In April, illegal apprehensions were 94% LOWER than the daily average...](2056752220645802133/)
   - Source: https://x.com/DHSgov/status/2056752220645802133
   - SECURING OUR BORDER. In April, illegal apprehensions were 94% LOWER than the daily average under the Biden Administration. Under @POTUS Trump and @SecMullinDHS, we’re enforcing our...
+- [14:57 UTC - Repost of @ICEgov: @ICEgov &amp; ICE @HSI_HQ will be working with local and federal partne...](2056751073956647221/)
+  - Source: https://x.com/DHSgov/status/2056751073956647221
+  - Repost of @ICEgov: @ICEgov &amp; ICE @HSI_HQ will be working with local and federal partners to secure the @FIFAWorldCup. They will play a pivotal role in combatting human traffick...
+- [14:10 UTC - DISGUSTING story out of Florida. This criminal illegal alien REPEATEDLY had sex with a 12-...](2056739314046742587/)
+  - Source: https://x.com/DHSgov/status/2056739314046742587
+  - DISGUSTING story out of Florida. This criminal illegal alien REPEATEDLY had sex with a 12-YEAR-OLD GIRL. He was into our nation by the Biden Administration — and now @ICEgov is mak...
+- [13:54 UTC - CALIFORNIA CAVE RESCUE. 8 people were rescued in Santa Cruz after they were trapped in a c...](2056735360147730868/)
+  - Source: https://x.com/DHSgov/status/2056735360147730868
+  - CALIFORNIA CAVE RESCUE. 8 people were rescued in Santa Cruz after they were trapped in a cave by rising tides. Thank you to the @USCG heroes who responded and helped airlift some o...
+- [01:38 UTC - “Every single day, Sean, I get a report of criminals that were convicted and released by s...](2056550038382264408/)
+  - Source: https://x.com/DHSgov/status/2056550038382264408
+  - “Every single day, Sean, I get a report of criminals that were convicted and released by sanctuary cities and sanctuary states. They were rapists, they were child molesters, they w...
