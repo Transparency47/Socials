@@ -1,0 +1,58 @@
+# X / WhiteHouse / 2026-05-29
+
+- Posts: 18
+
+- [20:38 UTC - Join the millions of Americans setting up their children for success. 📲 https://t.co/aaHh9...](2060460799194226693/)
+  - Source: https://x.com/WhiteHouse/status/2060460799194226693
+  - Join the millions of Americans setting up their children for success. 📲 https://t.co/aaHh9hPu7m 📲https://t.co/v6AOEgSnlG https://t.co/T0cVlZu23u
+- [20:10 UTC - Repost of @HHSGov: Today, HHS announced a major new multi-million-dollar pilot program tha...](2060453782853476409/)
+  - Source: https://x.com/WhiteHouse/status/2060453782853476409
+  - Repost of @HHSGov: Today, HHS announced a major new multi-million-dollar pilot program that has the potential to transform the prevention of Lyme disease and other tick-borne illne...
+- [19:44 UTC - Promises made, promises kept. LAW AND ORDER restored. https://t.co/0Qgg1wPleZ](2060447084130509076/)
+  - Source: https://x.com/WhiteHouse/status/2060447084130509076
+  - Promises made, promises kept. LAW AND ORDER restored. https://t.co/0Qgg1wPleZ
+- [19:14 UTC - Repost of @RapidResponse47: Los Angeles resident: https://t.co/BkAx0Ptc4C shows people tha...](2060439759118279103/)
+  - Source: https://x.com/WhiteHouse/status/2060439759118279103
+  - Repost of @RapidResponse47: Los Angeles resident: https://t.co/BkAx0Ptc4C shows people that ICE is doing the right thing by getting criminals out of their communities. https://t.co...
+- [19:02 UTC - Repost of @Interior: The fountains are flowing. The weather is perfect. ☀️   If you're in ...](2060436703404282095/)
+  - Source: https://x.com/WhiteHouse/status/2060436703404282095
+  - Repost of @Interior: The fountains are flowing. The weather is perfect. ☀️ If you're in Washington DC this weekend, get out and enjoy it. Historic fountains and public spaces acros...
+- [18:20 UTC - Repost of @USTradeRep: 📰 In the @IMFNews' Finance & Development Magazine, Ambassador Greer...](2060426098207228169/)
+  - Source: https://x.com/WhiteHouse/status/2060426098207228169
+  - Repost of @USTradeRep: 📰 In the @IMFNews' Finance & Development Magazine, Ambassador Greer calls for the economics profession to revisit its assumptions and develop models that cap...
+- [18:00 UTC - Repost of @USDOL: “The Working Families Tax Cuts are already paying off.” Acting Secretary...](2060420990882963911/)
+  - Source: https://x.com/WhiteHouse/status/2060420990882963911
+  - Repost of @USDOL: “The Working Families Tax Cuts are already paying off.” Acting Secretary @Sonderling47 joined @MatthewFoldi in Florida to discuss how @POTUS’ agenda is helping bu...
+- [16:27 UTC - THE FASTEST GROWING NON-AI APP 🚀 Download now to set your children up for success: 📲 https...](2060397541733159072/)
+  - Source: https://x.com/WhiteHouse/status/2060397541733159072
+  - THE FASTEST GROWING NON-AI APP 🚀 Download now to set your children up for success: 📲 https://t.co/aaHh9hPu7m 📲 https://t.co/v6AOEgSnlG https://t.co/IWBVu4UZcH
+- [14:58 UTC - "Iran must agree that they will never have a Nuclear Weapon or Bomb... I will be meeting n...](2060375230183333897/)
+  - Source: https://x.com/WhiteHouse/status/2060375230183333897
+  - "Iran must agree that they will never have a Nuclear Weapon or Bomb... I will be meeting now, in the Situation Room, to make a final determination." - President Donald J. Trump 🇺🇸...
+- [14:32 UTC - Transforming the future of America’s children, one Trump Account at a time. 🇺🇸 https://t.c...](2060368569464983894/)
+  - Source: https://x.com/WhiteHouse/status/2060368569464983894
+  - Transforming the future of America’s children, one Trump Account at a time. 🇺🇸 https://t.co/A8RFdEH5oQ
+- [14:03 UTC - Repost of @DHSgov: Strive valiantly, and know the triumph of great achievement. 🇺🇸 https:/...](2060361346529546288/)
+  - Source: https://x.com/WhiteHouse/status/2060361346529546288
+  - Repost of @DHSgov: Strive valiantly, and know the triumph of great achievement. 🇺🇸 https://t.co/ZEv6qpCcGn
+- [13:17 UTC - Repost of @JDVance: One of the problems we have in public policy is that wonks don’t give ...](2060349690353246462/)
+  - Source: https://x.com/WhiteHouse/status/2060349690353246462
+  - Repost of @JDVance: One of the problems we have in public policy is that wonks don’t give any consideration to how their ideas will collide with actual human behavior. Take our Tru...
+- [12:51 UTC - Repost of @DHSgov: Discover the truth. https://t.co/tXmV868uA8](2060343208593313888/)
+  - Source: https://x.com/WhiteHouse/status/2060343208593313888
+  - Repost of @DHSgov: Discover the truth. https://t.co/tXmV868uA8
+- [12:50 UTC - Repost of @usedgov: What a spell-tacular victory! 🐝 Congratulations to Shrey Parikh on win...](2060343040238043326/)
+  - Source: https://x.com/WhiteHouse/status/2060343040238043326
+  - Repost of @usedgov: What a spell-tacular victory! 🐝 Congratulations to Shrey Parikh on winning the 2026 Scripps National Spelling Bee. Your hard work, discipline, and love of learn...
+- [12:50 UTC - Repost of @SecWar: No better way to start the day than morning PT with America’s Sailors a...](2060343020210319785/)
+  - Source: https://x.com/WhiteHouse/status/2060343020210319785
+  - Repost of @SecWar: No better way to start the day than morning PT with America’s Sailors and Marines. These warriors are the true backbone of America. https://t.co/oxEaAh4zPb
+- [12:50 UTC - Repost of @SecRollins: 🇺🇸 The quarterly trade forecast confirms what we already knew: Amer...](2060342967521423519/)
+  - Source: https://x.com/WhiteHouse/status/2060342967521423519
+  - Repost of @SecRollins: 🇺🇸 The quarterly trade forecast confirms what we already knew: America’s farmers and ranchers are competing — and winning — again. 🚜 The agricultural trade d...
+- [12:41 UTC - Repost of @vladtenev: On launch day, @TrumpAccounts app hits #1 in finance and #4 overall ...](2060340751758717153/)
+  - Source: https://x.com/WhiteHouse/status/2060340751758717153
+  - Repost of @vladtenev: On launch day, @TrumpAccounts app hits #1 in finance and #4 overall in the App Store. Fastest growing app outside of AI. https://t.co/dQgpSvGUGr
+- [00:23 UTC - They don’t belong here. The truth has dropped ➡️ https://t.co/bE6YjLxbdY https://t.co/ZLN4...](2060155064065429753/)
+  - Source: https://x.com/WhiteHouse/status/2060155064065429753
+  - They don’t belong here. The truth has dropped ➡️ https://t.co/bE6YjLxbdY https://t.co/ZLN4skcg1g

@@ -1,0 +1,73 @@
+# X / WhiteHouse / 2026-05-19
+
+- Posts: 23
+
+- [23:24 UTC - President Trump and the First Lady Deliver Remarks at the Congressional Picnic https://t.c...](2056878637060649054/)
+  - Source: https://x.com/WhiteHouse/status/2056878637060649054
+  - President Trump and the First Lady Deliver Remarks at the Congressional Picnic https://t.co/XUz8N0Z0ze
+- [21:40 UTC - Repost of @VP: Vice President Vance in Kansas City: "This is the greatest country anywhere...](2056852578013487527/)
+  - Source: https://x.com/WhiteHouse/status/2056852578013487527
+  - Repost of @VP: Vice President Vance in Kansas City: "This is the greatest country anywhere in the world. You make America great and we will not stop fighting for you."🔥 https://t.c...
+- [21:18 UTC - President Trump’s Ratepayer Protection Pledge is putting America first. He’s calling on th...](2056846902604267904/)
+  - Source: https://x.com/WhiteHouse/status/2056846902604267904
+  - President Trump’s Ratepayer Protection Pledge is putting America first. He’s calling on the nation’s leading AI companies to build, bring, or buy 100% of the energy they need for t...
+- [21:12 UTC - Repost of @FirstLadyOffice: U.S. House of Representatives unanimously passes Fostering the...](2056845550817874339/)
+  - Source: https://x.com/WhiteHouse/status/2056845550817874339
+  - Repost of @FirstLadyOffice: U.S. House of Representatives unanimously passes Fostering the Future Act championed by First Lady Melania Trump Tuesday, May 19, 2026 https://t.co/FIDE...
+- [20:16 UTC - New White House ballroom update just dropped https://t.co/OYFznZSoOf](2056831393678704817/)
+  - Source: https://x.com/WhiteHouse/status/2056831393678704817
+  - New White House ballroom update just dropped https://t.co/OYFznZSoOf
+- [19:42 UTC - Reminder: Decline is a choice. President Trump is choosing action, beauty, strength, and p...](2056822888645214561/)
+  - Source: https://x.com/WhiteHouse/status/2056822888645214561
+  - Reminder: Decline is a choice. President Trump is choosing action, beauty, strength, and pride.
+- [19:03 UTC - Repost of @USTradeRep: 🚨TRUMP EFFECT: Matt Largen, who has been promoting economic develop...](2056812884395487241/)
+  - Source: https://x.com/WhiteHouse/status/2056812884395487241
+  - Repost of @USTradeRep: 🚨TRUMP EFFECT: Matt Largen, who has been promoting economic development in Williamson County, TN, a suburb of Nashville, for nearly 20 years, is seeing the d...
+- [19:01 UTC - Yesterday, President Trump announced a monumental expansion of TrumpRx, including 600+ new...](2056812600860574045/)
+  - Source: https://x.com/WhiteHouse/status/2056812600860574045
+  - Yesterday, President Trump announced a monumental expansion of TrumpRx, including 600+ new medications. Under this President, Americans are finally being prioritized over unfair fo...
+- [18:16 UTC - "As the President has said ad nauseam... Iran CANNOT have a nuclear weapon." - @VP JD Vanc...](2056801155129176281/)
+  - Source: https://x.com/WhiteHouse/status/2056801155129176281
+  - "As the President has said ad nauseam... Iran CANNOT have a nuclear weapon." - @VP JD Vance 🇺🇸 https://t.co/zrsxHPPOnP
+- [18:00 UTC - Loud and clear since day 1: Iran can NEVER have a nuclear weapon. https://t.co/UsD9NcE7lD](2056797197056795014/)
+  - Source: https://x.com/WhiteHouse/status/2056797197056795014
+  - Loud and clear since day 1: Iran can NEVER have a nuclear weapon. https://t.co/UsD9NcE7lD
+- [17:47 UTC - Repost of @RapidResponse47: .@VP highlights some of the recent work of the @WHFraudTF: We'...](2056793857338007586/)
+  - Source: https://x.com/WhiteHouse/status/2056793857338007586
+  - Repost of @RapidResponse47: .@VP highlights some of the recent work of the @WHFraudTF: We've seen hundreds of millions of dollars of fraudulent loans that were being handed out thr...
+- [17:36 UTC - Vice President JD Vance Briefs Members of the Media, May 19, 2026 https://t.co/M23jrYxOTD](2056791008608727147/)
+  - Source: https://x.com/WhiteHouse/status/2056791008608727147
+  - Vice President JD Vance Briefs Members of the Media, May 19, 2026 https://t.co/M23jrYxOTD
+- [17:08 UTC - The president who does it all. https://t.co/RjIbtYJuoJ](2056784049931260080/)
+  - Source: https://x.com/WhiteHouse/status/2056784049931260080
+  - The president who does it all. https://t.co/RjIbtYJuoJ
+- [17:03 UTC - Nothing like this will ever be built again!! President Trump gives the press a look at the...](2056782747486535827/)
+  - Source: https://x.com/WhiteHouse/status/2056782747486535827
+  - Nothing like this will ever be built again!! President Trump gives the press a look at the White House Ballroom construction project, built by his personal and private donations. h...
+- [16:47 UTC - Repost of @DrOzCMS: https://t.co/U2Uozfqim7 is your government's gift to you: A free publi...](2056778795697177016/)
+  - Source: https://x.com/WhiteHouse/status/2056778795697177016
+  - Repost of @DrOzCMS: https://t.co/U2Uozfqim7 is your government's gift to you: A free public platform that gives patients the transparency they need about the cost of their medicati...
+- [16:06 UTC - 🇺🇸 Vice President Vance takes the press briefing podium. Tune in at 1:00 PM EST! 🔜 https:/...](2056768397099123024/)
+  - Source: https://x.com/WhiteHouse/status/2056768397099123024
+  - 🇺🇸 Vice President Vance takes the press briefing podium. Tune in at 1:00 PM EST! 🔜 https://t.co/dq9r4Y4bAQ
+- [15:49 UTC - The Trump administration is targeting the WORST OF THE WORST criminal illegal aliens and c...](2056764247787368677/)
+  - Source: https://x.com/WhiteHouse/status/2056764247787368677
+  - The Trump administration is targeting the WORST OF THE WORST criminal illegal aliens and cleaning up America's streets. ⬇️ https://t.co/q4SC6LNGY3
+- [14:23 UTC - President Trump Visits White House Ballroom Construction https://t.co/5lx4lxmi1k](2056742653660742133/)
+  - Source: https://x.com/WhiteHouse/status/2056742653660742133
+  - President Trump Visits White House Ballroom Construction https://t.co/5lx4lxmi1k
+- [13:36 UTC - Making our nation’s capital beautiful again! THANK YOU, PRESIDENT TRUMP 🇺🇸 https://t.co/we...](2056730650212745584/)
+  - Source: https://x.com/WhiteHouse/status/2056730650212745584
+  - Making our nation’s capital beautiful again! THANK YOU, PRESIDENT TRUMP 🇺🇸 https://t.co/weSXpfOccU
+- [13:14 UTC - Repost of @RapidResponse47: .@DrOzCMS on the new expansion of TrumpRx: "We don’t make any ...](2056725270082519290/)
+  - Source: https://x.com/WhiteHouse/status/2056725270082519290
+  - Repost of @RapidResponse47: .@DrOzCMS on the new expansion of TrumpRx: "We don’t make any money on https://t.co/Xv43i22WGt... All we ask is that you check the prices on https://t.c...
+- [01:37 UTC - Repost of @SusieWiles47: I’ve watched firsthand how focused this team is on making life mo...](2056549791014826432/)
+  - Source: https://x.com/WhiteHouse/status/2056549791014826432
+  - Repost of @SusieWiles47: I’ve watched firsthand how focused this team is on making life more affordable for American families. As of today, https://t.co/uarczpuEVC has already help...
+- [01:28 UTC - Repost of @DOWResponse: America’s enemies have been put on notice. If you harm Americans o...](2056547400093736970/)
+  - Source: https://x.com/WhiteHouse/status/2056547400093736970
+  - Repost of @DOWResponse: America’s enemies have been put on notice. If you harm Americans or plot to harm innocent Christians, the United States of America will find you — and will...
+- [01:17 UTC - President Trump is delivering BIG on his promise to lower healthcare costs! https://t.co/j...](2056544835301945693/)
+  - Source: https://x.com/WhiteHouse/status/2056544835301945693
+  - President Trump is delivering BIG on his promise to lower healthcare costs! https://t.co/jjnWOhbKzY just expanded to feature more than 600 generic medications, bringing the lowest...

@@ -1,0 +1,91 @@
+# X / WhiteHouse / 2026-06-02
+
+- Posts: 29
+
+- [23:54 UTC - Democrat leadership has made it clear: They have no problem prioritizing illegal alien cri...](2061959791027646832/)
+  - Source: https://x.com/WhiteHouse/status/2061959791027646832
+  - Democrat leadership has made it clear: They have no problem prioritizing illegal alien criminals over American citizens. The Trump Administration REJECTS the radical, dangerous and...
+- [22:48 UTC - President Trump's signature tax cuts are fighting for the AMERICAN MIDDLE CLASS. https://t...](2061943065661628779/)
+  - Source: https://x.com/WhiteHouse/status/2061943065661628779
+  - President Trump's signature tax cuts are fighting for the AMERICAN MIDDLE CLASS. https://t.co/ocLfVO3yuJ
+- [21:29 UTC - Illegal aliens & foreign fraudsters steal BILLIONS yearly from American taxpayers. @POTUS ...](2061923141639901568/)
+  - Source: https://x.com/WhiteHouse/status/2061923141639901568
+  - Illegal aliens & foreign fraudsters steal BILLIONS yearly from American taxpayers. @POTUS signed an EO to stop banks & financial institutions from aiding drug trafficking, illegal...
+- [19:55 UTC - Dumocrats at it again. https://t.co/PTfuAcjEpj](2061899438902149523/)
+  - Source: https://x.com/WhiteHouse/status/2061899438902149523
+  - Dumocrats at it again. https://t.co/PTfuAcjEpj
+- [19:42 UTC - America First. https://t.co/AL9Cq4lR5Y](2061896175062552731/)
+  - Source: https://x.com/WhiteHouse/status/2061896175062552731
+  - America First. https://t.co/AL9Cq4lR5Y
+- [19:33 UTC - Repost of @DHSgov: "We’re not picking and choosing which laws we enforce. We're simply enf...](2061894078564843935/)
+  - Source: https://x.com/WhiteHouse/status/2061894078564843935
+  - Repost of @DHSgov: "We’re not picking and choosing which laws we enforce. We're simply enforcing the law. Period. Full stop." @SecMullinDHS WATCH IN FULL: Secretary Mullin opening...
+- [19:11 UTC - "As I told Iran, 'It’s time, one way or another, for you to make a Deal. You’ve been doing...](2061888577919660063/)
+  - Source: https://x.com/WhiteHouse/status/2061888577919660063
+  - "As I told Iran, 'It’s time, one way or another, for you to make a Deal. You’ve been doing this for 47 years, and it cannot be allowed to go on any longer!'" - President Donald J....
+- [18:56 UTC - Repost of @WHOSTP47: Director @mkratsios47 led the U.S. delegation to the @G7 Digital and ...](2061884652399296718/)
+  - Source: https://x.com/WhiteHouse/status/2061884652399296718
+  - Repost of @WHOSTP47: Director @mkratsios47 led the U.S. delegation to the @G7 Digital and Technology Ministerial hosted by France. From advancing AI adoption, to protecting kids on...
+- [18:55 UTC - Repost of @DrOzCMS: TrumpRx by the numbers: 📈12 MILLION visitors 💰~$500 MILLION in savings...](2061884362023371075/)
+  - Source: https://x.com/WhiteHouse/status/2061884362023371075
+  - Repost of @DrOzCMS: TrumpRx by the numbers: 📈12 MILLION visitors 💰~$500 MILLION in savings 🇺🇸MILLIONS of Americans empowered Save money at https://t.co/XYW10M4Ib4 https://t.co/75B0...
+- [18:35 UTC - Repost of @PressSec: Looking forward to a great night! https://t.co/crhJKkDVbr](2061879397108388118/)
+  - Source: https://x.com/WhiteHouse/status/2061879397108388118
+  - Repost of @PressSec: Looking forward to a great night! https://t.co/crhJKkDVbr
+- [17:57 UTC - 🚨@DrOzCMS announces eligible beneficiaries on Medicare will be allowed to obtain GLP produ...](2061869722161844686/)
+  - Source: https://x.com/WhiteHouse/status/2061869722161844686
+  - 🚨@DrOzCMS announces eligible beneficiaries on Medicare will be allowed to obtain GLP products for a DRASTIC price decrease of $50/month. https://t.co/ocsf50Vlaz
+- [17:52 UTC - President Trump on the rescheduled White House Correspondents’ Dinner: https://t.co/rJz7bR...](2061868526839742687/)
+  - Source: https://x.com/WhiteHouse/status/2061868526839742687
+  - President Trump on the rescheduled White House Correspondents’ Dinner: https://t.co/rJz7bRV82r
+- [17:52 UTC - 160 new drugs added. Hundreds of millions of dollars saved for American patients. "[TrumpR...](2061868448406265875/)
+  - Source: https://x.com/WhiteHouse/status/2061868448406265875
+  - 160 new drugs added. Hundreds of millions of dollars saved for American patients. "[TrumpRx] is a transparency site. It gives everybody the ability to make important decisions abou...
+- [17:32 UTC - HUGE! Dr. Oz announces 160 new prescription drugs are being added to https://t.co/cbj8BwOe...](2061863506761183670/)
+  - Source: https://x.com/WhiteHouse/status/2061863506761183670
+  - HUGE! Dr. Oz announces 160 new prescription drugs are being added to https://t.co/cbj8BwOeNI.
+- [17:13 UTC - CMS Administrator Dr. Mehmet Oz Briefs Members of the Media, Jun. 2, 2026 https://t.co/TVu...](2061858772935483543/)
+  - Source: https://x.com/WhiteHouse/status/2061858772935483543
+  - CMS Administrator Dr. Mehmet Oz Briefs Members of the Media, Jun. 2, 2026 https://t.co/TVu4LjR0L6
+- [17:12 UTC - THE NEWS YOU NEED TO KNOW. The White House Press Briefing with @DrOzCMS 🇺🇸 https://t.co/if...](2061858473525088527/)
+  - Source: https://x.com/WhiteHouse/status/2061858473525088527
+  - THE NEWS YOU NEED TO KNOW. The White House Press Briefing with @DrOzCMS 🇺🇸 https://t.co/ife71heF8X
+- [16:51 UTC - Repost of @JDVance: Luxury cars, mansions, and rare collectables - that's what fraudsters ...](2061853290711675375/)
+  - Source: https://x.com/WhiteHouse/status/2061853290711675375
+  - Repost of @JDVance: Luxury cars, mansions, and rare collectables - that's what fraudsters are buying with your tax dollars. It's disgusting, and we are fighting every day to end fr...
+- [16:16 UTC - Look familiar? 👀 https://t.co/JNrDbBpnFo](2061844447785054341/)
+  - Source: https://x.com/WhiteHouse/status/2061844447785054341
+  - Look familiar? 👀 https://t.co/JNrDbBpnFo
+- [16:15 UTC - SOON: @DrOzCMS takes the podium to brief the press. Don't miss it. 🇺🇸 https://t.co/UXQsiMS...](2061844112433656074/)
+  - Source: https://x.com/WhiteHouse/status/2061844112433656074
+  - SOON: @DrOzCMS takes the podium to brief the press. Don't miss it. 🇺🇸 https://t.co/UXQsiMSudI
+- [16:13 UTC - Repost of @RapidResponse47: .@SecRubio shuts down @SenBooker: "No one's 'begging' for anyt...](2061843658152779862/)
+  - Source: https://x.com/WhiteHouse/status/2061843658152779862
+  - Repost of @RapidResponse47: .@SecRubio shuts down @SenBooker: "No one's 'begging' for anything here. The Iranians might be begging — because their economy is losing hundreds of mil...
+- [15:38 UTC - Finally, a President that prioritizes PEOPLE over big insurance corporations. The Great He...](2061834955097858212/)
+  - Source: https://x.com/WhiteHouse/status/2061834955097858212
+  - Finally, a President that prioritizes PEOPLE over big insurance corporations. The Great Healthcare Plan holds big insurance companies accountable while fighting for Americans. http...
+- [15:13 UTC - Repost of @SecScottBessent: American families and workers overwhelmingly benefitted from t...](2061828600618275215/)
+  - Source: https://x.com/WhiteHouse/status/2061828600618275215
+  - Repost of @SecScottBessent: American families and workers overwhelmingly benefitted from the Working Families Tax Cuts, receiving the largest share of the historic tax relief deliv...
+- [14:55 UTC - Repost of @StateDept: SECRETARY RUBIO: "Our foreign policy is one that's solely focused on...](2061823951144108438/)
+  - Source: https://x.com/WhiteHouse/status/2061823951144108438
+  - Repost of @StateDept: SECRETARY RUBIO: "Our foreign policy is one that's solely focused on the national interests of the United States of America." https://t.co/agZKYVqfif
+- [14:54 UTC - Repost of @WHFraudTF: $270 MILLION worth of fraudulent claims. The @VP's Task Force to Eli...](2061823748303409484/)
+  - Source: https://x.com/WhiteHouse/status/2061823748303409484
+  - Repost of @WHFraudTF: $270 MILLION worth of fraudulent claims. The @VP's Task Force to Eliminate Fraud is fighting the criminals stealing from every American taxpayer and endangeri...
+- [13:46 UTC - NEW ANALYSIS CONFIRMS: The Working Families Tax Cuts just delivered the LARGEST share of t...](2061806556224594064/)
+  - Source: https://x.com/WhiteHouse/status/2061806556224594064
+  - NEW ANALYSIS CONFIRMS: The Working Families Tax Cuts just delivered the LARGEST share of tax relief to American families and hardworking people across the country! 🔥 More money bac...
+- [12:44 UTC - Repost of @RapidResponse47: “I even made a surprise visit this weekend, and walked into th...](2061791180300419260/)
+  - Source: https://x.com/WhiteHouse/status/2061791180300419260
+  - Repost of @RapidResponse47: “I even made a surprise visit this weekend, and walked into the cafeteria, and ate the same meal that the detainees around me were eating.” @RealTomHoma...
+- [12:44 UTC - Repost of @SeanParnellASW: .@SECWAR nailed it when he said: “The battlefield does not grad...](2061791136990060567/)
+  - Source: https://x.com/WhiteHouse/status/2061791136990060567
+  - Repost of @SeanParnellASW: .@SECWAR nailed it when he said: “The battlefield does not grade on a curve, and you can’t throw your pronouns at the enemy. Combat is the ultimate test,...
+- [12:44 UTC - Repost of @USNavy: Farewell, New Orleans! More than 3,000 Sailors, Marines, Coast Guardsme...](2061791062251757952/)
+  - Source: https://x.com/WhiteHouse/status/2061791062251757952
+  - Repost of @USNavy: Farewell, New Orleans! More than 3,000 Sailors, Marines, Coast Guardsmen, and international partners came together in the Big Easy to celebrate 250 years of Amer...
+- [01:25 UTC - To those negatively chirping: quiet. 🤫 It will all work out well in the end - it always do...](2061620269483987217/)
+  - Source: https://x.com/WhiteHouse/status/2061620269483987217
+  - To those negatively chirping: quiet. 🤫 It will all work out well in the end - it always does. https://t.co/ae8pspL6Yw

@@ -1,0 +1,40 @@
+# X / WhiteHouse / 2026-05-09
+
+- Posts: 12
+
+- [23:34 UTC - Repost of @epaleezeldin: Devastating, left-wing policies out of NYC and Albany are permane...](2053257344864182735/)
+  - Source: https://x.com/WhiteHouse/status/2053257344864182735
+  - Repost of @epaleezeldin: Devastating, left-wing policies out of NYC and Albany are permanently driving New York families and jobs out of state. Every single day, more and more New...
+- [23:34 UTC - Repost of @Freedom250: For 250 years, God has blessed and guided the United States of Amer...](2053257305555112232/)
+  - Source: https://x.com/WhiteHouse/status/2053257305555112232
+  - Repost of @Freedom250: For 250 years, God has blessed and guided the United States of America. On May 17, Americans will gather on the National Mall to pray for our nation and rede...
+- [22:35 UTC - Repost of @SecWar: A nation worth fighting for is a nation worth praying for. Rededicate 2...](2053242466111779015/)
+  - Source: https://x.com/WhiteHouse/status/2053242466111779015
+  - Repost of @SecWar: A nation worth fighting for is a nation worth praying for. Rededicate 250 on Sunday, May 17, will bring patriots from every state together on the National Mall u...
+- [19:45 UTC - President Donald J. Trump welcomes Angel Moms and Gold Star Moms to the White House for Mo...](2053199799151652991/)
+  - Source: https://x.com/WhiteHouse/status/2053199799151652991
+  - President Donald J. Trump welcomes Angel Moms and Gold Star Moms to the White House for Mother's Day. 💛 “Today, we're honored to be joined by many strong and truly heroic moms who...
+- [19:43 UTC - Repost of @ENERGY: DRILL, BABY, DRILL! https://t.co/3ievtjbr1N](2053199243817427216/)
+  - Source: https://x.com/WhiteHouse/status/2053199243817427216
+  - Repost of @ENERGY: DRILL, BABY, DRILL! https://t.co/3ievtjbr1N
+- [19:43 UTC - Repost of @SecMullinDHS: Our founders turned to faith as their guide as they laid the foun...](2053199204743320055/)
+  - Source: https://x.com/WhiteHouse/status/2053199204743320055
+  - Repost of @SecMullinDHS: Our founders turned to faith as their guide as they laid the foundation of the greatest nation in history. 250 years later, we’re honoring their legacy by...
+- [19:43 UTC - Repost of @FirstLadyOffice: “This is a time of military conflict for America. And whereby ...](2053199175550894373/)
+  - Source: https://x.com/WhiteHouse/status/2053199175550894373
+  - Repost of @FirstLadyOffice: “This is a time of military conflict for America. And whereby we honor our selfless and valiant Service Members regularly, today is the day we hold thei...
+- [15:28 UTC - Verified patriot 🇺🇸 https://t.co/xfG2UIZM9n](2053135147814244668/)
+  - Source: https://x.com/WhiteHouse/status/2053135147814244668
+  - Verified patriot 🇺🇸 https://t.co/xfG2UIZM9n
+- [12:18 UTC - America’s epic 250 summer loading… 🔥 @UFC FIGHT NIGHT ON THE SOUTH LAWN 🥊 🇺🇸 https://t.co/...](2053087278335946869/)
+  - Source: https://x.com/WhiteHouse/status/2053087278335946869
+  - America’s epic 250 summer loading… 🔥 @UFC FIGHT NIGHT ON THE SOUTH LAWN 🥊 🇺🇸 https://t.co/lcdrCvFEom
+- [12:16 UTC - Repost of @ICEgov: ⬇️](2053086587831947460/)
+  - Source: https://x.com/WhiteHouse/status/2053086587831947460
+  - Repost of @ICEgov: ⬇️
+- [01:31 UTC - The panicans had yet another week… of being wrong. https://t.co/poa1nOx7Y7](2052924312894447914/)
+  - Source: https://x.com/WhiteHouse/status/2052924312894447914
+  - The panicans had yet another week… of being wrong. https://t.co/poa1nOx7Y7
+- [01:29 UTC - Repost of @SecMullinDHS: This week, we saw firsthand what happens when state and local law...](2052923826304843945/)
+  - Source: https://x.com/WhiteHouse/status/2052923826304843945
+  - Repost of @SecMullinDHS: This week, we saw firsthand what happens when state and local law enforcement cooperate with @DHSgov. By working together, we can protect our homeland and...

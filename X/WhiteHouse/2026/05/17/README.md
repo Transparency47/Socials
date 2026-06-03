@@ -1,0 +1,58 @@
+# X / WhiteHouse / 2026-05-17
+
+- Posts: 18
+
+- [22:11 UTC - Repost of @VP: WATCH: Vice President JD Vance's Rededicate 250 message: “I always ask peop...](2056135605436768706/)
+  - Source: https://x.com/WhiteHouse/status/2056135605436768706
+  - Repost of @VP: WATCH: Vice President JD Vance's Rededicate 250 message: “I always ask people to pray for wisdom and for courage for their leadership. Pray for wisdom that we know t...
+- [21:19 UTC - Repost of @RapidResponse47: President Donald J. Trump shares a message of faith with the t...](2056122431043985700/)
+  - Source: https://x.com/WhiteHouse/status/2056122431043985700
+  - Repost of @RapidResponse47: President Donald J. Trump shares a message of faith with the tens of thousands of Americans gathered on the National Mall for Rededicate 250 🙏🏻✝️ https:...
+- [21:18 UTC - Repost of @Freedom250: President Donald J. Trump reads 2 Chronicles 7:11-22: "Thus Solomon...](2056122260809806118/)
+  - Source: https://x.com/WhiteHouse/status/2056122260809806118
+  - Repost of @Freedom250: President Donald J. Trump reads 2 Chronicles 7:11-22: "Thus Solomon finished the house of the Lord, and the king's house: and all that came into Solomon's he...
+- [20:13 UTC - "From the beginning, this has always been a country sustained and strengthened by prayer."...](2056105937560068596/)
+  - Source: https://x.com/WhiteHouse/status/2056105937560068596
+  - "From the beginning, this has always been a country sustained and strengthened by prayer." - President Donald J. Trump HAPPENING NOW on the National Mall ⬇️
+- [19:28 UTC - Repost of @Freedom250: Alveda C. King, Ph.D., delivers a prayer at Rededicate 250 on the N...](2056094448455463305/)
+  - Source: https://x.com/WhiteHouse/status/2056094448455463305
+  - Repost of @Freedom250: Alveda C. King, Ph.D., delivers a prayer at Rededicate 250 on the National Mall: Prayer is always our most powerful weapon. Facing adversity and hatred, as w...
+- [17:59 UTC - Repost of @Freedom250: Freedom 250 presents Rededicate 250: A National Jubilee of Prayer, ...](2056072117448278025/)
+  - Source: https://x.com/WhiteHouse/status/2056072117448278025
+  - Repost of @Freedom250: Freedom 250 presents Rededicate 250: A National Jubilee of Prayer, Praise &amp; Thanksgiving, live from the National Mall. https://t.co/iA0BkfS3Hv
+- [17:59 UTC - Repost of @SecRubio: From our country’s beginning, for as long as America has embodied fre...](2056072044731601262/)
+  - Source: https://x.com/WhiteHouse/status/2056072044731601262
+  - Repost of @SecRubio: From our country’s beginning, for as long as America has embodied freedom and exceptionalism, the soul of our nation has been rooted in the Christian faith. To...
+- [17:05 UTC - “For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anyth...](2056058474954436923/)
+  - Source: https://x.com/WhiteHouse/status/2056058474954436923
+  - “For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anything left of them. TIME IS OF THE ESSENCE!” - President Donald J. Trump https://t.co/33gyF0...
+- [15:44 UTC - Repost of @Freedom250: Thank you @realDonaldTrump for your support of prayer and faith. We...](2056038097972822218/)
+  - Source: https://x.com/WhiteHouse/status/2056038097972822218
+  - Repost of @Freedom250: Thank you @realDonaldTrump for your support of prayer and faith. We are having a GREAT time at Rededicate 250 on the National Mall 🙏 🇺🇸 https://t.co/TShZXB0u...
+- [14:52 UTC - Thousands of Americans are gathering on the National Mall TODAY for a powerful day of pray...](2056024954873712997/)
+  - Source: https://x.com/WhiteHouse/status/2056024954873712997
+  - Thousands of Americans are gathering on the National Mall TODAY for a powerful day of prayer, praise, and patriotism as we chart the course for America’s next 250 years and rededic...
+- [14:37 UTC - Repost of @StateDept: On this day 250 years ago, our forefathers gathered for a national d...](2056021238569386062/)
+  - Source: https://x.com/WhiteHouse/status/2056021238569386062
+  - Repost of @StateDept: On this day 250 years ago, our forefathers gathered for a national day of fasting and prayer. Today, Americans will come together again as one Nation under Go...
+- [14:13 UTC - Repost of @RapidResponse47: https://t.co/T1des1V066](2056015174478201076/)
+  - Source: https://x.com/WhiteHouse/status/2056015174478201076
+  - Repost of @RapidResponse47: https://t.co/T1des1V066
+- [13:39 UTC - Repost of @Freedom250: Moments away, thousands of patriots will fill the Mall as we come t...](2056006689069900192/)
+  - Source: https://x.com/WhiteHouse/status/2056006689069900192
+  - Repost of @Freedom250: Moments away, thousands of patriots will fill the Mall as we come together for Rededicate 250. The energy is building, and America is ready! https://t.co/PMK...
+- [12:53 UTC - Repost of @SecretaryBurgum: Thank you @POTUS for making D.C. Safe &amp; Beautiful Again 🇺🇸](2055995154729677198/)
+  - Source: https://x.com/WhiteHouse/status/2055995154729677198
+  - Repost of @SecretaryBurgum: Thank you @POTUS for making D.C. Safe &amp; Beautiful Again 🇺🇸
+- [12:53 UTC - Repost of @DeptofWar: At the @PGAChampionship, the Department of War honored the strength ...](2055995136232788317/)
+  - Source: https://x.com/WhiteHouse/status/2055995136232788317
+  - Repost of @DeptofWar: At the @PGAChampionship, the Department of War honored the strength and sacrifice of America’s warriors this Armed Forces Day. #PGAChamp https://t.co/Fp5fJekR...
+- [12:53 UTC - Repost of @SBAgov: President Trump is putting America’s 36 million small businesses FIRST....](2055995089080447342/)
+  - Source: https://x.com/WhiteHouse/status/2055995089080447342
+  - Repost of @SBAgov: President Trump is putting America’s 36 million small businesses FIRST. @GoldSilverPawn, who owns multiple small businesses, explains how the Working Family Tax...
+- [12:53 UTC - Repost of @SecArmy: This Armed Forces Day, I’d like to recognize our Soldiers as our @USAr...](2055995055060537824/)
+  - Source: https://x.com/WhiteHouse/status/2055995055060537824
+  - Repost of @SecArmy: This Armed Forces Day, I’d like to recognize our Soldiers as our @USArmy’s greatest asset. I think about them every day, and getting to meet them across five co...
+- [12:53 UTC - Repost of @SecretaryTurner: Many of the men and women who defined our national history — t...](2055995036295180791/)
+  - Source: https://x.com/WhiteHouse/status/2055995036295180791
+  - Repost of @SecretaryTurner: Many of the men and women who defined our national history — through a revolution, through a Civil War, and through foreign wars — defeated the spirit o...

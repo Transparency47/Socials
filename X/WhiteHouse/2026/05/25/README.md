@@ -1,0 +1,67 @@
+# X / WhiteHouse / 2026-05-25
+
+- Posts: 21
+
+- [23:44 UTC - We remember the fallen. We honor their sacrifice. We cherish the freedom they paid for wit...](2059058022454886889/)
+  - Source: https://x.com/WhiteHouse/status/2059058022454886889
+  - We remember the fallen. We honor their sacrifice. We cherish the freedom they paid for with their lives. Memorial Day 2026 | Arlington National Cemetery 🇺🇸 https://t.co/H0gcOZjPWq
+- [22:11 UTC - “Those who died so our nation could live. And we do intend with all our strength and heart...](2059034747817378069/)
+  - Source: https://x.com/WhiteHouse/status/2059034747817378069
+  - “Those who died so our nation could live. And we do intend with all our strength and heart to hold high the torch our heroes handed to us, and we will never, ever let it fall.” - P...
+- [21:57 UTC - “The Enriched Uranium (Nuclear Dust!) will either be immediately turned over to the United...](2059031077679763695/)
+  - Source: https://x.com/WhiteHouse/status/2059031077679763695
+  - “The Enriched Uranium (Nuclear Dust!) will either be immediately turned over to the United States to be brought home and destroyed or, preferably, in conjunction and coordination w...
+- [21:47 UTC - Home of the free because of the brave. 🇺🇸 https://t.co/etiBrNnXut](2059028547360944230/)
+  - Source: https://x.com/WhiteHouse/status/2059028547360944230
+  - Home of the free because of the brave. 🇺🇸 https://t.co/etiBrNnXut
+- [21:34 UTC - Repost of @SecWar: To the warriors standing their eternal watch—we honor you. May we LIVE ...](2059025277997482088/)
+  - Source: https://x.com/WhiteHouse/status/2059025277997482088
+  - Repost of @SecWar: To the warriors standing their eternal watch—we honor you. May we LIVE WORTHY of their sacrifice https://t.co/CUPEmmxF4O
+- [21:34 UTC - Repost of @FBIDirectorKash: Honored to join @POTUS @VP at the Memorial Day wreath laying c...](2059025267746603220/)
+  - Source: https://x.com/WhiteHouse/status/2059025267746603220
+  - Repost of @FBIDirectorKash: Honored to join @POTUS @VP at the Memorial Day wreath laying ceremony at Arlington National Cemetery - remembering all those warriors who paid the ultim...
+- [19:11 UTC - "For the fate of freedom on this earth, we salute you like nobody has ever been saluted be...](2058989394191687879/)
+  - Source: https://x.com/WhiteHouse/status/2058989394191687879
+  - "For the fate of freedom on this earth, we salute you like nobody has ever been saluted before." - President Donald J. Trump 🇺🇸 https://t.co/mrKQoedyZl
+- [17:14 UTC - GOD BLESS THE UNITED STATES MILITARY AND ALL OF OUR FALLEN SOLDIERS 🇺🇸❤️ https://t.co/UFkw...](2058959791054082252/)
+  - Source: https://x.com/WhiteHouse/status/2058959791054082252
+  - GOD BLESS THE UNITED STATES MILITARY AND ALL OF OUR FALLEN SOLDIERS 🇺🇸❤️ https://t.co/UFkwyHUtSo
+- [17:12 UTC - "All of us owe a debt. That we owe a debt to the people that went overseas and gave their ...](2058959436736037047/)
+  - Source: https://x.com/WhiteHouse/status/2058959436736037047
+  - "All of us owe a debt. That we owe a debt to the people that went overseas and gave their lives, that the United States might be prosperous, and peaceful, and free." - @VP JD Vance...
+- [17:02 UTC - There could be no Independence Day without Memorial Day. 🇺🇸](2058956895562396137/)
+  - Source: https://x.com/WhiteHouse/status/2058956895562396137
+  - There could be no Independence Day without Memorial Day. 🇺🇸
+- [16:56 UTC - Around the world we unite in solemn observance. God bless our fallen heroes. 🇺🇸](2058955395641602278/)
+  - Source: https://x.com/WhiteHouse/status/2058955395641602278
+  - Around the world we unite in solemn observance. God bless our fallen heroes. 🇺🇸
+- [16:46 UTC - Repost of @RapidResponse47: .@POTUS, @VP, @Secwar, and @thejointstaff Chairman Dan Caine s...](2058952952514068781/)
+  - Source: https://x.com/WhiteHouse/status/2058952952514068781
+  - Repost of @RapidResponse47: .@POTUS, @VP, @Secwar, and @thejointstaff Chairman Dan Caine salute as the national anthem is played by the Army band at Arlington National Cemetery htt...
+- [16:19 UTC - Repost of @RapidResponse47: Happening now at Arlington National Cemetery: @POTUS lays a wr...](2058946128121373067/)
+  - Source: https://x.com/WhiteHouse/status/2058946128121373067
+  - Repost of @RapidResponse47: Happening now at Arlington National Cemetery: @POTUS lays a wreath at the Tomb of the Unknown Soldier in honor of Memorial Day. https://t.co/ni0vLjHDGG
+- [16:11 UTC - President Trump Participates in a Wreath Laying Ceremony and Delivers Remarks https://t.co...](2058944023910387852/)
+  - Source: https://x.com/WhiteHouse/status/2058944023910387852
+  - President Trump Participates in a Wreath Laying Ceremony and Delivers Remarks https://t.co/sfdXLY643p
+- [15:59 UTC - Repost of @JDVance: On this Memorial Day, we honor the brave men and women who gave the ul...](2058941102023934152/)
+  - Source: https://x.com/WhiteHouse/status/2058941102023934152
+  - Repost of @JDVance: On this Memorial Day, we honor the brave men and women who gave the ultimate sacrifice to our country. We are forever grateful. https://t.co/RgeA0O98ud
+- [15:15 UTC - Repost of @NationalMallNPS: All gave some. Some gave all. Honoring all the members of our ...](2058929932034564353/)
+  - Source: https://x.com/WhiteHouse/status/2058929932034564353
+  - Repost of @NationalMallNPS: All gave some. Some gave all. Honoring all the members of our armed forces who gave what President Abraham Lincoln called "the last full measure of devo...
+- [15:15 UTC - Repost of @SecretaryTurner: This Memorial Day, we commemorate 250 years of sacrifice. We h...](2058929915823566994/)
+  - Source: https://x.com/WhiteHouse/status/2058929915823566994
+  - Repost of @SecretaryTurner: This Memorial Day, we commemorate 250 years of sacrifice. We honor our brave troops who sacrificed their tomorrow so we could enjoy our today. https://t...
+- [15:04 UTC - Repost of @DeptofWar: LIVE: @POTUS, @SecWar, and senior leaders honor fallen service membe...](2058927237462667408/)
+  - Source: https://x.com/WhiteHouse/status/2058927237462667408
+  - Repost of @DeptofWar: LIVE: @POTUS, @SecWar, and senior leaders honor fallen service members during a ceremony at Arlington National Cemetery in Arlington, Va. https://t.co/RoVVRM5...
+- [13:54 UTC - Repost of @SecWar: “Greater love hath no man than this, that a man lay down his life for h...](2058909613450314041/)
+  - Source: https://x.com/WhiteHouse/status/2058909613450314041
+  - Repost of @SecWar: “Greater love hath no man than this, that a man lay down his life for his friends.” May we always live worthy of their sacrifice, honor their memory, and never f...
+- [13:53 UTC - Memorial Day is a solemn reminder that freedom is never free. Today, we honor the brave Am...](2058909262705828103/)
+  - Source: https://x.com/WhiteHouse/status/2058909262705828103
+  - Memorial Day is a solemn reminder that freedom is never free. Today, we honor the brave American heroes who made the ultimate sacrifice for our nation. We remember our fallen warri...
+- [00:53 UTC - Repost of @SecWar: The West Point Class of 2026 will find strength in shared purpose. This...](2058713061096100242/)
+  - Source: https://x.com/WhiteHouse/status/2058713061096100242
+  - Repost of @SecWar: The West Point Class of 2026 will find strength in shared purpose. This is not an Army of One. It’s “SEND US” — not “send he,” “send she,” or “send they/them.” h...

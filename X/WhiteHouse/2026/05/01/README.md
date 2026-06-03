@@ -1,0 +1,88 @@
+# X / WhiteHouse / 2026-05-01
+
+- Posts: 28
+
+- [23:53 UTC - Repost of @WhiteHouse: President Trump Participates in The Forum Club of the Palm Beaches ...](2050362976985665636/)
+  - Source: https://x.com/WhiteHouse/status/2050362976985665636
+  - Repost of @WhiteHouse: President Trump Participates in The Forum Club of the Palm Beaches Dinner https://t.co/gtGfAftDUU
+- [22:58 UTC - President Trump Participates in The Forum Club of the Palm Beaches Dinner https://t.co/gtG...](2050349263431806985/)
+  - Source: https://x.com/WhiteHouse/status/2050349263431806985
+  - President Trump Participates in The Forum Club of the Palm Beaches Dinner https://t.co/gtGfAftDUU
+- [21:36 UTC - Repost of @WhiteHouse: President Trump Participates in an Event with Seniors https://t.co/...](2050328455225520381/)
+  - Source: https://x.com/WhiteHouse/status/2050328455225520381
+  - Repost of @WhiteHouse: President Trump Participates in an Event with Seniors https://t.co/6CKwxZNndA
+- [20:48 UTC - Thanks to the Working Families Tax Cuts, more than 51 million American seniors now pay a f...](2050316552457584708/)
+  - Source: https://x.com/WhiteHouse/status/2050316552457584708
+  - Thanks to the Working Families Tax Cuts, more than 51 million American seniors now pay a federal tax rate of ZERO on Social Security income. 🇺🇸
+- [20:36 UTC - “Under the Trump administration, we're standing up for American Seniors like no president ...](2050313341633953812/)
+  - Source: https://x.com/WhiteHouse/status/2050313341633953812
+  - “Under the Trump administration, we're standing up for American Seniors like no president has EVER stood up before.” - President Donald J. Trump 🇺🇸 https://t.co/55ckwx0oqA
+- [20:25 UTC - Repost of @MargoMartin47: President @realDonaldTrump stops by to say hello to the OVERFLOW...](2050310721209081956/)
+  - Source: https://x.com/WhiteHouse/status/2050310721209081956
+  - Repost of @MargoMartin47: President @realDonaldTrump stops by to say hello to the OVERFLOW crowd in the Villages! 🇺🇸 https://t.co/5IJHuUJ99z
+- [20:06 UTC - President Trump Participates in an Event with Seniors https://t.co/6CKwxZNndA](2050305799726014539/)
+  - Source: https://x.com/WhiteHouse/status/2050305799726014539
+  - President Trump Participates in an Event with Seniors https://t.co/6CKwxZNndA
+- [18:50 UTC - ✈️ NEXT STOP: The Villages, Florida 🇺🇸 https://t.co/7NguJxuGR9](2050286721443484006/)
+  - Source: https://x.com/WhiteHouse/status/2050286721443484006
+  - ✈️ NEXT STOP: The Villages, Florida 🇺🇸 https://t.co/7NguJxuGR9
+- [18:48 UTC - Repost of @JDVance: This new DOJ strike force is another example of this Administration’s ...](2050286361077260742/)
+  - Source: https://x.com/WhiteHouse/status/2050286361077260742
+  - Repost of @JDVance: This new DOJ strike force is another example of this Administration’s commitment to rooting out fraud, no matter how big or how small. Our efforts to find and p...
+- [18:21 UTC - NO TAX ON SOCIAL SECURITY 💸 President Trump is delivering a GOLDEN AGE for your GOLDEN YEA...](2050279447387902126/)
+  - Source: https://x.com/WhiteHouse/status/2050279447387902126
+  - NO TAX ON SOCIAL SECURITY 💸 President Trump is delivering a GOLDEN AGE for your GOLDEN YEARS. https://t.co/nMi4NpumxW
+- [17:27 UTC - "During the eve of our 250th year of cherished independence, we turn to the sovereign embo...](2050265834656784572/)
+  - Source: https://x.com/WhiteHouse/status/2050265834656784572
+  - "During the eve of our 250th year of cherished independence, we turn to the sovereign embodiment of our British heritage &amp; say sincere thank you to our friends... May our two c...
+- [17:11 UTC - Repost of @RapidResponse47: .@pdoocy: "This is going to be your first big public event sin...](2050261834872066297/)
+  - Source: https://x.com/WhiteHouse/status/2050261834872066297
+  - Repost of @RapidResponse47: .@pdoocy: "This is going to be your first big public event since somebody tried to kill you on Saturday. Do you feel safe going to something like this?"...
+- [17:05 UTC - Repost of @RapidResponse47: .@POTUS on Iran: "They want to make a deal, but I'm not satisf...](2050260218999693438/)
+  - Source: https://x.com/WhiteHouse/status/2050260218999693438
+  - Repost of @RapidResponse47: .@POTUS on Iran: "They want to make a deal, but I'm not satisfied with it, so we'll see what happens." https://t.co/7H4jkuLXuh
+- [17:04 UTC - Repost of @SecScottBessent: Iran is the head of the snake for global terrorism, and under ...](2050260180416287154/)
+  - Source: https://x.com/WhiteHouse/status/2050260180416287154
+  - Repost of @SecScottBessent: Iran is the head of the snake for global terrorism, and under @POTUS’ leadership, Treasury is moving aggressively, through Economic Fury, to sever the I...
+- [16:03 UTC - "I will be increasing Tariffs charged to the European Union for Cars and Trucks coming int...](2050244726981308423/)
+  - Source: https://x.com/WhiteHouse/status/2050244726981308423
+  - "I will be increasing Tariffs charged to the European Union for Cars and Trucks coming into the United States. The Tariff will be increased to 25%. It is fully understood and agree...
+- [15:38 UTC - Get an exclusive first look 👀🇺🇸 The official State Visit recap video is live — only on the...](2050238417913389355/)
+  - Source: https://x.com/WhiteHouse/status/2050238417913389355
+  - Get an exclusive first look 👀🇺🇸 The official State Visit recap video is live — only on the White House app. Download now and watch it first. 📲 https://t.co/VC8lwiyO0G 📲 https://t.c...
+- [14:44 UTC - Repost of @RapidResponse47: "Thousands of people are in line right now" to see @POTUS in T...](2050224895221522496/)
+  - Source: https://x.com/WhiteHouse/status/2050224895221522496
+  - Repost of @RapidResponse47: "Thousands of people are in line right now" to see @POTUS in The Villages. "One man actually slept here... on an air mattress just to see @POTUS speak."...
+- [14:24 UTC - TODAY 🗓️ 📰 "Trump to Highlight Major Tax &amp; Healthcare Policy Victories for American Se...](2050219888866697535/)
+  - Source: https://x.com/WhiteHouse/status/2050219888866697535
+  - TODAY 🗓️ 📰 "Trump to Highlight Major Tax &amp; Healthcare Policy Victories for American Seniors" @AMACforAmerica https://t.co/HzpTWJN2Uq
+- [13:40 UTC - MAKE AMERICA GREAT AGAIN!!! https://t.co/5ltp6riylM](2050208812510941192/)
+  - Source: https://x.com/WhiteHouse/status/2050208812510941192
+  - MAKE AMERICA GREAT AGAIN!!! https://t.co/5ltp6riylM
+- [13:34 UTC - Repost of @FLOTUS: FOSTERING THE FUTURE May is National Foster Care Month To the families,...](2050207202921595314/)
+  - Source: https://x.com/WhiteHouse/status/2050207202921595314
+  - Repost of @FLOTUS: FOSTERING THE FUTURE May is National Foster Care Month To the families, educators, leaders, and advocates dedicated to securing a better future for America’s Fos...
+- [13:09 UTC - Repost of @AnnaKelly47: Today, President Trump will travel to The Villages, Florida, to to...](2050200834022006826/)
+  - Source: https://x.com/WhiteHouse/status/2050200834022006826
+  - Repost of @AnnaKelly47: Today, President Trump will travel to The Villages, Florida, to tout his economic agenda for America’s seniors! NO TAX ON SOCIAL SECURITY is a Promise Made,...
+- [12:29 UTC - Repost of @JDVance: This builds upon the $250 million in Medicaid deferments to Minnesota ...](2050190823426277546/)
+  - Source: https://x.com/WhiteHouse/status/2050190823426277546
+  - Repost of @JDVance: This builds upon the $250 million in Medicaid deferments to Minnesota that Dr. Oz and I announced at the very beginning of our War on Fraud efforts. Proud of th...
+- [12:29 UTC - Repost of @SecRollins: For years, the Democrats let fraudsters abuse SNAP and take advanta...](2050190780363391065/)
+  - Source: https://x.com/WhiteHouse/status/2050190780363391065
+  - Repost of @SecRollins: For years, the Democrats let fraudsters abuse SNAP and take advantage of this massive government program — the Biden admin ballooning it by 40% as they tried...
+- [12:29 UTC - Repost of @StateDept: United States Foreign Service Officers represent America, wherever A...](2050190760478183848/)
+  - Source: https://x.com/WhiteHouse/status/2050190760478183848
+  - Repost of @StateDept: United States Foreign Service Officers represent America, wherever America needs them. Be the face of America abroad. Join the United States https://t.co/5eKS...
+- [12:28 UTC - Repost of @DrMakaryFDA: FDA just completed the largest-ever testing of infant formula test...](2050190687123972231/)
+  - Source: https://x.com/WhiteHouse/status/2050190687123972231
+  - Repost of @DrMakaryFDA: FDA just completed the largest-ever testing of infant formula testing (covering 300 products), part of our broader approach to deliver for American families...
+- [12:28 UTC - Repost of @NationalGuard: This Military Appreciation Month, we recognize the courage and s...](2050190659097690172/)
+  - Source: https://x.com/WhiteHouse/status/2050190659097690172
+  - Repost of @NationalGuard: This Military Appreciation Month, we recognize the courage and sacrifice of every Soldier who serves. Your dedication to protecting our communities and ou...
+- [12:28 UTC - Repost of @USNavy: At the heart of America’s story is the sea. From the Continental Navy t...](2050190633583706485/)
+  - Source: https://x.com/WhiteHouse/status/2050190633583706485
+  - Repost of @USNavy: At the heart of America’s story is the sea. From the Continental Navy to today’s global force, the Navy’s story is America’s story. As we celebrate our nation's...
+- [01:10 UTC - AMERICANS ARE WORKING AGAIN! Jobless claims hit 189,000, their lowest point since the 1960...](2050019919824126065/)
+  - Source: https://x.com/WhiteHouse/status/2050019919824126065
+  - AMERICANS ARE WORKING AGAIN! Jobless claims hit 189,000, their lowest point since the 1960s. https://t.co/4lbbHTOUhE

@@ -1,0 +1,82 @@
+# X / WhiteHouse / 2026-05-06
+
+- Posts: 26
+
+- [23:52 UTC - Repost of @SecRollins: What a joy it was to be at @Fareway_Stores in Des Moines, Iowa. I w...](2052174581981426151/)
+  - Source: https://x.com/WhiteHouse/status/2052174581981426151
+  - Repost of @SecRollins: What a joy it was to be at @Fareway_Stores in Des Moines, Iowa. I went right behind the meat counter to celebrate one of our great partners proudly carrying...
+- [23:51 UTC - Repost of @SecWar: Today, I was honored to host the Gold Star Advisory Council. We remain ...](2052174557612503548/)
+  - Source: https://x.com/WhiteHouse/status/2052174557612503548
+  - Repost of @SecWar: Today, I was honored to host the Gold Star Advisory Council. We remain steadfast in honoring the memory of our fallen service members and ensuring their families...
+- [21:27 UTC - 🇺🇸 America is our homeland — and it will be protected. The 2026 Counterterrorism Report pr...](2052138268171387060/)
+  - Source: https://x.com/WhiteHouse/status/2052138268171387060
+  - 🇺🇸 America is our homeland — and it will be protected. The 2026 Counterterrorism Report prioritizes: • Eliminating cartel networks • Targeting foreign terrorist organizations • Cra...
+- [20:29 UTC - Gearing up for battle on the South Lawn. 👊🇺🇸 President Trump meets with Alex Pereira, Ilia...](2052123667778138326/)
+  - Source: https://x.com/WhiteHouse/status/2052123667778138326
+  - Gearing up for battle on the South Lawn. 👊🇺🇸 President Trump meets with Alex Pereira, Ilia Topuria, Justin Gaethje and Ciryl Gane in the Oval Office ahead of their fights at UFC Fr...
+- [20:18 UTC - President Donald J. Trump honors Melody Wolfe, mother of National Guard hero Sergeant Andr...](2052120858580152704/)
+  - Source: https://x.com/WhiteHouse/status/2052120858580152704
+  - President Donald J. Trump honors Melody Wolfe, mother of National Guard hero Sergeant Andrew Wolfe, at the White House Military Mother's Day event. "We have a strong faith in God,...
+- [19:17 UTC - President Trump won't stop working to end the drug crisis in America. His hard work has al...](2052105560221200672/)
+  - Source: https://x.com/WhiteHouse/status/2052105560221200672
+  - President Trump won't stop working to end the drug crisis in America. His hard work has already contributed to historic success in reducing drug related deaths and crimes. https://...
+- [18:47 UTC - President Trump Delivers Remarks, May 6, 2026 https://t.co/ofRaeajwVN](2052098007298945465/)
+  - Source: https://x.com/WhiteHouse/status/2052098007298945465
+  - President Trump Delivers Remarks, May 6, 2026 https://t.co/ofRaeajwVN
+- [18:06 UTC - Repost of @VP: Vice President Vance’s task force to eliminate fraud is ensuring that Ameri...](2052087684340777343/)
+  - Source: https://x.com/WhiteHouse/status/2052087684340777343
+  - Repost of @VP: Vice President Vance’s task force to eliminate fraud is ensuring that Americans' tax dollars are used to support AMERICANS🇺🇸 https://t.co/2u6YesfWVH
+- [17:52 UTC - "The women in this room have sacrificed for our country in countless ways." This Mother's ...](2052084221485735940/)
+  - Source: https://x.com/WhiteHouse/status/2052084221485735940
+  - "The women in this room have sacrificed for our country in countless ways." This Mother's Day week, President Trump and First Lady Melania Trump host military mothers at the White...
+- [17:24 UTC - Repost of @MargoMartin47: “She’s an incredible mom!” @POTUS talks about @FLOTUS ❤️🇺🇸 https...](2052077000332894442/)
+  - Source: https://x.com/WhiteHouse/status/2052077000332894442
+  - Repost of @MargoMartin47: “She’s an incredible mom!” @POTUS talks about @FLOTUS ❤️🇺🇸 https://t.co/cRDRtlh8IZ
+- [17:11 UTC - Repost of @SecRubio: https://t.co/69ImOR59Wn](2052073843045388326/)
+  - Source: https://x.com/WhiteHouse/status/2052073843045388326
+  - Repost of @SecRubio: https://t.co/69ImOR59Wn
+- [16:55 UTC - There is nothing more important than military moms. ❤️](2052069776768344523/)
+  - Source: https://x.com/WhiteHouse/status/2052069776768344523
+  - There is nothing more important than military moms. ❤️
+- [16:49 UTC - President Trump and the First Lady Participate in a Military Mother's Day Event https://t....](2052068342848971104/)
+  - Source: https://x.com/WhiteHouse/status/2052068342848971104
+  - President Trump and the First Lady Participate in a Military Mother's Day Event https://t.co/QkAWrdr8Hr
+- [16:46 UTC - CLASS IS IN SESSION 🏁 THE PRESIDENTIAL FITNESS TEST IS BACK! 💪 https://t.co/yTUhLNsIrW](2052067500024856606/)
+  - Source: https://x.com/WhiteHouse/status/2052067500024856606
+  - CLASS IS IN SESSION 🏁 THE PRESIDENTIAL FITNESS TEST IS BACK! 💪 https://t.co/yTUhLNsIrW
+- [16:33 UTC - Repost of @SecretaryBurgum: .@POTUS is delivering on his promise to Make Washington, D.C. ...](2052064177724789074/)
+  - Source: https://x.com/WhiteHouse/status/2052064177724789074
+  - Repost of @SecretaryBurgum: .@POTUS is delivering on his promise to Make Washington, D.C. Safe and Beautiful. 🇺🇸 Under his leadership, @Interior is restoring public spaces and repa...
+- [16:26 UTC - Repost of @DHSgov: HORRIFYING: Jose Ignacio Bonilla-Garcia, an illegal immigrant from Hond...](2052062468243853741/)
+  - Source: https://x.com/WhiteHouse/status/2052062468243853741
+  - Repost of @DHSgov: HORRIFYING: Jose Ignacio Bonilla-Garcia, an illegal immigrant from Honduras, BEAT a man unconscious and RAPED him behind a dumpster. Bonilla-Garcia has illegally...
+- [15:25 UTC - Secretary Rubio on the hope for America. 🇺🇸 "It is a unique and exceptional country. And a...](2052046980755439682/)
+  - Source: https://x.com/WhiteHouse/status/2052046980755439682
+  - Secretary Rubio on the hope for America. 🇺🇸 "It is a unique and exceptional country. And as we come upon this 250 year anniversary, I think we have a lot to learn and be proud of i...
+- [15:11 UTC - President Donald J. Trump on the passing of Ted Turner: https://t.co/OwIwl58CRT](2052043688121885156/)
+  - Source: https://x.com/WhiteHouse/status/2052043688121885156
+  - President Donald J. Trump on the passing of Ted Turner: https://t.co/OwIwl58CRT
+- [14:03 UTC - Repost of @DHSgov: “We had a historic illegal immigration crisis for four years. So what’s...](2052026556730470911/)
+  - Source: https://x.com/WhiteHouse/status/2052026556730470911
+  - Repost of @DHSgov: “We had a historic illegal immigration crisis for four years. So what’s required now? A historic mass deportation.” @RealTomHoman https://t.co/IjHBmi8dUR
+- [13:29 UTC - Repost of @ONDCP: Tune in for the official launch event at the White House. Link dropping ...](2052017889880797454/)
+  - Source: https://x.com/WhiteHouse/status/2052017889880797454
+  - Repost of @ONDCP: Tune in for the official launch event at the White House. Link dropping here tomorrow — don’t miss it! https://t.co/lAQlKlIKYh
+- [13:14 UTC - Repost of @FBIDirectorKash: Law and order is back under President Trump’s transformed FBI ...](2052014138633650600/)
+  - Source: https://x.com/WhiteHouse/status/2052014138633650600
+  - Repost of @FBIDirectorKash: Law and order is back under President Trump’s transformed FBI https://t.co/8TCZOyZXUn
+- [13:00 UTC - The 2026 National Drug Control Strategy: securing our homeland, bringing criminals to just...](2052010658669940812/)
+  - Source: https://x.com/WhiteHouse/status/2052010658669940812
+  - The 2026 National Drug Control Strategy: securing our homeland, bringing criminals to justice, and ending the fentanyl and drug crisis in the United States. 🇺🇸 "In the land of the...
+- [11:59 UTC - “Assuming Iran agrees to give what has been agreed to, which is, perhaps, a big assumption...](2051995243340325120/)
+  - Source: https://x.com/WhiteHouse/status/2051995243340325120
+  - “Assuming Iran agrees to give what has been agreed to, which is, perhaps, a big assumption, the already legendary Epic Fury will be at an end... If they don’t agree, the bombing st...
+- [02:00 UTC - NATIONAL ASTRONAUT DAY 🇺🇸🧑‍🚀 Courage, bravery, excellence under pressure, and determinatio...](2051844397348913230/)
+  - Source: https://x.com/WhiteHouse/status/2051844397348913230
+  - NATIONAL ASTRONAUT DAY 🇺🇸🧑‍🚀 Courage, bravery, excellence under pressure, and determination for all humanity. Astronauts represent the best of us, and the Trump administration will...
+- [00:57 UTC - Adiós 🪇 https://t.co/0PHdvX17Wv](2051828560717828426/)
+  - Source: https://x.com/WhiteHouse/status/2051828560717828426
+  - Adiós 🪇 https://t.co/0PHdvX17Wv
+- [00:54 UTC - Repost of @VP: VP Vance on the Task Force's SNAP fraud crackdown: “If you are wealthy enou...](2051828033774862646/)
+  - Source: https://x.com/WhiteHouse/status/2051828033774862646
+  - Repost of @VP: VP Vance on the Task Force's SNAP fraud crackdown: “If you are wealthy enough to afford a Lamborghini, then you are wealthy enough to not receive SNAP benefits from...

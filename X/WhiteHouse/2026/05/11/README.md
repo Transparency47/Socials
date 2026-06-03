@@ -1,0 +1,64 @@
+# X / WhiteHouse / 2026-05-11
+
+- Posts: 20
+
+- [23:29 UTC - President Trump Participates in a Rose Garden Club Dinner https://t.co/VKZPw4D08I](2053980940569878891/)
+  - Source: https://x.com/WhiteHouse/status/2053980940569878891
+  - President Trump Participates in a Rose Garden Club Dinner https://t.co/VKZPw4D08I
+- [22:14 UTC - Repost of @SecRollins: Proudly 100% American from farm to table. 🇺🇸🥩 Riverbend Ranch was a...](2053961937189245364/)
+  - Source: https://x.com/WhiteHouse/status/2053961937189245364
+  - Repost of @SecRollins: Proudly 100% American from farm to table. 🇺🇸🥩 Riverbend Ranch was an early adopter of the new PRODUCT OF USA label, and they’re now featuring it front and ce...
+- [21:36 UTC - Repost of @SecretaryWright: Join us on May 17 in D.C. for Rededicate 250—a national celebr...](2053952416903483634/)
+  - Source: https://x.com/WhiteHouse/status/2053952416903483634
+  - Repost of @SecretaryWright: Join us on May 17 in D.C. for Rededicate 250—a national celebration honoring the shared ideals that shape our country. This day of prayer and celebratio...
+- [21:09 UTC - TONIGHT: President Trump shows his support for police across the country, hosting law enfo...](2053945673624506859/)
+  - Source: https://x.com/WhiteHouse/status/2053945673624506859
+  - TONIGHT: President Trump shows his support for police across the country, hosting law enforcement leaders for dinner at the White House. The Trump administration will always back t...
+- [20:50 UTC - THE CHAMPS FROM THE HOOSIER STATE 🇺🇸🏈 President Trump hosts the 2025-26 College Football N...](2053940898581434385/)
+  - Source: https://x.com/WhiteHouse/status/2053940898581434385
+  - THE CHAMPS FROM THE HOOSIER STATE 🇺🇸🏈 President Trump hosts the 2025-26 College Football National Champions Indiana Hoosiers at the White House, celebrating the team's first ever 1...
+- [20:16 UTC - President Trump Hosts the 2026 College Football Champions, Indiana University https://t.co...](2053932245795119466/)
+  - Source: https://x.com/WhiteHouse/status/2053932245795119466
+  - President Trump Hosts the 2026 College Football Champions, Indiana University https://t.co/F1rbIGNpO4
+- [19:57 UTC - Repost of @SecScottBessent: As Iran’s military desperately tries to regroup, Economic Fury...](2053927496190410791/)
+  - Source: https://x.com/WhiteHouse/status/2053927496190410791
+  - Repost of @SecScottBessent: As Iran’s military desperately tries to regroup, Economic Fury will continue to deprive the regime of funding for its weapons programs, terrorist proxie...
+- [19:25 UTC - President Trump announces NEW initiatives to lower costs, expand access to fertility care,...](2053919458910163131/)
+  - Source: https://x.com/WhiteHouse/status/2053919458910163131
+  - President Trump announces NEW initiatives to lower costs, expand access to fertility care, &amp; deliver meaningful support for moms!🇺🇸 ✅New guidance to expand employer fertility b...
+- [17:52 UTC - 📰 "From child exploitation cases to mass shooting prevention, the bureau's AI overhaul is ...](2053896017179816154/)
+  - Source: https://x.com/WhiteHouse/status/2053896017179816154
+  - 📰 "From child exploitation cases to mass shooting prevention, the bureau's AI overhaul is delivering record-breaking results." - @FBIDirectorKash https://t.co/qhWK93ZyUf
+- [16:34 UTC - Send to someone who needs https://t.co/bL0gBmHUYy](2053876491558010975/)
+  - Source: https://x.com/WhiteHouse/status/2053876491558010975
+  - Send to someone who needs https://t.co/bL0gBmHUYy
+- [16:20 UTC - Repost of @USTradeRep: U.S. exports continue to hit all-time highs month after month, surp...](2053872826294173917/)
+  - Source: https://x.com/WhiteHouse/status/2053872826294173917
+  - Repost of @USTradeRep: U.S. exports continue to hit all-time highs month after month, surpassing the highest levels in 250 years of American history. https://t.co/Jb7yG2pCuv
+- [16:19 UTC - THE MOST PRO-FAMILY ADMINISTRATION. 🇺🇸](2053872549893652741/)
+  - Source: https://x.com/WhiteHouse/status/2053872549893652741
+  - THE MOST PRO-FAMILY ADMINISTRATION. 🇺🇸
+- [16:18 UTC - IVF, prenatal and postnatal care, TrumpRx, and much more. VISIT https://t.co/WT9Z0j2g36 ht...](2053872428472738027/)
+  - Source: https://x.com/WhiteHouse/status/2053872428472738027
+  - IVF, prenatal and postnatal care, TrumpRx, and much more. VISIT https://t.co/WT9Z0j2g36 https://t.co/GcD0SBL0f5
+- [15:40 UTC - No President has done more for America's mothers than President Trump. ❤️ New employee ben...](2053862733112611315/)
+  - Source: https://x.com/WhiteHouse/status/2053862733112611315
+  - No President has done more for America's mothers than President Trump. ❤️ New employee benefits for fertility help mothers identify challenges early in the process, and with Most-F...
+- [15:02 UTC - President Trump Participates in a Maternal Healthcare Event https://t.co/tll1OGBd0e](2053853176651034754/)
+  - Source: https://x.com/WhiteHouse/status/2053853176651034754
+  - President Trump Participates in a Maternal Healthcare Event https://t.co/tll1OGBd0e
+- [14:24 UTC - Finally a one-stop home for all the resources needed for expectant mothers including nutri...](2053843676699275495/)
+  - Source: https://x.com/WhiteHouse/status/2053843676699275495
+  - Finally a one-stop home for all the resources needed for expectant mothers including nutrition, pregnancy support, life saving care and more. 🩷🇺🇸 Visit https://t.co/SuYznQeQuN http...
+- [13:21 UTC - Zoom in 🤏 to see a Monday morning message 🛸 https://t.co/PD2atF1JLe](2053827936684306709/)
+  - Source: https://x.com/WhiteHouse/status/2053827936684306709
+  - Zoom in 🤏 to see a Monday morning message 🛸 https://t.co/PD2atF1JLe
+- [12:28 UTC - Repost of @FBIDirectorKash: When I first arrived at the FBI, AI had no role at the Bureau....](2053814417062510850/)
+  - Source: https://x.com/WhiteHouse/status/2053814417062510850
+  - Repost of @FBIDirectorKash: When I first arrived at the FBI, AI had no role at the Bureau. Now, AI is central to everything we do - and every day it’s helping us triage tips, stay...
+- [12:27 UTC - Repost of @FIFAWorldCup: 🗓️ June 11, 2026 ⏳ #FIFAWorldCup https://t.co/xSrAaK83aZ](2053814184194797679/)
+  - Source: https://x.com/WhiteHouse/status/2053814184194797679
+  - Repost of @FIFAWorldCup: 🗓️ June 11, 2026 ⏳
+- [00:24 UTC - Repost of @FBIDirectorKash: It’s my honor to join America in celebrating Police Week 2026 ...](2053632403705332040/)
+  - Source: https://x.com/WhiteHouse/status/2053632403705332040
+  - Repost of @FBIDirectorKash: It’s my honor to join America in celebrating Police Week 2026 - where we honor the best men and women on earth who put the badge on every day to keep us...

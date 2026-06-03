@@ -1,0 +1,112 @@
+# X / WhiteHouse / 2026-05-20
+
+- Posts: 36
+
+- [23:56 UTC - Repost of @SecVetAffairs: Political grandstanders like @SenDuckworth will never admit the ...](2057249015238906287/)
+  - Source: https://x.com/WhiteHouse/status/2057249015238906287
+  - Repost of @SecVetAffairs: Political grandstanders like @SenDuckworth will never admit the fact that @DeptVetAffairs is vastly improved under President Trump, providing Veterans mor...
+- [23:55 UTC - Repost of @DHSgov: Americans are the inheritors of the most incredible civilization that h...](2057248936704852137/)
+  - Source: https://x.com/WhiteHouse/status/2057248936704852137
+  - Repost of @DHSgov: Americans are the inheritors of the most incredible civilization that has ever existed. Our job is to defend it. https://t.co/POk7vLxRc7
+- [22:36 UTC - Justice will be served. https://t.co/jdnIiTtsd7](2057229040126226616/)
+  - Source: https://x.com/WhiteHouse/status/2057229040126226616
+  - Justice will be served. https://t.co/jdnIiTtsd7
+- [22:25 UTC - "You are America's First Defenders, you are America's First Responders, you are the living...](2057226179795468401/)
+  - Source: https://x.com/WhiteHouse/status/2057226179795468401
+  - "You are America's First Defenders, you are America's First Responders, you are the living standard-bearers of America's First Fleet... I have no doubt that just like those Coast G...
+- [22:22 UTC - President Donald J. Trump speaks at the @USCGAcademy Graduation Ceremony "Hello, Cadets — ...](2057225550083576261/)
+  - Source: https://x.com/WhiteHouse/status/2057225550083576261
+  - President Donald J. Trump speaks at the @USCGAcademy Graduation Ceremony "Hello, Cadets — and let me begin by saying a very big congratulations to the Class of 2026!" 🇺🇸 https://t....
+- [20:10 UTC - Sounds of Summer at the Congressional Picnic: Postcard Edition 🇺🇸 https://t.co/ord5mGwHSW](2057192134399201546/)
+  - Source: https://x.com/WhiteHouse/status/2057192134399201546
+  - Sounds of Summer at the Congressional Picnic: Postcard Edition 🇺🇸 https://t.co/ord5mGwHSW
+- [19:35 UTC - KIND REMINDER: If you’re here illegally, please self-deport via the CBP Home App &amp; get...](2057183478442050023/)
+  - Source: https://x.com/WhiteHouse/status/2057183478442050023
+  - KIND REMINDER: If you’re here illegally, please self-deport via the CBP Home App &amp; get a free trip home. 🤗
+- [19:31 UTC - Repost of @SecRollins: America should NEVER rely on Russia, the Middle East, or foreign ad...](2057182352518869109/)
+  - Source: https://x.com/WhiteHouse/status/2057182352518869109
+  - Repost of @SecRollins: America should NEVER rely on Russia, the Middle East, or foreign adversaries for the fertilizer that powers U.S. agriculture. 🇺🇸 That’s why we launched an al...
+- [19:31 UTC - RT @DrOzCMS: 600 new generic drugs added to TrumpRx this week thanks to President @realDon...](2057182324626763980/)
+  - Source: https://x.com/WhiteHouse/status/2057182324626763980
+  - RT @DrOzCMS: 600 new generic drugs added to TrumpRx this week thanks to President @realDonaldTrump's leadership! Before you visit your lo…
+- [19:30 UTC - Repost of @Freedom250: 🇺🇸Join us this Monday, May 25, 2026, for the Freedom 250 National M...](2057182309237788936/)
+  - Source: https://x.com/WhiteHouse/status/2057182309237788936
+  - Repost of @Freedom250: 🇺🇸Join us this Monday, May 25, 2026, for the Freedom 250 National Memorial Day Observance: An Evening of Stories and Service at the Memorial Amphitheater at...
+- [19:30 UTC - Repost of @RapidResponse47: .@POTUS on Iran: "It's right on the borderline, believe me. If...](2057182262903365766/)
+  - Source: https://x.com/WhiteHouse/status/2057182262903365766
+  - Repost of @RapidResponse47: .@POTUS on Iran: "It's right on the borderline, believe me. If we don't get the right answers, it goes very quickly. We're all ready to go. We have to g...
+- [19:30 UTC - Repost of @TheJusticeDept: 🚨United States Unseals Superseding Indictment Charging Raul Cas...](2057182232062689342/)
+  - Source: https://x.com/WhiteHouse/status/2057182232062689342
+  - Repost of @TheJusticeDept: 🚨United States Unseals Superseding Indictment Charging Raul Castro and Five Castro Regime Co‑Defendants for 1996 Shoot‑Down of Brothers to the Rescue Air...
+- [18:00 UTC - 🚨 The U.S. Department of Justice announces the indictment of Raúl Castro and several other...](2057159651263652146/)
+  - Source: https://x.com/WhiteHouse/status/2057159651263652146
+  - 🚨 The U.S. Department of Justice announces the indictment of Raúl Castro and several others with conspiracy to kill U.S. nationals. THE UNITED STATES &amp; PRESIDENT TRUMP WILL NOT...
+- [17:55 UTC - Repost of @DAGToddBlanche: Over three decades later, we are committed to holding those acc...](2057158330431279218/)
+  - Source: https://x.com/WhiteHouse/status/2057158330431279218
+  - Repost of @DAGToddBlanche: Over three decades later, we are committed to holding those accountable for the murders of four brave Americans: Carlos Costa, Armando Alejandre Jr., Mar...
+- [17:44 UTC - Repost of @FBIDirectorKash: In 1996, four Brothers to the Rescue members, including three ...](2057155634290672081/)
+  - Source: https://x.com/WhiteHouse/status/2057155634290672081
+  - Repost of @FBIDirectorKash: In 1996, four Brothers to the Rescue members, including three U.S. citizens, took off from Florida on a humanitarian mission to help rafters fleeing Cas...
+- [17:33 UTC - Repost of @TheJusticeDept: Watch Live Today at 1:00 p.m. ET: Justice Department to Make An...](2057152873721410026/)
+  - Source: https://x.com/WhiteHouse/status/2057152873721410026
+  - Repost of @TheJusticeDept: Watch Live Today at 1:00 p.m. ET: Justice Department to Make Announcement in Miami https://t.co/IJ1SqdMDkp
+- [17:25 UTC - In just eight months, President Trump's Intel deal has surged in value to more than $50 bi...](2057150756310978623/)
+  - Source: https://x.com/WhiteHouse/status/2057150756310978623
+  - In just eight months, President Trump's Intel deal has surged in value to more than $50 billion, a direct windfall for American taxpayers and a major boost for domestic manufacturi...
+- [16:48 UTC - Bad day to be a panican. https://t.co/czhd8PkJzR](2057141480045572530/)
+  - Source: https://x.com/WhiteHouse/status/2057141480045572530
+  - Bad day to be a panican. https://t.co/czhd8PkJzR
+- [16:47 UTC - "The heroes of the United States Coast Guard have lived by a creed of honor and bravery an...](2057141133394735329/)
+  - Source: https://x.com/WhiteHouse/status/2057141133394735329
+  - "The heroes of the United States Coast Guard have lived by a creed of honor and bravery and sacrifice that have defied every storm, shipwreck, and every single enemy attack." - Pre...
+- [16:00 UTC - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United State...](2057129249174143414/)
+  - Source: https://x.com/WhiteHouse/status/2057129249174143414
+  - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United States Coast Guard Academy https://t.co/Emu1DZISTw
+- [15:17 UTC - WORLD BEE DAY 🐝 https://t.co/rFbOdWyel1](2057118529548124427/)
+  - Source: https://x.com/WhiteHouse/status/2057118529548124427
+  - WORLD BEE DAY 🐝 https://t.co/rFbOdWyel1
+- [15:12 UTC - President Trump Delivers a Commencement Address to the United States Coast Guard Academy h...](2057117219604078618/)
+  - Source: https://x.com/WhiteHouse/status/2057117219604078618
+  - President Trump Delivers a Commencement Address to the United States Coast Guard Academy https://t.co/Emu1DZISTw
+- [14:58 UTC - "I think that if the European media wants to attack the President of the United States, th...](2057113811287474295/)
+  - Source: https://x.com/WhiteHouse/status/2057113811287474295
+  - "I think that if the European media wants to attack the President of the United States, they need to start looking in the mirror." - @VP 🔥 https://t.co/p6uhqtkD29
+- [14:19 UTC - PROMISES MADE, PROMISES KEPT. 🇺🇸 https://t.co/cmrisCWGoq](2057103893079679026/)
+  - Source: https://x.com/WhiteHouse/status/2057103893079679026
+  - PROMISES MADE, PROMISES KEPT. 🇺🇸 https://t.co/cmrisCWGoq
+- [13:26 UTC - Repost of @DrOzCMS: More transparency. Lower costs. More savings. https://t.co/XYW10M4Ib4 ...](2057090544011014363/)
+  - Source: https://x.com/WhiteHouse/status/2057090544011014363
+  - Repost of @DrOzCMS: More transparency. Lower costs. More savings. https://t.co/XYW10M4Ib4 https://t.co/p3zBL04RoH
+- [13:22 UTC - Repost of @SecWar: The Purple Heart is one of the oldest and most revered military decorat...](2057089490007515272/)
+  - Source: https://x.com/WhiteHouse/status/2057089490007515272
+  - Repost of @SecWar: The Purple Heart is one of the oldest and most revered military decorations our nation can bestow. These men represent the very best of America. https://t.co/tmI...
+- [13:22 UTC - Repost of @USNavy: Under a sea of stars 🌌 The Milky Way Galaxy appears in the sky over the...](2057089460328640638/)
+  - Source: https://x.com/WhiteHouse/status/2057089460328640638
+  - Repost of @USNavy: Under a sea of stars 🌌 The Milky Way Galaxy appears in the sky over the flight deck of the Blue Ridge-class command and control ship USS Mount Whitney (LCC 20) w...
+- [13:21 UTC - Repost of @HUDgov: BREAKING: HUD is issuing a State and Local Best Practices Report to enc...](2057089390036353064/)
+  - Source: https://x.com/WhiteHouse/status/2057089390036353064
+  - Repost of @HUDgov: BREAKING: HUD is issuing a State and Local Best Practices Report to encourage your local governments to cut costs, unlock more land and save time for home constr...
+- [13:21 UTC - Repost of @FirstLadyOffice: “I want to give special thanks to our nation’s First Lady Mela...](2057089331580289204/)
+  - Source: https://x.com/WhiteHouse/status/2057089331580289204
+  - Repost of @FirstLadyOffice: “I want to give special thanks to our nation’s First Lady Melania Trump who has been an outspoken champion for foster youth through her Fostering the Fu...
+- [13:21 UTC - Repost of @SecRubio: 🇺🇸🇨🇺 https://t.co/nwEePVJ1lX](2057089306204713060/)
+  - Source: https://x.com/WhiteHouse/status/2057089306204713060
+  - Repost of @SecRubio: 🇺🇸🇨🇺 https://t.co/nwEePVJ1lX
+- [02:47 UTC - Repost of @FirstLadyOffice: “This evening’s beautiful setting brings families from both si...](2056929884270727482/)
+  - Source: https://x.com/WhiteHouse/status/2056929884270727482
+  - Repost of @FirstLadyOffice: “This evening’s beautiful setting brings families from both sides of the political aisle together to enjoy Americana—the Marine Band’s wonderful music,...
+- [01:44 UTC - MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ](2056913890408022394/)
+  - Source: https://x.com/WhiteHouse/status/2056913890408022394
+  - MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ
+- [00:40 UTC - Repost of @JDVance: President Trump is keeping his promise to the people of East Palestine...](2056897768694673522/)
+  - Source: https://x.com/WhiteHouse/status/2056897768694673522
+  - Repost of @JDVance: President Trump is keeping his promise to the people of East Palestine. The Trump Administration will never forget you. Our message to Congress is clear: pass t...
+- [00:37 UTC - Repost of @FLOTUS: https://t.co/bJcupNVH6U https://t.co/tae5AqRQhg](2056897012692320462/)
+  - Source: https://x.com/WhiteHouse/status/2056897012692320462
+  - Repost of @FLOTUS: https://t.co/bJcupNVH6U https://t.co/tae5AqRQhg
+- [00:10 UTC - First Lady Melania Trump delivers an announcement that the House has passed the Fostering ...](2056890234785214964/)
+  - Source: https://x.com/WhiteHouse/status/2056890234785214964
+  - First Lady Melania Trump delivers an announcement that the House has passed the Fostering the Future Act! https://t.co/BB6sMJB5dn
+- [00:04 UTC - President Trump welcomes members of the House, Senate and Cabinet to the White House for t...](2056888734826528825/)
+  - Source: https://x.com/WhiteHouse/status/2056888734826528825
+  - President Trump welcomes members of the House, Senate and Cabinet to the White House for the annual Congressional Picnic at the White House! 🇺🇸 https://t.co/8fyRfkD893

@@ -1,0 +1,52 @@
+# X / WhiteHouse / 2026-05-23
+
+- Posts: 16
+
+- [23:30 UTC - Repost of @FBIDirectorKash: FBI is on the scene and supporting Secret Service responding t...](2058329717481103702/)
+  - Source: https://x.com/WhiteHouse/status/2058329717481103702
+  - Repost of @FBIDirectorKash: FBI is on the scene and supporting Secret Service responding to shots fired near White House grounds - we will update the public as we’re able
+- [20:41 UTC - 🚨 "An Agreement has been largely negotiated, subject to finalization between the United St...](2058287270373855556/)
+  - Source: https://x.com/WhiteHouse/status/2058287270373855556
+  - 🚨 "An Agreement has been largely negotiated, subject to finalization between the United States of America, the Islamic Republic of Iran, and the various other Countries, as listed....
+- [20:19 UTC - Repost of @StevenCheung47: It’s 4:00 PM on a Saturday, and President Trump has been workin...](2058281794902909149/)
+  - Source: https://x.com/WhiteHouse/status/2058281794902909149
+  - Repost of @StevenCheung47: It’s 4:00 PM on a Saturday, and President Trump has been working hard at the White House since early this morning. This man is focused and determined.
+- [20:03 UTC - A FULL year of ZERO releases at the border. PROMISES MADE, PROMISES KEPT. ✅ https://t.co/9...](2058277584337559574/)
+  - Source: https://x.com/WhiteHouse/status/2058277584337559574
+  - A FULL year of ZERO releases at the border. PROMISES MADE, PROMISES KEPT. ✅ https://t.co/9bHj2f3v5M
+- [19:57 UTC - Repost of @SecVetAffairs: Today we honored the names etched into the Vietnam Veterans Memo...](2058276051126489398/)
+  - Source: https://x.com/WhiteHouse/status/2058276051126489398
+  - Repost of @SecVetAffairs: Today we honored the names etched into the Vietnam Veterans Memorial through the humble act of washing the wall. It’s our way of saying welcome home and r...
+- [18:23 UTC - Repost of @ufc: History in the making 👀 New visuals for #UFCWhiteHouse and the UFC Freedom...](2058252422963749051/)
+  - Source: https://x.com/WhiteHouse/status/2058252422963749051
+  - Repost of @ufc: History in the making 👀 New visuals for #UFCWhiteHouse and the UFC Freedom 250 Fan Fest are here! [ Presented by @Cryptocom &amp; @RamTrucks ] https://t.co/PQP7dut7...
+- [17:34 UTC - ❤️🇺🇸 https://t.co/aVFnArhAkU](2058240272249610433/)
+  - Source: https://x.com/WhiteHouse/status/2058240272249610433
+  - ❤️🇺🇸 https://t.co/aVFnArhAkU
+- [16:11 UTC - Repost of @DOWResponse: CONGRATULATIONS TO THE CLASS OF 2026—JOB WELL DONE!!! https://t.co...](2058219205091103050/)
+  - Source: https://x.com/WhiteHouse/status/2058219205091103050
+  - Repost of @DOWResponse: CONGRATULATIONS TO THE CLASS OF 2026—JOB WELL DONE!!! https://t.co/AjVk4zlRxn
+- [16:00 UTC - Kevin Warsh has been sworn in as the 17th Chairman of the Federal Reserve. 🇺🇸 https://t.co...](2058216465359110473/)
+  - Source: https://x.com/WhiteHouse/status/2058216465359110473
+  - Kevin Warsh has been sworn in as the 17th Chairman of the Federal Reserve. 🇺🇸 https://t.co/0gIOh1dUss
+- [15:48 UTC - Repost of @WHFraudTF: .@VP Vance has chosen former Trump U.S. Attorney @ScottBradyPA to se...](2058213436308304153/)
+  - Source: https://x.com/WhiteHouse/status/2058213436308304153
+  - Repost of @WHFraudTF: .@VP Vance has chosen former Trump U.S. Attorney @ScottBradyPA to serve as Executive Director of the Task Force to Eliminate Fraud. Scott is leading the charg...
+- [14:27 UTC - Repost of @SBA_Kelly: .@POTUS has already cut billions in red tape that drove up housing c...](2058192999629152490/)
+  - Source: https://x.com/WhiteHouse/status/2058192999629152490
+  - Repost of @SBA_Kelly: .@POTUS has already cut billions in red tape that drove up housing costs during the Biden Administration – and taken historic action to stop Wall Street from...
+- [14:26 UTC - Repost of @DHSgov: Honor the lions who defend our homeland. Have a blessed Memorial Day We...](2058192944033677447/)
+  - Source: https://x.com/WhiteHouse/status/2058192944033677447
+  - Repost of @DHSgov: Honor the lions who defend our homeland. Have a blessed Memorial Day Weekend, patriots. https://t.co/FPtGMKL8zw
+- [14:26 UTC - Repost of @FBIDirectorKash: From FBI news this week - 1.1 million fewer violent crimes und...](2058192874026532918/)
+  - Source: https://x.com/WhiteHouse/status/2058192874026532918
+  - Repost of @FBIDirectorKash: From FBI news this week - 1.1 million fewer violent crimes under President Trump - the largest decrease in almost 90 years. You are witnessing the most...
+- [14:26 UTC - Repost of @SecRubio: In New Delhi, I met with Indian Prime Minister @narendramodi to under...](2058192855638647211/)
+  - Source: https://x.com/WhiteHouse/status/2058192855638647211
+  - Repost of @SecRubio: In New Delhi, I met with Indian Prime Minister @narendramodi to underscore the importance of the U.S.-India relationship. We discussed the situation in the Mid...
+- [14:26 UTC - Repost of @DeptofWar: LIVE: @SecWar Pete Hegseth delivers the commencement address to the ...](2058192837745795242/)
+  - Source: https://x.com/WhiteHouse/status/2058192837745795242
+  - Repost of @DeptofWar: LIVE: @SecWar Pete Hegseth delivers the commencement address to the 2026 graduating class of the U.S. Military Academy during a ceremony at West Point, N.Y. h...
+- [00:47 UTC - An electrifying speech on American jobs, the economy, border security, and more in Preside...](2057986829761077310/)
+  - Source: https://x.com/WhiteHouse/status/2057986829761077310
+  - An electrifying speech on American jobs, the economy, border security, and more in President Donald J. Trump's home state of New York. 🔥🇺🇸 https://t.co/WOh9rhQaeZ

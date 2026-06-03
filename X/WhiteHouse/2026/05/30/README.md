@@ -1,0 +1,49 @@
+# X / WhiteHouse / 2026-05-30
+
+- Posts: 15
+
+- [22:56 UTC - Literally. https://t.co/WPKZbvZaTP](2060857877053526234/)
+  - Source: https://x.com/WhiteHouse/status/2060857877053526234
+  - Literally. https://t.co/WPKZbvZaTP
+- [21:51 UTC - Repost of @DHSgov: One goal. One mission. Restore LAW AND ORDER. We have ZERO tolerance fo...](2060841503447019865/)
+  - Source: https://x.com/WhiteHouse/status/2060841503447019865
+  - Repost of @DHSgov: One goal. One mission. Restore LAW AND ORDER. We have ZERO tolerance for violent rioters who assault law enforcement. Anyone who assaults law enforcement will be...
+- [21:37 UTC - Decline is a choice. https://t.co/UkUJevp2HW](2060837965241233417/)
+  - Source: https://x.com/WhiteHouse/status/2060837965241233417
+  - Decline is a choice. https://t.co/UkUJevp2HW
+- [21:16 UTC - 📺 TONIGHT at 9PM EST, President Donald J. Trump sits with @LaraLeaTrump for an exclusive i...](2060832735631941924/)
+  - Source: https://x.com/WhiteHouse/status/2060832735631941924
+  - 📺 TONIGHT at 9PM EST, President Donald J. Trump sits with @LaraLeaTrump for an exclusive interview on @FoxNews. 🇺🇸 Don’t miss it! https://t.co/BGhJxw0Mxv
+- [21:12 UTC - Repost of @DHSgov: We will NOT tolerate rioting or assaults on law enforcement. Alongside ...](2060831731620389008/)
+  - Source: https://x.com/WhiteHouse/status/2060831731620389008
+  - Repost of @DHSgov: We will NOT tolerate rioting or assaults on law enforcement. Alongside our law enforcement partners in New Jersey, we remain committed to restoring law and order...
+- [19:05 UTC - Repost of @Freedom250: The Great American State Fair is a World’s Fair celebrating the peo...](2060799857971937538/)
+  - Source: https://x.com/WhiteHouse/status/2060799857971937538
+  - Repost of @Freedom250: The Great American State Fair is a World’s Fair celebrating the people, traditions, innovations, and spirit that make America the greatest nation on Earth. T...
+- [18:46 UTC - Repost of @DHSgov: The heroes of @ICEgov are not slowing down in their mission to remove c...](2060794895481057310/)
+  - Source: https://x.com/WhiteHouse/status/2060794895481057310
+  - Repost of @DHSgov: The heroes of @ICEgov are not slowing down in their mission to remove criminals from our communities and make our nation SAFE again. This week, ICE arrested murd...
+- [18:46 UTC - Repost of @SecretaryBurgum: Crews are hard at work replacing decaying &amp; failing expans...](2060794878187983333/)
+  - Source: https://x.com/WhiteHouse/status/2060794878187983333
+  - Repost of @SecretaryBurgum: Crews are hard at work replacing decaying &amp; failing expansion joints in the Reflecting Pool with leak-proof materials built to last generations. Tha...
+- [18:45 UTC - Repost of @FBIDirectorKash: FBI’s national Op Viper continues to deliver, this time in St....](2060794863113683190/)
+  - Source: https://x.com/WhiteHouse/status/2060794863113683190
+  - Repost of @FBIDirectorKash: FBI’s national Op Viper continues to deliver, this time in St. Louis @fbi https://t.co/CPLgcecr0v
+- [16:39 UTC - AMERICA IS BACK Rally! https://t.co/ZAowKERA12](2060763018187661370/)
+  - Source: https://x.com/WhiteHouse/status/2060763018187661370
+  - AMERICA IS BACK Rally! https://t.co/ZAowKERA12
+- [16:07 UTC - Can't stop watching this. VP Vance chest bumps for an hour straight. You're welcome. 🔁 htt...](2060754873298133225/)
+  - Source: https://x.com/WhiteHouse/status/2060754873298133225
+  - Can't stop watching this. VP Vance chest bumps for an hour straight. You're welcome. 🔁 https://t.co/TIBw8kjmrP
+- [14:02 UTC - "President Trump remains in excellent health... Cognitive and physical performance are exc...](2060723489292661124/)
+  - Source: https://x.com/WhiteHouse/status/2060723489292661124
+  - "President Trump remains in excellent health... Cognitive and physical performance are excellent. He is fully fit to carry out all duties of the Commander-in-Chief and Head of Stat...
+- [14:01 UTC - Repost of @SecWar: Honored to meet Secretary Teodoro for the fifth time as we bolster defe...](2060723278415573406/)
+  - Source: https://x.com/WhiteHouse/status/2060723278415573406
+  - Repost of @SecWar: Honored to meet Secretary Teodoro for the fifth time as we bolster defense cooperation along the First Island Chain—backed by our most advanced-ever BALIKATAN ex...
+- [14:01 UTC - Repost of @DHSgov: One destroys, the other restores. Law abiding Americans begin to clean ...](2060723253123948605/)
+  - Source: https://x.com/WhiteHouse/status/2060723253123948605
+  - Repost of @DHSgov: One destroys, the other restores. Law abiding Americans begin to clean up trash and damaged property from the left-wing riots last night. https://t.co/A3SoaOQxmS
+- [01:46 UTC - Repost of @DHSgov: Justice will be served. The Trump Administration will always have the b...](2060538386155229564/)
+  - Source: https://x.com/WhiteHouse/status/2060538386155229564
+  - Repost of @DHSgov: Justice will be served. The Trump Administration will always have the backs of our heroic law enforcement as they put their lives on the line to protect our nati...

@@ -1,0 +1,64 @@
+# X / WhiteHouse / 2026-05-07
+
+- Posts: 20
+
+- [22:46 UTC - 🚨 "Three World Class American Destroyers just transited, very successfully, out of the Str...](2052520547108765923/)
+  - Source: https://x.com/WhiteHouse/status/2052520547108765923
+  - 🚨 "Three World Class American Destroyers just transited, very successfully, out of the Strait of Hormuz, under fire. There was no damage done to the three Destroyers, but great dam...
+- [21:36 UTC - For America to be great, we must always remain one nation under God. On National Day of Pr...](2052502740253696312/)
+  - Source: https://x.com/WhiteHouse/status/2052502740253696312
+  - For America to be great, we must always remain one nation under God. On National Day of Prayer, we pledge that America will always, as it is written in Psalm 96, “Tell His glory am...
+- [20:23 UTC - Small businesses are the backbone of America 🇺🇸 They drive 40% of our economy, power Ameri...](2052484363284357262/)
+  - Source: https://x.com/WhiteHouse/status/2052484363284357262
+  - Small businesses are the backbone of America 🇺🇸 They drive 40% of our economy, power American manufacturing, and support working families nationwide. This Small Business Week, Pres...
+- [19:58 UTC - "I had a great call with The President of the European Commission, Ursula von der Leyen. W...](2052478146075599291/)
+  - Source: https://x.com/WhiteHouse/status/2052478146075599291
+  - "I had a great call with The President of the European Commission, Ursula von der Leyen. We discussed many topics, including that we are completely united that Iran can never have...
+- [19:10 UTC - Repost of @SecRubio: Today’s sanctions demonstrate that the Trump Administration will not ...](2052466238882799636/)
+  - Source: https://x.com/WhiteHouse/status/2052466238882799636
+  - Repost of @SecRubio: Today’s sanctions demonstrate that the Trump Administration will not stand by while Cuba’s communist regime threatens our national security in our hemisphere....
+- [18:29 UTC - "Just concluded my meeting with Luiz Inácio Lula da Silva, the very dynamic President of B...](2052455736827899957/)
+  - Source: https://x.com/WhiteHouse/status/2052455736827899957
+  - "Just concluded my meeting with Luiz Inácio Lula da Silva, the very dynamic President of Brazil. We discussed many topics, including Trade and, specifically, Tariffs..." - Presiden...
+- [18:21 UTC - America leads the way. https://t.co/EaHMTzuQzN](2052453762778763671/)
+  - Source: https://x.com/WhiteHouse/status/2052453762778763671
+  - America leads the way. https://t.co/EaHMTzuQzN
+- [16:33 UTC - Ahead of Mother’s Day, President Donald J. Trump and First Lady Melania Trump welcomed Ame...](2052426515376185621/)
+  - Source: https://x.com/WhiteHouse/status/2052426515376185621
+  - Ahead of Mother’s Day, President Donald J. Trump and First Lady Melania Trump welcomed America’s military moms to the White House. 🇺🇸 Strength. Sacrifice. Service. The backbone of...
+- [15:26 UTC - ︎︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎...](2052409800781083042/)
+  - Source: https://x.com/WhiteHouse/status/2052409800781083042
+  - ︎︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ ︎ MAGA.
+- [14:38 UTC - Repost of @SecWar: Thanks to President Trump’s $1.5 trillion defense budget, this War Depa...](2052397575643218196/)
+  - Source: https://x.com/WhiteHouse/status/2052397575643218196
+  - Repost of @SecWar: Thanks to President Trump’s $1.5 trillion defense budget, this War Department has moved from bureaucracy to business. This is a FISCALLY RESPONSIBLE INVESTMENT i...
+- [14:09 UTC - Repost of @DHSgov: Have a NICE day! https://t.co/DqVMnSyN1e](2052390337868407035/)
+  - Source: https://x.com/WhiteHouse/status/2052390337868407035
+  - Repost of @DHSgov: Have a NICE day! https://t.co/DqVMnSyN1e
+- [13:45 UTC - America First. https://t.co/GVYfrzCvpQ](2052384243599249595/)
+  - Source: https://x.com/WhiteHouse/status/2052384243599249595
+  - America First. https://t.co/GVYfrzCvpQ
+- [13:10 UTC - Repost of @SecRubio: Met with @Pontifex to underscore our shared commitment to promoting p...](2052375481366753671/)
+  - Source: https://x.com/WhiteHouse/status/2052375481366753671
+  - Repost of @SecRubio: Met with @Pontifex to underscore our shared commitment to promoting peace and human dignity. https://t.co/BIZ9SfW5nY
+- [13:02 UTC - Repost of @NASAAdmin: Exploration is part of who we are. Back to the Moon. Building a Moon...](2052373584241111185/)
+  - Source: https://x.com/WhiteHouse/status/2052373584241111185
+  - Repost of @NASAAdmin: Exploration is part of who we are. Back to the Moon. Building a Moon Base. Unlocking water ice. Expanding humanity’s reach into the cosmos. The future is clos...
+- [11:52 UTC - Repost of @SecRollins: New SNAP stocking standards are raising the bar for real nutrition....](2052355918491230386/)
+  - Source: https://x.com/WhiteHouse/status/2052355918491230386
+  - Repost of @SecRollins: New SNAP stocking standards are raising the bar for real nutrition. We’re requiring more than 250,000 retailers to stock, at minimum, 28 varieties of healthy...
+- [11:52 UTC - Repost of @KatiePavlichNN: WATCH: Dennis Coyle joins @KatiePavlich for his first sit-down ...](2052355892230717489/)
+  - Source: https://x.com/WhiteHouse/status/2052355892230717489
+  - Repost of @KatiePavlichNN: WATCH: Dennis Coyle joins @KatiePavlich for his first sit-down interview since being freed from Taliban captivity in March. Joined by his sister Molly Lo...
+- [01:40 UTC - Peace through strength. U.S. EMBASSY IN CARACAS 🇺🇸 🤝 🇻🇪 https://t.co/dVOCQcxqGM](2052201984808177681/)
+  - Source: https://x.com/WhiteHouse/status/2052201984808177681
+  - Peace through strength. U.S. EMBASSY IN CARACAS 🇺🇸 🤝 🇻🇪 https://t.co/dVOCQcxqGM
+- [01:19 UTC - Repost of @SusieWiles47: President Trump is the most forward leaning president on innovati...](2052196481231143208/)
+  - Source: https://x.com/WhiteHouse/status/2052196481231143208
+  - Repost of @SusieWiles47: President Trump is the most forward leaning president on innovation in American history. When it comes to AI and cyber security, President Trump and his ad...
+- [01:18 UTC - Stock Market hit an ALL-TIME HIGH TODAY. 📈 https://t.co/HiaPe1MUgk](2052196360594612566/)
+  - Source: https://x.com/WhiteHouse/status/2052196360594612566
+  - Stock Market hit an ALL-TIME HIGH TODAY. 📈 https://t.co/HiaPe1MUgk
+- [00:07 UTC - Repost of @FirstLadyOffice: "At the very heart of America’s strength lies the boundless lo...](2052178579597770931/)
+  - Source: https://x.com/WhiteHouse/status/2052178579597770931
+  - Repost of @FirstLadyOffice: "At the very heart of America’s strength lies the boundless love and quiet power of mothers. We are the most devoted teachers—gently nurturing empathy,...

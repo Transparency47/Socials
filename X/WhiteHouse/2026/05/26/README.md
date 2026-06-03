@@ -1,0 +1,82 @@
+# X / WhiteHouse / 2026-05-26
+
+- Posts: 26
+
+- [23:47 UTC - Repost of @DHSgov: “I pray that out of his glorious riches he may strengthen you with powe...](2059421138992627937/)
+  - Source: https://x.com/WhiteHouse/status/2059421138992627937
+  - Repost of @DHSgov: “I pray that out of his glorious riches he may strengthen you with power through his Spirit in your inner being.” Ephesians 3:16.
+- [23:47 UTC - Repost of @JDVance: When politicians allow fraud to run rampant, normal Americans suffer. ...](2059421079198708117/)
+  - Source: https://x.com/WhiteHouse/status/2059421079198708117
+  - Repost of @JDVance: When politicians allow fraud to run rampant, normal Americans suffer. https://t.co/RKiRbWJ2cx
+- [21:52 UTC - Since @WHFraudTF launched, BILLIONS have already been recovered in taxpayer dollars. The T...](2059392222152294542/)
+  - Source: https://x.com/WhiteHouse/status/2059392222152294542
+  - Since @WHFraudTF launched, BILLIONS have already been recovered in taxpayer dollars. The Trump Admin will keep fighting until every fraud scheme is exposed, every dollar possible i...
+- [21:40 UTC - Repost of @RapidResponse47: https://t.co/W4ZqJxO1KR](2059389257794379880/)
+  - Source: https://x.com/WhiteHouse/status/2059389257794379880
+  - Repost of @RapidResponse47: https://t.co/W4ZqJxO1KR
+- [20:57 UTC - Repost of @FLOTUS: In safeguarding our children’s well-being, we shape the integrity of ou...](2059378288552706105/)
+  - Source: https://x.com/WhiteHouse/status/2059378288552706105
+  - Repost of @FLOTUS: In safeguarding our children’s well-being, we shape the integrity of our nation. But to get there, a strong knowledge base is required. Education is the cornerst...
+- [20:09 UTC - Repost of @DHSgov: Reduce. Reuse. Remigrate. 🌎 https://t.co/VzBkxb5iLC](2059366309972840911/)
+  - Source: https://x.com/WhiteHouse/status/2059366309972840911
+  - Repost of @DHSgov: Reduce. Reuse. Remigrate. 🌎 https://t.co/VzBkxb5iLC
+- [19:48 UTC - Repost of @HHSGov: HHS 🤝 @WHFraudTF ✅ February 25, 2026: The Trump Administration halted n...](2059361175301669166/)
+  - Source: https://x.com/WhiteHouse/status/2059361175301669166
+  - Repost of @HHSGov: HHS 🤝 @WHFraudTF ✅ February 25, 2026: The Trump Administration halted nearly $260 million in Medicaid payments to Minnesota over rampant fraud allegations, deman...
+- [19:43 UTC - The Dumacrats and Media have totally LOST THEIR WAY. https://t.co/UkpT7ejYXS](2059359719718842677/)
+  - Source: https://x.com/WhiteHouse/status/2059359719718842677
+  - The Dumacrats and Media have totally LOST THEIR WAY. https://t.co/UkpT7ejYXS
+- [19:29 UTC - Repost of @SecretaryBurgum: Best dam country in the world 🇺🇸 https://t.co/utjLZUMRZ0](2059356323838296266/)
+  - Source: https://x.com/WhiteHouse/status/2059356323838296266
+  - Repost of @SecretaryBurgum: Best dam country in the world 🇺🇸 https://t.co/utjLZUMRZ0
+- [19:24 UTC - Repost of @RapidResponse47: WATCH: @VP highlights the tremendous early success of the @WHF...](2059354985729515858/)
+  - Source: https://x.com/WhiteHouse/status/2059354985729515858
+  - Repost of @RapidResponse47: WATCH: @VP highlights the tremendous early success of the @WHFraudTF in identifying and eliminating fraud. And this is just the beginning! https://t.co/...
+- [18:16 UTC - Repost of @VP: Vice President JD Vance Holds a State Attorneys General Roundtable on Anti-...](2059337991667978504/)
+  - Source: https://x.com/WhiteHouse/status/2059337991667978504
+  - Repost of @VP: Vice President JD Vance Holds a State Attorneys General Roundtable on Anti-Fraud Initiatives https://t.co/BRynnKquao
+- [18:03 UTC - Repost of @WHFraudTF: Major Anti-Fraud News Happening Now. Watch LIVE: https://t.co/Y3TJPY...](2059334705690935794/)
+  - Source: https://x.com/WhiteHouse/status/2059334705690935794
+  - Repost of @WHFraudTF: Major Anti-Fraud News Happening Now. Watch LIVE: https://t.co/Y3TJPYX9KQ
+- [17:59 UTC - Crushing BILLIONS of dollars in medicare, hospice, childcare and many more types of FRAUD....](2059333498301735131/)
+  - Source: https://x.com/WhiteHouse/status/2059333498301735131
+  - Crushing BILLIONS of dollars in medicare, hospice, childcare and many more types of FRAUD. The Trump Administration is bringing accountability and justice back to the American taxp...
+- [17:05 UTC - PERFECT BILL OF HEALTH! 🇺🇸 https://t.co/nxyEpQF0Qe](2059320007905980838/)
+  - Source: https://x.com/WhiteHouse/status/2059320007905980838
+  - PERFECT BILL OF HEALTH! 🇺🇸 https://t.co/nxyEpQF0Qe
+- [16:07 UTC - The mission is simple. https://t.co/JU0uGi45sn](2059305400252481658/)
+  - Source: https://x.com/WhiteHouse/status/2059305400252481658
+  - The mission is simple. https://t.co/JU0uGi45sn
+- [15:20 UTC - Repost of @SecRubio: Today in Yerevan, Armenian Foreign Minister @AraratMirzoyan and I ann...](2059293484507443569/)
+  - Source: https://x.com/WhiteHouse/status/2059293484507443569
+  - Repost of @SecRubio: Today in Yerevan, Armenian Foreign Minister @AraratMirzoyan and I announced a bilateral framework agreement on the Trump Route for International Peace and Pros...
+- [15:19 UTC - Repost of @USOPM: Same mission, different marketing✨🇺🇸 https://t.co/c8ScVNVj3B](2059293459475841175/)
+  - Source: https://x.com/WhiteHouse/status/2059293459475841175
+  - Repost of @USOPM: Same mission, different marketing✨🇺🇸 https://t.co/c8ScVNVj3B
+- [14:36 UTC - MORE JOBS. MORE INVESTMENTS. MORE FACTORIES. "We're doing everything we can to bring New Y...](2059282485507187094/)
+  - Source: https://x.com/WhiteHouse/status/2059282485507187094
+  - MORE JOBS. MORE INVESTMENTS. MORE FACTORIES. "We're doing everything we can to bring New York back bigger better and stronger than ever before." - President Donald J. Trump https:/...
+- [14:29 UTC - Repost of @ICEgov: The facts are: ⭐All detainees are provided with 3 meals a day, clean wa...](2059280873850114166/)
+  - Source: https://x.com/WhiteHouse/status/2059280873850114166
+  - Repost of @ICEgov: The facts are: ⭐All detainees are provided with 3 meals a day, clean water, clothing, bedding, showers, soap, and toiletries. ⭐Illegal aliens also have access to...
+- [13:28 UTC - Repost of @TulsiGabbard: It was an honor to visit your husband’s grave today on your behal...](2059265526149312962/)
+  - Source: https://x.com/WhiteHouse/status/2059265526149312962
+  - Repost of @TulsiGabbard: It was an honor to visit your husband’s grave today on your behalf, and to pay my respects. It was wonderful to see the beautiful flowers representing many...
+- [13:27 UTC - Repost of @RapidResponse47: .@SecRubio delivers remarks as he signs a strategic partnershi...](2059265218518090043/)
+  - Source: https://x.com/WhiteHouse/status/2059265218518090043
+  - Repost of @RapidResponse47: .@SecRubio delivers remarks as he signs a strategic partnership charter with Armenian Foreign Minister Ararat Mirzoyan: "This agreement marks the bigges...
+- [13:27 UTC - Repost of @FBIDirectorKash: Join the record breaking mission safeguarding America - be the...](2059265182027669993/)
+  - Source: https://x.com/WhiteHouse/status/2059265182027669993
+  - Repost of @FBIDirectorKash: Join the record breaking mission safeguarding America - be the next to arrest a narcotrafficker, child predator, murderer, or terrorist. https://t.co/2f...
+- [13:12 UTC - Repost of @SecRubio: Under President Trump, we have ushered in a new golden age for U.S.-J...](2059261304926277682/)
+  - Source: https://x.com/WhiteHouse/status/2059261304926277682
+  - Repost of @SecRubio: Under President Trump, we have ushered in a new golden age for U.S.-Japan relations that upholds a free and open Indo-Pacific and brings peace and prosperity t...
+- [01:49 UTC - GOD BLESS AMERICA. https://t.co/yx2altZPxX](2059089422100860953/)
+  - Source: https://x.com/WhiteHouse/status/2059089422100860953
+  - GOD BLESS AMERICA. https://t.co/yx2altZPxX
+- [00:38 UTC - Repost of @Freedom250: Chilling moment as the U.S. Army Orchestra and Joint Armed Forces C...](2059071602197660000/)
+  - Source: https://x.com/WhiteHouse/status/2059071602197660000
+  - Repost of @Freedom250: Chilling moment as the U.S. Army Orchestra and Joint Armed Forces Chorus performs on the grounds of Arlington National Cemetery. https://t.co/8M9kSJoILi
+- [00:37 UTC - Repost of @Freedom250: National Memorial Day Observance: An Evening Of Stories Of Service ...](2059071486208483516/)
+  - Source: https://x.com/WhiteHouse/status/2059071486208483516
+  - Repost of @Freedom250: National Memorial Day Observance: An Evening Of Stories Of Service https://t.co/l1G43og9hz

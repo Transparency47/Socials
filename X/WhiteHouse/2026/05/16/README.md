@@ -1,0 +1,40 @@
+# X / WhiteHouse / 2026-05-16
+
+- Posts: 12
+
+- [22:59 UTC - 👀 https://t.co/FEnJjOvmWS](2055785300148764859/)
+  - Source: https://x.com/WhiteHouse/status/2055785300148764859
+  - 👀 https://t.co/FEnJjOvmWS
+- [22:02 UTC - “GOOD RIDDANCE! After 15 years of Dumocrats promising that “Climate Change” is going to de...](2055770869847281967/)
+  - Source: https://x.com/WhiteHouse/status/2055770869847281967
+  - “GOOD RIDDANCE! After 15 years of Dumocrats promising that “Climate Change” is going to destroy the Planet, the United Nations TOP Climate Committee just admitted that its own proj...
+- [21:11 UTC - "THE SAVE AMERICA ACT MUST BE PASSED, NOW... We cannot, as a Country, put up with this any...](2055758144450498587/)
+  - Source: https://x.com/WhiteHouse/status/2055758144450498587
+  - "THE SAVE AMERICA ACT MUST BE PASSED, NOW... We cannot, as a Country, put up with this any longer!!! Voter I.D., and Proof of Citizenship, must be approved, NOW." - President Donal...
+- [20:13 UTC - "This bond of commerce and respect that stretches back 250 years is the foundation for a f...](2055743427963142194/)
+  - Source: https://x.com/WhiteHouse/status/2055743427963142194
+  - "This bond of commerce and respect that stretches back 250 years is the foundation for a future that benefits both of our nations." - President Donald J. Trump 🇺🇸🤝🇨🇳 https://t.co/K...
+- [17:59 UTC - America’s best. WELCOME HOME, PATRIOTS! 🇺🇸](2055709852387713030/)
+  - Source: https://x.com/WhiteHouse/status/2055709852387713030
+  - America’s best. WELCOME HOME, PATRIOTS! 🇺🇸
+- [17:12 UTC - NO GAMES. https://t.co/eRtYH9lbDp](2055697898130551229/)
+  - Source: https://x.com/WhiteHouse/status/2055697898130551229
+  - NO GAMES. https://t.co/eRtYH9lbDp
+- [15:10 UTC - Repost of @FBIDirectorKash: Another historic FBI led FTOC under the leadership of @POTUS -...](2055667303358795827/)
+  - Source: https://x.com/WhiteHouse/status/2055667303358795827
+  - Repost of @FBIDirectorKash: Another historic FBI led FTOC under the leadership of @POTUS - second in 12 hours - we arrested and extradited Mohammad al-Saadi, a high-value target al...
+- [14:07 UTC - “No games!!! Watch what’s next on your favorite subject!” - President Donald J. Trump](2055651387602522202/)
+  - Source: https://x.com/WhiteHouse/status/2055651387602522202
+  - “No games!!! Watch what’s next on your favorite subject!” - President Donald J. Trump
+- [13:24 UTC - “He will no longer terrorize the people of Africa, or help plan operations to target Ameri...](2055640579334131956/)
+  - Source: https://x.com/WhiteHouse/status/2055640579334131956
+  - “He will no longer terrorize the people of Africa, or help plan operations to target Americans. With his removal, ISIS’s global operation is greatly diminished.” - President DONALD...
+- [13:10 UTC - Repost of @PeteHegseth: Last night U.S. forces, in coordination with the Armed Forces of N...](2055637087093711203/)
+  - Source: https://x.com/WhiteHouse/status/2055637087093711203
+  - Repost of @PeteHegseth: Last night U.S. forces, in coordination with the Armed Forces of Nigeria, killed Abu-Bilal al-Minuki and other ISIS leaders. Back in November 2025, Presiden...
+- [03:35 UTC - “Tonight, at my direction, brave American forces and the Armed Forces of Nigeria flawlessl...](2055492189115789463/)
+  - Source: https://x.com/WhiteHouse/status/2055492189115789463
+  - “Tonight, at my direction, brave American forces and the Armed Forces of Nigeria flawlessly executed a meticulously planned and very complex mission to eliminate the most active te...
+- [00:53 UTC - President Donald J. Trump sits down for a wide ranging interview on his historic trip to C...](2055451479234781407/)
+  - Source: https://x.com/WhiteHouse/status/2055451479234781407
+  - President Donald J. Trump sits down for a wide ranging interview on his historic trip to China with @SpecialReport. 🇺🇸 Watch the key moments in under two minutes. https://t.co/fjYz...

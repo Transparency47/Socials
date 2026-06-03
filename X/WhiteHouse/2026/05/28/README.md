@@ -1,0 +1,91 @@
+# X / WhiteHouse / 2026-05-28
+
+- Posts: 29
+
+- [22:32 UTC - They walk among us. https://t.co/7HysdUuNVM https://t.co/PkUHcT7igg](2060127126611718214/)
+  - Source: https://x.com/WhiteHouse/status/2060127126611718214
+  - They walk among us. https://t.co/7HysdUuNVM https://t.co/PkUHcT7igg
+- [22:00 UTC - Don't zoom into the t-shirt. https://t.co/Y2nRIsaoqF](2060119104279675242/)
+  - Source: https://x.com/WhiteHouse/status/2060119104279675242
+  - Don't zoom into the t-shirt. https://t.co/Y2nRIsaoqF
+- [21:13 UTC - Loading… tonight. 👀 https://t.co/3gU6ISfci6](2060107136148091190/)
+  - Source: https://x.com/WhiteHouse/status/2060107136148091190
+  - Loading… tonight. 👀 https://t.co/3gU6ISfci6
+- [20:47 UTC - Download the Trump Accounts app and watch your child's future grow with them. 🇺🇸 📲 https:/...](2060100721316401164/)
+  - Source: https://x.com/WhiteHouse/status/2060100721316401164
+  - Download the Trump Accounts app and watch your child's future grow with them. 🇺🇸 📲 https://t.co/aaHh9hPu7m 📲 https://t.co/v6AOEgSnlG https://t.co/Xo2avgXq9Y
+- [20:21 UTC - Repost of @SecretaryWright: Happy National Burger Day! A great burger is as American as it...](2060094200163783095/)
+  - Source: https://x.com/WhiteHouse/status/2060094200163783095
+  - Repost of @SecretaryWright: Happy National Burger Day! A great burger is as American as it gets. Thanks, @POTUS! https://t.co/9YnHM5djxi
+- [20:10 UTC - Repost of @DHSgov: A crown for every achievement. https://t.co/S2Yhhmhkq6](2060091256274120888/)
+  - Source: https://x.com/WhiteHouse/status/2060091256274120888
+  - Repost of @DHSgov: A crown for every achievement. https://t.co/S2Yhhmhkq6
+- [19:46 UTC - When law and order is restored, safety follows. ALL WE NEEDED WAS A NEW PRESIDENT. https:/...](2060085347371852073/)
+  - Source: https://x.com/WhiteHouse/status/2060085347371852073
+  - When law and order is restored, safety follows. ALL WE NEEDED WAS A NEW PRESIDENT. https://t.co/JT6SoJEHNj
+- [19:15 UTC - Repost of @SecRollins: Another day, another ridiculous battle to destroy our farmers and t...](2060077589134446927/)
+  - Source: https://x.com/WhiteHouse/status/2060077589134446927
+  - Repost of @SecRollins: Another day, another ridiculous battle to destroy our farmers and their farmland. New York’s decision to craft their own lax standards for ‘prime farmland’ t...
+- [18:47 UTC - AMERICA’S NEXT GENERATION OF WARRIORS. 🇺🇸🔥 U.S. AIR FORCE ACADEMY CLASS OF 2026 https://t....](2060070513112645818/)
+  - Source: https://x.com/WhiteHouse/status/2060070513112645818
+  - AMERICA’S NEXT GENERATION OF WARRIORS. 🇺🇸🔥 U.S. AIR FORCE ACADEMY CLASS OF 2026 https://t.co/HaGq4U7zH3
+- [18:38 UTC - "The app is now available on all major platforms, bringing the president's vision directly...](2060068091610952117/)
+  - Source: https://x.com/WhiteHouse/status/2060068091610952117
+  - "The app is now available on all major platforms, bringing the president's vision directly to American homes." - @SecScottBessent DOWNLOAD NOW! 📲 https://t.co/aaHh9hPu7m 📲 https://...
+- [18:31 UTC - Repost of @RapidResponse47: .@SecScottBessent on the significance of @TrumpAccounts: "I th...](2060066536719515782/)
+  - Source: https://x.com/WhiteHouse/status/2060066536719515782
+  - Repost of @RapidResponse47: .@SecScottBessent on the significance of @TrumpAccounts: "I think this is going to be one of the greatest real-time financial literacy educations in his...
+- [18:09 UTC - Secretary of the Treasury Scott Bessent Briefs Members of the Media, May 28, 2026 https://...](2060060920533925891/)
+  - Source: https://x.com/WhiteHouse/status/2060060920533925891
+  - Secretary of the Treasury Scott Bessent Briefs Members of the Media, May 28, 2026 https://t.co/K5nRJsE8Jx
+- [18:08 UTC - Repost of @SecretaryBurgum: Decline is a choice. Decay is a choice. But thanks to @POTUS, ...](2060060662261338119/)
+  - Source: https://x.com/WhiteHouse/status/2060060662261338119
+  - Repost of @SecretaryBurgum: Decline is a choice. Decay is a choice. But thanks to @POTUS, America is choosing renewal over resignation, restoration over deterioration and beauty ov...
+- [17:24 UTC - SOON: @SecScottBessent takes the podium. 🇺🇸 Don’t miss it! https://t.co/6hj9mADxqc](2060049507895607368/)
+  - Source: https://x.com/WhiteHouse/status/2060049507895607368
+  - SOON: @SecScottBessent takes the podium. 🇺🇸 Don’t miss it! https://t.co/6hj9mADxqc
+- [16:41 UTC - 📲 https://t.co/aaHh9hPu7m 📲 https://t.co/v6AOEgSnlG](2060038710956044434/)
+  - Source: https://x.com/WhiteHouse/status/2060038710956044434
+  - 📲 https://t.co/aaHh9hPu7m 📲 https://t.co/v6AOEgSnlG
+- [16:11 UTC - Weekly reminder: Decline is a choice. https://t.co/LeFsjFqg3R](2060031114874323322/)
+  - Source: https://x.com/WhiteHouse/status/2060031114874323322
+  - Weekly reminder: Decline is a choice. https://t.co/LeFsjFqg3R
+- [15:58 UTC - Repost of @RapidResponse47: .@VP at the @af_academy commencement in Colorado Springs: "Tod...](2060027912980398268/)
+  - Source: https://x.com/WhiteHouse/status/2060027912980398268
+  - Repost of @RapidResponse47: .@VP at the @af_academy commencement in Colorado Springs: "Today, we celebrate not just you, not just the completed journey, but importantly... Today, y...
+- [15:28 UTC - Minnesota’s fraud schemes are finished. The days of scamming American taxpayers are DONE. ...](2060020518229590507/)
+  - Source: https://x.com/WhiteHouse/status/2060020518229590507
+  - Minnesota’s fraud schemes are finished. The days of scamming American taxpayers are DONE. https://t.co/FxofWWThG1
+- [15:02 UTC - Are you listening? 🔊 https://t.co/Q4h4LDkaU5](2060013820139942309/)
+  - Source: https://x.com/WhiteHouse/status/2060013820139942309
+  - Are you listening? 🔊 https://t.co/Q4h4LDkaU5
+- [15:02 UTC - Repost of @VP: Vice President JD Vance Delivers a Commencement Address to the United State...](2060013775785279641/)
+  - Source: https://x.com/WhiteHouse/status/2060013775785279641
+  - Repost of @VP: Vice President JD Vance Delivers a Commencement Address to the United States Air Force Academy https://t.co/zMXPzhjeHb
+- [14:28 UTC - Repost of @StateDept: Happy Birthday, Mr. Secretary. https://t.co/Nwun9geB5Z](2060005325827166603/)
+  - Source: https://x.com/WhiteHouse/status/2060005325827166603
+  - Repost of @StateDept: Happy Birthday, Mr. Secretary. https://t.co/Nwun9geB5Z
+- [13:35 UTC - IT’S HERE! 🇺🇸💰 The Trump Accounts App has officially launched. Now every family has a simp...](2059991947222147447/)
+  - Source: https://x.com/WhiteHouse/status/2059991947222147447
+  - IT’S HERE! 🇺🇸💰 The Trump Accounts App has officially launched. Now every family has a simple, direct way to get involved and build their child’s future. Download it TODAY on any Ap...
+- [12:55 UTC - Repost of @USTradeRep: Manufacturing plants are the lifeblood of communities across our co...](2059981825292792047/)
+  - Source: https://x.com/WhiteHouse/status/2059981825292792047
+  - Repost of @USTradeRep: Manufacturing plants are the lifeblood of communities across our country. Drawing on over 20 years at @MicronTech and his service in the U.S. Navy, Matt Stal...
+- [12:31 UTC - Repost of @SecScottBessent: For too long, financial markets felt out of reach for too many...](2059975920321004028/)
+  - Source: https://x.com/WhiteHouse/status/2059975920321004028
+  - Repost of @SecScottBessent: For too long, financial markets felt out of reach for too many. We are proud to launch the @TrumpAccounts app, a historic tool that brings the President...
+- [12:31 UTC - Repost of @USTreasury: The @TrumpAccounts app launches today—the main interface for the mo...](2059975906551033865/)
+  - Source: https://x.com/WhiteHouse/status/2059975906551033865
+  - Repost of @USTreasury: The @TrumpAccounts app launches today—the main interface for the most historic policy for American families in decades. This app is designed to be accessible...
+- [01:48 UTC - 👀 https://t.co/K8n3cJh4NU](2059814150470083035/)
+  - Source: https://x.com/WhiteHouse/status/2059814150470083035
+  - 👀 https://t.co/K8n3cJh4NU
+- [01:44 UTC - Repost of @DHSgov: Instead of thanking our brave @ICEgov law enforcement for removing the ...](2059813036286697480/)
+  - Source: https://x.com/WhiteHouse/status/2059813036286697480
+  - Repost of @DHSgov: Instead of thanking our brave @ICEgov law enforcement for removing the worst of the worst from our communities, sanctuary politicians continue spreading garbage...
+- [01:44 UTC - Repost of @StateDept: From Sweden 🇸🇪 to India 🇮🇳, @SecRubio is strengthening alliances, ad...](2059812990413582812/)
+  - Source: https://x.com/WhiteHouse/status/2059812990413582812
+  - Repost of @StateDept: From Sweden 🇸🇪 to India 🇮🇳, @SecRubio is strengthening alliances, advancing defense cooperation, and deepening economic partnerships.🇺🇸 https://t.co/7Zk37yW41...
+- [01:44 UTC - Repost of @Southcom: On May 27, at the direction of #SOUTHCOM commander Gen. Francis L. Do...](2059812972571090952/)
+  - Source: https://x.com/WhiteHouse/status/2059812972571090952
+  - Repost of @Southcom: On May 27, at the direction of #SOUTHCOM commander Gen. Francis L. Donovan, Joint Task Force Southern Spear conducted a lethal kinetic strike on a vessel opera...

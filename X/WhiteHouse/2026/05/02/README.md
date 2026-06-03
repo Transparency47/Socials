@@ -1,0 +1,31 @@
+# X / WhiteHouse / 2026-05-02
+
+- Posts: 9
+
+- [22:53 UTC - "I will soon be reviewing the plan that Iran has just sent to us, but can’t imagine that i...](2050710211518763191/)
+  - Source: https://x.com/WhiteHouse/status/2050710211518763191
+  - "I will soon be reviewing the plan that Iran has just sent to us, but can’t imagine that it would be acceptable in that they have not yet paid a big enough price for what they have...
+- [22:49 UTC - Repost of @RapidResponse47: .@POTUS on Iran's latest proposal: "I'm looking at it [on the ...](2050709182014239174/)
+  - Source: https://x.com/WhiteHouse/status/2050709182014239174
+  - Repost of @RapidResponse47: .@POTUS on Iran's latest proposal: "I'm looking at it [on the plane]. I'll let you know about it later... They told me about the concept of the deal. Th...
+- [18:53 UTC - America is worth protecting. 🇺🇸 https://t.co/oV5hoT3v30](2050649952175505844/)
+  - Source: https://x.com/WhiteHouse/status/2050649952175505844
+  - America is worth protecting. 🇺🇸 https://t.co/oV5hoT3v30
+- [17:37 UTC - Repost of @DHSgov: Happy Kentucky Derby, America! https://t.co/5mG4zO2jxX](2050630709413384517/)
+  - Source: https://x.com/WhiteHouse/status/2050630709413384517
+  - Repost of @DHSgov: Happy Kentucky Derby, America! https://t.co/5mG4zO2jxX
+- [16:22 UTC - "Under the Trump administration, we're standing up for American Seniors like no president ...](2050611802396844292/)
+  - Source: https://x.com/WhiteHouse/status/2050611802396844292
+  - "Under the Trump administration, we're standing up for American Seniors like no president has ever stood up before. Just as I promised, we're strongly protecting Social Security an...
+- [14:57 UTC - Repost of @SecDuffy: The Trump Administration puts Americans FIRST 🇺🇸 @POTUS was not going...](2050590383545975259/)
+  - Source: https://x.com/WhiteHouse/status/2050590383545975259
+  - Repost of @SecDuffy: The Trump Administration puts Americans FIRST 🇺🇸 @POTUS was not going to bail out Spirit unless it made sense for the American taxpayer We are lucky to have a...
+- [14:47 UTC - President Trump saying WINNING for 1 hour. 🔁 Can't stop, won't stop. https://t.co/1RhnINVA...](2050588054461489494/)
+  - Source: https://x.com/WhiteHouse/status/2050588054461489494
+  - President Trump saying WINNING for 1 hour. 🔁 Can't stop, won't stop. https://t.co/1RhnINVAKT
+- [01:11 UTC - That feeling when there's NO TAX ON SOCIAL SECURITY 🇺🇸🕺 https://t.co/fa5hZcK199](2050382614347788314/)
+  - Source: https://x.com/WhiteHouse/status/2050382614347788314
+  - That feeling when there's NO TAX ON SOCIAL SECURITY 🇺🇸🕺 https://t.co/fa5hZcK199
+- [00:24 UTC - Repost of @RapidResponse47: .@POTUS: "You cannot give Iran a nuclear weapon — because they...](2050370877091434633/)
+  - Source: https://x.com/WhiteHouse/status/2050370877091434633
+  - Repost of @RapidResponse47: .@POTUS: "You cannot give Iran a nuclear weapon — because they would use it on a place called Israel very quickly, and they would use it in the Middle E...

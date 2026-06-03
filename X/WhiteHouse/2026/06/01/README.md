@@ -1,7 +1,19 @@
 # X / WhiteHouse / 2026-06-01
 
-- Posts: 3
+- Posts: 20
 
+- [23:16 UTC - 14 months ago, President Trump and @Interior set out to make Washington D.C. safe, beautif...](2061587658560733346/)
+  - Source: https://x.com/WhiteHouse/status/2061587658560733346
+  - 14 months ago, President Trump and @Interior set out to make Washington D.C. safe, beautiful and respected again. The results have been INCREDIBLE, vastly improving the streets of...
+- [22:18 UTC - "Let’s see how long that lasts — Hopefully it will be for ETERNITY!" - President Donald J....](2061573106611712301/)
+  - Source: https://x.com/WhiteHouse/status/2061573106611712301
+  - "Let’s see how long that lasts — Hopefully it will be for ETERNITY!" - President Donald J. Trump https://t.co/XHNdprD98E
+- [21:09 UTC - TRUST IN TRUMP. "Just sit back and relax, it will all work out well in the end - It always...](2061555756743192723/)
+  - Source: https://x.com/WhiteHouse/status/2061555756743192723
+  - TRUST IN TRUMP. "Just sit back and relax, it will all work out well in the end - It always does!" - President Donald J. Trump. 🇺🇸 https://t.co/CAjU4jM8Jy
+- [20:14 UTC - Decline was a choice. Not anymore. In just 14 months, @POTUS has restored our nation’s cap...](2061541902151774640/)
+  - Source: https://x.com/WhiteHouse/status/2061541902151774640
+  - Decline was a choice. Not anymore. In just 14 months, @POTUS has restored our nation’s capital, making it SAFE &amp; BEAUTIFUL. 🧵 500+ instances of graffiti cleaned, 153 homeless e...
 - [19:43 UTC - Repost of @DHSgov: WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from ...](2061534126977556608/)
   - Source: https://x.com/WhiteHouse/status/2061534126977556608
   - Repost of @DHSgov: WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from the 2025 Dallas ICE Facility Sniper Attack https://t.co/n4DfxF0ADc
@@ -11,3 +23,42 @@
 - [17:46 UTC - President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0](2061504686306267430/)
   - Source: https://x.com/WhiteHouse/status/2061504686306267430
   - President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0
+- [17:42 UTC - "I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there wil...](2061503579458818100/)
+  - Source: https://x.com/WhiteHouse/status/2061503579458818100
+  - "I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut... I had a very good call with Hezbollah, and they agreed t...
+- [17:05 UTC - FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. American Manufacturing is BACK. 🇺🇸 https...](2061494305852625033/)
+  - Source: https://x.com/WhiteHouse/status/2061494305852625033
+  - FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. American Manufacturing is BACK. 🇺🇸 https://t.co/87zN18y5yo
+- [15:47 UTC - Newark or anywhere in America, the message doesn’t change: @ICEgov operations will NOT be ...](2061474808441815402/)
+  - Source: https://x.com/WhiteHouse/status/2061474808441815402
+  - Newark or anywhere in America, the message doesn’t change: @ICEgov operations will NOT be deterred. Riot, obstruct, or assault an officer and you will be arrested and prosecuted to...
+- [14:45 UTC - Repost of @FBIDirectorKash: President Trump’s law enforcement team is wiping out criminal ...](2061459235251089420/)
+  - Source: https://x.com/WhiteHouse/status/2061459235251089420
+  - Repost of @FBIDirectorKash: President Trump’s law enforcement team is wiping out criminal networks in America at levels never seen before https://t.co/rAYDvhaS2n
+- [12:53 UTC - Repost of @WHFraudTF: 📸of last week's anti-fraud roundtable with Attorneys General from ar...](2061431048005644745/)
+  - Source: https://x.com/WhiteHouse/status/2061431048005644745
+  - Repost of @WHFraudTF: 📸of last week's anti-fraud roundtable with Attorneys General from around the country chaired by @VP Vance. The era of unchecked fraud against the American tax...
+- [12:42 UTC - Repost of @SLOTUS: Calling all readers: My Summer Reading Challenge is back! Visit https:/...](2061428111284093130/)
+  - Source: https://x.com/WhiteHouse/status/2061428111284093130
+  - Repost of @SLOTUS: Calling all readers: My Summer Reading Challenge is back! Visit https://t.co/KqGhZTJjUu TODAY to download your reading log and get started. Your next summer adve...
+- [12:41 UTC - Repost of @CENTCOM: Last night at 11 p.m. ET, U.S. forces successfully intercepted two Ira...](2061427903443706039/)
+  - Source: https://x.com/WhiteHouse/status/2061427903443706039
+  - Repost of @CENTCOM: Last night at 11 p.m. ET, U.S. forces successfully intercepted two Iranian ballistic missiles targeting American forces based in Kuwait. These missiles were imm...
+- [01:30 UTC - Repost of @WhiteHouse: Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7Hysd...](2061259100105621710/)
+  - Source: https://x.com/WhiteHouse/status/2061259100105621710
+  - Repost of @WhiteHouse: Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7HysdUuNVM https://t.co/8HsQ01qFyU
+- [01:30 UTC - Repost of @SBA_Kelly: President Trump’s Cabinet is united by a clear sense of purpose: to ...](2061258989644427496/)
+  - Source: https://x.com/WhiteHouse/status/2061258989644427496
+  - Repost of @SBA_Kelly: President Trump’s Cabinet is united by a clear sense of purpose: to fight for American opportunity, defend American values, and restore American strength. Pro...
+- [01:30 UTC - Repost of @USDA: The Biden Admin left farmers with skyrocketing fertilizer prices… and we’...](2061258977111875592/)
+  - Source: https://x.com/WhiteHouse/status/2061258977111875592
+  - Repost of @USDA: The Biden Admin left farmers with skyrocketing fertilizer prices… and we’re FIXING it at Trump speed! 🏭 Fast tracking the world’s largest ammonia plant, wrapping i...
+- [01:30 UTC - Repost of @SecDuffy: Diners, Drive-Ins and Dives: Lynchburg, Virginia edition When you hit...](2061258959508381800/)
+  - Source: https://x.com/WhiteHouse/status/2061258959508381800
+  - Repost of @SecDuffy: Diners, Drive-Ins and Dives: Lynchburg, Virginia edition When you hit the open road in America, you can find awesome hidden gems just like the Texas Inn 🍽️ The...
+- [01:30 UTC - Repost of @SecretaryBurgum: Looking forward to the opening of the Lincoln Memorial Undercr...](2061258939153473553/)
+  - Source: https://x.com/WhiteHouse/status/2061258939153473553
+  - Repost of @SecretaryBurgum: Looking forward to the opening of the Lincoln Memorial Undercroft! This exhibit reveals the previously hidden foundation of one of America’s most iconic...
+- [01:29 UTC - Repost of @DHSgov: Reminder: Lawlessness, rioting, and obstruction of law enforcement will...](2061258930060177774/)
+  - Source: https://x.com/WhiteHouse/status/2061258930060177774
+  - Repost of @DHSgov: Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. https://t.co/DNWDERKKXD

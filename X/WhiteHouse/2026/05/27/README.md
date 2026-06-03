@@ -1,0 +1,67 @@
+# X / WhiteHouse / 2026-05-27
+
+- Posts: 21
+
+- [23:31 UTC - Today, we remember a legend. On this day in history, Harambe would have celebrated another...](2059779450275864710/)
+  - Source: https://x.com/WhiteHouse/status/2059779450275864710
+  - Today, we remember a legend. On this day in history, Harambe would have celebrated another birthday. An icon that became part of internet history, American culture, and an entire g...
+- [21:57 UTC - 45/47 🇺🇸 https://t.co/zpfrJKG0tM](2059755878115397668/)
+  - Source: https://x.com/WhiteHouse/status/2059755878115397668
+  - 45/47 🇺🇸 https://t.co/zpfrJKG0tM
+- [21:28 UTC - There's no place like the United States of America. https://t.co/Qp4UjPm3uV](2059748527366980016/)
+  - Source: https://x.com/WhiteHouse/status/2059748527366980016
+  - There's no place like the United States of America. https://t.co/Qp4UjPm3uV
+- [20:44 UTC - Repost of @RepublicanAGs: All gas. No breaks.   Republican Attorneys General are partnerin...](2059737496842334251/)
+  - Source: https://x.com/WhiteHouse/status/2059737496842334251
+  - Repost of @RepublicanAGs: All gas. No breaks. Republican Attorneys General are partnering with the @WHFraudTF to crack down on waste, fraud, and abuse — and save taxpayers billions...
+- [20:19 UTC - Achieving more than most administrations do in 8 years. 🇺🇸 12th Cabinet Meeting highlights...](2059731202446115289/)
+  - Source: https://x.com/WhiteHouse/status/2059731202446115289
+  - Achieving more than most administrations do in 8 years. 🇺🇸 12th Cabinet Meeting highlights: 💊Prescription drug prices plummeting 🏠Rents falling 📈Business investment +10.4% in Q1 🌍S...
+- [20:03 UTC - On the very first day of the Trump Administration, President Trump set out to secure the s...](2059727204808884513/)
+  - Source: https://x.com/WhiteHouse/status/2059727204808884513
+  - On the very first day of the Trump Administration, President Trump set out to secure the southern border and address the immigration crisis set forward by Biden's failed policies....
+- [18:48 UTC - TOMORROW: Trump Accounts, on your phone. 💰 Manage everything. Watch the growth. All in ONE...](2059708371821842901/)
+  - Source: https://x.com/WhiteHouse/status/2059708371821842901
+  - TOMORROW: Trump Accounts, on your phone. 💰 Manage everything. Watch the growth. All in ONE place. https://t.co/xkdCuNqm2y
+- [18:39 UTC - HIGHLIGHTS: President Trump hits on major policy wins during the 12th cabinet meeting. Ame...](2059705968514957339/)
+  - Source: https://x.com/WhiteHouse/status/2059705968514957339
+  - HIGHLIGHTS: President Trump hits on major policy wins during the 12th cabinet meeting. America is finally winning again under this historic administration. 🇺🇸 https://t.co/XDHXutdC...
+- [18:18 UTC - Repost of @DHSgov: It is embarrassing that New Jersey sanctuary politicians and anti-ICE r...](2059700703375794223/)
+  - Source: https://x.com/WhiteHouse/status/2059700703375794223
+  - Repost of @DHSgov: It is embarrassing that New Jersey sanctuary politicians and anti-ICE rioters chose to spend their Memorial Day weekend smearing ICE law enforcement. Our ICE law...
+- [17:46 UTC - Repost of @SecretaryBurgum: From @NatlParkService staff restoring D.C. monuments and parks...](2059692651314577841/)
+  - Source: https://x.com/WhiteHouse/status/2059692651314577841
+  - Repost of @SecretaryBurgum: From @NatlParkService staff restoring D.C. monuments and parks to @usparkpolicepio officers enforcing the law as part of @POTUS’ D.C. Safe Task Force, @...
+- [17:46 UTC - Repost of @Sonderling47: I’m proud to be in this fight with @POTUS and @VP on the @WHFraud...](2059692638970757555/)
+  - Source: https://x.com/WhiteHouse/status/2059692638970757555
+  - Repost of @Sonderling47: I’m proud to be in this fight with @POTUS and @VP on the @WHFraudTF. @USDOL and the Trump Administration are laser-focused on serving the American people,...
+- [17:45 UTC - Repost of @seanhannity: “He is really the most consequential president in modern political...](2059692465628618968/)
+  - Source: https://x.com/WhiteHouse/status/2059692465628618968
+  - Repost of @seanhannity: “He is really the most consequential president in modern political history.” Sara Carter on President Trump and the people working to save American lives. F...
+- [17:41 UTC - Repost of @StateDept: PRESIDENT TRUMP: @SecRubio said it better than anyone: you can’t let...](2059691364405719361/)
+  - Source: https://x.com/WhiteHouse/status/2059691364405719361
+  - Repost of @StateDept: PRESIDENT TRUMP: @SecRubio said it better than anyone: you can’t let Iran have a nuclear weapon. They would use it instantly. https://t.co/ZIbDGiNRba
+- [17:40 UTC - Repost of @DOWResponse: .@SECWAR “You created the conditions to ensure that the American p...](2059691303584055384/)
+  - Source: https://x.com/WhiteHouse/status/2059691303584055384
+  - Repost of @DOWResponse: .@SECWAR “You created the conditions to ensure that the American people — and the entire world — are safeguarded from this GENERATIONAL THREAT... We didn’t...
+- [17:20 UTC - Repost of @RapidResponse47: .@POTUS on Iran: "They're starting to give us the things that ...](2059686312802660484/)
+  - Source: https://x.com/WhiteHouse/status/2059686312802660484
+  - Repost of @RapidResponse47: .@POTUS on Iran: "They're starting to give us the things that they have to give us — and if they do, that's great, and if they won't, then the man on my...
+- [16:33 UTC - President Trump expresses tremendous gratitude to the outgoing Director of @ODNIgov, @Tuls...](2059674475382051086/)
+  - Source: https://x.com/WhiteHouse/status/2059674475382051086
+  - President Trump expresses tremendous gratitude to the outgoing Director of @ODNIgov, @TulsiGabbard. 🇺🇸https://t.co/Cce3l6J0iE
+- [16:31 UTC - Their Navy is gone, their Air Force is gone. Iran is negotiating on fumes. https://t.co/6Z...](2059673802989056176/)
+  - Source: https://x.com/WhiteHouse/status/2059673802989056176
+  - Their Navy is gone, their Air Force is gone. Iran is negotiating on fumes. https://t.co/6Zem8wYB4F
+- [15:55 UTC - President Trump Participates in a Cabinet Meeting, May 27, 2026 https://t.co/0nkOcTVnBj](2059664763391533443/)
+  - Source: https://x.com/WhiteHouse/status/2059664763391533443
+  - President Trump Participates in a Cabinet Meeting, May 27, 2026 https://t.co/0nkOcTVnBj
+- [14:27 UTC - Real. https://t.co/RJDJCDzRMo](2059642779844628723/)
+  - Source: https://x.com/WhiteHouse/status/2059642779844628723
+  - Real. https://t.co/RJDJCDzRMo
+- [12:01 UTC - It is Wednesday my dudes https://t.co/Gy9Pm3QwxA](2059605788818080028/)
+  - Source: https://x.com/WhiteHouse/status/2059605788818080028
+  - It is Wednesday my dudes https://t.co/Gy9Pm3QwxA
+- [01:32 UTC - Promises Made, Promises Kept: Bold Historic Steps to Lower Drug Prices for American Patien...](2059447658733871322/)
+  - Source: https://x.com/WhiteHouse/status/2059447658733871322
+  - Promises Made, Promises Kept: Bold Historic Steps to Lower Drug Prices for American Patients Find your medication today 💊➡️ https://t.co/ZUEHHV4KFp https://t.co/Z5ZVcXqm3p

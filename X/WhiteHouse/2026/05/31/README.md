@@ -1,0 +1,34 @@
+# X / WhiteHouse / 2026-05-31
+
+- Posts: 10
+
+- [20:27 UTC - Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7HysdUuNVM https://t.co/8HsQ...](2061182888482140623/)
+  - Source: https://x.com/WhiteHouse/status/2061182888482140623
+  - Deport criminal illegal aliens and SAVE AMERICA! https://t.co/7HysdUuNVM https://t.co/8HsQ01qFyU
+- [19:17 UTC - Repost of @WHFraudTF: A reminder from @kyoag Russell Coleman that there are real victims b...](2061165091031019625/)
+  - Source: https://x.com/WhiteHouse/status/2061165091031019625
+  - Repost of @WHFraudTF: A reminder from @kyoag Russell Coleman that there are real victims behind every fraud case. Thank you for your leadership in the fight against fraudsters. 🇺🇸
+- [18:18 UTC - Never Forget: Democrats are the party that REFUSED to stand for protecting and putting AME...](2061150224844808605/)
+  - Source: https://x.com/WhiteHouse/status/2061150224844808605
+  - Never Forget: Democrats are the party that REFUSED to stand for protecting and putting AMERICAN CITIZENS first. Tells you everything you need to know. https://t.co/k4GOJAmfzG
+- [15:17 UTC - STAND WITH ICE. STAND WITH LAW ENFORCEMENT. https://t.co/mqfwtyCoSp](2061104857574990018/)
+  - Source: https://x.com/WhiteHouse/status/2061104857574990018
+  - STAND WITH ICE. STAND WITH LAW ENFORCEMENT. https://t.co/mqfwtyCoSp
+- [14:44 UTC - Repost of @USDOL: .@POTUS: "More people are working in the United States right now than at...](2061096432128401673/)
+  - Source: https://x.com/WhiteHouse/status/2061096432128401673
+  - Repost of @USDOL: .@POTUS: "More people are working in the United States right now than at any time ever before." 💪🇺🇸 https://t.co/yBMT7paNku
+- [14:44 UTC - Repost of @SecVetAffairs: Veterans deserve better than 70-year old facilities. That’s why ...](2061096410544476655/)
+  - Source: https://x.com/WhiteHouse/status/2061096410544476655
+  - Repost of @SecVetAffairs: Veterans deserve better than 70-year old facilities. That’s why we're modernizing @DeptVetAffairs facilities with upgraded operating rooms, more patient c...
+- [14:44 UTC - Repost of @RapidResponse47: .@SecretaryBurgum on the Lincoln Memorial Reflecting Pool: Tha...](2061096391745614296/)
+  - Source: https://x.com/WhiteHouse/status/2061096391745614296
+  - Repost of @RapidResponse47: .@SecretaryBurgum on the Lincoln Memorial Reflecting Pool: That thing, when we took this project over, was leaking 45,000 gallons of water a day. Everyb...
+- [14:44 UTC - Repost of @SecRollins: The MAHA movement doesn't stop with what we EAT — It's also about w...](2061096371579400385/)
+  - Source: https://x.com/WhiteHouse/status/2061096371579400385
+  - Repost of @SecRollins: The MAHA movement doesn't stop with what we EAT — It's also about what we WEAR. For decades, America offshored textile jobs and allowed foreign synthetic, pl...
+- [14:43 UTC - Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. The perimeter around Delaney Hall is FUL...](2061096350146568219/)
+  - Source: https://x.com/WhiteHouse/status/2061096350146568219
+  - Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. The perimeter around Delaney Hall is FULLY closed. No rioters breached the perimeter last night. Our @ICEgov operations continue u...
+- [02:36 UTC - "The one guarantee that I have to have is that there will be no nuclear weapons, they've a...](2060913180491075792/)
+  - Source: https://x.com/WhiteHouse/status/2060913180491075792
+  - "The one guarantee that I have to have is that there will be no nuclear weapons, they've agreed to that." President Donald J. Trump talks Iran, ballroom construction and more in a...

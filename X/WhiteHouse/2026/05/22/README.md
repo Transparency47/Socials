@@ -1,0 +1,94 @@
+# X / WhiteHouse / 2026-05-22
+
+- Posts: 30
+
+- [23:44 UTC - Repost of @USTradeRep: From the cars we drive to the medical devices that save lives, memo...](2057970814494855621/)
+  - Source: https://x.com/WhiteHouse/status/2057970814494855621
+  - Repost of @USTradeRep: From the cars we drive to the medical devices that save lives, memory chips power the technology we rely on every day. @MicronTech President and CEO Sanjay M...
+- [23:36 UTC - Bye-bye 👋 https://t.co/5dPeXDflyh](2057968856161780061/)
+  - Source: https://x.com/WhiteHouse/status/2057968856161780061
+  - Bye-bye 👋 https://t.co/5dPeXDflyh
+- [22:43 UTC - President Donald J. Trump on the tragic passing of NASCAR Driver Kyle Busch: https://t.co/...](2057955615301939432/)
+  - Source: https://x.com/WhiteHouse/status/2057955615301939432
+  - President Donald J. Trump on the tragic passing of NASCAR Driver Kyle Busch: https://t.co/gn7CTD6Z90
+- [21:59 UTC - Send this to someone who needs to TRUST IN TRUMP. https://t.co/mVJua3gihv](2057944589437157820/)
+  - Source: https://x.com/WhiteHouse/status/2057944589437157820
+  - Send this to someone who needs to TRUST IN TRUMP. https://t.co/mVJua3gihv
+- [21:10 UTC - Repost of @RapidResponse47: .@POTUS tells the mother of Welles Crowther — the 24-year-old ...](2057932024048914728/)
+  - Source: https://x.com/WhiteHouse/status/2057932024048914728
+  - Repost of @RapidResponse47: .@POTUS tells the mother of Welles Crowther — the 24-year-old "Man in the Red Bandana" who heroically gave his own life to save 18 people on 9/11 — that...
+- [20:46 UTC - RECORD tax cuts. Boosting household take-home-pay. President Trump is fighting for America...](2057926100655751217/)
+  - Source: https://x.com/WhiteHouse/status/2057926100655751217
+  - RECORD tax cuts. Boosting household take-home-pay. President Trump is fighting for American workers. https://t.co/eSVOODqnGr
+- [20:34 UTC - MAKE NEW YORK GREAT AGAIN! 🇺🇸🗽 https://t.co/7MvSuklIPR](2057923004835749982/)
+  - Source: https://x.com/WhiteHouse/status/2057923004835749982
+  - MAKE NEW YORK GREAT AGAIN! 🇺🇸🗽 https://t.co/7MvSuklIPR
+- [20:31 UTC - NOW at Rockland Community College in New York, New York Giants Quarterback @JaxsonDart int...](2057922427691106486/)
+  - Source: https://x.com/WhiteHouse/status/2057922427691106486
+  - NOW at Rockland Community College in New York, New York Giants Quarterback @JaxsonDart introduces President Donald J. Trump. 🔥🇺🇸 https://t.co/cGYL2DsZmv
+- [20:04 UTC - Repost of @JDVance: Tulsi is a patriot, a great asset to the administration, and a dear fr...](2057915615877218339/)
+  - Source: https://x.com/WhiteHouse/status/2057915615877218339
+  - Repost of @JDVance: Tulsi is a patriot, a great asset to the administration, and a dear friend. I'm sorry to see her go, but certainly understand that family comes first. She and h...
+- [19:38 UTC - President Trump Delivers Remarks, May 22, 2026 https://t.co/noa5OZOlzN](2057909079889064198/)
+  - Source: https://x.com/WhiteHouse/status/2057909079889064198
+  - President Trump Delivers Remarks, May 22, 2026 https://t.co/noa5OZOlzN
+- [19:37 UTC - Kevin Warsh has been officially sworn in as Chairman of the Federal Reserve by Justice Cla...](2057908738694975986/)
+  - Source: https://x.com/WhiteHouse/status/2057908738694975986
+  - Kevin Warsh has been officially sworn in as Chairman of the Federal Reserve by Justice Clarence Thomas at the White House. 🇺🇸 https://t.co/Mf85s2YSYz
+- [19:30 UTC - Repost of @SBAgov: Without @POTUS’s Working Family Tax Cuts, America’s small businesses an...](2057906867406320067/)
+  - Source: https://x.com/WhiteHouse/status/2057906867406320067
+  - Repost of @SBAgov: Without @POTUS’s Working Family Tax Cuts, America’s small businesses and workers would have seen the largest tax hike in U.S. history. Without fair trade, we wou...
+- [18:14 UTC - Repost of @RapidResponse47: .@POTUS departs for New York, where he'll deliver remarks on t...](2057887841640681640/)
+  - Source: https://x.com/WhiteHouse/status/2057887841640681640
+  - Repost of @RapidResponse47: .@POTUS departs for New York, where he'll deliver remarks on the economy at Rockland Community College in Suffern 🛫 https://t.co/R1PQO7tIlx
+- [17:47 UTC - Stop playing games and PASS THE SAVE AMERICA ACT! https://t.co/jlF96JYRBt](2057881055231619322/)
+  - Source: https://x.com/WhiteHouse/status/2057881055231619322
+  - Stop playing games and PASS THE SAVE AMERICA ACT! https://t.co/jlF96JYRBt
+- [17:16 UTC - President Donald J. Trump REVERSES Biden’s ridiculous refrigerant rules! A huge win for Am...](2057873146766594538/)
+  - Source: https://x.com/WhiteHouse/status/2057873146766594538
+  - President Donald J. Trump REVERSES Biden’s ridiculous refrigerant rules! A huge win for American families, and a major step toward lowering the cost of living. 🇺🇸 https://t.co/Wbvp...
+- [17:08 UTC - Repost of @SecRubio: Leaving Sweden after productive NATO meetings. The goal is to have a ...](2057871309648826605/)
+  - Source: https://x.com/WhiteHouse/status/2057871309648826605
+  - Repost of @SecRubio: Leaving Sweden after productive NATO meetings. The goal is to have a NATO that is strong. The stronger our NATO Allies are, the stronger NATO is going to be. h...
+- [16:56 UTC - Repost of @DOWResponse: This file contains 116 pages of documentation from the Armed Force...](2057868217603772695/)
+  - Source: https://x.com/WhiteHouse/status/2057868217603772695
+  - Repost of @DOWResponse: This file contains 116 pages of documentation from the Armed Forces Special Weapons Program (AFSWP) – the direct, post-World War II successor to the Manhatt...
+- [16:23 UTC - "I expect he will go down as one of the truly great Chairman of the Federal Reserves that ...](2057859953025528105/)
+  - Source: https://x.com/WhiteHouse/status/2057859953025528105
+  - "I expect he will go down as one of the truly great Chairman of the Federal Reserves that we've ever had." - President Donald J. Trump 🇺🇸 https://t.co/BsWKAcluys
+- [15:45 UTC - President Trump Participates in a Swearing-In Ceremony for the Chairman of the Federal Res...](2057850424116355229/)
+  - Source: https://x.com/WhiteHouse/status/2057850424116355229
+  - President Trump Participates in a Swearing-In Ceremony for the Chairman of the Federal Reserve https://t.co/0pjfDtJHVW
+- [15:35 UTC - Repost of @DHSgov: “There are many who loudly advocate for limitless immigration policies…...](2057847901338935641/)
+  - Source: https://x.com/WhiteHouse/status/2057847901338935641
+  - Repost of @DHSgov: “There are many who loudly advocate for limitless immigration policies…Yet many of these same voices will never personally suffer the consequences of the policie...
+- [15:02 UTC - Repost of @StateDept: SECRETARY RUBIO on U.S. TROOP SHIFTS IN EUROPE: There is a growing a...](2057839466098626713/)
+  - Source: https://x.com/WhiteHouse/status/2057839466098626713
+  - Repost of @StateDept: SECRETARY RUBIO on U.S. TROOP SHIFTS IN EUROPE: There is a growing acknowledgment that something needs to happen. Even though NATO is an alliance, it’s still...
+- [14:47 UTC - DOW-UAP-PR086 | "UAP FROM DEC 2019 (EAST COAST)" https://t.co/PaxcDiy3QE](2057835818396373424/)
+  - Source: https://x.com/WhiteHouse/status/2057835818396373424
+  - DOW-UAP-PR086 | "UAP FROM DEC 2019 (EAST COAST)" https://t.co/PaxcDiy3QE
+- [14:04 UTC - Repost of @Daily_MailUS: Chilling new Apollo 12 audio unsealed in new batch of Trump UFO d...](2057824885141872809/)
+  - Source: https://x.com/WhiteHouse/status/2057824885141872809
+  - Repost of @Daily_MailUS: Chilling new Apollo 12 audio unsealed in new batch of Trump UFO docs https://t.co/E66Yx1q4bc 🔗 https://t.co/VWxyoukZyO
+- [13:46 UTC - DOW-UAP-PR050 | "4 UAP FORMATION IRAN 26 AUG 2022 OVER WATER [CALLSIGN]" https://t.co/gon6...](2057820306475987396/)
+  - Source: https://x.com/WhiteHouse/status/2057820306475987396
+  - DOW-UAP-PR050 | "4 UAP FORMATION IRAN 26 AUG 2022 OVER WATER [CALLSIGN]" https://t.co/gon6sAdkQ0
+- [13:16 UTC - SECOND RELEASE OF UNIDENTIFIED ANOMALOUS PHENOMENA FILES 🛸⬇️ https://t.co/kWE5tvdY9H https...](2057812941630505362/)
+  - Source: https://x.com/WhiteHouse/status/2057812941630505362
+  - SECOND RELEASE OF UNIDENTIFIED ANOMALOUS PHENOMENA FILES 🛸⬇️ https://t.co/kWE5tvdY9H https://t.co/L959jf0G37
+- [12:58 UTC - Repost of @DeptofWar: https://t.co/Aphnt9phiy](2057808329859043652/)
+  - Source: https://x.com/WhiteHouse/status/2057808329859043652
+  - Repost of @DeptofWar: https://t.co/Aphnt9phiy
+- [12:25 UTC - Repost of @SecRubio: In my meeting with @SecGenNATO I underscored that the Alliance must u...](2057799948859560409/)
+  - Source: https://x.com/WhiteHouse/status/2057799948859560409
+  - Repost of @SecRubio: In my meeting with @SecGenNATO I underscored that the Alliance must unambiguously commit at the upcoming Ankara Summit to rapidly scale defense production, exp...
+- [02:34 UTC - This is the way https://t.co/rQ2P81i14a](2057651230101422240/)
+  - Source: https://x.com/WhiteHouse/status/2057651230101422240
+  - This is the way https://t.co/rQ2P81i14a
+- [02:33 UTC - Repost of @JDVance: Today, the task force and the DOJ announced a massive take down of two...](2057650955504566477/)
+  - Source: https://x.com/WhiteHouse/status/2057650955504566477
+  - Repost of @JDVance: Today, the task force and the DOJ announced a massive take down of two of the largest Medicaid fraud cases in Minnesota state history, as well as the largest au...
+- [00:29 UTC - "One of the most prestigious military academies anywhere in the world... God bless the Coa...](2057619827406020715/)
+  - Source: https://x.com/WhiteHouse/status/2057619827406020715
+  - "One of the most prestigious military academies anywhere in the world... God bless the Coast Guard Academy, the class of 2026, God bless the United States military, and God bless t...

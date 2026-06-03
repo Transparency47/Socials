@@ -1,0 +1,31 @@
+# X / WhiteHouse / 2026-05-24
+
+- Posts: 9
+
+- [21:21 UTC - Repost of @SecretaryBurgum: This Memorial Day weekend, Americans from across the country a...](2058659612186886177/)
+  - Source: https://x.com/WhiteHouse/status/2058659612186886177
+  - Repost of @SecretaryBurgum: This Memorial Day weekend, Americans from across the country are gathering at @NatlParkService memorials and monuments to honor the men and women who ma...
+- [21:21 UTC - Repost of @RapidResponse47: .@SecVetAffairs on tomorrow night's @Freedom250 National Memor...](2058659588480651465/)
+  - Source: https://x.com/WhiteHouse/status/2058659588480651465
+  - Repost of @RapidResponse47: .@SecVetAffairs on tomorrow night's @Freedom250 National Memorial Day Observance at Arlington National Cemetery: "Memorial Day is a time for those who d...
+- [21:21 UTC - Repost of @SecRubio: The U.S. stands firmly with the legitimate Government of Lebanon as i...](2058659557778276861/)
+  - Source: https://x.com/WhiteHouse/status/2058659557778276861
+  - Repost of @SecRubio: The U.S. stands firmly with the legitimate Government of Lebanon as it works to restore its authority and build a better future for all its people. Hizballah's...
+- [16:26 UTC - “The negotiations are proceeding in an orderly and constructive manner, and I have informe...](2058585535036145738/)
+  - Source: https://x.com/WhiteHouse/status/2058585535036145738
+  - “The negotiations are proceeding in an orderly and constructive manner, and I have informed my representatives not to rush into a deal in that time is on our side… Both sides must...
+- [15:03 UTC - Repost of @TreyYingst: Iranian President Masoud Pezeshkian: "We are ready to assure the wo...](2058564661499273553/)
+  - Source: https://x.com/WhiteHouse/status/2058564661499273553
+  - Repost of @TreyYingst: Iranian President Masoud Pezeshkian: "We are ready to assure the world that we are not seeking nuclear weapons. We are not seeking instability in the region....
+- [15:03 UTC - Repost of @RapidResponse47: .@SecRubio: "The idea that somehow this @POTUS — given everyth...](2058564438941139398/)
+  - Source: https://x.com/WhiteHouse/status/2058564438941139398
+  - Repost of @RapidResponse47: .@SecRubio: "The idea that somehow this @POTUS — given everything he's already proven he's willing to do — is gonna somehow agree to a deal that ultimat...
+- [04:38 UTC - “Thank you to our great Secret Service and Law Enforcement for the swift and professional ...](2058407251673506301/)
+  - Source: https://x.com/WhiteHouse/status/2058407251673506301
+  - “Thank you to our great Secret Service and Law Enforcement for the swift and professional action taken this evening against a gunman near the White House…” - President Donald J. Tr...
+- [00:28 UTC - Repost of @SecretSvcSpox: Preliminary statement regarding the shooting incident on 17th St...](2058344379169824877/)
+  - Source: https://x.com/WhiteHouse/status/2058344379169824877
+  - Repost of @SecretSvcSpox: Preliminary statement regarding the shooting incident on 17th Street and Pennsylvania Avenue. https://t.co/NOdFKmwVuU
+- [00:28 UTC - Repost of @StevenCheung47: President Trump is working at 8:00 PM. Can’t stop, won’t stop.](2058344252707307978/)
+  - Source: https://x.com/WhiteHouse/status/2058344252707307978
+  - Repost of @StevenCheung47: President Trump is working at 8:00 PM. Can’t stop, won’t stop.

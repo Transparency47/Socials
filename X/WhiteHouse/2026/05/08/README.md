@@ -1,0 +1,106 @@
+# X / WhiteHouse / 2026-05-08
+
+- Posts: 34
+
+- [23:44 UTC - 81 years ago today, led by the might of our Armed Forces and those of our Allies, America ...](2052897338318823808/)
+  - Source: https://x.com/WhiteHouse/status/2052897338318823808
+  - 81 years ago today, led by the might of our Armed Forces and those of our Allies, America and the world celebrated monumental triumph over tyranny and evil in Europe. The United St...
+- [23:04 UTC - Happy Mother's Day weekend to all, especially to the 115 THOUSAND AMERICANS who found jobs...](2052887305644380532/)
+  - Source: https://x.com/WhiteHouse/status/2052887305644380532
+  - Happy Mother's Day weekend to all, especially to the 115 THOUSAND AMERICANS who found jobs in the month of April alone! https://t.co/ZsXK9ygGAT
+- [22:54 UTC - Repost of @RapidResponse47: .@POTUS on the blockbuster April jobs report: "We have more pe...](2052884998890369189/)
+  - Source: https://x.com/WhiteHouse/status/2052884998890369189
+  - Repost of @RapidResponse47: .@POTUS on the blockbuster April jobs report: "We have more people working today than we ever had working in this country. The job numbers today were in...
+- [22:54 UTC - Repost of @SecScottBessent: While the surviving IRGC leaders are trapped like rats in a si...](2052884936902725903/)
+  - Source: https://x.com/WhiteHouse/status/2052884936902725903
+  - Repost of @SecScottBessent: While the surviving IRGC leaders are trapped like rats in a sinking ship, the Treasury Department is unrelenting in our Economic Fury campaign. Under @P...
+- [22:54 UTC - Repost of @StateDept: 🎯 https://t.co/VprwRw3FYc](2052884914907885691/)
+  - Source: https://x.com/WhiteHouse/status/2052884914907885691
+  - Repost of @StateDept: 🎯 https://t.co/VprwRw3FYc
+- [21:23 UTC - President Trump is moving at warp speed. He won't stop working every day on behalf of the ...](2052861981107892537/)
+  - Source: https://x.com/WhiteHouse/status/2052861981107892537
+  - President Trump is moving at warp speed. He won't stop working every day on behalf of the American people. 🇺🇸 https://t.co/fd98JX9twk
+- [20:42 UTC - What we're listening to this Friday 🇺🇸 https://t.co/9jsIaH96yq](2052851730828689782/)
+  - Source: https://x.com/WhiteHouse/status/2052851730828689782
+  - What we're listening to this Friday 🇺🇸 https://t.co/9jsIaH96yq
+- [20:15 UTC - Repost of @USDOL: TRUST IN TRUMP! 🇺🇸 https://t.co/9a75M4eME0](2052844915369836900/)
+  - Source: https://x.com/WhiteHouse/status/2052844915369836900
+  - Repost of @USDOL: TRUST IN TRUMP! 🇺🇸 https://t.co/9a75M4eME0
+- [20:06 UTC - A Behind-the-Scenes Look with the Best Chief of Staff 🇺🇸 https://t.co/cSB7M47PdY](2052842658108702906/)
+  - Source: https://x.com/WhiteHouse/status/2052842658108702906
+  - A Behind-the-Scenes Look with the Best Chief of Staff 🇺🇸 https://t.co/cSB7M47PdY
+- [19:55 UTC - 🇺🇸 Restoring the Reflecting Pool. Making D.C. beautiful again! https://t.co/WD2XMihIBW](2052839882507088126/)
+  - Source: https://x.com/WhiteHouse/status/2052839882507088126
+  - 🇺🇸 Restoring the Reflecting Pool. Making D.C. beautiful again! https://t.co/WD2XMihIBW
+- [18:36 UTC - An FBI 302 interview conducted with a senior US intelligence official regarding his first-...](2052819832437965210/)
+  - Source: https://x.com/WhiteHouse/status/2052819832437965210
+  - An FBI 302 interview conducted with a senior US intelligence official regarding his first-hand account of a UAP encounter at a US military facility. Read the full report: https://t...
+- [18:19 UTC - "I am pleased to announce that there will be a THREE DAY CEASEFIRE (May 9th, 10th, and 11t...](2052815649429155960/)
+  - Source: https://x.com/WhiteHouse/status/2052815649429155960
+  - "I am pleased to announce that there will be a THREE DAY CEASEFIRE (May 9th, 10th, and 11th) in the War between Russia and Ukraine..." - President Donald J. Trump 🇺🇸 https://t.co/g...
+- [17:43 UTC - Repost of @DHSgov: NICE City. https://t.co/NJ5XLXanq9](2052806600713195869/)
+  - Source: https://x.com/WhiteHouse/status/2052806600713195869
+  - Repost of @DHSgov: NICE City. https://t.co/NJ5XLXanq9
+- [17:42 UTC - Repost of @RealPNavarro: 🚨Nonfarm payrolls rose by 115,000 in April, NEARLY DOUBLE the con...](2052806451677037055/)
+  - Source: https://x.com/WhiteHouse/status/2052806451677037055
+  - Repost of @RealPNavarro: 🚨Nonfarm payrolls rose by 115,000 in April, NEARLY DOUBLE the consensus expectation. Private payrolls did even better, rising by 123,000. April's report fi...
+- [17:42 UTC - Repost of @RapidResponse47: .@RealPNavarro: April Jobs Report Beats Models and Pessimists ...](2052806412842012955/)
+  - Source: https://x.com/WhiteHouse/status/2052806412842012955
+  - Repost of @RapidResponse47: .@RealPNavarro: April Jobs Report Beats Models and Pessimists Once Again https://t.co/8l7h4ZsFCY
+- [17:39 UTC - Repost of @DOWResponse: https://t.co/re3SNPNI6V https://t.co/D8ttaBBiTy](2052805545258549256/)
+  - Source: https://x.com/WhiteHouse/status/2052805545258549256
+  - Repost of @DOWResponse: https://t.co/re3SNPNI6V https://t.co/D8ttaBBiTy
+- [17:35 UTC - HAPPY MOTHER'S DAY TO AMERICA'S AMAZING MOMS! ❤️🇺🇸 https://t.co/3Vf8VtlbTn](2052804703335932343/)
+  - Source: https://x.com/WhiteHouse/status/2052804703335932343
+  - HAPPY MOTHER'S DAY TO AMERICA'S AMAZING MOMS! ❤️🇺🇸 https://t.co/3Vf8VtlbTn
+- [17:11 UTC - First Lady Melania Trump writes an inspiring message on motherhood & the values that shape...](2052798547657986478/)
+  - Source: https://x.com/WhiteHouse/status/2052798547657986478
+  - First Lady Melania Trump writes an inspiring message on motherhood & the values that shape our nation. ❤️ "Together, let’s champion a new American model that restores the honor of...
+- [17:03 UTC - Repost of @RapidResponse47: .@POTUS: "You have the most important job there is in America....](2052796597864472938/)
+  - Source: https://x.com/WhiteHouse/status/2052796597864472938
+  - Repost of @RapidResponse47: .@POTUS: "You have the most important job there is in America... and you're doing an incredible job. I just want to wish you all a very Happy Mother's D...
+- [16:35 UTC - President Trump Delivers Remarks, May 8, 2026 https://t.co/AZlCWgc9LP](2052789622871056457/)
+  - Source: https://x.com/WhiteHouse/status/2052789622871056457
+  - President Trump Delivers Remarks, May 8, 2026 https://t.co/AZlCWgc9LP
+- [16:32 UTC - WATCH. DOW-UAP-PR26, UNRESOLVED UAP REPORT | OCTOBER 2023 https://t.co/Xc8AnvOtCD](2052788732143509840/)
+  - Source: https://x.com/WhiteHouse/status/2052788732143509840
+  - WATCH. DOW-UAP-PR26, UNRESOLVED UAP REPORT | OCTOBER 2023 https://t.co/Xc8AnvOtCD
+- [16:06 UTC - NASA-UAP-VM1 | APOLLO 12, 1969 https://t.co/9kEnqwbKt8](2052782085199233292/)
+  - Source: https://x.com/WhiteHouse/status/2052782085199233292
+  - NASA-UAP-VM1 | APOLLO 12, 1969 https://t.co/9kEnqwbKt8
+- [15:30 UTC - 🚨 UFO FILES RELEASED - https://t.co/kWE5tvdY9H https://t.co/juYznUDaSQ](2052773177785229762/)
+  - Source: https://x.com/WhiteHouse/status/2052773177785229762
+  - 🚨 UFO FILES RELEASED - https://t.co/kWE5tvdY9H https://t.co/juYznUDaSQ
+- [15:29 UTC - "These files, hidden behind classifications, have long fueled justified speculation — and ...](2052772990585131125/)
+  - Source: https://x.com/WhiteHouse/status/2052772990585131125
+  - "These files, hidden behind classifications, have long fueled justified speculation — and it’s time the American people see it for themselves." - @SecWar NASA-UAP-VM6 | APOLLO 17,...
+- [14:41 UTC - Repost of @ODNIgov: It’s time.   For years, Americans questioned what the government knew ...](2052760927854805089/)
+  - Source: https://x.com/WhiteHouse/status/2052760927854805089
+  - Repost of @ODNIgov: It’s time. For years, Americans questioned what the government knew about unidentified aerial phenomena. Today, under President Trump’s leadership, the U.S. gov...
+- [14:41 UTC - Repost of @DNIGabbard: The American people have long sought transparency about the governm...](2052760891494470043/)
+  - Source: https://x.com/WhiteHouse/status/2052760891494470043
+  - Repost of @DNIGabbard: The American people have long sought transparency about the government’s knowledge of unidentified aerial phenomena. Under President Trump’s leadership, the...
+- [14:35 UTC - Repost of @TaylorRogers47: TODAY AT THE WHITE HOUSE: President Trump To Host Angel Moms, G...](2052759244349304933/)
+  - Source: https://x.com/WhiteHouse/status/2052759244349304933
+  - Repost of @TaylorRogers47: TODAY AT THE WHITE HOUSE: President Trump To Host Angel Moms, Gold Star Mothers For Mother’s Day Luncheon https://t.co/oW3Rns7My9
+- [13:41 UTC - PRESIDENTIAL UNSEALING FOR UAP ENCOUNTERS. Per President Trump's directive, the @DeptofWar...](2052745783858929909/)
+  - Source: https://x.com/WhiteHouse/status/2052745783858929909
+  - PRESIDENTIAL UNSEALING FOR UAP ENCOUNTERS. Per President Trump's directive, the @DeptofWar has declassified & released unresolved UAP records. This is an unprecedented level of tra...
+- [13:12 UTC - NEARLY DOUBLE ECONOMISTS' EXPECTATIONS! https://t.co/wgJEzpdFhi](2052738372821533164/)
+  - Source: https://x.com/WhiteHouse/status/2052738372821533164
+  - NEARLY DOUBLE ECONOMISTS' EXPECTATIONS! https://t.co/wgJEzpdFhi
+- [12:14 UTC - Repost of @DeptofWar: https://t.co/rzCVvUU3mu](2052723900094488910/)
+  - Source: https://x.com/WhiteHouse/status/2052723900094488910
+  - Repost of @DeptofWar: https://t.co/rzCVvUU3mu
+- [01:36 UTC - President Trump thanks the hardworking men restoring the Reflecting Pool and making Washin...](2052563170749714701/)
+  - Source: https://x.com/WhiteHouse/status/2052563170749714701
+  - President Trump thanks the hardworking men restoring the Reflecting Pool and making Washington, D.C. beautiful again! 🇺🇸 https://t.co/r8BvOUww6E
+- [01:18 UTC - President Donald J. Trump drives on the Reflecting Pool at the Lincoln Memorial as upgrade...](2052558747759689763/)
+  - Source: https://x.com/WhiteHouse/status/2052558747759689763
+  - President Donald J. Trump drives on the Reflecting Pool at the Lincoln Memorial as upgrades continue. 🇺🇸 https://t.co/v1VyY6sIjA
+- [01:15 UTC - Repost of @RapidResponse47: .@POTUS at the Lincoln Memorial Reflecting Pool: "We're negoti...](2052557889332539673/)
+  - Source: https://x.com/WhiteHouse/status/2052557889332539673
+  - Repost of @RapidResponse47: .@POTUS at the Lincoln Memorial Reflecting Pool: "We're negotiating with the Iranians. You probably heard, we took our 3 destroyers, and we rammed them...
+- [00:12 UTC - Repost of @StevenCheung47: They see me rolling! President Trump rides in the Reflecting Po...](2052542075330060529/)
+  - Source: https://x.com/WhiteHouse/status/2052542075330060529
+  - Repost of @StevenCheung47: They see me rolling! President Trump rides in the Reflecting Pool at the Lincoln Memorial! https://t.co/iSRMok2SFk

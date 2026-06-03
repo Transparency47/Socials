@@ -1,0 +1,97 @@
+# X / WhiteHouse / 2026-05-15
+
+- Posts: 31
+
+- [22:46 UTC - Repost of @RapidResponse47: .@POTUS exits Air Force One at Joint Base Andrews following hi...](2055419623168717145/)
+  - Source: https://x.com/WhiteHouse/status/2055419623168717145
+  - Repost of @RapidResponse47: .@POTUS exits Air Force One at Joint Base Andrews following his historic state visit to China 🇺🇸 https://t.co/x7FYwluIG0
+- [21:49 UTC - The Trump administration is dedicated to honoring the amazing Police and Peace Officers ar...](2055405223401660487/)
+  - Source: https://x.com/WhiteHouse/status/2055405223401660487
+  - The Trump administration is dedicated to honoring the amazing Police and Peace Officers around America this Police Week. 💙🇺🇸 https://t.co/Il0vHr21gD
+- [21:48 UTC - Repost of @USAO_DC: One year after @USAttyPirro took office, the results are undeniable: H...](2055404974058709246/)
+  - Source: https://x.com/WhiteHouse/status/2055404974058709246
+  - Repost of @USAO_DC: One year after @USAttyPirro took office, the results are undeniable: Homicide ⬇️ 50% Carjackings ⬇️ 60% Robberies ⬇️ 42% Thanks to @POTUS, law enforcement partn...
+- [21:20 UTC - Repost of @JDVance: National Police Week is a time to celebrate the brave men and women wh...](2055397844656312722/)
+  - Source: https://x.com/WhiteHouse/status/2055397844656312722
+  - Repost of @JDVance: National Police Week is a time to celebrate the brave men and women who keep our communities safe, but it also serves as a solemn reminder of the incredible sac...
+- [20:48 UTC - Under President Trump, America is winning again. https://t.co/LLcGOlWFcP](2055389790208397766/)
+  - Source: https://x.com/WhiteHouse/status/2055389790208397766
+  - Under President Trump, America is winning again. https://t.co/LLcGOlWFcP
+- [20:25 UTC - Repost of @USDA: Plot twist, the rooster never sees the cage The farmer only wakes up to s...](2055384052195008895/)
+  - Source: https://x.com/WhiteHouse/status/2055384052195008895
+  - Repost of @USDA: Plot twist, the rooster never sees the cage The farmer only wakes up to seize the day https://t.co/5ic41nJBIz
+- [20:19 UTC - Repost of @ONDCP: The numbers are out! DRUG DEATHS DOWN during POTUS’ first year in office...](2055382509634887856/)
+  - Source: https://x.com/WhiteHouse/status/2055382509634887856
+  - Repost of @ONDCP: The numbers are out! DRUG DEATHS DOWN during POTUS’ first year in office. HUGE WIN for Americans. @CDCgov @drugczar47 https://t.co/xRBiH2rn0A
+- [17:43 UTC - This police week, President Trump is honoring America's police officers for their bravery,...](2055343267617673720/)
+  - Source: https://x.com/WhiteHouse/status/2055343267617673720
+  - This police week, President Trump is honoring America's police officers for their bravery, courage, love of country, and dedication to law and order. The Trump administration will...
+- [17:16 UTC - Repost of @RapidResponse47: .@VP makes a promise to the law enforcement community gathered...](2055336424115785763/)
+  - Source: https://x.com/WhiteHouse/status/2055336424115785763
+  - Repost of @RapidResponse47: .@VP makes a promise to the law enforcement community gathered at the Capitol: "So long as Donald J. Trump is @POTUS, and so long as I’m the Vice Presid...
+- [16:26 UTC - President Donald J. Trump Visits China's Temple of Heaven. 🇺🇸🇨🇳 https://t.co/utU2P8edqL](2055324000511811695/)
+  - Source: https://x.com/WhiteHouse/status/2055324000511811695
+  - President Donald J. Trump Visits China's Temple of Heaven. 🇺🇸🇨🇳 https://t.co/utU2P8edqL
+- [15:58 UTC - Repost of @USTradeRep: The United States is enhancing economic ties with China, securing b...](2055316940856385578/)
+  - Source: https://x.com/WhiteHouse/status/2055316940856385578
+  - Repost of @USTradeRep: The United States is enhancing economic ties with China, securing billions in purchase commitments of U.S. industrial and agricultural goods. https://t.co/tr...
+- [15:41 UTC - President Trump has ensured every American gets the lowest prices on prescription medicati...](2055312697512616050/)
+  - Source: https://x.com/WhiteHouse/status/2055312697512616050
+  - President Trump has ensured every American gets the lowest prices on prescription medications in the world. 🇺🇸 Visit https://t.co/cbj8BwOeNI https://t.co/R6EJ9Z2TVc
+- [15:10 UTC - Repost of @DHSgov: A NICE morning in Virginia. https://t.co/hdBWRJS5My](2055304881414496658/)
+  - Source: https://x.com/WhiteHouse/status/2055304881414496658
+  - Repost of @DHSgov: A NICE morning in Virginia. https://t.co/hdBWRJS5My
+- [15:10 UTC - Repost of @SBA_Kelly: From the historic Small Business Summit at the White House to every ...](2055304865631310052/)
+  - Source: https://x.com/WhiteHouse/status/2055304865631310052
+  - Repost of @SBA_Kelly: From the historic Small Business Summit at the White House to every state we visited across the country, the takeaway from National Small Business Week was cl...
+- [13:50 UTC - ICED OUT. https://t.co/w6vwT0V4eU](2055284604660060570/)
+  - Source: https://x.com/WhiteHouse/status/2055284604660060570
+  - ICED OUT. https://t.co/w6vwT0V4eU
+- [13:36 UTC - Repost of @DHSgov: .@SecMullinDHS was on the ground this morning with @ICEgov law enforcem...](2055281065741156479/)
+  - Source: https://x.com/WhiteHouse/status/2055281065741156479
+  - Repost of @DHSgov: .@SecMullinDHS was on the ground this morning with @ICEgov law enforcement in Virginia. They arrested a criminal illegal whose criminal history includes multiple...
+- [13:35 UTC - Repost of @ENERGY: Dropping 3 albums is cool but we're still on @ENERGY https://t.co/YXoNf...](2055281021973672225/)
+  - Source: https://x.com/WhiteHouse/status/2055281021973672225
+  - Repost of @ENERGY: Dropping 3 albums is cool but we're still on @ENERGY https://t.co/YXoNfOiPOv
+- [13:35 UTC - Repost of @Interior: On Peace Officers Memorial Day and every day, we honor the brave men ...](2055281010112151591/)
+  - Source: https://x.com/WhiteHouse/status/2055281010112151591
+  - Repost of @Interior: On Peace Officers Memorial Day and every day, we honor the brave men and women in Interior law enforcement who made the ultimate sacrifice in service to our na...
+- [13:35 UTC - Repost of @WhiteHouse: 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX](2055280904541483237/)
+  - Source: https://x.com/WhiteHouse/status/2055280904541483237
+  - Repost of @WhiteHouse: 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX
+- [13:33 UTC - Repost of @JDVance: If you commit fraud against taxpayers, we're coming for you. https://t...](2055280372066275392/)
+  - Source: https://x.com/WhiteHouse/status/2055280372066275392
+  - Repost of @JDVance: If you commit fraud against taxpayers, we're coming for you. https://t.co/do9BZyLcVb
+- [11:36 UTC - President Donald J. Trump departs Beijing following a historic summit, heading home to the...](2055250920896712812/)
+  - Source: https://x.com/WhiteHouse/status/2055250920896712812
+  - President Donald J. Trump departs Beijing following a historic summit, heading home to the United States. ✈️🇺🇸 https://t.co/5cADuUsTxT
+- [11:18 UTC - 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX](2055246373348315241/)
+  - Source: https://x.com/WhiteHouse/status/2055246373348315241
+  - 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX
+- [09:06 UTC - President Trump meets with President Xi in Zhongnanhai. "I want to thank you very much. Th...](2055213171242086605/)
+  - Source: https://x.com/WhiteHouse/status/2055213171242086605
+  - President Trump meets with President Xi in Zhongnanhai. "I want to thank you very much. This has been an incredible visit. I think a lot of good has come of it. We've made some fan...
+- [03:47 UTC - Repost of @FoxNews: NOW: President Trump arrives at Zhongnanhai Garden to meet with Chines...](2055132884076306784/)
+  - Source: https://x.com/WhiteHouse/status/2055132884076306784
+  - Repost of @FoxNews: NOW: President Trump arrives at Zhongnanhai Garden to meet with Chinese President Xi. https://t.co/C0FHEm8wXg
+- [01:47 UTC - Repost of @JDVance: There’s a reason President Trump is respected by world leaders, and it...](2055102638878781701/)
+  - Source: https://x.com/WhiteHouse/status/2055102638878781701
+  - Repost of @JDVance: There’s a reason President Trump is respected by world leaders, and it’s because he’s consistently shown a level of strength that we haven’t seen from our Comma...
+- [01:39 UTC - NOW: President Trump joins @SeanHannity for his first interview since the historic bilater...](2055100822275387627/)
+  - Source: https://x.com/WhiteHouse/status/2055100822275387627
+  - NOW: President Trump joins @SeanHannity for his first interview since the historic bilateral meeting between the United States and China in Beijing. 🇺🇸 https://t.co/SD5i3xMQxx
+- [01:18 UTC - Repost of @SeanParnellASW: https://t.co/Dr72UieSQc https://t.co/VIbel1QYMk](2055095395307372655/)
+  - Source: https://x.com/WhiteHouse/status/2055095395307372655
+  - Repost of @SeanParnellASW: https://t.co/Dr72UieSQc https://t.co/VIbel1QYMk
+- [00:21 UTC - "The relationship between the American and Chinese people goes all the way back to America...](2055081180903481706/)
+  - Source: https://x.com/WhiteHouse/status/2055081180903481706
+  - "The relationship between the American and Chinese people goes all the way back to America’s founding... two and a half centuries later, that first connection has grown into one of...
+- [00:21 UTC - Repost of @CIA: Havana, Cuba https://t.co/7S7TtJPyf5](2055081030436958271/)
+  - Source: https://x.com/WhiteHouse/status/2055081030436958271
+  - Repost of @CIA: Havana, Cuba https://t.co/7S7TtJPyf5
+- [00:13 UTC - Repost of @FBIDirectorKash: 🚨 Today the FBI and our partners extradited the highest rankin...](2055079037689594189/)
+  - Source: https://x.com/WhiteHouse/status/2055079037689594189
+  - Repost of @FBIDirectorKash: 🚨 Today the FBI and our partners extradited the highest ranking member of Tren de Aragua (TdA) ever brought to justice - Jose Enrique Martinez Flores, a...
+- [00:13 UTC - Repost of @StateDept: SECRETARY RUBIO: We have a resolution now before the UN in which hun...](2055079013261939023/)
+  - Source: https://x.com/WhiteHouse/status/2055079013261939023
+  - Repost of @StateDept: SECRETARY RUBIO: We have a resolution now before the UN in which hundreds of countries have cosigned, so we hope the Chinese will vote for it. https://t.co/dk...

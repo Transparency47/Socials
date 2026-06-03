@@ -1,0 +1,40 @@
+# X / WhiteHouse / 2026-05-03
+
+- Posts: 12
+
+- [23:50 UTC - Repost of @SecDuffy: 🚨WOW: IN JUST 1 YEAR OF TRUMP’S TRUCKING CRACKDOWN… ❌ 28,000 ILLEGAL ...](2051087116440867326/)
+  - Source: https://x.com/WhiteHouse/status/2051087116440867326
+  - Repost of @SecDuffy: 🚨WOW: IN JUST 1 YEAR OF TRUMP’S TRUCKING CRACKDOWN… ❌ 28,000 ILLEGAL CDLs Revoked ❌ 20,000 truckers put OUT OF SERVICE for not meeting English-proficiency rule...
+- [23:50 UTC - Repost of @ENERGY: Thanks to President Trump’s energy addition agenda, Georgia Power has b...](2051087092269125678/)
+  - Source: https://x.com/WhiteHouse/status/2051087092269125678
+  - Repost of @ENERGY: Thanks to President Trump’s energy addition agenda, Georgia Power has broken ground to revive a former coal site as a natural gas and battery storage hub. This p...
+- [23:50 UTC - Repost of @epaleezeldin: President Trump is sacrificing so much to Make America Great Agai...](2051087070911696919/)
+  - Source: https://x.com/WhiteHouse/status/2051087070911696919
+  - Repost of @epaleezeldin: President Trump is sacrificing so much to Make America Great Again. The radicalized left wants him dead, and are being emboldened to take violent action by...
+- [23:50 UTC - Repost of @RapidResponse47: 🙏🏻 https://t.co/xxhYZsFRjy](2051086955186733272/)
+  - Source: https://x.com/WhiteHouse/status/2051086955186733272
+  - Repost of @RapidResponse47: 🙏🏻 https://t.co/xxhYZsFRjy
+- [22:23 UTC - https://t.co/NM0SdwNu9A](2051065153500655701/)
+  - Source: https://x.com/WhiteHouse/status/2051065153500655701
+  - https://t.co/NM0SdwNu9A
+- [20:59 UTC - Repost of @MargoMartin47: President @realDonaldTrump waves to supporters at the Cadillac C...](2051043963713237363/)
+  - Source: https://x.com/WhiteHouse/status/2051043963713237363
+  - Repost of @MargoMartin47: President @realDonaldTrump waves to supporters at the Cadillac Championship 🇺🇸 https://t.co/EdXpr0g8sO
+- [19:01 UTC - The buzz is real 🐝 🍯 https://t.co/a6JA45KE9x](2051014291847843956/)
+  - Source: https://x.com/WhiteHouse/status/2051014291847843956
+  - The buzz is real 🐝 🍯 https://t.co/a6JA45KE9x
+- [14:37 UTC - America is BUILDING, INVESTING &amp; GROWING AGAIN 🇺🇸 https://t.co/6CXrdsjH8c](2050947939590127856/)
+  - Source: https://x.com/WhiteHouse/status/2050947939590127856
+  - America is BUILDING, INVESTING &amp; GROWING AGAIN 🇺🇸 https://t.co/6CXrdsjH8c
+- [11:18 UTC - Repost of @SecRollins: 4.3 million off SNAP and counting! Under President Trump, Americans...](2050897752352055496/)
+  - Source: https://x.com/WhiteHouse/status/2050897752352055496
+  - Repost of @SecRollins: 4.3 million off SNAP and counting! Under President Trump, Americans are getting back to work! Healthy employment numbers mean less reliance on government pro...
+- [11:18 UTC - Repost of @SecWar: If you can build fast and deliver at speed—the Department of War is rea...](2050897722425716986/)
+  - Source: https://x.com/WhiteHouse/status/2050897722425716986
+  - Repost of @SecWar: If you can build fast and deliver at speed—the Department of War is ready to do business. https://t.co/RZrGq1YHb1
+- [11:18 UTC - Repost of @SecRollins: Cutting red tape, reversing Biden’s restrictions, and supporting ou...](2050897699679981645/)
+  - Source: https://x.com/WhiteHouse/status/2050897699679981645
+  - Repost of @SecRollins: Cutting red tape, reversing Biden’s restrictions, and supporting our farmers of the sea. President Trump continues to deliver for our fishermen! 🇺🇸🎣 https://...
+- [11:17 UTC - Repost of @SBAgov: Happy #SmallBusinessWeek 🎉 This week, we celebrate the more than 36 mil...](2050897608583909594/)
+  - Source: https://x.com/WhiteHouse/status/2050897608583909594
+  - Repost of @SBAgov: Happy #SmallBusinessWeek 🎉 This week, we celebrate the more than 36 million small businesses across America that power the nation’s economy. Share to spread word...

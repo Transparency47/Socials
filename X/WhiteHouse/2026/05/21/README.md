@@ -1,0 +1,67 @@
+# X / WhiteHouse / 2026-05-21
+
+- Posts: 21
+
+- [22:53 UTC - Repost of @Freedom250: 👀FIRST LOOK: Freedom 250’s National Memorial Day Observance at Arli...](2057595585469763760/)
+  - Source: https://x.com/WhiteHouse/status/2057595585469763760
+  - Repost of @Freedom250: 👀FIRST LOOK: Freedom 250’s National Memorial Day Observance at Arlington National Cemetery.🇺🇸 A solemn evening honoring the heroes who gave everything for ou...
+- [20:48 UTC - And in this house, Christopher Columbus is a hero. https://t.co/9vCzUlThxg](2057564175417672018/)
+  - Source: https://x.com/WhiteHouse/status/2057564175417672018
+  - And in this house, Christopher Columbus is a hero. https://t.co/9vCzUlThxg
+- [20:45 UTC - American Pasta. 🇺🇸🍝 https://t.co/HDgrshSfqo](2057563376285315494/)
+  - Source: https://x.com/WhiteHouse/status/2057563376285315494
+  - American Pasta. 🇺🇸🍝 https://t.co/HDgrshSfqo
+- [20:18 UTC - Repost of @SecretaryBurgum: Under @POTUS, our nation’s capital has never been more safe or...](2057556741399691488/)
+  - Source: https://x.com/WhiteHouse/status/2057556741399691488
+  - Repost of @SecretaryBurgum: Under @POTUS, our nation’s capital has never been more safe or beautiful - just in time for @Freedom250 and a record number of visitors in D.C. this sum...
+- [19:04 UTC - 🚨 WAR ON FRAUD BIG WIN: 15 individuals were just indicted in Minnesota for an alleged $90+...](2057538125748916237/)
+  - Source: https://x.com/WhiteHouse/status/2057538125748916237
+  - 🚨 WAR ON FRAUD BIG WIN: 15 individuals were just indicted in Minnesota for an alleged $90+ million health care fraud scheme. American taxpayers deserve to know exactly where their...
+- [18:52 UTC - Repost of @RapidResponse47: https://t.co/IaLn3FJVfr](2057535017358598656/)
+  - Source: https://x.com/WhiteHouse/status/2057535017358598656
+  - Repost of @RapidResponse47: https://t.co/IaLn3FJVfr
+- [18:52 UTC - Repost of @DHSgov: 🚨TWO PEOPLE KILLED BY AN ILLEGAL ALIEN SEMI-TRUCK DRIVER. Manvir Singh,...](2057534992423461025/)
+  - Source: https://x.com/WhiteHouse/status/2057534992423461025
+  - Repost of @DHSgov: 🚨TWO PEOPLE KILLED BY AN ILLEGAL ALIEN SEMI-TRUCK DRIVER. Manvir Singh, a criminal illegal alien from India, veered off the road, hit a guardrail and triggered a...
+- [18:44 UTC - Saving Americans billions by slashing Biden's ridiculous regulations. https://t.co/DRIM2Ib...](2057532878829818178/)
+  - Source: https://x.com/WhiteHouse/status/2057532878829818178
+  - Saving Americans billions by slashing Biden's ridiculous regulations. https://t.co/DRIM2IblId
+- [18:34 UTC - Repost of @SecRubio: Heading to Sweden to meet with our NATO Allies and Arctic counterpart...](2057530506871255466/)
+  - Source: https://x.com/WhiteHouse/status/2057530506871255466
+  - Repost of @SecRubio: Heading to Sweden to meet with our NATO Allies and Arctic counterparts on shared interests in the region. https://t.co/wih2oBMaB9
+- [17:01 UTC - Repost of @FBIDirectorKash: 🚨🚨 Today - 15 individuals have been indicted for over $90 mill...](2057507166148239364/)
+  - Source: https://x.com/WhiteHouse/status/2057507166148239364
+  - Repost of @FBIDirectorKash: 🚨🚨 Today - 15 individuals have been indicted for over $90 million in an alleged massive healthcare fraud scheme in Minnesota, after a sweeping FBI inves...
+- [16:35 UTC - Another day, another costly Biden-era policy terminated. $2.4 BILLION SAVED ✅ https://t.co...](2057500431371096306/)
+  - Source: https://x.com/WhiteHouse/status/2057500431371096306
+  - Another day, another costly Biden-era policy terminated. $2.4 BILLION SAVED ✅ https://t.co/EOG17hFZyL
+- [16:21 UTC - Biden's disastrous regulation agenda cost Americans trillions. President Trump is fighting...](2057496940066070729/)
+  - Source: https://x.com/WhiteHouse/status/2057496940066070729
+  - Biden's disastrous regulation agenda cost Americans trillions. President Trump is fighting to fix it with deregulation and LOWER grocery prices. https://t.co/uMshBK4nSy
+- [16:11 UTC - The Trump administration is lowering costs for hardworking Americans. Today’s actions will...](2057494462238998739/)
+  - Source: https://x.com/WhiteHouse/status/2057494462238998739
+  - The Trump administration is lowering costs for hardworking Americans. Today’s actions will save Americans a total of $2.4 BILLION. LET'S GO!!
+- [15:47 UTC - President Trump Participates in an Announcement with the Administrator of the EPA https://...](2057488542696104086/)
+  - Source: https://x.com/WhiteHouse/status/2057488542696104086
+  - President Trump Participates in an Announcement with the Administrator of the EPA https://t.co/lZJTv7m8HJ
+- [15:41 UTC - Repost of @Interior: As America counts down to her 250th Anniversary, history isn’t just b...](2057486890584957374/)
+  - Source: https://x.com/WhiteHouse/status/2057486890584957374
+  - Repost of @Interior: As America counts down to her 250th Anniversary, history isn’t just being remembered. It’s flowing again. This week’s ribbon cuttings marked a triumphant retur...
+- [15:41 UTC - Repost of @WHFraudTF: Thanks to the leadership of the Trump Administration, the era of unc...](2057486863439413716/)
+  - Source: https://x.com/WhiteHouse/status/2057486863439413716
+  - Repost of @WHFraudTF: Thanks to the leadership of the Trump Administration, the era of unchecked fraud and waste is OVER.
+- [15:40 UTC - Repost of @RepCarlos: 🚨As the only Cuban-born Member of Congress, I could not be happier w...](2057486819495731332/)
+  - Source: https://x.com/WhiteHouse/status/2057486819495731332
+  - Repost of @RepCarlos: 🚨As the only Cuban-born Member of Congress, I could not be happier with today’s indictment of dictator Raúl Castro. Thank you, President Trump for your decisi...
+- [15:08 UTC - Repost of @DHSgov: This NEVER should have happened. Criminal illegal alien Manvir Singh wa...](2057478648601440419/)
+  - Source: https://x.com/WhiteHouse/status/2057478648601440419
+  - Repost of @DHSgov: This NEVER should have happened. Criminal illegal alien Manvir Singh was behind the wheel of a semi-truck when he caused a crash that KILLED two innocent people....
+- [14:48 UTC - TODAY AT 11AM EST: Trump to roll back Biden-era refrigerant rules in push to lower grocery...](2057473639943987609/)
+  - Source: https://x.com/WhiteHouse/status/2057473639943987609
+  - TODAY AT 11AM EST: Trump to roll back Biden-era refrigerant rules in push to lower grocery costs https://t.co/CmdQPWnnZu
+- [13:25 UTC - New app logo? 🪩🕺 Send it 📲 https://t.co/VC8lwiyO0G 📲 https://t.co/zFjVcveGOV https://t.co/...](2057452833973154296/)
+  - Source: https://x.com/WhiteHouse/status/2057452833973154296
+  - New app logo? 🪩🕺 Send it 📲 https://t.co/VC8lwiyO0G 📲 https://t.co/zFjVcveGOV https://t.co/4q54U2JPuh
+- [13:15 UTC - Repost of @FBIDirectorKash: President Trump’s FBI made needed changes - this is the result...](2057450123496485196/)
+  - Source: https://x.com/WhiteHouse/status/2057450123496485196
+  - Repost of @FBIDirectorKash: President Trump’s FBI made needed changes - this is the result https://t.co/DYx7uvZecA

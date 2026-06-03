@@ -1,0 +1,52 @@
+# X / WhiteHouse / 2026-05-04
+
+- Posts: 16
+
+- [22:00 UTC - Lo-Fi MAGA Victories to Enjoy Your May 4th 💫 https://t.co/jIKl407fgn](2051421653217730657/)
+  - Source: https://x.com/WhiteHouse/status/2051421653217730657
+  - Lo-Fi MAGA Victories to Enjoy Your May 4th 💫 https://t.co/jIKl407fgn
+- [21:24 UTC - Repost of @WhiteHouse: In a galaxy that demands strength - America stands ready. This is t...](2051412693811126480/)
+  - Source: https://x.com/WhiteHouse/status/2051412693811126480
+  - Repost of @WhiteHouse: In a galaxy that demands strength - America stands ready. This is the way. May the 4th be with you. https://t.co/S8dOKOVd5P
+- [21:22 UTC - Tune In: A New Hope at 6 PM EST.](2051412229250056458/)
+  - Source: https://x.com/WhiteHouse/status/2051412229250056458
+  - Tune In: A New Hope at 6 PM EST.
+- [20:35 UTC - Small business owners are hardworking, resilient, and finally treated right by the Trump a...](2051400422158406101/)
+  - Source: https://x.com/WhiteHouse/status/2051400422158406101
+  - Small business owners are hardworking, resilient, and finally treated right by the Trump administration. "You're essentially the most important factor, business wise, in the whole...
+- [19:46 UTC - President Trump Participates in the White House Small Business Summit https://t.co/YpLfCiw...](2051388046457577633/)
+  - Source: https://x.com/WhiteHouse/status/2051388046457577633
+  - President Trump Participates in the White House Small Business Summit https://t.co/YpLfCiwyZn
+- [19:14 UTC - Repost of @ONDCP: President Trump continues to DELIVER for the American people. @ONDCP and...](2051380014680080608/)
+  - Source: https://x.com/WhiteHouse/status/2051380014680080608
+  - Repost of @ONDCP: President Trump continues to DELIVER for the American people. @ONDCP and @DrugCzar47 just released the National Drug Control Strategy. This is not just a document...
+- [19:07 UTC - Fighting for America’s Seniors! NO TAX ON SOCIAL SECURITY 💰 President Donald J. Trump spea...](2051378295338381497/)
+  - Source: https://x.com/WhiteHouse/status/2051378295338381497
+  - Fighting for America’s Seniors! NO TAX ON SOCIAL SECURITY 💰 President Donald J. Trump speaks with the great American patriots at The Villages. 🇺🇸 https://t.co/fezseZy7xb
+- [19:00 UTC - TOO LATE POWELL. https://t.co/OUp4LZXSCv](2051376478361641061/)
+  - Source: https://x.com/WhiteHouse/status/2051376478361641061
+  - TOO LATE POWELL. https://t.co/OUp4LZXSCv
+- [18:16 UTC - President Trump is celebrating America’s Small Business Revival during National Small Busi...](2051365379323101225/)
+  - Source: https://x.com/WhiteHouse/status/2051365379323101225
+  - President Trump is celebrating America’s Small Business Revival during National Small Business Week! 🧵Since taking office, the Trump Admin has moved fast with real results to cut r...
+- [17:32 UTC - "Iran has taken some shots at unrelated Nations with respect to the Ship Movement, PROJECT...](2051354230556971442/)
+  - Source: https://x.com/WhiteHouse/status/2051354230556971442
+  - "Iran has taken some shots at unrelated Nations with respect to the Ship Movement, PROJECT FREEDOM, including a South Korean Cargo Ship... We’ve shot down seven small Boats or, as...
+- [16:52 UTC - The math is simple. President Trump holds all the cards. https://t.co/5Ko2s8CLo6](2051344149551485078/)
+  - Source: https://x.com/WhiteHouse/status/2051344149551485078
+  - The math is simple. President Trump holds all the cards. https://t.co/5Ko2s8CLo6
+- [16:27 UTC - We don't have to live like this. Two innocent women were brutally stabbed by an illegal al...](2051337885853384876/)
+  - Source: https://x.com/WhiteHouse/status/2051337885853384876
+  - We don't have to live like this. Two innocent women were brutally stabbed by an illegal alien from El Salvador. This is the direct result of Democrats’ failed policies that put Ame...
+- [16:25 UTC - Repost of @Freedom250: 📰 @FOXNEWS: Google joins forces with Trump admin to unleash patriot...](2051337391890116820/)
+  - Source: https://x.com/WhiteHouse/status/2051337391890116820
+  - Repost of @Freedom250: 📰 @FOXNEWS: Google joins forces with Trump admin to unleash patriotic birthday push into homes nationwide https://t.co/5wrSbJz7K9
+- [15:23 UTC - In a galaxy that demands strength - America stands ready. This is the way. May the 4th be ...](2051321953022042350/)
+  - Source: https://x.com/WhiteHouse/status/2051321953022042350
+  - In a galaxy that demands strength - America stands ready. This is the way. May the 4th be with you. https://t.co/S8dOKOVd5P
+- [14:22 UTC - TODAY AT THE WHITE HOUSE: President Donald J. Trump is celebrating America’s small busines...](2051306534450176272/)
+  - Source: https://x.com/WhiteHouse/status/2051306534450176272
+  - TODAY AT THE WHITE HOUSE: President Donald J. Trump is celebrating America’s small business owners and the huge wins of the administration, with more than 130 business leaders from...
+- [12:01 UTC - 🇺🇸 President Donald J. Trump at the PGA TOUR Cadillac Championship in Doral. https://t.co/...](2051271023698309536/)
+  - Source: https://x.com/WhiteHouse/status/2051271023698309536
+  - 🇺🇸 President Donald J. Trump at the PGA TOUR Cadillac Championship in Doral. https://t.co/myQaeon1U3

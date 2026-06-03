@@ -1,0 +1,85 @@
+# X / WhiteHouse / 2026-04-30
+
+- Posts: 27
+
+- [23:03 UTC - Repost of @epaleezeldin: https://t.co/wmQr6xZSyl](2049988024742678711/)
+  - Source: https://x.com/WhiteHouse/status/2049988024742678711
+  - Repost of @epaleezeldin: https://t.co/wmQr6xZSyl
+- [23:03 UTC - Repost of @FirstLadyOffice: From the arrival ceremony to the final engagements, the State ...](2049987980085866516/)
+  - Source: https://x.com/WhiteHouse/status/2049987980085866516
+  - Repost of @FirstLadyOffice: From the arrival ceremony to the final engagements, the State Visit reaffirmed the strength of the U.S.–U.K. partnership and highlighted the importance...
+- [21:06 UTC - Repost of @RealPNavarro: The data is clear: surging business investment is fueling America...](2049958507407868387/)
+  - Source: https://x.com/WhiteHouse/status/2049958507407868387
+  - Repost of @RealPNavarro: The data is clear: surging business investment is fueling America’s reindustrialization under @POTUS https://t.co/a5teXYMeAD
+- [21:06 UTC - Securing Retirement for Working Americans 🇺🇸 President Donald J. Trump just signed an Exec...](2049958481046741222/)
+  - Source: https://x.com/WhiteHouse/status/2049958481046741222
+  - Securing Retirement for Working Americans 🇺🇸 President Donald J. Trump just signed an Executive Order boosting access to high-quality, low-cost IRAs and offering up to $1,000 in fe...
+- [20:41 UTC - Repost of @USTradeRep: 🇺🇸🇬🇧 Ambassador Greer issued a statement following @POTUS' announce...](2049952242170577138/)
+  - Source: https://x.com/WhiteHouse/status/2049952242170577138
+  - Repost of @USTradeRep: 🇺🇸🇬🇧 Ambassador Greer issued a statement following @POTUS' announcement regarding preferential duty access for whiskey produced in the United Kingdom. https:...
+- [20:39 UTC - Repost of @VP: 📸Vice President Vance and @SLOTUS attend the welcome ceremony and state din...](2049951705144426654/)
+  - Source: https://x.com/WhiteHouse/status/2049951705144426654
+  - Repost of @VP: 📸Vice President Vance and @SLOTUS attend the welcome ceremony and state dinner to honor King Charles III and Queen Camilla's visit to the United States https://t.co/...
+- [19:49 UTC - PROMISES MADE, PROMISES KEPT. President Trump signs an executive order that grants America...](2049939173973307740/)
+  - Source: https://x.com/WhiteHouse/status/2049939173973307740
+  - PROMISES MADE, PROMISES KEPT. President Trump signs an executive order that grants Americans access to retirement accounts that federal employees use, opening the door for great re...
+- [19:27 UTC - https://t.co/L34iFAKNK7](2049933649131221316/)
+  - Source: https://x.com/WhiteHouse/status/2049933649131221316
+  - https://t.co/L34iFAKNK7
+- [19:00 UTC - Repost of @SecKennedy: President Trump’s Surgeon General nominee, Casey Means, stands as o...](2049926853813506380/)
+  - Source: https://x.com/WhiteHouse/status/2049926853813506380
+  - Repost of @SecKennedy: President Trump’s Surgeon General nominee, Casey Means, stands as one of the MAHA movement’s most powerful evangelists. Her book Good Energy, which exposed t...
+- [18:50 UTC - President Trump Participates in an Executive Order Signing, April 30th, 2026 https://t.co/...](2049924367635677576/)
+  - Source: https://x.com/WhiteHouse/status/2049924367635677576
+  - President Trump Participates in an Executive Order Signing, April 30th, 2026 https://t.co/pdfNfgjbmX
+- [18:49 UTC - Cheers! https://t.co/hEonnBqPA2](2049924162689314918/)
+  - Source: https://x.com/WhiteHouse/status/2049924162689314918
+  - Cheers! https://t.co/hEonnBqPA2
+- [18:47 UTC - Repost of @SecScottBessent: Amid the impact of Economic Fury, Iran’s currency has hit an a...](2049923724204298306/)
+  - Source: https://x.com/WhiteHouse/status/2049923724204298306
+  - Repost of @SecScottBessent: Amid the impact of Economic Fury, Iran’s currency has hit an all-time low. The Iranian people deserve a new era, which the corrupt and shambolic Iranian...
+- [18:40 UTC - A historic visit comes to a close — President Donald J. Trump and the First Lady bid farew...](2049921729368137794/)
+  - Source: https://x.com/WhiteHouse/status/2049921729368137794
+  - A historic visit comes to a close — President Donald J. Trump and the First Lady bid farewell to Their Majesties. https://t.co/0pSdHIDKbW
+- [16:40 UTC - Off to Venezuela ✈️ American Airlines is resuming direct flights from the U.S. to Venezuel...](2049891721127809121/)
+  - Source: https://x.com/WhiteHouse/status/2049891721127809121
+  - Off to Venezuela ✈️ American Airlines is resuming direct flights from the U.S. to Venezuela for the first time in seven years. This wouldn't be possible without President Trump's b...
+- [16:10 UTC - ✈️ FIRST DIRECT COMMERCIAL FLIGHT FROM THE U.S. ➡️ VENEZUELA IN 7 YEARS. Thank you, Presid...](2049884212803604766/)
+  - Source: https://x.com/WhiteHouse/status/2049884212803604766
+  - ✈️ FIRST DIRECT COMMERCIAL FLIGHT FROM THE U.S. ➡️ VENEZUELA IN 7 YEARS. Thank you, President Trump! 🇺🇸🇻🇪 https://t.co/meAZqTv1Ra
+- [16:01 UTC - Repost of @RealPNavarro: Today's GDP and durable goods reports show that business investme...](2049881808620146899/)
+  - Source: https://x.com/WhiteHouse/status/2049881808620146899
+  - Repost of @RealPNavarro: Today's GDP and durable goods reports show that business investment is surging. The private sector is rebuilding. The Trump economy is growing. This is the...
+- [15:36 UTC - The conclusion of an unforgettable state visit. 🇺🇸🇬🇧 https://t.co/T2mfgdwEfa](2049875637297405969/)
+  - Source: https://x.com/WhiteHouse/status/2049875637297405969
+  - The conclusion of an unforgettable state visit. 🇺🇸🇬🇧 https://t.co/T2mfgdwEfa
+- [15:34 UTC - Repost of @StateDept: For nearly 7 years there have been no direct commercial flights betw...](2049875024102707271/)
+  - Source: https://x.com/WhiteHouse/status/2049875024102707271
+  - Repost of @StateDept: For nearly 7 years there have been no direct commercial flights between the U.S. and Venezuela. Under President Trump we're changing that today. Flights betwe...
+- [15:14 UTC - Outrage for attention. Democrats’ reckless rhetoric is fueling real-world danger. Enough i...](2049869892615118889/)
+  - Source: https://x.com/WhiteHouse/status/2049869892615118889
+  - Outrage for attention. Democrats’ reckless rhetoric is fueling real-world danger. Enough is enough. https://t.co/mCuzOA8yzO
+- [15:07 UTC - Repost of @SecDuffy: HISTORY IS BEING MADE TODAY  The first commercial flight from the U.S...](2049868190688194716/)
+  - Source: https://x.com/WhiteHouse/status/2049868190688194716
+  - The first commercial flight from the U.S... Repost of @SecDuffy: HISTORY IS BEING MADE TODAY The first commercial flight from the U.S. to Venezuela in 7 YEARS on @AmericanAir is no...
+- [14:16 UTC - Repost of @Freedom250: Some people play it safe. Others start countries. 🇺🇸 https://t.co/B...](2049855521075638357/)
+  - Source: https://x.com/WhiteHouse/status/2049855521075638357
+  - Repost of @Freedom250: Some people play it safe. Others start countries. 🇺🇸 https://t.co/BlUabLKUlc
+- [13:41 UTC - Repost of @PressSec: 🚨HAPPENING TODAY AT THE WHITE HOUSE: President Trump to sign order ex...](2049846524016755097/)
+  - Source: https://x.com/WhiteHouse/status/2049846524016755097
+  - Repost of @PressSec: 🚨HAPPENING TODAY AT THE WHITE HOUSE: President Trump to sign order expanding workers’ access to retirement plans https://t.co/R7noQCJwnP
+- [13:32 UTC - Repost of @ICEgov: 💭Everyone’s self-deportation process is different. You may want to let ...](2049844414986461552/)
+  - Source: https://x.com/WhiteHouse/status/2049844414986461552
+  - Repost of @ICEgov: 💭Everyone’s self-deportation process is different. You may want to let your employer, your friends and your family know you’re leaving. You may also want to pack...
+- [13:29 UTC - When is ABC Fake News Network firing seriously unfunny Jimmy Kimmel??? https://t.co/xLsvaC...](2049843524015681659/)
+  - Source: https://x.com/WhiteHouse/status/2049843524015681659
+  - When is ABC Fake News Network firing seriously unfunny Jimmy Kimmel??? https://t.co/xLsvaCectg
+- [13:24 UTC - Under President Trump's leadership, Iran will NEVER obtain a nuclear weapon. https://t.co/...](2049842355130212863/)
+  - Source: https://x.com/WhiteHouse/status/2049842355130212863
+  - Under President Trump's leadership, Iran will NEVER obtain a nuclear weapon. https://t.co/uzhDFnTiRA
+- [01:34 UTC - BUILD THE BALLROOM. https://t.co/9SwtzGwemj](2049663661510189085/)
+  - Source: https://x.com/WhiteHouse/status/2049663661510189085
+  - BUILD THE BALLROOM. https://t.co/9SwtzGwemj
+- [00:31 UTC - For all humanity. 🌎🚀 From the Moon to the White House — Artemis II is just the beginning. ...](2049647714728570948/)
+  - Source: https://x.com/WhiteHouse/status/2049647714728570948
+  - For all humanity. 🌎🚀 From the Moon to the White House — Artemis II is just the beginning. https://t.co/SgQqy5tyrm

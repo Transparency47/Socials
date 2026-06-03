@@ -1,0 +1,97 @@
+# X / WhiteHouse / 2026-05-05
+
+- Posts: 31
+
+- [22:58 UTC - “We have mutually agreed that, while the Blockade will remain in full force and effect, Pr...](2051798734850101462/)
+  - Source: https://x.com/WhiteHouse/status/2051798734850101462
+  - “We have mutually agreed that, while the Blockade will remain in full force and effect, Project Freedom (The Movement of Ships through the Strait of Hormuz) will be paused for a sh...
+- [22:35 UTC - Clear military objectives from day one. @SecRubio 🔥⬇️ https://t.co/Hz1jXzzQGX](2051793034715533389/)
+  - Source: https://x.com/WhiteHouse/status/2051793034715533389
+  - Clear military objectives from day one. @SecRubio 🔥⬇️ https://t.co/Hz1jXzzQGX
+- [22:31 UTC - Repost of @SecRollins: Honored to join @VP in Des Moines, Iowa! 🇺🇸🇺🇸🇺🇸 https://t.co/lQP6lX...](2051791843277283809/)
+  - Source: https://x.com/WhiteHouse/status/2051791843277283809
+  - Repost of @SecRollins: Honored to join @VP in Des Moines, Iowa! 🇺🇸🇺🇸🇺🇸 https://t.co/lQP6lXiUu8
+- [21:58 UTC - Repost of @VP: Vice President JD Vance Delivers Remarks at Des Moines, Iowa https://t.co/F...](2051783564090282143/)
+  - Source: https://x.com/WhiteHouse/status/2051783564090282143
+  - Repost of @VP: Vice President JD Vance Delivers Remarks at Des Moines, Iowa https://t.co/Fn4KVHzIf8
+- [21:11 UTC - SAVING AMERICA BILLIONS 🇺🇸 By putting America first with Most-Favored-Nations drug pricing...](2051771786820252075/)
+  - Source: https://x.com/WhiteHouse/status/2051771786820252075
+  - SAVING AMERICA BILLIONS 🇺🇸 By putting America first with Most-Favored-Nations drug pricing, President Trump's decisive action is projected to save Americans hundreds of billions ov...
+- [21:02 UTC - Reviving the Presidential Fitness Test 💪🇺🇸 This National Physical Fitness &amp; Sports Mon...](2051769576782717242/)
+  - Source: https://x.com/WhiteHouse/status/2051769576782717242
+  - Reviving the Presidential Fitness Test 💪🇺🇸 This National Physical Fitness &amp; Sports Month, President Trump is celebrating strength, discipline, and that competitive American spi...
+- [20:53 UTC - Repost of @WhiteHouse: Happy Cinco de Mayo to all who celebrate! https://t.co/gfTriN75Fk](2051767252010070470/)
+  - Source: https://x.com/WhiteHouse/status/2051767252010070470
+  - Repost of @WhiteHouse: Happy Cinco de Mayo to all who celebrate! https://t.co/gfTriN75Fk
+- [20:29 UTC - 👀👀 https://t.co/zChlueAYec](2051761247779979301/)
+  - Source: https://x.com/WhiteHouse/status/2051761247779979301
+  - 👀👀 https://t.co/zChlueAYec
+- [20:26 UTC - Repost of @SecRollins: Extra guacamole this Cinco de Mayo thanks to @POTUS! We’re making s...](2051760346067562715/)
+  - Source: https://x.com/WhiteHouse/status/2051760346067562715
+  - Repost of @SecRollins: Extra guacamole this Cinco de Mayo thanks to @POTUS! We’re making sure guac doesn’t have to be extra! For example, the ingredient prices are all down: 🥑 Avoc...
+- [20:25 UTC - Repost of @CENTCOM: America's men and women in uniform serving across the Middle East repr...](2051760235514052671/)
+  - Source: https://x.com/WhiteHouse/status/2051760235514052671
+  - Repost of @CENTCOM: America's men and women in uniform serving across the Middle East represent the strongest fighting force the world has ever known. https://t.co/YdQybGfHI1
+- [20:09 UTC - Trump Dance Training on the South Lawn https://t.co/P0OS11hBiR](2051756064874336448/)
+  - Source: https://x.com/WhiteHouse/status/2051756064874336448
+  - Trump Dance Training on the South Lawn https://t.co/P0OS11hBiR
+- [19:50 UTC - Secretary of State Marco Rubio delivers a clear message to what's left of the Iranian Regi...](2051751487009669161/)
+  - Source: https://x.com/WhiteHouse/status/2051751487009669161
+  - Secretary of State Marco Rubio delivers a clear message to what's left of the Iranian Regime. "They really shouldn't test the will of the United States, at least not under Presiden...
+- [19:27 UTC - Repost of @StateDept: SECRETARY RUBIO: Project Freedom will rescue almost 23,000 civilians...](2051745514983510184/)
+  - Source: https://x.com/WhiteHouse/status/2051745514983510184
+  - Repost of @StateDept: SECRETARY RUBIO: Project Freedom will rescue almost 23,000 civilians from 87 different countries that are trapped in the Persian Gulf by the Iranian regime. h...
+- [19:25 UTC - Repost of @RapidResponse47: The eyes of the world are on the White House Press Briefing Ro...](2051745237425410173/)
+  - Source: https://x.com/WhiteHouse/status/2051745237425410173
+  - Repost of @RapidResponse47: The eyes of the world are on the White House Press Briefing Room 👀 https://t.co/1FkAHt8gz1
+- [19:11 UTC - Secretary of State Marco Rubio Briefs Members of the Media, May 5, 2026 https://t.co/TI2nK...](2051741571121303602/)
+  - Source: https://x.com/WhiteHouse/status/2051741571121303602
+  - Secretary of State Marco Rubio Briefs Members of the Media, May 5, 2026 https://t.co/TI2nKhytpG
+- [19:08 UTC - Repost of @ONDCP: The National Drug Control Strategy Summit: Tune-in live on X (9am EST) M...](2051740927341801690/)
+  - Source: https://x.com/WhiteHouse/status/2051740927341801690
+  - Repost of @ONDCP: The National Drug Control Strategy Summit: Tune-in live on X (9am EST) May 6, 2026 for the#nationaldrugstrategy launch event https://t.co/nJiJpT5ZMZ
+- [19:07 UTC - Repost of @RealPNavarro: 🚨U.S. exports hit record highs in March. And America is making pr...](2051740657304166666/)
+  - Source: https://x.com/WhiteHouse/status/2051740657304166666
+  - Repost of @RealPNavarro: 🚨U.S. exports hit record highs in March. And America is making productive capital goods purchases — the bones and sinews of a manufacturing comeback. Trump...
+- [18:43 UTC - Another job? @SecRubio speaks to members of the media LIVE from the press briefing room. T...](2051734486648258777/)
+  - Source: https://x.com/WhiteHouse/status/2051734486648258777
+  - Another job? @SecRubio speaks to members of the media LIVE from the press briefing room. Today at 3 PM EST. Don’t miss it! https://t.co/TTl2JZp1O6
+- [18:07 UTC - SPOTTED: PRESIDENT TRUMP TEACHING THE TRUMP DANCE ON THE SOUTH LAWN 🇺🇸 https://t.co/oDrjne...](2051725481926341003/)
+  - Source: https://x.com/WhiteHouse/status/2051725481926341003
+  - SPOTTED: PRESIDENT TRUMP TEACHING THE TRUMP DANCE ON THE SOUTH LAWN 🇺🇸 https://t.co/oDrjneBbd7
+- [17:00 UTC - MAKING AMERICA HEALTHY AGAIN 🇺🇸 President Trump is officially bringing back the Presidenti...](2051708640650731901/)
+  - Source: https://x.com/WhiteHouse/status/2051708640650731901
+  - MAKING AMERICA HEALTHY AGAIN 🇺🇸 President Trump is officially bringing back the Presidential Fitness Test award, alongside action to prioritize fitness and athletics for our nation...
+- [16:51 UTC - President Trump joins Presidential Fitness Challenge activities on the South Lawn 💪](2051706338779050005/)
+  - Source: https://x.com/WhiteHouse/status/2051706338779050005
+  - President Trump joins Presidential Fitness Challenge activities on the South Lawn 💪
+- [15:49 UTC - 🇺🇸MUST WATCH: @GaryPlayer joins President Trump in the Oval Office to sign a proclamation ...](2051690787792888260/)
+  - Source: https://x.com/WhiteHouse/status/2051690787792888260
+  - 🇺🇸MUST WATCH: @GaryPlayer joins President Trump in the Oval Office to sign a proclamation restoring the Presidential Fitness Test. His advice? Only in America do you have that oppo...
+- [15:00 UTC - Happy Cinco de Mayo to all who celebrate! https://t.co/gfTriN75Fk](2051678505805496589/)
+  - Source: https://x.com/WhiteHouse/status/2051678505805496589
+  - Happy Cinco de Mayo to all who celebrate! https://t.co/gfTriN75Fk
+- [14:59 UTC - President Trump Signs a Proclamation, May 5, 2026 https://t.co/11e4JtQUCW](2051678287236145467/)
+  - Source: https://x.com/WhiteHouse/status/2051678287236145467
+  - President Trump Signs a Proclamation, May 5, 2026 https://t.co/11e4JtQUCW
+- [14:23 UTC - Repost of @RapidResponse47: .@VP touches down in Ohio alongside his son, Vivek. He'll hold...](2051669233637969957/)
+  - Source: https://x.com/WhiteHouse/status/2051669233637969957
+  - Repost of @RapidResponse47: .@VP touches down in Ohio alongside his son, Vivek. He'll hold another event in Des Moines, Iowa, later today. 🛬 https://t.co/Jffg9wTzum
+- [14:09 UTC - For decades, Iran has extorted the whole world by weaponizing the Strait of Hormuz to thei...](2051665624523231712/)
+  - Source: https://x.com/WhiteHouse/status/2051665624523231712
+  - For decades, Iran has extorted the whole world by weaponizing the Strait of Hormuz to their terroristic will. Project Freedom will crush that threat and reopen the global commerce...
+- [13:24 UTC - Thanks to President Trump, direct flights from the U.S. to Venezuela are BACK! 🇺🇸🇻🇪 https:...](2051654289874202666/)
+  - Source: https://x.com/WhiteHouse/status/2051654289874202666
+  - Thanks to President Trump, direct flights from the U.S. to Venezuela are BACK! 🇺🇸🇻🇪 https://t.co/kSTlCI830C
+- [13:03 UTC - Repost of @DOWResponse: .@SECWAR "President Trump has directed @CENTCOM to restart the fre...](2051649048189231519/)
+  - Source: https://x.com/WhiteHouse/status/2051649048189231519
+  - Repost of @DOWResponse: .@SECWAR "President Trump has directed @CENTCOM to restart the free flow of commerce through the Strait of Hormuz under the umbrella of PROJECT FREEDOM. To...
+- [09:57 UTC - Repost of @WhiteHouse: Lo-Fi MAGA Victories to Enjoy Your May 4th 💫 https://t.co/jIKl407fg...](2051602166238810179/)
+  - Source: https://x.com/WhiteHouse/status/2051602166238810179
+  - Repost of @WhiteHouse: Lo-Fi MAGA Victories to Enjoy Your May 4th 💫 https://t.co/jIKl407fgn
+- [01:27 UTC - BEST I CAN DO IS THE GOLDEN AGE FOR SMALL BUSINESSES 🔥 Pawn Stars' Rick Harrison x White H...](2051473750873321574/)
+  - Source: https://x.com/WhiteHouse/status/2051473750873321574
+  - BEST I CAN DO IS THE GOLDEN AGE FOR SMALL BUSINESSES 🔥 Pawn Stars' Rick Harrison x White House 🇺🇸 https://t.co/lIaSBg3duK
+- [00:07 UTC - Small businesses are the backbone of the American economy, and the Trump administration is...](2051453693157875727/)
+  - Source: https://x.com/WhiteHouse/status/2051453693157875727
+  - Small businesses are the backbone of the American economy, and the Trump administration is fighting for Main Street. President Trump honors hardworking small business owners at the...

@@ -1,0 +1,76 @@
+# X / WhiteHouse / 2026-05-18
+
+- Posts: 24
+
+- [21:47 UTC - Americans went from paying the MOST anywhere in the world for medications to paying the LO...](2056491782561518027/)
+  - Source: https://x.com/WhiteHouse/status/2056491782561518027
+  - Americans went from paying the MOST anywhere in the world for medications to paying the LOWEST drug prices for anybody in any country. All we needed was a new president. https://t....
+- [21:42 UTC - Repost of @VP: President Trump and Vice President Vance are fighting for YOU🇺🇸 https://t.c...](2056490711269220745/)
+  - Source: https://x.com/WhiteHouse/status/2056490711269220745
+  - Repost of @VP: President Trump and Vice President Vance are fighting for YOU🇺🇸 https://t.co/utiG5qta2D
+- [21:19 UTC - Find your medication, with ease. 📲 https://t.co/cbj8BwOeNI https://t.co/Oayi69fCgt](2056484964393259112/)
+  - Source: https://x.com/WhiteHouse/status/2056484964393259112
+  - Find your medication, with ease. 📲 https://t.co/cbj8BwOeNI https://t.co/Oayi69fCgt
+- [21:17 UTC - President Trump Participates in a Healthcare Affordability Event, May 18, 2026 https://t.c...](2056484313814745231/)
+  - Source: https://x.com/WhiteHouse/status/2056484313814745231
+  - President Trump Participates in a Healthcare Affordability Event, May 18, 2026 https://t.co/1a2OWEHmV1
+- [20:24 UTC - Repost of @VP: VP Vance speaks on fraud in Kansas City, Missouri: "We have leaders...who f...](2056471124200829430/)
+  - Source: https://x.com/WhiteHouse/status/2056471124200829430
+  - Repost of @VP: VP Vance speaks on fraud in Kansas City, Missouri: "We have leaders...who fight for you, who fight for your tax dollars and fight for the kids who need those program...
+- [19:44 UTC - TrumpRx and Most-Favored-Nations Drug Pricing: Saving BILLIONS for Americans. Watch Presid...](2056460882868138372/)
+  - Source: https://x.com/WhiteHouse/status/2056460882868138372
+  - TrumpRx and Most-Favored-Nations Drug Pricing: Saving BILLIONS for Americans. Watch President Trump deliver remarks on TrumpRx at 4:30 pm TODAY. 🇺🇸 https://t.co/BiGOIEtjqd
+- [19:21 UTC - Repost of @Sonderling47: 🚨 FRAUD UPDATE: Under the leadership of @VP and alongside @USLabo...](2056455137804034136/)
+  - Source: https://x.com/WhiteHouse/status/2056455137804034136
+  - Repost of @Sonderling47: 🚨 FRAUD UPDATE: Under the leadership of @VP and alongside @USLaborIG on the @WHFraudTF, we’re hunting down fraudsters and recovering taxpayer dollars. ➡️ $...
+- [19:18 UTC - "Serious negotiations are now taking place, and that, in their opinion, as Great Leaders a...](2056454406074212682/)
+  - Source: https://x.com/WhiteHouse/status/2056454406074212682
+  - "Serious negotiations are now taking place, and that, in their opinion, as Great Leaders and Allies, a Deal will be made, which will be very acceptable to the United States of Amer...
+- [18:32 UTC - "We stand and we ought to fight for you, not illegal alien criminals." @VP 🇺🇸 https://t.co...](2056442785079627822/)
+  - Source: https://x.com/WhiteHouse/status/2056442785079627822
+  - "We stand and we ought to fight for you, not illegal alien criminals." @VP 🇺🇸 https://t.co/FOtXckHJ4c
+- [18:27 UTC - Click the bullseye to hear something you need 🎯](2056441450124943475/)
+  - Source: https://x.com/WhiteHouse/status/2056441450124943475
+  - Click the bullseye to hear something you need 🎯
+- [18:19 UTC - Repost of @VP: VP Vance and the @WHFraudTF are working around the clock to eliminate fraud...](2056439572695814292/)
+  - Source: https://x.com/WhiteHouse/status/2056439572695814292
+  - Repost of @VP: VP Vance and the @WHFraudTF are working around the clock to eliminate fraud and Make America great Again🇺🇸 https://t.co/oDnHlyP0Vw
+- [17:52 UTC - Vice President JD Vance Delivers Remarks in Kansas City, Missouri https://t.co/QYVXhIICk2](2056432680577781893/)
+  - Source: https://x.com/WhiteHouse/status/2056432680577781893
+  - Vice President JD Vance Delivers Remarks in Kansas City, Missouri https://t.co/QYVXhIICk2
+- [17:39 UTC - President Trump delivered for Americans on his trip to China, securing monumental deals in...](2056429449625661741/)
+  - Source: https://x.com/WhiteHouse/status/2056429449625661741
+  - President Trump delivered for Americans on his trip to China, securing monumental deals in trade, investment, industry and more. 🇺🇸 https://t.co/KrQkzUTWQR
+- [16:41 UTC - Repost of @VP: Last week, Vice President Vance honored fallen officers at the Peace Office...](2056414980690292827/)
+  - Source: https://x.com/WhiteHouse/status/2056414980690292827
+  - Repost of @VP: Last week, Vice President Vance honored fallen officers at the Peace Officer Memorial Service: "God bless the fallen and may he continue to bless the great United St...
+- [16:37 UTC - Career politicians betrayed American workers for decades with cheap foreign labor. But the...](2056413776023343250/)
+  - Source: https://x.com/WhiteHouse/status/2056413776023343250
+  - Career politicians betrayed American workers for decades with cheap foreign labor. But the tide has turned, the U.S. manufacturing boom is accelerating.🔥🇺🇸 TODAY: @VP is in Kansas...
+- [15:12 UTC - Back to loving America again 🇺🇸 https://t.co/oAh9QvLWGg](2056392364495626330/)
+  - Source: https://x.com/WhiteHouse/status/2056392364495626330
+  - Back to loving America again 🇺🇸 https://t.co/oAh9QvLWGg
+- [14:58 UTC - The Dumacrats and Media have totally lost their way. https://t.co/UuVRqmw5Z3](2056388890961784977/)
+  - Source: https://x.com/WhiteHouse/status/2056388890961784977
+  - The Dumacrats and Media have totally lost their way. https://t.co/UuVRqmw5Z3
+- [14:57 UTC - Repost of @RapidResponse47: Fake News. It is temporary staff parking through June 28 to ac...](2056388737743851703/)
+  - Source: https://x.com/WhiteHouse/status/2056388737743851703
+  - Repost of @RapidResponse47: Fake News. It is temporary staff parking through June 28 to accommodate projects and events within the White House complex.
+- [12:37 UTC - Repost of @FBIDirectorKash: President Trump’s law enforcement team led by this FBI is cond...](2056353574582419918/)
+  - Source: https://x.com/WhiteHouse/status/2056353574582419918
+  - Repost of @FBIDirectorKash: President Trump’s law enforcement team led by this FBI is conducting the most aggressive violent crimes against children takedowns in United States hist...
+- [01:29 UTC - https://t.co/DuOAK547Yp](2056185299600847356/)
+  - Source: https://x.com/WhiteHouse/status/2056185299600847356
+  - https://t.co/DuOAK547Yp
+- [01:23 UTC - Repost of @SecRollins: 🚨Trump to China will go down as a truly HISTORIC state visit! CONFI...](2056183755161637226/)
+  - Source: https://x.com/WhiteHouse/status/2056183755161637226
+  - Repost of @SecRollins: 🚨Trump to China will go down as a truly HISTORIC state visit! CONFIRMED WINS FOR U.S. FARMERS: 1. $17B in NEW purchase commitments, in addition to the 25MMT...
+- [01:23 UTC - Repost of @SecDuffy: Pete Buttigieg moved like a sloth. I’m moving at the speed of Trump! ...](2056183739697262893/)
+  - Source: https://x.com/WhiteHouse/status/2056183739697262893
+  - Repost of @SecDuffy: Pete Buttigieg moved like a sloth. I’m moving at the speed of Trump! After four years of a do-nothing DOT Secretary, America is back 🇺🇸 Look what @USDOT has do...
+- [01:22 UTC - Repost of @DNIGabbard: Two hundred and fifty years ago today — on May 17th, 1776 — the Sec...](2056183720369873125/)
+  - Source: https://x.com/WhiteHouse/status/2056183720369873125
+  - Repost of @DNIGabbard: Two hundred and fifty years ago today — on May 17th, 1776 — the Second Continental Congress called for a day of humiliation, fasting, and prayer. Today, exac...
+- [01:22 UTC - Repost of @SecretaryBurgum: America’s energy future is stronger with Alaska leading the wa...](2056183700304367759/)
+  - Source: https://x.com/WhiteHouse/status/2056183700304367759
+  - Repost of @SecretaryBurgum: America’s energy future is stronger with Alaska leading the way. At the Pikka project, we’re unlocking our abundant resources, creating jobs and through...

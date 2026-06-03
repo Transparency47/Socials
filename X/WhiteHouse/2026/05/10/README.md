@@ -1,0 +1,64 @@
+# X / WhiteHouse / 2026-05-10
+
+- Posts: 20
+
+- [23:20 UTC - https://t.co/kWE5tvdY9H DOW-UAP-PR38 UNRESOLVED UAP REPORT | 2013 https://t.co/x9PzTHuUha](2053616254477357456/)
+  - Source: https://x.com/WhiteHouse/status/2053616254477357456
+  - https://t.co/kWE5tvdY9H DOW-UAP-PR38 UNRESOLVED UAP REPORT | 2013 https://t.co/x9PzTHuUha
+- [23:06 UTC - Repost of @RapidResponse47: https://t.co/XC3uzi14El](2053612568728539206/)
+  - Source: https://x.com/WhiteHouse/status/2053612568728539206
+  - Repost of @RapidResponse47: https://t.co/XC3uzi14El
+- [22:32 UTC - The Trump Effect 📈🔥 https://t.co/ojS2G4PXUF](2053604130891964724/)
+  - Source: https://x.com/WhiteHouse/status/2053604130891964724
+  - The Trump Effect 📈🔥 https://t.co/ojS2G4PXUF
+- [21:32 UTC - Mother's Day 2026 at the White House 💐 "You have the most important job there is in Americ...](2053589102734217619/)
+  - Source: https://x.com/WhiteHouse/status/2053589102734217619
+  - Mother's Day 2026 at the White House 💐 "You have the most important job there is in America or any place else... I just want to wish you all a very happy Mother’s Day." - President...
+- [21:02 UTC - "I have just read the response from Iran’s so-called 'Representatives.' I don’t like it — ...](2053581347084501106/)
+  - Source: https://x.com/WhiteHouse/status/2053581347084501106
+  - "I have just read the response from Iran’s so-called 'Representatives.' I don’t like it — TOTALLY UNACCEPTABLE! Thank you for your attention to this matter." -President DONALD J. T...
+- [18:49 UTC - THE GIFT THAT KEEPS ON GIVING. The Trump Administration is supporting American families li...](2053547959447376012/)
+  - Source: https://x.com/WhiteHouse/status/2053547959447376012
+  - THE GIFT THAT KEEPS ON GIVING. The Trump Administration is supporting American families like never before with Trump Accounts, helping give the next generation a jumpstart toward t...
+- [18:26 UTC - Repost of @VP: Happy Mother’s Day to moms everywhere, especially to @SLOTUS Usha Vance! ht...](2053542233278722136/)
+  - Source: https://x.com/WhiteHouse/status/2053542233278722136
+  - Repost of @VP: Happy Mother’s Day to moms everywhere, especially to @SLOTUS Usha Vance! https://t.co/t1BPna0oeI
+- [18:00 UTC - They will be laughing no longer! https://t.co/ptJ9sDDjs9](2053535660376535453/)
+  - Source: https://x.com/WhiteHouse/status/2053535660376535453
+  - They will be laughing no longer! https://t.co/ptJ9sDDjs9
+- [16:26 UTC - "At the very heart of America’s strength lies the boundless love and quiet power of mother...](2053512118368911749/)
+  - Source: https://x.com/WhiteHouse/status/2053512118368911749
+  - "At the very heart of America’s strength lies the boundless love and quiet power of mothers." - First Lady Melania Trump https://t.co/jd1tvBWHFL
+- [15:03 UTC - Repost of @DHSgov: This Mother’s Day, we especially honor Angel Moms. Words cannot describ...](2053491011414864052/)
+  - Source: https://x.com/WhiteHouse/status/2053491011414864052
+  - Repost of @DHSgov: This Mother’s Day, we especially honor Angel Moms. Words cannot describe the pain of losing a child. Knowing their child’s deaths were entirely preventable only...
+- [14:27 UTC - 🤍 Happy Mother’s Day from the Trump Administration! To every mom shaping America’s future ...](2053482165673869779/)
+  - Source: https://x.com/WhiteHouse/status/2053482165673869779
+  - 🤍 Happy Mother’s Day from the Trump Administration! To every mom shaping America’s future — thank you. Today we’re sharing heartfelt stories from @SLOTUS, Cabinet Secretaries &amp;...
+- [14:18 UTC - Repost of @SLOTUS: Happy Mother's Day to all! I enjoyed celebrating with my favorite story...](2053479741517078904/)
+  - Source: https://x.com/WhiteHouse/status/2053479741517078904
+  - Repost of @SLOTUS: Happy Mother's Day to all! I enjoyed celebrating with my favorite storyteller: my mom, Lakshmi Chilukuri. I hope you enjoy her reading "How the Camel Got His Hum...
+- [14:17 UTC - Repost of @FirstLadyOffice: Happy Mother’s Day! “At the very heart of America’s strength l...](2053479659338113207/)
+  - Source: https://x.com/WhiteHouse/status/2053479659338113207
+  - Repost of @FirstLadyOffice: Happy Mother’s Day! “At the very heart of America’s strength lies the boundless love and quiet power of mothers.“ First Lady Melania Trump May 6, 2026 h...
+- [13:24 UTC - Today, we celebrate the mothers whose unwavering love, sacrifice, &amp; strength help mold...](2053466209568362908/)
+  - Source: https://x.com/WhiteHouse/status/2053466209568362908
+  - Today, we celebrate the mothers whose unwavering love, sacrifice, &amp; strength help mold the heart &amp; soul of our nation. To the millions of moms across America—&amp; to First...
+- [13:18 UTC - Repost of @SecScottBessent: In advance of @POTUS' historic summit with President Xi in Bei...](2053464684339032174/)
+  - Source: https://x.com/WhiteHouse/status/2053464684339032174
+  - Repost of @SecScottBessent: In advance of @POTUS' historic summit with President Xi in Beijing, I will depart on Monday for a quick series of meetings in both Japan and South Korea...
+- [13:02 UTC - Repost of @SecVetAffairs: This Mother’s Day we celebrate all of the mothers who have worn ...](2053460593911222627/)
+  - Source: https://x.com/WhiteHouse/status/2053460593911222627
+  - Repost of @SecVetAffairs: This Mother’s Day we celebrate all of the mothers who have worn the uniform and those who raised the men and women who defend our country. You carry the w...
+- [13:02 UTC - Repost of @SecRollins: Today we celebrate the women who hold families together with love, ...](2053460563519328376/)
+  - Source: https://x.com/WhiteHouse/status/2053460563519328376
+  - Repost of @SecRollins: Today we celebrate the women who hold families together with love, lead with quiet strength, and pour into others every single day. Happy Mother’s Day to all...
+- [01:41 UTC - Repost of @SecRubio: Met with Qatari Prime Minister and Foreign Minister @MBA_AlThani_ to ...](2053289247017185701/)
+  - Source: https://x.com/WhiteHouse/status/2053289247017185701
+  - Repost of @SecRubio: Met with Qatari Prime Minister and Foreign Minister @MBA_AlThani_ to discuss U.S. support for Qatar’s defense. Our partnership is important to deterring threat...
+- [01:41 UTC - Repost of @epaleezeldin: The Trump EPA couldn’t be more excited to be doing our part to MA...](2053289221117399348/)
+  - Source: https://x.com/WhiteHouse/status/2053289221117399348
+  - Repost of @epaleezeldin: The Trump EPA couldn’t be more excited to be doing our part to MASSIVELY unleash U.S. domestic energy production. https://t.co/AHw2voOI4e
+- [01:41 UTC - Repost of @DHSgov: God bless the brave men and women of law enforcement and the Secret Ser...](2053289204654694615/)
+  - Source: https://x.com/WhiteHouse/status/2053289204654694615
+  - Repost of @DHSgov: God bless the brave men and women of law enforcement and the Secret Service. 🇺🇸 https://t.co/C31fzOgCnd

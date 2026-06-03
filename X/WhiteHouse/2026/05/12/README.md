@@ -1,0 +1,82 @@
+# X / WhiteHouse / 2026-05-12
+
+- Posts: 26
+
+- [23:09 UTC - Full circle moment https://t.co/6hkxyGNo8J](2054338104316547154/)
+  - Source: https://x.com/WhiteHouse/status/2054338104316547154
+  - Full circle moment https://t.co/6hkxyGNo8J
+- [22:56 UTC - https://t.co/IBzjpZgXUc](2054335002796576940/)
+  - Source: https://x.com/WhiteHouse/status/2054335002796576940
+  - https://t.co/IBzjpZgXUc
+- [21:01 UTC - Back on the world stage. ✈️🇺🇸 President Donald J. Trump heads to China, marking the first ...](2054305958893920368/)
+  - Source: https://x.com/WhiteHouse/status/2054305958893920368
+  - Back on the world stage. ✈️🇺🇸 President Donald J. Trump heads to China, marking the first state visit by a U.S. president since his 2017 trip. https://t.co/0OlHPMifQB
+- [20:56 UTC - Repost of @JDVance: Another great win for our fraud task force. We will not tolerate forei...](2054304797742751907/)
+  - Source: https://x.com/WhiteHouse/status/2054304797742751907
+  - Repost of @JDVance: Another great win for our fraud task force. We will not tolerate foreign nationals abusing our visa system at the expense of the American people.
+- [20:56 UTC - Repost of @SecKennedy: Marty, you took on entrenched interests, challenged the status quo,...](2054304673301979609/)
+  - Source: https://x.com/WhiteHouse/status/2054304673301979609
+  - Repost of @SecKennedy: Marty, you took on entrenched interests, challenged the status quo, and never lost sight of the American people we serve. You pushed forward critical reforms...
+- [20:47 UTC - Repost of @PeteHegseth: https://t.co/A1Ek2V0elP](2054302528351645979/)
+  - Source: https://x.com/WhiteHouse/status/2054302528351645979
+  - Repost of @PeteHegseth: https://t.co/A1Ek2V0elP
+- [20:05 UTC - Repost of @FLOTUS: https://t.co/2d6Dp2YF8B https://t.co/aZC5yGmtKP](2054291802266415530/)
+  - Source: https://x.com/WhiteHouse/status/2054291802266415530
+  - Repost of @FLOTUS: https://t.co/2d6Dp2YF8B https://t.co/aZC5yGmtKP
+- [19:44 UTC - A beacon of freedom, hope, &amp; the American spirit. 🇺🇸 https://t.co/zdQEEXIqvf](2054286643054436779/)
+  - Source: https://x.com/WhiteHouse/status/2054286643054436779
+  - A beacon of freedom, hope, &amp; the American spirit. 🇺🇸 https://t.co/zdQEEXIqvf
+- [18:48 UTC - President Donald J. Trump departs Washington D.C. for a historic visit to China! https://t...](2054272581520277808/)
+  - Source: https://x.com/WhiteHouse/status/2054272581520277808
+  - President Donald J. Trump departs Washington D.C. for a historic visit to China! https://t.co/8Qok0Xcqcd
+- [17:59 UTC - Repost of @FBIDirectorKash: Speaking with Appropriators on the Hill today to get FBI fundi...](2054260278561247278/)
+  - Source: https://x.com/WhiteHouse/status/2054260278561247278
+  - Repost of @FBIDirectorKash: Speaking with Appropriators on the Hill today to get FBI funding for these tremendous programs that have led to historic reductions in crime - and suppo...
+- [17:18 UTC - The American dream of homeownership is under attack. President Trump is fighting to ensure...](2054249745221079374/)
+  - Source: https://x.com/WhiteHouse/status/2054249745221079374
+  - The American dream of homeownership is under attack. President Trump is fighting to ensure homes are for PEOPLE, not corporations. https://t.co/2h0oKoH2Hd
+- [16:37 UTC - Strong families, a stronger America. 🇺🇸 President Trump is lowering costs, expanding acces...](2054239660818194596/)
+  - Source: https://x.com/WhiteHouse/status/2054239660818194596
+  - Strong families, a stronger America. 🇺🇸 President Trump is lowering costs, expanding access to fertility care, and putting moms and families FIRST. https://t.co/JM1uAsVgLk
+- [16:16 UTC - Repost of @FBIDirectorKash: President Trump has assembled the best FBI team on earth to cr...](2054234323428012341/)
+  - Source: https://x.com/WhiteHouse/status/2054234323428012341
+  - Repost of @FBIDirectorKash: President Trump has assembled the best FBI team on earth to crush violent crime and defend the homeland - and with the work of brave men and women in th...
+- [15:46 UTC - Repost of @SecScottBessent: The Trump Administration is focused on helping families build ...](2054226826499637493/)
+  - Source: https://x.com/WhiteHouse/status/2054226826499637493
+  - Repost of @SecScottBessent: The Trump Administration is focused on helping families build long-term financial security for millions of children by establishing tax-advantaged inves...
+- [15:18 UTC - Repost of @DeptofWar: LIVE: @SecWar, Chairman Dan Caine testify on the War Department's FY...](2054219689555902617/)
+  - Source: https://x.com/WhiteHouse/status/2054219689555902617
+  - Repost of @DeptofWar: LIVE: @SecWar, Chairman Dan Caine testify on the War Department's FY27 budget request before the Senate Appropriations Committee in Washington. https://t.co/1...
+- [15:14 UTC - 👀 https://t.co/IlfRBfrSyR](2054218563989230059/)
+  - Source: https://x.com/WhiteHouse/status/2054218563989230059
+  - 👀 https://t.co/IlfRBfrSyR
+- [13:43 UTC - TODAY. https://t.co/riU8rCsFR7](2054195752973332627/)
+  - Source: https://x.com/WhiteHouse/status/2054195752973332627
+  - TODAY. https://t.co/riU8rCsFR7
+- [13:12 UTC - Bing, Bing, GONE!!! https://t.co/pv1LfSriAX](2054187989887037809/)
+  - Source: https://x.com/WhiteHouse/status/2054187989887037809
+  - Bing, Bing, GONE!!! https://t.co/pv1LfSriAX
+- [11:58 UTC - Repost of @SecScottBessent: During talks with Minister @ryosei_akazawa, I was glad to shar...](2054169278719336630/)
+  - Source: https://x.com/WhiteHouse/status/2054169278719336630
+  - Repost of @SecScottBessent: During talks with Minister @ryosei_akazawa, I was glad to share that thanks to President Trump’s policy of American Energy Dominance, the United States...
+- [11:58 UTC - Repost of @Sonderling47: It was an honor to be in the Oval Office with @POTUS as we rolled...](2054169246272249991/)
+  - Source: https://x.com/WhiteHouse/status/2054169246272249991
+  - Repost of @Sonderling47: It was an honor to be in the Oval Office with @POTUS as we rolled out a major new proposal to expand access to fertility benefits for American Workers and...
+- [11:57 UTC - Repost of @Scavino47: Our AWESOME Vice President @JDVance en route to the Oval Office earl...](2054169191515615349/)
+  - Source: https://x.com/WhiteHouse/status/2054169191515615349
+  - Repost of @Scavino47: Our AWESOME Vice President @JDVance en route to the Oval Office earlier today… 🐐🇺🇸🦅🚀 https://t.co/d0vQi6BR5z
+- [01:47 UTC - CHAMPION ENERGY. 🏆 @IndianaFootball Hoosiers in the house. 🔥 https://t.co/o7QfUp6pIC](2054015656807240122/)
+  - Source: https://x.com/WhiteHouse/status/2054015656807240122
+  - CHAMPION ENERGY. 🏆 @IndianaFootball Hoosiers in the house. 🔥 https://t.co/o7QfUp6pIC
+- [01:00 UTC - So much winning at the White House. 🇺🇸🏈 The Undefeated National Champion Indiana Hoosiers ...](2054003628814340275/)
+  - Source: https://x.com/WhiteHouse/status/2054003628814340275
+  - So much winning at the White House. 🇺🇸🏈 The Undefeated National Champion Indiana Hoosiers Football join President Trump for a ceremony on the South Lawn, highlighting their one of...
+- [00:20 UTC - "All law enforcement, we want to thank you. And thank you from the bottom of my heart." Th...](2053993695658041780/)
+  - Source: https://x.com/WhiteHouse/status/2053993695658041780
+  - "All law enforcement, we want to thank you. And thank you from the bottom of my heart." This police week, President Trump honors America's incredible police officers at the White H...
+- [00:15 UTC - Repost of @JDVance: The American Dream doesn’t belong to the highest bidder on Wall Street...](2053992512549728526/)
+  - Source: https://x.com/WhiteHouse/status/2053992512549728526
+  - Repost of @JDVance: The American Dream doesn’t belong to the highest bidder on Wall Street. It belongs to the American people, who work hard, save up, and play by the rules. I appl...
+- [00:06 UTC - Repost of @RapidResponse47: .@POTUS hosts law enforcement leaders at the White House for a...](2053990216654856573/)
+  - Source: https://x.com/WhiteHouse/status/2053990216654856573
+  - Repost of @RapidResponse47: .@POTUS hosts law enforcement leaders at the White House for a Police Week dinner in the Rose Garden: "Thank you, from the bottom of my heart. I respect...

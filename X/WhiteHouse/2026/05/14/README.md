@@ -1,0 +1,103 @@
+# X / WhiteHouse / 2026-05-14
+
+- Posts: 33
+
+- [22:15 UTC - "When President Xi very elegantly referred to the United States as perhaps being a declini...](2055049458530877831/)
+  - Source: https://x.com/WhiteHouse/status/2055049458530877831
+  - "When President Xi very elegantly referred to the United States as perhaps being a declining nation, he was referring to the tremendous damage we suffered during the four years of...
+- [20:42 UTC - 📍 Temple of Heaven, Beijing | May 14, 2026 https://t.co/CH2DJ9SWYV](2055026098849628216/)
+  - Source: https://x.com/WhiteHouse/status/2055026098849628216
+  - 📍 Temple of Heaven, Beijing | May 14, 2026 https://t.co/CH2DJ9SWYV
+- [20:39 UTC - Repost of @JDVance: Fraudsters have been fleecing Americans for too long. That ends now. h...](2055025285519540527/)
+  - Source: https://x.com/WhiteHouse/status/2055025285519540527
+  - Repost of @JDVance: Fraudsters have been fleecing Americans for too long. That ends now. https://t.co/GssKbqrEKs
+- [20:28 UTC - All we needed was a new President. Record low murder rate, sharp decline in violent crime,...](2055022490066317353/)
+  - Source: https://x.com/WhiteHouse/status/2055022490066317353
+  - All we needed was a new President. Record low murder rate, sharp decline in violent crime, safer American streets. President Trump will always put America's law enforcement first,...
+- [20:25 UTC - Repost of @WHFraudTF: 👁️ https://t.co/3Bh4uobyFL https://t.co/HHyVYqS9KG](2055021698282397843/)
+  - Source: https://x.com/WhiteHouse/status/2055021698282397843
+  - Repost of @WHFraudTF: 👁️ https://t.co/3Bh4uobyFL https://t.co/HHyVYqS9KG
+- [19:16 UTC - You can't ignore the signs. 📲 https://t.co/VC8lwiyO0G 📲 https://t.co/zFjVcveGOV https://t....](2055004320848912893/)
+  - Source: https://x.com/WhiteHouse/status/2055004320848912893
+  - You can't ignore the signs. 📲 https://t.co/VC8lwiyO0G 📲 https://t.co/zFjVcveGOV https://t.co/bIeflSIXO7
+- [18:55 UTC - Repost of @VP: VP Vance speaks to a fired up crowd in Maine: "For the first time in a very...](2054999093538181147/)
+  - Source: https://x.com/WhiteHouse/status/2054999093538181147
+  - Repost of @VP: VP Vance speaks to a fired up crowd in Maine: "For the first time in a very long time, you've got an administration in Washington, DC that is fighting for you, fight...
+- [18:05 UTC - American strength back on the world stage. 🇺🇸🇨🇳 https://t.co/Q7NdfNb8Uc](2054986537775911168/)
+  - Source: https://x.com/WhiteHouse/status/2054986537775911168
+  - American strength back on the world stage. 🇺🇸🇨🇳 https://t.co/Q7NdfNb8Uc
+- [17:07 UTC - "For the first time in a very long time, you've got an administration in Washington D.C. t...](2054971985013194825/)
+  - Source: https://x.com/WhiteHouse/status/2054971985013194825
+  - "For the first time in a very long time, you've got an administration in Washington D.C. that is fighting for you, fighting to protect your tax dollars, and fighting to put the fra...
+- [16:32 UTC - Vice President JD Vance Delivers Remarks in Bangor, Maine https://t.co/FoYKtKtIJC](2054963106753749183/)
+  - Source: https://x.com/WhiteHouse/status/2054963106753749183
+  - Vice President JD Vance Delivers Remarks in Bangor, Maine https://t.co/FoYKtKtIJC
+- [16:25 UTC - Repost of @ENERGY: President Trump ended the Biden administration’s LNG export permit ban ...](2054961406655484008/)
+  - Source: https://x.com/WhiteHouse/status/2054961406655484008
+  - Repost of @ENERGY: President Trump ended the Biden administration’s LNG export permit ban on day one. Today, America is the largest producer and exporter of natural gas in the worl...
+- [15:59 UTC - Repost of @SecWar: The $1.5 trillion investment is a GENERATIONAL DOWN PAYMENT on America’...](2054954755722457109/)
+  - Source: https://x.com/WhiteHouse/status/2054954755722457109
+  - Repost of @SecWar: The $1.5 trillion investment is a GENERATIONAL DOWN PAYMENT on America’s national defense. This investment guarantees the United States maintains overwhelming st...
+- [15:58 UTC - Repost of @RapidResponse47: .@POTUS: President Xi would like to see a deal made. He said, ...](2054954580249624687/)
+  - Source: https://x.com/WhiteHouse/status/2054954580249624687
+  - Repost of @RapidResponse47: .@POTUS: President Xi would like to see a deal made. He said, 'If I can be of any help at all, I would like to be of help.' Anybody that buys that much...
+- [15:58 UTC - Repost of @SecretaryBurgum: Excited to unveil the design for the East Potomac Golf Links r...](2054954549639536811/)
+  - Source: https://x.com/WhiteHouse/status/2054954549639536811
+  - Repost of @SecretaryBurgum: Excited to unveil the design for the East Potomac Golf Links renovation from Fazio Design. Like iconic public courses of Bethpage Black & Torrey Pines,...
+- [14:30 UTC - Sorry that happened to you https://t.co/EA1tRVpjJ9](2054932320637931879/)
+  - Source: https://x.com/WhiteHouse/status/2054932320637931879
+  - Sorry that happened to you https://t.co/EA1tRVpjJ9
+- [13:20 UTC - A powerful arrival ceremony in Beijing. 🇺🇸🇨🇳 https://t.co/kGedqmSwum](2054914809934557638/)
+  - Source: https://x.com/WhiteHouse/status/2054914809934557638
+  - A powerful arrival ceremony in Beijing. 🇺🇸🇨🇳 https://t.co/kGedqmSwum
+- [12:40 UTC - Repost of @WhiteHouse: From the Bilateral Meeting in Beijing: President Trump had a good m...](2054904672851280122/)
+  - Source: https://x.com/WhiteHouse/status/2054904672851280122
+  - Repost of @WhiteHouse: From the Bilateral Meeting in Beijing: President Trump had a good meeting with President Xi of China. https://t.co/WaH8hR1ZV3
+- [11:56 UTC - History in motion. 🇺🇸🇨🇳 https://t.co/33CTXbLa0s](2054893552249843720/)
+  - Source: https://x.com/WhiteHouse/status/2054893552249843720
+  - History in motion. 🇺🇸🇨🇳 https://t.co/33CTXbLa0s
+- [11:13 UTC - At the State Banquet, President Donald J. Trump invites President Xi to the White House th...](2054882765993017774/)
+  - Source: https://x.com/WhiteHouse/status/2054882765993017774
+  - At the State Banquet, President Donald J. Trump invites President Xi to the White House this September. https://t.co/VQ9GAoUELj
+- [10:42 UTC - Repost of @RapidResponse47: .@POTUS delivers remarks at the state banquet dinner at the Gr...](2054874940189372563/)
+  - Source: https://x.com/WhiteHouse/status/2054874940189372563
+  - Repost of @RapidResponse47: .@POTUS delivers remarks at the state banquet dinner at the Great Hall of the People: "It was a fantastic day, and in particular, I want to thank Presid...
+- [10:39 UTC - The two sides discussed ways to enhance economic cooperation between countries, including ...](2054874235139469450/)
+  - Source: https://x.com/WhiteHouse/status/2054874235139469450
+  - The two sides discussed ways to enhance economic cooperation between countries, including expanding market access for American businesses into China and increasing Chinese investme...
+- [10:02 UTC - President Donald J. Trump meets with President Xi Jinping in China. 🇺🇸🇨🇳 https://t.co/LeQO...](2054865013370716412/)
+  - Source: https://x.com/WhiteHouse/status/2054865013370716412
+  - President Donald J. Trump meets with President Xi Jinping in China. 🇺🇸🇨🇳 https://t.co/LeQOPzBKd2
+- [09:52 UTC - Both countries agreed that Iran can never have a nuclear weapon. https://t.co/7hYMIBoTZY](2054862405306310757/)
+  - Source: https://x.com/WhiteHouse/status/2054862405306310757
+  - Both countries agreed that Iran can never have a nuclear weapon. https://t.co/7hYMIBoTZY
+- [09:41 UTC - From the Bilateral Meeting in Beijing: President Trump had a good meeting with President X...](2054859596938785204/)
+  - Source: https://x.com/WhiteHouse/status/2054859596938785204
+  - From the Bilateral Meeting in Beijing: President Trump had a good meeting with President Xi of China. https://t.co/WaH8hR1ZV3
+- [05:25 UTC - Repost of @RapidResponse47: .@POTUS in China: "It's great — a great place. Incredible. Chi...](2054795147339067893/)
+  - Source: https://x.com/WhiteHouse/status/2054795147339067893
+  - Repost of @RapidResponse47: .@POTUS in China: "It's great — a great place. Incredible. China is beautiful." https://t.co/Xiu7KSCvpL
+- [02:50 UTC - "It's an honor to be with you, it's an honor to be your friend, and the relationship betwe...](2054756221647765973/)
+  - Source: https://x.com/WhiteHouse/status/2054756221647765973
+  - "It's an honor to be with you, it's an honor to be your friend, and the relationship between China and the USA is going to be better than ever before." - President Donald J. Trump...
+- [02:40 UTC - Repost of @RapidResponse47: .@POTUS meets with President Xi at the Great Hall of the Peopl...](2054753686677504048/)
+  - Source: https://x.com/WhiteHouse/status/2054753686677504048
+  - Repost of @RapidResponse47: .@POTUS meets with President Xi at the Great Hall of the People in Beijing: "It's an honor to be with you, it's an honor to be your friend, and the rela...
+- [02:26 UTC - President Trump Participates in a Bilateral Meeting with the President of China https://t....](2054750125973540911/)
+  - Source: https://x.com/WhiteHouse/status/2054750125973540911
+  - President Trump Participates in a Bilateral Meeting with the President of China https://t.co/NfKhkpV9Ma
+- [02:23 UTC - The Star-Spangled Banner plays as President Donald J. Trump is greeted by President Xi at ...](2054749420227305557/)
+  - Source: https://x.com/WhiteHouse/status/2054749420227305557
+  - The Star-Spangled Banner plays as President Donald J. Trump is greeted by President Xi at the Great Hall of the People in Beijing, China. 🇺🇸🇨🇳 https://t.co/ANPzR3WQmi
+- [02:01 UTC - President Trump Participates in a Greeting with the President of the People's Republic of ...](2054743753135378548/)
+  - Source: https://x.com/WhiteHouse/status/2054743753135378548
+  - President Trump Participates in a Greeting with the President of the People's Republic of China https://t.co/Y0uqAhepzT
+- [01:33 UTC - Repost of @SecMullinDHS: Thank you, @ICEgov. ⬇️ “No matter what the media wants to say, I ...](2054736718243209717/)
+  - Source: https://x.com/WhiteHouse/status/2054736718243209717
+  - Repost of @SecMullinDHS: Thank you, @ICEgov. ⬇️ “No matter what the media wants to say, I know you’re doing your job every day, and I want you to know I am proud to be part of it.”...
+- [01:32 UTC - Repost of @SecScottBessent: In advance of @POTUS’ historic Beijing summit with President X...](2054736677650784428/)
+  - Source: https://x.com/WhiteHouse/status/2054736677650784428
+  - Repost of @SecScottBessent: In advance of @POTUS’ historic Beijing summit with President Xi, Vice Premier He Lifeng of China and I met in South Korea to discuss the economic and tr...
+- [00:05 UTC - The Trump administration has made it loud and clear to all states: if you commit fraud, yo...](2054714752018858170/)
+  - Source: https://x.com/WhiteHouse/status/2054714752018858170
+  - The Trump administration has made it loud and clear to all states: if you commit fraud, you will lose medicaid funding. https://t.co/Y71Ehygo68

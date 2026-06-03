@@ -1,0 +1,79 @@
+# X / WhiteHouse / 2026-05-13
+
+- Posts: 25
+
+- [23:08 UTC - Repost of @DHSgov: 🚨DALLAS: @ICEgov is asking local authorities to NOT RELEASE Luis Benite...](2054700398674321709/)
+  - Source: https://x.com/WhiteHouse/status/2054700398674321709
+  - Repost of @DHSgov: 🚨DALLAS: @ICEgov is asking local authorities to NOT RELEASE Luis Benitez-Gonzalez, a criminal illegal alien from Mexico, who has been accused of committing TWO M...
+- [23:08 UTC - Repost of @SecretaryWright: Energy is the key to expanding individual liberty. Thank you @...](2054700369846939833/)
+  - Source: https://x.com/WhiteHouse/status/2054700369846939833
+  - Repost of @SecretaryWright: Energy is the key to expanding individual liberty. Thank you @CATOInstitute for the opportunity to share my lifelong passion—bettering human lives throu...
+- [23:08 UTC - Repost of @TheJusticeDept: Yesterday, Acting Attorney General @DAGToddBlanche attended the...](2054700340327403619/)
+  - Source: https://x.com/WhiteHouse/status/2054700340327403619
+  - Repost of @TheJusticeDept: Yesterday, Acting Attorney General @DAGToddBlanche attended the @USMarshalsHQ Police Week Memorial Service where he delivered the keynote address as the...
+- [23:08 UTC - Repost of @CDCgov: This National Hospital Week, we recognize the vital role hospitals, hea...](2054700316243685628/)
+  - Source: https://x.com/WhiteHouse/status/2054700316243685628
+  - Repost of @CDCgov: This National Hospital Week, we recognize the vital role hospitals, health systems, and healthcare workers play in keeping communities healthy. For more than 5,0...
+- [23:07 UTC - Repost of @FirstLadyOffice: YOUTH VOICES GUIDE FEDERAL ACTION Yesterday marked 180 days si...](2054700179308110091/)
+  - Source: https://x.com/WhiteHouse/status/2054700179308110091
+  - Repost of @FirstLadyOffice: YOUTH VOICES GUIDE FEDERAL ACTION Yesterday marked 180 days since @FLOTUS’s Fostering the Future Executive Order, and we are continuing to listen to the...
+- [23:07 UTC - Repost of @VP: "The generosity of the American people is one of the most amazing things ab...](2054700160832217194/)
+  - Source: https://x.com/WhiteHouse/status/2054700160832217194
+  - Repost of @VP: "The generosity of the American people is one of the most amazing things about our country...I'm proud to lead the effort in our government to finally take fraud ser...
+- [20:24 UTC - ✅ CONFIRMED Kevin Warsh has been confirmed as the Chairman of the Board of Governors of th...](2054659156766863459/)
+  - Source: https://x.com/WhiteHouse/status/2054659156766863459
+  - ✅ CONFIRMED Kevin Warsh has been confirmed as the Chairman of the Board of Governors of the Federal Reserve System! https://t.co/7oXyTd0hgD
+- [19:39 UTC - The beginning of history. 🇺🇸🇨🇳 📸 President Trump arrives in Beijing, China to kick off a l...](2054647655469359204/)
+  - Source: https://x.com/WhiteHouse/status/2054647655469359204
+  - The beginning of history. 🇺🇸🇨🇳 📸 President Trump arrives in Beijing, China to kick off a landmark state visit. https://t.co/1duQ3sqNaM
+- [19:35 UTC - Repost of @SecScottBessent: Today @SenateGOP, along with the Democrat who put country befo...](2054646636786098508/)
+  - Source: https://x.com/WhiteHouse/status/2054646636786098508
+  - Repost of @SecScottBessent: Today @SenateGOP, along with the Democrat who put country before political ideology, confirmed @POTUS's nominee Kevin Warsh as the next Chairman of the...
+- [18:35 UTC - 🚨 NOW: VP Vance announces the @WHFraudTF is sending, across 50 Medicaid programs, letters ...](2054631535832088722/)
+  - Source: https://x.com/WhiteHouse/status/2054631535832088722
+  - 🚨 NOW: VP Vance announces the @WHFraudTF is sending, across 50 Medicaid programs, letters that will require them to show they are effectively &amp; aggressively prosecuting Medicai...
+- [18:07 UTC - Vice President JD Vance’s Press Conference on Anti-Fraud Initiatives https://t.co/rWhzUlmM...](2054624608691605940/)
+  - Source: https://x.com/WhiteHouse/status/2054624608691605940
+  - Vice President JD Vance’s Press Conference on Anti-Fraud Initiatives https://t.co/rWhzUlmMXz
+- [17:46 UTC - Repost of @DHSgov: WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https...](2054619199335473483/)
+  - Source: https://x.com/WhiteHouse/status/2054619199335473483
+  - Repost of @DHSgov: WATCH: Secretary Mullin Gives Remarks at ICE HQ Police Week Event https://t.co/ZDIpQXknA7
+- [17:45 UTC - 📰 "Thanks to President Trump’s commitment and vision, we are building a future where our f...](2054618971639271450/)
+  - Source: https://x.com/WhiteHouse/status/2054618971639271450
+  - 📰 "Thanks to President Trump’s commitment and vision, we are building a future where our farmers are not beholden to foreign, even hostile, nations to feed, fuel, and clothe our na...
+- [16:58 UTC - The arrival everyone has waited for. 🇺🇸🇨🇳 https://t.co/B1DTgI9HKR](2054607212513730674/)
+  - Source: https://x.com/WhiteHouse/status/2054607212513730674
+  - The arrival everyone has waited for. 🇺🇸🇨🇳 https://t.co/B1DTgI9HKR
+- [16:16 UTC - Repost of @VP: The VP-led Task Force to Eliminate Fraud is officially on X!](2054596673297379758/)
+  - Source: https://x.com/WhiteHouse/status/2054596673297379758
+  - Repost of @VP: The VP-led Task Force to Eliminate Fraud is officially on X!
+- [16:08 UTC - BACK THE BLUE. This National Police Week, we honor the heroes who run toward danger, the f...](2054594724598530073/)
+  - Source: https://x.com/WhiteHouse/status/2054594724598530073
+  - BACK THE BLUE. This National Police Week, we honor the heroes who run toward danger, the families who stand behind them, &amp; the fallen officers who made the ultimate sacrifice i...
+- [15:52 UTC - Repost of @DoWCTO: The @DeptofWar has reached new framework agreements with a slate of dis...](2054590508677103822/)
+  - Source: https://x.com/WhiteHouse/status/2054590508677103822
+  - Repost of @DoWCTO: The @DeptofWar has reached new framework agreements with a slate of disruptive new entrants to aggressively expand the United States military’s lethal cruise mis...
+- [15:07 UTC - Repost of @WHFraudTF: Today is the day.](2054579397240201386/)
+  - Source: https://x.com/WhiteHouse/status/2054579397240201386
+  - Repost of @WHFraudTF: Today is the day.
+- [15:03 UTC - HUGE: @VP Vance's Anti-Fraud Task Force just withheld $1.4 BILLION in federal funding afte...](2054578342402081249/)
+  - Source: https://x.com/WhiteHouse/status/2054578342402081249
+  - HUGE: @VP Vance's Anti-Fraud Task Force just withheld $1.4 BILLION in federal funding after a sweeping crackdown on fraud operations in California, Minnesota, &amp; other states. T...
+- [14:09 UTC - Repost of @DrOzCMS: Today we’re shutting the door on fraud—preventing new bad actors from ...](2054564724587561466/)
+  - Source: https://x.com/WhiteHouse/status/2054564724587561466
+  - Repost of @DrOzCMS: Today we’re shutting the door on fraud—preventing new bad actors from entering Medicare while we aggressively identify, investigate, and remove those already ex...
+- [14:08 UTC - Repost of @VP: The Trump Administration’s War on Fraud continues to produce results for Am...](2054564565443121607/)
+  - Source: https://x.com/WhiteHouse/status/2054564565443121607
+  - Repost of @VP: The Trump Administration’s War on Fraud continues to produce results for American taxpayers 🇺🇸 https://t.co/ydcv9r9iSD
+- [12:46 UTC - Wheels down in Beijing! President Donald J. Trump lands for a landmark summit with China, ...](2054543789738389940/)
+  - Source: https://x.com/WhiteHouse/status/2054543789738389940
+  - Wheels down in Beijing! President Donald J. Trump lands for a landmark summit with China, greeted by Vice President Han Zheng during a welcome ceremony. https://t.co/4q2mATZrn4
+- [11:47 UTC - Repost of @ABC: Immigrants are giving up their claims in immigration court and voluntarily...](2054529042338984075/)
+  - Source: https://x.com/WhiteHouse/status/2054529042338984075
+  - Repost of @ABC: Immigrants are giving up their claims in immigration court and voluntarily leaving the U.S. in exponentially higher numbers under the Trump administration, accordin...
+- [00:45 UTC - Repost of @JDVance: Under President Trump, we are unleashing the most aggressive federal a...](2054362370722455552/)
+  - Source: https://x.com/WhiteHouse/status/2054362370722455552
+  - Repost of @JDVance: Under President Trump, we are unleashing the most aggressive federal anti-fraud efforts in American history. We won't rest until we root out every bit of fraud...
+- [00:31 UTC - Under President Trump, replacement migration will never be the standard. The United States...](2054358805199131027/)
+  - Source: https://x.com/WhiteHouse/status/2054358805199131027
+  - Under President Trump, replacement migration will never be the standard. The United States objects to the Global Compact on Migration and UN efforts to facilitate replacement migra...
