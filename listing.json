@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-03T01:16:10.808410+00:00",
+  "generatedAt": "2026-06-03T01:16:50.685829+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -22520,6 +22520,28 @@
     {
       "category": "X",
       "date": "2026-05-20",
+      "id": "socials:412b41548ace15f5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:16:24.508394+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2057117537574216000"
+      },
+      "metadataPath": "X/DHSgov/2026/05/20/2057117537574216000/README.md",
+      "path": "X/DHSgov/2026/05/20/2057117537574216000/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2057117537574216000",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United State..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-20",
       "id": "socials:04e769916cb60996",
       "kind": "social_post",
       "metadata": {
@@ -22688,6 +22710,28 @@
     {
       "category": "X",
       "date": "2026-05-20",
+      "id": "socials:81b79f96219cb630",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:16:24.511897+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2057114685095219625"
+      },
+      "metadataPath": "X/DHSgov/2026/05/20/2057114685095219625/README.md",
+      "path": "X/DHSgov/2026/05/20/2057114685095219625/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2057114685095219625",
+      "summary": "Repost of @USCGAcademy:",
+      "title": "Repost of @USCGAcademy: \ud83c\udfa5\u2693\ufe0fThe wait is over \u2014 today\u2019s the day! Join us live as we celebrat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-20",
       "id": "socials:af3ecfdc3b59f26a",
       "kind": "social_post",
       "metadata": {
@@ -22835,6 +22879,40 @@
       "sourceUrl": "https://x.com/DHSgov/status/2057127753065923006",
       "summary": "Repost of @RapidResponse47:",
       "title": "Repost of @RapidResponse47: .@SecMullinDHS introduces @POTUS at the @USCGAcademy: \"You're ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-20",
+      "id": "socials:cf7e951c5d713887",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:13:50.483103+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2057124383311740929.mp4",
+            "remotePath": "archive/x/dhsgov/uyaQ3E8saUxtYE3r.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2057124383311740929/vid/avc1/1080x1920/uyaQ3E8saUxtYE3r.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/uyaQ3E8saUxtYE3r.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2057124383311740929.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/uyaQ3E8saUxtYE3r.mp4"
+        ],
+        "platform": "X",
+        "postId": "2057125065397784877"
+      },
+      "metadataPath": "X/DHSgov/2026/05/20/2057125065397784877/README.md",
+      "path": "X/DHSgov/2026/05/20/2057125065397784877/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2057125065397784877",
+      "summary": "Repost of @MargoMartin47:",
+      "title": "Repost of @MargoMartin47: .@SecMullinDHS arrives to the United States Coast Guard Academy ..."
     },
     {
       "category": "X",
@@ -23010,6 +23088,28 @@
     {
       "category": "X",
       "date": "2026-05-20",
+      "id": "socials:5dfb20a19e42bb23",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:16:24.512139+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2057106101343035594"
+      },
+      "metadataPath": "X/DHSgov/2026/05/20/2057106101343035594/README.md",
+      "path": "X/DHSgov/2026/05/20/2057106101343035594/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2057106101343035594",
+      "summary": "MASSIVE SMUGGLING ATTEMPT STOPPED.",
+      "title": "MASSIVE SMUGGLING ATTEMPT STOPPED. On May 9, @CBPAMO, Border Patrol, and @HSI_HQ intercept..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-20",
       "id": "socials:f993e1438d7fd696",
       "kind": "social_post",
       "metadata": {
@@ -23062,6 +23162,40 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116609215136043283",
       "summary": "I hope the Public is watching as the Department of the Interior, Doug Burgum, and myself, are opening up many of the decades old, closed Fountains throughout the D.C. area. So far, over 20 have been revitalized, and fixed, looking better than the day they were built, many years a",
       "title": "I hope the Public is watching as the Department of the Interior, Doug Burgum, and myself, ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-20",
+      "id": "socials:f66124990e358343",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:16:24.512423+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2057101147387691008.jpg",
+            "remotePath": "archive/x/dhsgov/HIxKmDUXgAAcmtp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIxKmDUXgAAcmtp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIxKmDUXgAAcmtp.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2057101147387691008.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIxKmDUXgAAcmtp.jpg"
+        ],
+        "platform": "X",
+        "postId": "2057101149853958591"
+      },
+      "metadataPath": "X/DHSgov/2026/05/20/2057101149853958591/README.md",
+      "path": "X/DHSgov/2026/05/20/2057101149853958591/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2057101149853958591",
+      "summary": "FRESNO, CA: @ICEgov has arrested Aman Kumar, a criminal illegal alien from India who was RELEASED by California sanctuary politicians after causing a hit-and-run accident that injured a 4-year-old boy.",
+      "title": "FRESNO, CA: @ICEgov has arrested Aman Kumar, a criminal illegal alien from India who was R..."
     },
     {
       "category": "YouTube",

@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-20
 
-- Posts: 14
+- Posts: 19
 
 - [23:49 UTC - Repost of @SecMullinDHS: Today, I had the privilege of joining @POTUS Trump at the @USCGAc...](2057247403195908523/)
   - Source: https://x.com/DHSgov/status/2057247403195908523
@@ -44,3 +44,18 @@
 - [15:43 UTC - Repost of @MargoMartin47: .@SecMullinDHS arrives to the United States Coast Guard Academy ...](2057125065397784877/)
   - Source: https://x.com/DHSgov/status/2057125065397784877
   - Repost of @MargoMartin47: .@SecMullinDHS arrives to the United States Coast Guard Academy 🇺🇸 https://t.co/vEmKkVoXZy
+- [15:13 UTC - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United State...](2057117537574216000/)
+  - Source: https://x.com/DHSgov/status/2057117537574216000
+  - Repost of @WhiteHouse: President Trump Delivers a Commencement Address to the United States Coast Guard Academy https://t.co/Emu1DZISTw
+- [15:02 UTC - Repost of @USCGAcademy: 🎥⚓️The wait is over — today’s the day! Join us live as we celebrat...](2057114685095219625/)
+  - Source: https://x.com/DHSgov/status/2057114685095219625
+  - Repost of @USCGAcademy: 🎥⚓️The wait is over — today’s the day! Join us live as we celebrate this milestone moment at the U.S. Coast Guard Academy. Family, friends, alumni, and supp...
+- [14:28 UTC - MASSIVE SMUGGLING ATTEMPT STOPPED. On May 9, @CBPAMO, Border Patrol, and @HSI_HQ intercept...](2057106101343035594/)
+  - Source: https://x.com/DHSgov/status/2057106101343035594
+  - MASSIVE SMUGGLING ATTEMPT STOPPED. On May 9, @CBPAMO, Border Patrol, and @HSI_HQ intercepted a vessel off the coast of Puerto Rico transporting 64 migrants. The aliens, 58 Dominica...
+- [14:08 UTC - FRESNO, CA: @ICEgov has arrested Aman Kumar, a criminal illegal alien from India who was R...](2057101149853958591/)
+  - Source: https://x.com/DHSgov/status/2057101149853958591
+  - FRESNO, CA: @ICEgov has arrested Aman Kumar, a criminal illegal alien from India who was RELEASED by California sanctuary politicians after causing a hit-and-run accident that inju...
+- [13:33 UTC - “That murder was absolutely preventable.” — Fairfax County Police Chief Kevin Davis on the...](2057092404990169173/)
+  - Source: https://x.com/DHSgov/status/2057092404990169173
+  - “That murder was absolutely preventable.” — Fairfax County Police Chief Kevin Davis on the murder of Stephanie Minter by illegal alien Abdul Jalloh. Stephanie Minter would still be...
