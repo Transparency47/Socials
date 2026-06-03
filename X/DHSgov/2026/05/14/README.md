@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-14
 
-- Posts: 18
+- Posts: 19
 
 - [23:32 UTC - During police week, we honor the brave men and women of @ICEgov. They are mothers and fath...](2055068844402569506/)
   - Source: https://x.com/DHSgov/status/2055068844402569506
@@ -56,3 +56,6 @@
 - [12:26 UTC - Repost of @DHSgov: Report. Recon. Raid. https://t.co/Kcp2V3HPnA](2054901226236485886/)
   - Source: https://x.com/DHSgov/status/2054901226236485886
   - Repost of @DHSgov: Report. Recon. Raid. https://t.co/Kcp2V3HPnA
+- [01:02 UTC - Repost of @SecMullinDHS: Thank you, @ICEgov. ⬇️ “No matter what the media wants to say, I ...](2054729020919456013/)
+  - Source: https://x.com/DHSgov/status/2054729020919456013
+  - Repost of @SecMullinDHS: Thank you, @ICEgov. ⬇️ “No matter what the media wants to say, I know you’re doing your job every day, and I want you to know I am proud to be part of it.”...

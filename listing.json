@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-03T01:26:33.053564+00:00",
+  "generatedAt": "2026-06-03T01:27:38.446233+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -31475,6 +31475,40 @@
     {
       "category": "X",
       "date": "2026-05-14",
+      "id": "socials:e647fb9de075f50a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:25:56.800798+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054728281295826944.mp4",
+            "remotePath": "archive/x/dhsgov/LHFkCrY5C0OiRe6h.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054728281295826944/vid/avc1/1080x1920/LHFkCrY5C0OiRe6h.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/LHFkCrY5C0OiRe6h.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054728281295826944.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/LHFkCrY5C0OiRe6h.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054729020919456013"
+      },
+      "metadataPath": "X/DHSgov/2026/05/14/2054729020919456013/README.md",
+      "path": "X/DHSgov/2026/05/14/2054729020919456013/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054729020919456013",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Thank you, @ICEgov. \u2b07\ufe0f \u201cNo matter what the media wants to say, I ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-14",
       "id": "socials:9f245feffd700010",
       "kind": "social_post",
       "metadata": {
@@ -31851,6 +31885,40 @@
       "sourceUrl": "https://x.com/DHSgov/status/2055010581380292703",
       "summary": ".@ICEgov has ARRESTED Nahn Tu Hoang, a Vietnamese illegal immigrant who MURDERED a woman in her Texas home in 1996.",
       "title": ".@ICEgov has ARRESTED Nahn Tu Hoang, a Vietnamese illegal immigrant who MURDERED a woman i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:3aeba071e6121bb6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.381343+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054679820362014720.jpg",
+            "remotePath": "archive/x/dhsgov/HIOwaRPXYAABtao.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIOwaRPXYAABtao.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIOwaRPXYAABtao.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054679820362014720.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIOwaRPXYAABtao.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054679823084089483"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054679823084089483/README.md",
+      "path": "X/DHSgov/2026/05/13/2054679823084089483/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054679823084089483",
+      "summary": "\ud83d\udea8DALLAS: @ICEgov is asking local authorities to NOT RELEASE Luis Benitez-Gonzalez, a criminal illegal alien from Mexico, who has been accused of committing TWO MURDERS in Central Texas.",
+      "title": "\ud83d\udea8DALLAS: @ICEgov is asking local authorities to NOT RELEASE Luis Benitez-Gonzalez, a crimi..."
     },
     {
       "category": "TikTok",
@@ -32385,6 +32453,135 @@
       "title": "The guy that came up to Mitch McConnell today when McConnell thought the hearing was over,..."
     },
     {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:7cbdc712941f20a5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:25:56.801130+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054699214144241664.jpg",
+            "remotePath": "archive/x/dhsgov/HIPCDItXgAA28Bb.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIPCDItXgAA28Bb.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIPCDItXgAA28Bb.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2054699214093860864.jpg",
+            "remotePath": "archive/x/dhsgov/HIPCDIhWwAAweiJ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIPCDIhWwAAweiJ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIhWwAAweiJ.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2054699214098108416.jpg",
+            "remotePath": "archive/x/dhsgov/HIPCDIiXkAAQeYp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIPCDIiXkAAQeYp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIiXkAAQeYp.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2054699214089707520.jpg",
+            "remotePath": "archive/x/dhsgov/HIPCDIgXYAASsdY.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIPCDIgXYAASsdY.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIgXYAASsdY.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054699214144241664.jpg",
+          "media/02_image_2054699214093860864.jpg",
+          "media/03_image_2054699214098108416.jpg",
+          "media/04_image_2054699214089707520.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HIPCDItXgAA28Bb.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIhWwAAweiJ.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIiXkAAQeYp.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HIPCDIgXYAASsdY.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054702358018289830"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054702358018289830/README.md",
+      "path": "X/DHSgov/2026/05/13/2054702358018289830/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054702358018289830",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Today, we honored the @ICEgov law enforcement personnel who made ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:5ed1b519e1c7b8fe",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-03T01:27:00.381208+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054630788474277888.mp4",
+            "remotePath": "archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054630788474277888/vid/avc1/1280x720/JDcjPyKe1DCEA3In.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054630788474277888.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/JDcjPyKe1DCEA3In.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054685593645232619"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054685593645232619/README.md",
+      "path": "X/DHSgov/2026/05/13/2054685593645232619/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054685593645232619",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: \u201cLove the people, love the call.\u201d @SecMullinDHS Thank you @ICEgov law e..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:331edbd71553c15b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.381448+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054678899640999936.mp4",
+            "remotePath": "archive/x/dhsgov/G9xDKM9NXGkN6C8L.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054678899640999936/vid/avc1/1080x1920/G9xDKM9NXGkN6C8L.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/G9xDKM9NXGkN6C8L.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054678899640999936.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/G9xDKM9NXGkN6C8L.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054678984990871572"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054678984990871572/README.md",
+      "path": "X/DHSgov/2026/05/13/2054678984990871572/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054678984990871572",
+      "summary": "Report. Recon. Raid. https://t.co/Kcp2V3HPnA",
+      "title": "Report. Recon. Raid. https://t.co/Kcp2V3HPnA"
+    },
+    {
       "category": "TruthSocial",
       "date": "2026-05-13",
       "id": "socials:33a0d3e1e92772e4",
@@ -32439,6 +32636,28 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7639412088003185934",
       "summary": "Legendary. \ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3",
       "title": "Legendary. \ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:423254756e527c30",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T01:27:00.381561+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054659942695809489"
+      },
+      "metadataPath": "X/DHSgov/2026/05/13/2054659942695809489/README.md",
+      "path": "X/DHSgov/2026/05/13/2054659942695809489/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2054659942695809489",
+      "summary": "During Police Week, we\u2019re highlighting some of the worst of the worst @ICEgov law enforcement arrested.",
+      "title": "During Police Week, we\u2019re highlighting some of the worst of the worst @ICEgov law enforcem..."
     },
     {
       "category": "TruthSocial",
