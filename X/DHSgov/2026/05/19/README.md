@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-19
 
-- Posts: 4
+- Posts: 9
 
 - [20:47 UTC - Under @POTUS Trump and @SecMullinDHS, ICE will continue to arrest and remove violent crimi...](2056839210108088454/)
   - Source: https://x.com/DHSgov/status/2056839210108088454
@@ -14,3 +14,18 @@
 - [17:43 UTC - Repost of @CBP: Do not cross the border illegally! With trained personnel and advanced tec...](2056792892492882326/)
   - Source: https://x.com/DHSgov/status/2056792892492882326
   - Repost of @CBP: Do not cross the border illegally! With trained personnel and advanced technology, you have no chance of winning against us at hide and seek. https://t.co/ZJyA5MoQ9...
+- [17:23 UTC - Repost of @SecMullinDHS: 7 out of the 10 safest cities cooperate with @ICEgov Sanctuary po...](2056787959513321872/)
+  - Source: https://x.com/DHSgov/status/2056787959513321872
+  - Repost of @SecMullinDHS: 7 out of the 10 safest cities cooperate with @ICEgov Sanctuary politicians are more interested in protecting criminals than they are protecting Americans....
+- [17:03 UTC - It is commonsense to take illegal aliens into custody following completion of their remova...](2056782696567722242/)
+  - Source: https://x.com/DHSgov/status/2056782696567722242
+  - It is commonsense to take illegal aliens into custody following completion of their removal proceedings. Nothing prohibits arresting a lawbreaker where you find them. We are confid...
+- [16:39 UTC - Repost of @WhiteHouse: The Trump administration is targeting the WORST OF THE WORST crimin...](2056776816392593794/)
+  - Source: https://x.com/DHSgov/status/2056776816392593794
+  - Repost of @WhiteHouse: The Trump administration is targeting the WORST OF THE WORST criminal illegal aliens and cleaning up America's streets. ⬇️ https://t.co/q4SC6LNGY3
+- [15:24 UTC - This illegal alien PYROMANIAC set fire to TEN cars and was a clear public safety threat. T...](2056757818292572452/)
+  - Source: https://x.com/DHSgov/status/2056757818292572452
+  - This illegal alien PYROMANIAC set fire to TEN cars and was a clear public safety threat. Thank you to our local partners in Nassau County who helped @ICEgov and @CBP arrest this ar...
+- [15:01 UTC - SECURING OUR BORDER. In April, illegal apprehensions were 94% LOWER than the daily average...](2056752220645802133/)
+  - Source: https://x.com/DHSgov/status/2056752220645802133
+  - SECURING OUR BORDER. In April, illegal apprehensions were 94% LOWER than the daily average under the Biden Administration. Under @POTUS Trump and @SecMullinDHS, we’re enforcing our...
