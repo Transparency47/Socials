@@ -1,0 +1,34 @@
+# X / DHSgov / 2026-04-30
+
+- Posts: 10
+
+- [22:25 UTC - “This is what the brave men and women of Secret Service do day in and day out…they’re Patr...](2049978581619548588/)
+  - Source: https://x.com/DHSgov/status/2049978581619548588
+  - “This is what the brave men and women of Secret Service do day in and day out…they’re Patriots. They want to protect this nation.” @SecretService Director Sean Curran https://t.co/...
+- [21:27 UTC - Another strong win from @HSI_HQ! https://t.co/UUtzcECVJG](2049963755832774940/)
+  - Source: https://x.com/DHSgov/status/2049963755832774940
+  - Another strong win from @HSI_HQ! https://t.co/UUtzcECVJG
+- [19:55 UTC - This illegal alien NEVER should have been allowed behind the wheel on our nation’s roads. ...](2049940632362496136/)
+  - Source: https://x.com/DHSgov/status/2049940632362496136
+  - This illegal alien NEVER should have been allowed behind the wheel on our nation’s roads. Despite entering America ILLEGALLY from India, Gavin Newsom’s sanctuary California issued...
+- [18:34 UTC - Repost of @SecMullinDHS: After 76 days, the longest government shutdown in history is over...](2049920405201203206/)
+  - Source: https://x.com/DHSgov/status/2049920405201203206
+  - Repost of @SecMullinDHS: After 76 days, the longest government shutdown in history is over. @DHSgov is back open, @ICEgov and @CBP will be funded through reconciliation (with NO De...
+- [16:11 UTC - Thanks to the work of @HSI_HQ and @EroHarlingen, in cooperation with local law enforcement...](2049884251332477349/)
+  - Source: https://x.com/DHSgov/status/2049884251332477349
+  - Thanks to the work of @HSI_HQ and @EroHarlingen, in cooperation with local law enforcement, this PTA PREDATOR can no longer prey on innocent children. This disgusting criminal is n...
+- [15:45 UTC - Rachel Morin’s killer entered the United States illegally and was released under the Biden...](2049877768192614502/)
+  - Source: https://x.com/DHSgov/status/2049877768192614502
+  - Rachel Morin’s killer entered the United States illegally and was released under the Biden administration. Just months later, he brutally raped and murdered the young Maryland Moth...
+- [14:16 UTC - “It’s unfathomable, and it’s not something anyone should have to weather — let alone someo...](2049855418432729218/)
+  - Source: https://x.com/DHSgov/status/2049855418432729218
+  - “It’s unfathomable, and it’s not something anyone should have to weather — let alone someone who is willing to lay down their life for this country.” -Coast Guard spouse Jessica Ma...
+- [13:56 UTC - "It's more than a breach of trust. Our @USCG men and women, whether they're active duty or...](2049850293462966388/)
+  - Source: https://x.com/DHSgov/status/2049850293462966388
+  - "It's more than a breach of trust. Our @USCG men and women, whether they're active duty or reserve military civilians, they've stepped forward and taken an oath to support and defe...
+- [13:16 UTC - Repost of @PressSec: Coast Guard operating in "crisis" as Democrats' DHS shutdown halts pa...](2049840319873556566/)
+  - Source: https://x.com/DHSgov/status/2049840319873556566
+  - Repost of @PressSec: Coast Guard operating in "crisis" as Democrats' DHS shutdown halts pay in May, cuts power, strains missions overseas https://t.co/ohDCvpF9LN
+- [12:49 UTC - Repost of @RapidResponse47: Democrats shut down @DHSgov, and now, members of the Coast Gua...](2049833628645937343/)
+  - Source: https://x.com/DHSgov/status/2049833628645937343
+  - Repost of @RapidResponse47: Democrats shut down @DHSgov, and now, members of the Coast Guard are using flashlights to light their homes, going into debt to follow orders. The @USCG...

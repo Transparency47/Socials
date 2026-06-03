@@ -1,0 +1,46 @@
+# X / DHSgov / 2026-04-24
+
+- Posts: 14
+
+- [23:00 UTC - Repost of @SecMullinDHS: On Wednesday, Chuck Schumer told us why Democrats have kept @dhsg...](2047812833786597793/)
+  - Source: https://x.com/DHSgov/status/2047812833786597793
+  - Repost of @SecMullinDHS: On Wednesday, Chuck Schumer told us why Democrats have kept @dhsgov shutdown: They have no respect for the law enforcement keeping our homeland safe. I wil...
+- [21:50 UTC - Repost of @RapidResponse47: .@SecMullinDHS: Deportation is still on track. We haven’t slow...](2047795244796723660/)
+  - Source: https://x.com/DHSgov/status/2047795244796723660
+  - Repost of @RapidResponse47: .@SecMullinDHS: Deportation is still on track. We haven’t slowed down because the One Big Beautiful Bill contained funding for ICE and Border Patrol. Bu...
+- [21:24 UTC - During National Crime Victims Week, DHS continues to deliver justice for victims of illega...](2047788816392491085/)
+  - Source: https://x.com/DHSgov/status/2047788816392491085
+  - During National Crime Victims Week, DHS continues to deliver justice for victims of illegal alien crime by REMOVING criminals from our communities. Yesterday, ICE law enforcement a...
+- [21:02 UTC - "We have used all the emergency funds we could reach into." @SecMullinDHS Due to the Democ...](2047783157252977028/)
+  - Source: https://x.com/DHSgov/status/2047783157252977028
+  - "We have used all the emergency funds we could reach into." @SecMullinDHS Due to the Democrats’ reckless DHS shutdown, employees have missed paychecks, emergency trainings have bee...
+- [20:54 UTC - SOMALI PIRATE ARRESTED. @CBP arrested Said Jama Ahmed, an illegal alien from Somalia with ...](2047781250317144416/)
+  - Source: https://x.com/DHSgov/status/2047781250317144416
+  - SOMALI PIRATE ARRESTED. @CBP arrested Said Jama Ahmed, an illegal alien from Somalia with a prior piracy-related history. Ahmed had outstanding warrant for falsely making, using, a...
+- [19:46 UTC - A homeland worth fighting for. May God continue to bless the most beautiful nation on eart...](2047764195341381746/)
+  - Source: https://x.com/DHSgov/status/2047764195341381746
+  - A homeland worth fighting for. May God continue to bless the most beautiful nation on earth. https://t.co/Gvi62CaAPK
+- [19:27 UTC - Repost of @SecMullinDHS: My prayers are with everyone in Oklahoma impacted by last night’s...](2047759461469635023/)
+  - Source: https://x.com/DHSgov/status/2047759461469635023
+  - Repost of @SecMullinDHS: My prayers are with everyone in Oklahoma impacted by last night’s tornadoes and severe storms, especially those in Enid, Garfield County, Gray Ridge, and V...
+- [18:57 UTC - This is our why. In July 2022, 20-year-old Kayla Hamilton was raped and strangled to death...](2047751792172134726/)
+  - Source: https://x.com/DHSgov/status/2047751792172134726
+  - This is our why. In July 2022, 20-year-old Kayla Hamilton was raped and strangled to death by a criminal illegal alien and MS-13 gang member. As we commemorate National Crime Victi...
+- [18:14 UTC - Coast Guard families say they feel ‘forgotten’ amid government shutdown. Enough is enough....](2047740922402644375/)
+  - Source: https://x.com/DHSgov/status/2047740922402644375
+  - Coast Guard families say they feel ‘forgotten’ amid government shutdown. Enough is enough. Democrats must stop punishing American families and END their DHS shutdown. https://t.co/...
+- [17:44 UTC - THE IMPACT OF SANCTUARY POLICIES. @HSI_DC arrested a criminal illegal CHILD PREDATOR who F...](2047733434865295747/)
+  - Source: https://x.com/DHSgov/status/2047733434865295747
+  - THE IMPACT OF SANCTUARY POLICIES. @HSI_DC arrested a criminal illegal CHILD PREDATOR who Fairfax sanctuary politicians RELEASED into Virginia communities. @GovernorVA and Virginia...
+- [16:43 UTC - HEROES ON THE BORDER. @CBP officers with the Otay Mesa Commercial Vehicle Enforcement Faci...](2047717984358080736/)
+  - Source: https://x.com/DHSgov/status/2047717984358080736
+  - HEROES ON THE BORDER. @CBP officers with the Otay Mesa Commercial Vehicle Enforcement Facility in San Diego seized nearly 1.4 TONS of meth worth almost $5 MILLION. Thank you to the...
+- [16:04 UTC - WATCH: This week, our heroic ICE law enforcement worked around the clock to remove heinous...](2047708332937379856/)
+  - Source: https://x.com/DHSgov/status/2047708332937379856
+  - WATCH: This week, our heroic ICE law enforcement worked around the clock to remove heinous criminal illegal aliens from our communities and keep Americans SAFE ⬇️ https://t.co/kdho...
+- [15:12 UTC - FOREIGN FRAUDSTER SENTENCED: @HSINewYork investigated and helped sentence foreign fraudste...](2047695181835641177/)
+  - Source: https://x.com/DHSgov/status/2047695181835641177
+  - FOREIGN FRAUDSTER SENTENCED: @HSINewYork investigated and helped sentence foreign fraudster James Andrew Wellesley for his role in a Ponzi scheme that defrauded investors nearly $1...
+- [14:15 UTC - PROTECTING OUR NATION. @USCGSoutheast personnel at Base Miami Beach offloaded approximatel...](2047680906366722304/)
+  - Source: https://x.com/DHSgov/status/2047680906366722304
+  - PROTECTING OUR NATION. @USCGSoutheast personnel at Base Miami Beach offloaded approximately 2,570 pounds of cocaine worth more than $19.3 MILLION and transferred six suspected drug...

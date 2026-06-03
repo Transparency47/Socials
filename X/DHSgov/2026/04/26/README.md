@@ -1,0 +1,31 @@
+# X / DHSgov / 2026-04-26
+
+- Posts: 9
+
+- [15:49 UTC - Repost of @RapidResponse47: .@POTUS on the need to fund @DHSgov: "These assassins, they se...](2048429243067969882/)
+  - Source: https://x.com/DHSgov/status/2048429243067969882
+  - Repost of @RapidResponse47: .@POTUS on the need to fund @DHSgov: "These assassins, they seem to be high IQ people, but they’re crazy. Secret Service and all of different groups, yo...
+- [15:17 UTC - Repost of @PressSec: What was supposed to be a fun night at the @WHCA dinner with Presiden...](2048421179690521002/)
+  - Source: https://x.com/DHSgov/status/2048421179690521002
+  - Repost of @PressSec: What was supposed to be a fun night at the @WHCA dinner with President Trump delivering jokes and celebrating free speech was hijacked by a depraved crazy pers...
+- [03:36 UTC - Repost of @SecMullinDHS: Thankfully, President Trump, the First Lady, all members of the C...](2048244812755640605/)
+  - Source: https://x.com/DHSgov/status/2048244812755640605
+  - Repost of @SecMullinDHS: Thankfully, President Trump, the First Lady, all members of the Cabinet, the media, and guests are safe. @POTUS has displayed incredible composure and lead...
+- [03:26 UTC - "Tonight, we saw exactly what our brave men and women do each and every day to protect our...](2048242187989606433/)
+  - Source: https://x.com/DHSgov/status/2048242187989606433
+  - "Tonight, we saw exactly what our brave men and women do each and every day to protect our protectees." @SecretService Director Sean Curran https://t.co/0OsrPPlu2w
+- [03:10 UTC - Repost of @RapidResponse47: .@POTUS: "I was very impressed by @SecretService." https://t.c...](2048238218361856042/)
+  - Source: https://x.com/DHSgov/status/2048238218361856042
+  - Repost of @RapidResponse47: .@POTUS: "I was very impressed by @SecretService." https://t.co/dfAmVyuDaq
+- [03:07 UTC - Repost of @RapidResponse47: .@POTUS: "A man charged a security checkpoint armed with multi...](2048237467770179591/)
+  - Source: https://x.com/DHSgov/status/2048237467770179591
+  - Repost of @RapidResponse47: .@POTUS: "A man charged a security checkpoint armed with multiple weapons, and he was taken down by some very brave members of Secret Service... One off...
+- [01:38 UTC - Repost of @RapidResponse47: https://t.co/hY0o0eD5hH](2048215096644510147/)
+  - Source: https://x.com/DHSgov/status/2048215096644510147
+  - Repost of @RapidResponse47: https://t.co/hY0o0eD5hH
+- [01:33 UTC - Repost of @AJGuglielmi: We will provide updates as they become available and confirm infor...](2048213913750167806/)
+  - Source: https://x.com/DHSgov/status/2048213913750167806
+  - Repost of @AJGuglielmi: We will provide updates as they become available and confirm information. Our teams are on the ground assessing the situation and investigating. All of our...
+- [01:22 UTC - Repost of @RapidResponse47: https://t.co/yATF2V7X3K](2048211157899460933/)
+  - Source: https://x.com/DHSgov/status/2048211157899460933
+  - Repost of @RapidResponse47: https://t.co/yATF2V7X3K

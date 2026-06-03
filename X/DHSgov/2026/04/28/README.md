@@ -1,0 +1,52 @@
+# X / DHSgov / 2026-04-28
+
+- Posts: 16
+
+- [22:28 UTC - .@ICEgov has arrested an illegal alien semi-truck driver RELEASED by Oregon sanctuary poli...](2049254496531104067/)
+  - Source: https://x.com/DHSgov/status/2049254496531104067
+  - .@ICEgov has arrested an illegal alien semi-truck driver RELEASED by Oregon sanctuary politicians after he KILLED two honeymooners. He was issued a commercial driver’s license in G...
+- [20:13 UTC - Our NICE officers continue to risk their lives to protect American communities from crimin...](2049220522118975694/)
+  - Source: https://x.com/DHSgov/status/2049220522118975694
+  - Our NICE officers continue to risk their lives to protect American communities from criminal illegal aliens. Yesterday, @ICEgov arrested murderers, pedophiles, and drug traffickers...
+- [19:22 UTC - Repost of @SecMullinDHS: You have *zero* credibility on this issue. @GovTimWalz, you have ...](2049207538206257647/)
+  - Source: https://x.com/DHSgov/status/2049207538206257647
+  - Repost of @SecMullinDHS: You have *zero* credibility on this issue. @GovTimWalz, you have willingly ignored and downplayed the rampant fraud and abuse in Minnesota. This crackdown...
+- [18:09 UTC - https://t.co/pTJGzh6m2F](2049189253993681221/)
+  - Source: https://x.com/DHSgov/status/2049189253993681221
+  - https://t.co/pTJGzh6m2F
+- [17:27 UTC - .@HSI_HQ and @HSISaintPaul are zeroing in on the rampant fraud of taxpayer dollars in Minn...](2049178759979208794/)
+  - Source: https://x.com/DHSgov/status/2049178759979208794
+  - .@HSI_HQ and @HSISaintPaul are zeroing in on the rampant fraud of taxpayer dollars in Minnesota. We will stop at nothing to end the defrauding of the American people. https://t.co/...
+- [17:11 UTC - Repost of @angeldadjoe: Ro Khanna, calling this “just a drunk driving case” is dishonest b...](2049174587217203658/)
+  - Source: https://x.com/DHSgov/status/2049174587217203658
+  - Repost of @angeldadjoe: Ro Khanna, calling this “just a drunk driving case” is dishonest by omission. Yes, Katie was killed by an intoxicated driver. But you’re leaving out the fac...
+- [17:03 UTC - Repost of @PressSec: Fund DHS Now: Stop The Political Games And Protect America https://t....](2049172789249085875/)
+  - Source: https://x.com/DHSgov/status/2049172789249085875
+  - Repost of @PressSec: Fund DHS Now: Stop The Political Games And Protect America https://t.co/vu4zFXd91f
+- [16:05 UTC - Any abuse of American taxpayer dollars is UNACCEPTABLE. Today, working with our law enforc...](2049158174020612370/)
+  - Source: https://x.com/DHSgov/status/2049158174020612370
+  - Any abuse of American taxpayer dollars is UNACCEPTABLE. Today, working with our law enforcement partners, @HSI_HQ and @HSISaintPaul executed search warrants relating to the rampant...
+- [14:42 UTC - INVESTIGATING RAMPANT FRAUD: Along with our law enforcement partners, @HSI_HQ executed cri...](2049137095923400985/)
+  - Source: https://x.com/DHSgov/status/2049137095923400985
+  - INVESTIGATING RAMPANT FRAUD: Along with our law enforcement partners, @HSI_HQ executed criminal search warrants in Minneapolis relating to the rampant fraud of American taxpayers d...
+- [14:10 UTC - The American people deserve to know how their taxpayer money was abused. @HSI_HQ in cooper...](2049129073310368094/)
+  - Source: https://x.com/DHSgov/status/2049129073310368094
+  - The American people deserve to know how their taxpayer money was abused. @HSI_HQ in cooperation with law enforcement partners executed criminal search warrants in Minneapolis relat...
+- [14:05 UTC - Repost of @RapidResponse47: Months after Operation Metro Surge, federal agents return to M...](2049127981856039146/)
+  - Source: https://x.com/DHSgov/status/2049127981856039146
+  - Repost of @RapidResponse47: Months after Operation Metro Surge, federal agents return to Minneapolis to target daycares for suspected fraud https://t.co/85FqhDNL2x
+- [13:52 UTC - Repost of @JDVance: The task force and the DOJ will be relentless in exposing these frauds...](2049124667965714606/)
+  - Source: https://x.com/DHSgov/status/2049124667965714606
+  - Repost of @JDVance: The task force and the DOJ will be relentless in exposing these fraudsters wherever they may be hiding.
+- [13:42 UTC - Homeland Security Investigations in cooperation with our law enforcement partners executed...](2049121996097646878/)
+  - Source: https://x.com/DHSgov/status/2049121996097646878
+  - Homeland Security Investigations in cooperation with our law enforcement partners executed criminal search warrants in Minneapolis relating to the rampant fraud of U.S. taxpayers d...
+- [12:59 UTC - Homeland Security Investigations in cooperation with our law enforcement partners executed...](2049111271866302695/)
+  - Source: https://x.com/DHSgov/status/2049111271866302695
+  - Homeland Security Investigations in cooperation with our law enforcement partners executed criminal search warrants in Minneapolis relating to the rampant fraud of U.S. taxpayers d...
+- [12:54 UTC - Repost of @HSI_HQ: HSI, in cooperation with its federal, state and local law enforcement p...](2049110126930313376/)
+  - Source: https://x.com/DHSgov/status/2049110126930313376
+  - Repost of @HSI_HQ: HSI, in cooperation with its federal, state and local law enforcement partners, engaged in court-authorized law enforcement operations in the Minneapolis/St. Pau...
+- [12:36 UTC - Repost of @DHSgov: ICE is NICE. https://t.co/IGykO9CYAp](2049105539603300835/)
+  - Source: https://x.com/DHSgov/status/2049105539603300835
+  - Repost of @DHSgov: ICE is NICE. https://t.co/IGykO9CYAp

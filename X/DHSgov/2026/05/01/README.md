@@ -1,0 +1,40 @@
+# X / DHSgov / 2026-05-01
+
+- Posts: 12
+
+- [23:30 UTC - Repost of @DHSgov: Deportations. All day. All night. https://t.co/r3URiUrkCw](2050357291933659437/)
+  - Source: https://x.com/DHSgov/status/2050357291933659437
+  - Repost of @DHSgov: Deportations. All day. All night. https://t.co/r3URiUrkCw
+- [21:15 UTC - .@ICEgov has arrested an illegal alien PEDOPHILE after he was RELEASED from jail by @GovPr...](2050323337612525806/)
+  - Source: https://x.com/DHSgov/status/2050323337612525806
+  - .@ICEgov has arrested an illegal alien PEDOPHILE after he was RELEASED from jail by @GovPritzker and Illinois sanctuary politicians. In 2025, Erik Giovanni-Quiroa was convicted of...
+- [20:42 UTC - Repost of @SecMullinDHS: I want to thank every @DHSgov employee who showed up to Make Amer...](2050314988204540147/)
+  - Source: https://x.com/DHSgov/status/2050314988204540147
+  - Repost of @SecMullinDHS: I want to thank every @DHSgov employee who showed up to Make America Safe Again during the Democrats longest government shutdown in our history. For 76 day...
+- [20:02 UTC - 🚨DHS and @FEMA have SUSPENDED Rep. Sheila Cherfilus-McCormick, her brother, and multiple a...](2050304919048212552/)
+  - Source: https://x.com/DHSgov/status/2050304919048212552
+  - 🚨DHS and @FEMA have SUSPENDED Rep. Sheila Cherfilus-McCormick, her brother, and multiple associates from receiving future federal funds. These individuals were indicted for funneli...
+- [19:41 UTC - Deportations. All day. All night. https://t.co/r3URiUrkCw](2050299679758319913/)
+  - Source: https://x.com/DHSgov/status/2050299679758319913
+  - Deportations. All day. All night. https://t.co/r3URiUrkCw
+- [19:04 UTC - INSANITY: A Biden-appointed activist judge released this Dominican illegal alien WANTED FO...](2050290264040677752/)
+  - Source: https://x.com/DHSgov/status/2050290264040677752
+  - INSANITY: A Biden-appointed activist judge released this Dominican illegal alien WANTED FOR MURDER back into American communities. Yet again, an activist judge is attempting to thw...
+- [17:40 UTC - Wilfredo Jose Tortolero-Arriechi, an illegal alien from Venezuela, STABBED and KILLED Albe...](2050269020268507462/)
+  - Source: https://x.com/DHSgov/status/2050269020268507462
+  - Wilfredo Jose Tortolero-Arriechi, an illegal alien from Venezuela, STABBED and KILLED Alberto Rangel at the San Francisco General Hospital in December. He faces charges for homicid...
+- [17:34 UTC - Repost of @USBPChief: Agents from the Nogales Border Patrol Station apprehended 13 illegal...](2050267690086916265/)
+  - Source: https://x.com/DHSgov/status/2050267690086916265
+  - Repost of @USBPChief: Agents from the Nogales Border Patrol Station apprehended 13 illegal aliens attempting to cross illegally in the remote Sonoran Desert. Among them, one Mexica...
+- [16:32 UTC - 🚨An activist Biden-appointed judge has ordered an illegal alien wanted for MURDER RELEASED...](2050252091881349465/)
+  - Source: https://x.com/DHSgov/status/2050252091881349465
+  - 🚨An activist Biden-appointed judge has ordered an illegal alien wanted for MURDER RELEASED from @ICEgov custody. Bryan Rafael Gomez is a criminal illegal alien from the Dominican R...
+- [15:15 UTC - Under @POTUS Trump and @SecMullinDHS, criminal illegal aliens are NOT welcome in the U.S. ...](2050232552623886500/)
+  - Source: https://x.com/DHSgov/status/2050232552623886500
+  - Under @POTUS Trump and @SecMullinDHS, criminal illegal aliens are NOT welcome in the U.S. This week, the NICE men and women of @ICEgov put their lives on the line to arrest murdere...
+- [13:55 UTC - "@SecretService, even though they were shutdown, still performed their job and did it in a...](2050212437266153699/)
+  - Source: https://x.com/DHSgov/status/2050212437266153699
+  - "@SecretService, even though they were shutdown, still performed their job and did it in a remarkable and brave way." @SecMullinDHS God bless the brave men and women of law enforce...
+- [13:52 UTC - The 76-day Democrat shutdown of DHS NEVER should have happened. Thank you to the patriotic...](2050211753854644642/)
+  - Source: https://x.com/DHSgov/status/2050211753854644642
+  - The 76-day Democrat shutdown of DHS NEVER should have happened. Thank you to the patriotic employees who continued to protect the homeland without a guaranteed paycheck. https://t....

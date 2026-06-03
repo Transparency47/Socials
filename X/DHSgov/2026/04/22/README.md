@@ -1,0 +1,58 @@
+# X / DHSgov / 2026-04-22
+
+- Posts: 18
+
+- [23:58 UTC - KEEPING OUR HOMELAND SAFE. On Sunday, @CBP officers at the Area Port of Nogales seized doz...](2047102835817357666/)
+  - Source: https://x.com/DHSgov/status/2047102835817357666
+  - KEEPING OUR HOMELAND SAFE. On Sunday, @CBP officers at the Area Port of Nogales seized dozens of weapons from a car attempting to cross the border — including a ROCKET-PROPELLED GR...
+- [23:49 UTC - "There is zero chance this guy needs to be released, especially released and go back to sc...](2047100624152740333/)
+  - Source: https://x.com/DHSgov/status/2047100624152740333
+  - "There is zero chance this guy needs to be released, especially released and go back to school." @SecMullinDHS Israel Christopher Flores-Ortiz, an adult illegal alien from El Salva...
+- [22:30 UTC - Gross behavior yesterday at a UCLA Federalist Society event. While DHS’ General Counsel Ja...](2047080539144753606/)
+  - Source: https://x.com/DHSgov/status/2047080539144753606
+  - Gross behavior yesterday at a UCLA Federalist Society event. While DHS’ General Counsel James Percival attempted to speak, anti-ICE agitators repeatedly interrupted him, called him...
+- [21:39 UTC - This is our why. In February 2024, Laken Riley was murdered by an illegal alien who NEVER ...](2047067788368347481/)
+  - Source: https://x.com/DHSgov/status/2047067788368347481
+  - This is our why. In February 2024, Laken Riley was murdered by an illegal alien who NEVER should have been in our country. This National Crime Victims Week, we honor her memory as...
+- [21:25 UTC - During National Crime Victims Week, DHS is continuing its mission under @POTUS Trump and @...](2047064185016598740/)
+  - Source: https://x.com/DHSgov/status/2047064185016598740
+  - During National Crime Victims Week, DHS is continuing its mission under @POTUS Trump and @SecMullinDHS to remove dangerous criminal illegal aliens from our nation and fight for jus...
+- [20:48 UTC - "7 out of the top 10 safest cities in the country cooperate with ICE." @SecMullinDHS   Nat...](2047054899179848059/)
+  - Source: https://x.com/DHSgov/status/2047054899179848059
+  - "7 out of the top 10 safest cities in the country cooperate with ICE." @SecMullinDHS National security isn’t a ‘red’ or ‘blue’ issue. Sanctuary politicians must STOP putting crimin...
+- [18:42 UTC - Meet ANOTHER one of the media’s “non-criminals.” Ricardo Ruben Aviles-Hernandez is an ille...](2047023177033818571/)
+  - Source: https://x.com/DHSgov/status/2047023177033818571
+  - Meet ANOTHER one of the media’s “non-criminals.” Ricardo Ruben Aviles-Hernandez is an illegal alien wanted for MURDER in Mexico. Characterizing this illegal alien as a “non-crimina...
+- [17:23 UTC - HORRIFYING story out of Oconee County, South Carolina. Illegal alien monster Luis Armando ...](2047003296590708766/)
+  - Source: https://x.com/DHSgov/status/2047003296590708766
+  - HORRIFYING story out of Oconee County, South Carolina. Illegal alien monster Luis Armando Argueta Montejo engaged in sexual conduct with a CHILD. Montejo was arrested after the min...
+- [17:15 UTC - Promises made. Promises kept.   Thanks to President Trump, the border crisis isn’t just un...](2047001242384089285/)
+  - Source: https://x.com/DHSgov/status/2047001242384089285
+  - Promises made. Promises kept. Thanks to President Trump, the border crisis isn’t just under control— it’s been obliterated. https://t.co/QRq5IejzDb
+- [15:01 UTC - Repost of @DHSgov: “It was a preventable murder.” Sheridan Gorman had her whole life ahead...](2046967633140994489/)
+  - Source: https://x.com/DHSgov/status/2046967633140994489
+  - Repost of @DHSgov: “It was a preventable murder.” Sheridan Gorman had her whole life ahead of her before this cold-blooded killer decided to end her life. She was failed by open bo...
+- [15:01 UTC - Repost of @WhiteHouse: Sheridan Gorman, an 18-year-old student, was tragically murdered by...](2046967599917855023/)
+  - Source: https://x.com/DHSgov/status/2046967599917855023
+  - Repost of @WhiteHouse: Sheridan Gorman, an 18-year-old student, was tragically murdered by an illegal alien. Her parents calling it "a preventable murder." This is why we secured t...
+- [14:53 UTC - Repost of @RapidResponse47: Every American needs to see this. 18-year-old Sheridan Gorman ...](2046965614611182031/)
+  - Source: https://x.com/DHSgov/status/2046965614611182031
+  - Repost of @RapidResponse47: Every American needs to see this. 18-year-old Sheridan Gorman was brutally murdered in Chicago — just blocks from her college dorm — by an illegal alien...
+- [14:36 UTC - Repost of @SecMullinDHS: I’m with @AndrewHGiuliani head of @WHTaskForceFIFA. @DHSgov will ...](2046961367714873786/)
+  - Source: https://x.com/DHSgov/status/2046961367714873786
+  - Repost of @SecMullinDHS: I’m with @AndrewHGiuliani head of @WHTaskForceFIFA. @DHSgov will be working alongside the task force and @FIFAcom to ensure all U.S.-based matches are safe...
+- [14:35 UTC - “Nazi maggot ICE agents should be terrified…and subsequently executed…with two f**king bul...](2046961145085415604/)
+  - Source: https://x.com/DHSgov/status/2046961145085415604
+  - “Nazi maggot ICE agents should be terrified…and subsequently executed…with two f**king bullets to the back of their Nazi maggot heads!” After receiving this threat, ICE launched an...
+- [13:45 UTC - This National Crime Victims week, DHS continues standing up for the victims of illegal ali...](2046948426953146724/)
+  - Source: https://x.com/DHSgov/status/2046948426953146724
+  - This National Crime Victims week, DHS continues standing up for the victims of illegal aliens and fighting to put America first. For too long, victims of illegal alien crime have b...
+- [13:38 UTC - Thank you for your attention to this matter! 🇺🇸](2046946790096707875/)
+  - Source: https://x.com/DHSgov/status/2046946790096707875
+  - Thank you for your attention to this matter! 🇺🇸
+- [12:35 UTC - “It was a preventable murder.” Sheridan Gorman had her whole life ahead of her before this...](2046931008491045228/)
+  - Source: https://x.com/DHSgov/status/2046931008491045228
+  - “It was a preventable murder.” Sheridan Gorman had her whole life ahead of her before this cold-blooded killer decided to end her life. She was failed by open border policies and s...
+- [11:59 UTC - Repost of @CBP: No monkey business from CBP! These two latest prohibited meat seizures in ...](2046921940745482280/)
+  - Source: https://x.com/DHSgov/status/2046921940745482280
+  - Repost of @CBP: No monkey business from CBP! These two latest prohibited meat seizures in Chicago, including a dried monkey and large amounts of dried beef, highlight the importanc...

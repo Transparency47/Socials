@@ -1,0 +1,34 @@
+# X / DHSgov / 2026-05-06
+
+- Posts: 10
+
+- [23:50 UTC - Repost of @SecMullinDHS: My job is to protect the homeland. Every single day, the men and ...](2052174214442971380/)
+  - Source: https://x.com/DHSgov/status/2052174214442971380
+  - Repost of @SecMullinDHS: My job is to protect the homeland. Every single day, the men and women of @DHSgov law enforcement are arresting the dangerous criminals that sanctuary poli...
+- [22:48 UTC - MINNESOTA MADNESS: Sanctuary politicians have PARDONED At Xayasounethone Chandee, a Laotia...](2052158505713373488/)
+  - Source: https://x.com/DHSgov/status/2052158505713373488
+  - MINNESOTA MADNESS: Sanctuary politicians have PARDONED At Xayasounethone Chandee, a Laotian national with THREE assault convictions. Chandee lost his green card due to his convicti...
+- [20:45 UTC - “If he weren’t here, it wouldn’t have happened.” On May 1, Deiby Jhonatan Janamejoy Jansas...](2052127511950090616/)
+  - Source: https://x.com/DHSgov/status/2052127511950090616
+  - “If he weren’t here, it wouldn’t have happened.” On May 1, Deiby Jhonatan Janamejoy Jansasoy, a criminal illegal alien from Colombia, was arrested for vehicular homicide, DUI, and...
+- [19:09 UTC - Repost of @TSA: TSA's dedicated professionals are laser-focused on securing our skies and ...](2052103491724726340/)
+  - Source: https://x.com/DHSgov/status/2052103491724726340
+  - Repost of @TSA: TSA's dedicated professionals are laser-focused on securing our skies and stadiums for FIFA World Cup 2026. We're proud to be on the front lines to deliver the safe...
+- [19:01 UTC - Sanctuary politicians must STOP releasing criminal illegal aliens from jail into our commu...](2052101486109200731/)
+  - Source: https://x.com/DHSgov/status/2052101486109200731
+  - Sanctuary politicians must STOP releasing criminal illegal aliens from jail into our communities. We need sanctuary politicians to cooperate with ICE law enforcement to remove crim...
+- [17:54 UTC - A TERRIFYING story out of Suffolk County, New York. This illegal alien BEAT a man unconsci...](2052084721186725958/)
+  - Source: https://x.com/DHSgov/status/2052084721186725958
+  - A TERRIFYING story out of Suffolk County, New York. This illegal alien BEAT a man unconscious then RAPED him behind a dumpster. @ICEgov is ensuring this MONSTER can never prey on a...
+- [17:42 UTC - Patriot.](2052081688520331680/)
+  - Source: https://x.com/DHSgov/status/2052081688520331680
+  - Patriot.
+- [16:51 UTC - By taking criminal illegal aliens off our streets, the NICE officers of @ICEgov are puttin...](2052068715642966479/)
+  - Source: https://x.com/DHSgov/status/2052068715642966479
+  - By taking criminal illegal aliens off our streets, the NICE officers of @ICEgov are putting the safety of Americans FIRST. Just this week, our heroic ICE law enforcement arrested h...
+- [16:15 UTC - HORRIFYING: Jose Ignacio Bonilla-Garcia, an illegal immigrant from Honduras, BEAT a man un...](2052059565798130096/)
+  - Source: https://x.com/DHSgov/status/2052059565798130096
+  - HORRIFYING: Jose Ignacio Bonilla-Garcia, an illegal immigrant from Honduras, BEAT a man unconscious and RAPED him behind a dumpster. Bonilla-Garcia has illegally entered the U.S. F...
+- [13:27 UTC - “We had a historic illegal immigration crisis for four years. So what’s required now? A hi...](2052017333049143503/)
+  - Source: https://x.com/DHSgov/status/2052017333049143503
+  - “We had a historic illegal immigration crisis for four years. So what’s required now? A historic mass deportation.” @RealTomHoman https://t.co/IjHBmi8dUR

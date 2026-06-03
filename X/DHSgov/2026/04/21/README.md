@@ -1,0 +1,52 @@
+# X / DHSgov / 2026-04-21
+
+- Posts: 16
+
+- [23:55 UTC - SICKENING: Luis Armando Argueta Montejo, a 43-year-old-criminal illegal alien from Mexico,...](2046739727315866039/)
+  - Source: https://x.com/DHSgov/status/2046739727315866039
+  - SICKENING: Luis Armando Argueta Montejo, a 43-year-old-criminal illegal alien from Mexico, has been arrested for INCEST and sexual conduct WITH A CHILD. This predator was arrested...
+- [22:41 UTC - Repost of @SecMullinDHS: This is our why.](2046721010531987818/)
+  - Source: https://x.com/DHSgov/status/2046721010531987818
+  - Repost of @SecMullinDHS: This is our why.
+- [22:35 UTC - This National Crime Victims Week, America stands with its Angel Families. You are not alon...](2046719496849678400/)
+  - Source: https://x.com/DHSgov/status/2046719496849678400
+  - This National Crime Victims Week, America stands with its Angel Families. You are not alone. You are not forgotten. Since day one of his administration, @POTUS Trump has taken swif...
+- [22:03 UTC - Our nation and our people are worth fighting for. https://t.co/D6zw3r4dhU](2046711433782514069/)
+  - Source: https://x.com/DHSgov/status/2046711433782514069
+  - Our nation and our people are worth fighting for. https://t.co/D6zw3r4dhU
+- [21:52 UTC - While Democrats continue to play political games, DHS is running out of funds to pay the p...](2046708712342016383/)
+  - Source: https://x.com/DHSgov/status/2046708712342016383
+  - While Democrats continue to play political games, DHS is running out of funds to pay the patriots who protect our Homeland. Enough is enough — this Democrat shutdown must end. http...
+- [19:42 UTC - As we observe National Crime Victims Week, DHS is fighting for justice for victims of ille...](2046675992832340027/)
+  - Source: https://x.com/DHSgov/status/2046675992832340027
+  - As we observe National Crime Victims Week, DHS is fighting for justice for victims of illegal alien crime and preventing more American citizens from being victimized by illegal ali...
+- [17:47 UTC - This National Crime Victims Week, DHS continues standing up for the Americans who have bee...](2046646978809893044/)
+  - Source: https://x.com/DHSgov/status/2046646978809893044
+  - This National Crime Victims Week, DHS continues standing up for the Americans who have been victims of illegal alien crime. They are why we fight. Every crime committed by an illeg...
+- [17:25 UTC - Repost of @CBPCommissioner: Every day, the men and women of CBP intercept drugs and other ...](2046641421755506820/)
+  - Source: https://x.com/DHSgov/status/2046641421755506820
+  - Repost of @CBPCommissioner: Every day, the men and women of CBP intercept drugs and other contraband from entering our country. This is just one example of how our personnel keep A...
+- [17:16 UTC - This adult criminal illegal alien should NOT have been attending a Virginia high school an...](2046639258442555797/)
+  - Source: https://x.com/DHSgov/status/2046639258442555797
+  - This adult criminal illegal alien should NOT have been attending a Virginia high school and allowed to prey on innocent teenage girls. His sentencing to only 180 days for his convi...
+- [17:04 UTC - Import the third world, become the third world. Illegal alien Josue Abraham Chirino-Leonic...](2046636225524637999/)
+  - Source: https://x.com/DHSgov/status/2046636225524637999
+  - Import the third world, become the third world. Illegal alien Josue Abraham Chirino-Leonice BRUTALLY murdered his co-worker by hitting him with a sledgehammer multiple times. He wa...
+- [16:01 UTC - Repost of @SecMullinDHS: Open borders have deadly consequences. Since day one, @POTUS has ...](2046620368886956376/)
+  - Source: https://x.com/DHSgov/status/2046620368886956376
+  - Repost of @SecMullinDHS: Open borders have deadly consequences. Since day one, @POTUS has worked to deliver the MOST secure border in U.S. history and save American lives. Supporti...
+- [15:45 UTC - 🚨FAIRFAX, VIRGINIA: Israel Christopher Flores-Ortiz, a 19-year-old ILLEGAL ALIEN from El S...](2046616368103993506/)
+  - Source: https://x.com/DHSgov/status/2046616368103993506
+  - 🚨FAIRFAX, VIRGINIA: Israel Christopher Flores-Ortiz, a 19-year-old ILLEGAL ALIEN from El Salvador, has been convicted on 9 COUNTS of assault and battery while attending High School...
+- [15:00 UTC - MASSIVE DRUG BUST. @CBP officers in El Paso intercepted nearly 100 POUNDS of cocaine worth...](2046604912063062492/)
+  - Source: https://x.com/DHSgov/status/2046604912063062492
+  - MASSIVE DRUG BUST. @CBP officers in El Paso intercepted nearly 100 POUNDS of cocaine worth more than $1.1 MILLION. Thank you to these officers for preventing these drugs from enter...
+- [14:04 UTC - Josue Abraham Chirino-Leonice, a criminal illegal alien from Venezuela, murdered his co-wo...](2046590980132925851/)
+  - Source: https://x.com/DHSgov/status/2046590980132925851
+  - Josue Abraham Chirino-Leonice, a criminal illegal alien from Venezuela, murdered his co-worker by hitting him with a sledgehammer multiple times. The U.S. Border Patrol first appre...
+- [13:53 UTC - THIRD WORLD VIOLENCE: Josue Abraham Chirino-Leonice, a Venezuelan national, murdered his c...](2046588186164351150/)
+  - Source: https://x.com/DHSgov/status/2046588186164351150
+  - THIRD WORLD VIOLENCE: Josue Abraham Chirino-Leonice, a Venezuelan national, murdered his co-worker by hitting him with a sledgehammer multiple times. The victim’s body was found by...
+- [13:09 UTC - "What the Democrats need to do is explain to the American people why they want open border...](2046577027768062083/)
+  - Source: https://x.com/DHSgov/status/2046577027768062083
+  - "What the Democrats need to do is explain to the American people why they want open borders and why they don’t want to deport these illegals that are truly running our city and run...

@@ -1,0 +1,49 @@
+# X / DHSgov / 2026-05-11
+
+- Posts: 15
+
+- [22:53 UTC - Just hold on you’re going home. https://t.co/YGo3uuNvrE https://t.co/XZAGcFzOzP](2053971710924280129/)
+  - Source: https://x.com/DHSgov/status/2053971710924280129
+  - Just hold on you’re going home. https://t.co/YGo3uuNvrE https://t.co/XZAGcFzOzP
+- [22:35 UTC - "I have the privilege of having the largest police force with 80,000 officers under me. We...](2053967318351269916/)
+  - Source: https://x.com/DHSgov/status/2053967318351269916
+  - "I have the privilege of having the largest police force with 80,000 officers under me. We honor them every day here at St. Elizabeths, the Department of Homeland Security headquar...
+- [22:06 UTC - Repost of @FPSDHS: This #NationalPoliceWeek, @DHSgov @FPSDHS honors law enforcement and re...](2053959847205392833/)
+  - Source: https://x.com/DHSgov/status/2053959847205392833
+  - Repost of @FPSDHS: This #NationalPoliceWeek, @DHSgov @FPSDHS honors law enforcement and remembers our heroes who lost their lives in the line of duty. To officers across the countr...
+- [20:28 UTC - While Americans celebrated Mother’s Day, the NICE men and women of @ICEgov risked their li...](2053935336057610250/)
+  - Source: https://x.com/DHSgov/status/2053935336057610250
+  - While Americans celebrated Mother’s Day, the NICE men and women of @ICEgov risked their lives to arrest and remove criminal illegal aliens from American communities. This weekend,...
+- [20:13 UTC - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Kevin Moises Coz Camaja, an illegal al...](2053931443114451448/)
+  - Source: https://x.com/DHSgov/status/2053931443114451448
+  - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Kevin Moises Coz Camaja, an illegal alien from Guatemala. 🇬🇹 Criminal history includes convictions for: 💥Felony Aggravated Assau...
+- [20:13 UTC - Repost of @ERONewark: On May 8, ICE ERO Newark arrested Carlos Mauricio Rivera Alvarado, a...](2053931397983691108/)
+  - Source: https://x.com/DHSgov/status/2053931397983691108
+  - Repost of @ERONewark: On May 8, ICE ERO Newark arrested Carlos Mauricio Rivera Alvarado, an illegal alien and MS-13 gang member wanted in El Salvador for serious offenses involving...
+- [20:12 UTC - Repost of @EROPhiladelphia: May 6: @EROPhiladelphia arrested Brazilian illegal alien Victo...](2053931352957874284/)
+  - Source: https://x.com/DHSgov/status/2053931352957874284
+  - Repost of @EROPhiladelphia: May 6: @EROPhiladelphia arrested Brazilian illegal alien Victor Figueiredo‑De Araujo in Philly. 2023 arrest for murder, robbery &amp; firearms w/o lic,...
+- [18:44 UTC - Repost of @CBP: CBP is holding the line for FIFA World Cup 2026! CBP Officers stationed ac...](2053909196131729901/)
+  - Source: https://x.com/DHSgov/status/2053909196131729901
+  - Repost of @CBP: CBP is holding the line for FIFA World Cup 2026! CBP Officers stationed across America and around the world stand ready to process international travelers swiftly s...
+- [17:43 UTC - This Police Week, we honor all of our law enforcement and remember the heroes who lost the...](2053893666037539128/)
+  - Source: https://x.com/DHSgov/status/2053893666037539128
+  - This Police Week, we honor all of our law enforcement and remember the heroes who lost their lives in the line of duty. To every officer who puts on the badge each day: THANK YOU....
+- [16:06 UTC - LAW AND ORDER. Under the leadership of @POTUS Trump and @SecMullinDHS, violent crime is PL...](2053869298364416173/)
+  - Source: https://x.com/DHSgov/status/2053869298364416173
+  - LAW AND ORDER. Under the leadership of @POTUS Trump and @SecMullinDHS, violent crime is PLUNGING in cities across the country. By removing criminal illegal aliens from our nation,...
+- [15:37 UTC - Repost of @CBP: This Police Week, we remember the fallen. https://t.co/38zVimy7HK](2053861949494944179/)
+  - Source: https://x.com/DHSgov/status/2053861949494944179
+  - Repost of @CBP: This Police Week, we remember the fallen. https://t.co/38zVimy7HK
+- [15:37 UTC - Repost of @TSA: TSA honors the courage of those who serve on the front lines. From our Fed...](2053861941295174024/)
+  - Source: https://x.com/DHSgov/status/2053861941295174024
+  - Repost of @TSA: TSA honors the courage of those who serve on the front lines. From our Federal Air Marshals &amp; TSA Investigators to LEO partners at airports, your vigilance keep...
+- [15:29 UTC - HORRIFYING story out of Montana. This disgusting illegal alien is charged with RAPING his ...](2053860109038882974/)
+  - Source: https://x.com/DHSgov/status/2053860109038882974
+  - HORRIFYING story out of Montana. This disgusting illegal alien is charged with RAPING his dead girlfriend’s CHILD. The Biden administration RELEASED this monster into our communiti...
+- [14:41 UTC - Repost of @RapidResponse47: Report: DHS Wins 80,000 ‘Voluntary Departure‘ Cases https://t....](2053848022585332184/)
+  - Source: https://x.com/DHSgov/status/2053848022585332184
+  - Repost of @RapidResponse47: Report: DHS Wins 80,000 ‘Voluntary Departure‘ Cases https://t.co/KfFGdPSHEJ
+- [14:33 UTC - This SERIAL RAPIST’S ten year crime spree IS OVER. Thanks to the incredible work of the me...](2053846055880417531/)
+  - Source: https://x.com/DHSgov/status/2053846055880417531
+  - This SERIAL RAPIST’S ten year crime spree IS OVER. Thanks to the incredible work of the men and women of federal law enforcement, this criminal illegal alien has been CAUGHT. @ICEg...

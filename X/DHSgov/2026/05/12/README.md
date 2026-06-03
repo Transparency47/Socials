@@ -1,0 +1,37 @@
+# X / DHSgov / 2026-05-12
+
+- Posts: 11
+
+- [21:48 UTC - Tennessee, deportations at their best. https://t.co/Wktc6BylDt](2054317888165511551/)
+  - Source: https://x.com/DHSgov/status/2054317888165511551
+  - Tennessee, deportations at their best. https://t.co/Wktc6BylDt
+- [19:11 UTC - Repost of @SecMullinDHS: It was a true honor to attend the @CBP Valor Memorial and Wreath ...](2054278197584224359/)
+  - Source: https://x.com/DHSgov/status/2054278197584224359
+  - Repost of @SecMullinDHS: It was a true honor to attend the @CBP Valor Memorial and Wreath Laying Ceremony this morning and visit with the families of our fallen heroes. In 2016, th...
+- [18:54 UTC - This Police Week, @SecMullinDHS paid tribute to the heroic @CBP officers who made the ulti...](2054274017033396355/)
+  - Source: https://x.com/DHSgov/status/2054274017033396355
+  - This Police Week, @SecMullinDHS paid tribute to the heroic @CBP officers who made the ultimate sacrifice. Their commitment to defending our homeland will never be forgotten. May Go...
+- [18:20 UTC - Repost of @CBPAMO: During National Police Week, we honor the courage and sacrifice of law ...](2054265465195700650/)
+  - Source: https://x.com/DHSgov/status/2054265465195700650
+  - Repost of @CBPAMO: During National Police Week, we honor the courage and sacrifice of law enforcement personnel at the CBP Valor Memorial. This tribute stands as a reminder of thos...
+- [17:34 UTC - ANOTHER criminal illegal alien has been arrested in sanctuary Virginia. Under the leadersh...](2054253942045851672/)
+  - Source: https://x.com/DHSgov/status/2054253942045851672
+  - ANOTHER criminal illegal alien has been arrested in sanctuary Virginia. Under the leadership of @GovernorVA and Virginia sanctuary politicians, the Commonwealth has become a refuge...
+- [17:25 UTC - Bye. 👋 https://t.co/YGo3uuNvrE](2054251513992671399/)
+  - Source: https://x.com/DHSgov/status/2054251513992671399
+  - Bye. 👋 https://t.co/YGo3uuNvrE
+- [15:23 UTC - .@CBP VALOR MEMORIAL: “This is one of the greatest honors I’ve ever had. I’m the secretary...](2054221013957722277/)
+  - Source: https://x.com/DHSgov/status/2054221013957722277
+  - .@CBP VALOR MEMORIAL: “This is one of the greatest honors I’ve ever had. I’m the secretary of over 80,000 law enforcement officers—men and women. I think, ‘Wow, thank you, Lord. Th...
+- [13:46 UTC - Repost of @CBP: Join us online shortly for CBP's 2026 Valor Memorial and Wreath Laying Cer...](2054196622544830858/)
+  - Source: https://x.com/DHSgov/status/2054196622544830858
+  - Repost of @CBP: Join us online shortly for CBP's 2026 Valor Memorial and Wreath Laying Ceremony. Watch here: https://t.co/NsYi6Ag1eN
+- [13:33 UTC - Thank you for your attention to this matter!](2054193197174108616/)
+  - Source: https://x.com/DHSgov/status/2054193197174108616
+  - Thank you for your attention to this matter!
+- [13:10 UTC - Repost of @DHSgov: Just hold on you’re going home. https://t.co/YGo3uuNvrE https://t.co/XZ...](2054187500990537990/)
+  - Source: https://x.com/DHSgov/status/2054187500990537990
+  - Repost of @DHSgov: Just hold on you’re going home. https://t.co/YGo3uuNvrE https://t.co/XZAGcFzOzP
+- [00:00 UTC - Another day, another criminal illegal alien ARRESTED in @GovernorVA’s sanctuary Virginia. ...](2053988775311667502/)
+  - Source: https://x.com/DHSgov/status/2053988775311667502
+  - Another day, another criminal illegal alien ARRESTED in @GovernorVA’s sanctuary Virginia. Eduardo Perez-Legra is a criminal illegal alien from Cuba whose rap sheet includes FOUR fe...

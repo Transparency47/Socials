@@ -1,0 +1,34 @@
+# X / DHSgov / 2026-05-08
+
+- Posts: 10
+
+- [22:19 UTC - The policies being pushed by @GovKathyHochul and New York sanctuary politicians are making...](2052876078419734782/)
+  - Source: https://x.com/DHSgov/status/2052876078419734782
+  - The policies being pushed by @GovKathyHochul and New York sanctuary politicians are making New Yorkers LESS SAFE. Instead of releasing criminal illegal aliens from jails and refusi...
+- [21:06 UTC - Repost of @DHSgov: NICE City. https://t.co/NJ5XLXanq9](2052857823063629959/)
+  - Source: https://x.com/DHSgov/status/2052857823063629959
+  - Repost of @DHSgov: NICE City. https://t.co/NJ5XLXanq9
+- [21:05 UTC - Under @POTUS Trump and @SecMullinDHS, @ICEgov will continue to arrest and remove violent c...](2052857477520396408/)
+  - Source: https://x.com/DHSgov/status/2052857477520396408
+  - Under @POTUS Trump and @SecMullinDHS, @ICEgov will continue to arrest and remove violent criminal illegal aliens who should have NEVER been in our country in the first place. Yeste...
+- [17:24 UTC - NICE City. https://t.co/NJ5XLXanq9](2052801741389750768/)
+  - Source: https://x.com/DHSgov/status/2052801741389750768
+  - NICE City. https://t.co/NJ5XLXanq9
+- [15:18 UTC - EATONTOWN, NEW JERSEY: @ERONewark arrested a so-called “non-criminal” illegal alien who ac...](2052770024029364346/)
+  - Source: https://x.com/DHSgov/status/2052770024029364346
+  - EATONTOWN, NEW JERSEY: @ERONewark arrested a so-called “non-criminal” illegal alien who actually has an international warrant for HOMICIDE in Honduras. Because Fredy Alexander Lope...
+- [14:32 UTC - Good. https://t.co/YGo3uuNvrE](2052758603786821791/)
+  - Source: https://x.com/DHSgov/status/2052758603786821791
+  - Good. https://t.co/YGo3uuNvrE
+- [14:02 UTC - These individuals are NOT in ICE custody. On April 14, 2026, @CBP arrested Isidoro Gonzale...](2052750953804071395/)
+  - Source: https://x.com/DHSgov/status/2052750953804071395
+  - These individuals are NOT in ICE custody. On April 14, 2026, @CBP arrested Isidoro Gonzales Avilés, a criminal illegal alien, and Norma Anabel, near Douglas, Arizona. Avilés illega...
+- [13:13 UTC - "Her killer was here illegally, very complex background, was protected every step of the w...](2052738739621740556/)
+  - Source: https://x.com/DHSgov/status/2052738739621740556
+  - "Her killer was here illegally, very complex background, was protected every step of the way by Illinois. He received incredible special privileges that citizens just simply don’t...
+- [12:55 UTC - In some cases, sanctuary politicians in Dane County only give @ICEgov 30 MINUTES NOTICE be...](2052734190215410001/)
+  - Source: https://x.com/DHSgov/status/2052734190215410001
+  - In some cases, sanctuary politicians in Dane County only give @ICEgov 30 MINUTES NOTICE before RELEASING criminal illegal aliens like this dirtbag from jail. This is RECKLESS. We n...
+- [00:12 UTC - This NEVER should have happened. Deiby Jhonatan Janamejoy Jansasoy, a criminal illegal ali...](2052542226039816537/)
+  - Source: https://x.com/DHSgov/status/2052542226039816537
+  - This NEVER should have happened. Deiby Jhonatan Janamejoy Jansasoy, a criminal illegal alien from Colombia, was arrested for vehicular homicide, DUI, and driving without a valid li...

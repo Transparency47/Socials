@@ -1,0 +1,40 @@
+# X / DHSgov / 2026-04-29
+
+- Posts: 12
+
+- [20:59 UTC - PTA PREDATOR ARRESTED. @EroHarlingen arrested Benjamin Milfelt, a Parent Teacher Associati...](2049594562092437902/)
+  - Source: https://x.com/DHSgov/status/2049594562092437902
+  - PTA PREDATOR ARRESTED. @EroHarlingen arrested Benjamin Milfelt, a Parent Teacher Association board member and member of “Watch D.O.G.S” at Mireles Elementary School in Corpus Chris...
+- [20:40 UTC - Repost of @CBPAMO: GOD BLESS AMERICA! 🇺🇸 https://t.co/qzohp8mESc](2049589770158735726/)
+  - Source: https://x.com/DHSgov/status/2049589770158735726
+  - Repost of @CBPAMO: GOD BLESS AMERICA! 🇺🇸 https://t.co/qzohp8mESc
+- [20:38 UTC - Repost of @EROLosAngeles: Criminals came from around the world to take advantage of our op...](2049589155932340354/)
+  - Source: https://x.com/DHSgov/status/2049589155932340354
+  - Repost of @EROLosAngeles: Criminals came from around the world to take advantage of our open borders. ICE is diligently locating and removing these predators from our communities....
+- [20:38 UTC - Repost of @EROBoston: On April 1, ICE Boston arrested Gaspard Montas, a criminal illegal a...](2049589112026312973/)
+  - Source: https://x.com/DHSgov/status/2049589112026312973
+  - Repost of @EROBoston: On April 1, ICE Boston arrested Gaspard Montas, a criminal illegal alien from Haiti during operations in Taunton, Mass. Montas’ criminal history includes pend...
+- [20:38 UTC - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Ladislao Cuadras-Sau...](2049589052186272204/)
+  - Source: https://x.com/DHSgov/status/2049589052186272204
+  - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Ladislao Cuadras-Sauceda, 48, of Mexico. He was sentenced to 15 years in prison for assault with a firearm and...
+- [19:19 UTC - Every day the NICE men and women of @ICEgov risk their lives to remove murders, rapists, p...](2049569393386848638/)
+  - Source: https://x.com/DHSgov/status/2049569393386848638
+  - Every day the NICE men and women of @ICEgov risk their lives to remove murders, rapists, pedophiles, gang members, and terrorists from our communities. Just yesterday, ICE arrested...
+- [18:38 UTC - The Trump Administration is committed to providing families with the best resources possib...](2049558856695418893/)
+  - Source: https://x.com/DHSgov/status/2049558856695418893
+  - The Trump Administration is committed to providing families with the best resources possible to prevent predators from taking advantage of their children. @Know2Protect is a valuab...
+- [18:04 UTC - .@FEMA’s Disaster Relief Fund —the funding used to respond to and recover from disasters—h...](2049550443701797364/)
+  - Source: https://x.com/DHSgov/status/2049550443701797364
+  - .@FEMA’s Disaster Relief Fund —the funding used to respond to and recover from disasters—has fallen below the level needed to sustain normal operations, with CURRENT projections sh...
+- [16:03 UTC - This illegal alien NEVER should have been allowed to drive on our nation’s roads — but was...](2049519921759912119/)
+  - Source: https://x.com/DHSgov/status/2049519921759912119
+  - This illegal alien NEVER should have been allowed to drive on our nation’s roads — but was given a COMMERCIAL DRIVER’S LICENSE by Gavin Newsom’s sanctuary California. He was then R...
+- [15:27 UTC - Anne Fundner lost her 15-year-old son, Weston, to an accidental overdose in 2022 when he w...](2049510893596127429/)
+  - Source: https://x.com/DHSgov/status/2049510893596127429
+  - Anne Fundner lost her 15-year-old son, Weston, to an accidental overdose in 2022 when he was given a pill that was laced with fentanyl. Weston was a bright young American whose fut...
+- [14:55 UTC - .@GovTimWalz IGNORED the rampant fraud and abuse of taxpayer dollars in Minnesota. The Gov...](2049502866843357230/)
+  - Source: https://x.com/DHSgov/status/2049502866843357230
+  - .@GovTimWalz IGNORED the rampant fraud and abuse of taxpayer dollars in Minnesota. The Governor has NO credibility on this issue. This fraud crackdown has come thanks to the leader...
+- [13:59 UTC - This is NOT a ‘Green Bay man’ — this is a criminal illegal alien who BRUTALLY attacked two...](2049488852666999281/)
+  - Source: https://x.com/DHSgov/status/2049488852666999281
+  - This is NOT a ‘Green Bay man’ — this is a criminal illegal alien who BRUTALLY attacked two people with a machete. The alien, David Joel Herrera-Garcia, from Nicaragua, broke into h...

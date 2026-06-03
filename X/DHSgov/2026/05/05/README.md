@@ -1,0 +1,40 @@
+# X / DHSgov / 2026-05-05
+
+- Posts: 12
+
+- [23:45 UTC - ICE IS NOT SLOWING DOWN. “We haven’t missed a beat. We’re still on track — pushing as hard...](2051810460865896871/)
+  - Source: https://x.com/DHSgov/status/2051810460865896871
+  - ICE IS NOT SLOWING DOWN. “We haven’t missed a beat. We’re still on track — pushing as hard as we can. We just are doing it in a different way by using local law enforcement to work...
+- [22:47 UTC - “We’re doing exactly what we’re supposed to do. We’re enforcing immigration policies throu...](2051796053406417097/)
+  - Source: https://x.com/DHSgov/status/2051796053406417097
+  - “We’re doing exactly what we’re supposed to do. We’re enforcing immigration policies throughout the nation. @ICEgov is doing a phenomenal job.” @SecMullinDHS https://t.co/zWAfHNvlz...
+- [22:12 UTC - While Governor Lamont vilifies the men and women of @ICEgov law enforcement, these are the...](2051787054724403680/)
+  - Source: https://x.com/DHSgov/status/2051787054724403680
+  - While Governor Lamont vilifies the men and women of @ICEgov law enforcement, these are the types of dangerous criminal illegal aliens our heroic officers are working around the clo...
+- [20:50 UTC - For 76 days, Democrats shutdown DHS and used our patriotic workforce as pawns in their pol...](2051766600294883606/)
+  - Source: https://x.com/DHSgov/status/2051766600294883606
+  - For 76 days, Democrats shutdown DHS and used our patriotic workforce as pawns in their political games. This reckless shutdown NEVER should have happened. https://t.co/zGhawMNQBR
+- [20:40 UTC - Repost of @WhiteHouse: 👀👀 https://t.co/zChlueAYec](2051763876107108725/)
+  - Source: https://x.com/DHSgov/status/2051763876107108725
+  - Repost of @WhiteHouse: 👀👀 https://t.co/zChlueAYec
+- [20:04 UTC - National Immigration and Customs Enforcement. 🇺🇸 https://t.co/KhjDINIRLo](2051754837683896415/)
+  - Source: https://x.com/DHSgov/status/2051754837683896415
+  - National Immigration and Customs Enforcement. 🇺🇸 https://t.co/KhjDINIRLo
+- [16:44 UTC - 🚨@ICEgov has arrested a Guatemalan illegal alien CHILD PREDATOR after @GovernorVA and Fair...](2051704676945363348/)
+  - Source: https://x.com/DHSgov/status/2051704676945363348
+  - 🚨@ICEgov has arrested a Guatemalan illegal alien CHILD PREDATOR after @GovernorVA and Fairfax sanctuary politicians RELEASED HIM. Walvin Victor Hugo Garcia was arrested in June 202...
+- [15:35 UTC - This MONSTER sexually assaulted a 10-year-old girl in her own elementary school. The Biden...](2051687208889749961/)
+  - Source: https://x.com/DHSgov/status/2051687208889749961
+  - This MONSTER sexually assaulted a 10-year-old girl in her own elementary school. The Biden administration failed this innocent little girl. The moment this criminal alien was arres...
+- [15:21 UTC - Repost of @CBPCommissioner: .@CBP mourns the loss of Border Patrol Agent Sean M. McDonough...](2051683632083767803/)
+  - Source: https://x.com/DHSgov/status/2051683632083767803
+  - Repost of @CBPCommissioner: .@CBP mourns the loss of Border Patrol Agent Sean M. McDonough. BPA McDonough started his CBP career in 2007. He recently served at the Wellesley Island...
+- [14:20 UTC - .@ICEgov has DEPORTED a Honduran illegal alien who was convicted for trying to smother her...](2051668401492226064/)
+  - Source: https://x.com/DHSgov/status/2051668401492226064
+  - .@ICEgov has DEPORTED a Honduran illegal alien who was convicted for trying to smother her ONE-DAY-OLD son with a pillow. Soili Xiomara Aparicio-Santos was convicted in 2018 of sec...
+- [14:01 UTC - “These arrests are a direct result of the proactive work our agents do every day to identi...](2051663475726852205/)
+  - Source: https://x.com/DHSgov/status/2051663475726852205
+  - “These arrests are a direct result of the proactive work our agents do every day to identify and remove these predators from our neighborhoods." Justin De La Torre, @USBPChiefSDC h...
+- [12:31 UTC - Repost of @DHSgov: Never surrender. Never retreat. https://t.co/IieMr7TqfP](2051640855270752679/)
+  - Source: https://x.com/DHSgov/status/2051640855270752679
+  - Repost of @DHSgov: Never surrender. Never retreat. https://t.co/IieMr7TqfP

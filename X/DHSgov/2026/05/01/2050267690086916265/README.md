@@ -1,0 +1,752 @@
+# Metadata
+- Platform: X
+- Account: DHSgov
+- Account display name: Homeland Security
+- Account ID: 15647676
+- Account URL: https://x.com/DHSgov
+- Post ID: 2050267690086916265
+- Post URL: https://x.com/DHSgov/status/2050267690086916265
+- Title: Repost of @USBPChief: Agents from the Nogales Border Patrol Station apprehended 13 illegal...
+- Date published: 2026-05-01T17:34:44+00:00
+- Date accessed: 2026-06-03T01:58:09.088236+00:00
+- Content kind: repost
+- Language: en
+
+## Metrics
+
+- bookmarks: 0
+- favorites: 0
+- quotes: 0
+- replies: 0
+- retweets: 4173
+- views: 20
+
+## Media Attachments
+
+### Attachment 1: video
+- Source URL: https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/720x1280/8cbYEa3hAbUYTqXo.mp4?tag=12
+- Local file: media/01_video_2050242833219485696.mp4
+- Remote URL: https://cdn.comparify.app/archive/x/dhsgov/8cbYEa3hAbUYTqXo.mp4
+- Remote path: archive/x/dhsgov/8cbYEa3hAbUYTqXo.mp4
+- Preview URL: https://pbs.twimg.com/ext_tw_video_thumb/2050242833219485696/pu/img/C087QFqZm0vNeVcG.jpg
+- Content type: video/mp4
+- Dimensions: 720 x 1280
+
+
+## API Data
+
+```json
+{
+  "profile": {
+    "__typename": "User",
+    "affiliates_highlighted_label": {},
+    "avatar": {
+      "image_url": "https://pbs.twimg.com/profile_images/1882507181481656320/gzdbVHMv_normal.jpg"
+    },
+    "business_account": {
+      "affiliates_count": 4
+    },
+    "can_pay": false,
+    "core": {
+      "created_at": "Tue Jul 29 16:32:34 +0000 2008",
+      "name": "Homeland Security",
+      "screen_name": "DHSgov"
+    },
+    "creator_subscriptions_count": 0,
+    "dm_permissions": {
+      "can_dm": false
+    },
+    "follow_request_sent": false,
+    "has_graduated_access": true,
+    "has_hidden_subscriptions_on_profile": false,
+    "highlights_info": {
+      "can_highlight_tweets": true,
+      "highlighted_tweets": "12"
+    },
+    "id": "VXNlcjoxNTY0NzY3Ng==",
+    "is_blue_verified": true,
+    "is_profile_translatable": false,
+    "legacy": {
+      "default_profile": false,
+      "default_profile_image": false,
+      "description": "With honor and integrity, we will safeguard the American people, our homeland, and our values. #WeAreDHS",
+      "entities": {
+        "description": {},
+        "url": {
+          "urls": [
+            {
+              "display_url": "dhs.gov",
+              "expanded_url": "http://www.dhs.gov/",
+              "indices": [
+                0,
+                23
+              ],
+              "url": "https://t.co/AwsNW68gRr"
+            }
+          ]
+        }
+      },
+      "fast_followers_count": 0,
+      "favourites_count": 2455,
+      "follow_request_sent": false,
+      "followers_count": 2983092,
+      "friends_count": 212,
+      "has_custom_timelines": true,
+      "is_translator": false,
+      "listed_count": 14293,
+      "media_count": 9337,
+      "needs_phone_verification": false,
+      "normal_followers_count": 2983092,
+      "notifications": false,
+      "pinned_tweet_ids_str": [
+        "2036536897724379432"
+      ],
+      "possibly_sensitive": false,
+      "profile_banner_url": "https://pbs.twimg.com/profile_banners/15647676/1737659629",
+      "profile_interstitial_type": "",
+      "statuses_count": 34851,
+      "time_zone": "",
+      "translator_type": "none",
+      "url": "https://t.co/AwsNW68gRr",
+      "utc_offset": 0,
+      "withheld_description": "",
+      "withheld_scope": ""
+    },
+    "legacy_extended_profile": {},
+    "location": {
+      "location": "Washington, D.C."
+    },
+    "media_permissions": {
+      "can_media_tag": false
+    },
+    "parody_commentary_fan_label": "None",
+    "privacy": {
+      "protected": false
+    },
+    "profile_bio": {
+      "description": "With honor and integrity, we will safeguard the American people, our homeland, and our values. #WeAreDHS"
+    },
+    "profile_description_language": "en",
+    "profile_image_shape": "Square",
+    "profile_sort_enabled": true,
+    "relationship_perspectives": {
+      "blocked_by": false,
+      "blocking": false,
+      "followed_by": false,
+      "following": false,
+      "muting": false
+    },
+    "rest_id": "15647676",
+    "super_follow_eligible": false,
+    "super_followed_by": false,
+    "super_following": false,
+    "tipjar_settings": {
+      "bandcamp_handle": "",
+      "bitcoin_handle": "",
+      "cash_app_handle": "",
+      "ethereum_handle": "",
+      "gofundme_handle": "",
+      "is_enabled": false,
+      "patreon_handle": "",
+      "pay_pal_handle": "",
+      "venmo_handle": ""
+    },
+    "user_seed_tweet_count": 10,
+    "verification": {
+      "verified": false,
+      "verified_type": "Government"
+    },
+    "verification_info": {
+      "is_identity_verified": false,
+      "reason": {
+        "description": {
+          "entities": [
+            {
+              "from_index": 91,
+              "ref": {
+                "url": "https://help.twitter.com/en/rules-and-policies/profile-labels",
+                "url_type": "ExternalUrl"
+              },
+              "to_index": 101
+            }
+          ],
+          "text": "This account is verified because it is a government or multilateral organization account.  Learn more"
+        },
+        "verified_since_msec": "1262017209037"
+      }
+    },
+    "verified_phone_status": false
+  },
+  "source": "x_guest_graphql",
+  "tweet": {
+    "__typename": "Tweet",
+    "cashtag_attachments": [],
+    "core": {
+      "user_results": {
+        "result": {
+          "__typename": "User",
+          "affiliates_highlighted_label": {},
+          "avatar": {
+            "image_url": "https://pbs.twimg.com/profile_images/1882507181481656320/gzdbVHMv_normal.jpg"
+          },
+          "can_pay": false,
+          "core": {
+            "created_at": "Tue Jul 29 16:32:34 +0000 2008",
+            "name": "Homeland Security",
+            "screen_name": "DHSgov"
+          },
+          "dm_permissions": {
+            "can_dm": false
+          },
+          "follow_request_sent": false,
+          "has_graduated_access": true,
+          "id": "VXNlcjoxNTY0NzY3Ng==",
+          "is_blue_verified": true,
+          "legacy": {
+            "default_profile": false,
+            "default_profile_image": false,
+            "description": "With honor and integrity, we will safeguard the American people, our homeland, and our values. #WeAreDHS",
+            "entities": {
+              "description": {},
+              "url": {
+                "urls": [
+                  {
+                    "display_url": "dhs.gov",
+                    "expanded_url": "http://www.dhs.gov/",
+                    "indices": [
+                      0,
+                      23
+                    ],
+                    "url": "https://t.co/AwsNW68gRr"
+                  }
+                ]
+              }
+            },
+            "fast_followers_count": 0,
+            "favourites_count": 2455,
+            "follow_request_sent": false,
+            "followers_count": 2983103,
+            "friends_count": 212,
+            "has_custom_timelines": true,
+            "is_translator": false,
+            "listed_count": 14293,
+            "media_count": 9337,
+            "needs_phone_verification": false,
+            "normal_followers_count": 2983103,
+            "notifications": false,
+            "pinned_tweet_ids_str": [
+              "2036536897724379432"
+            ],
+            "possibly_sensitive": false,
+            "profile_banner_url": "https://pbs.twimg.com/profile_banners/15647676/1737659629",
+            "profile_interstitial_type": "",
+            "statuses_count": 34851,
+            "time_zone": "",
+            "translator_type": "none",
+            "url": "https://t.co/AwsNW68gRr",
+            "utc_offset": 0,
+            "withheld_description": "",
+            "withheld_scope": ""
+          },
+          "location": {
+            "location": "Washington, D.C."
+          },
+          "media_permissions": {
+            "can_media_tag": false
+          },
+          "parody_commentary_fan_label": "None",
+          "privacy": {
+            "protected": false
+          },
+          "profile_bio": {
+            "description": "With honor and integrity, we will safeguard the American people, our homeland, and our values. #WeAreDHS"
+          },
+          "profile_description_language": "en",
+          "profile_image_shape": "Square",
+          "relationship_perspectives": {
+            "blocked_by": false,
+            "blocking": false,
+            "followed_by": false,
+            "following": false,
+            "muting": false
+          },
+          "rest_id": "15647676",
+          "super_follow_eligible": false,
+          "super_followed_by": false,
+          "super_following": false,
+          "tipjar_settings": {
+            "bandcamp_handle": "",
+            "bitcoin_handle": "",
+            "cash_app_handle": "",
+            "ethereum_handle": "",
+            "gofundme_handle": "",
+            "is_enabled": false,
+            "patreon_handle": "",
+            "pay_pal_handle": "",
+            "venmo_handle": ""
+          },
+          "verification": {
+            "verified": false,
+            "verified_type": "Government"
+          },
+          "verified_phone_status": false
+        }
+      }
+    },
+    "disallowed_reply_controls": [],
+    "edit_control": {
+      "edit_tweet_ids": [
+        "2050267690086916265"
+      ],
+      "editable_until_msecs": "1777660484105",
+      "edits_remaining": "5",
+      "is_edit_eligible": false
+    },
+    "grok_analysis_button": true,
+    "grok_annotations": {},
+    "grok_translated_post_with_availability": {
+      "is_available": false
+    },
+    "is_translatable": false,
+    "legacy": {
+      "bookmark_count": 0,
+      "bookmarked": false,
+      "conversation_id_str": "2050267690086916265",
+      "created_at": "Fri May 01 17:34:44 +0000 2026",
+      "display_text_range": [
+        0,
+        140
+      ],
+      "entities": {
+        "user_mentions": [
+          {
+            "id_str": "790928380845776896",
+            "indices": [
+              3,
+              13
+            ],
+            "name": "U.S. Border Patrol Chief",
+            "screen_name": "USBPChief"
+          }
+        ]
+      },
+      "favorite_count": 0,
+      "favorited": false,
+      "full_text": "RT @USBPChief: Agents from the Nogales Border Patrol Station apprehended 13 illegal aliens attempting to cross illegally in the remote Sono…",
+      "id_str": "2050267690086916265",
+      "is_quote_status": false,
+      "lang": "en",
+      "quote_count": 0,
+      "reply_count": 0,
+      "retweet_count": 4173,
+      "retweeted": false,
+      "retweeted_status_result": {
+        "result": {
+          "__typename": "Tweet",
+          "cashtag_attachments": [],
+          "core": {
+            "user_results": {
+              "result": {
+                "__typename": "User",
+                "affiliates_highlighted_label": {},
+                "avatar": {
+                  "image_url": "https://pbs.twimg.com/profile_images/2061830156835028992/Wm_DKQ5a_normal.jpg"
+                },
+                "can_pay": false,
+                "core": {
+                  "created_at": "Tue Oct 25 14:49:55 +0000 2016",
+                  "name": "Chief Rosario “Pete” Vasquez",
+                  "screen_name": "USBPChief"
+                },
+                "dm_permissions": {
+                  "can_dm": false
+                },
+                "follow_request_sent": false,
+                "has_graduated_access": true,
+                "id": "VXNlcjo3OTA5MjgzODA4NDU3NzY4OTY=",
+                "is_blue_verified": true,
+                "legacy": {
+                  "default_profile": false,
+                  "default_profile_image": false,
+                  "description": "Chief of the U.S. Border Patrol, honored to lead the elite men and the women of the USBP in securing our nation’s border.",
+                  "entities": {
+                    "description": {},
+                    "url": {
+                      "urls": [
+                        {
+                          "display_url": "youtube.com/@USBorderPatrol",
+                          "expanded_url": "http://www.youtube.com/@USBorderPatrol",
+                          "indices": [
+                            0,
+                            23
+                          ],
+                          "url": "https://t.co/NOXWZL6hs3"
+                        }
+                      ]
+                    }
+                  },
+                  "fast_followers_count": 0,
+                  "favourites_count": 17344,
+                  "follow_request_sent": false,
+                  "followers_count": 114018,
+                  "friends_count": 1085,
+                  "has_custom_timelines": false,
+                  "is_translator": false,
+                  "listed_count": 458,
+                  "media_count": 3123,
+                  "needs_phone_verification": false,
+                  "normal_followers_count": 114018,
+                  "notifications": false,
+                  "pinned_tweet_ids_str": [
+                    "2061829270012387789"
+                  ],
+                  "possibly_sensitive": false,
+                  "profile_banner_url": "https://pbs.twimg.com/profile_banners/790928380845776896/1744994875",
+                  "profile_interstitial_type": "",
+                  "statuses_count": 6059,
+                  "time_zone": "",
+                  "translator_type": "none",
+                  "url": "https://t.co/NOXWZL6hs3",
+                  "utc_offset": 0,
+                  "withheld_description": "",
+                  "withheld_scope": ""
+                },
+                "location": {
+                  "location": "Washington, DC"
+                },
+                "media_permissions": {
+                  "can_media_tag": false
+                },
+                "parody_commentary_fan_label": "None",
+                "privacy": {
+                  "protected": false
+                },
+                "professional": {
+                  "category": [],
+                  "professional_type": "Creator",
+                  "rest_id": "1974101820843958752"
+                },
+                "profile_bio": {
+                  "description": "Chief of the U.S. Border Patrol, honored to lead the elite men and the women of the USBP in securing our nation’s border."
+                },
+                "profile_description_language": "en",
+                "profile_image_shape": "Circle",
+                "relationship_perspectives": {
+                  "blocked_by": false,
+                  "blocking": false,
+                  "followed_by": false,
+                  "following": false,
+                  "muting": false
+                },
+                "rest_id": "790928380845776896",
+                "super_follow_eligible": false,
+                "super_followed_by": false,
+                "super_following": false,
+                "tipjar_settings": {
+                  "bandcamp_handle": "",
+                  "bitcoin_handle": "",
+                  "cash_app_handle": "",
+                  "ethereum_handle": "",
+                  "gofundme_handle": "",
+                  "is_enabled": false,
+                  "patreon_handle": "",
+                  "pay_pal_handle": "",
+                  "venmo_handle": ""
+                },
+                "verification": {
+                  "verified": false
+                },
+                "verified_phone_status": false
+              }
+            }
+          },
+          "disallowed_reply_controls": [],
+          "edit_control": {
+            "edit_tweet_ids": [
+              "2050243966151336296"
+            ],
+            "editable_until_msecs": "1777654827000",
+            "edits_remaining": "5",
+            "is_edit_eligible": true
+          },
+          "grok_analysis_button": true,
+          "grok_translated_post_with_availability": {
+            "is_available": false
+          },
+          "is_translatable": false,
+          "legacy": {
+            "bookmark_count": 415,
+            "bookmarked": false,
+            "conversation_id_str": "2050243966151336296",
+            "created_at": "Fri May 01 16:00:27 +0000 2026",
+            "display_text_range": [
+              0,
+              278
+            ],
+            "entities": {
+              "media": [
+                {
+                  "additional_media_info": {
+                    "monetizable": false
+                  },
+                  "display_url": "pic.x.com/vcbjUI724f",
+                  "expanded_url": "https://x.com/USBPChief/status/2050243966151336296/video/1",
+                  "ext_media_availability": {
+                    "status": "Available"
+                  },
+                  "id_str": "2050242833219485696",
+                  "indices": [
+                    279,
+                    302
+                  ],
+                  "media_key": "7_2050242833219485696",
+                  "media_results": {
+                    "result": {
+                      "media_key": "7_2050242833219485696"
+                    }
+                  },
+                  "media_url_https": "https://pbs.twimg.com/ext_tw_video_thumb/2050242833219485696/pu/img/C087QFqZm0vNeVcG.jpg",
+                  "original_info": {
+                    "focus_rects": [],
+                    "height": 1280,
+                    "width": 720
+                  },
+                  "sizes": {
+                    "large": {
+                      "h": 1280,
+                      "resize": "fit",
+                      "w": 720
+                    },
+                    "medium": {
+                      "h": 1200,
+                      "resize": "fit",
+                      "w": 675
+                    },
+                    "small": {
+                      "h": 680,
+                      "resize": "fit",
+                      "w": 383
+                    },
+                    "thumb": {
+                      "h": 150,
+                      "resize": "crop",
+                      "w": 150
+                    }
+                  },
+                  "type": "video",
+                  "url": "https://t.co/vcbjUI724f",
+                  "video_info": {
+                    "aspect_ratio": [
+                      9,
+                      16
+                    ],
+                    "duration_millis": 31280,
+                    "variants": [
+                      {
+                        "content_type": "application/x-mpegURL",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/pl/x0XDcQRkRmBZfLq4.m3u8?tag=12&v=722"
+                      },
+                      {
+                        "bitrate": 632000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/320x568/VDY3-8F6eHM7fwMo.mp4?tag=12"
+                      },
+                      {
+                        "bitrate": 950000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/480x852/a3-JF_9yOhPlnXKS.mp4?tag=12"
+                      },
+                      {
+                        "bitrate": 2176000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/720x1280/8cbYEa3hAbUYTqXo.mp4?tag=12"
+                      }
+                    ]
+                  }
+                }
+              ]
+            },
+            "extended_entities": {
+              "media": [
+                {
+                  "additional_media_info": {
+                    "monetizable": false
+                  },
+                  "display_url": "pic.x.com/vcbjUI724f",
+                  "expanded_url": "https://x.com/USBPChief/status/2050243966151336296/video/1",
+                  "ext_media_availability": {
+                    "status": "Available"
+                  },
+                  "id_str": "2050242833219485696",
+                  "indices": [
+                    279,
+                    302
+                  ],
+                  "media_key": "7_2050242833219485696",
+                  "media_results": {
+                    "result": {
+                      "media_key": "7_2050242833219485696"
+                    }
+                  },
+                  "media_url_https": "https://pbs.twimg.com/ext_tw_video_thumb/2050242833219485696/pu/img/C087QFqZm0vNeVcG.jpg",
+                  "original_info": {
+                    "focus_rects": [],
+                    "height": 1280,
+                    "width": 720
+                  },
+                  "sizes": {
+                    "large": {
+                      "h": 1280,
+                      "resize": "fit",
+                      "w": 720
+                    },
+                    "medium": {
+                      "h": 1200,
+                      "resize": "fit",
+                      "w": 675
+                    },
+                    "small": {
+                      "h": 680,
+                      "resize": "fit",
+                      "w": 383
+                    },
+                    "thumb": {
+                      "h": 150,
+                      "resize": "crop",
+                      "w": 150
+                    }
+                  },
+                  "type": "video",
+                  "url": "https://t.co/vcbjUI724f",
+                  "video_info": {
+                    "aspect_ratio": [
+                      9,
+                      16
+                    ],
+                    "duration_millis": 31280,
+                    "variants": [
+                      {
+                        "content_type": "application/x-mpegURL",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/pl/x0XDcQRkRmBZfLq4.m3u8?tag=12&v=722"
+                      },
+                      {
+                        "bitrate": 632000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/320x568/VDY3-8F6eHM7fwMo.mp4?tag=12"
+                      },
+                      {
+                        "bitrate": 950000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/480x852/a3-JF_9yOhPlnXKS.mp4?tag=12"
+                      },
+                      {
+                        "bitrate": 2176000,
+                        "content_type": "video/mp4",
+                        "url": "https://video.twimg.com/ext_tw_video/2050242833219485696/pu/vid/avc1/720x1280/8cbYEa3hAbUYTqXo.mp4?tag=12"
+                      }
+                    ]
+                  }
+                }
+              ]
+            },
+            "favorite_count": 15282,
+            "favorited": false,
+            "full_text": "Agents from the Nogales Border Patrol Station apprehended 13 illegal aliens attempting to cross illegally in the remote Sonoran Desert. Among them, one Mexican national was identified as having ties to the Sinaloa Cartel.\n \nOur message is clear: If you cross illegally, you will https://t.co/vcbjUI724f",
+            "id_str": "2050243966151336296",
+            "is_quote_status": false,
+            "lang": "en",
+            "possibly_sensitive": false,
+            "possibly_sensitive_editable": true,
+            "quote_count": 196,
+            "reply_count": 719,
+            "retweet_count": 4173,
+            "retweeted": false,
+            "user_id_str": "790928380845776896"
+          },
+          "note_tweet": {
+            "is_expandable": true,
+            "note_tweet_results": {
+              "result": {
+                "entity_set": {
+                  "hashtags": [],
+                  "smarttags": [],
+                  "symbols": [],
+                  "timestamps": [],
+                  "urls": [],
+                  "user_mentions": [
+                    {
+                      "id_str": "1207069611562340352",
+                      "indices": [
+                        406,
+                        419
+                      ],
+                      "name": "Chief Patrol Agent - Tucson Sector",
+                      "screen_name": "USBPChiefTCA"
+                    },
+                    {
+                      "id_str": "1879644163769335808",
+                      "indices": [
+                        420,
+                        431
+                      ],
+                      "name": "The White House",
+                      "screen_name": "WhiteHouse"
+                    },
+                    {
+                      "id_str": "15647676",
+                      "indices": [
+                        432,
+                        439
+                      ],
+                      "name": "Homeland Security",
+                      "screen_name": "DHSgov"
+                    },
+                    {
+                      "id_str": "16613128",
+                      "indices": [
+                        440,
+                        444
+                      ],
+                      "name": "CBP",
+                      "screen_name": "CBP"
+                    },
+                    {
+                      "id_str": "1184840877212143617",
+                      "indices": [
+                        445,
+                        452
+                      ],
+                      "name": "CBP AMO",
+                      "screen_name": "CBPAMO"
+                    }
+                  ]
+                },
+                "id": "Tm90ZVR3ZWV0OjIwNTAyNDM5NjYwNTA2Mzk4NzI=",
+                "text": "Agents from the Nogales Border Patrol Station apprehended 13 illegal aliens attempting to cross illegally in the remote Sonoran Desert. Among them, one Mexican national was identified as having ties to the Sinaloa Cartel.\n \nOur message is clear: If you cross illegally, you will be arrested, prosecuted, and deported. We remain committed to using every available resource to protect our nation’s borders.\n\n@USBPChiefTCA @WhiteHouse @DHSgov @CBP @CBPAMO"
+              }
+            }
+          },
+          "rest_id": "2050243966151336296",
+          "source": "<a href=\"https://www.hootsuite.com\" rel=\"nofollow\">Hootsuite Inc.</a>",
+          "unmention_data": {},
+          "views": {
+            "count": "244059",
+            "state": "EnabledWithCount"
+          }
+        }
+      },
+      "user_id_str": "15647676"
+    },
+    "quick_promote_eligibility": {
+      "eligibility": "IneligibleUserUnauthorized"
+    },
+    "rest_id": "2050267690086916265",
+    "source": "<a href=\"http://twitter.com/download/iphone\" rel=\"nofollow\">Twitter for iPhone</a>",
+    "unmention_data": {},
+    "views": {
+      "count": "20",
+      "state": "EnabledWithCount"
+    }
+  }
+}
+```

@@ -1,0 +1,46 @@
+# X / DHSgov / 2026-05-04
+
+- Posts: 14
+
+- [23:37 UTC - Never surrender. Never retreat. https://t.co/IieMr7TqfP](2051446049445744769/)
+  - Source: https://x.com/DHSgov/status/2051446049445744769
+  - Never surrender. Never retreat. https://t.co/IieMr7TqfP
+- [22:49 UTC - SICKENING. Illegal alien John Young Cotter Johnstone TORTURED dogs at the Las Vegas animal...](2051434163803181527/)
+  - Source: https://x.com/DHSgov/status/2051434163803181527
+  - SICKENING. Illegal alien John Young Cotter Johnstone TORTURED dogs at the Las Vegas animal shelter where he worked. Thank you to the heroic men and women of @ICEgov who arrested th...
+- [21:31 UTC - Under @POTUS Trump and @SecMullinDHS, our NICE officers NEVER take a day off.  This weeken...](2051414351194533959/)
+  - Source: https://x.com/DHSgov/status/2051414351194533959
+  - Under @POTUS Trump and @SecMullinDHS, our NICE officers NEVER take a day off. This weekend, @ICEgov arrests included numerous murderers, pedophiles, sex criminals, violent assailan...
+- [20:27 UTC - Repost of @SecretSvcSpox: U.S. Secret Service personnel are on the scene of an officer-inv...](2051398360897081354/)
+  - Source: https://x.com/DHSgov/status/2051398360897081354
+  - Repost of @SecretSvcSpox: U.S. Secret Service personnel are on the scene of an officer-involved shooting at 15th Street and Independence Avenue in Washington, D.C. One individual w...
+- [19:20 UTC - Illegal alien DOG ABUSER ARRESTED by @ICEgov. This criminal illegal alien, John Young Cott...](2051381503603479029/)
+  - Source: https://x.com/DHSgov/status/2051381503603479029
+  - Illegal alien DOG ABUSER ARRESTED by @ICEgov. This criminal illegal alien, John Young Cotter Johnstone, faces four felony charges of willfully torturing, maiming, or mutilating ani...
+- [18:57 UTC - MESA COUNTY, COLORADO: Last week, the heroes at @ERODenver arrested Trinidad Manjarrez-Aco...](2051375611617087859/)
+  - Source: https://x.com/DHSgov/status/2051375611617087859
+  - MESA COUNTY, COLORADO: Last week, the heroes at @ERODenver arrested Trinidad Manjarrez-Acosta, a criminal illegal alien from Mexico who was convicted for SEXUAL EXPLOITATION of a C...
+- [18:15 UTC - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Rami Faud Tawasha, 5...](2051365012820640118/)
+  - Source: https://x.com/DHSgov/status/2051365012820640118
+  - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Rami Faud Tawasha, 51, of Jordan. He was convicted of lascivious acts with a child under age 14 and sentenced...
+- [18:14 UTC - Repost of @EROBoston: On April 2, ICE Boston arrested Styven Gabriel Avalo-Nivar, a crimin...](2051364954826023046/)
+  - Source: https://x.com/DHSgov/status/2051364954826023046
+  - Repost of @EROBoston: On April 2, ICE Boston arrested Styven Gabriel Avalo-Nivar, a criminal illegal alien from Dominican Republic, during operations in Boston, Mass. His criminal...
+- [18:14 UTC - Repost of @ERODenver: ICE Denver arrested Jose Sarinana-Gandara a criminal alien from Mexi...](2051364938526900497/)
+  - Source: https://x.com/DHSgov/status/2051364938526900497
+  - Repost of @ERODenver: ICE Denver arrested Jose Sarinana-Gandara a criminal alien from Mexico. He has convictions for assault, DUI &amp; has charges for resisting arrest and obstruc...
+- [16:18 UTC - On Saturday, @ICEgov arrested Chidozie Wilson Okeke, a Nigerian criminal illegal alien wit...](2051335689539567760/)
+  - Source: https://x.com/DHSgov/status/2051335689539567760
+  - On Saturday, @ICEgov arrested Chidozie Wilson Okeke, a Nigerian criminal illegal alien with previous arrests for ASSAULT AND CRIMINAL DRUG POSSESSION. During the arrest, officers f...
+- [15:25 UTC - Repost of @TSA: Lawrence Santucci is an American hero, and an inspiration to all of us at ...](2051322373077348799/)
+  - Source: https://x.com/DHSgov/status/2051322373077348799
+  - Repost of @TSA: Lawrence Santucci is an American hero, and an inspiration to all of us at TSA. We are honored to have this patriot helping to secure our skies and protect our natio...
+- [14:48 UTC - AN INSPIRATION. At 90 years old, Army veteran Lawrence Santucci is the oldest @TSA officer...](2051313003341979706/)
+  - Source: https://x.com/DHSgov/status/2051313003341979706
+  - AN INSPIRATION. At 90 years old, Army veteran Lawrence Santucci is the oldest @TSA officer in the country. His commitment to serving others and keeping our nation safe is truly inc...
+- [13:26 UTC - Repost of @RapidResponse47: This illegal alien gutted his roommate to death — then went to...](2051292434911334472/)
+  - Source: https://x.com/DHSgov/status/2051292434911334472
+  - Repost of @RapidResponse47: This illegal alien gutted his roommate to death — then went to work at Wendy's and brutally murdered his coworker, an innocent mother of three. Democrat...
+- [00:06 UTC - Last night, @ICEgov conducted a targeted enforcement operation in Brooklyn that resulted i...](2051091041827029372/)
+  - Source: https://x.com/DHSgov/status/2051091041827029372
+  - Last night, @ICEgov conducted a targeted enforcement operation in Brooklyn that resulted in the arrest of Chidozie Wilson Okeke, a criminal illegal alien from Nigeria with previous...

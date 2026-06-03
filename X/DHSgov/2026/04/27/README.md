@@ -1,0 +1,40 @@
+# X / DHSgov / 2026-04-27
+
+- Posts: 12
+
+- [23:53 UTC - ICE is NICE. https://t.co/IGykO9CYAp](2048913574097989841/)
+  - Source: https://x.com/DHSgov/status/2048913574097989841
+  - ICE is NICE. https://t.co/IGykO9CYAp
+- [23:02 UTC - In 2006, Jesus Maltos-Chacon, an illegal alien from Mexico, killed 20-year-old Blake Zieto...](2048900578936299818/)
+  - Source: https://x.com/DHSgov/status/2048900578936299818
+  - In 2006, Jesus Maltos-Chacon, an illegal alien from Mexico, killed 20-year-old Blake Zieto in a hit-and-run in Louisiana. Since then, Maltos-Chacon has been on the run — and was RE...
+- [22:34 UTC - 🚨OVER 1,000 TSA officers have been forced to leave the force due to the Democrat shutdown....](2048893541665947965/)
+  - Source: https://x.com/DHSgov/status/2048893541665947965
+  - 🚨OVER 1,000 TSA officers have been forced to leave the force due to the Democrat shutdown. Ahead of the FIFA World Cup and summer travel, this loss has SIGNIFICANTLY decreased TSA’...
+- [22:06 UTC - Thank you to the HEROES of @USCGSoutheast for stopping over 7,000 pounds of cocaine from e...](2048886549761191988/)
+  - Source: https://x.com/DHSgov/status/2048886549761191988
+  - Thank you to the HEROES of @USCGSoutheast for stopping over 7,000 pounds of cocaine from entering our communities and killing more Americans.
+- [20:54 UTC - Every day, our law enforcement officers remove heinous criminals from our communities. Und...](2048868509900247231/)
+  - Source: https://x.com/DHSgov/status/2048868509900247231
+  - Every day, our law enforcement officers remove heinous criminals from our communities. Under @POTUS Trump and @SecMullinDHS criminals are NOT welcome in our country. Over the weeke...
+- [20:12 UTC - Repost of @WhiteHouse: ICE ➡️ NICE AGENTS. 'National Immigration and Customs Enforcement.'...](2048857776282050956/)
+  - Source: https://x.com/DHSgov/status/2048857776282050956
+  - Repost of @WhiteHouse: ICE ➡️ NICE AGENTS. 'National Immigration and Customs Enforcement.' DO IT! https://t.co/ILwl6gVx6j
+- [19:00 UTC - Repost of @RapidResponse47: https://t.co/5NppxPbFxb](2048839655664099799/)
+  - Source: https://x.com/DHSgov/status/2048839655664099799
+  - Repost of @RapidResponse47: https://t.co/5NppxPbFxb
+- [18:07 UTC - Repost of @RapidResponse47: "Saturday night served as yet another reminder of how importan...](2048826472811352205/)
+  - Source: https://x.com/DHSgov/status/2048826472811352205
+  - Repost of @RapidResponse47: "Saturday night served as yet another reminder of how important it is to fund the Department of Homeland Security," says @PressSec. "This defunding of D...
+- [17:44 UTC - Repost of @WhiteHouse: God bless the brave men and women of law enforcement and the Secret...](2048820568812618075/)
+  - Source: https://x.com/DHSgov/status/2048820568812618075
+  - Repost of @WhiteHouse: God bless the brave men and women of law enforcement and the Secret Service. 🇺🇸
+- [17:28 UTC - "Saturday night served as yet another reminder of how important it is to fund the @DHSgov....](2048816574816264520/)
+  - Source: https://x.com/DHSgov/status/2048816574816264520
+  - "Saturday night served as yet another reminder of how important it is to fund the @DHSgov. It is shameful that the United States Congress has kept this vital agency defunded for 73...
+- [16:43 UTC - Repost of @WhiteHouse: Meanwhile, Democrats continue playing political games by keeping th...](2048805365156917449/)
+  - Source: https://x.com/DHSgov/status/2048805365156917449
+  - Repost of @WhiteHouse: Meanwhile, Democrats continue playing political games by keeping the agency responsible for keeping Americans safe shut down, refusing to fund @DHSgov’s crit...
+- [14:25 UTC - Repost of @PressSec: President Trump endorses the idea of changing ICE to NICE https://t.c...](2048770390474788984/)
+  - Source: https://x.com/DHSgov/status/2048770390474788984
+  - Repost of @PressSec: President Trump endorses the idea of changing ICE to NICE https://t.co/rbCGanHV7g

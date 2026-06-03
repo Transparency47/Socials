@@ -1,0 +1,61 @@
+# X / DHSgov / 2026-04-23
+
+- Posts: 19
+
+- [23:52 UTC - Repost of @SecMullinDHS: It’s National Crime Victims week. Removing criminal illegal alien...](2047463642010935426/)
+  - Source: https://x.com/DHSgov/status/2047463642010935426
+  - Repost of @SecMullinDHS: It’s National Crime Victims week. Removing criminal illegal aliens from our streets is just one part of the @ICEgov mission. We are also providing resource...
+- [23:35 UTC - During National Crime Victims Week, ICE is removing criminal illegal aliens from our commu...](2047459474223325393/)
+  - Source: https://x.com/DHSgov/status/2047459474223325393
+  - During National Crime Victims Week, ICE is removing criminal illegal aliens from our communities — and stopping them before they can perpetrate more crimes and create more victims....
+- [23:20 UTC - FAIRFAX, VIRGINIA: @HSI_DC has arrested a criminal illegal CHILD PREDATOR who Virginia san...](2047455598338363456/)
+  - Source: https://x.com/DHSgov/status/2047455598338363456
+  - FAIRFAX, VIRGINIA: @HSI_DC has arrested a criminal illegal CHILD PREDATOR who Virginia sanctuary politicians RELEASED. Roni Mendez-Escobar, an illegal alien from Guatemala, was pre...
+- [21:16 UTC - "I might get death threats when I go on a college campus, but the people I work with at DH...](2047424435603243149/)
+  - Source: https://x.com/DHSgov/status/2047424435603243149
+  - "I might get death threats when I go on a college campus, but the people I work with at DHS get death threats just for showing up to work everyday." - DHS General Counsel, James Pe...
+- [21:05 UTC - DHS AT A BREAKING POINT. Due to the Democrats’ reckless DHS shutdown, employees have misse...](2047421606281039969/)
+  - Source: https://x.com/DHSgov/status/2047421606281039969
+  - DHS AT A BREAKING POINT. Due to the Democrats’ reckless DHS shutdown, employees have missed paychecks, emergency trainings have been canceled, and emergency preparedness is threate...
+- [20:32 UTC - NEW JERSEY: @HSINewark has arrested Nilson Armando Avalos Palacios, a criminal illegal ali...](2047413211519938935/)
+  - Source: https://x.com/DHSgov/status/2047413211519938935
+  - NEW JERSEY: @HSINewark has arrested Nilson Armando Avalos Palacios, a criminal illegal alien MS-13 GANG MEMBER. Avalos Palacios, an illegal alien from El Salvador, has a lengthy cr...
+- [20:29 UTC - Repost of @SecMullinDHS: As Chuck Schumer and Democrats continue pushing for open-border p...](2047412500719710496/)
+  - Source: https://x.com/DHSgov/status/2047412500719710496
+  - Repost of @SecMullinDHS: As Chuck Schumer and Democrats continue pushing for open-border policies that put American lives at risk, the men and women of ICE and CBP are working arou...
+- [19:06 UTC - GUILTY: Jose Ceballos, an alien from Mexico, has been CONVICTED of voter fraud after he il...](2047391730635313661/)
+  - Source: https://x.com/DHSgov/status/2047391730635313661
+  - GUILTY: Jose Ceballos, an alien from Mexico, has been CONVICTED of voter fraud after he illegally voted in numerous elections in the United States. This is not the first time Cebal...
+- [18:09 UTC - INSIDE THE DHS SHUTDOWN Missed paychecks. Canceled emergency trainings. Overdue utility bi...](2047377279068643535/)
+  - Source: https://x.com/DHSgov/status/2047377279068643535
+  - INSIDE THE DHS SHUTDOWN Missed paychecks. Canceled emergency trainings. Overdue utility bills. Depleted stock of basic office supplies. Democrats must STOP playing political games...
+- [17:24 UTC - DISGUSTING rhetoric about our law enforcement from Chuck Schumer. The brave men and women ...](2047366115660087733/)
+  - Source: https://x.com/DHSgov/status/2047366115660087733
+  - DISGUSTING rhetoric about our law enforcement from Chuck Schumer. The brave men and women of ICE and CBP are heroes who put their lives on the line every single day to remove dange...
+- [14:30 UTC - MOST SECURE BORDER IN AMERICAN HISTORY. Under the leadership of @POTUS Trump and @SecMulli...](2047322206229721550/)
+  - Source: https://x.com/DHSgov/status/2047322206229721550
+  - MOST SECURE BORDER IN AMERICAN HISTORY. Under the leadership of @POTUS Trump and @SecMullinDHS, we have brought the crisis at our southern border to an end. Promises made, promises...
+- [14:28 UTC - Repost of @RapidResponse47: https://t.co/ALTqJIceky](2047321619845042612/)
+  - Source: https://x.com/DHSgov/status/2047321619845042612
+  - Repost of @RapidResponse47: https://t.co/ALTqJIceky
+- [14:04 UTC - "Three different times this individual should have been deported and they didn’t. It cost ...](2047315653032337442/)
+  - Source: https://x.com/DHSgov/status/2047315653032337442
+  - "Three different times this individual should have been deported and they didn’t. It cost Sheridan her life." @SecMullinDHS Open borders and sanctuary policies killed Sheridan Gorm...
+- [14:01 UTC - "Why doesn't he [Chuck Schumer] come out and be honest with the American people? He wants ...](2047314906320445834/)
+  - Source: https://x.com/DHSgov/status/2047314906320445834
+  - "Why doesn't he [Chuck Schumer] come out and be honest with the American people? He wants to have open borders." @SecMullinDHS https://t.co/9xwmqdJKLn
+- [13:54 UTC - Repost of @PressSec: Angel Parents of Sheridan Gorman: This Was a ‘Preventable Murder,’ Ne...](2047313220449276354/)
+  - Source: https://x.com/DHSgov/status/2047313220449276354
+  - Repost of @PressSec: Angel Parents of Sheridan Gorman: This Was a ‘Preventable Murder,’ Never Should Have Happened https://t.co/lygjLWwi6U
+- [12:46 UTC - Repost of @DHSgov: GOD BLESS AMERICA AND THE PATRIOTS DEFENDING OUR HOMELAND 🇺🇸 https://t....](2047296141033709898/)
+  - Source: https://x.com/DHSgov/status/2047296141033709898
+  - Repost of @DHSgov: GOD BLESS AMERICA AND THE PATRIOTS DEFENDING OUR HOMELAND 🇺🇸 https://t.co/MTTRr0YOgD
+- [12:45 UTC - Repost of @DHSgov: This is our why. In February 2024, Laken Riley was murdered by an illeg...](2047295829598203998/)
+  - Source: https://x.com/DHSgov/status/2047295829598203998
+  - Repost of @DHSgov: This is our why. In February 2024, Laken Riley was murdered by an illegal alien who NEVER should have been in our country. This National Crime Victims Week, we h...
+- [01:40 UTC - Repost of @SecMullinDHS: At @DHSgov, our only mission is to protect the Homeland. While De...](2047128478961610789/)
+  - Source: https://x.com/DHSgov/status/2047128478961610789
+  - Repost of @SecMullinDHS: At @DHSgov, our only mission is to protect the Homeland. While Democrats continue the political theatre, DHS is running out of funds to pay the patriots wh...
+- [00:20 UTC - GOD BLESS AMERICA AND THE PATRIOTS DEFENDING OUR HOMELAND 🇺🇸 https://t.co/MTTRr0YOgD](2047108312831762934/)
+  - Source: https://x.com/DHSgov/status/2047108312831762934
+  - GOD BLESS AMERICA AND THE PATRIOTS DEFENDING OUR HOMELAND 🇺🇸 https://t.co/MTTRr0YOgD

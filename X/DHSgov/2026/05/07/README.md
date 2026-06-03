@@ -1,0 +1,46 @@
+# X / DHSgov / 2026-05-07
+
+- Posts: 14
+
+- [22:07 UTC - Under @POTUS Trump and @SecMullinDHS, the NICE men and women of ICE will NOT allow crimina...](2052510773256053118/)
+  - Source: https://x.com/DHSgov/status/2052510773256053118
+  - Under @POTUS Trump and @SecMullinDHS, the NICE men and women of ICE will NOT allow criminals to terrorize American citizens. Yesterday, ICE arrested multiple pedophiles, violent as...
+- [21:44 UTC - THIS IS OUR WHY.   Sheridan Gorman had her whole life ahead of her before this cold-bloode...](2052504804308680791/)
+  - Source: https://x.com/DHSgov/status/2052504804308680791
+  - THIS IS OUR WHY. Sheridan Gorman had her whole life ahead of her before this cold-blooded killer decided to end her life. She was failed by open border policies and sanctuary polit...
+- [20:15 UTC - Repost of @RapidResponse47: "My child should have been safe in any city in this country, a...](2052482397560582350/)
+  - Source: https://x.com/DHSgov/status/2052482397560582350
+  - Repost of @RapidResponse47: "My child should have been safe in any city in this country, and she wasn’t. I blame Chicago, I do. This was not a Loyola problem, this was a Chicago pr...
+- [20:15 UTC - Repost of @RapidResponse47: Sheridan Gorman's mom: "President Trump called us — and despit...](2052482353746878545/)
+  - Source: https://x.com/DHSgov/status/2052482353746878545
+  - Repost of @RapidResponse47: Sheridan Gorman's mom: "President Trump called us — and despite what people might think, he did not say one thing political. He just basically held us....
+- [19:57 UTC - DANE COUNTY, WISCONSIN: Sanctuary politicians MUST NOT RELEASE THIS CRIMINAL. Julio Cesar ...](2052477922670256136/)
+  - Source: https://x.com/DHSgov/status/2052477922670256136
+  - DANE COUNTY, WISCONSIN: Sanctuary politicians MUST NOT RELEASE THIS CRIMINAL. Julio Cesar Morales Jarquin, a Nicaraguan illegal alien, SEXUALLY ASSAULTED elderly vulnerable residen...
+- [17:56 UTC - Repost of @DHSgov: Have a NICE day! https://t.co/DqVMnSyN1e](2052447418247938416/)
+  - Source: https://x.com/DHSgov/status/2052447418247938416
+  - Repost of @DHSgov: Have a NICE day! https://t.co/DqVMnSyN1e
+- [17:18 UTC - Repost of @ERODenver: ICE Denver arrested Alfonso Jimenez-Guzman a criminal alien from Mex...](2052437898708836588/)
+  - Source: https://x.com/DHSgov/status/2052437898708836588
+  - Repost of @ERODenver: ICE Denver arrested Alfonso Jimenez-Guzman a criminal alien from Mexico. He has convictions for controlled sub. poss., indecent exposure, annoy/molest childre...
+- [17:18 UTC - Repost of @EROSanDiego: ICE San Diego arrested Rene Wilson a criminal illegal alien from C...](2052437859626262711/)
+  - Source: https://x.com/DHSgov/status/2052437859626262711
+  - Repost of @EROSanDiego: ICE San Diego arrested Rene Wilson a criminal illegal alien from Cuba. Wilson has criminal convictions for failure to register as a sex offender, indecent e...
+- [17:18 UTC - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Guadalupe Solorio-Pl...](2052437829360267393/)
+  - Source: https://x.com/DHSgov/status/2052437829360267393
+  - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Guadalupe Solorio-Plancarte, 58, of Mexico. He is a registered sex offender with pending charges for assault w...
+- [16:55 UTC - This is our why. Carissa Aspnes was riding on the back of a motorcycle when she was hit by...](2052432127581454546/)
+  - Source: https://x.com/DHSgov/status/2052432127581454546
+  - This is our why. Carissa Aspnes was riding on the back of a motorcycle when she was hit by an illegal alien who was released into our nation by the Biden administration. The crash...
+- [15:17 UTC - 🚨Wisconsin sanctuary politicians MUST NOT RELEASE Julio Cesar Morales Jarquin, a Nicaragua...](2052407556002222509/)
+  - Source: https://x.com/DHSgov/status/2052407556002222509
+  - 🚨Wisconsin sanctuary politicians MUST NOT RELEASE Julio Cesar Morales Jarquin, a Nicaraguan illegal alien who is charged with TWO COUNTS of SEXUAL ASSAULT of an elderly victim. Mor...
+- [14:05 UTC - Have a NICE day! https://t.co/DqVMnSyN1e](2052389262989926576/)
+  - Source: https://x.com/DHSgov/status/2052389262989926576
+  - Have a NICE day! https://t.co/DqVMnSyN1e
+- [13:20 UTC - “Tom Homan and I talk almost every single day. We have a great relationship…There are a lo...](2052378085144596603/)
+  - Source: https://x.com/DHSgov/status/2052378085144596603
+  - “Tom Homan and I talk almost every single day. We have a great relationship…There are a lot of known criminals harboring themselves in New York, the governor knows this, the mayor...
+- [13:05 UTC - Repost of @RapidResponse47: .@SecMullinDHS says "kamikaze Democrats" put our homeland at r...](2052374146437308650/)
+  - Source: https://x.com/DHSgov/status/2052374146437308650
+  - Repost of @RapidResponse47: .@SecMullinDHS says "kamikaze Democrats" put our homeland at risk with their reckless shutdown of @DHSgov: "I was in my office watching the vote as it g...

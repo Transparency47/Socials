@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-13
 
-- Posts: 18
+- Posts: 22
 
 - [23:16 UTC - Repost of @SecMullinDHS: Today, we honored the @ICEgov law enforcement personnel who made ...](2054702358018289830/)
   - Source: https://x.com/DHSgov/status/2054702358018289830
@@ -56,3 +56,15 @@
 - [13:34 UTC - Repost of @DHSgov: Tennessee, deportations at their best. https://t.co/Wktc6BylDt](2054555983586750742/)
   - Source: https://x.com/DHSgov/status/2054555983586750742
   - Repost of @DHSgov: Tennessee, deportations at their best. https://t.co/Wktc6BylDt
+- [13:33 UTC - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Aldo Enrique Zermeno...](2054555701846880727/)
+  - Source: https://x.com/DHSgov/status/2054555701846880727
+  - Repost of @EROSanFrancisco: ICE San Francisco arrested criminal alien Aldo Enrique Zermeno Martinez, 33, of Mexico. Zermeno is wanted in Mexico on charges of child sexual abuse. He...
+- [13:33 UTC - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Lucas Tapia-Tapia, an illegal alien fr...](2054555687426924610/)
+  - Source: https://x.com/DHSgov/status/2054555687426924610
+  - Repost of @ERONewOrleans: 🚨ICE New Orleans arrested Lucas Tapia-Tapia, an illegal alien from Guatemala. 🇬🇹 💥Criminal history includes arrests for malicious mischief involving prope...
+- [13:33 UTC - Repost of @EROBoston: On April 15, ERO Boston arrested Carlos Eduardo Batres Renderoz, a c...](2054555670234484740/)
+  - Source: https://x.com/DHSgov/status/2054555670234484740
+  - Repost of @EROBoston: On April 15, ERO Boston arrested Carlos Eduardo Batres Renderoz, a criminal illegal alien and suspected 18th Street gang member from El Salvador. Batres’ crim...
+- [00:06 UTC - “Given the radical activists President Biden installed across the country, this case of ju...](2054352541593313765/)
+  - Source: https://x.com/DHSgov/status/2054352541593313765
+  - “Given the radical activists President Biden installed across the country, this case of judicial misconduct is neither surprising nor uncommon.” - DHS General Counsel, James Perciv...
