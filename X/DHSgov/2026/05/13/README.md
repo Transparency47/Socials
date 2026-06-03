@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-13
 
-- Posts: 17
+- Posts: 18
 
 - [23:16 UTC - Repost of @SecMullinDHS: Today, we honored the @ICEgov law enforcement personnel who made ...](2054702358018289830/)
   - Source: https://x.com/DHSgov/status/2054702358018289830
@@ -53,3 +53,6 @@
 - [14:16 UTC - If you enter the United States illegally, you will face the consequences, including FINES....](2054566389172568302/)
   - Source: https://x.com/DHSgov/status/2054566389172568302
   - If you enter the United States illegally, you will face the consequences, including FINES. These fines include: ➡️$100-$500 for unlawful entry or attempted entry ➡️$1,992 to $9,970...
+- [13:34 UTC - Repost of @DHSgov: Tennessee, deportations at their best. https://t.co/Wktc6BylDt](2054555983586750742/)
+  - Source: https://x.com/DHSgov/status/2054555983586750742
+  - Repost of @DHSgov: Tennessee, deportations at their best. https://t.co/Wktc6BylDt
