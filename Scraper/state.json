@@ -1,6 +1,6 @@
 {
   "last_errors": [],
-  "last_successful_run": "2026-06-03T02:29:53.509850+00:00",
+  "last_successful_run": "2026-06-03T02:38:05.165887+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7432520023958146335": {
       "account": "RealDonaldTrump",
@@ -8449,6 +8449,28 @@
       "published": "2026-06-01T18:44:03+00:00",
       "title": "This is the way",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7646499579185171743"
+    },
+    "tiktok:whitehouse:7646853333579304205": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-03T02:38:01.197176+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/02/7646853333579304205",
+      "platform": "tiktok",
+      "post_id": "7646853333579304205",
+      "published": "2026-06-02T17:36:59+00:00",
+      "title": "ICE Tip Line: 866-DHS-2-ICE",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7646853333579304205"
+    },
+    "tiktok:whitehouse:7646962639888813325": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-03T02:38:01.197138+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/03/7646962639888813325",
+      "platform": "tiktok",
+      "post_id": "7646962639888813325",
+      "published": "2026-06-03T00:41:02+00:00",
+      "title": "\ud83d\udc51 \ud83d\udc51 \ud83d\udc51",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7646962639888813325"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",

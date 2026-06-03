@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-03T02:30:15.819647+00:00",
+  "generatedAt": "2026-06-03T02:38:28.348113+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -23,6 +23,41 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683400326307426",
       "summary": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is running to be the next Attorney General of the Wonderful State of Nevada. Adriana is strongly supported by many of the greatest MAGA Warriors in Nevada, including my friend, Governor Joe Lombard",
       "title": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is runn..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-03",
+      "id": "socials:c398d7223ff048c1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T02:38:01.197138+00:00",
+        "datePublished": "2026-06-03T00:41:02+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7646962639888813325.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7646962639888813325.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646962639888813325",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646962639888813325.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7646962639888813325.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646962639888813325.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7646962639888813325"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/03/7646962639888813325/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/03/7646962639888813325/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646962639888813325",
+      "summary": "\ud83d\udc51 \ud83d\udc51 \ud83d\udc51",
+      "title": "\ud83d\udc51 \ud83d\udc51 \ud83d\udc51"
     },
     {
       "category": "TruthSocial",
@@ -981,6 +1016,41 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116681778563640531",
       "summary": "In a sign of Strength and Fortitude, it was just announced that The White House Correspondents\u2019 Dinner, which violently ended rather abruptly on April 25th, will be rescheduled to July 24th. This announcement is a very good thing in that we cannot allow Lunatics to change our way",
       "title": "In a sign of Strength and Fortitude, it was just announced that The White House Correspond..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-02",
+      "id": "socials:adff31fbd1a8534a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-03T02:38:01.197176+00:00",
+        "datePublished": "2026-06-02T17:36:59+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7646853333579304205.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7646853333579304205.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646853333579304205",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646853333579304205.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7646853333579304205.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646853333579304205.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7646853333579304205"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/02/7646853333579304205/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/02/7646853333579304205/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646853333579304205",
+      "summary": "ICE Tip Line: 866-DHS-2-ICE",
+      "title": "ICE Tip Line: 866-DHS-2-ICE"
     },
     {
       "category": "TruthSocial",
