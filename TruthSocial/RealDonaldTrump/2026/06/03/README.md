@@ -1,7 +1,40 @@
 # TruthSocial / RealDonaldTrump / 2026-06-03
 
-- Posts: 5
+- Posts: 16
 
+- [02:44 UTC - Truth Social post 116683877370609119](116683877370609119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683877370609119
+  - _No text content captured._
+- [02:44 UTC - Truth Social post 116683876508476653](116683876508476653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683876508476653
+  - _No text content captured._
+- [02:44 UTC - Truth Social post 116683875902512231](116683875902512231/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683875902512231
+  - _No text content captured._
+- [02:44 UTC - Truth Social post 116683875350368289](116683875350368289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683875350368289
+  - _No text content captured._
+- [02:43 UTC - Truth Social post 116683874638445112](116683874638445112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683874638445112
+  - _No text content captured._
+- [02:43 UTC - Truth Social post 116683873843927336](116683873843927336/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683873843927336
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116683583514508103](116683583514508103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683583514508103
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116683582815618514](116683582815618514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683582815618514
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116683582085637115](116683582085637115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683582085637115
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116683581464254333](116683581464254333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683581464254333
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116683580768849577](116683580768849577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683580768849577
+  - _No text content captured._
 - [00:43 UTC - It is my Great Honor to endorse America First Patriot, Adriana Guzmán Fralick, who is runn...](116683400326307426/)
   - Source: https://truthsocial.com/@realDonaldTrump/116683400326307426
   - It is my Great Honor to endorse America First Patriot, Adriana Guzmán Fralick, who is running to be the next Attorney General of the Wonderful State of Nevada. Adriana is strongly...

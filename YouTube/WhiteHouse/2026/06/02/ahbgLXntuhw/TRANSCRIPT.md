@@ -1,0 +1,1205 @@
+<!-- source: https://www.youtube.com/watch?v=ahbgLXntuhw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ahbgLXntuhw -->
+<!-- date_published: 2026-06-02T17:56:55+00:00 -->
+<!-- date_accessed: 2026-06-03T02:50:04.365505+00:00 -->
+
+# Transcript: CMS Administrator Dr. Mehmet Oz Briefs Members of the Media, Jun. 2, 2026
+
+- [00:07.839] Good afternoon everybody.
+- [00:11.040] It's
+- [00:11.200] >> like I'm talking to a classroom.
+- [00:13.679] Uh I've got a couple announcements then
+- [00:15.599] love to take some questions for you. Uh
+- [00:17.359] when the president came in for this
+- [00:19.439] term, he commented on how challenging it
+- [00:21.600] had been to deal with the affordability
+- [00:23.680] crisis in pharmaceutical medications. uh
+- [00:26.320] often commenting on the fact that he'd
+- [00:27.680] been able to reduce the price by 1/8 of
+- [00:29.439] 1% at one point in the first
+- [00:31.039] administration and he thought that was a
+- [00:33.120] massive achievement because it's usually
+- [00:34.399] just skyrocketing and uh it's an
+- [00:37.440] important issue for a lot of folks in
+- [00:39.120] America because almost one in three
+- [00:41.840] Americans when they go to a pharmacy to
+- [00:43.600] pick up a medication that their doctors
+- [00:45.600] prescribe for them leaves empty-handed
+- [00:47.680] because they can't afford the medication
+- [00:49.280] especially for branded products and part
+- [00:51.520] of the reason for this it's unknown to a
+- [00:53.120] lot of Americans but it's well
+- [00:54.160] recognized by the president and this
+- [00:55.360] administration ation is that our drug
+- [00:56.800] prices are about three times higher on
+- [00:59.680] average than the same drugs made in the
+- [01:01.760] same facilities in the same American
+- [01:03.840] factories oftent times than they are
+- [01:06.320] charging patients overseas in Europe,
+- [01:08.560] Asia and other parts of the world. It's
+- [01:10.720] global freeloading. It's wrong.
+- [01:12.720] president demanded that we change it.
+- [01:14.720] And as most of you know, we spent much
+- [01:16.560] of last year negotiating with the 17
+- [01:18.799] largest pharmaceutical companies that
+- [01:20.880] drive over 80% of the entire business in
+- [01:22.799] branded pharmaceuticals. And every
+- [01:24.320] single one of them agreed uh to a most
+- [01:26.640] favored nation drug pricing strategy,
+- [01:28.479] which simply stated means that these
+- [01:30.799] medications um especially going into the
+- [01:33.280] future will be priced at the same amount
+- [01:35.520] as the rest of the world. It doesn't
+- [01:36.960] mean price fixing. We're not telling
+- [01:38.720] pharmaceutical companies what to charge.
+- [01:40.640] We're saying to them, whatever you
+- [01:41.920] charge us, you got to charge the other
+- [01:43.280] folks, which means we might be able to
+- [01:45.520] help you overseas to get better pricing
+- [01:47.280] so that uh you can make up some of the
+- [01:49.040] losses that you'll experience here. And
+- [01:51.040] uh the uh council of economic adviserss
+- [01:53.200] estimated that the benefit of the
+- [01:55.040] president's negotiated program is about
+- [01:57.600] $600 billion over the next 10 years.
+- [02:00.240] $600 billion of savings. The question
+- [02:02.159] then becomes, how do you actually get
+- [02:03.280] that savings to the American people? and
+- [02:05.439] we worked together with some wonderful
+- [02:07.040] folks, Jobia and Corine, who who have
+- [02:09.599] been building the Trump rx.gov site and
+- [02:12.480] I've got an announcement that today uh
+- [02:14.400] we are adding 160 more drugs to this
+- [02:17.440] site. Now, the site already has 700 or
+- [02:21.120] so or 600 or so drugs. So, it's going to
+- [02:23.120] take it over 750 total. But, uh that is
+- [02:26.239] an important number for other reasons.
+- [02:27.760] It means that four out of five
+- [02:29.120] medications that are picked up by
+- [02:31.280] Americans going into that same drugstore
+- [02:33.040] that I mentioned earlier, now have the
+- [02:35.200] opportunity to double check that the
+- [02:36.560] price they're getting in that drugstore,
+- [02:37.920] wherever they're buying it from, is the
+- [02:39.840] the best price out there. So, it's a
+- [02:41.599] transparency site. It gives everybody
+- [02:43.680] the ability to make important decisions
+- [02:46.000] about medications they're purchasing
+- [02:47.680] with full knowledge of what the cost of
+- [02:49.920] those medications are. And that's
+- [02:51.360] important because transparency drives
+- [02:53.360] cost-effective changes in how we procure
+- [02:55.760] and consume products. You would never
+- [02:57.360] buy a car without knowing the cost of
+- [02:59.120] the car. Some of these medications cost
+- [03:00.640] what a car costs. And so these are
+- [03:02.480] important assets for the American people
+- [03:04.560] to have. I'll put some numbers on this.
+- [03:06.480] In the two weeks since we did the last
+- [03:08.800] pro uh event with the president on this
+- [03:11.200] topic, uh we've now up to about 12
+- [03:13.360] million unique visitors to the site.
+- [03:15.920] Estimated saves savings are about 500
+- [03:18.640] million dollars and again climbing
+- [03:20.400] rapidly as more Americans learn about
+- [03:22.640] the program. And it is our great hope
+- [03:24.640] and and belief that uh the average
+- [03:27.280] American before they make a purchasing
+- [03:29.519] decision for a pharmaceutical product
+- [03:31.360] will start using Trump rx.gov as a
+- [03:33.680] standard as a baseline uh to take
+- [03:35.760] advantage of something that's been given
+- [03:37.200] to you. Given there's no money made from
+- [03:38.959] this site. The the government does not
+- [03:40.959] charge money to people using this site.
+- [03:43.120] It's an opportunity for you to be
+- [03:44.640] empowered. That stated, uh I want to add
+- [03:47.440] to that one additional insight that some
+- [03:49.280] of you uh would like to hear, which is
+- [03:51.040] that starting on July 1st, uh the the
+- [03:53.920] patients on beneficiaries on Medicare
+- [03:56.560] who are eligible uh for GLP products,
+- [03:59.360] the weight loss products that the
+- [04:00.640] president speaks of frequently will be
+- [04:02.480] allowed to obtain those products for $50
+- [04:04.879] a month. Now, the list price, as you
+- [04:06.959] know, for these drugs is well over
+- [04:08.640] $1,000 a month. We've been working hard
+- [04:10.879] to push down on these prices to make
+- [04:12.640] sure that these medications, which can
+- [04:14.879] be life-changing and even life- savings
+- [04:16.799] because of their impact on weight loss
+- [04:18.400] and downstream complications like
+- [04:20.160] diabetes and hypertension and all the
+- [04:22.079] things that they cause like kidney
+- [04:23.360] failure and heart disease and and
+- [04:24.960] strokes and and dementia, given cancers,
+- [04:27.360] all those risk factors are going to be
+- [04:29.280] mitigated. We believe if these
+- [04:30.639] medications are used correctly and so
+- [04:32.800] when doctors prescribe them, uh Medicare
+- [04:35.040] beneficiaries will be able to obtain
+- [04:36.400] them for $50 a month. And we are hopeful
+- [04:39.600] that over the next few years we will
+- [04:41.120] show an actual savings to the American
+- [04:42.720] taxpayer if these medications are used
+- [04:45.120] correctly and appropriately and
+- [04:46.639] consistently so folks get the weight
+- [04:48.400] loss they desire with the downstream
+- [04:50.000] benefits uh that I mentioned earlier. Uh
+- [04:52.479] I also want to touch uh briefly on the
+- [04:54.800] crushing of fraud, waste and abuse made
+- [04:57.280] possible by the vice president's
+- [04:59.360] anti-fraud task force. The White House
+- [05:01.520] task force has been aggressively going
+- [05:03.360] after an all of government approach.
+- [05:05.280] I'll speak personally as the person
+- [05:06.880] charged with the Medicare and Medicaid
+- [05:09.120] services. When we identify by looking at
+- [05:11.520] the data that which we have plenty of
+- [05:13.840] that there's anarency in how these uh
+- [05:16.080] bills are coming into us. So there might
+- [05:17.600] be fraud there. It's incredibly
+- [05:19.600] empowering for us to quickly call the
+- [05:21.520] Office of Inspector General or the FBI,
+- [05:23.440] the Department of Justice uh and to have
+- [05:25.440] Todd Blanch call back and say, "Here's
+- [05:26.960] what we're going to do about what you
+- [05:28.000] just observed or call Scott Besson at
+- [05:30.000] Treasury and say we need forensic
+- [05:31.759] accounting. Something is going on here.
+- [05:33.360] Where are they hiding the money?" And I
+- [05:35.120] want to emphasize that this is
+- [05:36.479] sophisticated work because our opponents
+- [05:38.320] are extraordinarily uh uh sophisticated
+- [05:41.199] in their attacks on our system. They
+- [05:43.280] just need to have a Medicare beneficiary
+- [05:45.039] number or some of their ID, which is
+- [05:46.400] basically a credit card, and they can
+- [05:48.000] begin charging against the federal uh
+- [05:50.240] tax dollars that go into Medicare and
+- [05:52.240] Medicaid. That's one of the reasons
+- [05:53.680] we're seeing such high amounts of fraud
+- [05:56.080] in different parts of the country. And
+- [05:57.759] we believe there are organized criminal
+- [05:59.520] groups behind some of these endeavors.
+- [06:01.600] So, I wanted to walk you through a
+- [06:02.960] couple of these examples because our
+- [06:04.479] goal is to stop the money from ever
+- [06:06.080] leaving the building. That is the best
+- [06:07.840] way to protect the American taxpayer.
+- [06:10.000] Um, as you know, we were in Minnesota
+- [06:11.919] last week, uh, where the largest autism
+- [06:15.280] uh, takedown occurred. Uh, a mother and
+- [06:17.600] a daughter, adult daughter were accused
+- [06:19.360] of tens of millions of dollars of theft.
+- [06:21.680] Uh, and just to put this in perspective,
+- [06:23.840] the reason these are so important is if
+- [06:25.520] you defraud the system, you don't just
+- [06:27.280] take money out of the system. people
+- [06:29.280] steal your money. The money from our
+- [06:31.680] most vulnerable Americans are going to
+- [06:32.960] steal their health. They'll steal their
+- [06:34.400] life. And that's what we have been
+- [06:36.080] seeing in some of these takedowns.
+- [06:37.919] Unfortunately, when these events don't
+- [06:40.080] happen in a timely fashion, you lose the
+- [06:41.759] whole program. So, in Minnesota, the
+- [06:43.759] state itself stopped non-emergency
+- [06:45.840] medical transportation, which is when
+- [06:47.440] you need someone to take you to the
+- [06:48.720] doctor's appointment. They cut the whole
+- [06:50.240] program. It's gone. It's finished
+- [06:51.840] because they could not deal with the
+- [06:53.199] fraud. It went from an estimated million
+- [06:54.960] dollars a year. how much can it cost to
+- [06:56.479] take a a car to a doctor's office to
+- [06:58.720] over a hundred million dollars a year.
+- [07:00.560] So, they killed the program and that of
+- [07:02.479] course we believe because it doesn't
+- [07:04.240] provide the the kind of care we desire
+- [07:06.800] uh for our our fellow Americans can be
+- [07:08.880] problematic. We don't want that to
+- [07:10.560] happen in other endeavors as well. So,
+- [07:12.560] we've been working with the state of
+- [07:13.680] Minnesota. We're not happy with some of
+- [07:15.440] the things we've been uh encountering as
+- [07:17.280] we look at their receipts on the
+- [07:19.120] services they provided, which is why we
+- [07:20.639] deferred $350 million to the state of
+- [07:23.199] Minnesota and we're waiting to hear
+- [07:24.639] feedback from them. Other states have
+- [07:26.319] also been problematic. California comes
+- [07:28.240] to mind where we've made several trips
+- [07:29.919] of late. Uh one-third of all of the
+- [07:32.000] hospice in the entire country and
+- [07:33.919] hospice is this precious, beautiful
+- [07:35.520] program built in the 80s to take care of
+- [07:37.520] people with dignity in the last months
+- [07:38.960] of their life. Classically, someone has
+- [07:40.800] metastatic cancer, they're going to die.
+- [07:43.120] uh it's going to happen in a few months,
+- [07:44.560] you give up your Medicare because why
+- [07:46.080] would you want Medicare? You don't need
+- [07:47.360] all those things. Take hospice instead.
+- [07:49.440] But that trade has risks with it if you
+- [07:51.280] don't actually have a lethal problem.
+- [07:53.039] And when one-third of all the hospices
+- [07:54.800] in the entire country are in Los
+- [07:56.879] Angeles, not even California and Los
+- [07:58.879] Angeles. That creates issues. First of
+- [08:01.199] all, it's not plausible, but it also
+- [08:02.800] means someone's been ignoring the
+- [08:04.000] problem. And in fact, there was a call
+- [08:06.319] four years ago by the state auditor in
+- [08:08.000] California to address these problems. It
+- [08:09.599] was not managed. So, uh, our agency has
+- [08:12.160] now suspended payments to 850. Almost
+- [08:14.639] half of all the hospices in California
+- [08:17.599] now have been suspended, but they're no
+- [08:19.360] longer being paid. And, uh, we're going
+- [08:21.360] to keep aggressively going at this
+- [08:22.879] problem because when we go after hospice
+- [08:24.639] in California, guess what happens?
+- [08:26.160] Hospice in Nevada went up sevenfold.
+- [08:28.080] Hospice in Arizona, hospice in Texas,
+- [08:29.919] they've all gone up. These scoundrels
+- [08:31.520] run to other areas. I just learned this
+- [08:33.200] morning, now they're infiltrating the
+- [08:35.039] home health care space in California,
+- [08:37.039] which is equally a problem because now
+- [08:38.880] they're taking advantage of a different
+- [08:40.000] sector of the population, this time
+- [08:41.440] Medicaid, but using nefarious uh
+- [08:43.599] techniques and technologies to do that
+- [08:45.519] as well. And again, these are organized
+- [08:46.880] criminal syndicates, we believe in many
+- [08:48.399] instances. And that's why being a
+- [08:50.720] personal care service attendant, which
+- [08:53.120] is again doing something that your
+- [08:55.120] family would normally do for you,
+- [08:56.320] carrying groceries upstairs, driving you
+- [08:58.480] somewhere, that that job is now by
+- [09:01.600] twofold the most common job in
+- [09:04.080] California. And it's the most common job
+- [09:06.560] in New York. Again, this defies belief
+- [09:09.360] that you could get that much growth in
+- [09:10.959] single sectors, but these are well-paid
+- [09:13.040] jobs uh that have become now
+- [09:15.120] ubiquitously available. There's not been
+- [09:17.360] strong guard rails. The last
+- [09:18.800] administration did not think that this
+- [09:20.800] was an important endpoint. The end point
+- [09:22.480] was enrolling people and getting people
+- [09:24.720] onto these different programs and that
+- [09:26.640] has led to a tremendous opportunity for
+- [09:28.399] corrupting the system and that's what
+- [09:30.080] we're witnessing. Uh with that in mind,
+- [09:31.920] there's lots we can do to fix these
+- [09:33.440] problems. We've been aggressively going
+- [09:34.880] after states red and blue. Uh we wrote a
+- [09:37.680] letter to Florida. The difference, by
+- [09:39.519] the way, was Florida responded by saying
+- [09:41.120] we we know we have a problem. We're
+- [09:42.560] going to double down. We want a
+- [09:43.600] moratorium on all of our durable medical
+- [09:45.920] equipment suppliers. And why? because
+- [09:47.920] there are twice as many durable medical
+- [09:49.600] equipment suppliers in South Florida
+- [09:51.600] than McDonald's. Again, not really
+- [09:54.000] possible possible unless you're looking
+- [09:55.760] the other way. We're not looking the
+- [09:57.360] other way. We're aggressively taking on
+- [09:58.720] these challenges. And uh I'm going to
+- [10:00.640] reemphasize something that I'm hoping
+- [10:02.240] everyone appreciates. But if you're
+- [10:03.440] defrauding our most vulnerable citizens
+- [10:05.680] in America, do not walk away from this
+- [10:08.080] threat. Run away from us because we're
+- [10:09.600] coming after you. All right. Uh I've got
+- [10:12.240] I've got Give me one second. I've got I
+- [10:13.920] was I was actually given a cheat sheet
+- [10:15.279] which you all know. I got uh Shelby, the
+- [10:17.600] new new media, take it away.
+- [10:19.360] >> Thanks. Um I actually wanted to ask
+- [10:20.959] about that nationwide moratorum.
+- [10:23.600] Industry groups are really concerned
+- [10:25.839] about growth and employment getting hurt
+- [10:28.079] if that moratorum expands beyond 6
+- [10:31.120] months. Would you rule out an extension
+- [10:33.839] of that moratorum or do you expect that
+- [10:35.600] it's going to be expanded?
+- [10:37.519] >> I'm not going to rule out an extension.
+- [10:38.959] Uh we have been talking to industry
+- [10:40.640] groups about these moratorium. In fact,
+- [10:42.800] this is for everybody watching, all of
+- [10:45.279] you as well. We benefit from
+- [10:46.800] whistleblowers. Our most important
+- [10:49.120] whistleblowers have been members of
+- [10:50.800] industry who know the game, know how you
+- [10:53.440] can cheat it if you're unethical, and
+- [10:55.040] they point out to us when these problems
+- [10:56.959] occur. So, we do not want to hurt the
+- [10:58.959] folks who are earnestly involved in
+- [11:01.040] hospice, in durable medical equipment
+- [11:03.519] suppliers, you know, personal care
+- [11:05.200] services. They're good people in these
+- [11:06.800] businesses. Uh but we're going to slow
+- [11:08.720] down the growth of these sectors till we
+- [11:10.079] can get our arms around the problem
+- [11:11.279] because it is of massive magnitude to
+- [11:13.440] us. Uh why don't we go to let's go over
+- [11:15.760] here. Go ahead.
+- [11:16.399] >> Dr. Oz, thank you so much. Cara
+- [11:17.680] Castanova from Lindell TV with two
+- [11:20.079] important questions that the American
+- [11:21.519] people voted for and care deeply about.
+- [11:23.600] Uh many Americans fear a future
+- [11:25.279] administration could reinstate COVID era
+- [11:27.519] vaccine mandates through Medicare and
+- [11:29.040] Medicaid funding. Would you support and
+- [11:31.519] create reforms to prevent that from
+- [11:33.279] happening again? What can you do during
+- [11:35.519] your remaining time at CMS to ensure
+- [11:37.680] Americans are never forced to choose
+- [11:39.120] between their jobs and a forced
+- [11:40.480] vaccination?
+- [11:41.600] >> Well, the president uh talked about this
+- [11:43.600] a bit on Friday uh with an executive
+- [11:45.519] order that uh desires to provide states
+- [11:48.480] with better science to be able to make
+- [11:50.000] educated decisions. It is it is an
+- [11:52.800] embarrassment that during COVID we
+- [11:55.040] allowed ideology uh and fear to dictate
+- [11:59.920] healthc care policy. Many clinicians at
+- [12:02.000] the time couldn't understand where these
+- [12:03.440] ideas were coming from. It certainly
+- [12:04.880] soured the American people on the trust
+- [12:07.200] that their government had historically
+- [12:08.959] had in recommending public policy
+- [12:10.959] efforts. The president argues and he's
+- [12:12.720] right and the secretary Kennedy strongly
+- [12:14.160] believes we need gold standard science.
+- [12:16.000] We need that science to be able to help
+- [12:18.079] families make better decisions for
+- [12:19.600] themselves and state governments because
+- [12:21.360] these are state uh driven issues usually
+- [12:23.360] especially mandates to make those
+- [12:24.880] decisions more wisely. If we can do this
+- [12:26.480] in the right way will be very empowering
+- [12:28.160] because who loves children the most?
+- [12:30.560] They're parents. No matter what we might
+- [12:32.079] say, they're the ones who need to have
+- [12:33.279] the information. They should have the
+- [12:34.800] ability to make the wisest choices for
+- [12:36.480] their kids, not based in fear, but based
+- [12:38.240] in science. Stephen,
+- [12:39.519] >> one more nursing home, if you don't
+- [12:41.600] mind,
+- [12:41.920] >> let me go one at a time. I If you asked
+- [12:44.560] multiple questions, I'm only going to
+- [12:45.760] answer one anyway. So, we'll come back.
+- [12:47.279] I promise. I I talk quickly. Go ahead.
+- [12:50.160] >> Dr. Oz, thank you. And and I actually
+- [12:52.160] have two, but you know, we see what you
+- [12:53.920] like.
+- [12:54.880] >> I'll answer one. Pick pick one.
+- [12:56.320] >> Well, the first is on most favored
+- [12:57.839] nations. uh the the policy uh that I was
+- [13:01.279] hoping that you could explain why the
+- [13:02.480] administration thinks it's important to
+- [13:03.920] pass legislation codifying these deals
+- [13:06.959] is is the fear that a future president
+- [13:08.800] might walk away um and what you make of
+- [13:12.160] the congressional push back and also on
+- [13:14.560] um my tragedy derived from President
+- [13:17.519] Trump has expressed interest. Can you
+- [13:19.360] describe the debate within the
+- [13:20.639] administration on that?
+- [13:22.160] >> Let me answer the first one because
+- [13:23.200] there's not a big debate on the second
+- [13:24.639] one. The reality around uh the most
+- [13:29.200] favorite nation drug pricing is the
+- [13:30.880] president has dealt with the entire
+- [13:32.399] problem for this administration. But
+- [13:34.639] these contracts expire after this
+- [13:37.040] administration is done. So like so many
+- [13:38.560] things the president is trying to do,
+- [13:40.160] he's trying to set it up for the next uh
+- [13:42.480] administration so that they don't have
+- [13:44.079] to fight the same battle. Now it's going
+- [13:45.920] to be difficult for pharmaceutical
+- [13:47.360] companies to pull back, but we still
+- [13:49.519] believe it makes sense for Congress to
+- [13:50.959] codify what we've been able to achieve
+- [13:52.639] because it's been so helpful. Think
+- [13:54.079] about the $600 billion dollar of savings
+- [13:56.720] to the average American over the next 10
+- [13:58.480] years. It's such a massive number that
+- [14:00.560] they voluntarily sort of gave back
+- [14:03.040] because the president went after them
+- [14:04.320] and said, "You got to deal with this
+- [14:05.600] problem." And by the way, when we had
+- [14:07.519] knocked on the door of these
+- [14:08.959] pharmaceutical company leaders, you know
+- [14:10.399] what they said? We knew one day you'd
+- [14:12.800] come for us. You know, they weren't
+- [14:14.560] surprised. They knew that this couldn't
+- [14:15.920] continue. So, the president wants
+- [14:17.519] Congress, which I know has a lot on its
+- [14:18.959] plate. Uh, but there are ongoing
+- [14:20.720] discussions around the great healthcare
+- [14:22.320] plan just last week. The workforce
+- [14:24.320] committee uh pushed something out that
+- [14:26.480] is going to be on PBM reform. You know,
+- [14:28.320] pharmacy benefits management companies
+- [14:29.760] are the middlemen that often are
+- [14:31.120] involved between uh the insurance
+- [14:33.199] companies and the pharmaceutical
+- [14:34.480] companies. So, there's other parts of
+- [14:36.480] the legislation moving forward. But just
+- [14:38.160] to remind you, the working the the the
+- [14:40.000] great healthcare plan is codifying most
+- [14:42.399] favorite nation drug pricing so it lasts
+- [14:44.480] for decades into the future. We believe
+- [14:46.480] it should. This is all forward-looking.
+- [14:48.000] Doesn't hurt these companies today. Just
+- [14:49.839] make sure America's protected in the
+- [14:51.279] future. We want plain English insurance
+- [14:53.680] policies so you can actually understand
+- [14:55.199] the document that you're being given. We
+- [14:56.959] want transparency so you go to a
+- [14:58.639] hospital to a doctor's office that you
+- [15:00.639] actually know what you're getting. Guys,
+- [15:02.079] as a doctor, when I prescribe something
+- [15:03.680] for you, I often don't know what it's
+- [15:04.959] going to cost you to pick up what I just
+- [15:06.639] told you to get. These are things that
+- [15:08.000] are fixable and the pharmacy benefits is
+- [15:09.920] another part of this. Let's go to let me
+- [15:12.079] I'm going back Wire Mary.
+- [15:14.079] >> Thank you, Dr. Right over here. Thank
+- [15:15.760] you. My colleague Luke Rosak just
+- [15:17.519] reported and he's done a lot on this. Uh
+- [15:19.680] his investigations into Medicaid fraud
+- [15:21.519] and home health have repeatedly brought
+- [15:23.279] him to foreign born healthcare
+- [15:24.720] operators. Is CMS tracking what
+- [15:27.120] percentage of home health recipients are
+- [15:28.720] refugees for foreign born? And why are
+- [15:31.440] foreigners using these programs at such
+- [15:33.279] higher rates than poor Americans?
+- [15:35.519] >> Well, we are tracking uh illegal
+- [15:37.600] immigrants taking advantage of all
+- [15:38.720] healthcare plans. We've already recouped
+- [15:40.560] or we've actually told California they
+- [15:42.079] owe us $2 billion. We've got half of it
+- [15:44.480] back already. I'm confident we'll get
+- [15:46.240] the rest because they have state-based
+- [15:48.160] programs that we don't have a lot of
+- [15:50.320] visibility into, but because of the
+- [15:52.320] working families tax cut legislation and
+- [15:54.000] other rulemaking, we are no longer
+- [15:55.519] allowing foreign uh folks who are here
+- [15:58.720] illegally to benefit from these
+- [16:00.079] programs. And just to put it in context,
+- [16:01.839] in California, if you're on Medic, the
+- [16:03.759] Medicaid program in California, until
+- [16:06.160] this administration, you got full dental
+- [16:08.320] and full vision benefits. Now, I'm I'm
+- [16:12.399] for those benefits. I like them. But we
+- [16:13.920] don't give that to Medicare patients.
+- [16:15.600] And so we should at least be equitable
+- [16:17.360] and all of us together should decide
+- [16:18.959] what we are going to do as a nation. So
+- [16:21.040] if we as a country decide we're going to
+- [16:22.720] go in one direction, you can't have
+- [16:24.240] states splintering off if they're going
+- [16:26.160] to spend the other people's money. the
+- [16:27.839] fraud, for example, that I'm talking
+- [16:29.040] about and the use of money for illegal
+- [16:30.320] immigrants. The people who pay that bill
+- [16:32.079] when it, for example, the laress of
+- [16:34.000] California allows folks to get benefits
+- [16:36.320] that the rest of the country doesn't
+- [16:37.440] think is appropriate for illegal
+- [16:38.959] immigrants or home healthcare providers,
+- [16:41.120] that money is paid by folks who are
+- [16:43.279] taxpayers in New Mexico, which is a blue
+- [16:45.519] state, and Mississippi, a red state. So,
+- [16:47.600] this is not partisan. Everybody is taxed
+- [16:50.079] extra and has to put more into the kitty
+- [16:51.680] because some states are doing things
+- [16:53.360] that we don't think as a country we
+- [16:55.360] would like to have happen. That's why
+- [16:56.480] this administration's been so dogged in
+- [16:58.160] this issue and why the president has
+- [16:59.519] been so aggressive. Go ahead, Mary.
+- [17:02.160] >> On Ebola, if Kenya does end up blocking
+- [17:05.760] the US quarantine facility there, and it
+- [17:08.240] seems like they might since the Kenyan
+- [17:09.839] ports are delaying it, where will
+- [17:12.079] Americans who have been exposed end up
+- [17:14.000] going? And then why can't they just come
+- [17:16.160] to the United States? I mean, I think
+- [17:17.839] you would probably agree that the US has
+- [17:19.439] pretty good health care here. So, where
+- [17:21.919] will they go and why not to the US?
+- [17:24.079] Jennifer, the the main issue of having a
+- [17:25.839] facility close to the the uh Democratic
+- [17:28.720] Republic of the Congo is if a patient is
+- [17:30.640] sick, again, I'll speak as a heart
+- [17:32.160] doctor. I want to take the patient to
+- [17:33.760] the O that's right next door to the room
+- [17:35.360] they're sick in, not to the building
+- [17:36.799] next to them or to three buildings two
+- [17:38.799] blocks away because that time is
+- [17:41.120] precious to us. You have a golden hour
+- [17:42.559] in many of these instances around
+- [17:43.840] trauma, but for illnesses, it's also
+- [17:45.679] relatively short. So we are confident
+- [17:48.080] and the state department's working on
+- [17:49.440] this diligently that that they're going
+- [17:51.440] to be able to work out something uh with
+- [17:53.280] Kenya. There has already been a fair
+- [17:55.039] amount of of uh of communication around
+- [17:57.600] this issue. We have the and that's by
+- [17:59.760] the way there's a UK base there. We have
+- [18:02.160] other people who might be willing to
+- [18:03.919] welcome us and we have our our German
+- [18:05.840] colleagues as well. So there's many
+- [18:07.520] places we can send folks but sending
+- [18:08.960] them across the world especially when
+- [18:10.640] we're not sure what's going on with them
+- [18:11.679] is probably not the wisest move
+- [18:13.760] >> in red. Take it away. Thank you so much,
+- [18:15.280] Alina Shirazi from the Daily Mill. This
+- [18:17.280] is the fourth checkup that the president
+- [18:18.960] has had. He's supposed to have one a
+- [18:21.440] year. He's had several CT heart scans.
+- [18:24.320] What are the doctors looking for? And
+- [18:26.480] second question, I think you might like
+- [18:27.840] this one better. Who has been your
+- [18:29.200] favorite uh cabinet secretary so far to
+- [18:31.919] do the briefings at the podium?
+- [18:34.480] >> Huh? That may not be my favorite
+- [18:36.880] question. That might I mean, they're all
+- [18:39.360] they're all obviously different. I think
+- [18:40.640] Scott Beston's dry humor is fabulous. Uh
+- [18:43.840] Marco is just a earnestly funny person.
+- [18:46.080] Uh we can tell all kinds of stories
+- [18:47.600] about Marco's entertaining commentary.
+- [18:49.840] Uh I think JD was spectacular. You know,
+- [18:52.000] he's just very on his game, understands
+- [18:54.559] the issues, and he understands the
+- [18:55.679] American people, which is I appreciated
+- [18:57.280] his presentation so much. Uh and I did
+- [18:59.360] watch them all, by the way, just to
+- [19:00.559] prepare. I'm a doctor. I try to do my
+- [19:02.240] homework. I prepped for the case. Um the
+- [19:05.440] uh the first issue was about Ebola. No,
+- [19:08.799] >> about President Trump's examination
+- [19:11.360] checks. He's had four already. The
+- [19:13.440] president's supposed to have one a year.
+- [19:15.440] >> Yeah. So, I I actually have talked to
+- [19:17.679] the president about what he's sent to
+- [19:20.000] all of you. And I think it's just a
+- [19:21.919] routine regular exam. Uh you remember I
+- [19:24.559] had the president on my show 10 years
+- [19:26.080] ago. He also presented records and at
+- [19:28.080] the time I was stunned at at how well he
+- [19:30.880] was doing because so many of these
+- [19:32.799] numbers naturally over time will start
+- [19:34.480] going in the wrong direction. But if you
+- [19:35.760] look at these records uh they're
+- [19:37.280] spectacular. you know his cholesterol,
+- [19:38.880] his blood pressure, all the numbers are
+- [19:40.480] in in excellent uh parameters. His
+- [19:43.600] ability and listen, I work with him
+- [19:45.520] frequently. Uh many of you get to see
+- [19:47.440] him almost every day. That amount of
+- [19:49.600] energy and that amount of mental acuity
+- [19:51.840] does not exist in a vacuum. You have to
+- [19:53.760] have a vessel to carry it and the
+- [19:55.600] president has unique ability to just
+- [19:57.840] keep going at all hours of the day with
+- [19:59.600] remarkable strength. Let's go right
+- [20:02.400] behind you.
+- [20:02.960] >> Thank you. So the administration has
+- [20:04.880] been stressing reshoring manufacturing,
+- [20:07.039] pharmaceutical manufacturing as part of
+- [20:08.720] that from those announcement of those 17
+- [20:11.360] uh pharmaceutical companies. What's the
+- [20:13.200] timeline that we could see those
+- [20:15.039] projects come to fruition? Is it summer?
+- [20:16.880] Is it end of this year?
+- [20:18.480] >> Well, these companies are already making
+- [20:19.840] investments in America. Some are
+- [20:21.280] ongoing, some have announced. I went to
+- [20:22.720] a ribbon cutting and one in
+- [20:23.840] Charlottesville recently. And so there's
+- [20:25.919] a lot of investment coming to America.
+- [20:28.000] But think about what you would do if
+- [20:29.360] you're a farmer executive. If you're a
+- [20:31.200] farm executive and America is open for
+- [20:33.440] business and we're trying to support
+- [20:35.600] innovation, you know, saving people
+- [20:37.360] from, you know, the cancer, autoimmune
+- [20:39.679] problems, dementia, all these different,
+- [20:41.200] you want to be where the action is. So
+- [20:43.120] these companies are coming here. It's
+- [20:44.640] actually a brain drain from Europe in
+- [20:47.120] particular, but other parts of the world
+- [20:48.240] as well of companies who want to come
+- [20:49.520] here. So it's not just that we're
+- [20:50.960] already going. It's going to get bigger
+- [20:52.159] and bigger and louder.
+- [20:53.039] >> That mean jobs?
+- [20:54.000] >> No, the jobs are starting as we when the
+- [20:55.919] first time you hire someone to build a
+- [20:57.679] plan for you, we have a job. If you're
+- [20:59.440] asking for people with picks and and
+- [21:00.960] helmets, that's also coming quickly. But
+- [21:02.720] again, I've been to facilities are
+- [21:04.240] already under construction. So, they're
+- [21:05.679] starting and it will get and the
+- [21:07.039] president and I visited a facility uh in
+- [21:09.760] uh Cincinnati a few uh months ago that
+- [21:12.159] again, they're already in they're
+- [21:13.600] they've already have the facility.
+- [21:14.880] They're already running the facility.
+- [21:16.080] They're making additional investments to
+- [21:17.600] upgrade their program.
+- [21:19.440] >> Yes, ma'am.
+- [21:20.799] >> Thank you so much. I know this isn't
+- [21:21.919] your wheelhouse, uh but you are speaking
+- [21:24.000] on behalf of the White House today. Can
+- [21:26.159] you respond to any of the criticism from
+- [21:27.840] Republicans on President Trump's
+- [21:29.679] decision to tap Bill PY who has no known
+- [21:33.600] intelligence experience as acting DNI?
+- [21:37.360] >> Well, I think Bill is a a great guy. I
+- [21:39.360] know him socially. I've not worked with
+- [21:40.960] him u in his current job and uh but I tr
+- [21:43.280] I do trust the president's judgment. Um
+- [21:45.120] he is a very sharp uh quick and quick
+- [21:48.400] study of uh people uh their emotional uh
+- [21:51.520] with abilities and their ability to to
+- [21:53.840] persevere in the in the face of
+- [21:55.280] hardship. So I have confidence in his
+- [21:56.880] decision. Yes ma'am.
+- [21:58.799] >> Um back on Ebola um given the World Cup
+- [22:01.360] coming up and millions of visitors
+- [22:02.960] coming to the United States on the US
+- [22:04.880] preparation for this who is in charge of
+- [22:07.360] proactive surveillance measures and what
+- [22:09.600] type of surveillance will the United
+- [22:11.280] States be doing for visitors coming in?
+- [22:13.440] Will that be expanded beyond the DRC,
+- [22:16.159] Uganda and Sudan? Can you describe what
+- [22:18.480] is in place knowing this influx of
+- [22:20.799] people coming soon?
+- [22:21.679] >> So Jay Barsharia who I spoke to this
+- [22:23.440] morning uh who is our brilliant
+- [22:24.640] brilliant leader of the NIH but also CDC
+- [22:27.039] now is running this program. He's got a
+- [22:28.720] lot of help from Dr. Heidi Overton and
+- [22:31.600] many others at the White House. So it's
+- [22:33.840] a well- constructed game plan. uh they
+- [22:36.080] aggressively got into and and they're
+- [22:37.919] funding now a lot of the the treatments
+- [22:40.000] that are being offered in uh the DRC and
+- [22:43.200] uh the Kenya facilities just an extra
+- [22:45.039] way for us to take folks who are
+- [22:46.320] Americans uh who need help. But we have
+- [22:49.520] very purposefully put up testing tools
+- [22:51.919] and mechanisms at the major airports for
+- [22:54.240] that people will be traveling through. I
+- [22:56.000] have great confidence in Jay's ability.
+- [22:57.600] He's a brilliant scientist and knows a
+- [22:59.440] lot about viruses. He wrote one of the
+- [23:01.120] most important papers really describing
+- [23:03.200] the the true reality what was happening
+- [23:05.200] during CO early in the pandemic. It got
+- [23:07.120] him in the hot water cuz it was not
+- [23:08.480] convenient to hear it. But he's a brave
+- [23:09.919] man who will make the right decisions
+- [23:11.039] and be transparent about them.
+- [23:12.640] >> In pink.
+- [23:14.080] >> Um just back to the question about Bill
+- [23:16.400] Py. Congressional statute says any
+- [23:19.039] appointee for the position of the
+- [23:20.320] director of national intelligence shall
+- [23:22.159] have extensive national security
+- [23:24.159] expertise. What extensive national
+- [23:26.480] security expertise does he have?
+- [23:28.159] >> Ma'am, you're asking me a question
+- [23:29.200] that's outside of my lane. I'm so
+- [23:30.400] focused on making sure Americans are
+- [23:31.840] healthy that I have not been looking at
+- [23:32.880] what other agencies
+- [23:38.000] and the edge. Go ahead
+- [23:42.880] tie. Go.
+- [23:43.600] >> Thank you, sir. Thank you. All right.
+- [23:46.159] Okay. Um that was fun. So, uh Dr. as uh
+- [23:51.200] just now you said that uh it should be
+- [23:54.159] uh surprising to people that personal
+- [23:56.240] care service attended uh is the uh now
+- [23:59.760] by twofold the most common job in
+- [24:01.600] California and the most common job uh in
+- [24:04.640] New York. Uh the US healthcare industry
+- [24:07.280] has been growing rapidly uh 7 to8%
+- [24:11.039] annually. Um it's an estimated 5.3
+- [24:14.480] trillion in growth. Healthcare accounts
+- [24:16.960] for about 18% of GDP.
+- [24:20.960] Why should people be surprised that in
+- [24:23.679] two of the most populous states in the
+- [24:25.520] country, a healthcare related job like
+- [24:28.720] that would be a common job when it is
+- [24:33.760] again one of the fastest growing and
+- [24:36.000] continuously growing industries in in
+- [24:38.720] the US. I mean what's going on here?
+- [24:41.440] making
+- [24:42.000] >> the primary difference between paying
+- [24:44.000] for a hernia operation and paying
+- [24:46.000] someone to be a personal care service is
+- [24:47.760] the reason it's concerning to us. If
+- [24:49.600] you're having a hernia operation, you
+- [24:51.200] have a scar, so I know you got something
+- [24:52.799] and you have a doctor who was licensed
+- [24:54.320] and you had it done in a facility that's
+- [24:56.240] also credentialed and has been
+- [24:57.440] inspected. When you get personal care
+- [24:59.360] services as an unlicensed person in an
+- [25:01.440] unmonitored setting promising they did
+- [25:04.080] something, that's a lot of handshakes
+- [25:06.080] and, you know, finger crossing and and
+- [25:08.559] hoping that it worked out. Okay, this is
+- [25:10.799] a problem that has been growing for
+- [25:12.880] years. It's just gotten now to a crisis
+- [25:15.039] mode. It is just difficult to imagine
+- [25:16.799] that it's twice as many jobs as anything
+- [25:19.120] else. It's not that healthcare jobs
+- [25:20.559] aren't important. Of course, they are.
+- [25:22.159] But if we put guard rails around these
+- [25:24.240] programs, we'll allow them to thrive.
+- [25:26.960] I'm here because I love Medicaid. The
+- [25:29.679] president has already said he loves and
+- [25:31.360] cherishes Medicaid and Medicare. These
+- [25:33.600] are Medicaid in particular is the
+- [25:35.600] ultimate payer of last resort. We cannot
+- [25:37.760] allow these programs to be defrauded
+- [25:40.080] into
+- [25:41.679] a turmoil that they cannot they cannot
+- [25:44.000] pull up from. And so we if we love these
+- [25:46.480] programs will make the difficult
+- [25:47.600] decisions. Let me pivot from that just
+- [25:49.120] to describe what came out yesterday
+- [25:50.880] which is the work requirement rule that
+- [25:53.600] our agency and Dan Brilman and Capricn
+- [25:55.840] did a fantastic job writing. dealt with
+- [25:57.600] a lot of states, but as you know in the
+- [25:59.279] working families tax cut legislation,
+- [26:01.200] which I believe saved Medicaid and the
+- [26:04.880] reason I say that is our actuarials told
+- [26:07.760] us we would be spending 5.4 trillion
+- [26:10.480] more dollars for this program over the
+- [26:12.559] next decade if we didn't deal with some
+- [26:14.240] of the legalized money laundering that
+- [26:15.919] was siphoning money out of the program.
+- [26:18.000] Part of the reason that this is so
+- [26:19.440] attractive to states is they could take
+- [26:20.960] money in in in in ways that it was not
+- [26:23.760] designed to be used paying people along
+- [26:25.760] the way so they didn't have to pay for
+- [26:27.200] it themselves. I get it. I understand
+- [26:28.559] why the governors did it. But it didn't
+- [26:29.919] align the president with the governors.
+- [26:31.840] With that law, we also had a work
+- [26:34.080] requirement rule. Now, what was that?
+- [26:35.679] The work requirement was based on
+- [26:37.039] concepts that date back from when Bill
+- [26:38.559] Clinton was president with the temporary
+- [26:40.799] assistance for needy families. When the
+- [26:42.799] Democratic administration said the fraud
+- [26:44.960] is getting so bad, the abuse so big in
+- [26:47.200] these programs, we need to clean them
+- [26:48.720] up. We need to get people to try to
+- [26:50.159] work. It's a path to prosperity. I
+- [26:52.559] believe I hope you share this belief
+- [26:54.320] that we are put on this earth with
+- [26:56.240] agency to change our future, change the
+- [26:58.480] country's future, make the planet a
+- [26:59.919] better place. We are put here to make a
+- [27:02.159] difference. But if you're sitting at
+- [27:03.679] home, which is true for the the millions
+- [27:06.799] of people who are on who are able-bodied
+- [27:09.200] on Medicaid, on average, you're spending
+- [27:11.760] 6.1 hours watching television are just
+- [27:14.320] hanging around. That's not why you're
+- [27:16.080] here. So, as a path to prosperity,
+- [27:18.559] Congress very wisely said, "Let's get
+- [27:20.400] you back into the workforce. Let's
+- [27:22.240] require you to get free healthc care
+- [27:24.240] coverage to be able to work for 20 hours
+- [27:26.720] a week or volunteer to make up the
+- [27:30.000] difference if you haven't worked 20
+- [27:31.120] hours or get an education just
+- [27:33.679] participate. And so that rule came out.
+- [27:36.480] It's a I think beautifully written
+- [27:38.799] effort to try to define for our nation
+- [27:41.600] what your part of the puzzle is because
+- [27:43.520] if you are are going to get something
+- [27:45.360] that of value from the American people,
+- [27:47.360] there should be some obligation if
+- [27:48.880] you're able to. If you're not able to,
+- [27:50.080] if you're disabled, if you're uh, you
+- [27:51.679] know, and one of the categories that are
+- [27:52.960] well defined, uh, in general, not able
+- [27:55.520] to work, it's different. But if you can
+- [27:56.720] work, you should get up and work again
+- [27:58.159] because that's historically how it
+- [27:59.679] always was. In 1961, in 1965 rather,
+- [28:02.640] when Medicaid was created, that was the
+- [28:04.720] deal. There were 11 million people in
+- [28:06.320] the program. We perverted that.
+- [28:08.480] >> Yes, sir.
+- [28:09.279] >> Dr. Thank you. Since you're here
+- [28:10.640] speaking on behalf of the
+- [28:11.520] administration, part of the reason we're
+- [28:12.799] asking about the president's decision to
+- [28:15.279] appoint Bill Py to be the head of
+- [28:17.360] director or head of national
+- [28:18.399] intelligence is it's been 4 hours and
+- [28:20.640] we've been asking the White House why
+- [28:22.640] he's qualified to do so. You're a heart
+- [28:24.399] surgeon or a heart doctor.
+- [28:25.919] >> Yeah.
+- [28:26.320] >> Would you recommend a patient go see
+- [28:27.760] someone who isn't?
+- [28:30.000] >> You're asking the question with the
+- [28:31.600] premise that Bill Py is not qualified. I
+- [28:33.679] don't know anything about his situation
+- [28:34.880] and I appreciate you want that answer.
+- [28:36.159] I'm not going to be the one giving it to
+- [28:37.279] you. Go ahead. Thank you so much. This
+- [28:39.120] is Elizabeth at the Daily Signal. Um,
+- [28:41.120] what are you doing first of all to
+- [28:42.559] remove any illegal immigrants who are
+- [28:44.240] still receiving Medicaid from the
+- [28:45.840] program? You mentioned earlier that's
+- [28:46.960] something you've been working on. And
+- [28:48.399] then secondly, Medicaid reimbursement
+- [28:50.320] for Planned Parenthood will resume July
+- [28:52.240] 4th unless Congress acts to extend the
+- [28:54.720] Women Beautiful bill as CMS
+- [28:56.399] administrator. What's your message to
+- [28:58.080] Congress on that?
+- [28:59.600] >> On the illegal immigrant side, I'll take
+- [29:00.960] one question at a time if you don't
+- [29:01.760] mind. a lot of folks the uh we have
+- [29:04.320] because we now can do it a a very
+- [29:06.960] straightforward way for the 44 states
+- [29:09.440] that don't have state-based Medicaid
+- [29:11.440] plans for us to be able to audit it if
+- [29:13.200] the people that we're paying for our
+- [29:14.640] citizens or not in the states in the
+- [29:16.720] state based plans like I mentioned in
+- [29:18.080] California and there's a few other
+- [29:19.120] states Colorado Washington etc uh
+- [29:21.440] Illinois they they have their own plan
+- [29:23.440] so we have to now audit their plans this
+- [29:25.279] is a challenge and that's why before I
+- [29:27.840] came here I met with a bunch of Medicaid
+- [29:29.520] directors from a bunch from many states
+- [29:31.360] red and blue and they want us to help
+- [29:34.640] rebuild the tech infrastructure of
+- [29:37.600] Medicaid in this country. Imagine 50
+- [29:39.679] bulanized programs. They spend $20
+- [29:41.679] billion a year, $20 billion for tech
+- [29:45.200] infrastructure and we're not getting our
+- [29:46.640] money's worth. So, we're putting $200
+- [29:48.480] million more because the working
+- [29:49.840] families tax cut legislation. Uh we've
+- [29:51.919] got negotiated Dan Brilman did $600
+- [29:54.000] million of inind contributions from the
+- [29:56.480] vendors to be able to get the work
+- [29:58.399] requirement done in an effective way.
+- [29:59.840] But I think it's the first step of a
+- [30:01.120] much larger national opportunity to to
+- [30:03.679] fix how data flows. And one bit more bit
+- [30:05.760] on this. Medicare Medicare's billing
+- [30:08.399] system which many of your relatives are
+- [30:10.320] using was a 1979
+- [30:13.120] era cobalt based system. I don't even
+- [30:15.520] have engineers who know how to use that
+- [30:17.520] system. And so if you're going to really
+- [30:19.200] use cloud-based tools, if you want to
+- [30:20.960] use technology to help Americans connect
+- [30:23.919] better with the healthare system, you
+- [30:25.200] have to update them. The president has
+- [30:26.960] been supportive of this. So we are
+- [30:28.399] upgrading the system. And my hope is
+- [30:30.080] that we can use the tech transformation
+- [30:32.080] tools of this government to bring people
+- [30:34.240] to work with us from the private sector
+- [30:35.840] and every major tech company is a
+- [30:37.679] partner of ours. We're pledging 700.
+- [30:41.360] >> Yes. Go ahead.
+- [30:42.799] >> Hey, I just wanted to follow up on her
+- [30:44.399] question behind me. If the president's
+- [30:45.840] in such perfect health, why does he keep
+- [30:47.360] going back in for checkups?
+- [30:48.880] >> I think he likes the results. He does
+- [30:50.880] really well. Uh he he aces the test
+- [30:53.440] every single day. And I I I don't I I do
+- [30:56.799] actually believe that he is curious to
+- [30:58.960] make sure everything is going in the
+- [31:00.000] right direction. He's a very meticulous
+- [31:02.000] person in in so many ways that are often
+- [31:04.080] underappreciated, but for him to want to
+- [31:06.080] know all the numbers and keep on top of
+- [31:07.440] him, the it's the same reason he calls
+- [31:08.880] people at at, you know, odd hours
+- [31:10.480] because something's on his mind, he
+- [31:11.600] wants to deal with it. Yes. In purple.
+- [31:13.919] >> I wanted to ask about the UFC fight here
+- [31:15.919] at the White House next week. The
+- [31:17.600] president recently invested in the
+- [31:19.360] parent company of UFC. Is it a conflict
+- [31:22.320] of interest for him to be promoting this
+- [31:24.399] event while he's invested in UFC's
+- [31:26.320] parent company?
+- [31:27.200] >> I don't think the president sits in the
+- [31:28.480] Oval Office and makes individual
+- [31:29.760] investment decisions, but I don't know
+- [31:31.120] about that issue. Uh, but knowing him, I
+- [31:33.279] suspect someone else is making those
+- [31:34.559] decisions for him.
+- [31:36.000] >> Uh, go ahead.
+- [31:38.080] >> Thank you, Dr. Oz. Um, the Obamacare
+- [31:40.480] subsidies expired earlier this year.
+- [31:42.720] What negative consequences have you
+- [31:44.399] seen? And do you see any policy
+- [31:46.320] adjustments that need to be made?
+- [31:48.480] >> Let's talk about Obamacare. Let's take a
+- [31:50.559] step back. 2015, 16, 17, 18, 2020, there
+- [31:54.640] were 9 million people on Obamacare. 9
+- [31:58.320] million. Today, it's more than 20
+- [32:00.320] million. Like, what happened? What
+- [32:03.120] happened was we completely took the
+- [32:04.559] guardrails off. And I know this because
+- [32:06.559] I'm working in the agency that actually
+- [32:08.080] was told to take the guard rails off.
+- [32:09.519] And because there wasn't an earnest
+- [32:11.440] desire to keep track of whether you're
+- [32:13.519] appropriately honored or not, but more
+- [32:15.600] importantly just get the number to where
+- [32:17.440] we all feel good about ourselves. We had
+- [32:19.760] massive increases of people join the
+- [32:21.840] program. We believe that 35% roughly of
+- [32:26.159] the people that are using the Affordable
+- [32:28.559] Care Act, Obamacare exchanges because
+- [32:30.960] they've never used the program once.
+- [32:33.039] They've never they never filed a claim
+- [32:35.039] may not be legit. And that actual number
+- [32:37.279] may translate to, I don't know, five,
+- [32:39.120] six million people we could be paying
+- [32:41.519] premiums for because they don't have to
+- [32:43.760] contribute anything. So they don't even
+- [32:45.679] know they're getting it. These are
+- [32:46.799] people who have Medicaid and someone
+- [32:48.480] often a broker is dishonestly enrolling
+- [32:50.559] them on uh in in affordable care act or
+- [32:53.519] they're in two states at once getting
+- [32:55.360] full insurance paid for by us in
+- [32:58.000] multiple states at once. So we have
+- [32:59.840] evaluated these numbers. They're
+- [33:01.200] extremely concerning. Uh there's a a
+- [33:03.360] very strong effort by us. We actually
+- [33:05.120] took made a rule two weeks ago that
+- [33:06.559] starts the process. We had tried to do
+- [33:08.559] this when we first came into office. Uh
+- [33:10.880] court enjoined us. They did not feel
+- [33:12.559] we'd follow approp appropriate uh APA
+- [33:15.760] guidelines, government guidelines, and
+- [33:17.600] so we redid it and now went back out
+- [33:19.440] again. But if you if you care about the
+- [33:21.279] ACA, then you want us to take the fraud
+- [33:23.519] out. And let me just take a step back.
+- [33:24.960] If we want you to go back to work on
+- [33:27.039] Medicaid, what's going to happen? You're
+- [33:28.799] going to start making money. As you make
+- [33:30.320] money, you're going to make enough
+- [33:31.120] money. you get above the poverty level,
+- [33:32.480] you're going to want to buy an
+- [33:33.679] Affordable Care Act product or private
+- [33:36.240] industry, commercial insurers are going
+- [33:38.000] to start using it. That's a good thing.
+- [33:39.519] We're getting America back up. They're
+- [33:40.880] getting into work, getting them into the
+- [33:42.399] stratosphere, building prosperity. So,
+- [33:44.480] we want these programs to work together.
+- [33:46.559] But if you've got millions of people
+- [33:48.720] literally who are getting insurance that
+- [33:51.039] they don't want, they don't even know
+- [33:52.399] they have it, and we're all paying for
+- [33:54.159] it. That's tens of billions of dollars
+- [33:56.159] we're throwing away. That increases
+- [33:57.760] premiums for everybody. It drives
+- [33:59.279] affordability down. We're not going to
+- [34:00.960] tolerate anymore. Sir, in the back in
+- [34:02.559] the beer.
+- [34:03.840] >> Thank you so much, Dr. Rose. We are
+- [34:05.679] happy to see you. I'm sorry. I will ask
+- [34:07.039] two question because I'm Turkish.
+- [34:08.480] >> Only one question. Doesn't matter. One
+- [34:10.000] question.
+- [34:10.720] >> Okay. So, I'm going to ask you, you
+- [34:12.399] know, the Turkish president Rajep Ardan
+- [34:15.520] and American president has a good
+- [34:16.800] relations and there's a report they are
+- [34:19.200] going to meet in Turkey and United State
+- [34:22.240] game in Los Angeles. Have you heard
+- [34:24.639] heard about it? And also there's a NATO
+- [34:27.200] summit in Turkey in July. So you are
+- [34:30.879] Turkish American. I don't know. Do you
+- [34:32.720] have any idea? Are you going to join?
+- [34:34.159] And what you're thinking about Ardan and
+- [34:36.399] Trump relations?
+- [34:37.599] >> I have no idea about these meetings.
+- [34:39.359] I've not been invited to anything. I
+- [34:40.879] suspect I won't be invited to everything
+- [34:42.159] because I've got a lot of work to do
+- [34:43.200] here.
+- [34:45.119] There. Go ahead.
+- [34:46.240] >> Um Jordan Conrad from Gateway Pundit.
+- [34:48.320] You know, back to the illegal aliens on
+- [34:51.200] Medicare and Medicaid. Last October, you
+- [34:53.359] announced that you had found over $1
+- [34:55.520] billion in federal tax dollars going to
+- [34:58.160] illegal aliens. How much money how much
+- [35:00.800] has that amount increased as of today?
+- [35:03.040] And you know, it's kind of like fish in
+- [35:04.400] a barrel. Are are these people being
+- [35:06.320] referred to immigration for prosecution
+- [35:09.359] and deportation?
+- [35:10.720] >> The number has doubled from what I said
+- [35:12.560] last year. We're about $2 billion. The
+- [35:15.040] good news is that many states realize
+- [35:16.720] this is a problem and they themselves
+- [35:18.160] have stopped doing this. Listen, it's
+- [35:20.160] the same basic story again and again. We
+- [35:22.240] as a nation make a decision because
+- [35:23.680] we're one people. Individual states have
+- [35:25.760] to take that decision and use it to the
+- [35:27.520] best of their ability. Some states don't
+- [35:29.280] do as good a job as other states. That's
+- [35:31.280] why we're looking to individual states
+- [35:33.280] for leadership, for better ideas to deal
+- [35:35.359] with many of these social problems that
+- [35:37.359] unfortunately begin to pile up over time
+- [35:39.680] and they threaten the very foundation of
+- [35:42.720] our social uh uh net that supports all
+- [35:45.359] of us. That's why this matters so much.
+- [35:47.200] If you quiz the vice president, he grew
+- [35:49.520] up in an environment where he saw people
+- [35:51.119] abuse this. I know that's the case of
+- [35:52.640] people who are on the task force right
+- [35:53.920] now, the anti-fraud white house task
+- [35:55.520] force. So, there's a a passion about
+- [35:57.680] this uh and and for good reason. I mean,
+- [36:00.000] the president calls the vice president
+- [36:01.839] Elliot Ness. He wants him, you know, he
+- [36:03.760] likes the fact that he's taking this
+- [36:05.040] seriously. He's going at it and he's
+- [36:06.400] doing what's best for the American
+- [36:07.599] people by making some tough decisions.
+- [36:10.079] One last question. Take it away.
+- [36:11.680] >> Thank you, Dr. Oz. Um back to Bill
+- [36:14.079] Pulsey but with a national security
+- [36:16.480] angle. This the president has pushed
+- [36:18.560] very hard to renew FISA section 702
+- [36:22.320] expires in 10 days uh just ahead of the
+- [36:24.960] World Cup and there's this heightened
+- [36:27.359] threat environment with the war in the
+- [36:29.200] Middle East. We've heard all these intel
+- [36:30.800] agencies talk about the threat
+- [36:32.000] environment these days and how people
+- [36:33.440] can be very concerned about it. On
+- [36:34.960] Capitol Hill, you've had lawmakers today
+- [36:37.280] raising concern about Bill Py. um and on
+- [36:41.119] the Democrat side questioning his
+- [36:43.359] ability to uh carry out that role fairly
+- [36:46.960] and not weaponize it. What can you say
+- [36:49.920] about to allay their concerns and can
+- [36:52.960] you also answer a question that was
+- [36:54.320] posed by Susan Collins about whether PY
+- [36:57.359] has a security clearance himself?
+- [36:59.680] >> I don't know anything more about Bill Py
+- [37:01.760] than you do. I did not think that would
+- [37:02.960] be one of the questions that would even
+- [37:04.079] come up here. I hadn't even heard the
+- [37:05.359] news when I walked out. Okay, let me let
+- [37:07.760] me let me leave you with we got we have
+- [37:09.440] one last question, but I I do want
+- [37:14.000] >> Go ahead, ask him. I'll come to you. I
+- [37:16.079] have a GLP question. WHAT'S YOUR
+- [37:17.359] QUESTION?
+- [37:18.480] >> DO YOU HAVE ANY medical advice for the
+- [37:20.160] Americans out there that are suffering
+- [37:21.599] from a very serious ailment called Trump
+- [37:23.520] derangement syndrome?
+- [37:25.040] >> Uh I I am concerned about uh folks who
+- [37:27.680] have focused their entire life energy on
+- [37:30.400] dislike of the president. Uh it's
+- [37:32.320] disheartening to see people lost in that
+- [37:34.400] uh way. But uh you know it's it's it's
+- [37:39.440] treating stupid is really hard and it
+- [37:41.680] becomes a real problem and these folks
+- [37:43.119] are off the GLP ones. I mean one
+- [37:45.119] question on GLP. Thank you very much.
+- [37:46.880] >> Let me let me just answer for because
+- [37:47.920] I'm out of time and I
+- [37:49.200] >> very quick are America in getting real
+- [37:51.680] deal medication brand name like Viggo
+- [37:54.240] Ompic or it will be generic on Trump RX
+- [37:57.040] at $50 monthly rate. the the Trump RX
+- [37:59.839] product is the real deal, the true API,
+- [38:02.880] the best the pharmaceutical product
+- [38:04.640] that's made by the two major providers
+- [38:06.640] right now which are Nova Nordisk and Eli
+- [38:08.480] Liy. There are other companies coming
+- [38:09.839] into the space. Uh you know we have
+- [38:11.760] these products that are given by these
+- [38:13.599] companies as part of this deal. So we
+- [38:15.359] like to use the real product to be able
+- [38:16.880] to satisfy the needs of the American
+- [38:18.160] consumer.
+- [38:18.800] >> It's the brand name.
+- [38:19.440] >> It's a brand it's A BRAND NAME. LAST
+- [38:22.079] question from the middle. Last question.
+- [38:23.839] Take it away.
+- [38:24.400] >> Thank you. Thank you Dr. Oz. Um so Kenya
+- [38:28.720] basically has stopped uh you know has
+- [38:31.440] asked us not to build the quarantine
+- [38:34.800] facility there um and the people uh the
+- [38:39.680] responders from here who are supposed to
+- [38:41.520] go there. Do you think the Trump
+- [38:43.520] administration's policy of not allowing
+- [38:47.680] people who are exposed Americans who are
+- [38:49.920] exposed to the virus come back to the US
+- [38:52.400] will dissuade these responders from
+- [38:54.400] going there? No, I think we're going to
+- [38:56.240] work out with uh Secretary Rubio's
+- [38:58.320] leadership a very favorable arrangement
+- [39:00.720] with Kenya. I've been to Kenya. It's a
+- [39:02.400] beautiful country. Um very sophisticated
+- [39:04.640] people. They're going to do the right
+- [39:05.760] thing for everybody and I think it's a
+- [39:07.280] perfect solution. I thank you very much
+- [39:08.960] for letting me participate. God bless
+- [39:10.240] you all. Take care.
+- [39:11.280] >> Micro plastics. Thank you. Thank you.
