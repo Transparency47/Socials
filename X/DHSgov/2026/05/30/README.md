@@ -1,6 +1,6 @@
 # X / DHSgov / 2026-05-30
 
-- Posts: 11
+- Posts: 29
 
 - [23:33 UTC - Repost of @ICEgov: Anthony Pargas Escobar 📍DELANEY HALL Rap sheet: 👉Assault 👉Simple assaul...](2060867317639090449/)
   - Source: https://x.com/DHSgov/status/2060867317639090449
@@ -35,3 +35,57 @@
 - [19:54 UTC - Repost of @SecMullinDHS: .@SenatorAndyKim we are getting murderers, pedophiles, rapists, a...](2060812144522760239/)
   - Source: https://x.com/DHSgov/status/2060812144522760239
   - Repost of @SecMullinDHS: .@SenatorAndyKim we are getting murderers, pedophiles, rapists, and gang members off of New Jersey streets. This is yet another example of defund the polic...
+- [17:54 UTC - The heroes of @ICEgov are not slowing down in their mission to remove criminals from our c...](2060781902336757789/)
+  - Source: https://x.com/DHSgov/status/2060781902336757789
+  - The heroes of @ICEgov are not slowing down in their mission to remove criminals from our communities and make our nation SAFE again. This week, ICE arrested murderers, pedophiles,...
+- [17:34 UTC - This is what strong cooperation looks like. Alongside @NJSP and local law enforcement part...](2060776876755358174/)
+  - Source: https://x.com/DHSgov/status/2060776876755358174
+  - This is what strong cooperation looks like. Alongside @NJSP and local law enforcement partners, we are restoring order and keeping our officers safe. Together we have made it clear...
+- [17:01 UTC - Thank you @NJSP and @NewarkNJPolice for working alongside us to restore law and order and ...](2060768662974288330/)
+  - Source: https://x.com/DHSgov/status/2060768662974288330
+  - Thank you @NJSP and @NewarkNJPolice for working alongside us to restore law and order and keep our law enforcement safe.
+- [16:31 UTC - Repost of @ICEgov: Thank you, @NJSP for cooperating with us to restore law and order. This...](2060761004594594120/)
+  - Source: https://x.com/DHSgov/status/2060761004594594120
+  - Repost of @ICEgov: Thank you, @NJSP for cooperating with us to restore law and order. This partnership sends a clear message: assaults, threats, and abuse towards law enforcement o...
+- [16:19 UTC - We love them too 🇺🇸](2060757951724285970/)
+  - Source: https://x.com/DHSgov/status/2060757951724285970
+  - We love them too 🇺🇸
+- [16:09 UTC - Our heroic @ICEgov officers have been bitten and faced death threats and assaults from vio...](2060755418599612771/)
+  - Source: https://x.com/DHSgov/status/2060755418599612771
+  - Our heroic @ICEgov officers have been bitten and faced death threats and assaults from violent rioters in New Jersey. Thank you to the New Jersey state police for cooperating with...
+- [15:50 UTC - Follow the rules. https://t.co/gQ1qedpZuZ](2060750655153750304/)
+  - Source: https://x.com/DHSgov/status/2060750655153750304
+  - Follow the rules. https://t.co/gQ1qedpZuZ
+- [15:00 UTC - Our nation is stronger and safer when state and federal law enforcement work together.](2060738022820164028/)
+  - Source: https://x.com/DHSgov/status/2060738022820164028
+  - Our nation is stronger and safer when state and federal law enforcement work together.
+- [14:47 UTC - STATE 🤝 FEDERAL Safety starts with cooperation! https://t.co/fJ920UFhVW](2060734827888890260/)
+  - Source: https://x.com/DHSgov/status/2060734827888890260
+  - STATE 🤝 FEDERAL Safety starts with cooperation! https://t.co/fJ920UFhVW
+- [13:44 UTC - One destroys, the other restores. Law abiding Americans begin to clean up trash and damage...](2060718933607408041/)
+  - Source: https://x.com/DHSgov/status/2060718933607408041
+  - One destroys, the other restores. Law abiding Americans begin to clean up trash and damaged property from the left-wing riots last night. https://t.co/A3SoaOQxmS
+- [13:37 UTC - Repost of @SecMullinDHS: Thank you @GovSherrillNJ for cooperating with us to help restore ...](2060717294553043382/)
+  - Source: https://x.com/DHSgov/status/2060717294553043382
+  - Repost of @SecMullinDHS: Thank you @GovSherrillNJ for cooperating with us to help restore law and order. We support every Americans constitutional right to peacefully protest. No o...
+- [12:43 UTC - DHS 🤝 @NJSP Thank you for cooperating with us to restore law and order.](2060703594471420178/)
+  - Source: https://x.com/DHSgov/status/2060703594471420178
+  - DHS 🤝 @NJSP Thank you for cooperating with us to restore law and order.
+- [03:59 UTC - Repost of @ICEgov: With cooperation from state and local law enforcement, law and order wi...](2060571860316668410/)
+  - Source: https://x.com/DHSgov/status/2060571860316668410
+  - Repost of @ICEgov: With cooperation from state and local law enforcement, law and order will prevail.
+- [03:39 UTC - Reminder: Obstructing and assaulting law enforcement is a crime and a felony. Together wit...](2060566813608480855/)
+  - Source: https://x.com/DHSgov/status/2060566813608480855
+  - Reminder: Obstructing and assaulting law enforcement is a crime and a felony. Together with our local and state law enforcement partners, we are restoring law and order.
+- [03:20 UTC - America is safer when state &amp; federal law enforcement work together.](2060561847602856444/)
+  - Source: https://x.com/DHSgov/status/2060561847602856444
+  - America is safer when state &amp; federal law enforcement work together.
+- [03:06 UTC - Law &amp; Order isn’t partisan. It’s American. https://t.co/KJZLENRyrb](2060558556953264595/)
+  - Source: https://x.com/DHSgov/status/2060558556953264595
+  - Law &amp; Order isn’t partisan. It’s American. https://t.co/KJZLENRyrb
+- [01:09 UTC - Justice will be served. The Trump Administration will always have the backs of our heroic ...](2060529040503492904/)
+  - Source: https://x.com/DHSgov/status/2060529040503492904
+  - Justice will be served. The Trump Administration will always have the backs of our heroic law enforcement as they put their lives on the line to protect our nation.
+- [01:03 UTC - Repost of @SecMullinDHS: Thank you to the @FBI for arresting a rioter who threatened to ki...](2060527558760755235/)
+  - Source: https://x.com/DHSgov/status/2060527558760755235
+  - Repost of @SecMullinDHS: Thank you to the @FBI for arresting a rioter who threatened to kill an @ICEgov law enforcement officer and his family outside Delaney Hall. Our officers ar...

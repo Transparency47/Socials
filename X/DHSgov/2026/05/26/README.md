@@ -1,0 +1,49 @@
+# X / DHSgov / 2026-05-26
+
+- Posts: 15
+
+- [23:25 UTC - We will NOT let rioters stop or slow @ICEgov down. While New Jersey sanctuary politicians ...](2059415646446752000/)
+  - Source: https://x.com/DHSgov/status/2059415646446752000
+  - We will NOT let rioters stop or slow @ICEgov down. While New Jersey sanctuary politicians and anti-ICE agitators chose to spend their Memorial Day weekend smearing law enforcement...
+- [22:28 UTC - Repost of @SecMullinDHS: I have zero respect for career liberal politicians like Chuck Sch...](2059401234746859904/)
+  - Source: https://x.com/DHSgov/status/2059401234746859904
+  - Repost of @SecMullinDHS: I have zero respect for career liberal politicians like Chuck Schumer (who has never held a job outside of politics) who openly demonize law enforcement. W...
+- [22:24 UTC - “I pray that out of his glorious riches he may strengthen you with power through his Spiri...](2059400208002302019/)
+  - Source: https://x.com/DHSgov/status/2059400208002302019
+  - “I pray that out of his glorious riches he may strengthen you with power through his Spirit in your inner being.” Ephesians 3:16.
+- [22:07 UTC - PHOENIX, ARIZONA: This criminal illegal alien has been INDICTED after toxicology reports s...](2059396041795932570/)
+  - Source: https://x.com/DHSgov/status/2059396041795932570
+  - PHOENIX, ARIZONA: This criminal illegal alien has been INDICTED after toxicology reports showed she was driving IMPAIRED during the crash that KILLED her three-year-old daughter an...
+- [19:57 UTC - Under @POTUS Trump, the message is clear: if you are in our country illegally we will find...](2059363239390314579/)
+  - Source: https://x.com/DHSgov/status/2059363239390314579
+  - Under @POTUS Trump, the message is clear: if you are in our country illegally we will find you, arrest you, and deport you. All illegal aliens should take advantage of our CBP Home...
+- [19:35 UTC - Reduce. Reuse. Remigrate. 🌎 https://t.co/VzBkxb5iLC](2059357696785105190/)
+  - Source: https://x.com/DHSgov/status/2059357696785105190
+  - Reduce. Reuse. Remigrate. 🌎 https://t.co/VzBkxb5iLC
+- [19:00 UTC - ASYLUM FRAUD CRACKDOWN. For years, MILLIONS of illegal aliens have committed fraud in our ...](2059349022805291281/)
+  - Source: https://x.com/DHSgov/status/2059349022805291281
+  - ASYLUM FRAUD CRACKDOWN. For years, MILLIONS of illegal aliens have committed fraud in our immigration system — and no place is this more rampant than in immigration court. Now, tha...
+- [18:50 UTC - Meet the disgusting criminals New Jersey sanctuary politicians want to be YOUR neighbor. @...](2059346350467162258/)
+  - Source: https://x.com/DHSgov/status/2059346350467162258
+  - Meet the disgusting criminals New Jersey sanctuary politicians want to be YOUR neighbor. @ICEgov is NOT slowing down — we’ll continue arresting and removing criminals like these fr...
+- [16:54 UTC - It is embarrassing that New Jersey sanctuary politicians and anti-ICE rioters chose to spe...](2059317136032465144/)
+  - Source: https://x.com/DHSgov/status/2059317136032465144
+  - It is embarrassing that New Jersey sanctuary politicians and anti-ICE rioters chose to spend their Memorial Day weekend smearing ICE law enforcement. Thank you @ICEgov for continui...
+- [16:53 UTC - Wherever threats arise, DHS stands ready to PROTECT our homeland. Join us at the DHS Caree...](2059316994273316976/)
+  - Source: https://x.com/DHSgov/status/2059316994273316976
+  - Wherever threats arise, DHS stands ready to PROTECT our homeland. Join us at the DHS Career Expo and start your career with us today: https://t.co/7ZuPaS3136 https://t.co/VX6u6m60W...
+- [16:30 UTC - FACT CHECK: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions. A...](2059311221036265924/)
+  - Source: https://x.com/DHSgov/status/2059311221036265924
+  - FACT CHECK: there is NO HUNGER STRIKE at Delaney Hall. There are no subprime conditions. ALL detainees are provided with 3 meals a day, clean water, clothing, bedding, showers, soa...
+- [16:17 UTC - These rioters have OBSTRUCTED law enforcement operations—a felony and a crime. Local polic...](2059307916088205726/)
+  - Source: https://x.com/DHSgov/status/2059307916088205726
+  - These rioters have OBSTRUCTED law enforcement operations—a felony and a crime. Local police have refused to answer calls to help our law enforcement. We will not allow violent riot...
+- [14:18 UTC - Good. We encourage ALL illegal aliens to take advantage of our historic and generous CBP H...](2059278044712382929/)
+  - Source: https://x.com/DHSgov/status/2059278044712382929
+  - Good. We encourage ALL illegal aliens to take advantage of our historic and generous CBP Home Deal — $2,600 and a free flight: https://t.co/YGo3uuNvrE
+- [13:44 UTC - While the rest of America was honoring our fallen heroes, New Jersey sanctuary politicians...](2059269564567834868/)
+  - Source: https://x.com/DHSgov/status/2059269564567834868
+  - While the rest of America was honoring our fallen heroes, New Jersey sanctuary politicians spent Memorial Day weekend smearing @ICEgov law enforcement and fighting for criminals. T...
+- [03:12 UTC - No individuals were directly struck by pepper ball projectiles.   On May 25, 2026, rioters...](2059110483928486057/)
+  - Source: https://x.com/DHSgov/status/2059110483928486057
+  - No individuals were directly struck by pepper ball projectiles. On May 25, 2026, rioters obstructed law enforcement from exiting the ICE facility. Officers issued multiple lawful v...

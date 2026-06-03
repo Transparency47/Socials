@@ -1,0 +1,67 @@
+# X / DHSgov / 2026-05-28
+
+- Posts: 21
+
+- [23:57 UTC - Repost of @SecMullinDHS: Today, four representatives of the New Jersey State Health Depart...](2060148584469672380/)
+  - Source: https://x.com/DHSgov/status/2060148584469672380
+  - Repost of @SecMullinDHS: Today, four representatives of the New Jersey State Health Department arrived at approximately 11:00 AM. They entered the facility and inspected the foodse...
+- [22:49 UTC - Repost of @WhiteHouse: They walk among us. https://t.co/7HysdUuNVM https://t.co/PkUHcT7igg](2060131457679442433/)
+  - Source: https://x.com/DHSgov/status/2060131457679442433
+  - Repost of @WhiteHouse: They walk among us. https://t.co/7HysdUuNVM https://t.co/PkUHcT7igg
+- [22:21 UTC - THEY WALK AMONG US. https://t.co/tXmV868uA8](2060124323533230139/)
+  - Source: https://x.com/DHSgov/status/2060124323533230139
+  - THEY WALK AMONG US. https://t.co/tXmV868uA8
+- [22:08 UTC - Repost of @WhiteHouse: Don't zoom into the t-shirt. https://t.co/Y2nRIsaoqF](2060121077632610411/)
+  - Source: https://x.com/DHSgov/status/2060121077632610411
+  - Repost of @WhiteHouse: Don't zoom into the t-shirt. https://t.co/Y2nRIsaoqF
+- [21:07 UTC - Repost of @fema: Your safety and security during FIFA World Cup 2026 is paramount. FEMA de...](2060105705525264713/)
+  - Source: https://x.com/DHSgov/status/2060105705525264713
+  - Repost of @fema: Your safety and security during FIFA World Cup 2026 is paramount. FEMA delivered close to $900M in grants to boost preparedness training in host cities across the...
+- [19:44 UTC - Repost of @SecMullinDHS: Sanctuary city politicians in New Jersey put criminal illegal ali...](2060084747389276487/)
+  - Source: https://x.com/DHSgov/status/2060084747389276487
+  - Repost of @SecMullinDHS: Sanctuary city politicians in New Jersey put criminal illegal aliens over their own constituents. I get a list of the worst of the worst illegals in ICE de...
+- [19:26 UTC - A crown for every achievement. https://t.co/S2Yhhmhkq6](2060080355449675846/)
+  - Source: https://x.com/DHSgov/status/2060080355449675846
+  - A crown for every achievement. https://t.co/S2Yhhmhkq6
+- [19:12 UTC - Repost of @DHSgov: The Clock is Ticking. Illegal aliens have a choice: LEAVE NOW or face t...](2060076651426255202/)
+  - Source: https://x.com/DHSgov/status/2060076651426255202
+  - Repost of @DHSgov: The Clock is Ticking. Illegal aliens have a choice: LEAVE NOW or face the full force of the American justice system, including fines, asset seizure, removal, and...
+- [18:10 UTC - Repost of @USBPChiefELC: Established on May 28, 1924, the USBP was born from a critical ne...](2060061236809625966/)
+  - Source: https://x.com/DHSgov/status/2060061236809625966
+  - Repost of @USBPChiefELC: Established on May 28, 1924, the USBP was born from a critical need to secure our expanding borders. From its early days, with agents often providing their...
+- [18:10 UTC - Repost of @USBPChiefEPT: 102 Years of Honor. Service. Sacrifice.   Since 1924, U.S. Border...](2060061210419032261/)
+  - Source: https://x.com/DHSgov/status/2060061210419032261
+  - Repost of @USBPChiefEPT: 102 Years of Honor. Service. Sacrifice. Since 1924, U.S. Border Patrol Agents have protected our borders, defended our nation, and served with honor. Today...
+- [18:10 UTC - Repost of @USBPChiefRGV: For 102 years, the men and women of the Border Patrol have stood ...](2060061172854825234/)
+  - Source: https://x.com/DHSgov/status/2060061172854825234
+  - Repost of @USBPChiefRGV: For 102 years, the men and women of the Border Patrol have stood watch with commitment, honor, and courage. Today, we celebrate the legacy of service, sacr...
+- [18:07 UTC - DRUG CONSPIRACY SENTENCING. Four Massachusetts men have been sentenced to prison after the...](2060060324577837332/)
+  - Source: https://x.com/DHSgov/status/2060060324577837332
+  - DRUG CONSPIRACY SENTENCING. Four Massachusetts men have been sentenced to prison after they conspired to manufacture and distribute counterfeit pills laced with fentanyl and other...
+- [17:04 UTC - While sanctuary politicians demonize our @ICEgov law enforcement, the men and women of ICE...](2060044660123258979/)
+  - Source: https://x.com/DHSgov/status/2060044660123258979
+  - While sanctuary politicians demonize our @ICEgov law enforcement, the men and women of ICE are working get criminals off American streets. When will sanctuary politicians stop spre...
+- [16:10 UTC - Repost of @SecMullinDHS: On the evening of May 27th, approximately 100 anti-ICE rioters ga...](2060030873194361186/)
+  - Source: https://x.com/DHSgov/status/2060030873194361186
+  - Repost of @SecMullinDHS: On the evening of May 27th, approximately 100 anti-ICE rioters gathered around the Delaney Hall ICE facility. Rioters assaulted and threw objects at law en...
+- [15:58 UTC - The Clock is Ticking. Illegal aliens have a choice: LEAVE NOW or face the full force of th...](2060027969586729048/)
+  - Source: https://x.com/DHSgov/status/2060027969586729048
+  - The Clock is Ticking. Illegal aliens have a choice: LEAVE NOW or face the full force of the American justice system, including fines, asset seizure, removal, and a permanent bar. U...
+- [15:23 UTC - These policies are not only UNCONSTITUTIONAL — they put American communities at risk. By d...](2060019037191413928/)
+  - Source: https://x.com/DHSgov/status/2060019037191413928
+  - These policies are not only UNCONSTITUTIONAL — they put American communities at risk. By denying undercover license plates to our components, including @ICEgov, these policies allo...
+- [13:55 UTC - Repost of @SecMullinDHS: For more than a century, the men and women of Border Patrol have ...](2059996882730893448/)
+  - Source: https://x.com/DHSgov/status/2059996882730893448
+  - Repost of @SecMullinDHS: For more than a century, the men and women of Border Patrol have stood on the front lines keeping Americans safe. On the 102nd anniversary of the U.S. Bord...
+- [13:40 UTC - Repost of @CBP: Today we celebrate 102 years of the US Border Patrol and the legacy of ser...](2059993180351643855/)
+  - Source: https://x.com/DHSgov/status/2059993180351643855
+  - Repost of @CBP: Today we celebrate 102 years of the US Border Patrol and the legacy of service, sacrifice, and security it represents. For more than a century, USBP agents have ans...
+- [12:56 UTC - Repost of @RapidResponse47: .@SecMullinDHS on the NJ ICE facility: "Not only are we provid...](2059982172698583514/)
+  - Source: https://x.com/DHSgov/status/2059982172698583514
+  - Repost of @RapidResponse47: .@SecMullinDHS on the NJ ICE facility: "Not only are we providing them a safe place to stay, and food, and a place to sleep, but we’re also giving them...
+- [11:58 UTC - “We see licenses being issued out of California, New York, and other sanctuary states to t...](2059967600294064535/)
+  - Source: https://x.com/DHSgov/status/2059967600294064535
+  - “We see licenses being issued out of California, New York, and other sanctuary states to these illegals who have no reason to be on our roads. We continue to see crashes like this...
+- [11:46 UTC - “We fall within federal compliance. This isn’t the Holiday Inn. We are not providing luxur...](2059964556542128609/)
+  - Source: https://x.com/DHSgov/status/2059964556542128609
+  - “We fall within federal compliance. This isn’t the Holiday Inn. We are not providing luxury housing. What we are doing is providing a sanitary place for them to be detained. Rememb...

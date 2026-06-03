@@ -1,0 +1,67 @@
+# X / DHSgov / 2026-05-29
+
+- Posts: 21
+
+- [23:16 UTC - A win for law and order.](2060500625868116138/)
+  - Source: https://x.com/DHSgov/status/2060500625868116138
+  - A win for law and order.
+- [22:50 UTC - Repost of @SecMullinDHS: This is a win for law and order. After days of @GovSherrillNJ REF...](2060493927833022891/)
+  - Source: https://x.com/DHSgov/status/2060493927833022891
+  - Repost of @SecMullinDHS: This is a win for law and order. After days of @GovSherrillNJ REFUSING to allow State Police to assist @ICEgov law enforcement against violent anti-ICE rio...
+- [22:38 UTC - Repost of @SecMullinDHS: Last night, a violent rioter savagely kicked and bit ICE law enfo...](2060490965521998293/)
+  - Source: https://x.com/DHSgov/status/2060490965521998293
+  - Repost of @SecMullinDHS: Last night, a violent rioter savagely kicked and bit ICE law enforcement officers outside of Delaney Hall. Today, this violent agitator is being charged. T...
+- [22:03 UTC - CORRECT THE RECORD: Sanctuary politicians are spreading categorically FALSE smears about I...](2060482286991106472/)
+  - Source: https://x.com/DHSgov/status/2060482286991106472
+  - CORRECT THE RECORD: Sanctuary politicians are spreading categorically FALSE smears about ICE’s Delaney Hall facility in New Jersey. Here are some of the most EGREGIOUS examples of...
+- [21:41 UTC - Yum.](2060476543038521692/)
+  - Source: https://x.com/DHSgov/status/2060476543038521692
+  - Yum.
+- [20:16 UTC - Repost of @DHSgov: Strive valiantly, and know the triumph of great achievement. 🇺🇸 https:/...](2060455227992543490/)
+  - Source: https://x.com/DHSgov/status/2060455227992543490
+  - Repost of @DHSgov: Strive valiantly, and know the triumph of great achievement. 🇺🇸 https://t.co/ZEv6qpCcGn
+- [20:02 UTC - Comparisons of illegal alien detention centers to internment camps used during World War I...](2060451651123662876/)
+  - Source: https://x.com/DHSgov/status/2060451651123662876
+  - Comparisons of illegal alien detention centers to internment camps used during World War II are deranged and lazy. These types of smears against our brave @ICEgov law enforcement a...
+- [18:51 UTC - Repost of @SecMullinDHS: If you break our immigration laws, you will be detained and depor...](2060433900183138320/)
+  - Source: https://x.com/DHSgov/status/2060433900183138320
+  - Repost of @SecMullinDHS: If you break our immigration laws, you will be detained and deported. I don’t make the laws, Congress does. @CoryBooker is trying to turn an ICE detention...
+- [18:24 UTC - Sanctuary Spanberger continues to put criminal illegal aliens over Virginians. This crimin...](2060427144765849841/)
+  - Source: https://x.com/DHSgov/status/2060427144765849841
+  - Sanctuary Spanberger continues to put criminal illegal aliens over Virginians. This criminal had a PREVIOUS @ICEgov detainer — and sanctuary politicians RELEASED HIM from jail. He...
+- [17:43 UTC - Meet some of the worst of the worst in New Jersey. Instead of continuing their political t...](2060416723795190001/)
+  - Source: https://x.com/DHSgov/status/2060416723795190001
+  - Meet some of the worst of the worst in New Jersey. Instead of continuing their political theatre, @GovSherrillNJ and New Jersey sanctuary politicians should be thanking the brave m...
+- [14:47 UTC - Repost of @CBPAMO: 🚨AMO Black Hawk disabling fire ends vessel pursuit🚨 On May 13, AMO airc...](2060372510026203634/)
+  - Source: https://x.com/DHSgov/status/2060372510026203634
+  - Repost of @CBPAMO: 🚨AMO Black Hawk disabling fire ends vessel pursuit🚨 On May 13, AMO aircrews detected a suspicious 25-foot Yola-type vessel northwest of Puerto Rico, carrying thr...
+- [13:51 UTC - Strive valiantly, and know the triumph of great achievement. 🇺🇸 https://t.co/ZEv6qpCcGn](2060358269873373679/)
+  - Source: https://x.com/DHSgov/status/2060358269873373679
+  - Strive valiantly, and know the triumph of great achievement. 🇺🇸 https://t.co/ZEv6qpCcGn
+- [13:25 UTC - Michael Salomon Rosario-Cruz is NOT a ‘Mississippi Man’ — he is a criminal illegal alien w...](2060351727845453960/)
+  - Source: https://x.com/DHSgov/status/2060351727845453960
+  - Michael Salomon Rosario-Cruz is NOT a ‘Mississippi Man’ — he is a criminal illegal alien who KILLED four young Americans while driving under the influence. Once again, @TheOklahoma...
+- [13:08 UTC - Repost of @SecMullinDHS: On the evening of May 28th, approximately 100 anti-ICE rioters ga...](2060347564268847196/)
+  - Source: https://x.com/DHSgov/status/2060347564268847196
+  - Repost of @SecMullinDHS: On the evening of May 28th, approximately 100 anti-ICE rioters gathered around the Delaney Hall ICE facility. Rioters bit, kicked, and punched law enforcem...
+- [12:05 UTC - Repost of @WHTaskForceFIFA: Two teams. One goal. While the @USMNT prepares to compete on t...](2060331663238803600/)
+  - Source: https://x.com/DHSgov/status/2060331663238803600
+  - Repost of @WHTaskForceFIFA: Two teams. One goal. While the @USMNT prepares to compete on the world’s biggest stage, our team is working every day to help ensure America is ready to...
+- [01:56 UTC - Repost of @DHSgov: A crown for every achievement. https://t.co/S2Yhhmhkq6](2060178491581075960/)
+  - Source: https://x.com/DHSgov/status/2060178491581075960
+  - Repost of @DHSgov: A crown for every achievement. https://t.co/S2Yhhmhkq6
+- [00:46 UTC - Discover the truth. https://t.co/tXmV868uA8](2060160738606395892/)
+  - Source: https://x.com/DHSgov/status/2060160738606395892
+  - Discover the truth. https://t.co/tXmV868uA8
+- [00:30 UTC - Repost of @WhiteHouse: They don’t belong here. The truth has dropped ➡️ https://t.co/bE6Yj...](2060156895181132156/)
+  - Source: https://x.com/DHSgov/status/2060156895181132156
+  - Repost of @WhiteHouse: They don’t belong here. The truth has dropped ➡️ https://t.co/bE6YjLxbdY https://t.co/ZLN4skcg1g
+- [00:12 UTC - Repost of @SecMullinDHS: @POTUS Trump and @ICEgov are making America’s streets safer. I ha...](2060152237154812277/)
+  - Source: https://x.com/DHSgov/status/2060152237154812277
+  - Repost of @SecMullinDHS: @POTUS Trump and @ICEgov are making America’s streets safer. I have no respect for sanctuary politicians who care more about political theatre than keeping...
+- [00:03 UTC - 🚨More violence in SANCTUARY SPANBERGER’S Virginia: Cristobal Liobardo Vasquez-Sanchez, a c...](2060149976576020927/)
+  - Source: https://x.com/DHSgov/status/2060149976576020927
+  - 🚨More violence in SANCTUARY SPANBERGER’S Virginia: Cristobal Liobardo Vasquez-Sanchez, a criminal illegal alien from El Salvador, is accused of SEXUALLY ASSAULTING a woman. @ICEgov...
+- [00:02 UTC - Repost of @SecMullinDHS: Sanctuary politicians put illegal alien criminals over their own ...](2060149847961805272/)
+  - Source: https://x.com/DHSgov/status/2060149847961805272
+  - Repost of @SecMullinDHS: Sanctuary politicians put illegal alien criminals over their own citizens. Just look at Virginia. ⬇️ Here is the latest horrific consequence of illegal ali...
