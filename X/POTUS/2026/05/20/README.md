@@ -1,6 +1,6 @@
 # X / POTUS / 2026-05-20
 
-- Posts: 9
+- Posts: 11
 
 - [20:15 UTC - Repost of @WhiteHouse: Sounds of Summer at the Congressional Picnic: Postcard Edition 🇺🇸 h...](2057193517391176112/)
   - Source: https://x.com/POTUS/status/2057193517391176112
@@ -29,3 +29,9 @@
 - [01:50 UTC - Repost of @WhiteHouse: MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ](2056915429138862214/)
   - Source: https://x.com/POTUS/status/2056915429138862214
   - Repost of @WhiteHouse: MAKE AMERICA GREAT AGAIN!!! 🇺🇸 https://t.co/jH9tdYImJJ
+- [00:34 UTC - Repost of @WhiteHouse: President Trump welcomes members of the House, Senate and Cabinet t...](2056896349241544802/)
+  - Source: https://x.com/POTUS/status/2056896349241544802
+  - Repost of @WhiteHouse: President Trump welcomes members of the House, Senate and Cabinet to the White House for the annual Congressional Picnic at the White House! 🇺🇸 https://t.co/...
+- [00:34 UTC - Repost of @WhiteHouse: First Lady Melania Trump delivers an announcement that the House ha...](2056896316471464144/)
+  - Source: https://x.com/POTUS/status/2056896316471464144
+  - Repost of @WhiteHouse: First Lady Melania Trump delivers an announcement that the House has passed the Fostering the Future Act! https://t.co/BB6sMJB5dn

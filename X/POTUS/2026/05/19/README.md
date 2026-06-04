@@ -1,0 +1,34 @@
+# X / POTUS / 2026-05-19
+
+- Posts: 10
+
+- [23:25 UTC - Repost of @WhiteHouse: President Trump and the First Lady Deliver Remarks at the Congressi...](2056878963243319730/)
+  - Source: https://x.com/POTUS/status/2056878963243319730
+  - Repost of @WhiteHouse: President Trump and the First Lady Deliver Remarks at the Congressional Picnic https://t.co/XUz8N0Z0ze
+- [21:49 UTC - Repost of @WhiteHouse: President Trump’s Ratepayer Protection Pledge is putting America fi...](2056854791440003238/)
+  - Source: https://x.com/POTUS/status/2056854791440003238
+  - Repost of @WhiteHouse: President Trump’s Ratepayer Protection Pledge is putting America first. He’s calling on the nation’s leading AI companies to build, bring, or buy 100% of the...
+- [21:49 UTC - Repost of @WhiteHouse: Loud and clear since day 1: Iran can NEVER have a nuclear weapon. h...](2056854761446453436/)
+  - Source: https://x.com/POTUS/status/2056854761446453436
+  - Repost of @WhiteHouse: Loud and clear since day 1: Iran can NEVER have a nuclear weapon. https://t.co/UsD9NcE7lD
+- [20:20 UTC - Repost of @WhiteHouse: New White House ballroom update just dropped https://t.co/OYFznZSoO...](2056832420381331891/)
+  - Source: https://x.com/POTUS/status/2056832420381331891
+  - Repost of @WhiteHouse: New White House ballroom update just dropped https://t.co/OYFznZSoOf
+- [17:46 UTC - Repost of @WhiteHouse: Vice President JD Vance Briefs Members of the Media, May 19, 2026 h...](2056793679939920113/)
+  - Source: https://x.com/POTUS/status/2056793679939920113
+  - Repost of @WhiteHouse: Vice President JD Vance Briefs Members of the Media, May 19, 2026 https://t.co/M23jrYxOTD
+- [17:15 UTC - Repost of @WhiteHouse: The president who does it all. https://t.co/RjIbtYJuoJ](2056785930661298632/)
+  - Source: https://x.com/POTUS/status/2056785930661298632
+  - Repost of @WhiteHouse: The president who does it all. https://t.co/RjIbtYJuoJ
+- [17:15 UTC - Repost of @WhiteHouse: Nothing like this will ever be built again!! President Trump gives ...](2056785911900164349/)
+  - Source: https://x.com/POTUS/status/2056785911900164349
+  - Repost of @WhiteHouse: Nothing like this will ever be built again!! President Trump gives the press a look at the White House Ballroom construction project, built by his personal a...
+- [14:24 UTC - Repost of @WhiteHouse: President Trump Visits White House Ballroom Construction https://t....](2056742796527063408/)
+  - Source: https://x.com/POTUS/status/2056742796527063408
+  - Repost of @WhiteHouse: President Trump Visits White House Ballroom Construction https://t.co/5lx4lxmi1k
+- [13:52 UTC - Repost of @WhiteHouse: Making our nation’s capital beautiful again! THANK YOU, PRESIDENT T...](2056734827416633740/)
+  - Source: https://x.com/POTUS/status/2056734827416633740
+  - Repost of @WhiteHouse: Making our nation’s capital beautiful again! THANK YOU, PRESIDENT TRUMP 🇺🇸 https://t.co/weSXpfOccU
+- [01:24 UTC - Repost of @WhiteHouse: President Trump is delivering BIG on his promise to lower healthcar...](2056546559647453686/)
+  - Source: https://x.com/POTUS/status/2056546559647453686
+  - Repost of @WhiteHouse: President Trump is delivering BIG on his promise to lower healthcare costs! https://t.co/jjnWOhbKzY just expanded to feature more than 600 generic medication...

@@ -1,6 +1,9 @@
 {
-  "last_errors": [],
-  "last_successful_run": "2026-06-04T14:38:54.429749+00:00",
+  "last_errors": [
+    "X/EnvoyNoem: ConnectionError: ('Connection aborted.', OSError(49, \"Can't assign requested address\"))",
+    "X/FBIDirectorKash: ConnectionError: ('Connection aborted.', OSError(49, \"Can't assign requested address\"))"
+  ],
+  "last_successful_run": "2026-06-04T14:45:55.648039+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7432520023958146335": {
       "account": "RealDonaldTrump",
@@ -118824,6 +118827,479 @@
       "title": "\ud83d\udea8Authorities have dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON ...",
       "url": "https://x.com/DHSgov/status/2061970120746881482"
     },
+    "x:icegov:2062284459496395006": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:49:29.345995+00:00",
+      "path": "X/ICEgov/2026/06/03/2062284459496395006",
+      "platform": "x",
+      "post_id": "2062284459496395006",
+      "published": "2026-06-03T21:25:05+00:00",
+      "title": "Repost of @Brooketaylortv: #EXCLUSIVE: After being honored by DHS Sec. Mullin for their ac...",
+      "url": "https://x.com/ICEgov/status/2062284459496395006"
+    },
+    "x:icegov:2062285830430027812": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T14:49:29.345558+00:00",
+      "path": "X/ICEgov/2026/06/03/2062285830430027812",
+      "platform": "x",
+      "post_id": "2062285830430027812",
+      "published": "2026-06-03T21:30:32+00:00",
+      "title": "Despite state and local officials in New Jersey claiming there is a hunger strike occurrin...",
+      "url": "https://x.com/ICEgov/status/2062285830430027812"
+    },
+    "x:icegov:2062308681673212234": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:49:29.345858+00:00",
+      "path": "X/ICEgov/2026/06/03/2062308681673212234",
+      "platform": "x",
+      "post_id": "2062308681673212234",
+      "published": "2026-06-03T23:01:20+00:00",
+      "title": "Repost of @DHSgov: Our @ICEgov law enforcement officers are the best of the best. We will ...",
+      "url": "https://x.com/ICEgov/status/2062308681673212234"
+    },
+    "x:icegov:2062308969859654029": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:49:29.345733+00:00",
+      "path": "X/ICEgov/2026/06/03/2062308969859654029",
+      "platform": "x",
+      "post_id": "2062308969859654029",
+      "published": "2026-06-03T23:02:28+00:00",
+      "title": "Repost of @DHSgov: Last week, the state of New Jersey\u2019s health inspectors went to Delaney ...",
+      "url": "https://x.com/ICEgov/status/2062308969859654029"
+    },
+    "x:icegov:2062337109025812767": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:49:29.345379+00:00",
+      "path": "X/ICEgov/2026/06/04/2062337109025812767",
+      "platform": "x",
+      "post_id": "2062337109025812767",
+      "published": "2026-06-04T00:54:17+00:00",
+      "title": "Repost of @DHSgov: .@SecMullinDHS DEBUNKS sanctuary politicians\u2019 hoaxes by comparing Delan...",
+      "url": "https://x.com/ICEgov/status/2062337109025812767"
+    },
+    "x:icegov:2062353703915426023": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T14:49:29.345200+00:00",
+      "path": "X/ICEgov/2026/06/04/2062353703915426023",
+      "platform": "x",
+      "post_id": "2062353703915426023",
+      "published": "2026-06-04T02:00:14+00:00",
+      "title": "For SEXUALLY EXPLOITING A MINOR INTO PROSTITUTION in Bakersfield, Calif., Mexican illegal ...",
+      "url": "https://x.com/ICEgov/status/2062353703915426023"
+    },
+    "x:icegov:2062377132974629181": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T14:49:29.345039+00:00",
+      "path": "X/ICEgov/2026/06/04/2062377132974629181",
+      "platform": "x",
+      "post_id": "2062377132974629181",
+      "published": "2026-06-04T03:33:20+00:00",
+      "title": "Victor Fabian Lansa Saca \ud83d\udccdIN DELANEY HALL RIGHT NOW Criminal history: \ud83d\udc49Arrested by the Wes...",
+      "url": "https://x.com/ICEgov/status/2062377132974629181"
+    },
+    "x:icegov:2062385152785846471": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T14:49:29.344656+00:00",
+      "path": "X/ICEgov/2026/06/04/2062385152785846471",
+      "platform": "x",
+      "post_id": "2062385152785846471",
+      "published": "2026-06-04T04:05:12+00:00",
+      "title": "Jose Victor Cruz Rivera \ud83d\udccdIN DELANEY HALL RIGHT NOW Criminal history: \ud83d\udc49Arrested for carryin...",
+      "url": "https://x.com/ICEgov/status/2062385152785846471"
+    },
+    "x:icegov:2062515716004209138": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:49:29.344457+00:00",
+      "path": "X/ICEgov/2026/06/04/2062515716004209138",
+      "platform": "x",
+      "post_id": "2062515716004209138",
+      "published": "2026-06-04T12:44:01+00:00",
+      "title": "Repost of @DHSgov: MAKE NEW JERSEY SAFE AGAIN While sanctuary politicians spread smears ab...",
+      "url": "https://x.com/ICEgov/status/2062515716004209138"
+    },
+    "x:icegov:2062521055692939427": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T14:49:29.344209+00:00",
+      "path": "X/ICEgov/2026/06/04/2062521055692939427",
+      "platform": "x",
+      "post_id": "2062521055692939427",
+      "published": "2026-06-04T13:05:14+00:00",
+      "title": "Jesus Maltos-Chacon is a Mexican criminal illegal alien wanted for homicide and vehicular ...",
+      "url": "https://x.com/ICEgov/status/2062521055692939427"
+    },
+    "x:potus:2054863474723872849": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.709462+00:00",
+      "path": "X/POTUS/2026/05/14/2054863474723872849",
+      "platform": "x",
+      "post_id": "2054863474723872849",
+      "published": "2026-05-14T09:56:44+00:00",
+      "title": "Repost of @WhiteHouse: From the Bilateral Meeting in Beijing: President Trump had a good m...",
+      "url": "https://x.com/POTUS/status/2054863474723872849"
+    },
+    "x:potus:2054897167530103183": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.709350+00:00",
+      "path": "X/POTUS/2026/05/14/2054897167530103183",
+      "platform": "x",
+      "post_id": "2054897167530103183",
+      "published": "2026-05-14T12:10:37+00:00",
+      "title": "Repost of @WhiteHouse: History in motion. \ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3 https://t.co/33CTXbLa0s",
+      "url": "https://x.com/POTUS/status/2054897167530103183"
+    },
+    "x:potus:2054917457505026484": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.709247+00:00",
+      "path": "X/POTUS/2026/05/14/2054917457505026484",
+      "platform": "x",
+      "post_id": "2054917457505026484",
+      "published": "2026-05-14T13:31:15+00:00",
+      "title": "Repost of @WhiteHouse: A powerful arrival ceremony in Beijing.\u00a0\ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3 https://t.co/kGedqmSwu...",
+      "url": "https://x.com/POTUS/status/2054917457505026484"
+    },
+    "x:potus:2055026313128288662": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.709140+00:00",
+      "path": "X/POTUS/2026/05/14/2055026313128288662",
+      "platform": "x",
+      "post_id": "2055026313128288662",
+      "published": "2026-05-14T20:43:48+00:00",
+      "title": "Repost of @WhiteHouse: \ud83d\udccd Temple of Heaven, Beijing | May 14, 2026 https://t.co/CH2DJ9SWYV",
+      "url": "https://x.com/POTUS/status/2055026313128288662"
+    },
+    "x:potus:2055081527726207385": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.709020+00:00",
+      "path": "X/POTUS/2026/05/15/2055081527726207385",
+      "platform": "x",
+      "post_id": "2055081527726207385",
+      "published": "2026-05-15T00:23:12+00:00",
+      "title": "Repost of @WhiteHouse: \"When President Xi very elegantly referred to the United States as ...",
+      "url": "https://x.com/POTUS/status/2055081527726207385"
+    },
+    "x:potus:2055081583623725370": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.708828+00:00",
+      "path": "X/POTUS/2026/05/15/2055081583623725370",
+      "platform": "x",
+      "post_id": "2055081583623725370",
+      "published": "2026-05-15T00:23:25+00:00",
+      "title": "Repost of @WhiteHouse: \"The relationship between the American and Chinese people goes all ...",
+      "url": "https://x.com/POTUS/status/2055081583623725370"
+    },
+    "x:potus:2055214487662215324": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.708535+00:00",
+      "path": "X/POTUS/2026/05/15/2055214487662215324",
+      "platform": "x",
+      "post_id": "2055214487662215324",
+      "published": "2026-05-15T09:11:32+00:00",
+      "title": "Repost of @WhiteHouse: President Trump meets with President Xi in Zhongnanhai. \"I want to ...",
+      "url": "https://x.com/POTUS/status/2055214487662215324"
+    },
+    "x:potus:2055247326017458593": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.708411+00:00",
+      "path": "X/POTUS/2026/05/15/2055247326017458593",
+      "platform": "x",
+      "post_id": "2055247326017458593",
+      "published": "2026-05-15T11:22:01+00:00",
+      "title": "Repost of @WhiteHouse: \ud83d\udccd Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX",
+      "url": "https://x.com/POTUS/status/2055247326017458593"
+    },
+    "x:potus:2055251841303093649": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.708259+00:00",
+      "path": "X/POTUS/2026/05/15/2055251841303093649",
+      "platform": "x",
+      "post_id": "2055251841303093649",
+      "published": "2026-05-15T11:39:58+00:00",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump departs Beijing following a historic summ...",
+      "url": "https://x.com/POTUS/status/2055251841303093649"
+    },
+    "x:potus:2055324577312440362": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.708146+00:00",
+      "path": "X/POTUS/2026/05/15/2055324577312440362",
+      "platform": "x",
+      "post_id": "2055324577312440362",
+      "published": "2026-05-15T16:28:59+00:00",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump Visits China's Temple of Heaven. \ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3 htt...",
+      "url": "https://x.com/POTUS/status/2055324577312440362"
+    },
+    "x:potus:2055494658847801707": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.707989+00:00",
+      "path": "X/POTUS/2026/05/16/2055494658847801707",
+      "platform": "x",
+      "post_id": "2055494658847801707",
+      "published": "2026-05-16T03:44:50+00:00",
+      "title": "Repost of @WhiteHouse: \u201cTonight, at my direction, brave American forces and the Armed Forc...",
+      "url": "https://x.com/POTUS/status/2055494658847801707"
+    },
+    "x:potus:2055743873456939220": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.707819+00:00",
+      "path": "X/POTUS/2026/05/16/2055743873456939220",
+      "platform": "x",
+      "post_id": "2055743873456939220",
+      "published": "2026-05-16T20:15:07+00:00",
+      "title": "Repost of @WhiteHouse: NO GAMES. https://t.co/eRtYH9lbDp",
+      "url": "https://x.com/POTUS/status/2055743873456939220"
+    },
+    "x:potus:2055743888824913952": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.707516+00:00",
+      "path": "X/POTUS/2026/05/16/2055743888824913952",
+      "platform": "x",
+      "post_id": "2055743888824913952",
+      "published": "2026-05-16T20:15:11+00:00",
+      "title": "Repost of @WhiteHouse: \"This bond of commerce and respect that stretches back 250 years is...",
+      "url": "https://x.com/POTUS/status/2055743888824913952"
+    },
+    "x:potus:2056185951416651804": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.707163+00:00",
+      "path": "X/POTUS/2026/05/18/2056185951416651804",
+      "platform": "x",
+      "post_id": "2056185951416651804",
+      "published": "2026-05-18T01:31:47+00:00",
+      "title": "Repost of @WhiteHouse: https://t.co/DuOAK547Yp",
+      "url": "https://x.com/POTUS/status/2056185951416651804"
+    },
+    "x:potus:2056413940951707810": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.706971+00:00",
+      "path": "X/POTUS/2026/05/18/2056413940951707810",
+      "platform": "x",
+      "post_id": "2056413940951707810",
+      "published": "2026-05-18T16:37:44+00:00",
+      "title": "Repost of @WhiteHouse: The Dumacrats and Media have totally lost their way. https://t.co/U...",
+      "url": "https://x.com/POTUS/status/2056413940951707810"
+    },
+    "x:potus:2056413952599310358": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.706738+00:00",
+      "path": "X/POTUS/2026/05/18/2056413952599310358",
+      "platform": "x",
+      "post_id": "2056413952599310358",
+      "published": "2026-05-18T16:37:47+00:00",
+      "title": "Repost of @WhiteHouse: Back to loving America again \ud83c\uddfa\ud83c\uddf8 https://t.co/oAh9QvLWGg",
+      "url": "https://x.com/POTUS/status/2056413952599310358"
+    },
+    "x:potus:2056441767512121395": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.706627+00:00",
+      "path": "X/POTUS/2026/05/18/2056441767512121395",
+      "platform": "x",
+      "post_id": "2056441767512121395",
+      "published": "2026-05-18T18:28:18+00:00",
+      "title": "Repost of @WhiteHouse: Click the bullseye to hear something you need \ud83c\udfaf",
+      "url": "https://x.com/POTUS/status/2056441767512121395"
+    },
+    "x:potus:2056454904294633905": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.706482+00:00",
+      "path": "X/POTUS/2026/05/18/2056454904294633905",
+      "platform": "x",
+      "post_id": "2056454904294633905",
+      "published": "2026-05-18T19:20:30+00:00",
+      "title": "Repost of @WhiteHouse: \"Serious negotiations are now taking place, and that, in their opin...",
+      "url": "https://x.com/POTUS/status/2056454904294633905"
+    },
+    "x:potus:2056478327007838242": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.706178+00:00",
+      "path": "X/POTUS/2026/05/18/2056478327007838242",
+      "platform": "x",
+      "post_id": "2056478327007838242",
+      "published": "2026-05-18T20:53:35+00:00",
+      "title": "Repost of @WhiteHouse: TrumpRx and Most-Favored-Nations Drug Pricing: Saving BILLIONS for ...",
+      "url": "https://x.com/POTUS/status/2056478327007838242"
+    },
+    "x:potus:2056484408253693995": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:42:50.705981+00:00",
+      "path": "X/POTUS/2026/05/18/2056484408253693995",
+      "platform": "x",
+      "post_id": "2056484408253693995",
+      "published": "2026-05-18T21:17:45+00:00",
+      "title": "Repost of @WhiteHouse: President Trump Participates in a Healthcare Affordability Event, M...",
+      "url": "https://x.com/POTUS/status/2056484408253693995"
+    },
+    "x:potus:2056493101703700537": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462969+00:00",
+      "path": "X/POTUS/2026/05/18/2056493101703700537",
+      "platform": "x",
+      "post_id": "2056493101703700537",
+      "published": "2026-05-18T21:52:17+00:00",
+      "title": "Repost of @WhiteHouse: Americans went from paying the MOST anywhere in the world for medic...",
+      "url": "https://x.com/POTUS/status/2056493101703700537"
+    },
+    "x:potus:2056546559647453686": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462913+00:00",
+      "path": "X/POTUS/2026/05/19/2056546559647453686",
+      "platform": "x",
+      "post_id": "2056546559647453686",
+      "published": "2026-05-19T01:24:43+00:00",
+      "title": "Repost of @WhiteHouse: President Trump is delivering BIG on his promise to lower healthcar...",
+      "url": "https://x.com/POTUS/status/2056546559647453686"
+    },
+    "x:potus:2056734827416633740": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462858+00:00",
+      "path": "X/POTUS/2026/05/19/2056734827416633740",
+      "platform": "x",
+      "post_id": "2056734827416633740",
+      "published": "2026-05-19T13:52:49+00:00",
+      "title": "Repost of @WhiteHouse: Making our nation\u2019s capital beautiful again! THANK YOU, PRESIDENT T...",
+      "url": "https://x.com/POTUS/status/2056734827416633740"
+    },
+    "x:potus:2056742796527063408": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462806+00:00",
+      "path": "X/POTUS/2026/05/19/2056742796527063408",
+      "platform": "x",
+      "post_id": "2056742796527063408",
+      "published": "2026-05-19T14:24:29+00:00",
+      "title": "Repost of @WhiteHouse: President Trump Visits White House Ballroom Construction https://t....",
+      "url": "https://x.com/POTUS/status/2056742796527063408"
+    },
+    "x:potus:2056785911900164349": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462758+00:00",
+      "path": "X/POTUS/2026/05/19/2056785911900164349",
+      "platform": "x",
+      "post_id": "2056785911900164349",
+      "published": "2026-05-19T17:15:49+00:00",
+      "title": "Repost of @WhiteHouse: Nothing like this will ever be built again!! President Trump gives ...",
+      "url": "https://x.com/POTUS/status/2056785911900164349"
+    },
+    "x:potus:2056785930661298632": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462707+00:00",
+      "path": "X/POTUS/2026/05/19/2056785930661298632",
+      "platform": "x",
+      "post_id": "2056785930661298632",
+      "published": "2026-05-19T17:15:53+00:00",
+      "title": "Repost of @WhiteHouse: The president who does it all. https://t.co/RjIbtYJuoJ",
+      "url": "https://x.com/POTUS/status/2056785930661298632"
+    },
+    "x:potus:2056793679939920113": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462657+00:00",
+      "path": "X/POTUS/2026/05/19/2056793679939920113",
+      "platform": "x",
+      "post_id": "2056793679939920113",
+      "published": "2026-05-19T17:46:41+00:00",
+      "title": "Repost of @WhiteHouse: Vice President JD Vance Briefs Members of the Media, May 19, 2026 h...",
+      "url": "https://x.com/POTUS/status/2056793679939920113"
+    },
+    "x:potus:2056832420381331891": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462606+00:00",
+      "path": "X/POTUS/2026/05/19/2056832420381331891",
+      "platform": "x",
+      "post_id": "2056832420381331891",
+      "published": "2026-05-19T20:20:37+00:00",
+      "title": "Repost of @WhiteHouse: New White House ballroom update just dropped https://t.co/OYFznZSoO...",
+      "url": "https://x.com/POTUS/status/2056832420381331891"
+    },
+    "x:potus:2056854761446453436": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462551+00:00",
+      "path": "X/POTUS/2026/05/19/2056854761446453436",
+      "platform": "x",
+      "post_id": "2056854761446453436",
+      "published": "2026-05-19T21:49:24+00:00",
+      "title": "Repost of @WhiteHouse: Loud and clear since day 1: Iran can NEVER have a nuclear weapon. h...",
+      "url": "https://x.com/POTUS/status/2056854761446453436"
+    },
+    "x:potus:2056854791440003238": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462497+00:00",
+      "path": "X/POTUS/2026/05/19/2056854791440003238",
+      "platform": "x",
+      "post_id": "2056854791440003238",
+      "published": "2026-05-19T21:49:31+00:00",
+      "title": "Repost of @WhiteHouse: President Trump\u2019s Ratepayer Protection Pledge is putting America fi...",
+      "url": "https://x.com/POTUS/status/2056854791440003238"
+    },
+    "x:potus:2056878963243319730": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462432+00:00",
+      "path": "X/POTUS/2026/05/19/2056878963243319730",
+      "platform": "x",
+      "post_id": "2056878963243319730",
+      "published": "2026-05-19T23:25:34+00:00",
+      "title": "Repost of @WhiteHouse: President Trump and the First Lady Deliver Remarks at the Congressi...",
+      "url": "https://x.com/POTUS/status/2056878963243319730"
+    },
+    "x:potus:2056896316471464144": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462358+00:00",
+      "path": "X/POTUS/2026/05/20/2056896316471464144",
+      "platform": "x",
+      "post_id": "2056896316471464144",
+      "published": "2026-05-20T00:34:31+00:00",
+      "title": "Repost of @WhiteHouse: First Lady Melania Trump delivers an announcement that the House ha...",
+      "url": "https://x.com/POTUS/status/2056896316471464144"
+    },
+    "x:potus:2056896349241544802": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T14:41:25.462220+00:00",
+      "path": "X/POTUS/2026/05/20/2056896349241544802",
+      "platform": "x",
+      "post_id": "2056896349241544802",
+      "published": "2026-05-20T00:34:39+00:00",
+      "title": "Repost of @WhiteHouse: President Trump welcomes members of the House, Senate and Cabinet t...",
+      "url": "https://x.com/POTUS/status/2056896349241544802"
+    },
     "x:potus:2056915429138862214": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -148320,8 +148796,8 @@
     "RealDonaldTrump:2025-01-20": "113867849005330104"
   },
   "x_backfill_cursors": {
-    "x:dhsgov:2025-01-20": "DAAHCgABHJ2ZEkC__VELAAIAAAATMjA0NjM3ODIxNjM3MDE0NzQ5NAgAAwAAAAIAAA",
-    "x:potus:2025-01-20": "DAAHCgABHJ1r5hQ__8ALAAIAAAATMjA1NzE4NjI3ODQ5NjQ4NTc4MggAAwAAAAIAAA",
-    "x:whitehouse:2025-01-20": "DAAHCgABHJ25eZG__KILAAIAAAATMjA0OTU3ODYzNDA1OTM3ODcyNggAAwAAAAIAAA"
+    "x:dhsgov:2025-01-20": "DAAHCgABHJ2ZEkC__U0LAAIAAAATMjA0NjM3ODIxNjM3MDE0NzQ5NAgAAwAAAAIAAA",
+    "x:potus:2025-01-20": "DAAHCgABHJ1r5hQ__5YLAAIAAAATMjA1NDg2MzQ3NDcyMzg3Mjg0OQgAAwAAAAIAAA",
+    "x:whitehouse:2025-01-20": "DAAHCgABHJ25eZG__KALAAIAAAATMjA0OTU3ODYzNDA1OTM3ODcyNggAAwAAAAIAAA"
   }
 }
