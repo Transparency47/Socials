@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-04
 
-- Posts: 29
+- Posts: 31
 
+- [21:56 UTC - "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifi...](2062654791671558191/)
+  - Source: https://x.com/WhiteHouse/status/2062654791671558191
+  - "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in celebration of our Country’...
+- [21:45 UTC - The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. ...](2062652076862157126/)
+  - Source: https://x.com/WhiteHouse/status/2062652076862157126
+  - The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. We are so back. THANK YOU, PRESIDENT TRUMP. 🇺🇸 https://t.co/J3xE33XiA5
 - [20:40 UTC - The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO](2062635583973851564/)
   - Source: https://x.com/WhiteHouse/status/2062635583973851564
   - The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO

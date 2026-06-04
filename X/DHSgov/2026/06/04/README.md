@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-04
 
-- Posts: 14
+- Posts: 15
 
+- [22:31 UTC - Under this updated policy, when an individual is no longer in ICE custody then ICE will no...](2062663466456875118/)
+  - Source: https://x.com/DHSgov/status/2062663466456875118
+  - Under this updated policy, when an individual is no longer in ICE custody then ICE will no longer be responsible for monitoring or reviewing deaths that may occur. This is common s...
 - [21:04 UTC - Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa...](2062641723579445682/)
   - Source: https://x.com/DHSgov/status/2062641723579445682
   - Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sanctuary politicians smear our officers by calling them Nazis, secret police, and spreading...

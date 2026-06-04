@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-04
 
-- Posts: 5
+- Posts: 7
 
+- [22:08 UTC - Repost of @WhiteHouse: "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C...](2062657662945218650/)
+  - Source: https://x.com/POTUS/status/2062657662945218650
+  - Repost of @WhiteHouse: "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in cele...
+- [21:49 UTC - Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo...](2062653035013140984/)
+  - Source: https://x.com/POTUS/status/2062653035013140984
+  - Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. We are so back. THANK YOU, PRESIDENT TRUMP. 🇺🇸 https://t.co/J3xE33X...
 - [19:23 UTC - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...](2062616136299012519/)
   - Source: https://x.com/POTUS/status/2062616136299012519
   - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15

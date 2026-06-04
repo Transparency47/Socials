@@ -1,7 +1,13 @@
 # X / FBIDirectorKash / 2026-06-04
 
-- Posts: 11
+- Posts: 13
 
+- [21:45 UTC - This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles...](2062651870649483772/)
+  - Source: https://x.com/FBIDirectorKash/status/2062651870649483772
+  - This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles-Harris in Bakersfield, California barricaded himself in the Kern County Superintendent of...
+- [21:11 UTC - Repost of @WHFraudTF: “The days of the brazen theft that we’ve seen of taxpayer dollars, a...](2062643368090390922/)
+  - Source: https://x.com/FBIDirectorKash/status/2062643368090390922
+  - Repost of @WHFraudTF: “The days of the brazen theft that we’ve seen of taxpayer dollars, abusing the generosity of the American taxpayer, is over.” - @DAGToddBlanche
 - [21:05 UTC - You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that hel...](2062642034020700646/)
   - Source: https://x.com/FBIDirectorKash/status/2062642034020700646
   - You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that helped facilitate Operation Playground Therapy. Together, we investigated health care compani...

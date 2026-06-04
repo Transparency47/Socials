@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-04
 
-- Posts: 22
+- Posts: 26
 
+- [21:48 UTC - A very big THANK YOU to the National Capital Planning Commission on the 8-1 approval of th...](116694036820867367/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116694036820867367
+  - A very big THANK YOU to the National Capital Planning Commission on the 8-1 approval of the Great Triumphal Arch to be built at the base of the Arlington Memorial Bridge, which has...
+- [21:45 UTC - On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifie...](116694027873070210/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116694027873070210
+  - On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in celebration of our Country’s...
+- [21:28 UTC - Truth Social post 116693959003786265](116693959003786265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693959003786265
+  - _No text content captured._
+- [21:28 UTC - Truth Social post 116693958442795308](116693958442795308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693958442795308
+  - _No text content captured._
 - [18:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693349899092060](116693351819812143/)
   - Source: https://truthsocial.com/@realDonaldTrump/116693351819812143
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693349899092060

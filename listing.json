@@ -1,6 +1,510 @@
 {
-  "generatedAt": "2026-06-04T21:16:21.737020+00:00",
+  "generatedAt": "2026-06-04T22:46:25.378451+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:ffb4bdada012878e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:44:11.726533+00:00",
+        "datePublished": "2026-06-04T22:31:07+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062663466456875118"
+      },
+      "metadataPath": "X/DHSgov/2026/06/04/2062663466456875118/README.md",
+      "path": "X/DHSgov/2026/06/04/2062663466456875118/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062663466456875118",
+      "summary": "Under this updated policy, when an individual is no longer in ICE custody then ICE will no longer be responsible for monitoring or reviewing deaths that may occur. This is common sense.",
+      "title": "Under this updated policy, when an individual is no longer in ICE custody then ICE will no..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:8cb4a8b6138d589e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:44:48.452152+00:00",
+        "datePublished": "2026-06-04T22:11:26+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062658485276246017.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKAI9sPWAAE-IlL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAI9sPWAAE-IlL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKAI9sPWAAE-IlL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062658485276246017.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKAI9sPWAAE-IlL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062658511457104144"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062658511457104144/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062658511457104144/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062658511457104144",
+      "summary": "His eyes are literally open in the clip you posted, you dumbass mouth-breathers https://t.co/3zoCVEzsrY",
+      "title": "His eyes are literally open in the clip you posted, you dumbass mouth-breathers https://t...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:a8f1752b056b6094",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T22:44:34.536491+00:00",
+        "datePublished": "2026-06-04T22:08:03+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062654412418338816.jpg",
+            "remotePath": "archive/x/potus/HKAFQnqWUAA_J4S.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAFQnqWUAA_J4S.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKAFQnqWUAA_J4S.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062654412418338816.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKAFQnqWUAA_J4S.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062657662945218650"
+      },
+      "metadataPath": "X/POTUS/2026/06/04/2062657662945218650/README.md",
+      "path": "X/POTUS/2026/06/04/2062657662945218650/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2062657662945218650",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:23a15450ffe5a4c6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:15.132253+00:00",
+        "datePublished": "2026-06-04T21:56:39+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062654412418338816.jpg",
+            "remotePath": "archive/x/whitehouse/HKAFQnqWUAA_J4S.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAFQnqWUAA_J4S.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKAFQnqWUAA_J4S.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062654412418338816.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKAFQnqWUAA_J4S.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062654791671558191"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062654791671558191/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062654791671558191/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062654791671558191",
+      "summary": "\"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in celebration of our Country\u2019s 250 Year History, we will be bringing you, LIVE, the Greatest Rally, EVER!\" - President Donald J. ",
+      "title": "\"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:67c068846bfcdf39",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:44:48.452508+00:00",
+        "datePublished": "2026-06-04T21:55:48+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062654575471923200.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKAFaHFWkAAjTrx.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAFaHFWkAAjTrx.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKAFaHFWkAAjTrx.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062654575471923200.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKAFaHFWkAAjTrx.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062654580014399627"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062654580014399627/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062654580014399627/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062654580014399627",
+      "summary": "https://t.co/mPbJqvaKNp",
+      "title": "https://t.co/mPbJqvaKNp"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:6e85ab88c99ef345",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T22:44:34.536872+00:00",
+        "datePublished": "2026-06-04T21:49:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062652073414422528.jpg",
+            "remotePath": "archive/x/potus/HKADIeMW8AAmPwO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeMW8AAmPwO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKADIeMW8AAmPwO.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062652073410191360.jpg",
+            "remotePath": "archive/x/potus/HKADIeLWYAAdcsZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeLWYAAdcsZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKADIeLWYAAdcsZ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062652073414422528.jpg",
+          "media/02_image_2062652073410191360.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKADIeMW8AAmPwO.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HKADIeLWYAAdcsZ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062653035013140984"
+      },
+      "metadataPath": "X/POTUS/2026/06/04/2062653035013140984/README.md",
+      "path": "X/POTUS/2026/06/04/2062653035013140984/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2062653035013140984",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:df41835c428d3031",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:21.922913+00:00",
+        "datePublished": "2026-06-04T21:48:12.699000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116694036820867367"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116694036820867367/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116694036820867367/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116694036820867367",
+      "summary": "A very big THANK YOU to the National Capital Planning Commission on the 8-1 approval of the Great Triumphal Arch to be built at the base of the Arlington Memorial Bridge, which has been waiting for this structure for over 200 years. When completed, it will be, without question, t",
+      "title": "A very big THANK YOU to the National Capital Planning Commission on the 8-1 approval of th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:71e3393ad806b999",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T22:44:48.452877+00:00",
+        "datePublished": "2026-06-04T21:47:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062652073414422528.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKADIeMW8AAmPwO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeMW8AAmPwO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKADIeMW8AAmPwO.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062652073410191360.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKADIeLWYAAdcsZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeLWYAAdcsZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKADIeLWYAAdcsZ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062652073414422528.jpg",
+          "media/02_image_2062652073410191360.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKADIeMW8AAmPwO.jpg",
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKADIeLWYAAdcsZ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062652580543508892"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062652580543508892/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062652580543508892/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062652580543508892",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:2b9ad46ed931dcae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:21.923527+00:00",
+        "datePublished": "2026-06-04T21:45:56.168000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116694027873070210"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116694027873070210/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116694027873070210/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116694027873070210",
+      "summary": "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in celebration of our Country\u2019s 250 Year History, we will be bringing you, LIVE, the Greatest Rally, EVER! It will be special at ev",
+      "title": "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifie..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:2f4066436c7f5b85",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:15.132623+00:00",
+        "datePublished": "2026-06-04T21:45:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062652073414422528.jpg",
+            "remotePath": "archive/x/whitehouse/HKADIeMW8AAmPwO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeMW8AAmPwO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKADIeMW8AAmPwO.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062652073410191360.jpg",
+            "remotePath": "archive/x/whitehouse/HKADIeLWYAAdcsZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKADIeLWYAAdcsZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKADIeLWYAAdcsZ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062652073414422528.jpg",
+          "media/02_image_2062652073410191360.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKADIeMW8AAmPwO.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKADIeLWYAAdcsZ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062652076862157126"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062652076862157126/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062652076862157126/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062652076862157126",
+      "summary": "The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever.",
+      "title": "The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:7f211b8c8744f81b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:44:20.471478+00:00",
+        "datePublished": "2026-06-04T21:45:02+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062651867025264640.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKAC8dVWUAAuesG.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAC8dVWUAAuesG.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKAC8dVWUAAuesG.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062651867025264640.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKAC8dVWUAAuesG.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062651870649483772"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/04/2062651870649483772/README.md",
+      "path": "X/FBIDirectorKash/2026/06/04/2062651870649483772/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2062651870649483772",
+      "summary": "This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles-Harris in Bakersfield, California barricaded himself in the Kern County Superintendent of Schools office armed with explosives and took ten innocent people hostage.",
+      "title": "This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-04",
+      "id": "socials:a4c65a588f33e16b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:34.526002+00:00",
+        "datePublished": "2026-06-04T21:35:20+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647656978956799246.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647656978956799246.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647656978956799246",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647656978956799246.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647656978956799246.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647656978956799246.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647656978956799246"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/04/7647656978956799246/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/04/7647656978956799246/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647656978956799246",
+      "summary": "We heard the reflection pool started filling back up today!",
+      "title": "We heard the reflection pool started filling back up today!"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:e86d570013c0b9ab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:21.923759+00:00",
+        "datePublished": "2026-06-04T21:28:25.371000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116693958828595292.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/e94013263e90d0d3.qt",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/958/828/595/292/original/e94013263e90d0d3.qt",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/e94013263e90d0d3.qt"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116693958828595292.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/e94013263e90d0d3.qt"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693959003786265"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693959003786265/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693959003786265/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693959003786265",
+      "summary": null,
+      "title": "Truth Social post 116693959003786265"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:86cadae016b285ba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T22:45:21.923956+00:00",
+        "datePublished": "2026-06-04T21:28:16.813000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116693958115791120.mov",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c03a192102b127ed.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/958/115/791/120/original/c03a192102b127ed.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c03a192102b127ed.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116693958115791120.mov"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c03a192102b127ed.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693958442795308"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693958442795308/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693958442795308/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693958442795308",
+      "summary": null,
+      "title": "Truth Social post 116693958442795308"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:d6e55d603d5ce993",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T22:44:20.471857+00:00",
+        "datePublished": "2026-06-04T21:11:15+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062643368090390922"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/04/2062643368090390922/README.md",
+      "path": "X/FBIDirectorKash/2026/06/04/2062643368090390922/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2062643368090390922",
+      "summary": "Repost of @WHFraudTF:",
+      "title": "Repost of @WHFraudTF: \u201cThe days of the brazen theft that we\u2019ve seen of taxpayer dollars, a..."
+    },
     {
       "category": "X",
       "date": "2026-06-04",
@@ -46,6 +550,29 @@
       "sourceUrl": "https://x.com/DHSgov/status/2062641723579445682",
       "summary": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sanctuary politicians smear our officers by calling them Nazis, secret police, and spreading garbage about our ICE facilities.",
       "title": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-04",
+      "id": "socials:2ed8d280fad29264",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-04T22:45:37.387683+00:00",
+        "datePublished": "2026-06-04T20:43:14+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "eafk0lNExQE"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/04/eafk0lNExQE/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/04/eafk0lNExQE/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=eafk0lNExQE",
+      "summary": "- [08:41.120] You'll be thrilled. - [08:44.000] Are you all set? We'll maybe start where - [08:47.279] we left off yesterday. - [08:49.760] And uh we showed you this picture and - [08:53.440] now it's opened. So, this is now open - [08:57.200] and that you see the size of that - ",
+      "title": "President Trump Makes an Announcement on Beautiful, Clean Coal"
     },
     {
       "category": "X",

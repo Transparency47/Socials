@@ -1,8 +1,6 @@
 {
-  "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=eafk0lNExQE: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=eafk0lNExQE! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (eafk0lNExQE) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
-  ],
-  "last_successful_run": "2026-06-04T18:51:38.750468+00:00",
+  "last_errors": [],
+  "last_successful_run": "2026-06-04T22:45:50.240182+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7375744699140721963": {
       "account": "RealDonaldTrump",
@@ -9111,6 +9109,17 @@
       "published": "2026-06-04T16:01:17+00:00",
       "title": "Want deja vu?",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7647570905752718623"
+    },
+    "tiktok:whitehouse:7647656978956799246": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:34.526002+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/04/7647656978956799246",
+      "platform": "tiktok",
+      "post_id": "7647656978956799246",
+      "published": "2026-06-04T21:35:20+00:00",
+      "title": "We heard the reflection pool started filling back up today!",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7647656978956799246"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -113150,6 +113159,50 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693349899092060",
       "url": "https://truthsocial.com/@realDonaldTrump/116693351819812143"
     },
+    "truthsocial:realdonaldtrump:116693958442795308": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:21.923956+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693958442795308",
+      "platform": "truthsocial",
+      "post_id": "116693958442795308",
+      "published": "2026-06-04T21:28:16.813000+00:00",
+      "title": "Truth Social post 116693958442795308",
+      "url": "https://truthsocial.com/@realDonaldTrump/116693958442795308"
+    },
+    "truthsocial:realdonaldtrump:116693959003786265": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:21.923759+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693959003786265",
+      "platform": "truthsocial",
+      "post_id": "116693959003786265",
+      "published": "2026-06-04T21:28:25.371000+00:00",
+      "title": "Truth Social post 116693959003786265",
+      "url": "https://truthsocial.com/@realDonaldTrump/116693959003786265"
+    },
+    "truthsocial:realdonaldtrump:116694027873070210": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:21.923527+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116694027873070210",
+      "platform": "truthsocial",
+      "post_id": "116694027873070210",
+      "published": "2026-06-04T21:45:56.168000+00:00",
+      "title": "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifie...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116694027873070210"
+    },
+    "truthsocial:realdonaldtrump:116694036820867367": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:21.922913+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116694036820867367",
+      "platform": "truthsocial",
+      "post_id": "116694036820867367",
+      "published": "2026-06-04T21:48:12.699000+00:00",
+      "title": "A very big THANK YOU to the National Capital Planning Commission on the 8-1 approval of th...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116694036820867367"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120014,6 +120067,17 @@
       "title": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa...",
       "url": "https://x.com/DHSgov/status/2062641723579445682"
     },
+    "x:dhsgov:2062663466456875118": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:44:11.726533+00:00",
+      "path": "X/DHSgov/2026/06/04/2062663466456875118",
+      "platform": "x",
+      "post_id": "2062663466456875118",
+      "published": "2026-06-04T22:31:07+00:00",
+      "title": "Under this updated policy, when an individual is no longer in ICE custody then ICE will no...",
+      "url": "https://x.com/DHSgov/status/2062663466456875118"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -122555,6 +122619,28 @@
       "title": "You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that hel...",
       "url": "https://x.com/FBIDirectorKash/status/2062642034020700646"
     },
+    "x:fbidirectorkash:2062643368090390922": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T22:44:20.471857+00:00",
+      "path": "X/FBIDirectorKash/2026/06/04/2062643368090390922",
+      "platform": "x",
+      "post_id": "2062643368090390922",
+      "published": "2026-06-04T21:11:15+00:00",
+      "title": "Repost of @WHFraudTF: \u201cThe days of the brazen theft that we\u2019ve seen of taxpayer dollars, a...",
+      "url": "https://x.com/FBIDirectorKash/status/2062643368090390922"
+    },
+    "x:fbidirectorkash:2062651870649483772": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:44:20.471478+00:00",
+      "path": "X/FBIDirectorKash/2026/06/04/2062651870649483772",
+      "platform": "x",
+      "post_id": "2062651870649483772",
+      "published": "2026-06-04T21:45:02+00:00",
+      "title": "This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles...",
+      "url": "https://x.com/FBIDirectorKash/status/2062651870649483772"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -124623,6 +124709,28 @@
       "title": "Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...",
       "url": "https://x.com/POTUS/status/2062616136299012519"
     },
+    "x:potus:2062653035013140984": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T22:44:34.536872+00:00",
+      "path": "X/POTUS/2026/06/04/2062653035013140984",
+      "platform": "x",
+      "post_id": "2062653035013140984",
+      "published": "2026-06-04T21:49:40+00:00",
+      "title": "Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo...",
+      "url": "https://x.com/POTUS/status/2062653035013140984"
+    },
+    "x:potus:2062657662945218650": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T22:44:34.536491+00:00",
+      "path": "X/POTUS/2026/06/04/2062657662945218650",
+      "platform": "x",
+      "post_id": "2062657662945218650",
+      "published": "2026-06-04T22:08:03+00:00",
+      "title": "Repost of @WhiteHouse: \"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C...",
+      "url": "https://x.com/POTUS/status/2062657662945218650"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -125953,6 +126061,39 @@
       "published": "2026-06-04T20:18:06+00:00",
       "title": ".@GovernorGordon: \"When a kid grows up in Wyoming, their education's paid for, in large pa...",
       "url": "https://x.com/RapidResponse47/status/2062629990374502825"
+    },
+    "x:rapidresponse47:2062652580543508892": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T22:44:48.452877+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062652580543508892",
+      "platform": "x",
+      "post_id": "2062652580543508892",
+      "published": "2026-06-04T21:47:52+00:00",
+      "title": "Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo...",
+      "url": "https://x.com/RapidResponse47/status/2062652580543508892"
+    },
+    "x:rapidresponse47:2062654580014399627": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:44:48.452508+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062654580014399627",
+      "platform": "x",
+      "post_id": "2062654580014399627",
+      "published": "2026-06-04T21:55:48+00:00",
+      "title": "https://t.co/mPbJqvaKNp",
+      "url": "https://x.com/RapidResponse47/status/2062654580014399627"
+    },
+    "x:rapidresponse47:2062658511457104144": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:44:48.452152+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062658511457104144",
+      "platform": "x",
+      "post_id": "2062658511457104144",
+      "published": "2026-06-04T22:11:26+00:00",
+      "title": "His eyes are literally open in the clip you posted, you dumbass mouth-breathers https://t....",
+      "url": "https://x.com/RapidResponse47/status/2062658511457104144"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -146513,6 +146654,28 @@
       "title": "The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO",
       "url": "https://x.com/WhiteHouse/status/2062635583973851564"
     },
+    "x:whitehouse:2062652076862157126": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:15.132623+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062652076862157126",
+      "platform": "x",
+      "post_id": "2062652076862157126",
+      "published": "2026-06-04T21:45:52+00:00",
+      "title": "The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. ...",
+      "url": "https://x.com/WhiteHouse/status/2062652076862157126"
+    },
+    "x:whitehouse:2062654791671558191": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T22:45:15.132253+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062654791671558191",
+      "platform": "x",
+      "post_id": "2062654791671558191",
+      "published": "2026-06-04T21:56:39+00:00",
+      "title": "\"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifi...",
+      "url": "https://x.com/WhiteHouse/status/2062654791671558191"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -158722,6 +158885,17 @@
       "published": "2026-02-25T04:07:34+00:00",
       "title": "President Donald J. Trump\u2019s 2026 State of the Union Address",
       "url": "https://www.youtube.com/watch?v=eWrZQBgpY7I"
+    },
+    "youtube:whitehouse:eafk0lNExQE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-04T22:45:37.387683+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/04/eafk0lNExQE",
+      "platform": "youtube",
+      "post_id": "eafk0lNExQE",
+      "published": "2026-06-04T20:43:14+00:00",
+      "title": "President Trump Makes an Announcement on Beautiful, Clean Coal",
+      "url": "https://www.youtube.com/watch?v=eafk0lNExQE"
     },
     "youtube:whitehouse:ebH-gklOcl8": {
       "account": "WhiteHouse",

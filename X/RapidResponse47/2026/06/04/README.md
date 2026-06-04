@@ -1,7 +1,16 @@
 # X / RapidResponse47 / 2026-06-04
 
-- Posts: 54
+- Posts: 57
 
+- [22:11 UTC - His eyes are literally open in the clip you posted, you dumbass mouth-breathers https://t....](2062658511457104144/)
+  - Source: https://x.com/RapidResponse47/status/2062658511457104144
+  - His eyes are literally open in the clip you posted, you dumbass mouth-breathers https://t.co/3zoCVEzsrY
+- [21:55 UTC - https://t.co/mPbJqvaKNp](2062654580014399627/)
+  - Source: https://x.com/RapidResponse47/status/2062654580014399627
+  - https://t.co/mPbJqvaKNp
+- [21:47 UTC - Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is loo...](2062652580543508892/)
+  - Source: https://x.com/RapidResponse47/status/2062652580543508892
+  - Repost of @WhiteHouse: The water is ON, the Reflecting Pool is reflecting, and D.C. is looking better than ever. We are so back. THANK YOU, PRESIDENT TRUMP. 🇺🇸 https://t.co/J3xE33X...
 - [20:18 UTC - .@GovernorGordon: "When a kid grows up in Wyoming, their education's paid for, in large pa...](2062629990374502825/)
   - Source: https://x.com/RapidResponse47/status/2062629990374502825
   - .@GovernorGordon: "When a kid grows up in Wyoming, their education's paid for, in large part, by the coal severance taxes — by the royalties that come from mining that coal. That w...

@@ -1,0 +1,2047 @@
+<!-- source: https://www.youtube.com/watch?v=eafk0lNExQE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: eafk0lNExQE -->
+<!-- date_published: 2026-06-04T20:43:14+00:00 -->
+<!-- date_accessed: 2026-06-04T22:45:37.387683+00:00 -->
+
+# Transcript: President Trump Makes an Announcement on Beautiful, Clean Coal
+
+- [08:41.120] You'll be thrilled.
+- [08:44.000] Are you all set? We'll maybe start where
+- [08:47.279] we left off yesterday.
+- [08:49.760] And uh we showed you this picture and
+- [08:53.440] now it's opened. So, this is now open
+- [08:57.200] and that you see the size of that
+- [08:58.800] compared to some of the biggest
+- [09:01.440] buildings in the country. Actually, the
+- [09:03.200] biggest Hi, Peter.
+- [09:04.320] >> Hey, President Trump.
+- [09:05.200] >> And we have it finished. The water is
+- [09:07.600] pouring in as we speak. And maybe we'll
+- [09:10.800] show that what it looks like because I'm
+- [09:12.640] sure the fake news will be thrilled.
+- [09:16.080] Take a look.
+- [09:19.200] This is from just a little while ago.
+- [09:23.279] Nice clean water. So, we're here to talk
+- [09:26.160] about clean, beautiful coal. That's
+- [09:28.560] clean, beautiful water.
+- [09:31.920] That's the longest pool anywhere in the
+- [09:33.920] world. And here you can tell they're not
+- [09:37.760] progressive because this is not a
+- [09:39.519] progressive because progressives never
+- [09:41.360] wear or show an American flag. These are
+- [09:43.920] proud people from Oklahoma. They came
+- [09:45.760] from Oklahoma,
+- [09:47.519] a company from Oklahoma to do it. But
+- [09:50.640] you notice the American flag. He's
+- [09:52.560] proudly showing off his work. You know,
+- [09:55.200] he's not a liberal andor a progressive.
+- [09:59.040] Used to be liberal, but they changed
+- [10:00.399] their name somewhere along the way
+- [10:01.760] because liberal wasn't working. But
+- [10:03.200] progressive doesn't work, too. Although
+- [10:04.880] progressive is a beautiful term. They
+- [10:06.399] are not progressive. They're degressive.
+- [10:10.399] Got that? What do you think?
+- [10:12.560] >> Daniel's great.
+- [10:14.320] >> He's a great He's a great reporter.
+- [10:17.279] And again, we have a picture of a
+- [10:19.600] gentleman in a cart proudly. This is the
+- [10:23.360] head of construction for the job. So,
+- [10:26.079] you can see it's just finished. This is
+- [10:27.680] just minutes before. And there's a
+- [10:30.320] gentleman named Secretary Bergam from
+- [10:33.760] Interior, Doug, who's been doing an
+- [10:36.399] incredible job. So, Doug, we had we have
+- [10:38.720] 22 waterfalls. Most of them haven't
+- [10:40.880] worked for over 50 years. As of this
+- [10:44.480] morning, they all work beautifully and
+- [10:46.880] they're clean. The graffiti is gone. The
+- [10:50.399] broken marble is fixed. Well, there's a
+- [10:53.200] way of fixing it. You use a thing called
+- [10:54.880] silicone and you fix them and they look
+- [10:58.079] beautiful. All of the hate and
+- [11:00.079] everything is removed from them. Some of
+- [11:01.920] them done through stupidity actually.
+- [11:04.560] But hey, but here's another picture.
+- [11:07.519] Now, you can tell this is a proud
+- [11:09.040] American because he's got a flag.
+- [11:13.360] Protesters never have the bad protesters
+- [11:15.760] never have flags up. They somehow don't
+- [11:18.000] like the flag too much, but we do. So,
+- [11:21.120] that's great. Uh we put in today, as you
+- [11:23.680] know, about Save America, the Save
+- [11:26.079] America Act. I don't know, some someday
+- [11:28.800] the Senate and the House will get it
+- [11:31.839] done. Although I must tell you the House
+- [11:33.360] has approved it about three times
+- [11:34.880] already.
+- [11:36.720] Save America Act right here. We have
+- [11:40.079] everybody can see that. And then we'll
+- [11:42.560] talk about clean, beautiful coal. You're
+- [11:45.120] not allowed to say coal within the Trump
+- [11:48.079] administration unless it's preceded by
+- [11:50.160] the words clean, beautiful
+- [11:53.200] complicates our life, but it's good,
+- [11:54.880] right, Chris? Wherever you may,
+- [11:57.360] >> it is clean.
+- [11:59.760] >> I'll tell you, it's effective. So the
+- [12:02.240] Save America Act is all voters must show
+- [12:05.600] photo ID. So you go to vote and you show
+- [12:10.720] photo ID. Not complicated, right? You
+- [12:13.360] know who could who could oppose it. They
+- [12:16.000] say it's an 8020. It's not. It's about
+- [12:17.920] 991 and we'll never find the one person.
+- [12:21.200] Andy, congratulations, Andy, on a big
+- [12:23.279] victory.
+- [12:23.760] >> Thank you for your help.
+- [12:24.480] >> That's great. I think I appreciate it.
+- [12:26.320] But you're you're very good at what you
+- [12:28.399] do and I appre I've been I've been
+- [12:29.839] backing you right from the beginning for
+- [12:31.360] a long time. Right.
+- [12:32.240] >> Backing you too, sir.
+- [12:33.279] >> For years. That's right. You have. Thank
+- [12:34.959] you. Congratulations. You won a big
+- [12:36.880] election.
+- [12:38.480] So you have all voters must show photo
+- [12:40.880] ID identification. All voters must show
+- [12:45.279] a little thing called proof of
+- [12:48.000] citizenship. Would you say that's 99,
+- [12:51.519] Mr. Pennsylvania?
+- [12:52.720] >> I would say that's maybe 100 to zero. I
+- [12:55.040] would think
+- [12:56.800] they should be.
+- [12:57.839] >> No, but they say it's 8020. It's not
+- [12:59.519] 8020. It's 99. And we've never found the
+- [13:02.399] one person. There's another one. Then
+- [13:05.360] you have no mail in ballots, but we want
+- [13:07.920] to be liberal as they say. Or we'll say
+- [13:12.399] we want to be progressive. So it's no
+- [13:14.880] mail in ballots. You see that? So what's
+- [13:17.040] happening in California? They're rigging
+- [13:18.560] the election now. Maybe we caught them
+- [13:20.800] and maybe they won't be able to get away
+- [13:22.399] with it. Uh they tried with me. They did
+- [13:25.600] it successfully the second time. The
+- [13:27.440] third time we made it too big to rig.
+- [13:30.000] Too many votes. They couldn't do it.
+- [13:31.440] They can only go. They sort of gave up
+- [13:33.760] at about 9007 where they got slaughtered
+- [13:36.399] with the votes that came in. But no
+- [13:39.120] mailin ballots except for illness,
+- [13:41.440] disability, military or travel. So we're
+- [13:45.040] being very progressive
+- [13:47.600] and we just don't want cheating in our
+- [13:50.399] elections. And you see it happening in
+- [13:52.160] California. Those numbers are coming
+- [13:54.880] down rapidly. They found a lot of mail
+- [13:56.720] in ballots last night, shockingly.
+- [13:59.440] So, we don't want that. Then we added
+- [14:01.760] best stuff. This is best of Trump. No
+- [14:04.480] men and women sports.
+- [14:06.800] No transgender mutilization surgery for
+- [14:10.320] our children. I would say that's pretty
+- [14:12.880] close to 99 to one. Also, no men in
+- [14:16.560] women's sports. I would say that's
+- [14:18.160] pretty good. We had the quarterback.
+- [14:20.240] Jackson was the quarter is the
+- [14:21.760] quarterback for the Giants. He's a big
+- [14:24.160] strong guy. And I said, "How do you
+- [14:26.480] think you do in women's sports,
+- [14:28.000] Jackson?" He said, "Pretty good, sir."
+- [14:30.079] He didn't know I was joking.
+- [14:33.680] He was not worried. Let me put it that
+- [14:35.519] way. You would have been the greatest
+- [14:38.000] athlete in the history of women's
+- [14:39.600] sports. You got to see the size of this
+- [14:41.360] guy. Like a male model, and he's going
+- [14:43.680] to be a great quarterback. So, uh, we
+- [14:47.519] talk about that. And so we just would
+- [14:49.199] like the Senate,
+- [14:52.639] Democrats, Republicans to pass it. Uh,
+- [14:56.079] interestingly, Democratic people,
+- [14:58.320] Democrat people, not crooked politicians
+- [15:01.120] because most of them are crooked or
+- [15:02.560] they're sick or they're Trump deranged.
+- [15:04.720] There is Trump derangement syndrome, but
+- [15:07.120] the people uh, it's 86 87%.
+- [15:12.399] Democrats, I mean, Democrats are fine. I
+- [15:14.720] have a lot of Democrat friends, but they
+- [15:16.880] I don't know, for some reason when they
+- [15:18.320] go into politics, they get radical left
+- [15:20.560] crazy and they're trying to destroy our
+- [15:22.959] country. But we're not going to let that
+- [15:24.320] happen. So today, we're taking historic
+- [15:28.079] action to bring down the price of energy
+- [15:30.480] and the cost of living for all Americans
+- [15:32.800] with the power of clean, beautiful coal.
+- [15:37.279] If you look at China, if you look at so
+- [15:40.000] many of the successful countries,
+- [15:42.240] they're using coal. If you look at some
+- [15:45.199] of the real great failures countries,
+- [15:47.839] they're using wind. Just keeps blowing,
+- [15:50.720] blowing, blowing, and puts you right out
+- [15:52.959] of business. Very expensive, most
+- [15:54.720] expensive energy there is. So, wind is
+- [15:58.639] not working very well. But they keep it
+- [16:01.519] going because people get subsidies by
+- [16:04.639] countries that are stupid. Doug, I would
+- [16:06.560] say we haven't been long on wind. Do you
+- [16:08.880] agree with that? He understands numbers
+- [16:12.240] very well. You know, Doug was very, very
+- [16:13.920] successful, believe it or not. I used to
+- [16:15.600] think it was in energy, but he was
+- [16:18.000] successful in technology and he sold his
+- [16:21.120] company to I think Microsoft, right? And
+- [16:24.240] uh for a lot of money and he ran for
+- [16:26.560] politics, he ran for office, went to
+- [16:29.040] North Dakota, won immediately, won
+- [16:31.279] governor who was very successful for
+- [16:33.120] eight years. and I watched him during
+- [16:35.920] one of the performances of some very
+- [16:38.560] talented people and I said we're going
+- [16:40.959] to get him to work for us and then I
+- [16:42.480] said I was going to put him in charge of
+- [16:45.279] energy and he said sir there's a better
+- [16:47.199] man than me for that one not in all ways
+- [16:50.480] you feel that but in one way in energy
+- [16:54.079] and that was Chris right where's Chris
+- [16:56.880] >> right here
+- [16:57.279] >> right behind you boy he's a hard one to
+- [17:00.000] find and Chris has done a fantastic job
+- [17:03.600] and He's one of the reasons we're here
+- [17:05.199] today. We have had we're right now
+- [17:08.799] double Saudi Arabia and Russia. If you
+- [17:12.480] double them up, that's what we produce
+- [17:15.120] more than anybody else times two.
+- [17:18.240] So, think of that. Uh, as a result of
+- [17:20.799] the $700 million investment that I'm
+- [17:23.919] announcing today, we will protect 14
+- [17:27.120] coal plants and 42 coal mines. It's a
+- [17:30.080] tremendous number. and build two new
+- [17:33.120] coal plants and one massive new export
+- [17:36.240] terminal because we're exporting coal.
+- [17:37.919] Coal's a a great business, really a big
+- [17:41.919] business and it's real power. It's in
+- [17:45.760] terms of power.
+- [17:48.000] There's really nothing like it. You have
+- [17:50.640] so many different alternatives. They
+- [17:52.240] talk about some but there's no no real
+- [17:54.559] alternative. China, by the way, last
+- [17:57.120] year built 52 coal plants.
+- [18:00.160] They build about two two windmills. You
+- [18:03.039] know, the only time they build a
+- [18:04.320] windmill is when they're trying to sell
+- [18:05.679] them to stupid people from the United
+- [18:07.760] States and the suckers. And and by the
+- [18:11.280] way, and all over Europe, they sell the
+- [18:13.919] windmills, but they don't use them. I
+- [18:15.360] wonder why. They use coal plants and
+- [18:18.160] other things. These actions will support
+- [18:20.880] over 14,000 jobs and save the American
+- [18:24.160] people $50 billion in electricity costs.
+- [18:28.320] We're pleased to be joined by Secretary
+- [18:31.039] of the Interior Doug Bergamman. He has
+- [18:32.720] been great. I don't want to give him a
+- [18:35.039] big swollen ego because then all of a
+- [18:36.640] sudden he'll leave me and I will be and
+- [18:38.640] I'll be stuck with interior. I don't
+- [18:40.160] want to be stuck.
+- [18:42.080] >> But he's really done a great job.
+- [18:43.760] Secretary of Energy Chris Wright who's
+- [18:45.919] fantastic.
+- [18:47.760] And maybe our MVP. What do you think,
+- [18:49.919] Doug? It's close.
+- [18:51.039] >> Yes, it's right here.
+- [18:51.760] >> What do you think? MVP Lee Zelden.
+- [18:55.600] And the job he's done is great. We had
+- [18:58.000] the auto industry in yesterday.
+- [19:00.799] They don't want people to fix their car.
+- [19:02.640] I said, "That's strange. I never heard
+- [19:04.480] of that. They have a thing to Nobody's
+- [19:07.760] allowed to fix their car." They gave a
+- [19:09.440] man seven years in jail, actually,
+- [19:11.120] because he fixed his own car. So, I
+- [19:13.360] thought we'd do something about that.
+- [19:15.120] But, we'll get we'll get it all
+- [19:16.480] straightened out. Can you believe it?
+- [19:18.960] >> They want a bill that prohibits people
+- [19:20.799] from fixing. So, if you're mechanically
+- [19:22.640] inclined, you know, I grew up, I went to
+- [19:24.320] school with some guys, they were in some
+- [19:27.280] cases horrible students, but they could
+- [19:30.240] fix an engine blindfolded. They could
+- [19:32.080] take a car apart blindfolded, but they
+- [19:34.720] weren't too good at arithmetic
+- [19:37.360] and other things, but they were great.
+- [19:39.840] And so, there's a move on to stop people
+- [19:43.120] from fixing their car. I could didn't
+- [19:44.880] understand it, but we had a great
+- [19:46.000] meeting yesterday with head of General
+- [19:48.080] Motors and Roger Penske, head of Ford.
+- [19:52.400] We had a great meeting, I think. Thanks
+- [19:54.640] as well to a friend of mine also for a
+- [19:57.280] long time. West Virginia Governor
+- [20:00.880] Patrick Morris. I won by 45 points.
+- [20:03.039] Patrick,
+- [20:04.320] >> it's not enough.
+- [20:06.880] >> I love those people. And Wyoming, I
+- [20:09.520] think maybe even slightly more than West
+- [20:11.760] Virginia. just a little pointed. I at
+- [20:14.400] least I I like this group of people. But
+- [20:17.600] Wyoming Governor Mark Gordon, respected
+- [20:19.840] guy, great governor. Both of them really
+- [20:21.760] amazing. And
+- [20:24.080] representatives Dan Muer, Riley Moore,
+- [20:28.080] Derek Van Nordon, Juan Cisco, Manny, and
+- [20:32.240] Andy Bar. So, you have a lot of
+- [20:34.640] representatives here that are fantastic.
+- [20:36.960] Today we're officially invoking the
+- [20:38.480] Defense Production Act to save 13 coal
+- [20:42.000] plants in West Virginia, Kentucky, North
+- [20:44.159] Carolina, Indiana, Tennessee, Arizona,
+- [20:46.159] Arkansas, Oklahoma, North Dakota, and
+- [20:48.880] Wisconsin.
+- [20:50.480] These were incredible plants.
+- [20:54.880] So productive, really producing a lot of
+- [20:57.200] the electricity, right? The electricity.
+- [21:00.720] And it's it's really the best at that.
+- [21:02.720] you know, when they when they find
+- [21:04.480] something better, Chris, I think we'll
+- [21:06.400] be all set for it, right? But they're a
+- [21:08.880] long ways from finding something better.
+- [21:11.039] >> Call's critical.
+- [21:11.840] >> And so when you look at that, those
+- [21:13.679] states, West Virginia, Kentucky, North
+- [21:15.760] Carolina, Indiana, Tennessee, Arizona,
+- [21:18.559] Arkansas, Oklahoma, North Dakota,
+- [21:21.600] Wisconsin, what do they all have in
+- [21:23.520] common?
+- [21:24.880] >> Trump won them.
+- [21:25.919] >> Wisconsin.
+- [21:26.720] >> I won every one of them by a lot. Right.
+- [21:29.760] I'm not even mentioning Pennsylvania,
+- [21:31.520] which we won also, right?
+- [21:33.039] >> Yes.
+- [21:33.440] >> But we won them all. We won
+- [21:36.480] >> probably. We won all 50. We had an
+- [21:38.480] honest count. If you want to know that,
+- [21:39.919] too. Our action will allow these
+- [21:44.000] facilities to invest in upgrades that
+- [21:46.159] will extend their operational lives for
+- [21:48.880] decades into the future, reinforce the
+- [21:51.919] reliability of our electric grid, which
+- [21:55.039] is really the biggest beneficiary, and
+- [21:57.600] most importantly, keep electricity
+- [21:59.360] prices very low for the American people.
+- [22:02.480] This brings the total number of coal
+- [22:04.159] plants that we've saved during my
+- [22:05.840] administration. Just like when we said
+- [22:08.640] we saved 25
+- [22:10.960] water fountain. Think of this. These are
+- [22:12.559] fountains. Beautiful fountains that were
+- [22:16.080] so horrible to look at with the graffiti
+- [22:19.440] over 40 years. Many of them closed over
+- [22:21.679] 40 to 50 years. Uh the big one, the
+- [22:25.280] reflective lake. In fact, there some
+- [22:28.080] people call it a pond, some people it's
+- [22:29.520] like a lake, but the reflective lake was
+- [22:33.520] built in 1922. It it never really worked
+- [22:36.320] from the beginning from 1922. That's a
+- [22:38.880] long ways. So, it's over 100 years old.
+- [22:43.120] And it never really worked because they
+- [22:45.360] had the wrong base. It was always
+- [22:46.799] leaking. They didn't have what we have
+- [22:48.880] today. So, it's pretty amazing what's
+- [22:51.360] happened. And you know, I hate to say it
+- [22:53.360] won't leak, but it won't leak because uh
+- [22:55.919] we use the material that doesn't allow
+- [22:57.919] leaks. You know, it's like like a
+- [22:59.760] swimming pool doesn't leak. You use the
+- [23:01.360] right. This is this is called swimming
+- [23:04.080] pool on steroids. So, it's great stuff.
+- [23:07.600] And uh
+- [23:09.760] today's actions, we're also supporting
+- [23:12.320] coal mines and coal miners in Wyoming
+- [23:15.919] and Pennsylvania, Kentucky, West
+- [23:17.919] Virginia, Ohio, Indiana, Illinois, North
+- [23:21.840] Dakota, and New Mexico,
+- [23:25.120] and they're going to they're all going
+- [23:27.200] back to work. You know, it's interesting
+- [23:28.640] with the minds that famous scene of
+- [23:31.120] Hillary while we went to West Virginia.
+- [23:33.520] >> Yeah. and she had just left another
+- [23:35.760] state and she was trying to convince
+- [23:37.360] everybody that they should go into
+- [23:39.679] technology, no longer be minors. And
+- [23:41.679] these guys in West Virginia, they didn't
+- [23:43.440] want to hear about it. They wanted to be
+- [23:45.600] remember that scene around the table.
+- [23:47.200] They talked to this beautiful big,
+- [23:49.760] strong minor and they wanted him to make
+- [23:52.880] computer chips. She said, "We'll teach
+- [23:55.360] him how to make computer chips." His
+- [23:57.600] hands were so large he couldn't hold a
+- [23:59.440] computer chip. He's looking at a fingers
+- [24:01.919] are like three inches around talking
+- [24:04.080] about making a computer chip and he
+- [24:07.280] didn't like it and he ended up being one
+- [24:09.919] of our best ads ever. She was a and she
+- [24:12.159] did rather poorly. She lost I think she
+- [24:14.799] lost by 77 points or something like
+- [24:17.120] that. Pretty tough to go knock you knock
+- [24:20.720] and then you go two weeks later to West
+- [24:22.720] Virginia to try and win the state. It
+- [24:24.480] didn't work out well for her. But the
+- [24:27.440] miners love us. What do you think we got
+- [24:29.840] uh with the coal miners? Would you say
+- [24:31.600] we got 90% 100%. What do you think we
+- [24:35.919] were on this?
+- [24:36.480] >> Pretty pretty high.
+- [24:37.760] >> Probably higher than any group in the
+- [24:39.120] country.
+- [24:39.679] >> Pretty high.
+- [24:40.960] >> Yeah. It can't it can't be bad. Well, we
+- [24:42.799] did well with all the groups. I tell
+- [24:44.559] you,
+- [24:45.360] >> the group that now likes us are the auto
+- [24:47.279] workers because we're building more auto
+- [24:48.960] plants now than at any time in the
+- [24:50.880] history of our country.
+- [24:52.960] So, it's uh very it's great to watch and
+- [24:55.679] see what's going on with the US. We're
+- [24:57.440] the most respected country anywhere in
+- [25:00.080] the world. And we were a dead country a
+- [25:01.760] year and a half. We were a dead country.
+- [25:03.120] We're a laughed at. We're a mocked,
+- [25:05.760] laughed at country. Starting this
+- [25:08.320] summer, the West Gateway project will
+- [25:11.279] break ground. And by summer 2028, over
+- [25:14.159] 12 million tons of clean, beautiful coal
+- [25:17.120] per year will be shipped to countries
+- [25:19.840] all around the world. And this project's
+- [25:22.320] been delayed over 10 years. and uh Biden
+- [25:26.240] ended it and then
+- [25:28.799] Barack Hussein Obama, have you heard of
+- [25:30.559] him? Barack Hussein Obama, another one.
+- [25:32.559] He's another beauty. But that delay is
+- [25:35.679] now over and it's going to be very
+- [25:38.159] productive. It's going to fuel our
+- [25:40.400] electric plants in particular. It's
+- [25:42.159] going to be amazing. Finally, we're
+- [25:44.720] taking nearly $200 million in that to
+- [25:47.760] set aside for the Green New Scam. and it
+- [25:50.559] was set aside for the Green News scam,
+- [25:53.039] but the Green News scam is history
+- [25:56.320] and repurposing that money so that we
+- [25:59.600] restart a coal plant in Maryland and
+- [26:02.480] help build two brand new coal plants in
+- [26:04.559] Alaska and West Virginia. And these are
+- [26:07.039] all built with new technology. It's very
+- [26:08.960] clean. It's amazing what how that's come
+- [26:11.360] along. It's all very clean. And the
+- [26:14.159] first new coal plants to open in our
+- [26:16.240] country since 2013 couldn't open. You
+- [26:19.360] couldn't even think. They were only
+- [26:20.480] closing them.
+- [26:21.760] >> They were closing them and yet you had
+- [26:23.039] brownouts all over the place. But you
+- [26:24.960] don't have that anymore. Do you notice?
+- [26:26.880] Under four years of sleepy Joe Biden and
+- [26:30.000] the radical left Democrats in Congress.
+- [26:33.200] Not a single permit was approved for a
+- [26:35.520] new coal mining project. But in over one
+- [26:38.480] year of our administration, we've
+- [26:40.080] already approved 76 permits for clean,
+- [26:43.120] beautiful coal. Last year we prevented
+- [26:46.320] 17 gigawatts of coal powered electricity
+- [26:49.200] from going offline and that's enough
+- [26:51.760] power to for about 13 million homes.
+- [26:54.880] Think of that 13 million homes at a very
+- [26:57.679] low price. It's the lowest price. So now
+- [27:01.760] I'd like to ask Secretary Bergam to say
+- [27:03.520] a few words, followed by Secretary
+- [27:05.200] Wright, Administrator Lee Zeldon, and
+- [27:08.400] then Governor Mark Gordon, and whoever
+- [27:11.120] else wants to say a few words, including
+- [27:12.880] my new friend, my new governor friend.
+- [27:15.919] So Doug, go ahead. Well, thank you,
+- [27:18.320] President Trump. uh with these
+- [27:20.400] announcements today and everything that
+- [27:21.760] your administration's accomplished uh so
+- [27:24.400] far since you've taken office, this
+- [27:25.919] administration has done more uh to save,
+- [27:28.640] protect, and expand uh coal in our
+- [27:31.440] country uh than any administration
+- [27:33.520] perhaps ever. Uh
+- [27:35.279] >> clean, beautiful coal.
+- [27:36.400] >> Clean, beautiful coal. Absolutely. And
+- [27:37.919] non
+- [27:38.400] >> I'm only kidding.
+- [27:39.440] >> That's okay. We we uh with the when you
+- [27:42.559] took office, the first thing you did was
+- [27:44.000] declare an energy emergency. Some people
+- [27:45.760] question that, but the prior
+- [27:47.600] administration under Biden had gone so
+- [27:49.679] far down the path of pursuing the highly
+- [27:53.279] subsidized intermittent weather
+- [27:55.120] dependent sources of electricity that
+- [27:57.200] our grid was at risk. You understood
+- [27:58.799] that and you understood that key how key
+- [28:01.600] coal is. It's the backbone of having
+- [28:03.600] affordable, reliable, and secure
+- [28:05.679] American energy to power our country,
+- [28:08.159] power electric grid, power our
+- [28:10.080] competitiveness and AI, and power uh all
+- [28:13.279] the manufacturing that's coming back. As
+- [28:15.600] you mentioned, with those record coal
+- [28:17.440] leases, this is where we take federal
+- [28:19.520] public land, lease it to the private
+- [28:21.679] sector, they write a check, that comes
+- [28:23.360] into the treasury, they create jobs,
+- [28:25.440] help support local communities. So,
+- [28:27.679] there was zero coal leases held in four
+- [28:30.240] years under the Biden administration.
+- [28:31.760] You heard the president talk about 76
+- [28:33.840] here. We've slashed red tape. Those took
+- [28:36.080] years to get some of these projects for
+- [28:38.320] coal mining. We've approved in less than
+- [28:40.080] one month under the emergency
+- [28:41.440] procedures. And we also have opened up
+- [28:44.240] for leasing another 13.1 million acres
+- [28:48.320] uh that people can bid on in our country
+- [28:50.000] on public land. And this is land that
+- [28:51.679] was set aside. This is not national
+- [28:53.840] parks. It's not wilderness area. It's
+- [28:55.520] not our wildlife refues. This is public
+- [28:58.080] land that was set aside for the benefit
+- [29:00.240] and use of the American people including
+- [29:02.000] energy development making sure that
+- [29:03.440] we've got affordable reliable energy. So
+- [29:05.600] using those public lands is what we're
+- [29:07.279] doing. And then the last thing within
+- [29:08.640] interior I would say we did uh
+- [29:11.200] strategically designate through the US
+- [29:13.200] geologic survey which is part of
+- [29:14.720] interior designate uh metallurgical coal
+- [29:18.080] as a critical mineral. So it's on the
+- [29:20.080] list. Uh and that uh opens up a number
+- [29:22.559] of opportunities. But without
+- [29:23.679] metallurgical coal, we don't have coke.
+- [29:25.760] We don't have the steel industry. The
+- [29:27.120] Biden administration was indiscriminate
+- [29:29.279] trying to shut down our metallurgical
+- [29:30.799] coal as well as our thermal coal. So and
+- [29:33.279] then the last thing you mentioned, the
+- [29:34.399] coal export facility again uh working
+- [29:36.720] through all the permitting to drive
+- [29:38.080] towards that so that we can be selling
+- [29:40.399] clean, reliable energy to our allies in
+- [29:42.799] the Pacific uh who want to do more trade
+- [29:44.960] with us. And lastly, again, thank you
+- [29:46.720] for creating the National Energy
+- [29:48.000] Dominance Council. Our executive
+- [29:50.000] director, Jared Hagen, is here today,
+- [29:51.520] but Chris Lee and I all uh have details
+- [29:55.279] on that team. And uh and that's operates
+- [29:57.520] right out of the White House. And that's
+- [29:58.720] why President Trump is able to get so
+- [30:00.399] much done so quickly. Is this the first
+- [30:02.240] time ever we've had a president with a
+- [30:03.679] White House council specifically focused
+- [30:06.080] on energy and what an impact it's
+- [30:08.240] having. Well, and thank you to perhaps
+- [30:12.159] slightly less importantly, but I think
+- [30:13.840] very important, the National Garden of
+- [30:17.200] American Heroes is going to be
+- [30:18.720] unbelievable. And I'd like to know how
+- [30:21.200] are you doing on that? And how are you
+- [30:22.880] doing on the great triumphal arc? So,
+- [30:25.840] every city, just about every major city
+- [30:29.520] has a triumphal arc. This is an arc
+- [30:32.000] that's a a real bow, a beautiful bow to
+- [30:36.399] your military and military victories.
+- [30:38.559] Nobody's had more military victories,
+- [30:41.120] including recently, than we have. And
+- [30:44.480] they never got the ark built. It's been
+- [30:47.120] the Civil War stopped it. That circle
+- [30:49.600] has been sitting there for a long time,
+- [30:51.520] for many, many years.
+- [30:55.120] I guess you could go back to in 1902,
+- [30:58.320] they tried it and but in 1860 and 1880,
+- [31:02.480] they just never got it done. The the
+- [31:04.880] Civil War stopped it the first time.
+- [31:06.559] That was a good reason. And I think
+- [31:07.840] that's a probably not a bad that was a
+- [31:10.080] good excuse. But uh after that it just
+- [31:12.240] never happened and we're going to get it
+- [31:13.520] done. And so we're doing it with the
+- [31:15.919] Department of Interior and we're also
+- [31:18.240] doing the National Garden of American
+- [31:20.240] Heroes which is phenomenal. And we're
+- [31:21.760] doing something that just came up. We'll
+- [31:24.240] have a little breaking news here because
+- [31:25.679] nobody's heard of it. But at the Lincoln
+- [31:29.279] Memorial, uh the front was supposed to
+- [31:31.919] be the back. The back was supposed to be
+- [31:33.440] the front. It never got built because
+- [31:35.520] they built two roadways behind it after
+- [31:38.000] it was built and it shut off the uh
+- [31:41.440] gateway to the water. That was really
+- [31:43.519] going to be the main entry and we're
+- [31:46.080] going to be doing that. We're going to
+- [31:47.120] it's called the prominade. It'll be the
+- [31:49.440] prominade. They want to call it the
+- [31:50.799] Trump prominade but I don't know if I
+- [31:52.640] want to do that but it's going to be
+- [31:54.559] beautiful. It's a beautiful project and
+- [31:56.240] it's going to take the Lincoln Memorial
+- [31:58.640] right down to the PTOAC which it was
+- [32:01.600] always scheduled to do but when they
+- [32:03.120] built the roads that was the end of that
+- [32:04.799] but we have a way of uh beautifully
+- [32:07.679] going over those two roads highways very
+- [32:10.640] very strong very important roads
+- [32:12.960] actually as you know from the bridge but
+- [32:15.200] it's going to be great. So can I ask
+- [32:16.799] Doug just for just a couple of seconds
+- [32:19.039] to talk about those those three great
+- [32:21.279] projects that we're just starting. Well,
+- [32:23.360] I'd say that the it's important for
+- [32:25.440] everyone to know that as you described,
+- [32:27.600] these are plans and ideas that have
+- [32:29.519] existed uh almost since the end of the
+- [32:31.519] Civil War, but the McMillan plan, which
+- [32:33.360] is the one that designed the National
+- [32:34.880] Mall as we see it today, uh that was in
+- [32:37.200] the early part of the 1900s, envisioned
+- [32:40.240] uh this connection that you would have a
+- [32:42.320] the memorial bridge between uh the
+- [32:44.480] Lincoln Memorial uh and Arlington
+- [32:46.960] Cemetery. At the halfway point, there's
+- [32:49.039] a very large circle. It was designed to
+- [32:51.039] hold a monument. uh the the arc that
+- [32:54.159] would go there uh is a fantastic
+- [32:56.480] complement and completion of this plan
+- [32:58.559] that's over 120 years ago. President
+- [33:00.559] Trump's vision of how to build that. Uh
+- [33:03.039] and of course, President Trump has
+- [33:04.640] talked to uh President Mcronone from
+- [33:07.200] France. Uh more people visit the Arctic
+- [33:09.440] Triumph than even visit the Eiffel
+- [33:10.799] Tower. I mean, this would be a highlight
+- [33:12.640] for Americans to come. The views back at
+- [33:14.720] the city from the top of the arch would
+- [33:16.640] be amazing. Uh the views from this side
+- [33:19.039] from West PTOIC where the National
+- [33:20.559] Garden of Heroes was looking across at
+- [33:22.480] the arch would be amazing. And of course
+- [33:24.480] the the prominade on the back side of
+- [33:26.159] the Lincoln is as President Trump
+- [33:27.840] described. Right now there's no
+- [33:28.960] pedestrian access. You're on the mall.
+- [33:30.960] People come from around the world. They
+- [33:32.399] don't know that a 100 yards away is the
+- [33:34.799] beautiful Ptoic River which was part of
+- [33:36.480] the original plan that now they'd be
+- [33:38.159] able to walk around the Lincoln
+- [33:39.360] Memorial, walk on a pedestrian bridge
+- [33:41.360] over the first highway, walk over the
+- [33:43.440] next one and right down to the water. uh
+- [33:45.600] it would complete the the vision these
+- [33:47.919] projects would complete the original
+- [33:49.440] vision of the McMillan plan and how
+- [33:51.600] fortunate are we to have the builder
+- [33:53.360] chief someone who both has the vision
+- [33:55.279] and the understanding of how to get
+- [33:56.799] projects done uh that would again make
+- [33:59.200] our city safe and beautiful just like
+- [34:01.120] the executive order President Trump put
+- [34:02.720] out last year is accomplished and wow we
+- [34:04.640] are ready for for the celebration of our
+- [34:07.600] 250th anniversary the city's never been
+- [34:09.839] safer it's never been more beautiful but
+- [34:11.599] President Trump's not stopping there uh
+- [34:13.599] vision that he has for these these
+- [34:15.200] projects uh would extend for generations
+- [34:17.679] forward. So, thank you, President.
+- [34:19.280] >> Thank you very much. Great job. And uh
+- [34:22.560] Secretary Chris Wright, please
+- [34:25.919] no coal, no modern world. Stated another
+- [34:29.839] way, without clean, beautiful coal, the
+- [34:33.040] modern world is impossible. And we saw
+- [34:36.480] 17 years ago in President Obama's
+- [34:38.560] election an allout attack on the
+- [34:41.280] American coal industry. The industry
+- [34:43.520] that built our nation. We wouldn't have
+- [34:45.520] the buildings, the factories, the
+- [34:46.960] industry, the electricity grid we have
+- [34:49.119] today without the critical contribution
+- [34:51.839] of coal. It's been the largest source of
+- [34:54.639] global electricity for 125 years in a
+- [34:58.320] row and will be for decades to come. In
+- [35:02.320] the United States, it remains a critical
+- [35:04.240] source of our electricity. Also critical
+- [35:06.560] source for our industry. Can't produce
+- [35:08.560] steel and cement and other materials
+- [35:11.359] without coal. And beyond the the the
+- [35:15.200] impacts of coal in our electricity
+- [35:18.880] sector, it just think of the direct
+- [35:20.960] impact on human lives. If President
+- [35:23.200] Trump had not been elected
+- [35:26.079] and inaugurated in January of 2025 and
+- [35:29.440] through his authority at the DOE, we
+- [35:32.000] were able to force keeping open six coal
+- [35:34.960] plants. As of today, there'll be a
+- [35:36.400] seventh one. And more than twice as many
+- [35:39.040] that voluntarily said, "Hey, if we're
+- [35:40.960] not going to have to close, we need to
+- [35:42.960] stay open." 17 coal plants were not
+- [35:46.160] closed in 2025 because of President
+- [35:49.200] Trump sitting at this desk and in this
+- [35:51.680] position right here. That saved that
+- [35:55.359] saved 17 gawatts of electric generating
+- [35:58.640] capacity and the winter storm fern that
+- [36:00.960] hit our country in the last week of
+- [36:03.680] January this year. Hundreds
+- [36:06.000] conservatively hundreds of Americans
+- [36:08.800] would have lost their lives if those 17
+- [36:11.119] coal plants had closed. We pushed the
+- [36:13.520] east coast electricity grid in the
+- [36:15.280] United States absolutely to the limit. A
+- [36:19.280] a storm Yuri hit five years ago in
+- [36:22.000] Texas, smaller in geographic extent, not
+- [36:25.280] the same magnitude, over 300 people
+- [36:28.160] died. But because we had those coal
+- [36:30.720] plants operating and running and not
+- [36:32.720] only did they run, wind power
+- [36:35.359] disappeared when the storm hit. Solar is
+- [36:37.440] irrelevant in the winter. The things we
+- [36:39.119] talk about didn't even matter to our
+- [36:41.280] electricity grid except for cost
+- [36:42.800] burdens. Coal stepped up and produced
+- [36:45.280] 25% more electricity during this storm
+- [36:48.400] than its normal reliable chugging out of
+- [36:50.880] electricity. Without those plants,
+- [36:53.119] without that increase in electricity
+- [36:54.880] production, we lost a lot of Americans
+- [36:57.280] untold economic damage. President Trump
+- [37:00.720] is the president with the courage and
+- [37:02.480] the boldness to defend an industry that
+- [37:05.119] has been maligned for far too long and
+- [37:07.839] to recognize its importance. Americans
+- [37:10.079] are are upset about high electricity
+- [37:11.920] prices blame closing existing reliable
+- [37:15.280] secure plants and replacing them with
+- [37:17.440] subsidized unreliable plants. A
+- [37:19.520] guaranteed way to drive electricity
+- [37:21.359] prices up. But this administration is
+- [37:24.000] commit is committed to reversing all of
+- [37:26.800] that. that money we've talked about from
+- [37:28.800] the Defense Production Act. Thank
+- [37:31.359] Thankfully because of the one big
+- [37:32.960] beautiful bill, these fantastic
+- [37:34.560] congressmen sitting around me and
+- [37:36.240] governors. Without that legislation, we
+- [37:38.560] wouldn't have the money and the and the
+- [37:41.599] uh defense uh production act authority
+- [37:45.359] to keep open so many plants. It it is
+- [37:48.960] hard to overstate the magnitude of this.
+- [37:50.800] If you look at our efforts across the
+- [37:52.400] whole government so far, 45 coal plants
+- [37:55.760] are open today. that would not be open.
+- [37:58.480] Where would we be to re-industrialize
+- [38:00.400] America? Where would electricity prices
+- [38:02.240] be if we had let all of those plants
+- [38:04.400] close? But we're not doing it. The all
+- [38:06.960] of those plants, that's $700 million of
+- [38:09.839] government funding, but it's matched
+- [38:11.920] with $1.7 billion of private investment
+- [38:15.520] from the owners and operators of those
+- [38:17.200] plants. All the people in those states
+- [38:18.880] that say, "Pew, we don't have to kick
+- [38:21.119] our industry out and and and raise
+- [38:22.880] electricity prices again." common sense
+- [38:25.760] is returning to Washington DC. Um, and
+- [38:29.040] for that I'm incredibly thankful to be
+- [38:31.359] here in the United States government to
+- [38:33.359] work for President Trump who will stand
+- [38:35.520] up for what's right, bring common sense
+- [38:37.520] back and and reinvigorate an industry
+- [38:40.640] without which we would not have the
+- [38:42.240] America we have today. And we're going
+- [38:44.400] to re-industrialize America, win in the
+- [38:46.960] next generation of technologies, and
+- [38:48.640] we're going to do it in critical part
+- [38:50.880] because of a growing and thriving coal
+- [38:52.640] industry. Thank you, President Trump.
+- [38:55.359] Thank you, Secretary Bergam. Thank you,
+- [38:57.359] Lee Zeldon.
+- [38:59.200] >> Good. And Lee Zeldon, how about saying a
+- [39:01.599] few words? For so many Americans, clean,
+- [39:04.720] beautiful coal is their source of heat,
+- [39:08.000] of energy, of warmth, of a job, an
+- [39:11.599] economy, a community, a family. And for
+- [39:14.960] too long, you saw Democrats who were
+- [39:18.320] telling these coal miners they should
+- [39:19.839] just learn the code. And what we saw
+- [39:21.839] during the Biden administration at the
+- [39:23.760] EPA, for example, was regulation after
+- [39:25.760] regulation after regulation trying to
+- [39:27.839] strangulate out of existence
+- [39:30.880] coal to destroy it.
+- [39:34.720] Enter President Trump declares a
+- [39:36.640] national energy emergency, creates a
+- [39:38.160] national energy dominance council, and
+- [39:40.160] he told us at the EPA at Trump's speed
+- [39:42.560] to be getting rid of these regulations
+- [39:44.320] as quickly as possible on behalf of
+- [39:46.240] those Americans who want to just stay
+- [39:48.160] warm, who want to live the American
+- [39:49.920] dream, who want to have affordable
+- [39:51.359] access to energy. The Democrats were
+- [39:54.240] running for power to sit at this desk
+- [39:58.240] and to leverage that power to destroy
+- [40:00.800] these communities. Enter President
+- [40:02.480] Trump. He has saved clean, beautiful
+- [40:04.960] coal and it's been an honor to be part
+- [40:06.560] of it.
+- [40:07.119] >> Thank you very much.
+- [40:08.240] >> Great job, dude.
+- [40:10.000] >> Wyoming Governor Mark Gordon.
+- [40:12.880] >> Thank you,
+- [40:13.440] >> Mr. President. It's an honor to be here.
+- [40:15.599] Thank you to the secretaries who have
+- [40:17.520] breathed life into uh an economy in
+- [40:20.880] Wyoming that has been there for a long
+- [40:22.960] time. Wyoming produces the cleanest,
+- [40:25.359] most beautiful coal, low sulfur coal.
+- [40:28.320] >> You don't mind if I push a little?
+- [40:31.200] And it's fun because we have a chance to
+- [40:33.760] um to educate our kids. Now, let me just
+- [40:36.240] talk a little bit about the other side
+- [40:37.760] of this. When a kid grows up in Wyoming,
+- [40:40.560] their education's paid for in large part
+- [40:42.800] by coal severance taxes, by the
+- [40:45.440] royalties that come from mining that
+- [40:47.440] coal that was shut down by the
+- [40:49.440] Democrats. When they have a chance to
+- [40:52.079] get a job, they can go look to the coal
+- [40:54.800] mine. And it's not just digging coal the
+- [40:57.520] way we used to. It's high techch jobs.
+- [41:00.240] You know, at this point, we don't mine
+- [41:02.640] coal the way we used to at all. It is
+- [41:05.680] very, very technologically proficient.
+- [41:08.319] And what's more important, it's
+- [41:09.680] environmentally sound. I would invite
+- [41:11.920] you to come and look at the reclamation
+- [41:13.760] that's happened in the Powder River
+- [41:15.119] Basin, and we can demonstrate that it's
+- [41:17.760] environmentally sound, that actually
+- [41:19.920] wildlife populations thrive and do
+- [41:22.000] better. Today, Mr. President, I really
+- [41:25.040] want to talk to you a little bit about
+- [41:26.800] our recent trip to Japan and to Taiwan.
+- [41:30.640] Both countries that were going to forear
+- [41:33.440] coal and now they realize that they need
+- [41:35.839] that reliable, dispatchable, secure
+- [41:39.520] source of energy, but they can't get it
+- [41:42.640] as clean as they can from the Powder
+- [41:44.720] River basin. So to be able to open that
+- [41:48.160] Oakland port is absolutely essential for
+- [41:51.599] the lifeblood of our state and for our
+- [41:54.240] coal mines. It is something that we
+- [41:56.319] tried to do in your first administration
+- [41:58.319] and we almost got there. We actually
+- [42:00.880] were prepared to go through that, I
+- [42:04.480] guess, belt that we have on the West
+- [42:06.480] Coast with California, Oregon, and
+- [42:08.640] Washington and finally enforce the
+- [42:11.680] commerce clause to allow states like New
+- [42:15.440] Mexico, Wyoming, Utah to have access to
+- [42:19.359] that Asian market. And let me just tell
+- [42:22.160] you one last thing about that. It's not
+- [42:24.800] just about clean, beautiful coal. We
+- [42:27.119] have companies like Peabody that are now
+- [42:28.960] saying we believe we can get rare earth
+- [42:31.359] minerals and critical minerals from what
+- [42:33.520] we're doing. So we are advancing
+- [42:36.079] technology, advancing the opportunities
+- [42:38.720] and the security of the state all
+- [42:40.800] because of your vision, sir. Thank you.
+- [42:43.119] >> Thank you very much. Thank you very
+- [42:44.960] much. Would you like to say something on
+- [42:47.119] behalf of West Virginia?
+- [42:48.319] >> I would. I I would like to say m
+- [42:50.640] >> Mr. President, all West Virginiaians are
+- [42:52.960] so deeply grateful to you for your focus
+- [42:56.400] on protecting their energy jobs. Uh the
+- [42:59.119] coal miners know the incredible
+- [43:01.520] importance of why we're here today and
+- [43:03.920] to talk about the potential for new coal
+- [43:06.640] fire power plants. That excites them.
+- [43:09.520] And I think West Virginiaians are really
+- [43:11.359] inspired because we're America's energy
+- [43:14.079] state. When you think about what's
+- [43:16.319] happening on the global scene where that
+- [43:19.040] fight, that international fight with
+- [43:20.800] China for information technology
+- [43:23.680] supremacy, we believe that your policies
+- [43:27.440] are going to allow America to compete
+- [43:29.200] and win. And West Virginia is going to
+- [43:31.440] supply the coal, the gas, the nuclear to
+- [43:34.480] help make that happen. So, I'm very
+- [43:36.240] excited by everything you're doing. even
+- [43:38.800] some of the relatively small things when
+- [43:41.280] you come in and you sign agreements with
+- [43:43.359] your administration putting hundreds of
+- [43:45.200] people back to work, it's all making a
+- [43:47.520] big difference for West Virginia. So,
+- [43:49.280] thank you, Mr. President.
+- [43:51.119] >> As an example, the Gulf of Mexico into
+- [43:54.640] the Gulf of America. It bothered me for
+- [43:58.000] many years. We have 92% of the frontage
+- [44:00.400] and we made that little change and
+- [44:03.520] Mexico was thrilled. They were thrilled
+- [44:05.760] about it. But that was a good one,
+- [44:07.680] right? You were telling me before that
+- [44:09.119] was a good one.
+- [44:10.880] >> It's about the United States now for a
+- [44:13.680] little while if it's okay. Uh would you
+- [44:16.880] have any questions?
+- [44:17.599] >> Yes.
+- [44:18.640] >> Uh yes. President Trump, this was just
+- [44:20.480] crossing as we were heading in here.
+- [44:22.400] President Silinski wrote a letter to
+- [44:24.400] President Putin. He wants the two of
+- [44:26.800] them to meet to hash out the end of the
+- [44:29.760] war in Ukraine because he thinks you are
+- [44:32.560] too busy with the war in Iran. Is he
+- [44:36.079] right? Well, I don't know. I'm glad that
+- [44:38.160] they're maybe talking about meeting. I
+- [44:40.079] think we had a lot to do with it. I know
+- [44:41.599] exactly what you're doing. But, uh, I
+- [44:44.480] think it would be great if they met.
+- [44:45.760] They should get it done.
+- [44:47.839] >> Mr. President,
+- [44:49.040] >> there's there's been a lot of talk
+- [44:50.160] lately about the Treasury putting your
+- [44:52.400] face on a $250
+- [44:55.280] bill. Have you seen a mockup of the
+- [44:58.160] Trump $250 bill? And if that winds up
+- [45:01.760] being currency, would you ever be able
+- [45:04.319] to tip anyone anything but that?
+- [45:07.440] >> Well, I think I'd probably leave it for
+- [45:10.160] uh I have actually seen something just
+- [45:12.560] about two days ago. I know it's been
+- [45:14.560] pushed by a lot of our supporters and
+- [45:16.800] I'm honored that they're doing it, but
+- [45:19.119] uh we'll see how that all works out. But
+- [45:21.040] I have heard about it and there is a
+- [45:23.359] group of people they really like the job
+- [45:24.960] we're doing, you know, so that's a great
+- [45:26.720] honor. Yeah, please. You announced just
+- [45:29.440] a few days ago that you're naming Bill
+- [45:32.480] Py as the acting director of national
+- [45:34.880] intelligence. There's been a little bit
+- [45:36.560] of a push back from some Senate
+- [45:38.400] Republicans. Why do you think, Mr.
+- [45:40.400] President, he's the best person for the
+- [45:42.319] job?
+- [45:42.720] >> Well, he's very smart. He's a person
+- [45:45.280] who's got high integrity. He's done a
+- [45:47.839] phenomenal job at Fanny May Freddy Mack.
+- [45:50.880] Uh, you know, you probably have a
+- [45:52.400] trillion dollars in value there. When he
+- [45:54.160] took over, it was much less. And I guess
+- [45:56.560] I'm responsible for that too because
+- [45:58.400] everybody wanted me to sell it in my
+- [46:00.880] first term for 10% of what it's worth
+- [46:03.760] right now. If I would have sold it, we
+- [46:06.000] would have lost $900 billion. We would
+- [46:08.560] have lost uh I mean think of it, it's
+- [46:11.440] probably worth a trillion dollars and I
+- [46:14.319] was offered every people want me to sell
+- [46:16.079] it at a hundred billion. Uh a very small
+- [46:19.680] percentage of what it's worth now. So,
+- [46:22.240] and he built it up a lot. Did a great
+- [46:24.240] job. And it's an acting position. It's
+- [46:26.400] not a per he's not going to be permanent
+- [46:28.000] because, you know, I don't think he'd
+- [46:29.440] want to be permanent, but he's a very
+- [46:31.440] smart guy and he may find out some
+- [46:33.119] things about the rigged elections, etc.,
+- [46:35.760] etc. I think he'd like to do it. I'd
+- [46:37.280] like to I think he wants to do it very
+- [46:40.079] much. Got a lot of energy. Uh, but he'll
+- [46:43.119] be very good. Uh, again, it's not a
+- [46:44.880] permanent position. We're looking at
+- [46:46.480] we're interviewing people right now, but
+- [46:48.560] it's somebody just to take it over for a
+- [46:51.440] little while.
+- [46:51.760] >> Does he have the necessary in your view,
+- [46:53.440] Mr. President, the necessary national
+- [46:55.359] security experience to take on that
+- [46:57.119] position?
+- [46:57.440] >> Well, I do and I think he does actually
+- [46:59.280] because he's smart because a lot of
+- [47:01.200] national security I look I would I
+- [47:03.119] wasn't greatly experienced in national
+- [47:05.520] security and I think I've done a really
+- [47:07.200] great job with it. A lot of people would
+- [47:08.720] say that I've ended eight wars and soon
+- [47:12.400] to be a ninth. I hope that works out
+- [47:14.480] too, you know.
+- [47:15.680] Frankly, it's but uh probably and
+- [47:18.000] there's another one also that could be
+- [47:19.839] 10. No president I don't think a
+- [47:22.079] president's ended one war having to do
+- [47:25.200] with outside of this country. So, you
+- [47:26.960] know, we've done a good job. Uh I would
+- [47:29.200] say that Bill is a guy that will be able
+- [47:32.240] to figure it out very quickly. Again,
+- [47:34.800] it's short term, but he may be very
+- [47:38.000] effective for a short period of time.
+- [47:39.359] >> Mr. President, Mr. president. Um, so
+- [47:42.720] what will there be a proportional share
+- [47:45.520] increase of electricity production as a
+- [47:47.599] percentage of our nation's electricity
+- [47:49.359] output? And my followup is I took that
+- [47:51.760] historic trip uh with Secretary Wright
+- [47:54.000] of the small module of nuclear reactor
+- [47:56.960] uh on the West Coast early this year.
+- [47:58.880] Are we making more progress because I
+- [48:00.640] know how critical gas and coal is for
+- [48:02.480] the secure grid.
+- [48:03.440] >> Well, the answer is we are. But Chris,
+- [48:05.040] you want to answer that?
+- [48:06.720] >> Yes. I mean, our electricity grid
+- [48:09.440] essentially runs on gas, coal, and
+- [48:11.200] nuclear. Those are the three key
+- [48:12.960] sources. They're the backbone of the
+- [48:14.400] American electricity grid. We're in
+- [48:16.160] favor of seeing all three of them grow.
+- [48:18.560] You will see all three of them grow
+- [48:20.720] during this administration. And in fact,
+- [48:22.960] later today, before the sun goes down,
+- [48:25.280] you'll see a big announcement in the
+- [48:26.800] nuclear space related to the trip you
+- [48:28.880] came on.
+- [48:29.520] >> Thank you. Thank you,
+- [48:31.040] >> Mr. President. Uh, President Putin said
+- [48:33.119] today that he was willing to make
+- [48:35.040] compromises that you requested to end
+- [48:37.680] the war with Ukraine if Ukraine was
+- [48:39.440] willing to make similar compromises.
+- [48:41.520] What were the compromises that you
+- [48:42.800] asked?
+- [48:43.200] >> Well, I'd rather not say because Peter
+- [48:45.440] asked me, I think it was meant as a
+- [48:47.520] little wise guy question, but I'm not
+- [48:49.200] sure. But I'm very responsible when that
+- [48:51.599] happens. It's going to happen. Uh,
+- [48:53.440] they're going to make both make
+- [48:54.559] compromises. I suggested those
+- [48:56.240] compromises and, you know, we've had a
+- [48:58.800] lot to do with it. would love to see
+- [49:00.160] their two very good people. They're two
+- [49:02.720] very I mean incredible countries,
+- [49:05.119] beautiful countries. They've got to
+- [49:06.400] stop. Uh last month they had 25,000
+- [49:09.520] people killed. Soldiers, mostly
+- [49:12.160] soldiers. Some people, but mostly
+- [49:14.319] soldiers. Uh and it's been averaging
+- [49:17.200] probably almost 25,000 people every
+- [49:19.599] month of soldiers killed. And uh I've
+- [49:24.079] been very strong on the fact that
+- [49:25.440] they've got to get that over with. So,
+- [49:27.280] but they they do I want them each to
+- [49:29.040] make certain compromises. I think
+- [49:30.559] they're going to do that. Yeah. Daniel,
+- [49:32.160] >> Mr. President, thank you. You, through
+- [49:34.240] your actions, have saved and supported
+- [49:36.160] more than 100 coal plants in your second
+- [49:38.640] term. When you hear something like that
+- [49:40.079] and you try to create an environment
+- [49:41.599] where they're not just surviving,
+- [49:43.200] they're thriving. What does that do to
+- [49:45.119] the reliability of our energy grid, but
+- [49:47.119] to the economies as well of states like
+- [49:48.960] Pennsylvania, West Virginia, Wyoming?
+- [49:51.280] How does it bolster those economies?
+- [49:52.640] Well, we were destroying our grid
+- [49:54.000] because we're relying on wind and other
+- [49:56.160] things that don't have the power. They
+- [49:57.599] don't have the strength. They're very
+- [49:58.720] expensive. Wind is the most expensive
+- [50:00.480] form of energy. It sounds good. Wind,
+- [50:03.040] beautiful wind, but you know, it's very
+- [50:04.880] intermittent. But those windmills cost a
+- [50:07.599] fortune. They break. They kill the
+- [50:09.040] birds. They're bad for the environment.
+- [50:10.559] Nobody wants to be near them. The
+- [50:12.559] houses, I don't know how they got
+- [50:14.000] popular. They got They're not popular
+- [50:15.760] with the people. They're popular with
+- [50:17.599] investors because they get subsidy. But
+- [50:20.079] we pretty much cut that subsidy out. I
+- [50:21.920] think Doug, right?
+- [50:23.119] >> Absolutely. In the working families tax
+- [50:25.440] cut bill, it all expires. And since the
+- [50:28.480] since the subsidies have gone away,
+- [50:30.400] there's virtually no one uh particularly
+- [50:32.400] offshore. No one is trying to build one
+- [50:34.160] of those projects in America. Turns out
+- [50:36.079] they weren't trying to generate
+- [50:37.280] electricity. They were just trying to
+- [50:38.480] generate tax credits. That's right.
+- [50:40.079] >> You're supposed to be making money with,
+- [50:42.480] you know, with that with energy. And
+- [50:45.359] here wind need subsidy. Energy shouldn't
+- [50:48.400] need subsidy. We have so much so many
+- [50:50.400] different forms of energy. But, you
+- [50:52.559] know, I I've talked about it for years.
+- [50:54.240] Wind is the most expensive. It's the
+- [50:56.079] worst. Uh it causes tremendous problems.
+- [50:59.280] And it does it kills millions and
+- [51:01.680] millions of birds a year. Nobody
+- [51:03.119] mentions that. You'd think if that were
+- [51:05.760] the anything else that that be everybody
+- [51:08.640] would be sued. You know, if you kill a
+- [51:11.280] bald eagle to put you in jail for like
+- [51:14.160] four years or something and yet
+- [51:16.400] windmills knock him out of the air all
+- [51:18.000] the time. nothing happens. It's uh it's
+- [51:20.240] disgraceful. So, uh we're into energy
+- [51:24.400] that really works and works powerfully.
+- [51:26.559] Yes. Go ahead.
+- [51:27.200] >> And we're way outside to come into the
+- [51:29.119] Oval Office. Everyone's looking at the
+- [51:31.200] UFC structure, the claw. Are you happy
+- [51:33.520] with how that's coming along and
+- [51:35.599] expectations?
+- [51:36.240] >> We put it up in uh 5 days. It's
+- [51:38.640] incredible. And I I told yesterday the
+- [51:40.960] story of the Eiffel Tower and it was
+- [51:43.280] 1889. It was put up. it was going to be
+- [51:45.359] brought down right after the World's
+- [51:46.720] Fair ended which up for a short while
+- [51:48.559] and uh they said well let's leave it a
+- [51:51.440] little bit longer then they said let's
+- [51:52.960] leave it a little longer it never came
+- [51:54.240] down that was 18 I think 1889 the
+- [51:56.480] world's fair in Paris so I jokingly said
+- [51:59.440] you know let me tell you a story about
+- [52:01.119] the now it'll come down after the
+- [52:04.559] president
+- [52:04.960] >> there were actually some people said he
+- [52:06.400] wants to leave it up yes please
+- [52:08.240] >> Mr. President, about the Columbus
+- [52:10.160] statue, Columbus fountain at Union
+- [52:12.079] Station. It looks amazing. Thank you.
+- [52:14.160] >> And what does that mean for the
+- [52:16.079] relations between Italy and the United
+- [52:18.160] States?
+- [52:18.319] >> Well, it means Italian people love Trump
+- [52:21.760] because, you know, that was controvers.
+- [52:25.040] You see how beautiful it is. And we
+- [52:26.960] don't didn't only not rip it down, but
+- [52:29.760] Doug and his group and all of us
+- [52:31.680] together, we we beautified it. It's uh I
+- [52:35.119] didn't know that marble was going to be
+- [52:36.480] so beautiful. When we once we cleaned it
+- [52:38.400] up, you wouldn't believe it. When you
+- [52:39.520] saw that that thing was loaded for
+- [52:43.359] 50 years with film and graffiti and
+- [52:46.640] everything else, it's amazing. It's
+- [52:48.800] amazing how good they did a really great
+- [52:50.480] job.
+- [52:50.800] >> On the street of hormones, Mr.
+- [52:52.160] President, do you still want European
+- [52:55.359] allies help? We're discussing energy
+- [52:57.599] today. And what kind of help do you what
+- [53:00.079] kind of help would you want? Do you have
+- [53:01.200] a
+- [53:01.520] >> We're the most powerful military in the
+- [53:03.119] world. We gave him a chance to help, but
+- [53:04.880] they chose not to. NATO, we went to the
+- [53:08.640] NATO countries. We went to others, too,
+- [53:10.559] in all fairness to NATO. And I wouldn't
+- [53:13.200] say I gave them a hard sale. I said,
+- [53:14.640] "Hey, if you'd like to help, it'll be
+- [53:16.160] wonderful." And they all turned us down.
+- [53:18.880] And, you know, it's going to be an
+- [53:19.920] expensive proposition for them because
+- [53:22.240] they shouldn't have done that. They
+- [53:23.359] should have helped. You know, we don't
+- [53:24.559] need it. We have our own. We have much
+- [53:26.880] more than we need in terms of oil and
+- [53:29.520] energy generally, but but European
+- [53:32.800] countries and other countries, they need
+- [53:34.720] it tremendous. Some of the European
+- [53:36.400] countries need it really big and they
+- [53:39.200] should have said, "We'd love to help,
+- [53:40.480] but if you could choose, but Mr.
+- [53:42.640] President, if you could choose, what
+- [53:45.200] what would you ask them to do, sir, if
+- [53:47.599] you want?"
+- [53:48.160] >> Well, I would have asked there's not
+- [53:49.839] much. Look, we want they had there's no
+- [53:52.400] navy. There's no air force. We've wiped
+- [53:54.240] them out. We've wiped out their
+- [53:55.440] leadership and almost all of it. We've
+- [53:58.000] wiped out all their military leaders.
+- [54:00.400] They're down on the third now. Maybe
+- [54:01.839] they're very good. I don't know. I can't
+- [54:03.200] tell you that. But certainly the first
+- [54:05.520] ones didn't do very good because they
+- [54:07.119] weren't they were literally after three
+- [54:10.240] days almost the entire military was
+- [54:12.079] wiped out. They had to get new generals.
+- [54:14.319] And then after that they had to get more
+- [54:15.839] new generals. And uh we knocked out
+- [54:18.880] their anti-aircraft, their air force,
+- [54:22.480] just about everything you can knock out.
+- [54:24.400] So um and then you'd read in the fake
+- [54:27.359] news that they're doing really well in
+- [54:29.839] the war. I mean, it's unbelievable. We
+- [54:32.240] knocked out everything there is to knock
+- [54:33.760] out and you'd pick up the fake news and
+- [54:35.839] they say how well they've done. They're
+- [54:38.000] doing brilliantly. They have no air
+- [54:40.160] force. You know, they exactly, we knew
+- [54:42.720] that 159 chips. Andy, out of 159 ships,
+- [54:47.760] uh, all 159 lie beautifully at the
+- [54:51.440] bottom of the ocean. We actually took
+- [54:53.680] pictures of them down there. And then
+- [54:56.559] you read the
+- [54:58.640] fake news, they say, "Well, their Navy
+- [55:01.520] is really great." You know what they
+- [55:03.440] have now? Little runabouts with a
+- [55:04.960] machine gun on the front. It's a The
+- [55:08.000] ships don't even really deal with them.
+- [55:09.839] It's They're like a gnat, you know? They
+- [55:11.599] get off. That's all they have. It's uh
+- [55:14.400] it's crazy. You know, this country needs
+- [55:16.480] a fair press. And one thing I think
+- [55:18.960] that's done is expose how corrupt our
+- [55:21.200] media is. Uh and I really do, while
+- [55:24.079] we're here, I hope the
+- [55:27.280] media looks at this election that's
+- [55:29.119] taking place in California where they
+- [55:31.520] think it'll take seven or eight days to
+- [55:33.280] count the votes. Can you believe this?
+- [55:36.240] >> I mean, we're they spend all that money
+- [55:38.400] on the on the machines, the big voting
+- [55:41.599] machines. uh they think it's going to be
+- [55:43.760] seven or eight days before we know who
+- [55:45.359] won the election. But the numbers are
+- [55:47.760] looking strange because without any vote
+- [55:50.400] counting, the numbers dropped very
+- [55:52.480] precipitously for two Republicans that
+- [55:55.200] are doing well that had been doing well
+- [55:58.559] and uh I hope you're all watching it
+- [56:00.960] because I'm watching it very closely.
+- [56:03.200] Mr.
+- [56:03.520] >> President, are you worried that China is
+- [56:05.440] funding an anti-data center movement
+- [56:07.520] here in the US?
+- [56:08.400] >> I'm not worried about it. We had a great
+- [56:09.839] meeting with China
+- [56:11.920] and you know they do things to us and we
+- [56:14.160] do things to them. I say it all the
+- [56:15.680] time. They say, "Oh, are you worried
+- [56:17.920] about China tapping your phones?" I
+- [56:19.760] said, "Well, you know, they're worried
+- [56:21.200] about the same thing." No, we're very
+- [56:23.599] highly sophisticated. We've become very
+- [56:25.359] highly sophisticated. We had four years.
+- [56:27.760] I rebuilt the military. We had a
+- [56:29.440] military that was not good and we
+- [56:31.200] rebuilt it and I didn't know I'd use it
+- [56:33.359] quite as much, but we used it. Um,
+- [56:36.480] Ukraine has been given a tremendous
+- [56:38.160] amount of our without our military and
+- [56:40.720] our equipment, Ukraine wouldn't uh be
+- [56:43.359] alive to fight today. You know, I mean,
+- [56:45.839] just in terms of the question, uh, we
+- [56:49.040] gave them hundreds of billions of
+- [56:50.880] dollars worth of equipment and the best
+- [56:53.680] equipment to we make the best equipment
+- [56:55.520] anywhere in the world, but they wouldn't
+- [56:57.520] have they wouldn't have lasted one or
+- [56:59.040] two days. They wouldn't have been able
+- [57:00.960] to do it. remember the um the anti-tank
+- [57:05.040] missiles. Remember that right when the
+- [57:07.040] tanks got stuck in the mud and then they
+- [57:09.839] went around and boom boom boom boom and
+- [57:12.559] those were uh given by yours truly. They
+- [57:15.520] said Obama gave sheets and Trump gave uh
+- [57:20.799] the anti-
+- [57:22.559] one of the most devastating weapons. But
+- [57:26.079] uh
+- [57:28.319] you check that out. But we we have we
+- [57:31.359] have the greatest military we have the
+- [57:32.960] greatest um military equipment anybody's
+- [57:36.400] ever seen before. Look at Venezuela. We
+- [57:38.400] went in there. It was over after about
+- [57:41.119] 48 minutes. And you know they have a
+- [57:43.520] strong military different kind of a
+- [57:45.119] military but a lot of soldiers
+- [57:48.559] and uh you look at Iran where we
+- [57:50.799] essentially wiped wiped out their
+- [57:52.559] military. Now there's some missiles left
+- [57:54.559] but very few compared to what they had.
+- [57:56.640] And speaking of our military and Iran, I
+- [57:58.720] want to ask you about this report that
+- [58:00.160] you would only restart the conflict with
+- [58:01.839] Iran if they killed US troops. Is that
+- [58:04.160] your red line for ending the ceasefire?
+- [58:06.240] >> If they killed
+- [58:07.200] >> US troops.
+- [58:08.720] >> What does that mean?
+- [58:09.839] >> That you would restart the war with Iran
+- [58:11.920] if they killed US troops.
+- [58:13.200] >> Well, it would be a good reason. I'll be
+- [58:15.760] honest with you. Have they killed US
+- [58:17.280] troops? I think I would do that very
+- [58:18.880] quickly. Yeah, that's a very interesting
+- [58:21.040] question.
+- [58:22.720] You've responded to the vote in the
+- [58:24.160] house yesterday of the war powers
+- [58:26.000] resolution. Also, we've seen Hezbollah
+- [58:28.720] reject the US brokered peace in Lebanon.
+- [58:32.000] You said the negotiation negotiations
+- [58:34.240] are final stages saying there's
+- [58:37.359] >> Yeah. What does reject mean? They didn't
+- [58:38.799] reject. Look, they're looking. I think
+- [58:40.799] as I will tell you, they called us and
+- [58:43.440] they said, "How about stopping?" And I
+- [58:46.079] think you're going to see things happen
+- [58:47.359] over there. that that's been like um a
+- [58:50.880] little bit of a different world, but
+- [58:52.160] it's interconnected with Iran. And it
+- [58:54.799] would be really nice if Lebanon could
+- [58:56.480] have some peace. Lebanon's been under
+- [58:58.960] attack for so many years and always like
+- [59:01.280] an underdog. And it would be really nice
+- [59:03.760] if it could end. And I spoke to BB
+- [59:05.760] Netanyahu about that and I spoke to them
+- [59:08.799] about it and I actually spoke to
+- [59:10.400] Hezbollah about it. And I think progress
+- [59:13.520] is made. That's been going on for a long
+- [59:15.280] time. You know, when you look at that
+- [59:17.280] for years and years, 48 years, I say,
+- [59:20.640] "Well, let's get this settled." How long
+- [59:22.160] has it been going on? 48 years. I said,
+- [59:24.400] "That's a long time.
+- [59:26.640] >> Not that easy." But go ahead.
+- [59:27.920] >> As we get closer to the midterms, are
+- [59:29.680] you starting to factor in domestic
+- [59:31.760] reaction to this in your handling of
+- [59:33.440] this or
+- [59:34.160] >> I just do what's right
+- [59:35.280] >> indefinitely.
+- [59:36.160] >> No, I mean, look, it was like Venezuela
+- [59:38.079] was very unpopular, then we won and my
+- [59:41.440] numbers went through the roof. I have
+- [59:42.799] very high poll numbers. They went
+- [59:44.480] through the roof. It was very unpopular
+- [59:46.880] when I went to Venezuela. They said,
+- [59:48.480] "Oh, we don't want Well, first of all,
+- [59:50.240] that one's relatively close. It's sort
+- [59:52.000] of a semi- neighbor, right?" And the
+- [59:54.480] relationship with Venezuela is
+- [59:56.079] incredible. We've taken out millions and
+- [59:58.079] millions of barrels of oil out of
+- [01:00:00.319] Venezuela. It's very oil prone. I guess
+- [01:00:03.920] Chris, one of the most, right?
+- [01:00:05.520] >> Yes.
+- [01:00:06.160] >> And we've taken out, you're sort of
+- [01:00:07.920] leading it, but you want to just tell
+- [01:00:09.520] them real fast about the relationship we
+- [01:00:11.839] have with Venezuela, Chris? Yeah, things
+- [01:00:13.760] with Venezuela have gone very well.
+- [01:00:15.440] Venezuelan oil exports today are three
+- [01:00:19.040] times higher than they were right before
+- [01:00:21.359] we went in. So, it has been a meaningful
+- [01:00:23.680] incremental supply of oil to the world.
+- [01:00:26.000] And one of the reasons we're solving a
+- [01:00:28.240] 47y old problem of of Iran's race for
+- [01:00:30.880] nuclear weapons and oil prices uh in the
+- [01:00:33.920] US, we wish they were lower, but uh
+- [01:00:36.240] gasoline prices in the US are, you know,
+- [01:00:38.480] a little over $4. They're $10 in Europe.
+- [01:00:41.040] They're higher in Asia. They're very
+- [01:00:42.799] high in California. The bigger threat to
+- [01:00:45.440] energy prices in the United States is
+- [01:00:47.599] democratic green energy policies. They
+- [01:00:50.319] have driven up energy prices far more
+- [01:00:53.359] than a conflict in Iran. And the
+- [01:00:55.040] conflict in Iran will come to an end. We
+- [01:00:57.599] hope uh the crazy green energy drive up
+- [01:01:00.960] energy prices policy of the Democrats at
+- [01:01:02.960] federal and state levels. We hope that
+- [01:01:04.559] comes to an end too. And remember this
+- [01:01:07.200] with if you want to call it a war or if
+- [01:01:08.880] you want to call it a military
+- [01:01:10.000] operation, you cannot let Iran have a
+- [01:01:12.000] nuclear weapon. And everybody agrees to
+- [01:01:14.000] that, no matter almost everybody.
+- [01:01:16.160] >> But but wait a minute, our gasoline
+- [01:01:19.200] prices are lower than they were with
+- [01:01:21.599] Biden without that. And he would have
+- [01:01:24.319] let them have in fact he inspired them
+- [01:01:26.720] to have frankly a nuclear weapon. Him
+- [01:01:28.640] and Obama Obama picked the wrong
+- [01:01:31.119] country. You know that. and the Obama
+- [01:01:34.160] deal. I terminated that or they would
+- [01:01:35.920] have had a nuclear that was a road to a
+- [01:01:37.839] nuclear weapon. Our deal, if we make
+- [01:01:39.520] that deal, and it's going well, but who
+- [01:01:42.319] knows if we make that deal, it's the
+- [01:01:44.480] exact opposite. They will not have they
+- [01:01:46.640] will never have a nuclear weapon.
+- [01:01:48.160] >> It sounds like you're in for as long as
+- [01:01:49.599] it takes.
+- [01:01:50.160] >> I'm not going to let them have a nuclear
+- [01:01:51.520] weapon. No, with Obama, it was a road,
+- [01:01:53.839] you know, that it was a road to a
+- [01:01:55.280] nuclear weapon. That was a short-term
+- [01:01:57.040] agreement and at the end of which they
+- [01:01:59.280] would have a nuclear weapon. So they
+- [01:02:00.880] would have had it four years ago. Then
+- [01:02:03.440] we attacked with this beautiful plane
+- [01:02:05.119] right here, the B2 bomber. We attacked
+- [01:02:07.920] 10 months ago. We attacked their nuclear
+- [01:02:10.240] sites and they were obliterated. It
+- [01:02:12.160] turned out that, you know, CNN was
+- [01:02:13.760] wrong. They said, "Well, maybe they
+- [01:02:15.599] weren't hit that hard. They were hit so
+- [01:02:17.119] hard. Nobody knows if you can even get
+- [01:02:19.200] it out." But the only ones that have the
+- [01:02:21.680] capability of getting out is us in
+- [01:02:23.359] China. We're the only ones with that
+- [01:02:24.720] kind of equipment that's uh powerful
+- [01:02:26.960] enough to go down that deep into a
+- [01:02:28.640] mountain. But that mountain crushed it.
+- [01:02:30.960] That mountain literally collapsed on top
+- [01:02:33.680] of it. Those pilots did one hell of a
+- [01:02:37.359] job.
+- [01:02:38.400] >> And now the atomic energy, as you know,
+- [01:02:40.319] has backed us up in that. They think
+- [01:02:42.240] it's a very, very hard thing to get it.
+- [01:02:44.799] But we'll get it anyway. But we're the
+- [01:02:46.559] only one and China. I believe China,
+- [01:02:48.319] too. But we're the only two that have
+- [01:02:50.319] the capability.
+- [01:02:52.960] >> Mr. President, Joe Biden is out
+- [01:02:55.040] promoting a new book this week. When you
+- [01:02:57.440] met with Joe Biden, President Joe Biden,
+- [01:02:59.839] right here in the Oval Office on
+- [01:03:01.280] November the 13th of 2024, could you
+- [01:03:04.319] detect any cognitive decline in
+- [01:03:06.640] President Biden at that time?
+- [01:03:08.319] >> No, not really. He was the same guy I've
+- [01:03:11.200] been watching for a long time.
+- [01:03:14.559] I mean, you could go back 40 years. I
+- [01:03:16.400] watched him 40 years ago, 30 years ago.
+- [01:03:19.119] He was never the sharpest guy. You do
+- [01:03:20.799] know that, right? It wasn't like he was
+- [01:03:23.280] sharp as attack but uh no it was the
+- [01:03:27.520] same guy. They actually invited me here
+- [01:03:29.680] before the election which was strange.
+- [01:03:31.200] You know we went here before but then I
+- [01:03:32.720] met also as you know we did the ritual
+- [01:03:35.920] and uh
+- [01:03:38.319] I mean he was fine as far as I was
+- [01:03:40.240] concerned.
+- [01:03:41.839] I don't know something happened to him
+- [01:03:44.000] during the debate. It could have been
+- [01:03:45.359] me.
+- [01:03:46.880] You know I thought I had a very good
+- [01:03:48.079] debate. Nobody ever says that. They say
+- [01:03:49.839] that they say that Biden did badly. What
+- [01:03:52.480] about me? Did I do well? You know,
+- [01:03:54.400] there's a reason he did badly. So, the
+- [01:03:56.400] question is, did he do badly because he
+- [01:03:58.400] choked or because he didn't have it? But
+- [01:04:02.160] he didn't have a good I I would say
+- [01:04:03.760] this, he did not have a good night.
+- [01:04:05.680] >> But during that during that time period,
+- [01:04:07.440] you you met with him for about two
+- [01:04:09.039] hours. You didn't feel he was slow down.
+- [01:04:12.400] >> He spoke softly, very softly. And as we
+- [01:04:15.359] started to speak, he you know, I I
+- [01:04:17.920] mentioned this to people. He spoke very,
+- [01:04:19.440] very softly, very low, very low. And as
+- [01:04:23.520] we talked, we got along really well. And
+- [01:04:26.319] I thought he was fine. I thought he was
+- [01:04:28.799] fine. When I say fine, I mean, was he
+- [01:04:31.760] like talking to Doug Bergam? Was he like
+- [01:04:34.480] talking to Chris? Was he like talking to
+- [01:04:36.240] any of these monsters up here? All these
+- [01:04:38.559] tremendous politicians and environmental
+- [01:04:41.599] geniuses. Was he like talking to Andy
+- [01:04:44.000] Bar? No,
+- [01:04:45.520] >> he was fined.
+- [01:04:47.920] question about I have a question about
+- [01:04:49.200] Hunter Biden. He's on social media now
+- [01:04:51.839] and he has suggested, maybe joking, I
+- [01:04:54.240] don't know, that he could run for
+- [01:04:55.760] president in 2028. How would he do
+- [01:04:58.960] Hunter Biden in a 2028 Democratic
+- [01:05:01.920] primary?
+- [01:05:02.240] >> Well, you would think that, you know,
+- [01:05:03.440] past has something to do with winning an
+- [01:05:05.359] election, and I would say his past is
+- [01:05:07.039] not the greatest. Where's Hunter?
+- [01:05:09.359] Remember my Where's Hunter? It became
+- [01:05:11.039] the number one shirt anywhere in the
+- [01:05:13.440] world for about three weeks. Um,
+- [01:05:17.280] I'm not going to say bad. I'm sure, you
+- [01:05:19.280] know, hey, if the guy from Maine can do
+- [01:05:22.480] well, I guess Hunter could do well, too,
+- [01:05:25.119] because the guy from Maine is a basket
+- [01:05:26.799] case. And I would say worse than him is
+- [01:05:29.839] the one from Texas.
+- [01:05:32.160] That looks like Alfred E. Newman. I
+- [01:05:34.559] would say that if he can do well, maybe
+- [01:05:37.599] Hunter can do well. I'm not sure. It
+- [01:05:39.200] would be pretty close as far as I'm
+- [01:05:40.640] concerned.
+- [01:05:41.119] >> And I've got a question about the
+- [01:05:42.319] nuclear dust. So the bombers go in, they
+- [01:05:45.760] entomb a lot of this enriched uranium.
+- [01:05:48.880] >> Yeah.
+- [01:05:49.599] >> At this point, do you need a deal with
+- [01:05:52.720] Iran to go get it or have you thought
+- [01:05:55.200] about just a covert daring send in the
+- [01:05:58.559] seals, send in the Rangers,
+- [01:05:59.839] >> but I didn't want to be Jimmy Carter,
+- [01:06:01.359] you know, I didn't feel like being Jimmy
+- [01:06:02.880] Carter. So
+- [01:06:03.359] >> So that's off.
+- [01:06:04.160] >> We did. Well, we thought about it right
+- [01:06:05.920] at the very beginning before you saw
+- [01:06:07.920] before we did what we did before we
+- [01:06:10.319] destroyed their entire military. Um, we
+- [01:06:13.200] thought about it and I didn't want to be
+- [01:06:15.440] in a position where you had be, you
+- [01:06:17.039] know, to get there. It's not like, it's
+- [01:06:18.960] not like Venezuela, like you go in,
+- [01:06:21.039] you're there for a matter of minutes and
+- [01:06:22.880] you're out and everybody's waving
+- [01:06:25.280] goodbye as you, you know, take off and
+- [01:06:27.680] you you brought the cargo back. Uh, this
+- [01:06:30.880] is different. You'd have to be there for
+- [01:06:32.319] two weeks. You'd need massive equipment.
+- [01:06:36.079] You'd have to airlift the equipment in.
+- [01:06:38.000] You know, you're in a war zone. And
+- [01:06:39.920] there was a time at the very beginning
+- [01:06:42.000] when we thought about doing that because
+- [01:06:44.319] they would have not been watching but
+- [01:06:47.680] they would have found out I mean during
+- [01:06:49.039] a period of a week to two weeks you know
+- [01:06:50.880] it's you would have you would have had a
+- [01:06:53.520] major construction operation because
+- [01:06:56.240] that plane and more importantly those
+- [01:06:58.559] people that operate those planes
+- [01:07:00.400] including the mechanics you know that
+- [01:07:01.839] flew for 37 hours round trip. Think of
+- [01:07:04.640] them and the tankers that refilled them
+- [01:07:06.960] four times and what an operation it was
+- [01:07:09.839] amazing and uh but we would have been
+- [01:07:12.400] Peter we would have been there for a
+- [01:07:14.400] period of from a week to two weeks we
+- [01:07:16.079] would have gotten it but I said I don't
+- [01:07:19.200] like the idea of that all of a sudden
+- [01:07:20.799] they you know pinpoint
+- [01:07:22.960] they still had missiles left that means
+- [01:07:25.520] they would pinpoint you and just keep
+- [01:07:27.440] lobbing them in until one gets through
+- [01:07:29.200] and people would have gotten killed. So
+- [01:07:31.200] I didn't like it. Uh, we could get it
+- [01:07:33.760] right now. I don't think they could stop
+- [01:07:35.520] us if we wanted, but there's no reason
+- [01:07:37.599] to. It's in tmbed. You use a good word.
+- [01:07:39.680] It's in tmbed. We also have cameras on
+- [01:07:42.079] it through Space Force. We have uh very
+- [01:07:46.240] powerful cameras. Every door. There's a
+- [01:07:49.039] door. You know the You know where the
+- [01:07:50.319] doors go? They go to bad places. But
+- [01:07:53.760] every single uh place on that on those
+- [01:07:57.440] mountains, there's three basically
+- [01:07:58.960] three. Uh because it we also hit it with
+- [01:08:01.440] tomahawks after, you know, after that we
+- [01:08:03.200] hit it with tomahawks. Uh every inch of
+- [01:08:05.599] that land has cameras on it. We have
+- [01:08:07.280] about nine of them and they're on and we
+- [01:08:09.440] cover it. So if anybody even got near
+- [01:08:11.760] it, we would know what we had to do.
+- [01:08:14.160] >> And we've heard you want to meet with
+- [01:08:15.839] the new Ayatollah, the new supreme
+- [01:08:18.080] leader.
+- [01:08:18.719] >> I don't want to meet, but if if I did
+- [01:08:20.480] meet, I'd be honored to meet him. I I'd
+- [01:08:22.400] like to see if we make a deal.
+- [01:08:24.400] >> But if we make a deal, it's possible
+- [01:08:26.319] that I would meet him. I'd be okay with
+- [01:08:28.560] it. Does that happen here in the US
+- [01:08:30.080] White House?
+- [01:08:31.120] >> I I haven't really heard too much about
+- [01:08:32.719] it. It's not I I didn't suggest it, but
+- [01:08:35.440] some people have suggested it. If it
+- [01:08:37.040] happened, it would be happen. I'd be I'd
+- [01:08:38.880] be respectful.
+- [01:08:39.679] >> Do you think Do you think because Epic
+- [01:08:41.839] Fury killed his dad and his wife and his
+- [01:08:44.480] kid that he's got hard feelings and
+- [01:08:46.719] wouldn't want to be? Have you
+- [01:08:48.159] >> Well, I would say I'm not his favorite
+- [01:08:49.759] person, but with that being said, he's
+- [01:08:53.040] probably a prof. I don't know. He's
+- [01:08:54.960] probably a professional. in some circles
+- [01:08:57.759] he has a very good reputation actually
+- [01:08:59.679] you know sometimes some people say bad
+- [01:09:01.520] but a lot of people say bad about me
+- [01:09:04.159] it's totally false of course
+- [01:09:08.880] >> on jobs uh tomorrow the jobs report will
+- [01:09:11.199] be released um while the unemployment
+- [01:09:13.279] rate has been steady at 4.3% the black
+- [01:09:15.279] unemployment rate has been 7.3% when you
+- [01:09:17.600] ran for president you courted black
+- [01:09:19.359] voters and talked about what you
+- [01:09:20.719] describe as black jobs how do you
+- [01:09:22.640] describe why why this disparity is
+- [01:09:24.799] happening what can you do to close that
+- [01:09:26.080] >> what we're doing very well with the the
+- [01:09:28.640] black jobs, African-American jobs. We're
+- [01:09:30.960] doing I saw some numbers that we're
+- [01:09:32.799] doing really well, but where we're
+- [01:09:34.480] really going to do well is when all
+- [01:09:35.759] these plants are open. You know, we're
+- [01:09:37.199] building many car plants. We're bringing
+- [01:09:39.279] cars back from Germany. We're bringing,
+- [01:09:41.359] you know, we lost the car industry years
+- [01:09:43.120] ago. 54% of of the industry went to
+- [01:09:46.560] Germany, Japan, Canada, Mexico. It's all
+- [01:09:50.080] coming back. It's amazing. And uh where
+- [01:09:53.279] your black worker is really going to do
+- [01:09:55.760] well is when those factories open. So I
+- [01:09:57.520] think they're going to be great. We've
+- [01:09:58.800] we've been doing very it's been a big
+- [01:10:00.480] focus for me. Yeah. Please.
+- [01:10:02.080] >> Thank you, Mr. President. Um on today's
+- [01:10:03.840] announcement, how do you ensure the
+- [01:10:05.199] estimated cost savings are passed on to
+- [01:10:07.040] the consumers and not held by the
+- [01:10:08.640] company? And then on Iran, what specific
+- [01:10:11.199] progress has been made today in talks
+- [01:10:12.960] with them? And where are the sticking
+- [01:10:14.159] points still?
+- [01:10:15.199] >> So we're u really lowering costs. You
+- [01:10:17.679] know, when I came into this job, we had
+- [01:10:19.679] the highest inflation in the history of
+- [01:10:21.440] our country. 48 years they say but I I
+- [01:10:23.760] think the history of our country whether
+- [01:10:25.360] it's 48 years or more but we had
+- [01:10:28.159] tremendous inflation with Biden during
+- [01:10:30.400] the Biden they had the highest they had
+- [01:10:31.920] one of the highest ever and uh I
+- [01:10:35.199] inherited that the costs were very very
+- [01:10:38.320] high and at my first uh news conference
+- [01:10:43.040] Peter and others were screaming at me
+- [01:10:44.800] about eggs remember Peter eggs what
+- [01:10:46.960] about eggs maybe it wasn't me but I
+- [01:10:50.159] wanted to inject Peter into But he was
+- [01:10:52.320] screaming to me about eggs and I said,
+- [01:10:54.640] "What? Tell me about eggs." This is two
+- [01:10:56.400] days in. They said, "Eggs had
+- [01:10:58.400] quadrupled." I said, "Well, they didn't
+- [01:10:59.920] quadruple under me. They qu and they
+- [01:11:02.000] didn't want me to order eggs for the
+- [01:11:03.520] Easter egg hunt that was going to take
+- [01:11:04.960] place in a few months, right?" And I
+- [01:11:07.040] said, "Nope, we're not going to." They
+- [01:11:08.239] wanted me to order plastic eggs. And I
+- [01:11:10.719] said, "Nope." And we got eggs down to
+- [01:11:13.120] lower than what it was long prior to
+- [01:11:16.239] when I took over. And eggs today are
+- [01:11:18.239] about 15% lower. Uh what we had is a
+- [01:11:22.480] bunch of con artists, the Democrats, the
+- [01:11:24.640] Democrats. And what they did is they
+- [01:11:27.840] said they left. They gave the highest
+- [01:11:30.640] prices that we've ever had for all
+- [01:11:32.320] products, groceries, everything. And
+- [01:11:34.480] they started saying affordability.
+- [01:11:37.520] They'd say this is about affordability.
+- [01:11:40.800] It's a conj job. They inherited their
+- [01:11:43.440] high prices. We brought those prices way
+- [01:11:45.840] down. And when the and if you go back
+- [01:11:48.719] three months ago, if you go back before
+- [01:11:50.320] the the war started, think of it, three
+- [01:11:52.400] months. So, uh, with Vietnam, we were
+- [01:11:55.360] there for 19 years. With Iraq, it was
+- [01:11:58.159] about nine years. With another one, it
+- [01:11:59.760] was about 12 years. And with another, we
+- [01:12:01.679] had all these wars that lasted for 9,
+- [01:12:03.679] 10, 12. 19 years for Vietnam. Think of
+- [01:12:07.199] it. And they said, "You're in there for
+- [01:12:10.880] three months. This is a terrible thing.
+- [01:12:13.920] Hundreds of thousands of soldiers have
+- [01:12:16.159] been killed in these other wars. We lost
+- [01:12:18.640] not one soldier in that Israel. We
+- [01:12:22.400] didn't lose one soldier and we lost a
+- [01:12:25.840] total of 13 which is 13 too many. But
+- [01:12:28.560] when you look at hundreds of thousands
+- [01:12:30.320] of soldiers were killed in these various
+- [01:12:32.239] wars. They lasted many, many years.
+- [01:12:34.320] We're in there for a few months and what
+- [01:12:35.920] we've done is amazing. They won't have a
+- [01:12:38.400] nuclear weapon. And we did. It was tough
+- [01:12:40.560] because we just got Doug and everybody
+- [01:12:42.960] came in this evening. We just got the
+- [01:12:45.120] best numbers. Well, today again, the New
+- [01:12:47.520] York Stock Exchange and every other
+- [01:12:49.760] exchange just hit a new all-time high.
+- [01:12:52.800] That's 73 days out of my short term,
+- [01:12:56.640] we've hit brand new highs. Every 401k is
+- [01:13:00.560] setting records. A 401k, a lot of people
+- [01:13:03.280] have, you probably all have 401ks. Every
+- [01:13:06.560] look at your 401k. you're happy about
+- [01:13:08.560] your 401k. You know, the the nice
+- [01:13:11.440] reporters are smiling at me and the
+- [01:13:13.120] stupid reporters are like that, but
+- [01:13:15.440] their 401ks are setting records. They
+- [01:13:17.440] should be happy. They shouldn't be
+- [01:13:19.120] angry. They should be very happy. But
+- [01:13:21.280] 401ks are setting records. They've never
+- [01:13:23.600] had anything like it. So, you know,
+- [01:13:25.360] we've done a good job. As far as Iran's
+- [01:13:27.120] concerned, you're going to find out what
+- [01:13:28.239] the deal is. But the main parts of the
+- [01:13:31.040] deal is that it can't have a nuclear
+- [01:13:32.480] weapon. Uh the straight will open
+- [01:13:35.040] immediately. you know, it's going to
+- [01:13:36.159] open immediately. And we've largely
+- [01:13:38.560] swept for mines. We have the most
+- [01:13:40.800] sophisticated mind. They're underwater
+- [01:13:43.760] mind sweepers. I actually said to
+- [01:13:45.520] somebody, one of the generals, why
+- [01:13:47.760] underwater is it? Because usually it's
+- [01:13:49.440] hostile. You know, when you're looking
+- [01:13:51.280] for mines, typically it's not in a good
+- [01:13:53.520] neighborhood, right? So underwater made
+- [01:13:55.679] a lot of sense when it didn't take long
+- [01:13:57.440] to figure that one out. So, uh, I think
+- [01:14:00.000] we're doing very well, but we're gonna
+- [01:14:01.280] see if if we're gonna win one way or the
+- [01:14:03.520] other. We're gonna win on paper or we're
+- [01:14:06.159] gonna win military. One one way or the
+- [01:14:08.480] other. It's going to be militarily or on
+- [01:14:10.400] paper.
+- [01:14:10.800] >> Mr. Mr. President.
+- [01:14:12.400] >> Mr. President.
+- [01:14:12.960] >> Thank you, Mr. President. How critical
+- [01:14:14.719] is energy dominance? Whether it be coal,
+- [01:14:17.120] whether it be LNG, whether it be oil to
+- [01:14:19.679] national security.
+- [01:14:20.560] >> Without it, you can't win. As an
+- [01:14:22.480] example,
+- [01:14:24.239] AI is a big deal. Whether we like it,
+- [01:14:27.040] not like it, it's going to be amazing in
+- [01:14:29.040] many ways. It's going to be I think for
+- [01:14:30.480] medical it will be amazing. But without
+- [01:14:32.960] massive amounts of energy, you can't
+- [01:14:34.880] even play the game. And we're leading
+- [01:14:37.120] China by a lot in AI. I was talking to
+- [01:14:39.520] President Xi about it. Uh but if we
+- [01:14:42.880] didn't do Lee Zeldon's done so great
+- [01:14:44.960] because number one fast approvals from
+- [01:14:47.520] professionals, you know, they'd have the
+- [01:14:48.800] best firms in the world submitting
+- [01:14:50.320] papers to
+- [01:14:53.040] keep them waiting for 10 years and then
+- [01:14:54.880] vote against them after 10 years. Is
+- [01:14:56.320] that what you guys would file with the
+- [01:14:58.800] environmental for a plant of some kind
+- [01:15:01.679] after 15 years they would be rejected?
+- [01:15:04.719] It was terrible. Now we have great
+- [01:15:07.920] professionals there and we accept we
+- [01:15:10.159] only accept plans from great
+- [01:15:11.520] professionals but we give them fast
+- [01:15:13.520] turnaround and it's it's been really
+- [01:15:16.400] amazing. I I think the biggest thing
+- [01:15:18.000] we've done Lee is we let these geniuses
+- [01:15:20.800] with all this money build their own
+- [01:15:22.320] electric plant. We don't take it from
+- [01:15:24.480] our grid. We let them build their own
+- [01:15:26.880] plant. They become a utility. So they're
+- [01:15:28.560] building a plant and at the same time
+- [01:15:30.560] they're building electricity because if
+- [01:15:32.960] we didn't do that, you couldn't have
+- [01:15:34.159] anything. You couldn't have. And we're
+- [01:15:35.520] letting that happen too with car plants
+- [01:15:37.280] and other plants. If they want to build
+- [01:15:38.719] their own electric, but with the AI, you
+- [01:15:41.120] know, you hear so much about it, but one
+- [01:15:43.280] of the biggest things they build their
+- [01:15:44.480] own and then excess energy that they
+- [01:15:47.120] create will go back into the grid. Yeah.
+- [01:15:48.960] Please,
+- [01:15:49.280] >> Mr. President, on Cuba on your Mr.
+- [01:15:51.600] President,
+- [01:15:52.400] >> just let him have one.
+- [01:15:53.199] >> Mr. President Secretary Rubio was in
+- [01:15:54.960] Delhi last week. He delivered a letter
+- [01:15:56.719] from you to Prime Minister Modi. And
+- [01:15:58.800] sir, you also addressed people of India
+- [01:16:00.560] to your favorite ambassador Sergio G.
+- [01:16:02.400] >> That's right.
+- [01:16:02.960] >> Yeah. Both of them have said the trade
+- [01:16:05.120] deal is around the corner. Where do you
+- [01:16:06.640] stand on the trade deal with you?
+- [01:16:07.840] >> Well, we haven't. And you know, look,
+- [01:16:09.760] India for years has and I don't blame
+- [01:16:13.360] them, I blame us because we had stupid
+- [01:16:15.360] people here. India for years really took
+- [01:16:17.760] advantage of the United States. You know
+- [01:16:19.360] that. Are you from India by any chance?
+- [01:16:21.280] Huh?
+- [01:16:21.840] >> What people? I thought you were from
+- [01:16:23.040] Germany.
+- [01:16:23.440] >> I'm from India.
+- [01:16:24.719] >> I'm only kidding. Uh your central
+- [01:16:28.000] casting. Okay. And that's a very good
+- [01:16:29.840] thing. India for years took advantage of
+- [01:16:32.320] this country. They charged us tremendous
+- [01:16:34.320] tariffs. Uh and they paid nothing. They
+- [01:16:38.239] wouldn't let Harley as an example in the
+- [01:16:40.719] past. They wouldn't let Harley-Davidson
+- [01:16:44.239] sell it motor. They would charge 200%
+- [01:16:46.880] tariff. So Harley-Davidson was
+- [01:16:49.120] precluded. They ended up going to India
+- [01:16:50.960] and building their own plants which is
+- [01:16:53.360] unfortunate that that happened but it
+- [01:16:55.760] happens. It was before me but uh they
+- [01:16:59.280] charged tremendous amounts of tariffs to
+- [01:17:01.520] our and and we didn't charge them
+- [01:17:03.280] anything. You know they sell sold
+- [01:17:05.679] motorbikes here too. You know we charged
+- [01:17:07.520] them nothing and now it's the exact
+- [01:17:10.400] reverse and we're making a lot of money
+- [01:17:13.040] with India. But we'll get to a a deal
+- [01:17:16.080] because I like you know I like your
+- [01:17:17.840] prime minister a lot. He's a good friend
+- [01:17:19.440] of mine. Get along great and we're gonna
+- [01:17:21.440] make a deal. We get we have a very good
+- [01:17:22.880] relationship.
+- [01:17:23.520] >> Mr. President, speaking of deals, Mr.
+- [01:17:25.360] President, on Cuba, are your sanctions
+- [01:17:27.920] on Cuba meant to accelerate its
+- [01:17:30.400] collapse?
+- [01:17:30.960] >> No, it's just we just want them to be uh
+- [01:17:34.719] a nicely country that can feed its
+- [01:17:37.199] people. Look, it's a failed nation.
+- [01:17:39.840] without Venezuela, you know, Venezuela
+- [01:17:41.840] because it has such wealth in the
+- [01:17:45.280] ground, mostly in the ground, but
+- [01:17:47.840] Venezuela took care of them for years
+- [01:17:49.600] and they took care of Venezuela. They
+- [01:17:51.040] were like the bodyguards when we went in
+- [01:17:52.800] and burst into their country. The
+- [01:17:55.280] Venezuelans were guarding Maduro and
+- [01:17:57.920] everybody else. It was mostly I mean the
+- [01:17:59.840] soldiers were in that case. We were
+- [01:18:02.320] allowed. We had a lot of Cubans were
+- [01:18:04.400] guarding. The Cubans were the guards and
+- [01:18:06.880] and they're good soldiers. But the
+- [01:18:09.440] country is starving and it's got no
+- [01:18:11.920] energy. It's got no oil. It's got no
+- [01:18:13.760] money. It's got nothing. It's got a
+- [01:18:15.360] beautiful piece of land. You could have
+- [01:18:17.920] beautiful resorts, doesn't have oil, but
+- [01:18:21.280] uh Venezuela was giving them the money
+- [01:18:24.719] to survive. And now, you know, the money
+- [01:18:27.360] is, I guess you could say, is coming to
+- [01:18:29.840] us and is going to Venezuela. Venezuela
+- [01:18:32.400] has been an amazing thing because we've
+- [01:18:34.159] paid for the cost of the attack many,
+- [01:18:36.480] many times over and it's been a long
+- [01:18:39.040] time since you
+- [01:18:39.840] >> think Cuba is close to collapsing though
+- [01:18:41.679] based on everything you just laid out.
+- [01:18:42.960] Do you think that Cuba is close to
+- [01:18:44.400] collapsing?
+- [01:18:46.000] >> It sort of collapsed and we're going to
+- [01:18:48.640] handle that as soon as we've finished. I
+- [01:18:50.640] like to do one thing at a time and we'll
+- [01:18:53.120] take care of uh the Islamic Republic of
+- [01:18:57.040] Iran and as soon as that's done on our
+- [01:18:59.440] way back, we'll just make a little brief
+- [01:19:01.520] >> stop.
+- [01:19:03.520] We'll take care of it. We want to help
+- [01:19:05.040] them out. Look, um we have a lot of
+- [01:19:07.280] people there voted for Trump. Whether
+- [01:19:09.280] they did or not, it didn't matter, but I
+- [01:19:10.960] had 95% of the Cubans voted for me.
+- [01:19:13.920] They're unbelievable people. They're
+- [01:19:15.679] energetic. They're entrepreneurial. You
+- [01:19:18.159] know, some of the richest people in
+- [01:19:19.440] Miami are Cuban. They're unbelievable.
+- [01:19:22.320] And uh I'm going to take good care of
+- [01:19:24.719] them. I'm going to let them go back to
+- [01:19:26.000] their land. They want to be back with
+- [01:19:27.440] family. You know, they have a lot of
+- [01:19:28.560] family over there. Uh they've been
+- [01:19:30.800] treated very badly by Cuba, but we're
+- [01:19:33.280] going to treat Cuba well, and we're
+- [01:19:34.640] going to let our people go back and let
+- [01:19:37.199] them invest in Cuba if they'd like. So,
+- [01:19:39.679] we have some we have some very good
+- [01:19:41.600] plans for Cuba. I think, you know, we
+- [01:19:43.760] have to get rid of the the regime was
+- [01:19:46.320] was very tough, very nasty. The
+- [01:19:48.640] difference is now they don't have money
+- [01:19:50.000] coming in. They had a lot of money
+- [01:19:52.000] coming in from Venezuela. They don't
+- [01:19:53.840] have any money coming. They had oil
+- [01:19:55.120] coming in. They had money coming in. Uh
+- [01:19:57.920] but we're going to take care of Cuba,
+- [01:19:59.520] >> Mr. President. Sir, Mr. President,
+- [01:20:01.120] >> and they, you know what? They want us
+- [01:20:02.480] to. The people want us there so bad.
+- [01:20:04.719] >> Mr. President, sir, last night, huge
+- [01:20:07.040] night for the city of New York. The
+- [01:20:08.560] Knicks won game one of the NBA finals.
+- [01:20:10.960] There's been a lot of speculation. Have
+- [01:20:12.480] you decided whether or not you want to
+- [01:20:14.640] attend a game at Madison Square?
+- [01:20:16.000] >> Well, I've been a Nick fan for a long
+- [01:20:17.440] time and I'm also a Jim Dolan fan. He's
+- [01:20:19.760] a nice guy. Okay. He's been he's been a
+- [01:20:22.080] long time wanting to win and he's he's a
+- [01:20:24.239] competitive guy and he's got a team
+- [01:20:25.760] that's amazing. You know, they I don't
+- [01:20:27.280] think they've lost a playoff game.
+- [01:20:28.640] >> Four straight wins.
+- [01:20:29.600] >> Can you imagine that? And uh it was not
+- [01:20:32.400] looking good. I saw the beginning of the
+- [01:20:33.920] game and it wasn't looking good. I
+- [01:20:35.360] missed the middle because I talked to
+- [01:20:36.800] generals all night long now. But uh I
+- [01:20:40.239] watched that end of the game and they
+- [01:20:41.679] were dominant. Really amazing. And WebM
+- [01:20:43.760] is a great player. He's going to be a
+- [01:20:45.120] great player and he is already a great
+- [01:20:46.719] player. I say, "How do you guard this
+- [01:20:48.800] guy? He's 7 foot five and he's got a
+- [01:20:50.560] great shot, right? But they find a way
+- [01:20:53.600] to do it. They're they're really great.
+- [01:20:55.120] They're a great team." And I'm happy for
+- [01:20:57.679] Jim because Jim has really been fighting
+- [01:20:59.679] hard to, you know, produce such a team.
+- [01:21:02.000] So you never know. Uh the answer is yes.
+- [01:21:04.000] He's invited me. I'm going.
+- [01:21:05.440] >> Which game you decide, sir?
+- [01:21:07.199] >> Say it. Game three, game four. Are you
+- [01:21:09.280] excited?
+- [01:21:10.159] >> It could be Monday. Yeah, Monday.
+- [01:21:11.840] >> Mr. President, speaking in New York,
+- [01:21:14.400] >> maybe I'll do both.
+- [01:21:16.239] >> You mentioned your meeting with the
+- [01:21:17.280] automakers yesterday. Can you tell us a
+- [01:21:19.040] little bit about that? More about that
+- [01:21:20.719] in particular. Did you discuss trade
+- [01:21:22.400] tariffs?
+- [01:21:23.520] >> We we had a great meeting with the auto.
+- [01:21:25.520] I mean, most of them were here. They
+- [01:21:26.960] were really talking about the fix your
+- [01:21:28.400] own car kind of a thing, right? But um
+- [01:21:32.000] they're doing very well since I'm in
+- [01:21:33.600] office because I got rid of a lot of
+- [01:21:35.280] environmental restrictions that in fact
+- [01:21:38.159] you might just tell them a little bit
+- [01:21:39.520] about that leap where we made it so much
+- [01:21:42.239] easier for them to build a car. They
+- [01:21:43.920] could build a less expensive car that's
+- [01:21:45.679] much better and they were so choked up
+- [01:21:48.800] with environmental nonsense that in
+- [01:21:50.640] order to save 4 ounces of gasoline you
+- [01:21:53.440] had to spend thousands and thousands of
+- [01:21:55.360] dollars. Lee, do you want to go into
+- [01:21:56.560] that? President Trump. We sent to
+- [01:21:58.480] Congress uh congressional three Biden
+- [01:22:00.880] EPA waivers to California that Congress
+- [01:22:03.040] passed. President Trump signed last year
+- [01:22:04.960] getting rid of the electric vehicle
+- [01:22:06.239] mandate that a whole bunch of other
+- [01:22:07.520] states had signed on to. Uh just a
+- [01:22:09.440] couple months ago, President Trump
+- [01:22:10.800] announced here at the White House the
+- [01:22:12.159] largest act of deregulation in the
+- [01:22:14.400] history of the United States, the repeal
+- [01:22:16.000] of the 2009 endangerment finding. All
+- [01:22:18.239] the greenhouse gas emission standards
+- [01:22:19.760] and light, medium, and heavy duty
+- [01:22:20.880] vehicles were following the law. and
+- [01:22:23.120] what that means for cost of living just
+- [01:22:24.719] on that act alone. $2,400 more
+- [01:22:27.199] affordable per vehicle for Americans. Uh
+- [01:22:30.560] the the victories come out every single
+- [01:22:32.800] day. Uh President Trump gave us very
+- [01:22:35.280] clear guidance. He wanted us to act at
+- [01:22:36.960] Trump's speed to get this done as fast
+- [01:22:38.960] as possible. And what you see now all
+- [01:22:40.639] across America is billions upon billions
+- [01:22:43.360] of investments all across this country
+- [01:22:46.000] with new factories being built. They
+- [01:22:47.840] believe in America. They're investing in
+- [01:22:49.280] America with the American jobs to come
+- [01:22:50.960] come up with it. And by the way,
+- [01:22:52.320] consumer choice, we got rid of that
+- [01:22:55.199] climate participation trophy for that
+- [01:22:57.280] annoying start stop feature in cars to
+- [01:23:00.239] make your car die at every stop site, a
+- [01:23:02.480] stop uh sign and red light. Uh so yeah,
+- [01:23:04.800] the gift the the gifts uh the the
+- [01:23:07.440] receipts, the wins, they keep coming and
+- [01:23:10.080] uh we're just getting started.
+- [01:23:11.120] >> Do they ask you for any tariff changes
+- [01:23:13.120] on auto?
+- [01:23:14.239] >> I didn't I didn't know that. They're
+- [01:23:16.400] making so much money now because uh you
+- [01:23:19.280] know I did something else that I don't
+- [01:23:21.520] know it does because we have no tax on
+- [01:23:23.199] tips and no tax on social security, no
+- [01:23:25.360] tax on overtime, right? So that's really
+- [01:23:28.080] been big. That's turned out to be much
+- [01:23:29.760] bigger than anyone knew. If you look at
+- [01:23:31.440] the people, they're saving from five to
+- [01:23:33.760] seven $8,000 even uh on average because
+- [01:23:38.000] of that. So it's been good. But I did
+- [01:23:39.920] something else that nobody talks about.
+- [01:23:42.320] If you buy a car and you borrow money,
+- [01:23:44.320] you're allowed to deduct the interest
+- [01:23:46.800] for income tax purposes. Never happened
+- [01:23:49.520] before. And deductions were always meant
+- [01:23:52.560] for rich people. They weren't meant for
+- [01:23:54.159] middle class people or other people
+- [01:23:56.560] wanting to buy a car. So now you're
+- [01:23:58.880] allowed to get a deduction of your
+- [01:24:00.800] interest payment. That's a tremendous
+- [01:24:03.679] thing. I mean, it's a But what's the
+- [01:24:05.920] key? Only if the car is made in America.
+- [01:24:09.760] Thank you very much, everybody.
+- [01:24:11.600] Thank you.
+- [01:24:13.440] Thank you guys. Thank you. Thank you.
+- [01:24:18.080] Thank you. Thank you guys. Thank you
+- [01:24:20.080] guys. Thank you guys. Very well. Todd is
+- [01:24:23.040] very popular. He's doing great.
+- [01:24:25.360] >> Thank you guys. Thank you guys. Thank
+- [01:24:26.960] you guys. Thank you. Thank you. Thank
+- [01:24:29.840] you guys. Thank you guys. Thank you
+- [01:24:31.840] guys. Thank you guys.

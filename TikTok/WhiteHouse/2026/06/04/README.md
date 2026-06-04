@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-06-04
 
-- Posts: 3
+- Posts: 4
 
+- [21:35 UTC - We heard the reflection pool started filling back up today!](7647656978956799246/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7647656978956799246
+  - We heard the reflection pool started filling back up today!
 - [16:01 UTC - Want deja vu?](7647570905752718623/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7647570905752718623
   - Want deja vu?
