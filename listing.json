@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-04T14:53:02.005974+00:00",
+  "generatedAt": "2026-06-04T14:53:59.051065+00:00",
   "records": [
     {
       "category": "TikTok",
@@ -48405,6 +48405,84 @@
     {
       "category": "X",
       "date": "2026-05-14",
+      "id": "socials:9753d40b4bee74bc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364198+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054748299618402304.mp4",
+            "remotePath": "archive/x/potus/bn3OBLjeaTVDUfX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054748299618402304/vid/avc1/1080x1080/bn3OBLjeaTVDUfX-.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/bn3OBLjeaTVDUfX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054748299618402304.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/bn3OBLjeaTVDUfX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054753765002014788"
+      },
+      "metadataPath": "X/POTUS/2026/05/14/2054753765002014788/README.md",
+      "path": "X/POTUS/2026/05/14/2054753765002014788/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054753765002014788",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The Star-Spangled Banner plays as President Donald J. Trump is gree..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-14",
+      "id": "socials:8e97995d6b120b5f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364472+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054743843606589827"
+      },
+      "metadataPath": "X/POTUS/2026/05/14/2054743843606589827/README.md",
+      "path": "X/POTUS/2026/05/14/2054743843606589827/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054743843606589827",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Participates in a Greeting with the President of th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-14",
+      "id": "socials:21dff79cba013b21",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364345+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2054750219909087609"
+      },
+      "metadataPath": "X/POTUS/2026/05/14/2054750219909087609/README.md",
+      "path": "X/POTUS/2026/05/14/2054750219909087609/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054750219909087609",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Participates in a Bilateral Meeting with the Presid..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-14",
       "id": "socials:38b0b84b054c8e7b",
       "kind": "social_post",
       "metadata": {
@@ -50866,6 +50944,280 @@
       "sourceUrl": "https://x.com/DHSgov/status/2054643620188459432",
       "summary": "Sanctuary Virginia continues to be a HOTBED for illegal alien crime.",
       "title": "Sanctuary Virginia continues to be a HOTBED for illegal alien crime. Just this month, @ICE..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:cbaaa7ca847fa090",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.365212+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054334999176806400.jpg",
+            "remotePath": "archive/x/potus/HIJ2zCOWAAAirar.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIJ2zCOWAAAirar.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HIJ2zCOWAAAirar.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054334999176806400.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HIJ2zCOWAAAirar.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054358026644013296"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054358026644013296/README.md",
+      "path": "X/POTUS/2026/05/13/2054358026644013296/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054358026644013296",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: https://t.co/IBzjpZgXUc"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:a1711fdf69b89276",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364915+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054541841853231104.mp4",
+            "remotePath": "archive/x/potus/nvmTEC8gSX2yCqME.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054541841853231104/vid/avc1/1080x1080/nvmTEC8gSX2yCqME.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/nvmTEC8gSX2yCqME.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054541841853231104.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/nvmTEC8gSX2yCqME.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054545282507985298"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054545282507985298/README.md",
+      "path": "X/POTUS/2026/05/13/2054545282507985298/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054545282507985298",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Wheels down in Beijing! President Donald J. Trump lands for a landm..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:73b233db52170512",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.365088+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054358802900602880.jpg",
+            "remotePath": "archive/x/potus/HIKMcmAWUAATm-H.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIKMcmAWUAATm-H.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HIKMcmAWUAATm-H.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054358802900602880.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HIKMcmAWUAATm-H.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054545270919098558"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054545270919098558/README.md",
+      "path": "X/POTUS/2026/05/13/2054545270919098558/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054545270919098558",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Under President Trump, replacement migration will never be the stan..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:436c47dcd62c42ac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364591+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054605418761007104.mp4",
+            "remotePath": "archive/x/potus/9WTY4C-6WaWWpP-l.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054605418761007104/vid/avc1/4096x2160/9WTY4C-6WaWWpP-l.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/9WTY4C-6WaWWpP-l.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054605418761007104.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/9WTY4C-6WaWWpP-l.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054611154698141892"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054611154698141892/README.md",
+      "path": "X/POTUS/2026/05/13/2054611154698141892/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054611154698141892",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The arrival everyone has waited for. \ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3 https://t.co/B1DTgI9HKR"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:4f05503606c123fc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.365337+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054338052210741248.mp4",
+            "remotePath": "archive/x/potus/8HtdnYlVUsy5bLRS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054338052210741248/vid/avc1/720x1280/8HtdnYlVUsy5bLRS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/8HtdnYlVUsy5bLRS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054338052210741248.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/8HtdnYlVUsy5bLRS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054358013310353828"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054358013310353828/README.md",
+      "path": "X/POTUS/2026/05/13/2054358013310353828/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054358013310353828",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Full circle moment https://t.co/6hkxyGNo8J"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:f91b99cb32505a3a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.365485+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054305599999934464.jpg",
+            "remotePath": "archive/x/potus/HIJcDxwXgAAXDwk.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIJcDxwXgAAXDwk.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HIJcDxwXgAAXDwk.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2054305599270047744.jpg",
+            "remotePath": "archive/x/potus/HIJcDvCWUAAeeNl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIJcDvCWUAAeeNl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HIJcDvCWUAAeeNl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054305599999934464.jpg",
+          "media/02_image_2054305599270047744.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HIJcDxwXgAAXDwk.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HIJcDvCWUAAeeNl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054358002925203818"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054358002925203818/README.md",
+      "path": "X/POTUS/2026/05/13/2054358002925203818/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054358002925203818",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Back on the world stage. \u2708\ufe0f\ud83c\uddfa\ud83c\uddf8 President Donald J. Trump heads to Ch..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-13",
+      "id": "socials:48b33e36b3e30c79",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.364723+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054594629018783744.jpg",
+            "remotePath": "archive/x/potus/HINi7ewXEAAsvRS.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINi7ewXEAAsvRS.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HINi7ewXEAAsvRS.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2054594629178171392.jpg",
+            "remotePath": "archive/x/potus/HINi7fWXIAAb3Ny.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINi7fWXIAAb3Ny.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HINi7fWXIAAb3Ny.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2054594628989366273.jpg",
+            "remotePath": "archive/x/potus/HINi7epWMAEareF.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINi7epWMAEareF.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HINi7epWMAEareF.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2054594629018804224.jpg",
+            "remotePath": "archive/x/potus/HINi7ewXYAAvDPL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HINi7ewXYAAvDPL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HINi7ewXYAAvDPL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054594629018783744.jpg",
+          "media/02_image_2054594629178171392.jpg",
+          "media/03_image_2054594628989366273.jpg",
+          "media/04_image_2054594629018804224.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HINi7ewXEAAsvRS.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HINi7fWXIAAb3Ny.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HINi7epWMAEareF.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HINi7ewXYAAvDPL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054596726284079466"
+      },
+      "metadataPath": "X/POTUS/2026/05/13/2054596726284079466/README.md",
+      "path": "X/POTUS/2026/05/13/2054596726284079466/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054596726284079466",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: BACK THE BLUE. This National Police Week, we honor the heroes who r..."
     },
     {
       "category": "X",
@@ -53848,6 +54200,40 @@
       "sourceUrl": "https://x.com/WhiteHouse/status/2054003628814340275",
       "summary": "So much winning at the White House. \ud83c\uddfa\ud83c\uddf8\ud83c\udfc8",
       "title": "So much winning\u00a0at the White House. \ud83c\uddfa\ud83c\uddf8\ud83c\udfc8 The Undefeated National Champion Indiana Hoosiers ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-12",
+      "id": "socials:7190f9d0cca7a23c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.365661+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2054286389517144064.jpg",
+            "remotePath": "archive/x/potus/HIJKllIW0AAEPy4.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HIJKllIW0AAEPy4.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HIJKllIW0AAEPy4.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2054286389517144064.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HIJKllIW0AAEPy4.jpg"
+        ],
+        "platform": "X",
+        "postId": "2054291343434801344"
+      },
+      "metadataPath": "X/POTUS/2026/05/12/2054291343434801344/README.md",
+      "path": "X/POTUS/2026/05/12/2054291343434801344/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054291343434801344",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: A beacon of freedom, hope, &amp; the American spirit. \ud83c\uddfa\ud83c\uddf8 https://t...."
     },
     {
       "category": "X",
