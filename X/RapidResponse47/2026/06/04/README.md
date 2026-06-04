@@ -1,0 +1,52 @@
+# X / RapidResponse47 / 2026-06-04
+
+- Posts: 16
+
+- [14:41 UTC - WATCH: @SecRollins' full opening statement before the House Committee on Agriculture https...](2062545318852304975/)
+  - Source: https://x.com/RapidResponse47/status/2062545318852304975
+  - WATCH: @SecRollins' full opening statement before the House Committee on Agriculture https://t.co/TCQloiMFn0
+- [14:33 UTC - "What percent of tax filers who received a tax cut in filing season earned less than $100,...](2062543177945338295/)
+  - Source: https://x.com/RapidResponse47/status/2062543177945338295
+  - "What percent of tax filers who received a tax cut in filing season earned less than $100,000?" @SecScottBessent: "Just over 70 percent, sir." "70 percent!" President Trump's tax c...
+- [14:22 UTC - Repost of @Interior: We’re auramaxxing Washington, D.C. ahead of America’s 250th birthday....](2062540447428354055/)
+  - Source: https://x.com/RapidResponse47/status/2062540447428354055
+  - Repost of @Interior: We’re auramaxxing Washington, D.C. ahead of America’s 250th birthday. @SecretaryBurgum recently ordered the massive Arts of War and Arts of Peace equestrian st...
+- [13:27 UTC - Repost of @SecretaryTurner: Director @pulte has been an integral part of the team, and we ...](2062526617608458526/)
+  - Source: https://x.com/RapidResponse47/status/2062526617608458526
+  - Repost of @SecretaryTurner: Director @pulte has been an integral part of the team, and we look forward to continuing our work with him as he steps into this new role as the acting...
+- [13:19 UTC - "During Covid, I was a critic of the public-health response... By contrast, the measures t...](2062524709443449261/)
+  - Source: https://x.com/RapidResponse47/status/2062524709443449261
+  - "During Covid, I was a critic of the public-health response... By contrast, the measures the U.S. is taking to address this Ebola outbreak—with its high mortality rate and known tr...
+- [13:14 UTC - Repost of @RapidResponse47: .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola ...](2062523439747944524/)
+  - Source: https://x.com/RapidResponse47/status/2062523439747944524
+  - Repost of @RapidResponse47: .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola https://t.co/CLuhp02fj0
+- [13:13 UTC - .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola https://t.co/ys98ZSUm72](2062523106795602178/)
+  - Source: https://x.com/RapidResponse47/status/2062523106795602178
+  - .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola https://t.co/ys98ZSUm72
+- [13:05 UTC - .@BrendanCarrFCC on excessive screen time concerns regarding falling test scores: "You're ...](2062521233900548350/)
+  - Source: https://x.com/RapidResponse47/status/2062521233900548350
+  - .@BrendanCarrFCC on excessive screen time concerns regarding falling test scores: "You're seeing a rising movement now where, bell to bell, schools are saying 'put the screens away...
+- [12:48 UTC - Repost of @Scavino47: President Trump with an announcement tonight at the @WhiteHouse… Con...](2062516903004844525/)
+  - Source: https://x.com/RapidResponse47/status/2062516903004844525
+  - Repost of @Scavino47: President Trump with an announcement tonight at the @WhiteHouse… Congratulations @TheJusticeDept @DAGToddBlanche—🇺🇸🦅 https://t.co/7C7N0Gjall
+- [12:32 UTC - https://t.co/p8tfaBEmwe](2062512923537264781/)
+  - Source: https://x.com/RapidResponse47/status/2062512923537264781
+  - https://t.co/p8tfaBEmwe
+- [01:53 UTC - Repost of @joel_kaplan: We’ve taken part in a major operation to disrupt scam networks in ...](2062351967976862177/)
+  - Source: https://x.com/RapidResponse47/status/2062351967976862177
+  - Repost of @joel_kaplan: We’ve taken part in a major operation to disrupt scam networks in SE Asia, leading to the arrests of 63 suspected scammers & the removal of over 1.4 million...
+- [01:50 UTC - Wow!](2062351149240389892/)
+  - Source: https://x.com/RapidResponse47/status/2062351149240389892
+  - Wow!
+- [01:25 UTC - .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola https://t.co/CLuhp02fj0](2062345042589544936/)
+  - Source: https://x.com/RapidResponse47/status/2062345042589544936
+  - .@NIHDirector_Jay: The CDC Is Protecting Americans From Ebola https://t.co/CLuhp02fj0
+- [00:23 UTC - Repost of @RepAbeHamadeh: As a former intelligence officer, Congressman Hamadeh knows the ...](2062329306097840308/)
+  - Source: https://x.com/RapidResponse47/status/2062329306097840308
+  - Repost of @RepAbeHamadeh: As a former intelligence officer, Congressman Hamadeh knows the importance of fearless transparency and courageous leadership to keep our country safe and...
+- [00:21 UTC - Repost of @RepLangworthy: Congratulations to Bill Pulte on his appointment as Acting Direc...](2062328733462057088/)
+  - Source: https://x.com/RapidResponse47/status/2062328733462057088
+  - Repost of @RepLangworthy: Congratulations to Bill Pulte on his appointment as Acting Director of National Intelligence. At a time when threats to our nation are growing more comple...
+- [00:13 UTC - Repost of @RepGosar: The Left & DC establishment are melting down over @POTUS selection of...](2062326868515160113/)
+  - Source: https://x.com/RapidResponse47/status/2062326868515160113
+  - Repost of @RepGosar: The Left & DC establishment are melting down over @POTUS selection of Bill Pulte. Here's a reminder: @POTUS was elected to lead the Executive Branch & has ever...

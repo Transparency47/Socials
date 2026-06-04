@@ -1,0 +1,37 @@
+# X / PressSec / 2026-04-29
+
+- Posts: 11
+
+- [22:02 UTC - Repost of @PeteHegseth: https://t.co/Ulrv4VZi8S](2049610398383399106/)
+  - Source: https://x.com/PressSec/status/2049610398383399106
+  - Repost of @PeteHegseth: https://t.co/Ulrv4VZi8S
+- [21:08 UTC - Repost of @RapidResponse47: .@POTUS just hosted the Artemis II crew in the Oval Office — a...](2049596782254903421/)
+  - Source: https://x.com/PressSec/status/2049596782254903421
+  - Repost of @RapidResponse47: .@POTUS just hosted the Artemis II crew in the Oval Office — and not a single "reporter" in the room bothered to ask about them or their remarkable jour...
+- [21:07 UTC - Repost of @KristinFisher: 13 questions in 20 minutes and not a single one about Artemis II...](2049596549424963625/)
+  - Source: https://x.com/PressSec/status/2049596549424963625
+  - Repost of @KristinFisher: 13 questions in 20 minutes and not a single one about Artemis II… at an event honoring the Artemis II astronauts. Speaking as a former White House Corresp...
+- [20:43 UTC - Repost of @RapidResponse47: .@VP: "Political violence right now is coming not exclusively,...](2049590294471958594/)
+  - Source: https://x.com/PressSec/status/2049590294471958594
+  - Repost of @RapidResponse47: .@VP: "Political violence right now is coming not exclusively, but largely from one side of the aisle... If you're part of the left wing in this country...
+- [20:42 UTC - Repost of @WhiteHouse: AMERICAN HEROES! 🇺🇸🚀 President Trump welcomes the incredible Artemi...](2049590110006514031/)
+  - Source: https://x.com/PressSec/status/2049590110006514031
+  - Repost of @WhiteHouse: AMERICAN HEROES! 🇺🇸🚀 President Trump welcomes the incredible Artemis II astronauts to the Oval Office after their historic trip around the Moon, an epic mome...
+- [20:42 UTC - Repost of @PatAdams96: Watch Thomas Gorman call out the open border and sanctuary policies...](2049590052108312829/)
+  - Source: https://x.com/PressSec/status/2049590052108312829
+  - Repost of @PatAdams96: Watch Thomas Gorman call out the open border and sanctuary policies that got his beloved daughter Sheridan killed by an illegal alien: “This is not about pol...
+- [19:09 UTC - Repost of @RapidResponse47: .@POTUS welcomes the astronauts of Artemis II to the Oval Offi...](2049566833477398833/)
+  - Source: https://x.com/PressSec/status/2049566833477398833
+  - Repost of @RapidResponse47: .@POTUS welcomes the astronauts of Artemis II to the Oval Office: "We have some people that have captivated the attention of the whole world... it takes...
+- [18:07 UTC - Repost of @WhiteHouse: Timeless. https://t.co/TFPJAdH8gf](2049551212278644745/)
+  - Source: https://x.com/PressSec/status/2049551212278644745
+  - Repost of @WhiteHouse: Timeless. https://t.co/TFPJAdH8gf
+- [15:28 UTC - Repost of @KushDesai47: America has a shortage of over 10 million homes because of almost ...](2049511218327539928/)
+  - Source: https://x.com/PressSec/status/2049511218327539928
+  - Repost of @KushDesai47: America has a shortage of over 10 million homes because of almost two decades of under-construction. President Trump wants America to build again -- and the...
+- [13:52 UTC - Repost of @LizHuston33: President Trump‘s Working Families Tax Cuts put more money in the ...](2049487034100646157/)
+  - Source: https://x.com/PressSec/status/2049487034100646157
+  - Repost of @LizHuston33: President Trump‘s Working Families Tax Cuts put more money in the pockets of hardworking Americans. Every single Democrat in Congress voted against this com...
+- [13:44 UTC - Repost of @RapidResponse47: US Housing Starts Surge to Highest Level Since December 2024 h...](2049485038836662689/)
+  - Source: https://x.com/PressSec/status/2049485038836662689
+  - Repost of @RapidResponse47: US Housing Starts Surge to Highest Level Since December 2024 https://t.co/60fp2UsCB7

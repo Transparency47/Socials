@@ -1,0 +1,73 @@
+# X / RapidResponse47 / 2026-06-03
+
+- Posts: 23
+
+- [23:47 UTC - Repost of @RepStutzman: Bill Pulte is a smart person and a fantastic businessman. I apprec...](2062320267720904828/)
+  - Source: https://x.com/RapidResponse47/status/2062320267720904828
+  - Repost of @RepStutzman: Bill Pulte is a smart person and a fantastic businessman. I appreciate President Trump’s confidence in naming him intel chief! https://t.co/VJptf1PBeW
+- [23:47 UTC - Repost of @Lancegooden: If Democrats, RINOs, and the deep state are all vehemently against...](2062320227812093974/)
+  - Source: https://x.com/RapidResponse47/status/2062320227812093974
+  - Repost of @Lancegooden: If Democrats, RINOs, and the deep state are all vehemently against @pulte as Director of National Intelligence, he is the right man for the job. https://t.c...
+- [23:46 UTC - Repost of @SenatorBanks: While Democrats play politics with our national security, @pulte ...](2062320170165571743/)
+  - Source: https://x.com/RapidResponse47/status/2062320170165571743
+  - Repost of @SenatorBanks: While Democrats play politics with our national security, @pulte will put the American people first. He is a friend, ally, and patriot who will fight to dr...
+- [23:44 UTC - New Analysis: The Working Families Tax Cuts Delivers the Largest Share of Tax Relief to Am...](2062319590311711050/)
+  - Source: https://x.com/RapidResponse47/status/2062319590311711050
+  - New Analysis: The Working Families Tax Cuts Delivers the Largest Share of Tax Relief to American Families and Workers https://t.co/MB4QkcVh8P
+- [20:54 UTC - Repost of @repdarrellissa: Congratulations to @pulte on his appointment by @realDonaldTrum...](2062276813691252755/)
+  - Source: https://x.com/RapidResponse47/status/2062276813691252755
+  - Repost of @repdarrellissa: Congratulations to @pulte on his appointment by @realDonaldTrump as the new Acting Director of National Intelligence. Bill has successfully managed some...
+- [20:54 UTC - Repost of @RepTenney: Congratulations to @pulte on his appointment as Acting Director of N...](2062276779981574195/)
+  - Source: https://x.com/RapidResponse47/status/2062276779981574195
+  - Repost of @RepTenney: Congratulations to @pulte on his appointment as Acting Director of National Intelligence. Director Pulte has managed some of the most sensitive issues in our...
+- [20:54 UTC - Repost of @RepSmucker: Congratulations to @pulte on your appointment as Acting Director of...](2062276722054115831/)
+  - Source: https://x.com/RapidResponse47/status/2062276722054115831
+  - Repost of @RepSmucker: Congratulations to @pulte on your appointment as Acting Director of National Intelligence! Grateful for your service as you take on this key role helping Pre...
+- [20:50 UTC - Repost of @DepDNILukas: Congratulations to Director Pulte! Looking forward to welcoming hi...](2062275693371662731/)
+  - Source: https://x.com/RapidResponse47/status/2062275693371662731
+  - Repost of @DepDNILukas: Congratulations to Director Pulte! Looking forward to welcoming him at ODNI and working together on the President's mission of transparency, truth, and keep...
+- [20:39 UTC - Repost of @DHSgov: WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by ...](2062273024271712475/)
+  - Source: https://x.com/RapidResponse47/status/2062273024271712475
+  - Repost of @DHSgov: WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by Massachusetts sanctuary politicians after hospitalizing a State Trooper. Lucas Gustavo Dib...
+- [20:21 UTC - .@POTUS absolutely bodies Fake News @kaitlancollins: "I see her standing there with hatred...](2062268462999720152/)
+  - Source: https://x.com/RapidResponse47/status/2062268462999720152
+  - .@POTUS absolutely bodies Fake News @kaitlancollins: "I see her standing there with hatred in her eyes." https://t.co/rwR6sGWN1Z
+- [20:19 UTC - .@POTUS signs an Executive Order on reforming federal workforce accountability: "What this...](2062267864518713695/)
+  - Source: https://x.com/RapidResponse47/status/2062267864518713695
+  - .@POTUS signs an Executive Order on reforming federal workforce accountability: "What this does is basically treats those employees like private sector workers. They can be hired o...
+- [20:14 UTC - .@POTUS signs an Executive Order on strengthening customs enforcement by using new technol...](2062266800100844029/)
+  - Source: https://x.com/RapidResponse47/status/2062266800100844029
+  - .@POTUS signs an Executive Order on strengthening customs enforcement by using new technologies to ensure that contraband and illegal goods aren't being smuggled into the U.S., and...
+- [20:09 UTC - .@RealPNavarro: "What we’re going to do here, the E.O. you're going to sign, that’s about ...](2062265523874746497/)
+  - Source: https://x.com/RapidResponse47/status/2062265523874746497
+  - .@RealPNavarro: "What we’re going to do here, the E.O. you're going to sign, that’s about a 20-30 billion dollar a year E.O. you’re going to get because we are going to crack down....
+- [20:07 UTC - .@CBPCommissioner Rodney Scott explains @POTUS' new customs Executive Order: "It's America...](2062265040640627131/)
+  - Source: https://x.com/RapidResponse47/status/2062265040640627131
+  - .@CBPCommissioner Rodney Scott explains @POTUS' new customs Executive Order: "It's America First in the trade environment. Like we've been doing on the border... this is literally...
+- [19:49 UTC - https://t.co/1j6ouzkOEd](2062260296698208491/)
+  - Source: https://x.com/RapidResponse47/status/2062260296698208491
+  - https://t.co/1j6ouzkOEd
+- [19:24 UTC - https://t.co/nFW2jpp63e](2062254034849874348/)
+  - Source: https://x.com/RapidResponse47/status/2062254034849874348
+  - https://t.co/nFW2jpp63e
+- [19:20 UTC - Repost of @DrOzCMS: 160 MORE prescriptions added MILLIONS of dollars saved And MILLIONS of...](2062253148647886950/)
+  - Source: https://x.com/RapidResponse47/status/2062253148647886950
+  - Repost of @DrOzCMS: 160 MORE prescriptions added MILLIONS of dollars saved And MILLIONS of Americans empowered Only at https://t.co/XYW10M4Ib4 https://t.co/bzrykf9gm2
+- [19:13 UTC - https://t.co/1nqAyndV8x](2062251353410293925/)
+  - Source: https://x.com/RapidResponse47/status/2062251353410293925
+  - https://t.co/1nqAyndV8x
+- [19:10 UTC - ICE takes into custody a drunk-driving Brazilian who crashed while traveling the wrong way...](2062250634443665655/)
+  - Source: https://x.com/RapidResponse47/status/2062250634443665655
+  - ICE takes into custody a drunk-driving Brazilian who crashed while traveling the wrong way down US 1 in Massachusetts. Countless Americans have been killed in situations like this....
+- [19:03 UTC - https://t.co/zqVqDNiG4v](2062248811813044667/)
+  - Source: https://x.com/RapidResponse47/status/2062248811813044667
+  - https://t.co/zqVqDNiG4v
+- [18:24 UTC - Repost of @AnnaKelly47: Suggesting that Iran can more capably produce a nuclear weapon wit...](2062239105249857979/)
+  - Source: https://x.com/RapidResponse47/status/2062239105249857979
+  - Repost of @AnnaKelly47: Suggesting that Iran can more capably produce a nuclear weapon with no functioning nuclear enrichment facilities or military defenses is an indescribably st...
+- [17:41 UTC - Repost of @DAGToddBlanche: Today, Jamshid Ghomi, a dual U.S.-Iranian citizen who lives in ...](2062228308100591919/)
+  - Source: https://x.com/RapidResponse47/status/2062228308100591919
+  - Repost of @DAGToddBlanche: Today, Jamshid Ghomi, a dual U.S.-Iranian citizen who lives in a $35 million mansion in Orange County, California, was arrested on a federal criminal com...
+- [16:23 UTC - Repost of @Interior: ✅ 22 fountains restored ✅ Graffiti removed ✅ Historic statues cleaned...](2062208510759174646/)
+  - Source: https://x.com/RapidResponse47/status/2062208510759174646
+  - Repost of @Interior: ✅ 22 fountains restored ✅ Graffiti removed ✅ Historic statues cleaned Thanks to @POTUS, we are making our Nation’s Capital safe, beautiful, and worthy of the g...

@@ -1,0 +1,64 @@
+# X / VP / 2026-05-28
+
+- Posts: 20
+
+- [19:07 UTC - Repost of @JDVance: Today’s warfighters have a great moral responsibility in navigating a ...](2060075453851775326/)
+  - Source: https://x.com/VP/status/2060075453851775326
+  - Repost of @JDVance: Today’s warfighters have a great moral responsibility in navigating a battlefield that’s new to us all: a battlefield with AI. We must not outsource matters of...
+- [18:48 UTC - Vice President Vance praises US Air Force Academy graduates: "Airmen and guardians are ser...](2060070822882996652/)
+  - Source: https://x.com/VP/status/2060070822882996652
+  - Vice President Vance praises US Air Force Academy graduates: "Airmen and guardians are serving their nation overseas right now...time after time, they've made us proud. They've acc...
+- [18:47 UTC - Repost of @WhiteHouse: AMERICA’S NEXT GENERATION OF WARRIORS. 🇺🇸🔥 U.S. AIR FORCE ACADEMY C...](2060070572369858884/)
+  - Source: https://x.com/VP/status/2060070572369858884
+  - Repost of @WhiteHouse: AMERICA’S NEXT GENERATION OF WARRIORS. 🇺🇸🔥 U.S. AIR FORCE ACADEMY CLASS OF 2026 https://t.co/HaGq4U7zH3
+- [18:11 UTC - Repost of @VPPressSec: Congratulations to the @AF_Academy class of 2026! 🇺🇸🇺🇸🇺🇸 https://t....](2060061379822800920/)
+  - Source: https://x.com/VP/status/2060061379822800920
+  - Repost of @VPPressSec: Congratulations to the @AF_Academy class of 2026! 🇺🇸🇺🇸🇺🇸 https://t.co/NxUvQAhT4c
+- [16:58 UTC - Repost of @WHOMB: Rooting out waste, fraud, and abuse. If you receive a federal grant, you...](2060043160525439265/)
+  - Source: https://x.com/VP/status/2060043160525439265
+  - Repost of @WHOMB: Rooting out waste, fraud, and abuse. If you receive a federal grant, you need to deliver for the American people - or you’ll be cut off. Under President Trump and...
+- [16:58 UTC - Repost of @WHFraudTF: Your hard-earned tax dollars should never go to fraudsters. Federal ...](2060043133111386136/)
+  - Source: https://x.com/VP/status/2060043133111386136
+  - Repost of @WHFraudTF: Your hard-earned tax dollars should never go to fraudsters. Federal grant recipients must deliver for the American people or be CUT OFF. 🇺🇸
+- [16:30 UTC - Repost of @RapidResponse47: C1C Kobe Achu, C1C Parker Fitzgerald, C1C Robert Miller, and C...](2060036118398079201/)
+  - Source: https://x.com/VP/status/2060036118398079201
+  - Repost of @RapidResponse47: C1C Kobe Achu, C1C Parker Fitzgerald, C1C Robert Miller, and C1C John Costello present @VP with the @af_academy 2026 Class Gifts https://t.co/HGipZyIvBO
+- [16:24 UTC - Repost of @RapidResponse47: .@VP to the @af_academy Class of 2026: "Airmen and Guardians a...](2060034499451269382/)
+  - Source: https://x.com/VP/status/2060034499451269382
+  - Repost of @RapidResponse47: .@VP to the @af_academy Class of 2026: "Airmen and Guardians are serving their nation overseas right now. Across Operation Epic Fury, Absolute Resolve,...
+- [16:24 UTC - Repost of @RapidResponse47: .@VP delivers an important message to the @af_academy Class of...](2060034416957599919/)
+  - Source: https://x.com/VP/status/2060034416957599919
+  - Repost of @RapidResponse47: .@VP delivers an important message to the @af_academy Class of 2026 as Artificial Intelligence transforms the battlefield: "If the warfare of the future...
+- [16:19 UTC - Repost of @RapidResponse47: .@VP tells @af_academy graduates about the remarkable rescue m...](2060033341319958576/)
+  - Source: https://x.com/VP/status/2060033341319958576
+  - Repost of @RapidResponse47: .@VP tells @af_academy graduates about the remarkable rescue mission of the downed Airmen during Operation Epic Fury: "Your future force went in there a...
+- [16:11 UTC - Repost of @RapidResponse47: .@VP to the @af_academy's graduating class: "Something serious...](2060031193525953017/)
+  - Source: https://x.com/VP/status/2060031193525953017
+  - Repost of @RapidResponse47: .@VP to the @af_academy's graduating class: "Something serious and profound happened on this campus over the last four years. Over that time, this insti...
+- [16:04 UTC - Repost of @RapidResponse47: .@VP at the @af_academy: "Most of all, I want to thank the fam...](2060029501958967683/)
+  - Source: https://x.com/VP/status/2060029501958967683
+  - Repost of @RapidResponse47: .@VP at the @af_academy: "Most of all, I want to thank the families who are with us this morning. The young men and women we honor today deserve a treme...
+- [16:04 UTC - Repost of @RapidResponse47: .@VP to the @af_academy Class of 2026: "So impressed am I with...](2060029448699732125/)
+  - Source: https://x.com/VP/status/2060029448699732125
+  - Repost of @RapidResponse47: .@VP to the @af_academy Class of 2026: "So impressed am I with this group and the service that you lead that I am hiring a member of this very class for...
+- [15:57 UTC - Repost of @RapidResponse47: .@VP at the @af_academy commencement in Colorado Springs: "Tod...](2060027571438309440/)
+  - Source: https://x.com/VP/status/2060027571438309440
+  - Repost of @RapidResponse47: .@VP at the @af_academy commencement in Colorado Springs: "Today, we celebrate not just you, not just the completed journey, but importantly... Today, y...
+- [15:25 UTC - Repost of @WhiteHouse: @SecretaryBurgum @POTUS All we needed was a new president! 🫡](2060019564511920521/)
+  - Source: https://x.com/VP/status/2060019564511920521
+  - Repost of @WhiteHouse: @SecretaryBurgum @POTUS All we needed was a new president! 🫡
+- [15:24 UTC - Repost of @DeptofWar: LIVE: @VP delivers the commencement address to the 2026 graduating c...](2060019391547240590/)
+  - Source: https://x.com/VP/status/2060019391547240590
+  - Repost of @DeptofWar: LIVE: @VP delivers the commencement address to the 2026 graduating class of the @af_academy in Colorado Springs, Colo. https://t.co/LNnw7UpNTW
+- [15:24 UTC - Repost of @RapidResponse47: .@VP is introduced at the @af_academy, where he will soon deli...](2060019268658266149/)
+  - Source: https://x.com/VP/status/2060019268658266149
+  - Repost of @RapidResponse47: .@VP is introduced at the @af_academy, where he will soon deliver the commencement address to the class of 2026. 🇺🇸 https://t.co/UJmXFcZASa
+- [15:23 UTC - Repost of @DOJFraudDiv: The Fraud Division encourages ALL Americans to report fraud. These...](2060019238677397852/)
+  - Source: https://x.com/VP/status/2060019238677397852
+  - Repost of @DOJFraudDiv: The Fraud Division encourages ALL Americans to report fraud. These tips will turbocharge our efforts to bring justice to fraudsters across the country. http...
+- [15:00 UTC - Vice President JD Vance Delivers a Commencement Address to the United States Air Force Aca...](2060013372054077548/)
+  - Source: https://x.com/VP/status/2060013372054077548
+  - Vice President JD Vance Delivers a Commencement Address to the United States Air Force Academy https://t.co/zMXPzhjeHb
+- [14:37 UTC - Repost of @WHFraudTF: "Everyone should care about actually protecting the programs that on...](2060007458320368008/)
+  - Source: https://x.com/VP/status/2060007458320368008
+  - Repost of @WHFraudTF: "Everyone should care about actually protecting the programs that only work and are properly funded if the money supporting them isn't being stolen by fraudst...

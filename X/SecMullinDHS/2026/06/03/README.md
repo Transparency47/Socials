@@ -1,0 +1,40 @@
+# X / SecMullinDHS / 2026-06-03
+
+- Posts: 12
+
+- [19:04 UTC - I’m thankful that the victims and their families finally get the justice they deserve. Tre...](2062249148502638731/)
+  - Source: https://x.com/SecMullinDHS/status/2062249148502638731
+  - I’m thankful that the victims and their families finally get the justice they deserve. Tren de Aragua is one of the most vicious gangs on planet earth. They rape, maim, and murder...
+- [17:09 UTC - Repost of @DHSgov: “I have ZERO tolerance. If you verbally assault our officers, you go af...](2062220185059135564/)
+  - Source: https://x.com/SecMullinDHS/status/2062220185059135564
+  - Repost of @DHSgov: “I have ZERO tolerance. If you verbally assault our officers, you go after our vehicles…we will find you, we will arrest you.” @SecMullinDHS https://t.co/Anr1HVK...
+- [16:45 UTC - Repost of @DHSgov: 7 out of the top 10 safest cities in the country cooperate with @ICEgov...](2062214027082608713/)
+  - Source: https://x.com/SecMullinDHS/status/2062214027082608713
+  - Repost of @DHSgov: 7 out of the top 10 safest cities in the country cooperate with @ICEgov. Sanctuary politicians need to stop choosing to release criminals from their jails. We ne...
+- [16:25 UTC - Repost of @DHSgov: “We’ve seen drug seizures go up and the availability of drugs in our ci...](2062209135505027295/)
+  - Source: https://x.com/SecMullinDHS/status/2062209135505027295
+  - Repost of @DHSgov: “We’ve seen drug seizures go up and the availability of drugs in our cities go down…that’s because of President Trump’s leadership and the war that we have waged...
+- [16:24 UTC - Repost of @DHSgov: “Every death that comes from illegal drugs coming into the country or f...](2062208855795179715/)
+  - Source: https://x.com/SecMullinDHS/status/2062208855795179715
+  - Repost of @DHSgov: “Every death that comes from illegal drugs coming into the country or from someone that entered this country illegally is one too many. It should never happen.”...
+- [16:04 UTC - Repost of @DHSgov: .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delan...](2062203661468528720/)
+  - Source: https://x.com/SecMullinDHS/status/2062203661468528720
+  - Repost of @DHSgov: .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delaney Hall with the HORRIFIC conditions at New Jersey State prisons ⬇️ https://t.co/coIWIqLQG...
+- [15:09 UTC - Repost of @DHSgov: .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of ...](2062189877538554054/)
+  - Source: https://x.com/SecMullinDHS/status/2062189877538554054
+  - Repost of @DHSgov: .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of the most vulnerable victims of the Biden Administration’s border crisis — unaccompanied ch...
+- [15:01 UTC - Repost of @FoxNews: WATCH LIVE: DHS Secretary Mullin testifies before the House Homeland S...](2062187909306892658/)
+  - Source: https://x.com/SecMullinDHS/status/2062187909306892658
+  - Repost of @FoxNews: WATCH LIVE: DHS Secretary Mullin testifies before the House Homeland Security Committee https://t.co/K9hrPfLUXN
+- [14:58 UTC - Repost of @DHSgov: The reckless Democrat shutdown of DHS put us behind in our FIFA prepara...](2062187053157065181/)
+  - Source: https://x.com/SecMullinDHS/status/2062187053157065181
+  - Repost of @DHSgov: The reckless Democrat shutdown of DHS put us behind in our FIFA preparation efforts. Under @SecMullinDHS, we’re working every single day with our state and local...
+- [14:56 UTC - Repost of @DHSgov: “ICE every day is taking the worst of the worst off the streets, taking...](2062186689624207429/)
+  - Source: https://x.com/SecMullinDHS/status/2062186689624207429
+  - Repost of @DHSgov: “ICE every day is taking the worst of the worst off the streets, taking those who entered this country illegally off the streets, which is exactly what they were...
+- [14:45 UTC - Repost of @RapidResponse47: .@SecMullinDHS slams Democrats on Capitol Hill: "What's 'reckl...](2062183984809791717/)
+  - Source: https://x.com/SecMullinDHS/status/2062183984809791717
+  - Repost of @RapidResponse47: .@SecMullinDHS slams Democrats on Capitol Hill: "What's 'reckless' is shutting down CBP and ICE... you're talking about President Trump's ill behavior t...
+- [14:36 UTC - Repost of @DHSgov: “We don’t pick and choose which law we decide to enforce — we enforce t...](2062181735735902413/)
+  - Source: https://x.com/SecMullinDHS/status/2062181735735902413
+  - Repost of @DHSgov: “We don’t pick and choose which law we decide to enforce — we enforce the law.” @SecMullinDHS https://t.co/NP0pOKbrin

@@ -1,0 +1,52 @@
+# X / PressSec / 2026-04-30
+
+- Posts: 16
+
+- [18:06 UTC - 😊](2049913354412556304/)
+  - Source: https://x.com/PressSec/status/2049913354412556304
+  - 😊
+- [16:25 UTC - Repost of @RapidResponse47: https://t.co/xpDNCN0uTk](2049887780956667925/)
+  - Source: https://x.com/PressSec/status/2049887780956667925
+  - Repost of @RapidResponse47: https://t.co/xpDNCN0uTk
+- [14:34 UTC - Repost of @MaryMargOlohan: The Biden DOJ requested an average sentence of 26.8 months for ...](2049859974356963713/)
+  - Source: https://x.com/PressSec/status/2049859974356963713
+  - Repost of @MaryMargOlohan: The Biden DOJ requested an average sentence of 26.8 months for pro-life defendants. That compares to the average sentence of 12.3 months Biden DOJ reques...
+- [14:27 UTC - Repost of @TaylorRogers47: This is all thanks to President Trump’s bold leadership! 🇺🇸🤝🇻🇪](2049858276322369707/)
+  - Source: https://x.com/PressSec/status/2049858276322369707
+  - Repost of @TaylorRogers47: This is all thanks to President Trump’s bold leadership! 🇺🇸🤝🇻🇪
+- [14:15 UTC - Repost of @RapidResponse47: https://t.co/g4elVvxLad](2049855226883060108/)
+  - Source: https://x.com/PressSec/status/2049855226883060108
+  - Repost of @RapidResponse47: https://t.co/g4elVvxLad
+- [14:15 UTC - Repost of @RapidResponse47: 📍Miami International Airport: "That's something you haven’t se...](2049855189373395065/)
+  - Source: https://x.com/PressSec/status/2049855189373395065
+  - Repost of @RapidResponse47: 📍Miami International Airport: "That's something you haven’t seen up on the board for the past 7 years—Caracas, Venezuela." A symbol of "how much has cha...
+- [14:15 UTC - Repost of @TaylorRogers47: 🚨 White House officials leading new delegation to Venezuela for...](2049855164526346600/)
+  - Source: https://x.com/PressSec/status/2049855164526346600
+  - Repost of @TaylorRogers47: 🚨 White House officials leading new delegation to Venezuela for energy, mining agreements https://t.co/kMmFwRJBWf
+- [14:13 UTC - Repost of @RapidResponse47: https://t.co/gFxjefWWRP](2049854711755325941/)
+  - Source: https://x.com/PressSec/status/2049854711755325941
+  - Repost of @RapidResponse47: https://t.co/gFxjefWWRP
+- [14:13 UTC - Repost of @RapidResponse47: https://t.co/GP7Aeprcpr](2049854705526857760/)
+  - Source: https://x.com/PressSec/status/2049854705526857760
+  - Repost of @RapidResponse47: https://t.co/GP7Aeprcpr
+- [14:09 UTC - Vance Blasts Walz Taking Credit For Busting Scammers After Turning Blind Eye For Years htt...](2049853758616580286/)
+  - Source: https://x.com/PressSec/status/2049853758616580286
+  - Vance Blasts Walz Taking Credit For Busting Scammers After Turning Blind Eye For Years https://t.co/MdEn9JTtb8
+- [13:20 UTC - Repost of @RapidResponse47: .@KushDesai47: "Yesterday, we saw new orders of core capital g...](2049841336698708359/)
+  - Source: https://x.com/PressSec/status/2049841336698708359
+  - Repost of @RapidResponse47: .@KushDesai47: "Yesterday, we saw new orders of core capital goods — which are the industrial machinery, the things you need to make manufacturing facil...
+- [13:18 UTC - 🚨HAPPENING TODAY AT THE WHITE HOUSE: President Trump to sign order expanding workers’ acce...](2049840732534362366/)
+  - Source: https://x.com/PressSec/status/2049840732534362366
+  - 🚨HAPPENING TODAY AT THE WHITE HOUSE: President Trump to sign order expanding workers’ access to retirement plans https://t.co/R7noQCJwnP
+- [13:14 UTC - Coast Guard operating in "crisis" as Democrats' DHS shutdown halts pay in May, cuts power,...](2049839893086368086/)
+  - Source: https://x.com/PressSec/status/2049839893086368086
+  - Coast Guard operating in "crisis" as Democrats' DHS shutdown halts pay in May, cuts power, strains missions overseas https://t.co/ohDCvpF9LN
+- [13:11 UTC - US GDP Rose 2% in Early 2026 in Sign of Economy’s Resilience https://t.co/ENQG6cwMoE](2049839007190720992/)
+  - Source: https://x.com/PressSec/status/2049839007190720992
+  - US GDP Rose 2% in Early 2026 in Sign of Economy’s Resilience https://t.co/ENQG6cwMoE
+- [13:11 UTC - Repost of @KushDesai47: The American economy grew by a solid 2% annualized rate in Q1 2026...](2049838993567596966/)
+  - Source: https://x.com/PressSec/status/2049838993567596966
+  - Repost of @KushDesai47: The American economy grew by a solid 2% annualized rate in Q1 2026, driven by an astonishing surge in business investment. This is in line with new orders o...
+- [13:10 UTC - Biden admin ‘zealously’ probed ‘traditional’ Christians — even keeping tabs on priests: DO...](2049838728642716070/)
+  - Source: https://x.com/PressSec/status/2049838728642716070
+  - Biden admin ‘zealously’ probed ‘traditional’ Christians — even keeping tabs on priests: DOJ report https://t.co/5xIi0RN0nn

@@ -1,0 +1,46 @@
+# X / SecMullinDHS / 2026-06-01
+
+- Posts: 14
+
+- [23:26 UTC - Today we honored three @ICEgov heroes who rushed into action to save illegal aliens’ lives...](2061590283360321873/)
+  - Source: https://x.com/SecMullinDHS/status/2061590283360321873
+  - Today we honored three @ICEgov heroes who rushed into action to save illegal aliens’ lives amid sniper shots at the Dallas ICE facility on September 24, 2025. By risking their live...
+- [22:16 UTC - Repost of @DHSgov: “We lock down this stadium 10 days before the first game — meaning that...](2061572514967400780/)
+  - Source: https://x.com/SecMullinDHS/status/2061572514967400780
+  - Repost of @DHSgov: “We lock down this stadium 10 days before the first game — meaning that it will be a completely secure site.” @SecMullinDHS on FIFA Security preparations at AT&a...
+- [21:09 UTC - Repost of @ICEgov: Vincente Trinidad-Palillero 📍Delaney Hall Rap sheet: 👉DUI 👉Reckless dri...](2061555685343535283/)
+  - Source: https://x.com/SecMullinDHS/status/2061555685343535283
+  - Repost of @ICEgov: Vincente Trinidad-Palillero 📍Delaney Hall Rap sheet: 👉DUI 👉Reckless driving 👉Throwing objects from a motor vehicle 👉Improper loading of vehicle, allowing spill 👉...
+- [20:46 UTC - Repost of @CBPCommissioner: Today, I’m proud to announce Rosario “Pete” Vasquez as the @US...](2061549908876730758/)
+  - Source: https://x.com/SecMullinDHS/status/2061549908876730758
+  - Repost of @CBPCommissioner: Today, I’m proud to announce Rosario “Pete” Vasquez as the @USBPChief of the U.S. Border Patrol. Pete has dedicated more than 26 years to securing our N...
+- [20:33 UTC - Repost of @RepBrandonGill: ICE and Border Patrol are on the front lines: defending America...](2061546604100714954/)
+  - Source: https://x.com/SecMullinDHS/status/2061546604100714954
+  - Repost of @RepBrandonGill: ICE and Border Patrol are on the front lines: defending American sovereignty, keeping murderers and gang members off our streets, making sure America sta...
+- [20:29 UTC - Repost of @RapidResponse47: .@SecMullinDHS on Delaney Hall: "The governor wasn’t allowing ...](2061545763562258542/)
+  - Source: https://x.com/SecMullinDHS/status/2061545763562258542
+  - Repost of @RapidResponse47: .@SecMullinDHS on Delaney Hall: "The governor wasn’t allowing state police, and the mayor wasn't allowing local police to come in &amp; help with these...
+- [20:29 UTC - Repost of @DHSgov: “These rioters are organized. These rioters are sponsored by somebody. ...](2061545628476293519/)
+  - Source: https://x.com/SecMullinDHS/status/2061545628476293519
+  - Repost of @DHSgov: “These rioters are organized. These rioters are sponsored by somebody. We see Antifa flags out there. They’re not just exercising the First Amendment.” @SecMulli...
+- [20:08 UTC - Repost of @DHSgov: “ICE and Border Patrol are on the front lines of not only defending Ame...](2061540296450511318/)
+  - Source: https://x.com/SecMullinDHS/status/2061540296450511318
+  - Repost of @DHSgov: “ICE and Border Patrol are on the front lines of not only defending American sovereignty, but keeping our communities safe and ensuring that murderers and rapist...
+- [20:04 UTC - Repost of @DHSgov: “Each day, we go after the worst of the worst, and that’s what the ICE ...](2061539278383935531/)
+  - Source: https://x.com/SecMullinDHS/status/2061539278383935531
+  - Repost of @DHSgov: “Each day, we go after the worst of the worst, and that’s what the ICE agents, DHS, and our other 21 components do on a daily basis. We focus on keeping our home...
+- [19:01 UTC - This violent rioter who allegedly threatened to murder an @ICEgov law enforcement officer ...](2061523608787136864/)
+  - Source: https://x.com/SecMullinDHS/status/2061523608787136864
+  - This violent rioter who allegedly threatened to murder an @ICEgov law enforcement officer and his family is being brought to justice. Our ICE officers are facing an 8,000% increase...
+- [15:58 UTC - Repost of @WhiteHouse: Newark or anywhere in America, the message doesn’t change: @ICEgov ...](2061477381232107699/)
+  - Source: https://x.com/SecMullinDHS/status/2061477381232107699
+  - Repost of @WhiteHouse: Newark or anywhere in America, the message doesn’t change: @ICEgov operations will NOT be deterred. Riot, obstruct, or assault an officer and you will be arr...
+- [02:41 UTC - Repost of @DHSgov: If you riot, you will face the consequences. Law and order prevails.](2061276924291244274/)
+  - Source: https://x.com/SecMullinDHS/status/2061276924291244274
+  - Repost of @DHSgov: If you riot, you will face the consequences. Law and order prevails.
+- [02:19 UTC - Repost of @DHSgov: Arrests are MOUNTING.](2061271350786797636/)
+  - Source: https://x.com/SecMullinDHS/status/2061271350786797636
+  - Repost of @DHSgov: Arrests are MOUNTING.
+- [00:44 UTC - Repost of @DHSgov: Reminder: Lawlessness, rioting, and obstruction of law enforcement will...](2061247449428013450/)
+  - Source: https://x.com/SecMullinDHS/status/2061247449428013450
+  - Repost of @DHSgov: Reminder: Lawlessness, rioting, and obstruction of law enforcement will NOT be tolerated. https://t.co/DNWDERKKXD

@@ -1,0 +1,31 @@
+# X / SecMullinDHS / 2026-06-02
+
+- Posts: 9
+
+- [21:06 UTC - Repost of @DHSgov: “We’re seeing a pattern where sanctuary cities create a safe haven for ...](2061917404297335283/)
+  - Source: https://x.com/SecMullinDHS/status/2061917404297335283
+  - Repost of @DHSgov: “We’re seeing a pattern where sanctuary cities create a safe haven for the worst of the worst to stay…just cooperate with us. Why are we having to fight state of...
+- [20:13 UTC - Repost of @DHSgov: For years, our @USCG was neglected. Under @POTUS Trump, we’ve secured t...](2061904156135153787/)
+  - Source: https://x.com/SecMullinDHS/status/2061904156135153787
+  - Repost of @DHSgov: For years, our @USCG was neglected. Under @POTUS Trump, we’ve secured the largest ever Coast Guard investment through the One Big Beautiful Bill and recruitment...
+- [19:51 UTC - Repost of @DHSgov: On May 28, the state of New Jersey’s health inspectors went to Delaney ...](2061898558345707541/)
+  - Source: https://x.com/SecMullinDHS/status/2061898558345707541
+  - Repost of @DHSgov: On May 28, the state of New Jersey’s health inspectors went to Delaney Hall and they didn’t find one single violation. Meanwhile, the New Jersey state prison sys...
+- [19:43 UTC - Repost of @DHSgov: Our heroic @ICEgov law enforcement officers were bitten, assaulted, and...](2061896602374099432/)
+  - Source: https://x.com/SecMullinDHS/status/2061896602374099432
+  - Repost of @DHSgov: Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threats from violent rioters in New Jersey. The First Amendment protects spee...
+- [19:28 UTC - Repost of @DHSgov: Thank you, boss. - DHS https://t.co/y7b1vzlE2g](2061892827999584696/)
+  - Source: https://x.com/SecMullinDHS/status/2061892827999584696
+  - Repost of @DHSgov: Thank you, boss. - DHS https://t.co/y7b1vzlE2g
+- [19:27 UTC - Repost of @DHSgov: “When…you start referring to our agents as being dangerous, unconstitut...](2061892467834638669/)
+  - Source: https://x.com/SecMullinDHS/status/2061892467834638669
+  - Repost of @DHSgov: “When…you start referring to our agents as being dangerous, unconstitutional, and lawless — that’s why our agent death threats are up 8,000%. I know that’s not w...
+- [19:23 UTC - Repost of @DHSgov: We would love to have body cameras, all you have to do is fund us. http...](2061891379807035694/)
+  - Source: https://x.com/SecMullinDHS/status/2061891379807035694
+  - Repost of @DHSgov: We would love to have body cameras, all you have to do is fund us. https://t.co/9fFZeYCBwz
+- [19:19 UTC - Repost of @DHSgov: "We’re not picking and choosing which laws we enforce. We're simply enf...](2061890547610947621/)
+  - Source: https://x.com/SecMullinDHS/status/2061890547610947621
+  - Repost of @DHSgov: "We’re not picking and choosing which laws we enforce. We're simply enforcing the law. Period. Full stop." @SecMullinDHS WATCH IN FULL: Secretary Mullin opening...
+- [19:01 UTC - Repost of @DHSgov: “Senator Murphy, the outlandish claims you made — they’re just flat wro...](2061885934883266819/)
+  - Source: https://x.com/SecMullinDHS/status/2061885934883266819
+  - Repost of @DHSgov: “Senator Murphy, the outlandish claims you made — they’re just flat wrong. You start saying we’re breaking the laws…we’re enforcing the laws that Congress did pa...
