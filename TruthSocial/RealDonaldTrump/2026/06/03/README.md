@@ -1,7 +1,43 @@
 # TruthSocial / RealDonaldTrump / 2026-06-03
 
-- Posts: 16
+- Posts: 28
 
+- [19:34 UTC - I’ll be going to the G7, in France, immediately following what will be one of the Most Ent...](116687849946543138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687849946543138
+  - I’ll be going to the G7, in France, immediately following what will be one of the Most Entertaining Nights in American History, the UFC World Championship Fights on the South Lawn...
+- [19:22 UTC - Has anyone ever seen a Happy Communist? President DJT](116687801575068178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687801575068178
+  - Has anyone ever seen a Happy Communist? President DJT
+- [19:21 UTC - Communists always do well with the Voters or, as they would say, THE PEOPLE, in the Early ...](116687799508711738/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687799508711738
+  - Communists always do well with the Voters or, as they would say, THE PEOPLE, in the Early Years! But, in the end, the Country, State, or City, GOES TO HELL! Great Violence proceeds...
+- [19:15 UTC - Congratulations to Steve Hilton on coming in first, last night, in the California Vote for...](116687773527346204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687773527346204
+  - Congratulations to Steve Hilton on coming in first, last night, in the California Vote for Governor. If Californians are smart, which I know they are, they will put Steve into the...
+- [19:12 UTC - Excitingly, the final coat of protection will be completed on the Reflecting Pool that sit...](116687762927075610/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687762927075610
+  - Excitingly, the final coat of protection will be completed on the Reflecting Pool that sits between The Washington Monument and The Lincoln Memorial, at 4 P.M., today. The water wi...
+- [19:02 UTC - Vice President JD Vance and Republicans are doing a great job hunting down Fraud in the va...](116687722751127095/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116687722751127095
+  - Vice President JD Vance and Republicans are doing a great job hunting down Fraud in the various States. Billions of Dollars is being found, and we’ve just started! If we found it a...
+- [03:44 UTC - Truth Social post 116684114421950130](116684114421950130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116684114421950130
+  - _No text content captured._
+- [03:44 UTC - Truth Social post 116684113664648014](116684113664648014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116684113664648014
+  - _No text content captured._
+- [03:44 UTC - Truth Social post 116684113072949120](116684113072949120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116684113072949120
+  - _No text content captured._
+- [03:06 UTC - Truth Social post 116683962256170060](116683962256170060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683962256170060
+  - _No text content captured._
+- [02:54 UTC - EPA boss made criminal referrals alleging Democrats ‘self-dealing’ in lucrative green ener...](116683918342984217/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683918342984217
+  - EPA boss made criminal referrals alleging Democrats ‘self-dealing’ in lucrative green energy grants: [https:// justthenews.com/accountability /waste-fraud-and-abuse/epa-boss-made-c...
+- [02:54 UTC - Supreme Court clears Alabama to use GOP-friendly congressional map this fall: [https:// ju...](116683914784085683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116683914784085683
+  - Supreme Court clears Alabama to use GOP-friendly congressional map this fall: [https:// justthenews.com/politics-polic y/elections/supreme-court-clears-alabama-use-gop-friendly-con...
 - [02:44 UTC - Truth Social post 116683877370609119](116683877370609119/)
   - Source: https://truthsocial.com/@realDonaldTrump/116683877370609119
   - _No text content captured._

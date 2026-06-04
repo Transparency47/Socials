@@ -1,6 +1,675 @@
 {
-  "generatedAt": "2026-06-03T04:16:51.687025+00:00",
+  "generatedAt": "2026-06-04T14:38:58.892310+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-04",
+      "id": "socials:1fa4cf63b95802f3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:38:19.988149+00:00",
+        "datePublished": "2026-06-04T13:59:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647539354314804510.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647539354314804510.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647539354314804510",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647539354314804510.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647539354314804510.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647539354314804510.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647539354314804510"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/04/7647539354314804510/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/04/7647539354314804510/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647539354314804510",
+      "summary": "ONE MONTH UNTIL AMERICA\u2019S BIRTHDAY! Patriot summer loading\u2026 \ud83c\uddfa\ud83c\uddf8\ud83e\udd85",
+      "title": "ONE MONTH UNTIL AMERICA\u2019S BIRTHDAY! Patriot summer loading\u2026 \ud83c\uddfa\ud83c\uddf8\ud83e\udd85"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:c5eed1665d4c4a27",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.647901+00:00",
+        "datePublished": "2026-06-04T11:13:54.987000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116691542670526572"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116691542670526572/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116691542670526572/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116691542670526572",
+      "summary": "Yesterday, in a meaningless vote, the House voted, 4 bad Republicans and all of the Dumocrats, to limit my War Powers, right in the middle of my final negotiations to end the War with the Islamic Republic of Iran. Who would do such an unpatriotic thing. They know where the negoti",
+      "title": "Yesterday, in a meaningless vote, the House voted, 4 bad Republicans and all of the Dumocr..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:93d195c337e64eb0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.648311+00:00",
+        "datePublished": "2026-06-04T05:32:13.478000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116690197235856407.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/af8d63a3961ce106.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/690/197/235/856/407/original/af8d63a3961ce106.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/af8d63a3961ce106.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116690197235856407.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/af8d63a3961ce106.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116690199079354750"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116690199079354750/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116690199079354750/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116690199079354750",
+      "summary": null,
+      "title": "Truth Social post 116690199079354750"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:b7439625c5946a36",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.648626+00:00",
+        "datePublished": "2026-06-04T05:05:22.083000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116690093479247202"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116690093479247202/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116690093479247202/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116690093479247202",
+      "summary": "There\u2019s BIG cheating by the Dumocrats in California. Votes are all tied up. May not be in for weeks. Under investigation by the U.S. Attorney\u2019s Office in Los Angeles. Why the vote counting DELAY??? President DJT",
+      "title": "There\u2019s BIG cheating by the Dumocrats in California. Votes are all tied up. May not be in ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:7ca652274519ebf9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.648748+00:00",
+        "datePublished": "2026-06-04T04:48:41.942000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116690027934241490"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116690027934241490/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116690027934241490/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116690027934241490",
+      "summary": "The Dumocrats are at it again! They are trying to STEAL THE GOVERNOR OF CALIFORNIA PRIMARY, AND THE MAYOR OF LOS ANGELES, PRIMARY, AWAY FROM TWO GREAT REPUBLICAN CANDIDATES. Here we go with the very late and massive numbers of MAIL IN BALLOTS",
+      "title": "The Dumocrats are at it again! They are trying to STEAL THE GOVERNOR OF CALIFORNIA PRIMARY..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:092ba437dd69a5db",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.648851+00:00",
+        "datePublished": "2026-06-04T04:38:39.544000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116689988455457833"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116689988455457833/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116689988455457833/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116689988455457833",
+      "summary": "If you add the largest Tax and Regulation Cuts in U.S. History, $5000 to $10,000 per family, coupled with falling prices across the board from the Sleepy Joe Biden years, \u201cTRUMP\u201d & THE REPUBLICANS WIN THE AFFORDABILITY WARS by record numbers!",
+      "title": "If you add the largest Tax and Regulation Cuts in U.S. History, $5000 to $10,000 per famil..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-04",
+      "id": "socials:8c28f23cc207bc4d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:38:19.988164+00:00",
+        "datePublished": "2026-06-04T01:55:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647352962460749086.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647352962460749086.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647352962460749086",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647352962460749086.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647352962460749086.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647352962460749086.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647352962460749086"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/04/7647352962460749086/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/04/7647352962460749086/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647352962460749086",
+      "summary": "The 2026 FIFA World Cup is being played right here in America. LFG \ud83c\uddfa\ud83c\uddf8 Secretary Lutnick and FIFA President Gianni Infantino welcome fans to 78 matches across 11 U.S. host cities in 9 states.",
+      "title": "The 2026 FIFA World Cup is being played right here in America. LFG \ud83c\uddfa\ud83c\uddf8 Secretary Lutnick an..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-03",
+      "id": "socials:1cef5c1e149a2af8",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-04T14:38:40.653334+00:00",
+        "datePublished": "2026-06-03T20:41:56+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "4EUzlV7-Dew"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/03/4EUzlV7_Dew/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/03/4EUzlV7_Dew/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=4EUzlV7-Dew",
+      "summary": "- [00:02.680] We have a big day today because - [00:05.120] this is - [00:06.760] as you probably have been watching. - [00:09.200] So, from 1922 to present really never - [00:11.760] worked. It leaked and was banned - [00:14.920] and it looked terrible. Supposed to be - [00:17.1",
+      "title": "President Trump Signs Executive Orders, Jun. 3, 2026"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:d83379241f8bb69d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.648947+00:00",
+        "datePublished": "2026-06-03T19:34:48.491000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687849946543138"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687849946543138/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687849946543138/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687849946543138",
+      "summary": "I\u2019ll be going to the G7, in France, immediately following what will be one of the Most Entertaining Nights in American History, the UFC World Championship Fights on the South Lawn of the White House. Records indicate that whilst fights of a much lower level took place at the Whit",
+      "title": "I\u2019ll be going to the G7, in France, immediately following what will be one of the Most Ent..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:31d4fa24df1bc1c9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.649105+00:00",
+        "datePublished": "2026-06-03T19:22:30.396000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687801575068178"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687801575068178/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687801575068178/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687801575068178",
+      "summary": "Has anyone ever seen a Happy Communist? President DJT",
+      "title": "Has anyone ever seen a Happy Communist? President DJT"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:0f2b0e6308013177",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.649335+00:00",
+        "datePublished": "2026-06-03T19:21:58.870000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687799508711738"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687799508711738/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687799508711738/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687799508711738",
+      "summary": "Communists always do well with the Voters or, as they would say, THE PEOPLE, in the Early Years! But, in the end, the Country, State, or City, GOES TO HELL! Great Violence proceeds at levels never seen before, and the entity dissolves into Poverty, Squalor, and Crime. Remember, b",
+      "title": "Communists always do well with the Voters or, as they would say, THE PEOPLE, in the Early ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:d764dcfd1629ced1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.649544+00:00",
+        "datePublished": "2026-06-03T19:15:22.426000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687773527346204"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687773527346204/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687773527346204/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687773527346204",
+      "summary": "Congratulations to Steve Hilton on coming in first, last night, in the California Vote for Governor. If Californians are smart, which I know they are, they will put Steve into the Governor\u2019s Mansion, and watch their State get better at a rate that has probably never been seen bef",
+      "title": "Congratulations to Steve Hilton on coming in first, last night, in the California Vote for..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:366e553848668f9e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.649811+00:00",
+        "datePublished": "2026-06-03T19:12:40.677000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687762927075610"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687762927075610/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687762927075610/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687762927075610",
+      "summary": "Excitingly, the final coat of protection will be completed on the Reflecting Pool that sits between The Washington Monument and The Lincoln Memorial, at 4 P.M., today. The water will start flowing, shortly thereafter. The walking paths outside of the Pool will, likewise, be clean",
+      "title": "Excitingly, the final coat of protection will be completed on the Reflecting Pool that sit..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:9f16731c9e72ce8f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650065+00:00",
+        "datePublished": "2026-06-03T19:02:27.639000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116687722751127095"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116687722751127095/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116687722751127095/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116687722751127095",
+      "summary": "Vice President JD Vance and Republicans are doing a great job hunting down Fraud in the various States. Billions of Dollars is being found, and we\u2019ve just started! If we found it all, we would literally be able to balance the Budget, and simultaneously reduce Taxes, cutting them ",
+      "title": "Vice President JD Vance and Republicans are doing a great job hunting down Fraud in the va..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-03",
+      "id": "socials:b82d39673027114f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:38:19.988170+00:00",
+        "datePublished": "2026-06-03T18:24:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647236616490192141.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647236616490192141.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647236616490192141",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647236616490192141.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647236616490192141.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647236616490192141.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647236616490192141"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/03/7647236616490192141/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/03/7647236616490192141/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647236616490192141",
+      "summary": "Don\u2019t act like I never told you",
+      "title": "Don\u2019t act like I never told you"
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-03",
+      "id": "socials:e9a70241ad093d66",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-04T14:38:41.517877+00:00",
+        "datePublished": "2026-06-03T17:24:59+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "Z5TD0m_6aF4"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/03/Z5TD0m_6aF4/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/03/Z5TD0m_6aF4/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/shorts/Z5TD0m_6aF4",
+      "summary": "- [00:00.000] I think this will resolve itself fairly - [00:01.920] quickly. Let's put it this way. Iran has - [00:04.000] no navy. They have no air force. They - [00:06.879] have very few soldiers. They have uh no - [00:10.080] leadership. The leadership, I mean, the - [00:12.16",
+      "title": "President Trump joins Pod Force One to break down Iran negotiations, SAVE America Act and more. \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-03",
+      "id": "socials:951ead2d350fcd9a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:38:19.988174+00:00",
+        "datePublished": "2026-06-03T15:29:43+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647191614091283726.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647191614091283726.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647191614091283726",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647191614091283726.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647191614091283726.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647191614091283726.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647191614091283726"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/03/7647191614091283726/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/03/7647191614091283726/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647191614091283726",
+      "summary": "Making America SAFE Again \ud83c\uddfa\ud83c\uddf8",
+      "title": "Making America SAFE Again \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-03",
+      "id": "socials:201016f4dbbbaf47",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-04T14:38:42.372340+00:00",
+        "datePublished": "2026-06-03T15:09:08+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "e5sXaOlotEM"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/03/e5sXaOlotEM/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/03/e5sXaOlotEM/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=e5sXaOlotEM",
+      "summary": "- [00:00.160] From the very first day I took office, - [00:02.159] our administration has waged the most - [00:04.240] successful war in crime in American - [00:06.240] history. Last year, the murder rate saw - [00:08.720] the single largest decline ever - [00:10.719] recorded, f",
+      "title": "President Donald J. Trump announces the Department of Justice\u2019s Model Cities Initiative"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:7895a5ea6e817f76",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650175+00:00",
+        "datePublished": "2026-06-03T03:44:48.975000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116684114203726883.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/b995260238cc54b0.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/684/114/203/726/883/original/b995260238cc54b0.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b995260238cc54b0.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116684114203726883.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b995260238cc54b0.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116684114421950130"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116684114421950130/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116684114421950130/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116684114421950130",
+      "summary": null,
+      "title": "Truth Social post 116684114421950130"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:ceb4eff4f28358de",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650272+00:00",
+        "datePublished": "2026-06-03T03:44:37.418000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116684113453159329.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/272c9a6f016a46eb.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/684/113/453/159/329/original/272c9a6f016a46eb.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/272c9a6f016a46eb.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116684113453159329.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/272c9a6f016a46eb.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116684113664648014"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116684113664648014/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116684113664648014/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116684113664648014",
+      "summary": null,
+      "title": "Truth Social post 116684113664648014"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:978ba03336fe1e35",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650362+00:00",
+        "datePublished": "2026-06-03T03:44:28.391000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116684112841584413.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/fc233e0ae3e8bbce.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/684/112/841/584/413/original/fc233e0ae3e8bbce.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/fc233e0ae3e8bbce.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116684112841584413.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/fc233e0ae3e8bbce.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116684113072949120"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116684113072949120/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116684113072949120/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116684113072949120",
+      "summary": null,
+      "title": "Truth Social post 116684113072949120"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:70417f07d596c92a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650462+00:00",
+        "datePublished": "2026-06-03T03:06:07.138000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116683961269780295.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a3123a07ecfbba58.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/683/961/269/780/295/original/a3123a07ecfbba58.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a3123a07ecfbba58.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116683961271427635.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/97635e3fa52c92aa.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/683/961/271/427/635/original/97635e3fa52c92aa.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/97635e3fa52c92aa.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116683961269780295.jpg",
+          "media/02_image_116683961271427635.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a3123a07ecfbba58.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/97635e3fa52c92aa.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116683962256170060"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683962256170060/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683962256170060/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683962256170060",
+      "summary": null,
+      "title": "Truth Social post 116683962256170060"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:783fc100dfced2fb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650722+00:00",
+        "datePublished": "2026-06-03T02:54:57.017000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116683918342984217"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683918342984217/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683918342984217/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683918342984217",
+      "summary": "EPA boss made criminal referrals alleging Democrats \u2018self-dealing\u2019 in lucrative green energy grants: [https:// justthenews.com/accountability /waste-fraud-and-abuse/epa-boss-made-criminal-referrals-alleging-democrat-self](https://justthenews.com/accountability/waste-fraud-and-abu",
+      "title": "EPA boss made criminal referrals alleging Democrats \u2018self-dealing\u2019 in lucrative green ener..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-03",
+      "id": "socials:4eba09bf00e25d53",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:23.650936+00:00",
+        "datePublished": "2026-06-03T02:54:02.714000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116683914784085683"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/03/116683914784085683/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/03/116683914784085683/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116683914784085683",
+      "summary": "Supreme Court clears Alabama to use GOP-friendly congressional map this fall: [https:// justthenews.com/politics-polic y/elections/supreme-court-clears-alabama-use-gop-friendly-congressional-map-fall](https://justthenews.com/politics-policy/elections/supreme-court-clears-alabama-",
+      "title": "Supreme Court clears Alabama to use GOP-friendly congressional map this fall: [https:// ju..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-03",
@@ -1784,6 +2453,41 @@
       "sourceUrl": "https://x.com/DHSgov/status/2061879153645818186",
       "summary": "Repost of @HSI_HQ:",
       "title": "Repost of @HSI_HQ: ICE @HSISanDiego is a proud member of the @HSTFNCC team investigating t..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-02",
+      "id": "socials:45d4c54105bc97a9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:37:52.721754+00:00",
+        "datePublished": "2026-06-02T18:25:52+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7646865974712470815.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7646865974712470815.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7646865974712470815",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7646865974712470815.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7646865974712470815.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7646865974712470815.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7646865974712470815"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2026/06/02/7646865974712470815/README.md",
+      "path": "TikTok/RealDonaldTrump/2026/06/02/7646865974712470815/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7646865974712470815",
+      "summary": "MAYBE WE\u2019LL NEVER EVER TAKE IT DOWN",
+      "title": "MAYBE WE\u2019LL NEVER EVER TAKE IT DOWN"
     },
     {
       "category": "TruthSocial",
