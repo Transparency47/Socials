@@ -60,6 +60,9 @@ jobs:
       R2_SECRET_ACCESS_KEY: ${{ secrets.R2_SECRET_ACCESS_KEY }}
       R2_PUBLIC_BASE_URL: https://cdn.comparify.app/
       R2_KEY_PREFIX: archive
+      NORDVPN_OVPN_B64: ${{ secrets.NORDVPN_OVPN_B64 }}
+      NORDVPN_USERNAME: ${{ secrets.NORDVPN_USERNAME }}
+      NORDVPN_PASSWORD: ${{ secrets.NORDVPN_PASSWORD }}
     steps:
       - name: Check out repository
         uses: actions/checkout@v4
@@ -71,6 +74,39 @@ jobs:
 
       - name: Install dependencies
         run: python -m pip install -r Scraper/requirements.txt
+
+      - name: Connect NordVPN
+        if: env.NORDVPN_OVPN_B64 != '' && env.NORDVPN_USERNAME != '' && env.NORDVPN_PASSWORD != ''
+        shell: bash
+        run: |
+          set -euo pipefail
+          sudo apt-get update
+          sudo apt-get install -y openvpn
+
+          umask 077
+          printf '%s' "${NORDVPN_OVPN_B64}" | base64 --decode > "${RUNNER_TEMP}/nordvpn.ovpn"
+          {
+            printf '%s\n' "${NORDVPN_USERNAME}"
+            printf '%s\n' "${NORDVPN_PASSWORD}"
+          } > "${RUNNER_TEMP}/nordvpn.auth"
+
+          sudo openvpn \
+            --config "${RUNNER_TEMP}/nordvpn.ovpn" \
+            --auth-user-pass "${RUNNER_TEMP}/nordvpn.auth" \
+            --daemon \
+            --log "${RUNNER_TEMP}/nordvpn.log"
+
+          for _ in {1..30}; do
+            if ip route | grep -q 'tun0'; then
+              curl --fail --silent --show-error --max-time 10 https://api.ipify.org
+              echo
+              exit 0
+            fi
+            sleep 2
+          done
+
+          sudo cat "${RUNNER_TEMP}/nordvpn.log"
+          exit 1
 
       - name: Import social posts
         shell: bash
@@ -134,3 +170,7 @@ jobs:
           git add README.md X TruthSocial TikTok YouTube Scraper/state.json listing.json
           git commit -m "Import social posts"
           git push
+
+      - name: Disconnect NordVPN
+        if: always() && env.NORDVPN_OVPN_B64 != '' && env.NORDVPN_USERNAME != '' && env.NORDVPN_PASSWORD != ''
+        run: sudo killall openvpn || true
