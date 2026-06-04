@@ -1,7 +1,49 @@
 # TruthSocial / RealDonaldTrump / 2026-06-04
 
-- Posts: 5
+- Posts: 19
 
+- [18:17 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ...](116693209154035780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693209154035780
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZE...
+- [18:17 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look what’s happening in ...](116693209011034471/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693209011034471
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look what’s happening in California, the Dumocrats, right before our very eyes, are stealing the Vote. I hope the R...
+- [18:17 UTC - Truth Social post 116693208143805221](116693208143805221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693208143805221
+  - _No text content captured._
+- [18:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693183957822792 The fountain...](116693194082109107/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693194082109107
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693183957822792 The fountain was dedicated more than 100 years ago—in 1912–and after it stopped working in 2007, Obama...
+- [18:11 UTC - BEFORE AND AFTER!](116693183957822792/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693183957822792
+  - BEFORE AND AFTER!
+- [18:10 UTC - Our Great “Warriors” who fixed and rebuilt the Reflecting Pool! President DJT](116693181442732474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693181442732474
+  - Our Great “Warriors” who fixed and rebuilt the Reflecting Pool! President DJT
+- [18:10 UTC - Truth Social post 116693180717646723](116693180717646723/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693180717646723
+  - _No text content captured._
+- [18:10 UTC - Rounding the final turn! President DJT](116693179748077154/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693179748077154
+  - Rounding the final turn! President DJT
+- [18:03 UTC - Truth Social post 116693155155753302](116693155155753302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693155155753302
+  - _No text content captured._
+- [17:57 UTC - Truth Social post 116693130236297735](116693130236297735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693130236297735
+  - _No text content captured._
+- [17:36 UTC - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS ...](116693048289752658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693048289752658
+  - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS, DISABILITY, MIL...
+- [17:30 UTC - Look what’s happening in California, the Dumocrats, right before our very eyes, are steali...](116693025089379568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693025089379568
+  - Look what’s happening in California, the Dumocrats, right before our very eyes, are stealing the Vote. I hope the Republicans are watching so that they can finally pass THE SAVE AM...
+- [16:52 UTC - College Sports, a Great American Institution that produces our many Athletes, Leaders, and...](116692873830981873/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116692873830981873
+  - College Sports, a Great American Institution that produces our many Athletes, Leaders, and Olympic Dominance, is a total “mess,” and everyone is saying that it must be fixed. After...
+- [14:59 UTC - FoxNews should get rid of sloppy RINO Karl Rove. He’s called ME and MAGA wrong for 11 year...](116692428120649540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116692428120649540
+  - FoxNews should get rid of sloppy RINO Karl Rove. He’s called ME and MAGA wrong for 11 years now, and he still doesn’t get it, and he never will, because he suffers from a completel...
 - [11:13 UTC - Yesterday, in a meaningless vote, the House voted, 4 bad Republicans and all of the Dumocr...](116691542670526572/)
   - Source: https://truthsocial.com/@realDonaldTrump/116691542670526572
   - Yesterday, in a meaningless vote, the House voted, 4 bad Republicans and all of the Dumocrats, to limit my War Powers, right in the middle of my final negotiations to end the War w...

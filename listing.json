@@ -1,6 +1,442 @@
 {
-  "generatedAt": "2026-06-04T16:38:59.353381+00:00",
+  "generatedAt": "2026-06-04T18:52:09.368088+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:e0db138c7c1ad600",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.038627+00:00",
+        "datePublished": "2026-06-04T18:17:43.509000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116693209154035780"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693209154035780/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693209154035780/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693209154035780",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS, DISABILITY, MILITARY, OR TRAVEL!). 4. NO MEN IN WO",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:de783b9eac582d2d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.039232+00:00",
+        "datePublished": "2026-06-04T18:17:41.323000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116693209011034471"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693209011034471/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693209011034471/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693209011034471",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look what\u2019s happening in California, the Dumocrats, right before our very eyes, are stealing the Vote. I hope the Republicans are watching so that they can finally pass THE SAVE AMERICA ACT! President DONALD J. TRUM",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Look what\u2019s happening in ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:0ec73b24805602d9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.039443+00:00",
+        "datePublished": "2026-06-04T18:17:28.157000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693207813106593.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/dbc3d9de47df6e5a.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/207/813/106/593/original/dbc3d9de47df6e5a.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dbc3d9de47df6e5a.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693207813106593.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dbc3d9de47df6e5a.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693208143805221"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693208143805221/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693208143805221/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693208143805221",
+      "summary": null,
+      "title": "Truth Social post 116693208143805221"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:f674e869bcff2f24",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.039882+00:00",
+        "datePublished": "2026-06-04T18:13:53.654000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693184670529037.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/4bd4db9d9e00ccbd.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/184/670/529/037/original/4bd4db9d9e00ccbd.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4bd4db9d9e00ccbd.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116693184670362565.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a3f84d5935879297.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/184/670/362/565/original/a3f84d5935879297.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a3f84d5935879297.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693184670529037.jpg",
+          "media/02_image_116693184670362565.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4bd4db9d9e00ccbd.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a3f84d5935879297.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693194082109107"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693194082109107/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693194082109107/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693194082109107",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693183957822792 The fountain was dedicated more than 100 years ago\u2014in 1912\u2013and after it stopped working in 2007, Obama and Biden let the fountain fall further into decay, so there was significant work required to get t",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693183957822792 The fountain..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:585f1d5d2e7f784e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.040193+00:00",
+        "datePublished": "2026-06-04T18:11:19.137000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693182529455300.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/dc14f3c566d411bd.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/182/529/455/300/original/dc14f3c566d411bd.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dc14f3c566d411bd.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116693182529565835.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/5040eba5be75d693.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/182/529/565/835/original/5040eba5be75d693.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5040eba5be75d693.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693182529455300.jpg",
+          "media/02_image_116693182529565835.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/dc14f3c566d411bd.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5040eba5be75d693.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693183957822792"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693183957822792/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693183957822792/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693183957822792",
+      "summary": "BEFORE AND AFTER!",
+      "title": "BEFORE AND AFTER!"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:376f668ab912e0ef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.040430+00:00",
+        "datePublished": "2026-06-04T18:10:40.733000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693181068205318.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/0a38ddba4d72a1ab.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/181/068/205/318/original/0a38ddba4d72a1ab.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/0a38ddba4d72a1ab.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693181068205318.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/0a38ddba4d72a1ab.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693181442732474"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693181442732474/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693181442732474/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693181442732474",
+      "summary": "Our Great \u201cWarriors\u201d who fixed and rebuilt the Reflecting Pool! President DJT",
+      "title": "Our Great \u201cWarriors\u201d who fixed and rebuilt the Reflecting Pool! President DJT"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:6ea5bfbd31895890",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.040621+00:00",
+        "datePublished": "2026-06-04T18:10:29.668000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693180456078627.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/e3f7294a9eb17969.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/180/456/078/627/original/e3f7294a9eb17969.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/e3f7294a9eb17969.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693180456078627.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/e3f7294a9eb17969.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693180717646723"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693180717646723/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693180717646723/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693180717646723",
+      "summary": null,
+      "title": "Truth Social post 116693180717646723"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:19d9122a5d999b90",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.040825+00:00",
+        "datePublished": "2026-06-04T18:10:14.873000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693179427292378.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/378f880099cfc266.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/179/427/292/378/original/378f880099cfc266.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/378f880099cfc266.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693179427292378.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/378f880099cfc266.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693179748077154"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693179748077154/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693179748077154/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693179748077154",
+      "summary": "Rounding the final turn! President DJT",
+      "title": "Rounding the final turn! President DJT"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:51ffd1501ec5bc2a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.040999+00:00",
+        "datePublished": "2026-06-04T18:03:59.623000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693154833613096.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/666349b10869924c.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/154/833/613/096/original/666349b10869924c.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/666349b10869924c.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693154833613096.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/666349b10869924c.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693155155753302"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693155155753302/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693155155753302/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693155155753302",
+      "summary": null,
+      "title": "Truth Social post 116693155155753302"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:32ff0c95b5be4cf7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.041228+00:00",
+        "datePublished": "2026-06-04T17:57:39.383000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116693129994363750.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a28e758ff5933136.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/693/129/994/363/750/original/a28e758ff5933136.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a28e758ff5933136.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116693129994363750.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a28e758ff5933136.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116693130236297735"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693130236297735/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693130236297735/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693130236297735",
+      "summary": null,
+      "title": "Truth Social post 116693130236297735"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:ab5769b47db682c7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.041614+00:00",
+        "datePublished": "2026-06-04T17:36:48.947000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116693048289752658"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693048289752658/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693048289752658/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693048289752658",
+      "summary": "THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS, DISABILITY, MILITARY, OR TRAVEL!). 4. NO MEN IN WOMEN\u2019S SPORTS. 5. NO TRANSGENDER MUTILIZATION SURGERY FOR OUR CHIL",
+      "title": "THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:27751d471ff9ed91",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.041835+00:00",
+        "datePublished": "2026-06-04T17:30:54.938000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116693025089379568"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116693025089379568/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116693025089379568/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116693025089379568",
+      "summary": "Look what\u2019s happening in California, the Dumocrats, right before our very eyes, are stealing the Vote. I hope the Republicans are watching so that they can finally pass THE SAVE AMERICA ACT! President DONALD J. TRUMP",
+      "title": "Look what\u2019s happening in California, the Dumocrats, right before our very eyes, are steali..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:eccb883f415db683",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.042687+00:00",
+        "datePublished": "2026-06-04T16:52:26.919000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116692873830981873"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116692873830981873/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116692873830981873/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116692873830981873",
+      "summary": "College Sports, a Great American Institution that produces our many Athletes, Leaders, and Olympic Dominance, is a total \u201cmess,\u201d and everyone is saying that it must be fixed. After unending lawsuits and crazed rulings, there are virtually no limits anymore, and soon most Colleges",
+      "title": "College Sports, a Great American Institution that produces our many Athletes, Leaders, and..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-04",
+      "id": "socials:b8165102be6628a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T18:51:23.043087+00:00",
+        "datePublished": "2026-06-04T14:59:05.884000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116692428120649540"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/04/116692428120649540/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/04/116692428120649540/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116692428120649540",
+      "summary": "FoxNews should get rid of sloppy RINO Karl Rove. He\u2019s called ME and MAGA wrong for 11 years now, and he still doesn\u2019t get it, and he never will, because he suffers from a completely inoperable, and totally dysfunctional, case of Trump Derangement Syndrome. Put Karl Rove out to pa",
+      "title": "FoxNews should get rid of sloppy RINO Karl Rove. He\u2019s called ME and MAGA wrong for 11 year..."
+    },
     {
       "category": "X",
       "date": "2026-06-04",
