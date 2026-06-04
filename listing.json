@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-04T14:50:07.979797+00:00",
+  "generatedAt": "2026-06-04T14:50:47.376089+00:00",
   "records": [
     {
       "category": "TikTok",
@@ -478,6 +478,111 @@
       "title": "Despite state and local officials in New Jersey claiming there is a hunger strike occurrin..."
     },
     {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:46f150daa2b45c92",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.345995+00:00",
+        "datePublished": "2026-06-03T21:25:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062242706315714560.mp4",
+            "remotePath": "archive/x/icegov/neL9guij9es7nPCb.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062242706315714560/vid/avc1/1280x720/neL9guij9es7nPCb.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/neL9guij9es7nPCb.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062242706315714560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/neL9guij9es7nPCb.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062284459496395006"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062284459496395006/README.md",
+      "path": "X/ICEgov/2026/06/03/2062284459496395006/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062284459496395006",
+      "summary": "Repost of @Brooketaylortv:",
+      "title": "Repost of @Brooketaylortv: #EXCLUSIVE: After being honored by DHS Sec. Mullin for their ac..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:edd7562c5738f4ac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346121+00:00",
+        "datePublished": "2026-06-03T21:24:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062240630311694336.jpg",
+            "remotePath": "archive/x/icegov/HJ6M7VMbMAA1oj8.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ6M7VMbMAA1oj8.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HJ6M7VMbMAA1oj8.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062240630311694336.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HJ6M7VMbMAA1oj8.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062284382824534331"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062284382824534331/README.md",
+      "path": "X/ICEgov/2026/06/03/2062284382824534331/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062284382824534331",
+      "summary": "Repost of @foxnewspolitics:",
+      "title": "Repost of @foxnewspolitics: FIRST ON FOX: DHS reveals the extent in which murderers, sex c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:3a251e6572ec530d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346280+00:00",
+        "datePublished": "2026-06-03T21:21:19+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062272583878238208.mp4",
+            "remotePath": "archive/x/icegov/jxGxLSIEHZ2YvkcF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062272583878238208/vid/avc1/1280x720/jxGxLSIEHZ2YvkcF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/jxGxLSIEHZ2YvkcF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062272583878238208.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/jxGxLSIEHZ2YvkcF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062283510958682184"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062283510958682184/README.md",
+      "path": "X/ICEgov/2026/06/03/2062283510958682184/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062283510958682184",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by ..."
+    },
+    {
       "category": "YouTube",
       "date": "2026-06-03",
       "id": "socials:1cef5c1e149a2af8",
@@ -674,6 +779,146 @@
       "title": "Don\u2019t act like I never told you"
     },
     {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:4b234cbd16d3d291",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346459+00:00",
+        "datePublished": "2026-06-03T18:12:18+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062186345867427840.mp4",
+            "remotePath": "archive/x/icegov/qNT8qC2nvHKXRycd.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062186345867427840/vid/avc1/1280x720/qNT8qC2nvHKXRycd.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/qNT8qC2nvHKXRycd.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062186345867427840.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/qNT8qC2nvHKXRycd.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062235946016288907"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062235946016288907/README.md",
+      "path": "X/ICEgov/2026/06/03/2062235946016288907/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062235946016288907",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: \u201cICE every day is taking the worst of the worst off the streets, taking..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:9d6dad396fcbf818",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346636+00:00",
+        "datePublished": "2026-06-03T18:11:44+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062189750455238656.mp4",
+            "remotePath": "archive/x/icegov/DjQNnmtY6VUB0GbO.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062189750455238656/vid/avc1/1280x720/DjQNnmtY6VUB0GbO.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/DjQNnmtY6VUB0GbO.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062189750455238656.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/DjQNnmtY6VUB0GbO.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062235802956939478"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062235802956939478/README.md",
+      "path": "X/ICEgov/2026/06/03/2062235802956939478/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062235802956939478",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:1ad022dceab79caf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346793+00:00",
+        "datePublished": "2026-06-03T18:10:39+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062213880831496192.mp4",
+            "remotePath": "archive/x/icegov/GCvGS_VjEbCxUIEq.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062213880831496192/vid/avc1/640x360/GCvGS_VjEbCxUIEq.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/GCvGS_VjEbCxUIEq.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062213880831496192.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/GCvGS_VjEbCxUIEq.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062235531379982775"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062235531379982775/README.md",
+      "path": "X/ICEgov/2026/06/03/2062235531379982775/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062235531379982775",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: 7 out of the top 10 safest cities in the country cooperate with @ICEgov..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:d3fe93fbfc38d485",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:49:29.346933+00:00",
+        "datePublished": "2026-06-03T18:10:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062214186189344768.mp4",
+            "remotePath": "archive/x/icegov/Zu0fI6rtxNO8QzYf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062214186189344768/vid/avc1/640x360/Zu0fI6rtxNO8QzYf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/Zu0fI6rtxNO8QzYf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062214186189344768.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/Zu0fI6rtxNO8QzYf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062235423003300085"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062235423003300085/README.md",
+      "path": "X/ICEgov/2026/06/03/2062235423003300085/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062235423003300085",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: \u201cI have ZERO tolerance. If you verbally assault our officers, you go af..."
+    },
+    {
       "category": "YouTube",
       "date": "2026-06-03",
       "id": "socials:e9a70241ad093d66",
@@ -753,6 +998,41 @@
       "sourceUrl": "https://www.youtube.com/watch?v=e5sXaOlotEM",
       "summary": "- [00:00.160] From the very first day I took office, - [00:02.159] our administration has waged the most - [00:04.240] successful war in crime in American - [00:06.240] history. Last year, the murder rate saw - [00:08.720] the single largest decline ever - [00:10.719] recorded, f",
       "title": "President Donald J. Trump announces the Department of Justice\u2019s Model Cities Initiative"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-03",
+      "id": "socials:672a75751823a1fa",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T14:49:29.347113+00:00",
+        "datePublished": "2026-06-03T14:56:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062173126356602880.png",
+            "remotePath": "archive/x/icegov/HJ5PiFXXkAAVK3.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ5PiFXXkAAVK3_.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HJ5PiFXXkAAVK3.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062173126356602880.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HJ5PiFXXkAAVK3.png"
+        ],
+        "platform": "X",
+        "postId": "2062186599341752504"
+      },
+      "metadataPath": "X/ICEgov/2026/06/03/2062186599341752504/README.md",
+      "path": "X/ICEgov/2026/06/03/2062186599341752504/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062186599341752504",
+      "summary": "CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS",
+      "title": "CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS Mexi..."
     },
     {
       "category": "TruthSocial",

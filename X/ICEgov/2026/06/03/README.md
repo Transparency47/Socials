@@ -1,6 +1,6 @@
 # X / ICEgov / 2026-06-03
 
-- Posts: 4
+- Posts: 11
 
 - [23:02 UTC - Repost of @DHSgov: Last week, the state of New Jersey’s health inspectors went to Delaney ...](2062308969859654029/)
   - Source: https://x.com/ICEgov/status/2062308969859654029
@@ -14,3 +14,24 @@
 - [21:25 UTC - Repost of @Brooketaylortv: #EXCLUSIVE: After being honored by DHS Sec. Mullin for their ac...](2062284459496395006/)
   - Source: https://x.com/ICEgov/status/2062284459496395006
   - Repost of @Brooketaylortv: “I don’t think I’ve witnessed it be this violent or this volatile in my entire 18 years of federal service,” one of the officers told me.
+- [21:24 UTC - Repost of @foxnewspolitics: FIRST ON FOX: DHS reveals the extent in which murderers, sex c...](2062284382824534331/)
+  - Source: https://x.com/ICEgov/status/2062284382824534331
+  - Repost of @foxnewspolitics: FIRST ON FOX: DHS reveals the extent in which murderers, sex criminals and MS-13 gang members exploited a little-known juvenile immigration program to g...
+- [21:21 UTC - Repost of @DHSgov: WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by ...](2062283510958682184/)
+  - Source: https://x.com/ICEgov/status/2062283510958682184
+  - Repost of @DHSgov: WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by Massachusetts sanctuary politicians after hospitalizing a State Trooper. Lucas Gustavo Dib...
+- [18:12 UTC - Repost of @DHSgov: “ICE every day is taking the worst of the worst off the streets, taking...](2062235946016288907/)
+  - Source: https://x.com/ICEgov/status/2062235946016288907
+  - Repost of @DHSgov: “ICE every day is taking the worst of the worst off the streets, taking those who entered this country illegally off the streets, which is exactly what they were...
+- [18:11 UTC - Repost of @DHSgov: .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of ...](2062235802956939478/)
+  - Source: https://x.com/ICEgov/status/2062235802956939478
+  - Repost of @DHSgov: .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of the most vulnerable victims of the Biden Administration’s border crisis — unaccompanied ch...
+- [18:10 UTC - Repost of @DHSgov: 7 out of the top 10 safest cities in the country cooperate with @ICEgov...](2062235531379982775/)
+  - Source: https://x.com/ICEgov/status/2062235531379982775
+  - Repost of @DHSgov: 7 out of the top 10 safest cities in the country cooperate with @ICEgov. Sanctuary politicians need to stop choosing to release criminals from their jails. We ne...
+- [18:10 UTC - Repost of @DHSgov: “I have ZERO tolerance. If you verbally assault our officers, you go af...](2062235423003300085/)
+  - Source: https://x.com/ICEgov/status/2062235423003300085
+  - Repost of @DHSgov: “I have ZERO tolerance. If you verbally assault our officers, you go after our vehicles…we will find you, we will arrest you.” @SecMullinDHS https://t.co/Anr1HVK...
+- [14:56 UTC - CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS Mexi...](2062186599341752504/)
+  - Source: https://x.com/ICEgov/status/2062186599341752504
+  - CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS Mexican criminal illegal alien Ricardo “Ricky” Orizaba-Zendejas was sentenced May 28 for drug...
