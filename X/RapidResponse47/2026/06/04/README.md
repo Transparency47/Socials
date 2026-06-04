@@ -1,7 +1,82 @@
 # X / RapidResponse47 / 2026-06-04
 
-- Posts: 16
+- Posts: 41
 
+- [18:33 UTC - Repost of @WHOSTP47: 🚨 NEW: 🇺🇸 and 🇯🇵 announce new partnership to accelerate scientific br...](2062603637763821619/)
+  - Source: https://x.com/RapidResponse47/status/2062603637763821619
+  - Repost of @WHOSTP47: 🚨 NEW: 🇺🇸 and 🇯🇵 announce new partnership to accelerate scientific breakthroughs and harness AI as a tool for discovery https://t.co/zaBLQNvdlr https://t.co/8n...
+- [18:14 UTC - https://t.co/MukpNTQVr0](2062598927547834416/)
+  - Source: https://x.com/RapidResponse47/status/2062598927547834416
+  - https://t.co/MukpNTQVr0
+- [18:12 UTC - https://t.co/vHLrtNN56p](2062598327133221192/)
+  - Source: https://x.com/RapidResponse47/status/2062598327133221192
+  - https://t.co/vHLrtNN56p
+- [18:11 UTC - https://t.co/OsHfuRIPvF](2062598039278161949/)
+  - Source: https://x.com/RapidResponse47/status/2062598039278161949
+  - https://t.co/OsHfuRIPvF
+- [17:56 UTC - Repost of @JDVance: Hawaii state officials stole around $12M from you. The money was suppo...](2062594319366725802/)
+  - Source: https://x.com/RapidResponse47/status/2062594319366725802
+  - Repost of @JDVance: Hawaii state officials stole around $12M from you. The money was supposed to be used to prosecute fraudsters, but they didn’t indict a single person in 4 years....
+- [17:37 UTC - https://t.co/wPuvbjpCAX](2062589641618764013/)
+  - Source: https://x.com/RapidResponse47/status/2062589641618764013
+  - https://t.co/wPuvbjpCAX
+- [17:36 UTC - #NewProfilePic https://t.co/Ua9vUCn5pH](2062589444826234904/)
+  - Source: https://x.com/RapidResponse47/status/2062589444826234904
+  - No text content captured.
+- [17:35 UTC - .@SenMcCormickPA on @DAGToddBlanche: "I have a lot of confidence in him. He's done a fine ...](2062589189720338818/)
+  - Source: https://x.com/RapidResponse47/status/2062589189720338818
+  - .@SenMcCormickPA on @DAGToddBlanche: "I have a lot of confidence in him. He's done a fine job as the deputy. I've gotten to know him — and I think he'd be a fine Attorney General."...
+- [17:31 UTC - https://t.co/ThSeG2GAuG](2062588176288416160/)
+  - Source: https://x.com/RapidResponse47/status/2062588176288416160
+  - https://t.co/ThSeG2GAuG
+- [17:28 UTC - .@RepLuna on her support for @pulte as Acting Director of National Intelligence: "Half the...](2062587331304194429/)
+  - Source: https://x.com/RapidResponse47/status/2062587331304194429
+  - .@RepLuna on her support for @pulte as Acting Director of National Intelligence: "Half the battle in these Intelligence positions is the fact that you want someone that will not ob...
+- [17:07 UTC - Repost of @JDVance: If the fraud rate is really as low as Democrats claim, why are they fi...](2062582094023254304/)
+  - Source: https://x.com/RapidResponse47/status/2062582094023254304
+  - Repost of @JDVance: If the fraud rate is really as low as Democrats claim, why are they fighting so hard to hide the data? Why not just work with USDA to audit and validate where t...
+- [16:53 UTC - https://t.co/cGGUQG1Jyy](2062578533864530408/)
+  - Source: https://x.com/RapidResponse47/status/2062578533864530408
+  - https://t.co/cGGUQG1Jyy
+- [16:51 UTC - Repost of @DOLOIG: This is exactly the aggressive action taxpayers want. @WHFraudTF is del...](2062577917247250523/)
+  - Source: https://x.com/RapidResponse47/status/2062577917247250523
+  - Repost of @DOLOIG: This is exactly the aggressive action taxpayers want. @WHFraudTF is delivering real change — rooting out waste and zero-conviction fraud units. @USLaborIG and @D...
+- [15:55 UTC - Repost of @VPPressSec: This report is categorically false, and we would have told the outl...](2062563863942279672/)
+  - Source: https://x.com/RapidResponse47/status/2062563863942279672
+  - Repost of @VPPressSec: This report is categorically false, and we would have told the outlet as much if they had bothered to reach out for comment.
+- [15:46 UTC - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fr...](2062561648808800689/)
+  - Source: https://x.com/RapidResponse47/status/2062561648808800689
+  - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fraud are over. @VP’s Fraud Task Force is here to fight fraud and deliver for Americans.
+- [15:42 UTC - Ohio Attorney General Dave Yost: I have been doing Medicaid investigations and prosecution...](2062560660668510579/)
+  - Source: https://x.com/RapidResponse47/status/2062560660668510579
+  - Ohio Attorney General Dave Yost: I have been doing Medicaid investigations and prosecutions for almost 16 years, and "I have NEVER had the level of interest and support from the fe...
+- [15:39 UTC - "HHS office of the Inspector General... in coordination with the @WHFraudTF, has decertifi...](2062559803432436077/)
+  - Source: https://x.com/RapidResponse47/status/2062559803432436077
+  - "HHS office of the Inspector General... in coordination with the @WHFraudTF, has decertified Hawaii’s Medicaid fraud control unit," says @AFergusonFTC. "For more than a decade, Haw...
+- [15:33 UTC - 🚨 @SBA_Kelly in Ohio: "Today, I’m here to announce suspensions for over 27,000 Ohio borrow...](2062558314123202865/)
+  - Source: https://x.com/RapidResponse47/status/2062558314123202865
+  - 🚨 @SBA_Kelly in Ohio: "Today, I’m here to announce suspensions for over 27,000 Ohio borrowers tied to $1.1B in suspected PPP fraud... This task force is exposing the fraudsters, ma...
+- [15:30 UTC - Assistant AG Colin McDonald: "Today, Ohio’s fraud-fighting team is uniting with us in hist...](2062557652815655035/)
+  - Source: https://x.com/RapidResponse47/status/2062557652815655035
+  - Assistant AG Colin McDonald: "Today, Ohio’s fraud-fighting team is uniting with us in historic ways to contribute uniquely to the fight against fraud. Attorney general Dave Yost is...
+- [15:26 UTC - .@FBIDirectorKash unveils a new FBI Most Wanted Fraudsters list at a press conference in O...](2062556599084834818/)
+  - Source: https://x.com/RapidResponse47/status/2062556599084834818
+  - .@FBIDirectorKash unveils a new FBI Most Wanted Fraudsters list at a press conference in Ohio: "I want all Americans to take a look at these Most Wanted individuals, and look at th...
+- [15:22 UTC - in Ohio, @DrOzCMS announces actions taken to root out healthcare fraud: — Suspending 49 Oh...](2062555567554462168/)
+  - Source: https://x.com/RapidResponse47/status/2062555567554462168
+  - in Ohio, @DrOzCMS announces actions taken to root out healthcare fraud: — Suspending 49 Ohio home healthcare providers who've been identified as high-risk to the Medicaid program —...
+- [15:16 UTC - .@DrOzCMS on the healthcare fraud he's seen in Ohio: "Unfortunately, this area around Colu...](2062554165977461072/)
+  - Source: https://x.com/RapidResponse47/status/2062554165977461072
+  - .@DrOzCMS on the healthcare fraud he's seen in Ohio: "Unfortunately, this area around Columbus is responsible for 1/3 of all of the $1.5B spent on home healthcare in Ohio... that's...
+- [15:14 UTC - .@DAGToddBlanche announces the indictment of multiple individuals, including Ohio state em...](2062553511842169169/)
+  - Source: https://x.com/RapidResponse47/status/2062553511842169169
+  - .@DAGToddBlanche announces the indictment of multiple individuals, including Ohio state employees, for defrauding taxpayers: "Today, the @TheJusticeDept is announcing significant f...
+- [15:10 UTC - .@DAGToddBlanche in Ohio: "The team behind me, federal and state partners, have come toget...](2062552567041683614/)
+  - Source: https://x.com/RapidResponse47/status/2062552567041683614
+  - .@DAGToddBlanche in Ohio: "The team behind me, federal and state partners, have come together as one, to battle what is a fraud crisis in this country. It has crippled our taxpayer...
+- [14:51 UTC - .@SecRollins on combatting the New World screwworm with the construction of a state-of-the...](2062547732921729300/)
+  - Source: https://x.com/RapidResponse47/status/2062547732921729300
+  - .@SecRollins on combatting the New World screwworm with the construction of a state-of-the-art sterile fly production facility, FDA treatments: We got immediate approval to begin p...
 - [14:41 UTC - WATCH: @SecRollins' full opening statement before the House Committee on Agriculture https...](2062545318852304975/)
   - Source: https://x.com/RapidResponse47/status/2062545318852304975
   - WATCH: @SecRollins' full opening statement before the House Committee on Agriculture https://t.co/TCQloiMFn0

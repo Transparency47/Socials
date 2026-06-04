@@ -1,0 +1,43 @@
+# X / DHSgov / 2026-06-04
+
+- Posts: 13
+
+- [17:38 UTC - OUR BORDERS ARE CLOSED. Whether by land or sea — if you try to enter our nation illegally,...](2062589935610216469/)
+  - Source: https://x.com/DHSgov/status/2062589935610216469
+  - OUR BORDERS ARE CLOSED. Whether by land or sea — if you try to enter our nation illegally, we will hunt you down and find you.
+- [16:40 UTC - Repost of @DHSgov: Those in the United States illegally will be found, arrested, fined, an...](2062575266048688583/)
+  - Source: https://x.com/DHSgov/status/2062575266048688583
+  - Repost of @DHSgov: Those in the United States illegally will be found, arrested, fined, and removed — along with all of their illegal alien friends and relatives. LEAVE NOW: https:...
+- [16:14 UTC - CLEANING UP JERSEY: Yesterday in New Jersey, @ICEgov arrested several illegal aliens durin...](2062568717238620271/)
+  - Source: https://x.com/DHSgov/status/2062568717238620271
+  - CLEANING UP JERSEY: Yesterday in New Jersey, @ICEgov arrested several illegal aliens during a targeted operation, including a child predator and an illegal alien wanted in his home...
+- [16:11 UTC - Join DHS and defend our nation across air, land, sea, and cyberspace. Register now for the...](2062567859939680721/)
+  - Source: https://x.com/DHSgov/status/2062567859939680721
+  - Join DHS and defend our nation across air, land, sea, and cyberspace. Register now for the upcoming DHS Career Expo. June 16-17, 2026, at the Prime F. Osborne III Convention Center...
+- [14:58 UTC - Presenting Chef’s Signature Meals — our breakfast, lunch, and dinner menu for Thursday, Ju...](2062549676696424783/)
+  - Source: https://x.com/DHSgov/status/2062549676696424783
+  - Presenting Chef’s Signature Meals — our breakfast, lunch, and dinner menu for Thursday, June 4 at Delaney Hall. If detainees are not satisfied with their dining experience, they ar...
+- [14:45 UTC - Each and every day, our @ICEgov law enforcement put their lives on the line to keep the Am...](2062546184556707938/)
+  - Source: https://x.com/DHSgov/status/2062546184556707938
+  - Each and every day, our @ICEgov law enforcement put their lives on the line to keep the American people safe. Despite this, sanctuary politicians continue to smear our officers — l...
+- [14:19 UTC - The Delaney Hall riot is not random — it is part of a HIGHLY coordinated campaign of viole...](2062539758358712430/)
+  - Source: https://x.com/DHSgov/status/2062539758358712430
+  - The Delaney Hall riot is not random — it is part of a HIGHLY coordinated campaign of violence against our officers. Our message is clear: we will find, arrest, and prosecute to the...
+- [13:52 UTC - .@ERONewOrleans HUNTED DOWN and ARRESTED Sudanese illegal immigrant Gabriel Maror Ayuel at...](2062532900675793052/)
+  - Source: https://x.com/DHSgov/status/2062532900675793052
+  - .@ERONewOrleans HUNTED DOWN and ARRESTED Sudanese illegal immigrant Gabriel Maror Ayuel at his Nashville apartment. Ayuel’s criminal history includes an ATTEMPTED MURDER conviction...
+- [13:50 UTC - Repost of @CBPCommissioner: Outstanding work by @CBPAMO, @USCG, and our international part...](2062532460945035569/)
+  - Source: https://x.com/DHSgov/status/2062532460945035569
+  - Repost of @CBPCommissioner: Outstanding work by @CBPAMO, @USCG, and our international partners. This week, Air Interdiction Agents located a vessel carrying 240 migrants from Haiti...
+- [13:12 UTC - Those in the United States illegally will be found, arrested, fined, and removed — along w...](2062522768302776501/)
+  - Source: https://x.com/DHSgov/status/2062522768302776501
+  - Those in the United States illegally will be found, arrested, fined, and removed — along with all of their illegal alien friends and relatives. LEAVE NOW: https://t.co/YGo3uuNvrE h...
+- [12:58 UTC - The hunger strike HOAX was actually just Delaney Hall detainees trading nutritious meals f...](2062519413840949287/)
+  - Source: https://x.com/DHSgov/status/2062519413840949287
+  - The hunger strike HOAX was actually just Delaney Hall detainees trading nutritious meals for Honey Buns and Hot Cheetos. It’s time for sanctuary politicians to drop the political t...
+- [12:32 UTC - MAKE NEW JERSEY SAFE AGAIN While sanctuary politicians spread smears about Delaney Hall, @...](2062512840020217864/)
+  - Source: https://x.com/DHSgov/status/2062512840020217864
+  - MAKE NEW JERSEY SAFE AGAIN While sanctuary politicians spread smears about Delaney Hall, @ERONewark is hard at work arresting dangerous criminal illegal aliens from New Jersey neig...
+- [11:54 UTC - Repost of @nicksortor: 🚨 EXCLUSIVE: ICE Newark agents TOOK DOWN an illegal alien wanted fo...](2062503234237759551/)
+  - Source: https://x.com/DHSgov/status/2062503234237759551
+  - Repost of @nicksortor: 🚨 EXCLUSIVE: ICE Newark agents TOOK DOWN an illegal alien wanted for ARMED ROBBERY in Peru, with an INTERPOL RED NOTICE He then tried FLEEING, but agents nab...

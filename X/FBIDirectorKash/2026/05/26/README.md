@@ -1,0 +1,40 @@
+# X / FBIDirectorKash / 2026-05-26
+
+- Posts: 12
+
+- [23:27 UTC - Repost of @FBI: 🚨 2025 crime data shows violent crime plummeted across the country. Murder...](2059416157455520061/)
+  - Source: https://x.com/FBIDirectorKash/status/2059416157455520061
+  - Repost of @FBI: 🚨 2025 crime data shows violent crime plummeted across the country. Murder rates dropped by more than 18%, contributing to the biggest nationwide decrease in violen...
+- [21:01 UTC - Repost of @FBI: U.S. violent crime rate plummeted by fastest rate in nearly 90 years. @FBI...](2059379375603118480/)
+  - Source: https://x.com/FBIDirectorKash/status/2059379375603118480
+  - Repost of @FBI: U.S. violent crime rate plummeted by fastest rate in nearly 90 years. @FBIDirectorKash: "Over the last 14 months, we made major transformations at the FBI, and thes...
+- [20:58 UTC - Repost of @FBIDirectorKash: Join the record breaking mission safeguarding America - be the...](2059378753277469060/)
+  - Source: https://x.com/FBIDirectorKash/status/2059378753277469060
+  - Repost of @FBIDirectorKash: Join the record breaking mission safeguarding America - be the next to arrest a narcotrafficker, child predator, murderer, or terrorist. https://t.co/2f...
+- [19:51 UTC - Repost of @FBI: The true work of this FBI’s historic year in crime reduction are the stori...](2059361869274530056/)
+  - Source: https://x.com/FBIDirectorKash/status/2059361869274530056
+  - Repost of @FBI: The true work of this FBI’s historic year in crime reduction are the stories behind the record-breaking stats — Today’s story behind the numbers: This FBI worked wi...
+- [17:28 UTC - Repost of @FBI_Response: The most prolific year of crime reduction in United States histor...](2059325882708197654/)
+  - Source: https://x.com/FBIDirectorKash/status/2059325882708197654
+  - Repost of @FBI_Response: The most prolific year of crime reduction in United States history under this administration https://t.co/7ghWCkbxGn https://t.co/El6H6YQ2n5
+- [16:49 UTC - Repost of @SenEricSchmitt: I fought hard to bring more federal law enforcement agents to S...](2059316126442492150/)
+  - Source: https://x.com/FBIDirectorKash/status/2059316126442492150
+  - Repost of @SenEricSchmitt: I fought hard to bring more federal law enforcement agents to St. Louis to combat violent crime & we’re already seeing the results. St. Louisans no longe...
+- [16:49 UTC - Repost of @RapidResponse47: Trump Administration’s Full-Scale War on Fraud https://t.co/wc...](2059315954513785028/)
+  - Source: https://x.com/FBIDirectorKash/status/2059315954513785028
+  - Repost of @RapidResponse47: Trump Administration’s Full-Scale War on Fraud https://t.co/wcACEJLrFn
+- [16:43 UTC - Repost of @FBIStLouis: Today, FBI Co-Deputy Director Andrew Bailey announced the results o...](2059314524084191480/)
+  - Source: https://x.com/FBIDirectorKash/status/2059314524084191480
+  - Repost of @FBIStLouis: Today, FBI Co-Deputy Director Andrew Bailey announced the results of Operation Viper — a coordinated effort between federal, state, and local law enforcement...
+- [15:18 UTC - Repost of @FBI_Response: Real stories of this FBI saving lives and locking up criminals ht...](2059293210669678663/)
+  - Source: https://x.com/FBIDirectorKash/status/2059293210669678663
+  - Repost of @FBI_Response: Real stories of this FBI saving lives and locking up criminals https://t.co/7Q0M1txYy1
+- [14:33 UTC - May 26: Fighting Human Trafficking during @FIFAWorldCup This FBI is working 24/7 to break ...](2059281771565371687/)
+  - Source: https://x.com/FBIDirectorKash/status/2059281771565371687
+  - May 26: Fighting Human Trafficking during @FIFAWorldCup This FBI is working 24/7 to break sex and human trafficking networks worldwide, and we will be highly focused on the threat...
+- [11:47 UTC - Join the record breaking mission safeguarding America - be the next to arrest a narcotraff...](2059239966211805574/)
+  - Source: https://x.com/FBIDirectorKash/status/2059239966211805574
+  - Join the record breaking mission safeguarding America - be the next to arrest a narcotrafficker, child predator, murderer, or terrorist. https://t.co/2fzqtZE2pH https://t.co/qAKlmC...
+- [02:02 UTC - Repost of @RapidResponse47: May God bless our fallen heroes. May God protect their familie...](2059092705905451263/)
+  - Source: https://x.com/FBIDirectorKash/status/2059092705905451263
+  - Repost of @RapidResponse47: May God bless our fallen heroes. May God protect their families and all who loved them. And may We The People never forget their sacrifice. May God bles...

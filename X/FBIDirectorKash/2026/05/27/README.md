@@ -1,0 +1,43 @@
+# X / FBIDirectorKash / 2026-05-27
+
+- Posts: 13
+
+- [22:13 UTC - Repost of @A1Policy: Fentanyl kills. The FBI just took down one of the traffickers floodin...](2059759854961443043/)
+  - Source: https://x.com/FBIDirectorKash/status/2059759854961443043
+  - Repost of @A1Policy: Fentanyl kills. The FBI just took down one of the traffickers flooding America with it.
+- [21:47 UTC - Outstanding work from @FBICharlotte and CMPD local partners taking down 11 subjects runnin...](2059753336878862709/)
+  - Source: https://x.com/FBIDirectorKash/status/2059753336878862709
+  - Outstanding work from @FBICharlotte and CMPD local partners taking down 11 subjects running a drug and gun trafficking ring out of a hotel - hits like these cutting off violent gan...
+- [21:30 UTC - Repost of @FBI: Today's story behind the numbers: This @FBI and the take down of a deadly ...](2059749216205836780/)
+  - Source: https://x.com/FBIDirectorKash/status/2059749216205836780
+  - Repost of @FBI: Today's story behind the numbers: This @FBI and the take down of a deadly drug trafficker and gang member based in Seattle. Treyvon Mitchell was recently sentenced...
+- [21:11 UTC - Repost of @FBIHouston: #BREAKING A Canadian man has been sentenced to 33 years in federal ...](2059744294626336891/)
+  - Source: https://x.com/FBIDirectorKash/status/2059744294626336891
+  - Repost of @FBIHouston: https://t.co/8nJ5AkLPZP
+- [21:01 UTC - Repost of @FBI_Response: OPERATION VIPER 🔥 A two-week @FBI operation resulted in 91 arrest...](2059741734859407846/)
+  - Source: https://x.com/FBIDirectorKash/status/2059741734859407846
+  - Repost of @FBI_Response: OPERATION VIPER 🔥 A two-week @FBI operation resulted in 91 arrests and the recovery of 36 firearms across the St. Louis region https://t.co/GNAIEUSp27
+- [21:01 UTC - Repost of @FBIDDRaia: Planning to fly your drone at a World Cup match? Think again! Tempor...](2059741700877173202/)
+  - Source: https://x.com/FBIDirectorKash/status/2059741700877173202
+  - Repost of @FBIDDRaia: Planning to fly your drone at a World Cup match? Think again! Temporary Flight Restrictions will be in place around @FIFAWorldCup stadiums and fan festivals....
+- [20:08 UTC - May 27: Combating transnational repression during the @FIFAWorldCup Hostile foreign govern...](2059728356644364776/)
+  - Source: https://x.com/FBIDirectorKash/status/2059728356644364776
+  - May 27: Combating transnational repression during the @FIFAWorldCup Hostile foreign governments deliberately attempt to bully, silence, and even assassinate people on U.S. soil who...
+- [19:04 UTC - Repost of @FBIHonolulu: FBI Honolulu trains alongside bomb technicians from our federal, s...](2059712379835797608/)
+  - Source: https://x.com/FBIDirectorKash/status/2059712379835797608
+  - Repost of @FBIHonolulu: FBI Honolulu trains alongside bomb technicians from our federal, state, and local law enforcement partners, so when a call comes in about a bomb threat or s...
+- [18:40 UTC - Repost of @FBICyberDiv: Yesterday the FBI released an advisory on the Silent Ransom Group ...](2059706278226567553/)
+  - Source: https://x.com/FBIDirectorKash/status/2059706278226567553
+  - Repost of @FBICyberDiv: Yesterday the FBI released an advisory on the Silent Ransom Group (SRG), aka Luna Moth, Chatty Spider, and UNC3753, who use social engineering techniques li...
+- [16:28 UTC - Repost of @RapidResponse47: .@DAGToddBlanche provides an update on prosecuting fraud: "We ...](2059673103869915417/)
+  - Source: https://x.com/FBIDirectorKash/status/2059673103869915417
+  - Repost of @RapidResponse47: .@DAGToddBlanche provides an update on prosecuting fraud: "We had a $1B fraud—a conviction at trial—last week out of Florida, and this was an organizati...
+- [16:28 UTC - Repost of @RapidResponse47: .@VP highlights the work of the @WHFraudTF at the Cabinet meet...](2059673096110366730/)
+  - Source: https://x.com/FBIDirectorKash/status/2059673096110366730
+  - Repost of @RapidResponse47: .@VP highlights the work of the @WHFraudTF at the Cabinet meeting, aided by many of the Cabinet Secretaries at the table: "This has been a whole-of-gove...
+- [16:06 UTC - Repost of @FBI: CASE UPDATE from @FBILittleRock: Man Sentenced to 20 Years in Federal Pris...](2059667569548664888/)
+  - Source: https://x.com/FBIDirectorKash/status/2059667569548664888
+  - Repost of @FBI: CASE UPDATE from @FBILittleRock: Man Sentenced to 20 Years in Federal Prison for Distribution of Fentanyl Resulting in Death An FBI Investigation revealed that John...
+- [13:16 UTC - Repost of @FBI_Response: Patel says FBI to fight human trafficking during World Cup https:...](2059624826797527354/)
+  - Source: https://x.com/FBIDirectorKash/status/2059624826797527354
+  - Repost of @FBI_Response: Patel says FBI to fight human trafficking during World Cup https://t.co/207KSDBRg0

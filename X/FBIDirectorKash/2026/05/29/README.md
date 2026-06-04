@@ -1,0 +1,37 @@
+# X / FBIDirectorKash / 2026-05-29
+
+- Posts: 11
+
+- [23:52 UTC - May 29: Rooting out sports crime during the @FIFAWorldCup With the tournament just days aw...](2060509723418403296/)
+  - Source: https://x.com/FBIDirectorKash/status/2060509723418403296
+  - May 29: Rooting out sports crime during the @FIFAWorldCup With the tournament just days away, the experts in the FBI’s Crime and Corruption in Sport and Gaming program—along with o...
+- [21:39 UTC - OPERATION SOTERIA SHIELD: 2 month FBI op with 91 federal + state and local Texas partners ...](2060476091945378083/)
+  - Source: https://x.com/FBIDirectorKash/status/2060476091945378083
+  - OPERATION SOTERIA SHIELD: 2 month FBI op with 91 federal + state and local Texas partners - 276 subjects arrested and 89 children rescued. This FBI set records last year crushing c...
+- [21:21 UTC - Repost of @FBIBoston: There are many unsung heroes at #FBI Boston - employees who perform ...](2060471533831622881/)
+  - Source: https://x.com/FBIDirectorKash/status/2060471533831622881
+  - Repost of @FBIBoston: There are many unsung heroes at #FBI Boston - employees who perform critical services for own people or those we serve and protect - but who often fly under t...
+- [21:20 UTC - Repost of @Brooketaylortv: NEW: FBI Dallas says Operation Soteria Shield led to 276 child ...](2060471369154936878/)
+  - Source: https://x.com/FBIDirectorKash/status/2060471369154936878
+  - Repost of @Brooketaylortv: NEW: FBI Dallas says Operation Soteria Shield led to 276 child exploitation arrests and the rescue of 89 children across Texas. The two-month op targeted...
+- [18:15 UTC - Repost of @FBIJobs: Your career as an #FBI #SpecialAgent will leave a lasting #impact on t...](2060424715202613634/)
+  - Source: https://x.com/FBIDirectorKash/status/2060424715202613634
+  - Repost of @FBIJobs: Your career as an #FBI #SpecialAgent will leave a lasting #impact on the nation. Your work can span a multitude of priority areas, such as thwarting terrorist t...
+- [17:24 UTC - Repost of @FBI_Response: FBI seizes record-setting $8 billion in cryptocurrency amid inter...](2060412098690044357/)
+  - Source: https://x.com/FBIDirectorKash/status/2060412098690044357
+  - Repost of @FBI_Response: FBI seizes record-setting $8 billion in cryptocurrency amid intercontinental 'scam compound' crackdown 🔥 https://t.co/EtJ7fgLnqn
+- [17:24 UTC - Repost of @FBI_Response: After FBI investigation - Tennessee man indicted on child exploit...](2060412090079130020/)
+  - Source: https://x.com/FBIDirectorKash/status/2060412090079130020
+  - Repost of @FBI_Response: After FBI investigation - Tennessee man indicted on child exploitation charges tied to violent extremist network 764 - well done @FBI_Nashville https://t.c...
+- [17:22 UTC - Repost of @WhiteHouse: When law and order is restored, safety follows. ALL WE NEEDED WAS A...](2060411426972303643/)
+  - Source: https://x.com/FBIDirectorKash/status/2060411426972303643
+  - Repost of @WhiteHouse: When law and order is restored, safety follows. ALL WE NEEDED WAS A NEW PRESIDENT. https://t.co/JT6SoJEHNj
+- [14:26 UTC - 🚨 Another 764 subject arrested FBI and our partners arrested subject Zachary Sweeney out o...](2060367081669808520/)
+  - Source: https://x.com/FBIDirectorKash/status/2060367081669808520
+  - 🚨 Another 764 subject arrested FBI and our partners arrested subject Zachary Sweeney out of Tennessee, who allegedly coerced multiple minors from 2022-2025 into producing Child Sex...
+- [13:27 UTC - FBI leading global scam center take downs- that target our seniors from afar. We will dism...](2060352455083241737/)
+  - Source: https://x.com/FBIDirectorKash/status/2060352455083241737
+  - FBI leading global scam center take downs- that target our seniors from afar. We will dismantle them all- already Billions in fraud shut down, hundreds arrested, thousands of traff...
+- [10:17 UTC - Repost of @FBIDirectorKash: Scam compounds are modern-day criminal enterprises built to st...](2060304433154568374/)
+  - Source: https://x.com/FBIDirectorKash/status/2060304433154568374
+  - Repost of @FBIDirectorKash: Scam compounds are modern-day criminal enterprises built to steal from Americans, launder money, and exploit trafficked workers. The FBI led the charge...

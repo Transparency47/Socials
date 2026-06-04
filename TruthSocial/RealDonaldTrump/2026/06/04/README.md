@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-04
 
-- Posts: 19
+- Posts: 22
 
+- [18:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693349899092060](116693351819812143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693351819812143
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116693349899092060
+- [18:53 UTC - Truth Social post 116693349899092060](116693349899092060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693349899092060
+  - _No text content captured._
+- [18:52 UTC - I believe we have the Most Dishonest Elections of any Country, anywhere in the World! Pres...](116693346120029554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116693346120029554
+  - I believe we have the Most Dishonest Elections of any Country, anywhere in the World! President DONALD J. TRUMP
 - [18:17 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ...](116693209154035780/)
   - Source: https://truthsocial.com/@realDonaldTrump/116693209154035780
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZE...

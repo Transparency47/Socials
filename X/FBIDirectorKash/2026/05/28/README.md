@@ -1,0 +1,34 @@
+# X / FBIDirectorKash / 2026-05-28
+
+- Posts: 10
+
+- [22:50 UTC - Repost of @FBI: CASE UPDATE from @FBIWFO: Dual Iranian-Iraqi National Indicted for Providi...](2060131687783104596/)
+  - Source: https://x.com/FBIDirectorKash/status/2060131687783104596
+  - Repost of @FBI: CASE UPDATE from @FBIWFO: Dual Iranian-Iraqi National Indicted for Providing Material Support to Terrorist Organizations @TheJusticeDept announced an eight-count in...
+- [20:55 UTC - Repost of @FBI: Today’s story behind the numbers: This #FBI dismantled a sprawling and dea...](2060102675732033862/)
+  - Source: https://x.com/FBIDirectorKash/status/2060102675732033862
+  - Repost of @FBI: Today’s story behind the numbers: This #FBI dismantled a sprawling and deadly counterfeit pill manufacturing operation crushing local communities. Four Massachusett...
+- [19:39 UTC - Scam compounds are modern-day criminal enterprises built to steal from Americans, launder ...](2060083540398686318/)
+  - Source: https://x.com/FBIDirectorKash/status/2060083540398686318
+  - Scam compounds are modern-day criminal enterprises built to steal from Americans, launder money, and exploit trafficked workers. The FBI led the charge to take down Prince Group in...
+- [19:30 UTC - Repost of @FBI: Come train with us and get to the next level. 🔗https://t.co/1ZVLiSPXQD htt...](2060081388586500409/)
+  - Source: https://x.com/FBIDirectorKash/status/2060081388586500409
+  - Repost of @FBI: Come train with us and get to the next level. 🔗https://t.co/1ZVLiSPXQD https://t.co/yuC5CcqyZa
+- [17:31 UTC - Follow the @FBI on YouTube - we’re continuing to open up the Bureau for American people in...](2060051227757449478/)
+  - Source: https://x.com/FBIDirectorKash/status/2060051227757449478
+  - Follow the @FBI on YouTube - we’re continuing to open up the Bureau for American people in new ways, show you more behind the scenes of what we’re doing to overhaul FBI operations,...
+- [16:59 UTC - Repost of @WHFraudTF: Your hard-earned tax dollars should never go to fraudsters. Federal ...](2060043411122524514/)
+  - Source: https://x.com/FBIDirectorKash/status/2060043411122524514
+  - Repost of @WHFraudTF: Your hard-earned tax dollars should never go to fraudsters. Federal grant recipients must deliver for the American people or be CUT OFF. 🇺🇸
+- [16:59 UTC - Repost of @FBI: #ICYMI from @FBIAlbany: It's never too early to start thinking about your ...](2060043375827390683/)
+  - Source: https://x.com/FBIDirectorKash/status/2060043375827390683
+  - Repost of @FBI: Learn more and start preparing to apply today at https://t.co/u7gxrB9EO7. https://t.co/IBIAggLL8a
+- [14:35 UTC - May 28: Busting fraud during the @FIFAWorldCup This FBI is incredibly focused on crushing ...](2060007008997134803/)
+  - Source: https://x.com/FBIDirectorKash/status/2060007008997134803
+  - May 28: Busting fraud during the @FIFAWorldCup This FBI is incredibly focused on crushing the cruel and corrupt fraud rings that target unsuspecting Americans – especially during m...
+- [13:09 UTC - Repost of @FBIAlbany: It's never too early to start thinking about your future! We caught ...](2059985414560027110/)
+  - Source: https://x.com/FBIDirectorKash/status/2059985414560027110
+  - Repost of @FBIAlbany: It's never too early to start thinking about your future! We caught up with a @sscsdschools student and his teacher to hear why they think the FBI is not your...
+- [13:07 UTC - Repost of @FBIPittsburgh: FBI Pittsburgh statement in response to a shooting that occurred...](2059985016021459327/)
+  - Source: https://x.com/FBIDirectorKash/status/2059985016021459327
+  - Repost of @FBIPittsburgh: FBI Pittsburgh statement in response to a shooting that occurred last night in the City of Pittsburgh. This investigation remains open and ongoing. https:...

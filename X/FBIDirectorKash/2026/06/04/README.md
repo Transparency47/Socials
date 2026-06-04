@@ -1,0 +1,34 @@
+# X / FBIDirectorKash / 2026-06-04
+
+- Posts: 10
+
+- [17:28 UTC - Repost of @FBI: .@FBIDirectorKash announces the launch of the @FBIMostWanted Fraudsters Li...](2062587341223735800/)
+  - Source: https://x.com/FBIDirectorKash/status/2062587341223735800
+  - Repost of @FBI: .@FBIDirectorKash announces the launch of the @FBIMostWanted Fraudsters List, a new wanted list dedicated to publicly identifying individuals charged with defraudin...
+- [17:28 UTC - Repost of @KatiePavlich: There is a new most wanted list: FBI’s Most Wanted Fraudsters. He...](2062587309145698514/)
+  - Source: https://x.com/FBIDirectorKash/status/2062587309145698514
+  - Repost of @KatiePavlich: There is a new most wanted list: FBI’s Most Wanted Fraudsters. Herbert Kimble allegedly stole more than a BILLION dollars from taxpayers. https://t.co/nx30...
+- [15:44 UTC - Repost of @FBI_Response: .@FBIDirectorKash "Just in the last year under the Trump-Vance ad...](2062561192392986711/)
+  - Source: https://x.com/FBIDirectorKash/status/2062561192392986711
+  - Repost of @FBI_Response: .@FBIDirectorKash "Just in the last year under the Trump-Vance administration and the fraud initiative. We have captured and freed EIGHT BILLION DOLLARS in...
+- [15:24 UTC - Thanks to @VP vision: INTRODUCING: THE FBI TOP 10 MOST WANTED FRAUDSTERS LIST! https://t.c...](2062556156153737256/)
+  - Source: https://x.com/FBIDirectorKash/status/2062556156153737256
+  - Thanks to @VP vision: INTRODUCING: THE FBI TOP 10 MOST WANTED FRAUDSTERS LIST! https://t.co/5AE60EiLVz
+- [15:22 UTC - Repost of @FBI_Response: .@FBIDirectorKash "Tens of millions of dollars that were supposed...](2062555645698621758/)
+  - Source: https://x.com/FBIDirectorKash/status/2062555645698621758
+  - Repost of @FBI_Response: .@FBIDirectorKash "Tens of millions of dollars that were supposed to go to kids WERE STOLEN (allegedly) by individuals who worked in government and the pri...
+- [15:18 UTC - Repost of @FBI_Response: . @FBIDirectorKash “What is the FBI doing to combat fraud? It’s p...](2062554622825201708/)
+  - Source: https://x.com/FBIDirectorKash/status/2062554622825201708
+  - Repost of @FBI_Response: . @FBIDirectorKash “What is the FBI doing to combat fraud? It’s pretty simple…WE FOLLOW THE MONEY!” 🔥🔥🔥🔥🔥 https://t.co/qcz4IVkA6r
+- [14:18 UTC - Repost of @FBIDirectorKash: As my good friend @TheSlyStallone says…. “It ain’t about how h...](2062539405819093466/)
+  - Source: https://x.com/FBIDirectorKash/status/2062539405819093466
+  - Repost of @FBIDirectorKash: As my good friend @TheSlyStallone says…. “It ain’t about how hard you hit. It’s about how hard you can get hit and keep moving forward; how much you can...
+- [11:23 UTC - FOLLOW THE MONEY! This @FBI and @DAGToddBlanche won’t let “companies” get away with fraud ...](2062495527258800593/)
+  - Source: https://x.com/FBIDirectorKash/status/2062495527258800593
+  - FOLLOW THE MONEY! This @FBI and @DAGToddBlanche won’t let “companies” get away with fraud and deceiving their donors.
+- [10:06 UTC - Repost of @EpochTimes: FBI Director Kash Patel said on June 2 that the FBI will launch ano...](2062476178540081470/)
+  - Source: https://x.com/FBIDirectorKash/status/2062476178540081470
+  - Repost of @EpochTimes: FBI Director Kash Patel said on June 2 that the FBI will launch another nationwide anti-crime operation, dubbed “Operation Summer Heat 2.0,” later this month...
+- [02:09 UTC - Repost of @FBI: Today’s story behind the numbers: This FBI’s Hostage Rescue Team saved 10 ...](2062355992042426384/)
+  - Source: https://x.com/FBIDirectorKash/status/2062355992042426384
+  - Repost of @FBI: Today’s story behind the numbers: This FBI’s Hostage Rescue Team saved 10 hostages from a subject in Bakersfield, California. Yesterday, we saw the best of this FBI...

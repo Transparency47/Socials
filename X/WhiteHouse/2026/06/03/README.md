@@ -1,7 +1,82 @@
 # X / WhiteHouse / 2026-06-03
 
-- Posts: 3
+- Posts: 28
 
+- [23:40 UTC - Mogged. https://t.co/4d2GaKOnEx](2062318641542988097/)
+  - Source: https://x.com/WhiteHouse/status/2062318641542988097
+  - Mogged. https://t.co/4d2GaKOnEx
+- [23:39 UTC - Repost of @SecretaryBurgum: Visited the American Patriots working at the Lincoln Memorial ...](2062318292400795710/)
+  - Source: https://x.com/WhiteHouse/status/2062318292400795710
+  - Repost of @SecretaryBurgum: Visited the American Patriots working at the Lincoln Memorial Reflecting Pool this afternoon to express our gratitude. Thanks to @POTUS, this project wi...
+- [22:52 UTC - 📰 "How acting AG Todd Blanche is delivering a safer, more prosperous America" https://t.co...](2062306383798653086/)
+  - Source: https://x.com/WhiteHouse/status/2062306383798653086
+  - 📰 "How acting AG Todd Blanche is delivering a safer, more prosperous America" https://t.co/mCBqt6bZgE
+- [22:22 UTC - Repost of @DHSgov: Last week, the state of New Jersey’s health inspectors went to Delaney ...](2062298803936305500/)
+  - Source: https://x.com/WhiteHouse/status/2062298803936305500
+  - Repost of @DHSgov: Last week, the state of New Jersey’s health inspectors went to Delaney Hall and didn’t find one SINGLE violation. Compare this to the “DEPLORABLE” conditions of...
+- [22:15 UTC - Repost of @SecWar: America’s warriors are the greatest asset we have—that’s why we are est...](2062297026365132928/)
+  - Source: https://x.com/WhiteHouse/status/2062297026365132928
+  - Repost of @SecWar: America’s warriors are the greatest asset we have—that’s why we are establishing the Project Patriot Pipeline. This initiative creates new strategic partnerships...
+- [22:11 UTC - Repost of @CBPCommissioner: Today we signed The Customs Reform Executive Order, putting Am...](2062296114888396902/)
+  - Source: https://x.com/WhiteHouse/status/2062296114888396902
+  - Repost of @CBPCommissioner: Today we signed The Customs Reform Executive Order, putting America First for trade enforcement. It protects domestic industry from unfair competition,...
+- [21:39 UTC - WHAT THEY'RE SAYING: Bill Pulte will be an outstanding Acting Director of National Intelli...](2062287961643692402/)
+  - Source: https://x.com/WhiteHouse/status/2062287961643692402
+  - WHAT THEY'RE SAYING: Bill Pulte will be an outstanding Acting Director of National Intelligence. 🇺🇸 https://t.co/U2YSg2dQF6
+- [20:42 UTC - Repost of @RapidResponse47: .@POTUS signs an Executive Order on strengthening customs enfo...](2062273801367237056/)
+  - Source: https://x.com/WhiteHouse/status/2062273801367237056
+  - Repost of @RapidResponse47: .@POTUS signs an Executive Order on strengthening customs enforcement by using new technologies to ensure that contraband and illegal goods aren't being...
+- [19:57 UTC - President Trump Signs Executive Orders https://t.co/ZS64tOnkEF](2062262351370309967/)
+  - Source: https://x.com/WhiteHouse/status/2062262351370309967
+  - President Trump Signs Executive Orders https://t.co/ZS64tOnkEF
+- [19:35 UTC - AND WE'VE JUST STARTED. 🇺🇸 https://t.co/SCpzFa9avP](2062256884954841532/)
+  - Source: https://x.com/WhiteHouse/status/2062256884954841532
+  - AND WE'VE JUST STARTED. 🇺🇸 https://t.co/SCpzFa9avP
+- [19:19 UTC - Don't act like I never told ya. https://t.co/AXOHbXM9Yb](2062252915734040830/)
+  - Source: https://x.com/WhiteHouse/status/2062252915734040830
+  - Don't act like I never told ya. https://t.co/AXOHbXM9Yb
+- [19:00 UTC - Repost of @WhiteHouse: President Donald J. Trump announces the next step in the administra...](2062248173964251443/)
+  - Source: https://x.com/WhiteHouse/status/2062248173964251443
+  - Repost of @WhiteHouse: President Donald J. Trump announces the next step in the administration’s successful war on crime: the Department of Justice’s Model Cities Initiative, desig...
+- [19:00 UTC - Repost of @DrOzCMS: 160 MORE prescriptions added MILLIONS of dollars saved And MILLIONS of...](2062248106620551345/)
+  - Source: https://x.com/WhiteHouse/status/2062248106620551345
+  - Repost of @DrOzCMS: 160 MORE prescriptions added MILLIONS of dollars saved And MILLIONS of Americans empowered Only at https://t.co/XYW10M4Ib4 https://t.co/bzrykf9gm2
+- [18:03 UTC - While Democrats keep playing their political games and virtue-signaling, the Trump Adminis...](2062233745386565841/)
+  - Source: https://x.com/WhiteHouse/status/2062233745386565841
+  - While Democrats keep playing their political games and virtue-signaling, the Trump Administration is focused on putting America's national security FIRST and making sure the United...
+- [17:34 UTC - Repost of @USTreasury: .@SecScottBessent: “Any one of our initiatives on trade, tax cuts, ...](2062226452418838856/)
+  - Source: https://x.com/WhiteHouse/status/2062226452418838856
+  - Repost of @USTreasury: .@SecScottBessent: “Any one of our initiatives on trade, tax cuts, and deregulation would be substantial. Taken together, they are transformative. Before @PO...
+- [17:25 UTC - President Trump joins Pod Force One to break down Iran negotiations, SAVE America Act and ...](2062224075976573076/)
+  - Source: https://x.com/WhiteHouse/status/2062224075976573076
+  - President Trump joins Pod Force One to break down Iran negotiations, SAVE America Act and more. 🇺🇸 Watch the key moments in under two minutes. https://t.co/1Kp0aun3Ls
+- [17:24 UTC - Repost of @StateDept: SECRETARY RUBIO: "Mass migration is a national security threat to an...](2062223953175650765/)
+  - Source: https://x.com/WhiteHouse/status/2062223953175650765
+  - Repost of @StateDept: SECRETARY RUBIO: "Mass migration is a national security threat to any country that experiences it." https://t.co/uaMz27yXjN
+- [17:18 UTC - Repost of @DHSgov: “We’ve seen drug seizures go up and the availability of drugs in our ci...](2062222329715782134/)
+  - Source: https://x.com/WhiteHouse/status/2062222329715782134
+  - Repost of @DHSgov: “We’ve seen drug seizures go up and the availability of drugs in our cities go down…that’s because of President Trump’s leadership and the war that we have waged...
+- [16:21 UTC - Repost of @DHSgov: .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delan...](2062208055677219278/)
+  - Source: https://x.com/WhiteHouse/status/2062208055677219278
+  - Repost of @DHSgov: .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delaney Hall with the HORRIFIC conditions at New Jersey State prisons ⬇️ https://t.co/coIWIqLQG...
+- [16:21 UTC - Repost of @Interior: ✅ 22 fountains restored ✅ Graffiti removed ✅ Historic statues cleaned...](2062208033514561588/)
+  - Source: https://x.com/WhiteHouse/status/2062208033514561588
+  - Repost of @Interior: ✅ 22 fountains restored ✅ Graffiti removed ✅ Historic statues cleaned Thanks to @POTUS, we are making our Nation’s Capital safe, beautiful, and worthy of the g...
+- [16:21 UTC - Repost of @DAGToddBlanche: Today, Jamshid Ghomi, a dual U.S.-Iranian citizen who lives in ...](2062207982188855793/)
+  - Source: https://x.com/WhiteHouse/status/2062207982188855793
+  - Repost of @DAGToddBlanche: Today, Jamshid Ghomi, a dual U.S.-Iranian citizen who lives in a $35 million mansion in Orange County, California, was arrested on a federal criminal com...
+- [15:06 UTC - President Donald J. Trump announces the next step in the administration’s successful war o...](2062189195041321191/)
+  - Source: https://x.com/WhiteHouse/status/2062189195041321191
+  - President Donald J. Trump announces the next step in the administration’s successful war on crime: the Department of Justice’s Model Cities Initiative, designed to slash violent cr...
+- [14:56 UTC - LESS THAN TWO WEEKS. UFC FREEDOM 250 X WHITE HOUSE. SUN JUNE 14TH. THE COUNTDOWN IS ON. 🇺🇸...](2062186755978121251/)
+  - Source: https://x.com/WhiteHouse/status/2062186755978121251
+  - LESS THAN TWO WEEKS. UFC FREEDOM 250 X WHITE HOUSE. SUN JUNE 14TH. THE COUNTDOWN IS ON. 🇺🇸 https://t.co/Cd6seF4hL3
+- [13:37 UTC - May private sector job growth BEAT economists' expectations 📈🇺🇸 https://t.co/PoeK9lZI1D](2062166777350521193/)
+  - Source: https://x.com/WhiteHouse/status/2062166777350521193
+  - May private sector job growth BEAT economists' expectations 📈🇺🇸 https://t.co/PoeK9lZI1D
+- [13:30 UTC - Repost of @DHSgov: Chef, Chicken Fried Steak was on the menu for dinner last night. https:...](2062165118461292982/)
+  - Source: https://x.com/WhiteHouse/status/2062165118461292982
+  - Repost of @DHSgov: Chef, Chicken Fried Steak was on the menu for dinner last night. https://t.co/BbNgi3AqO9
 - [00:37 UTC - "I am appointing the Director of the Federal Housing Finance Agency, and Chairman of Fanni...](2061970387349426334/)
   - Source: https://x.com/WhiteHouse/status/2061970387349426334
   - "I am appointing the Director of the Federal Housing Finance Agency, and Chairman of Fannie Mae/Freddie Mac, William J. Pulte, to serve as Acting Director of National Intelligence....

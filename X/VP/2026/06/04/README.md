@@ -1,0 +1,67 @@
+# X / VP / 2026-06-04
+
+- Posts: 21
+
+- [18:56 UTC - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today in Ohio: "Federal ...](2062609380151853101/)
+  - Source: https://x.com/VP/status/2062609380151853101
+  - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today in Ohio: "Federal and state partners have come together as one to battle the fraud crisis that has crippled...
+- [17:37 UTC - Repost of @JDVance: Hawaii state officials stole around $12M from you. The money was suppo...](2062589515991003213/)
+  - Source: https://x.com/VP/status/2062589515991003213
+  - Repost of @JDVance: Hawaii state officials stole around $12M from you. The money was supposed to be used to prosecute fraudsters, but they didn’t indict a single person in 4 years....
+- [16:42 UTC - Repost of @JDVance: If the fraud rate is really as low as Democrats claim, why are they fi...](2062575665459630539/)
+  - Source: https://x.com/VP/status/2062575665459630539
+  - Repost of @JDVance: If the fraud rate is really as low as Democrats claim, why are they fighting so hard to hide the data? Why not just work with USDA to audit and validate where t...
+- [16:09 UTC - Repost of @WHFraudTF: The free rein of fraud is over.](2062567517638266966/)
+  - Source: https://x.com/VP/status/2062567517638266966
+  - Repost of @WHFraudTF: The free rein of fraud is over.
+- [16:09 UTC - Repost of @RapidResponse47: Ohio Attorney General Dave Yost: I have been doing Medicaid in...](2062567421722951771/)
+  - Source: https://x.com/VP/status/2062567421722951771
+  - Repost of @RapidResponse47: Ohio Attorney General Dave Yost: I have been doing Medicaid investigations and prosecutions for almost 16 years, and "I have NEVER had the level of inte...
+- [16:09 UTC - Repost of @DrOzCMS: The War on Fraud will continue until every single health care fraudste...](2062567401170858056/)
+  - Source: https://x.com/VP/status/2062567401170858056
+  - Repost of @DrOzCMS: The War on Fraud will continue until every single health care fraudster is held accountable. Our Medicaid systems will no longer be a piggy bank at the expense...
+- [15:58 UTC - Repost of @SenJoniErnst: 🔥@DAGToddBlanche is cracking down on fraudsters in Ohio for alleg...](2062564674734797215/)
+  - Source: https://x.com/VP/status/2062564674734797215
+  - Repost of @SenJoniErnst: 🔥@DAGToddBlanche is cracking down on fraudsters in Ohio for allegedly billing $30 MILLION for services that were never provided. “We welcome everyone, ever...
+- [15:48 UTC - Repost of @WhiteHouse: President Donald J. Trump announces the next step in the administra...](2062562017504846076/)
+  - Source: https://x.com/VP/status/2062562017504846076
+  - Repost of @WhiteHouse: President Donald J. Trump announces the next step in the administration’s successful war on crime: the Department of Justice’s Model Cities Initiative, desig...
+- [15:47 UTC - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fr...](2062561975389868490/)
+  - Source: https://x.com/VP/status/2062561975389868490
+  - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fraud are over. @VP’s Fraud Task Force is here to fight fraud and deliver for Americans.
+- [15:39 UTC - Repost of @WHFraudTF: “The days of the brazen theft that we’ve seen of taxpayer dollars, a...](2062559770196758702/)
+  - Source: https://x.com/VP/status/2062559770196758702
+  - Repost of @WHFraudTF: “The days of the brazen theft that we’ve seen of taxpayer dollars, abusing the generosity of the American taxpayer, is over.” - @DAGToddBlanche
+- [15:38 UTC - Repost of @RapidResponse47: .@DAGToddBlanche announces the indictment of multiple individu...](2062559710331412650/)
+  - Source: https://x.com/VP/status/2062559710331412650
+  - Repost of @RapidResponse47: .@DAGToddBlanche announces the indictment of multiple individuals, including Ohio state employees, for defrauding taxpayers: "Today, the @TheJusticeDept...
+- [15:38 UTC - Repost of @RapidResponse47: .@DrOzCMS on the healthcare fraud he's seen in Ohio: "Unfortun...](2062559671903257070/)
+  - Source: https://x.com/VP/status/2062559671903257070
+  - Repost of @RapidResponse47: .@DrOzCMS on the healthcare fraud he's seen in Ohio: "Unfortunately, this area around Columbus is responsible for 1/3 of all of the $1.5B spent on home...
+- [15:38 UTC - Repost of @RapidResponse47: in Ohio, @DrOzCMS announces actions taken to root out healthca...](2062559629653975472/)
+  - Source: https://x.com/VP/status/2062559629653975472
+  - Repost of @RapidResponse47: in Ohio, @DrOzCMS announces actions taken to root out healthcare fraud: — Suspending 49 Ohio home healthcare providers who've been identified as high-ri...
+- [15:38 UTC - Repost of @RapidResponse47: Assistant AG Colin McDonald: "Today, Ohio’s fraud-fighting tea...](2062559586490450317/)
+  - Source: https://x.com/VP/status/2062559586490450317
+  - Repost of @RapidResponse47: Assistant AG Colin McDonald: "Today, Ohio’s fraud-fighting team is uniting with us in historic ways to contribute uniquely to the fight against fraud. A...
+- [15:38 UTC - Repost of @RapidResponse47: 🚨 @SBA_Kelly in Ohio: "Today, I’m here to announce suspensions...](2062559572938662152/)
+  - Source: https://x.com/VP/status/2062559572938662152
+  - Repost of @RapidResponse47: 🚨 @SBA_Kelly in Ohio: "Today, I’m here to announce suspensions for over 27,000 Ohio borrowers tied to $1.1B in suspected PPP fraud... This task force is...
+- [15:38 UTC - Repost of @TheJusticeDept: Today we're announcing unprecedented federal & state cooperatio...](2062559564009001089/)
+  - Source: https://x.com/VP/status/2062559564009001089
+  - Repost of @TheJusticeDept: Today we're announcing unprecedented federal & state cooperation in Ohio in the fight against fraud, including: ✅Partnerships & a data sharing agreement...
+- [15:38 UTC - Repost of @RapidResponse47: .@DAGToddBlanche in Ohio: "The team behind me, federal and sta...](2062559508925169701/)
+  - Source: https://x.com/VP/status/2062559508925169701
+  - Repost of @RapidResponse47: .@DAGToddBlanche in Ohio: "The team behind me, federal and state partners, have come together as one, to battle what is a fraud crisis in this country....
+- [15:37 UTC - Repost of @RapidResponse47: .@FBIDirectorKash unveils a new FBI Most Wanted Fraudsters lis...](2062559466415878207/)
+  - Source: https://x.com/VP/status/2062559466415878207
+  - Repost of @RapidResponse47: .@FBIDirectorKash unveils a new FBI Most Wanted Fraudsters list at a press conference in Ohio: "I want all Americans to take a look at these Most Wanted...
+- [15:37 UTC - Repost of @WHFraudTF: Zero tolerance for fraud. 💪🇺🇸 Great work, @SBA_Kelly.](2062559454717976877/)
+  - Source: https://x.com/VP/status/2062559454717976877
+  - Repost of @WHFraudTF: Zero tolerance for fraud. 💪🇺🇸 Great work, @SBA_Kelly.
+- [15:37 UTC - Repost of @WHFraudTF: Tens of millions of dollars meant to help children allegedly stolen ...](2062559439412928841/)
+  - Source: https://x.com/VP/status/2062559439412928841
+  - Repost of @WHFraudTF: Tens of millions of dollars meant to help children allegedly stolen by fraudsters. This is why we’re waging—and winning—the War on Fraud. 🇺🇸
+- [15:37 UTC - Repost of @FBIDirectorKash: Thanks to @VP vision: INTRODUCING: THE FBI TOP 10 MOST WANTED ...](2062559428344217762/)
+  - Source: https://x.com/VP/status/2062559428344217762
+  - Repost of @FBIDirectorKash: Thanks to @VP vision: INTRODUCING: THE FBI TOP 10 MOST WANTED FRAUDSTERS LIST! https://t.co/5AE60EiLVz

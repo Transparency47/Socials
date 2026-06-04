@@ -1,0 +1,31 @@
+# X / FBIDirectorKash / 2026-06-01
+
+- Posts: 9
+
+- [23:41 UTC - June 1: FBI cracking down on hoax threats during @FIFAWorldCup   With 78 matches in 11 U.S...](2061593910250471537/)
+  - Source: https://x.com/FBIDirectorKash/status/2061593910250471537
+  - June 1: FBI cracking down on hoax threats during @FIFAWorldCup With 78 matches in 11 U.S. cities across 39 days, one issue this @FBI is taking incredibly seriously during the tourn...
+- [22:49 UTC - Repost of @FBIBaltimore: 25 years. After an investigation by @FBIBaltimore's Violent Crime...](2061580840136577324/)
+  - Source: https://x.com/FBIDirectorKash/status/2061580840136577324
+  - Repost of @FBIBaltimore: 25 years. After an investigation by @FBIBaltimore's Violent Crimes Against Children Squad, 25-year-old Isaiah Poole of Suitland, Maryland, is headed to fed...
+- [22:48 UTC - Repost of @FBI: Today the FBI officially welcomed the newest class of the FBI Honors Inter...](2061580688638251500/)
+  - Source: https://x.com/FBIDirectorKash/status/2061580688638251500
+  - Repost of @FBI: Today the FBI officially welcomed the newest class of the FBI Honors Internship Program – an exceptional group of students bringing incredible experience, academic...
+- [21:03 UTC - Repost of @FBI: Today’s story behind the numbers: This FBI and long prison terms for a pai...](2061554286740254761/)
+  - Source: https://x.com/FBIDirectorKash/status/2061554286740254761
+  - Repost of @FBI: Today’s story behind the numbers: This FBI and long prison terms for a pair of vile online predators who targeted young girls. Michael David Bledsoe and Joseph Bran...
+- [20:37 UTC - Rest in Peace, Deputy Sheriff Logan Utt of the Carroll County Sheriff’s Office in Virginia...](2061547761346949554/)
+  - Source: https://x.com/FBIDirectorKash/status/2061547761346949554
+  - Rest in Peace, Deputy Sheriff Logan Utt of the Carroll County Sheriff’s Office in Virginia. End of Watch: May 29, 2026. Deputy Sheriff Utt was a military veteran and served with th...
+- [19:21 UTC - Repost of @FBI: CASE UPDATE from @FBINewark and @NewYorkFBI: Brooklyn Man Charged with Thr...](2061528563015168133/)
+  - Source: https://x.com/FBIDirectorKash/status/2061528563015168133
+  - Repost of @FBI: CASE UPDATE from @FBINewark and @NewYorkFBI: Brooklyn Man Charged with Threatening to Assault and Murder ICE Officer and His Family Nicholas Matthew Scelfo was arre...
+- [18:19 UTC - Last week: the @FBI's Critical Incident Response Group (CIRG) and the Bomb Technician Memo...](2061513032094671331/)
+  - Source: https://x.com/FBIDirectorKash/status/2061513032094671331
+  - Last week: the @FBI's Critical Incident Response Group (CIRG) and the Bomb Technician Memorial Foundation hosted the annual Bomb Technician Memorial Ceremony on the campus of the H...
+- [13:12 UTC - Repost of @FBIRichmond: The FBI is grateful for the unwavering commitment shown by every a...](2061435636482003413/)
+  - Source: https://x.com/FBIDirectorKash/status/2061435636482003413
+  - Repost of @FBIRichmond: The FBI is grateful for the unwavering commitment shown by every agency involved in bringing this manhunt to a successful conclusion. Thanks to the relentle...
+- [11:33 UTC - President Trump’s law enforcement team is wiping out criminal networks in America at level...](2061410726841913703/)
+  - Source: https://x.com/FBIDirectorKash/status/2061410726841913703
+  - President Trump’s law enforcement team is wiping out criminal networks in America at levels never seen before https://t.co/rAYDvhaS2n

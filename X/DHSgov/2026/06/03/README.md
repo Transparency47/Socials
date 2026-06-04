@@ -1,7 +1,79 @@
 # X / DHSgov / 2026-06-03
 
-- Posts: 2
+- Posts: 26
 
+- [23:06 UTC - Import the third world, become the third world.](2062309973841818050/)
+  - Source: https://x.com/DHSgov/status/2062309973841818050
+  - Import the third world, become the third world.
+- [22:25 UTC - Our @ICEgov law enforcement officers are the best of the best. We will ALWAYS stand with t...](2062299707343315179/)
+  - Source: https://x.com/DHSgov/status/2062299707343315179
+  - Our @ICEgov law enforcement officers are the best of the best. We will ALWAYS stand with these heroes.
+- [21:57 UTC - .@USCIS has revealed RAMPANT fraud in juvenile immigrant claims. For years, state court ju...](2062292559289086415/)
+  - Source: https://x.com/DHSgov/status/2062292559289086415
+  - .@USCIS has revealed RAMPANT fraud in juvenile immigrant claims. For years, state court judges failed to verify whether THOUSANDS of illegal alien minors actually met the requireme...
+- [21:39 UTC - Last week, the state of New Jersey’s health inspectors went to Delaney Hall and didn’t fin...](2062288015532175579/)
+  - Source: https://x.com/DHSgov/status/2062288015532175579
+  - Last week, the state of New Jersey’s health inspectors went to Delaney Hall and didn’t find one SINGLE violation. Compare this to the “DEPLORABLE” conditions of the New Jersey stat...
+- [21:17 UTC - Yesterday, our best of the best @ICEgov law enforcement officers arrested MORE worst of th...](2062282537268072683/)
+  - Source: https://x.com/DHSgov/status/2062282537268072683
+  - Yesterday, our best of the best @ICEgov law enforcement officers arrested MORE worst of the worst criminal illegal aliens terrorizing our communities, including murderers, sexual p...
+- [20:38 UTC - WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by Massachusetts sanct...](2062272773964075415/)
+  - Source: https://x.com/DHSgov/status/2062272773964075415
+  - WATCH: @EROBoston ARRESTS a criminal illegal alien who was RELEASED by Massachusetts sanctuary politicians after hospitalizing a State Trooper. Lucas Gustavo Dibenedetto, a crimina...
+- [20:23 UTC - Repost of @RapidResponse47: .@CBPCommissioner Rodney Scott explains @POTUS' new customs Ex...](2062269043487219881/)
+  - Source: https://x.com/DHSgov/status/2062269043487219881
+  - Repost of @RapidResponse47: .@CBPCommissioner Rodney Scott explains @POTUS' new customs Executive Order: "It's America First in the trade environment. Like we've been doing on the...
+- [19:28 UTC - Let this be a warning: if you are in our nation illegally, we will find you, we will arres...](2062255207786918027/)
+  - Source: https://x.com/DHSgov/status/2062255207786918027
+  - Let this be a warning: if you are in our nation illegally, we will find you, we will arrest you, and you will be REMOVED. There are NO exceptions. Go home today or be arrested: htt...
+- [19:05 UTC - Repost of @SecMullinDHS: I’m thankful that the victims and their families finally get the ...](2062249355227066481/)
+  - Source: https://x.com/DHSgov/status/2062249355227066481
+  - Repost of @SecMullinDHS: I’m thankful that the victims and their families finally get the justice they deserve. Tren de Aragua is one of the most vicious gangs on planet earth. The...
+- [18:48 UTC - 🚨MORE illegal alien violence in Sanctuary Spanberger’s Virginia. Cristian Romario Saenz-Ar...](2062245027162505691/)
+  - Source: https://x.com/DHSgov/status/2062245027162505691
+  - 🚨MORE illegal alien violence in Sanctuary Spanberger’s Virginia. Cristian Romario Saenz-Argueta, a DEMENTED illegal alien from El Salvador, now faces felony charges for RAPING a gi...
+- [18:24 UTC - SANCTUARY SLAUGHTER. @CAGovernor RELEASED a criminal illegal alien who went on to KILL a 2...](2062238970516226282/)
+  - Source: https://x.com/DHSgov/status/2062238970516226282
+  - SANCTUARY SLAUGHTER. @CAGovernor RELEASED a criminal illegal alien who went on to KILL a 2-week-old baby. This is yet another preventable tragedy caused by Gavin Newsom’s DERANGED...
+- [17:22 UTC - Welcome to the team, patriot.](2062223353700602155/)
+  - Source: https://x.com/DHSgov/status/2062223353700602155
+  - Welcome to the team, patriot.
+- [16:46 UTC - “I have ZERO tolerance. If you verbally assault our officers, you go after our vehicles…we...](2062214238379057562/)
+  - Source: https://x.com/DHSgov/status/2062214238379057562
+  - “I have ZERO tolerance. If you verbally assault our officers, you go after our vehicles…we will find you, we will arrest you.” @SecMullinDHS https://t.co/Anr1HVKLBa
+- [16:44 UTC - 7 out of the top 10 safest cities in the country cooperate with @ICEgov. Sanctuary politic...](2062213952658874457/)
+  - Source: https://x.com/DHSgov/status/2062213952658874457
+  - 7 out of the top 10 safest cities in the country cooperate with @ICEgov. Sanctuary politicians need to stop choosing to release criminals from their jails. We need cooperation with...
+- [16:25 UTC - “We’ve seen drug seizures go up and the availability of drugs in our cities go down…that’s...](2062209041825243377/)
+  - Source: https://x.com/DHSgov/status/2062209041825243377
+  - “We’ve seen drug seizures go up and the availability of drugs in our cities go down…that’s because of President Trump’s leadership and the war that we have waged against the cartel...
+- [16:24 UTC - “Every death that comes from illegal drugs coming into the country or from someone that en...](2062208716930170912/)
+  - Source: https://x.com/DHSgov/status/2062208716930170912
+  - “Every death that comes from illegal drugs coming into the country or from someone that entered this country illegally is one too many. It should never happen.” @SecMullinDHS https...
+- [16:03 UTC - .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delaney Hall with the HO...](2062203575309111515/)
+  - Source: https://x.com/DHSgov/status/2062203575309111515
+  - .@SecMullinDHS DEBUNKS sanctuary politicians’ hoaxes by comparing Delaney Hall with the HORRIFIC conditions at New Jersey State prisons ⬇️ https://t.co/coIWIqLQGf
+- [15:08 UTC - .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of the most vulnerable...](2062189806201819285/)
+  - Source: https://x.com/DHSgov/status/2062189806201819285
+  - .@HSI_HQ and @ICEgov have taken unprecedented steps to protect some of the most vulnerable victims of the Biden Administration’s border crisis — unaccompanied children. Under the l...
+- [14:57 UTC - The reckless Democrat shutdown of DHS put us behind in our FIFA preparation efforts. Under...](2062187021561397268/)
+  - Source: https://x.com/DHSgov/status/2062187021561397268
+  - The reckless Democrat shutdown of DHS put us behind in our FIFA preparation efforts. Under @SecMullinDHS, we’re working every single day with our state and local law enforcement pa...
+- [14:55 UTC - “ICE every day is taking the worst of the worst off the streets, taking those who entered ...](2062186430839885883/)
+  - Source: https://x.com/DHSgov/status/2062186430839885883
+  - “ICE every day is taking the worst of the worst off the streets, taking those who entered this country illegally off the streets, which is exactly what they were designed to do. CB...
+- [14:35 UTC - “We don’t pick and choose which law we decide to enforce — we enforce the law.” @SecMullin...](2062181373826261495/)
+  - Source: https://x.com/DHSgov/status/2062181373826261495
+  - “We don’t pick and choose which law we decide to enforce — we enforce the law.” @SecMullinDHS https://t.co/NP0pOKbrin
+- [13:46 UTC - SEX OFFENDER ARRESTED. Rufino Varela-Flores, a previously deported criminal illegal from M...](2062168948984971659/)
+  - Source: https://x.com/DHSgov/status/2062168948984971659
+  - SEX OFFENDER ARRESTED. Rufino Varela-Flores, a previously deported criminal illegal from Mexico, was turned over to @ICEgov after local law enforcement arrested him for public into...
+- [12:57 UTC - Chef, Chicken Fried Steak was on the menu for dinner last night. https://t.co/BbNgi3AqO9](2062156765064503793/)
+  - Source: https://x.com/DHSgov/status/2062156765064503793
+  - Chef, Chicken Fried Steak was on the menu for dinner last night. https://t.co/BbNgi3AqO9
+- [12:40 UTC - BABY KILLER: Joaquin Escoto Vazquez, criminal illegal alien from Mexico, has been charged ...](2062152513827074384/)
+  - Source: https://x.com/DHSgov/status/2062152513827074384
+  - BABY KILLER: Joaquin Escoto Vazquez, criminal illegal alien from Mexico, has been charged with homicide and cruelty toward child after he fatally STABBED a 2-week-old baby, the bab...
 - [00:36 UTC - 🚨Authorities have dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON ...](2061970120746881482/)
   - Source: https://x.com/DHSgov/status/2061970120746881482
   - 🚨Authorities have dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine. This seizure and dismantlement of this Jalisco New Generation Cartel tunnel un...

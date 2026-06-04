@@ -1,0 +1,34 @@
+# X / FBIDirectorKash / 2026-06-03
+
+- Posts: 10
+
+- [23:44 UTC - As my good friend @TheSlyStallone says…. “It ain’t about how hard you hit. It’s about how ...](2062319469532151877/)
+  - Source: https://x.com/FBIDirectorKash/status/2062319469532151877
+  - As my good friend @TheSlyStallone says…. “It ain’t about how hard you hit. It’s about how hard you can get hit and keep moving forward; how much you can take and keep moving forwar...
+- [22:07 UTC - It’s simple if you BETRAY this country we will FIND you, and you will face JUSTICE!🇺🇸](2062295248278077682/)
+  - Source: https://x.com/FBIDirectorKash/status/2062295248278077682
+  - It’s simple if you BETRAY this country we will FIND you, and you will face JUSTICE!🇺🇸
+- [20:25 UTC - Repost of @RichardGrenell: I want to thank the @FBI officials for very quick work finding ...](2062269389831807300/)
+  - Source: https://x.com/FBIDirectorKash/status/2062269389831807300
+  - Repost of @RichardGrenell: I want to thank the @FBI officials for very quick work finding and arresting this guy - and @TheJusticeDept for getting a conviction. Left wing violence...
+- [17:59 UTC - Repost of @FBI_Response: Fake News: “FBI isn’t doing anything” FBI: Say hello to Operation...](2062232710777581732/)
+  - Source: https://x.com/FBIDirectorKash/status/2062232710777581732
+  - Repost of @FBI_Response: Fake News: “FBI isn’t doing anything” FBI: Say hello to Operation Spring Cleaning🇺🇸 https://t.co/jaXNxRIQ08
+- [12:25 UTC - 63 arrests, millions of dollars in frozen cryptocurrency, and the removal of more than a m...](2062148599627059307/)
+  - Source: https://x.com/FBIDirectorKash/status/2062148599627059307
+  - 63 arrests, millions of dollars in frozen cryptocurrency, and the removal of more than a million scam-related online accounts! Just cops being allowed to be cops! Thank you @Meta f...
+- [11:33 UTC - Repost of @FBI_Response: We will RELENTLESSLY ATTACK crime in this country! This summer it...](2062135459929641324/)
+  - Source: https://x.com/FBIDirectorKash/status/2062135459929641324
+  - Repost of @FBI_Response: We will RELENTLESSLY ATTACK crime in this country! This summer it’s a BAD TIME to be a BAD GUY!! Operation Summer Heat 2.0 is a GO! https://t.co/ypViWptTUd
+- [04:09 UTC - Repost of @FBI: Launched in April 2026, Operation Steadfast Promise has been an ongoing, h...](2062023840335577098/)
+  - Source: https://x.com/FBIDirectorKash/status/2062023840335577098
+  - Repost of @FBI: Launched in April 2026, Operation Steadfast Promise has been an ongoing, historic FBI campaign established to combat violent crime, fugitive matters, drug trafficki...
+- [02:46 UTC - Repost of @KaelanDC: This operation is beginning 3 weeks earlier than 2025, when FBI secur...](2062002836951490827/)
+  - Source: https://x.com/FBIDirectorKash/status/2062002836951490827
+  - Repost of @KaelanDC: This operation is beginning 3 weeks earlier than 2025, when FBI secured 8,629 arrests, 2,081 indictments, 2,281 firearms seized, and 557 children identified or...
+- [02:45 UTC - Repost of @KaelanDC: 🚨ICYMI: Today FBI under @FBIDirectorKash launched Operation Summer He...](2062002800310063593/)
+  - Source: https://x.com/FBIDirectorKash/status/2062002800310063593
+  - Repost of @KaelanDC: 🚨ICYMI: Today FBI under @FBIDirectorKash launched Operation Summer Heat 2.0, an expanded nationwide crackdown on violent crime and drug trafficking, + announci...
+- [01:29 UTC - Repost of @FBI_Response: .@FBIDirectorKash “This administration—under President Trump—WILL...](2061983586803179655/)
+  - Source: https://x.com/FBIDirectorKash/status/2061983586803179655
+  - Repost of @FBI_Response: .@FBIDirectorKash “This administration—under President Trump—WILL ALWAYS RELENTLESSLY MERCILESSLY, BACK THE BLUE. We will go after every ANIMAL, every PRED...

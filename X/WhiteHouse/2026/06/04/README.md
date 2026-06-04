@@ -1,0 +1,76 @@
+# X / WhiteHouse / 2026-06-04
+
+- Posts: 24
+
+- [18:55 UTC - 🇺🇸🇺🇸 https://t.co/lG35VWalf4](2062609134470517174/)
+  - Source: https://x.com/WhiteHouse/status/2062609134470517174
+  - 🇺🇸🇺🇸 https://t.co/lG35VWalf4
+- [18:51 UTC - Repost of @SecKennedy: June is National Dairy Month, so I joined @RepVanOrden to deliver t...](2062608257328284061/)
+  - Source: https://x.com/WhiteHouse/status/2062608257328284061
+  - Repost of @SecKennedy: June is National Dairy Month, so I joined @RepVanOrden to deliver two simple messages: EAT REAL FOOD. DRINK WHOLE MILK. https://t.co/PP0u5BYNYp
+- [18:22 UTC - ALMOST DONE! 🇺🇸 https://t.co/GRkYsW0Gaj](2062601003300426233/)
+  - Source: https://x.com/WhiteHouse/status/2062601003300426233
+  - ALMOST DONE! 🇺🇸 https://t.co/GRkYsW0Gaj
+- [18:12 UTC - “Our Great ‘Warriors’ who fixed and rebuilt the Reflecting Pool!” - President Donald J. Tr...](2062598441889411517/)
+  - Source: https://x.com/WhiteHouse/status/2062598441889411517
+  - “Our Great ‘Warriors’ who fixed and rebuilt the Reflecting Pool!” - President Donald J. Trump https://t.co/VMLuWunU0x
+- [17:11 UTC - 500 days of winning reached, and we're only scratching the surface. More wins. More result...](2062583150484521053/)
+  - Source: https://x.com/WhiteHouse/status/2062583150484521053
+  - 500 days of winning reached, and we're only scratching the surface. More wins. More results. MORE TO COME. 🇺🇸🇺🇸 https://t.co/EZxVAlTrkM
+- [16:59 UTC - Repost of @RapidResponse47: https://t.co/cGGUQG1Jyy](2062580091062825132/)
+  - Source: https://x.com/WhiteHouse/status/2062580091062825132
+  - Repost of @RapidResponse47: https://t.co/cGGUQG1Jyy
+- [16:31 UTC - "Unlike the Covid response, the CDC’s measures are scientifically justified and tailored t...](2062572966894772655/)
+  - Source: https://x.com/WhiteHouse/status/2062572966894772655
+  - "Unlike the Covid response, the CDC’s measures are scientifically justified and tailored to containment." -  @NIHDirector_Jay https://t.co/oQFv3HDfPw
+- [16:26 UTC - Repost of @Interior: We’re auramaxxing Washington, D.C. ahead of America’s 250th birthday....](2062571689016250469/)
+  - Source: https://x.com/WhiteHouse/status/2062571689016250469
+  - Repost of @Interior: We’re auramaxxing Washington, D.C. ahead of America’s 250th birthday. @SecretaryBurgum recently ordered the massive Arts of War and Arts of Peace equestrian st...
+- [16:26 UTC - Repost of @usedgov: 500 days of @POTUS MAKING EDUCATION GREAT AGAIN with @EDSecMcMahon. 🇺🇸...](2062571651821178960/)
+  - Source: https://x.com/WhiteHouse/status/2062571651821178960
+  - Repost of @usedgov: 500 days of @POTUS MAKING EDUCATION GREAT AGAIN with @EDSecMcMahon. 🇺🇸 https://t.co/ZQpYsPJjAi
+- [15:51 UTC - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fr...](2062562868353024039/)
+  - Source: https://x.com/WhiteHouse/status/2062562868353024039
+  - Repost of @WHFraudTF: .@AFergusonFTC makes it clear: The days of turning a blind eye to fraud are over. @VP’s Fraud Task Force is here to fight fraud and deliver for Americans.
+- [15:44 UTC - Repost of @FBI_Response: . @FBIDirectorKash “What is the FBI doing to combat fraud? It’s p...](2062561123493146744/)
+  - Source: https://x.com/WhiteHouse/status/2062561123493146744
+  - Repost of @FBI_Response: . @FBIDirectorKash “What is the FBI doing to combat fraud? It’s pretty simple…WE FOLLOW THE MONEY!” 🔥🔥🔥🔥🔥 https://t.co/qcz4IVkA6r
+- [15:30 UTC - Patriotic summer is imminent 😎 https://t.co/WySoc0PGz7](2062557618153881612/)
+  - Source: https://x.com/WhiteHouse/status/2062557618153881612
+  - Patriotic summer is imminent 😎 https://t.co/WySoc0PGz7
+- [15:03 UTC - Repost of @TheJusticeDept: Watch Live Today at 11:00 a.m. ET: Acting Attorney General @DAG...](2062550726107107591/)
+  - Source: https://x.com/WhiteHouse/status/2062550726107107591
+  - Repost of @TheJusticeDept: Watch Live Today at 11:00 a.m. ET: Acting Attorney General @DAGToddBlanche to Hold Press Conference on Federal Enforcement Actions in Columbus, Ohio http...
+- [14:53 UTC - Repost of @RapidResponse47: .@SecRollins on combatting the New World screwworm with the co...](2062548316320100589/)
+  - Source: https://x.com/WhiteHouse/status/2062548316320100589
+  - Repost of @RapidResponse47: .@SecRollins on combatting the New World screwworm with the construction of a state-of-the-art sterile fly production facility, FDA treatments: We got i...
+- [13:57 UTC - ONE MONTH UNTIL AMERICA’S 250TH! 🇺🇸🦅 250 years of freedom. 250 years of American greatness...](2062534115040112795/)
+  - Source: https://x.com/WhiteHouse/status/2062534115040112795
+  - ONE MONTH UNTIL AMERICA’S 250TH! 🇺🇸🦅 250 years of freedom. 250 years of American greatness. A patriotic summer has just begun as we gear up for the greatest birthday celebration in...
+- [13:51 UTC - Repost of @RealPNavarro: .@POTUS has renamed the historic Secretary of State Suite in the ...](2062532801451245917/)
+  - Source: https://x.com/WhiteHouse/status/2062532801451245917
+  - Repost of @RealPNavarro: .@POTUS has renamed the historic Secretary of State Suite in the White House complex after an American legend: HENRY CLAY. https://t.co/4iewZa0Mqj
+- [13:23 UTC - Repost of @SecretaryBurgum: Get ready, Patriots! One month until the 4th of July! https://...](2062525703946469718/)
+  - Source: https://x.com/WhiteHouse/status/2062525703946469718
+  - Repost of @SecretaryBurgum: Get ready, Patriots! One month until the 4th of July! https://t.co/VbxTmDhqrG
+- [12:53 UTC - Repost of @CBPCommissioner: Outstanding work by @CBPAMO, @USCG, and our international part...](2062517985252643077/)
+  - Source: https://x.com/WhiteHouse/status/2062517985252643077
+  - Repost of @CBPCommissioner: Outstanding work by @CBPAMO, @USCG, and our international partners. This week, Air Interdiction Agents located a vessel carrying 240 migrants from Haiti...
+- [12:51 UTC - Repost of @SecRollins: This evening, I hosted a call with Texas media alongside @USDA Unde...](2062517673708126282/)
+  - Source: https://x.com/WhiteHouse/status/2062517673708126282
+  - Repost of @SecRollins: This evening, I hosted a call with Texas media alongside @USDA Under Secretary Dudley Hoskins and Texas animal health officials to provide an update on the c...
+- [12:51 UTC - Repost of @DHSgov: MAKE NEW JERSEY SAFE AGAIN While sanctuary politicians spread smears ab...](2062517553595875653/)
+  - Source: https://x.com/WhiteHouse/status/2062517553595875653
+  - Repost of @DHSgov: MAKE NEW JERSEY SAFE AGAIN While sanctuary politicians spread smears about Delaney Hall, @ERONewark is hard at work arresting dangerous criminal illegal aliens f...
+- [12:51 UTC - Repost of @SecretaryTurner: Director @pulte has been an integral part of the team, and we ...](2062517528417517749/)
+  - Source: https://x.com/WhiteHouse/status/2062517528417517749
+  - Repost of @SecretaryTurner: Director @pulte has been an integral part of the team, and we look forward to continuing our work with him as he steps into this new role as the acting...
+- [01:35 UTC - From the border to trade, President Trump is protecting AMERICAN industry. Today, he signe...](2062347513932218478/)
+  - Source: https://x.com/WhiteHouse/status/2062347513932218478
+  - From the border to trade, President Trump is protecting AMERICAN industry. Today, he signed an Executive Order using advanced technology to strengthen customs enforcement - stoppin...
+- [01:28 UTC - Repost of @CommerceGov: The 2026 FIFA World Cup is being played right here in America. Sec...](2062345765402411165/)
+  - Source: https://x.com/WhiteHouse/status/2062345765402411165
+  - Repost of @CommerceGov: The 2026 FIFA World Cup is being played right here in America. Secretary Lutnick and FIFA President Gianni Infantino are excited to welcome fans to 78 match...
+- [00:35 UTC - Repost of @FBIDirectorKash: As my good friend @TheSlyStallone says…. “It ain’t about how h...](2062332425879863542/)
+  - Source: https://x.com/WhiteHouse/status/2062332425879863542
+  - Repost of @FBIDirectorKash: As my good friend @TheSlyStallone says…. “It ain’t about how hard you hit. It’s about how hard you can get hit and keep moving forward; how much you can...

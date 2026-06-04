@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-04
 
-- Posts: 6
+- Posts: 8
 
+- [17:12 UTC - Repost of @DHSgov: The Delaney Hall riot is not random — it is part of a HIGHLY coordinate...](2062583272207515991/)
+  - Source: https://x.com/ICEgov/status/2062583272207515991
+  - Repost of @DHSgov: The Delaney Hall riot is not random — it is part of a HIGHLY coordinated campaign of violence against our officers. Our message is clear: we will find, arrest, a...
+- [16:05 UTC - Juan Ayala Montero, a criminal illegal alien from Mexico, was arrested May 23 for allegedl...](2062566377307718021/)
+  - Source: https://x.com/ICEgov/status/2062566377307718021
+  - Juan Ayala Montero, a criminal illegal alien from Mexico, was arrested May 23 for allegedly opening fire on neighbors with a rifle and injuring at least one person near New Caney,...
 - [13:05 UTC - Jesus Maltos-Chacon is a Mexican criminal illegal alien wanted for homicide and vehicular ...](2062521055692939427/)
   - Source: https://x.com/ICEgov/status/2062521055692939427
   - Jesus Maltos-Chacon is a Mexican criminal illegal alien wanted for homicide and vehicular manslaughter in the death of 20-year-old Blake Zieto in Baton Rouge, LA. He has previous c...
