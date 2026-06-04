@@ -1,6 +1,64 @@
 {
-  "generatedAt": "2026-06-04T22:46:25.378451+00:00",
+  "generatedAt": "2026-06-04T23:58:03.954483+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:276e90078d825d57",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T23:53:34.745673+00:00",
+        "datePublished": "2026-06-04T23:08:59+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062672757456801792.jpg",
+            "remotePath": "archive/x/whitehouse/HKAV8cQWkAAelHh.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAV8cQWkAAelHh.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKAV8cQWkAAelHh.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062672757456801792.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKAV8cQWkAAelHh.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062672997182292421"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062672997182292421/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062672997182292421/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062672997182292421",
+      "summary": "NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp",
+      "title": "NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:5d816d8cdec6afd8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T23:53:34.746112+00:00",
+        "datePublished": "2026-06-04T23:06:34+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062672388349726867"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062672388349726867/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062672388349726867/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062672388349726867",
+      "summary": "Repost of @SecRubio:",
+      "title": "Repost of @SecRubio: For decades, Cuba has been the world capital for radical left-wing te..."
+    },
     {
       "category": "X",
       "date": "2026-06-04",

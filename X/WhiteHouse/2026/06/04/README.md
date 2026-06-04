@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-04
 
-- Posts: 31
+- Posts: 33
 
+- [23:08 UTC - NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp](2062672997182292421/)
+  - Source: https://x.com/WhiteHouse/status/2062672997182292421
+  - NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp
+- [23:06 UTC - Repost of @SecRubio: For decades, Cuba has been the world capital for radical left-wing te...](2062672388349726867/)
+  - Source: https://x.com/WhiteHouse/status/2062672388349726867
+  - Repost of @SecRubio: For decades, Cuba has been the world capital for radical left-wing terrorism. The regime in Havana has recruited, trained and backed violent Marxist and third-...
 - [21:56 UTC - "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautifi...](2062654791671558191/)
   - Source: https://x.com/WhiteHouse/status/2062654791671558191
   - "On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C., now totally beautified, and one of the Safest Cities anywhere in the World, and in celebration of our Country’...
