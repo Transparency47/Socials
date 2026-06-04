@@ -1,0 +1,43 @@
+# X / VP / 2025-12-21
+
+- Posts: 13
+
+- [21:12 UTC - Repost of @RapidResponse47: WATCH IN FULL: @VP @JDVance's powerful speech at @TPUSA Americ...](2002849564269912427/)
+  - Source: https://x.com/VP/status/2002849564269912427
+  - Repost of @RapidResponse47: WATCH IN FULL: @VP @JDVance's powerful speech at @TPUSA AmericaFest 2025 in Phoenix https://t.co/tt3Zg8sDdu
+- [20:43 UTC - Repost of @VPCommsDir: WATCH @VP @JDVance at @TPUSA AmericaFest: “Mobilize with us, don’t ...](2002842482804195740/)
+  - Source: https://x.com/VP/status/2002842482804195740
+  - Repost of @VPCommsDir: WATCH @VP @JDVance at @TPUSA AmericaFest: “Mobilize with us, don’t hand power back to the people who tanked the economy in the first place, join the America...
+- [19:52 UTC - Repost of @RapidResponse47: .@VP: "We believe in taking care of the poor, which is why we ...](2002829649504805046/)
+  - Source: https://x.com/VP/status/2002829649504805046
+  - Repost of @RapidResponse47: .@VP: "We believe in taking care of the poor, which is why we have Medicaid... and it's why we are outraged at the injustice of Tim Walz allowing Somali...
+- [19:52 UTC - Repost of @RapidResponse47: .@VP: "Only God can promise you salvation in Heaven — but toge...](2002829456726282274/)
+  - Source: https://x.com/VP/status/2002829456726282274
+  - Repost of @RapidResponse47: .@VP: "Only God can promise you salvation in Heaven — but together, we can fulfill the promise of the greatest nation in the history of the Earth." http...
+- [19:46 UTC - Repost of @RapidResponse47: .@VP: "The only thing that has truly served as an anchor of th...](2002828153488900503/)
+  - Source: https://x.com/VP/status/2002828153488900503
+  - Repost of @RapidResponse47: .@VP: "The only thing that has truly served as an anchor of the United States of America is that we have been — and by the grace of God, we always will...
+- [19:32 UTC - Repost of @RapidResponse47: .@VP: "More than 2.5 million illegal immigrants have left the ...](2002824625768837399/)
+  - Source: https://x.com/VP/status/2002824625768837399
+  - Repost of @RapidResponse47: .@VP: "More than 2.5 million illegal immigrants have left the United States — the first time in over 50 years that we have had negative net migration......
+- [19:32 UTC - Repost of @RapidResponse47: .@VP: "There is so much more to be done, and the people saying...](2002824437788561530/)
+  - Source: https://x.com/VP/status/2002824437788561530
+  - Repost of @RapidResponse47: .@VP: "There is so much more to be done, and the people saying, 'We need to be doing more, we need to be doing it faster' — trust me, I hear you. Greatn...
+- [19:27 UTC - Repost of @RapidResponse47: The crowd roars as @VP takes the stage at @TPUSA AmericaFest i...](2002823281146318931/)
+  - Source: https://x.com/VP/status/2002823281146318931
+  - Repost of @RapidResponse47: The crowd roars as @VP takes the stage at @TPUSA AmericaFest in Phoenix 🇺🇸 https://t.co/E2DZkIjTRp
+- [19:27 UTC - Repost of @RapidResponse47: "In the United States of America, you don't have to apologize ...](2002823244857147897/)
+  - Source: https://x.com/VP/status/2002823244857147897
+  - Repost of @RapidResponse47: "In the United States of America, you don't have to apologize for being White anymore," says @VP. "We don't persecute you for being male, for being stra...
+- [19:22 UTC - Repost of @RapidResponse47: .@VP: "@POTUS did not build the greatest coalition in politics...](2002822000834973958/)
+  - Source: https://x.com/VP/status/2002822000834973958
+  - Repost of @RapidResponse47: .@VP: "@POTUS did not build the greatest coalition in politics by running his supporters through endless, self-defeating purity tests. He says, 'Make Am...
+- [19:17 UTC - Repost of @RapidResponse47: WATCH: @VP is introduced at @TPUSA's AmericaFest 2025 🔥 https:...](2002820666647859286/)
+  - Source: https://x.com/VP/status/2002820666647859286
+  - Repost of @RapidResponse47: WATCH: @VP is introduced at @TPUSA's AmericaFest 2025 🔥 https://t.co/WtpJ9zsW0M
+- [19:09 UTC - Vice President JD Vance Delivers Remarks at Turning Point USA’s America Fest https://t.co/...](2002818843815694591/)
+  - Source: https://x.com/VP/status/2002818843815694591
+  - Vice President JD Vance Delivers Remarks at Turning Point USA’s America Fest https://t.co/113yipkVOq
+- [14:50 UTC - Repost of @WhiteHouse: More American jobs. American energy. Lower inflation. The most succ...](2002753495791976733/)
+  - Source: https://x.com/VP/status/2002753495791976733
+  - Repost of @WhiteHouse: More American jobs. American energy. Lower inflation. The most successful first year. We finally have a President who puts AMERICA FIRST. 🇺🇸🦅 https://t.co/Lx...

@@ -1,0 +1,64 @@
+# X / VP / 2026-02-04
+
+- Posts: 20
+
+- [23:58 UTC - Repost of @SecRubio: At today's Critical Minerals Ministerial with @VP Vance we joined eff...](2019199000759709925/)
+  - Source: https://x.com/VP/status/2019199000759709925
+  - Repost of @SecRubio: At today's Critical Minerals Ministerial with @VP Vance we joined efforts with global partners to build more secure and resilient critical mineral supply chain...
+- [23:58 UTC - VP Vance on the Trump Administration's progress towards restoring affordability to the Ame...](2019198992169451750/)
+  - Source: https://x.com/VP/status/2019198992169451750
+  - VP Vance on the Trump Administration's progress towards restoring affordability to the American people: “The average American household has gained about $1,200 during the Trump adm...
+- [23:58 UTC - Repost of @RapidResponse47: .@POTUS: "@VP is fantastic and @SecRubio is fantastic. They're...](2019198984561230314/)
+  - Source: https://x.com/VP/status/2019198984561230314
+  - Repost of @RapidResponse47: .@POTUS: "@VP is fantastic and @SecRubio is fantastic. They're both doing a great job... One is slightly more diplomatic than the other. I think they're...
+- [21:05 UTC - Repost of @VPDCOS: Vice President @JDVance on Iran's nuclear ambitions: "Iran cannot have ...](2019155274737889396/)
+  - Source: https://x.com/VP/status/2019155274737889396
+  - Repost of @VPDCOS: Vice President @JDVance on Iran's nuclear ambitions: "Iran cannot have a nuclear weapon. That's the stated policy goal of the President...We know the history. Th...
+- [20:47 UTC - Repost of @MegynKellyShow: "The performative politics of Washington - and a lot of the peo...](2019150961332351170/)
+  - Source: https://x.com/VP/status/2019150961332351170
+  - Repost of @MegynKellyShow: "The performative politics of Washington - and a lot of the people who live in Washington - is very weird to me..." @VP @JDVance on the most absurd thing...
+- [20:47 UTC - Repost of @MegynKellyShow: "Don, no one objected to you standing outside the church and pr...](2019150939765039148/)
+  - Source: https://x.com/VP/status/2019150939765039148
+  - Repost of @MegynKellyShow: "Don, no one objected to you standing outside the church and protesting. No one's saying you can't protest the Trump administration..." @VP @JDVance reac...
+- [20:47 UTC - Repost of @MegynKellyShow: "We're not worried about the next three years, we're worried ab...](2019150892113547667/)
+  - Source: https://x.com/VP/status/2019150892113547667
+  - Repost of @MegynKellyShow: "We're not worried about the next three years, we're worried about the next 30 years..." @VP @JDVance on how the Trump admin can avoid another Middle Eas...
+- [19:47 UTC - Repost of @RapidResponse47: .@VP on the SAVE Act: "We're working very hard right now to ge...](2019135721727226195/)
+  - Source: https://x.com/VP/status/2019135721727226195
+  - Repost of @RapidResponse47: .@VP on the SAVE Act: "We're working very hard right now to get the Senate to approve it... this is about the integrity of American democracy... We want...
+- [19:39 UTC - Repost of @RapidResponse47: "There's clear movement from where there was say, four, five m...](2019133795090460768/)
+  - Source: https://x.com/VP/status/2019133795090460768
+  - Repost of @RapidResponse47: "There's clear movement from where there was say, four, five months ago. I think that's a good thing," says @VP on affordability. "The average American...
+- [19:39 UTC - Repost of @RapidResponse47: .@VP on @POTUS: If Washington is an insincere place, he is lik...](2019133782885097512/)
+  - Source: https://x.com/VP/status/2019133782885097512
+  - Repost of @RapidResponse47: .@VP on @POTUS: If Washington is an insincere place, he is like the polar opposite. He just says what's on his mind... He is in private exactly like he...
+- [17:13 UTC - Repost of @VPDCOS: 🚨Washington Examiner: US seeks trading bloc to counter China grip on cr...](2019096973601640482/)
+  - Source: https://x.com/VP/status/2019096973601640482
+  - Repost of @VPDCOS: 🚨Washington Examiner: US seeks trading bloc to counter China grip on critical minerals, Vance says "The arrangement would help guard against China using its domi...
+- [15:47 UTC - Vice President JD Vance announces international plan for critical minerals: “Together, we ...](2019075361724666273/)
+  - Source: https://x.com/VP/status/2019075361724666273
+  - Vice President JD Vance announces international plan for critical minerals: “Together, we want members to form a trading bloc among allies and partners. One that guarantees America...
+- [15:41 UTC - Repost of @RapidResponse47: 🚨 @VP invites allies to form a critical minerals trading bloc:...](2019073898113798554/)
+  - Source: https://x.com/VP/status/2019073898113798554
+  - Repost of @RapidResponse47: 🚨 @VP invites allies to form a critical minerals trading bloc: "For those of you who join, we offer you a necessary foundation for private financing, an...
+- [15:41 UTC - Repost of @RapidResponse47: .@VP to leaders from around the globe: Supply chains that supp...](2019073892522897587/)
+  - Source: https://x.com/VP/status/2019073892522897587
+  - Repost of @RapidResponse47: .@VP to leaders from around the globe: Supply chains that support critical industries can vanish in the blink of an eye, and we in the Trump administrat...
+- [15:41 UTC - Repost of @VPDCOS: 🚨WATCH: Vice President @JDVance delivers remarks on US plan for critica...](2019073866941800959/)
+  - Source: https://x.com/VP/status/2019073866941800959
+  - Repost of @VPDCOS: 🚨WATCH: Vice President @JDVance delivers remarks on US plan for critical minerals "Today the international market for critical minerals is failing...Let's make p...
+- [15:01 UTC - Repost of @RapidResponse47: "We know that today, the international market for critical min...](2019063875077914910/)
+  - Source: https://x.com/VP/status/2019063875077914910
+  - Repost of @RapidResponse47: "We know that today, the international market for critical minerals is failing," says @VP. "Let's make the prices more predictable and less erratic, so...
+- [15:01 UTC - Repost of @RapidResponse47: .@VP to world leaders on the importance of a secure critical m...](2019063818492452883/)
+  - Source: https://x.com/VP/status/2019063818492452883
+  - Repost of @RapidResponse47: .@VP to world leaders on the importance of a secure critical minerals supply chain: "This is something where our alliances and our friendships can reall...
+- [14:03 UTC - Vice President JD Vance Delivers Remarks at the Critical Minerals Ministerial https://t.co...](2019049281068429729/)
+  - Source: https://x.com/VP/status/2019049281068429729
+  - Vice President JD Vance Delivers Remarks at the Critical Minerals Ministerial https://t.co/GCUtNTf97p
+- [00:48 UTC - Repost of @JDVance: Jerry Nadler is one of the highest ranking Democrats in the House of R...](2018849231587705066/)
+  - Source: https://x.com/VP/status/2018849231587705066
+  - Repost of @JDVance: Jerry Nadler is one of the highest ranking Democrats in the House of Representatives and he is openly calling for people to shoot federal law enforcement. This...
+- [00:48 UTC - Repost of @VPDCOS: 🚨NY Post: JD Vance explodes at NY Dem Rep. Jerry Nadler ‘openly calling...](2018849193083953229/)
+  - Source: https://x.com/VP/status/2018849193083953229
+  - Repost of @VPDCOS: 🚨NY Post: JD Vance explodes at NY Dem Rep. Jerry Nadler ‘openly calling’ for shooting ICE agents “This is despicable behavior from an elected official and I’m su...

@@ -1,0 +1,40 @@
+# X / VP / 2026-02-10
+
+- Posts: 12
+
+- [22:48 UTC - 📸Vice President Vance in Baku, Azerbaijan, with the President of Azerbaijan Ilham Aliyev. ...](2021355618188263574/)
+  - Source: https://x.com/VP/status/2021355618188263574
+  - 📸Vice President Vance in Baku, Azerbaijan, with the President of Azerbaijan Ilham Aliyev. The two signed a Charter on Strategic Partnership, held bilateral meetings, and delivered...
+- [21:13 UTC - Repost of @VPCommsDir: .@VP @JDVance delivers remarks following the signing https://t.co/D...](2021331717940974008/)
+  - Source: https://x.com/VP/status/2021331717940974008
+  - Repost of @VPCommsDir: .@VP @JDVance delivers remarks following the signing https://t.co/DaxC6bL2Ks
+- [19:13 UTC - Repost of @VPCommsDir: .@VP @JDVance and Azerbaijan President Aliyev sign a charter on str...](2021301518268244212/)
+  - Source: https://x.com/VP/status/2021301518268244212
+  - Repost of @VPCommsDir: .@VP @JDVance and Azerbaijan President Aliyev sign a charter on strategic partnership between the U.S. and Azerbaijan https://t.co/YevGjfLIIT
+- [19:04 UTC - Vice President Vance before departing Armenia this morning: "Part of keeping the peace is ...](2021299243546243436/)
+  - Source: https://x.com/VP/status/2021299243546243436
+  - Vice President Vance before departing Armenia this morning: "Part of keeping the peace is what we're doing today, which is building upon it, making sure that we have the economic i...
+- [18:56 UTC - Repost of @VPCommsDir: .@VP @JDVance and Azerbaijan President Aliyev shake hands https://t...](2021297239285457332/)
+  - Source: https://x.com/VP/status/2021297239285457332
+  - Repost of @VPCommsDir: .@VP @JDVance and Azerbaijan President Aliyev shake hands https://t.co/6hici9u8Vg
+- [18:02 UTC - VP Vance in Azerbaijan: “The president of this country, the PM of Armenia, and, of course,...](2021283673710952899/)
+  - Source: https://x.com/VP/status/2021283673710952899
+  - VP Vance in Azerbaijan: “The president of this country, the PM of Armenia, and, of course, @POTUS, working together, created peace where previously there was war. And, I think in t...
+- [15:26 UTC - Repost of @RapidResponse47: .@VP and Azerbaijani President Ilham Aliyev (@presidentaz) sig...](2021244346079617108/)
+  - Source: https://x.com/VP/status/2021244346079617108
+  - Repost of @RapidResponse47: .@VP and Azerbaijani President Ilham Aliyev (@presidentaz) sign the Charter on Strategic Partnership between the Government of Azerbaijan and the Govern...
+- [15:07 UTC - Vice President JD Vance Delivers Remarks with President Ilham Aliyev of Azerbaijan https:/...](2021239715374985295/)
+  - Source: https://x.com/VP/status/2021239715374985295
+  - Vice President JD Vance Delivers Remarks with President Ilham Aliyev of Azerbaijan https://t.co/5Qebe9wUEI
+- [14:28 UTC - Repost of @RapidResponse47: .@VP and the Second Family arrive in Azerbaijan after a produc...](2021229714812051720/)
+  - Source: https://x.com/VP/status/2021229714812051720
+  - Repost of @RapidResponse47: .@VP and the Second Family arrive in Azerbaijan after a productive visit to Armenia 🇺🇸🇦🇿 https://t.co/uCmsQ0bKOH
+- [14:27 UTC - Repost of @RapidResponse47: .@VP delivers remarks before departing Armenia: "After having ...](2021229646772076618/)
+  - Source: https://x.com/VP/status/2021229646772076618
+  - Repost of @RapidResponse47: .@VP delivers remarks before departing Armenia: "After having been on the ground for 24 hours... I feel very good about where we are. I think @POTUS str...
+- [14:27 UTC - Repost of @VPCommsDir: The Second Family arrives in Azerbaijan https://t.co/ImEKkgemrA](2021229614966677714/)
+  - Source: https://x.com/VP/status/2021229614966677714
+  - Repost of @VPCommsDir: The Second Family arrives in Azerbaijan https://t.co/ImEKkgemrA
+- [10:01 UTC - Repost of @VPCommsDir: .@VP and @SLOTUS lay flowers at the eternal flame and sign the gues...](2021162723858317412/)
+  - Source: https://x.com/VP/status/2021162723858317412
+  - Repost of @VPCommsDir: .@VP and @SLOTUS lay flowers at the eternal flame and sign the guest book on the final day of their visit to Armenia https://t.co/wLtzV3TI1Y

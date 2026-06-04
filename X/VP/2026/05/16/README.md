@@ -1,0 +1,34 @@
+# X / VP / 2026-05-16
+
+- Posts: 10
+
+- [15:33 UTC - VP Vance vows to keep up the fight against fraud in Maine and across the country: "It's no...](2055673007721292097/)
+  - Source: https://x.com/VP/status/2055673007721292097
+  - VP Vance vows to keep up the fight against fraud in Maine and across the country: "It's not just about saving money, its not just about protecting taxpayers, its about protecting Y...
+- [15:26 UTC - Repost of @JDVance: The good people of Maine are fired up and ready to stop the fraudsters...](2055671296009056569/)
+  - Source: https://x.com/VP/status/2055671296009056569
+  - Repost of @JDVance: The good people of Maine are fired up and ready to stop the fraudsters. Great event with my friend @MainePaulLePage. https://t.co/mm2dx6EWGm
+- [15:14 UTC - Repost of @USLaborIG: .@AFergusonFTC is right. Fraudsters moved faster than govt systems. ...](2055668187958517884/)
+  - Source: https://x.com/VP/status/2055668187958517884
+  - Repost of @USLaborIG: .@AFergusonFTC is right. Fraudsters moved faster than govt systems. Now, @WHFraudTF is using AI-driven tools to detect suspicious activity/stop fraudulent pay...
+- [14:52 UTC - Repost of @WHFraudTF: ✅Saving money. ✅Stopping fraud. ✅Just getting started.](2055662576285990915/)
+  - Source: https://x.com/VP/status/2055662576285990915
+  - Repost of @WHFraudTF: ✅Saving money. ✅Stopping fraud. ✅Just getting started.
+- [14:46 UTC - Repost of @SenJoniErnst: 🚨👏@VP is cutting off fraudsters and protecting $1.3 billion in Me...](2055661200940110194/)
+  - Source: https://x.com/VP/status/2055661200940110194
+  - Repost of @SenJoniErnst: 🚨👏@VP is cutting off fraudsters and protecting $1.3 billion in Medicaid funds from fraud-filled California hospices. Every single tax dollar needs to be sp...
+- [14:37 UTC - VP Vance on the fraud that was allowed to run rampant: "The fact that nobody ever asked th...](2055658803081707870/)
+  - Source: https://x.com/VP/status/2055658803081707870
+  - VP Vance on the fraud that was allowed to run rampant: "The fact that nobody ever asked the question is a scandal, but it's one of the things that President of the United States ca...
+- [14:34 UTC - Repost of @RapidResponse47: .@AFergusonFTC explains how the @WHFraudTF is using AI-driven ...](2055658059054088279/)
+  - Source: https://x.com/VP/status/2055658059054088279
+  - Repost of @RapidResponse47: .@AFergusonFTC explains how the @WHFraudTF is using AI-driven technological solutions to stop fraudulent payments from leaving federal agencies: "So muc...
+- [14:22 UTC - Repost of @DHSgov: “Right now…in the Trump Administration, we’re really attacking this fra...](2055655025741812190/)
+  - Source: https://x.com/VP/status/2055655025741812190
+  - Repost of @DHSgov: “Right now…in the Trump Administration, we’re really attacking this fraud problem — @POTUS is engaged, @VP is engaged.” DHS General Counsel James Percival https:...
+- [14:21 UTC - Repost of @RapidResponse47: "For every person that slips through the cracks because of a c...](2055654857910968746/)
+  - Source: https://x.com/VP/status/2055654857910968746
+  - Repost of @RapidResponse47: "For every person that slips through the cracks because of a crooked judge, we're going to get 10 people who actually go to prison," says @VP on prosecu...
+- [14:14 UTC - Repost of @RapidResponse47: .@VP: "We don’t really know how bad the fraud problem is becau...](2055653166205509712/)
+  - Source: https://x.com/VP/status/2055653166205509712
+  - Repost of @RapidResponse47: .@VP: "We don’t really know how bad the fraud problem is because until Donald Trump became president, nobody actually took a serious look at it... What...

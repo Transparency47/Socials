@@ -1,0 +1,43 @@
+# X / VP / 2026-05-15
+
+- Posts: 13
+
+- [21:22 UTC - 📸 Vice President Vance speaks at National Police Week’s Peace Officers Memorial Service in...](2055398539392438367/)
+  - Source: https://x.com/VP/status/2055398539392438367
+  - 📸 Vice President Vance speaks at National Police Week’s Peace Officers Memorial Service in Washington, DC https://t.co/uY5dpV5mBo
+- [21:08 UTC - Repost of @JDVance: National Police Week is a time to celebrate the brave men and women wh...](2055394997738897539/)
+  - Source: https://x.com/VP/status/2055394997738897539
+  - Repost of @JDVance: National Police Week is a time to celebrate the brave men and women who keep our communities safe, but it also serves as a solemn reminder of the incredible sac...
+- [18:07 UTC - VP Vance is fighting fraud and saving billions of dollars for American taxpayers🇺🇸 https:/...](2055349484293399002/)
+  - Source: https://x.com/VP/status/2055349484293399002
+  - VP Vance is fighting fraud and saving billions of dollars for American taxpayers🇺🇸 https://t.co/7GxRa31xbr
+- [16:49 UTC - Repost of @RapidResponse47: .@VP: "We stopped handcuffing the police, and started handcuff...](2055329849300942997/)
+  - Source: https://x.com/VP/status/2055329849300942997
+  - Repost of @RapidResponse47: .@VP: "We stopped handcuffing the police, and started handcuffing more violent criminals. We've restored a culture that supports—not second guesses—our...
+- [16:49 UTC - Repost of @RapidResponse47: .@VP makes a promise to the law enforcement community gathered...](2055329836344725632/)
+  - Source: https://x.com/VP/status/2055329836344725632
+  - Repost of @RapidResponse47: .@VP makes a promise to the law enforcement community gathered at the Capitol: "So long as Donald J. Trump is @POTUS, and so long as I’m the Vice Presid...
+- [16:49 UTC - Repost of @SBA_Kelly: The crackdown is here. In full support and collaboration with @VP an...](2055329736650334269/)
+  - Source: https://x.com/VP/status/2055329736650334269
+  - Repost of @SBA_Kelly: The crackdown is here. In full support and collaboration with @VP and @WHFraudTF, SBA is announcing the suspension of about 1,500 borrowers in Maine associate...
+- [16:49 UTC - Repost of @WHFraudTF: The crackdown is here.](2055329719227142292/)
+  - Source: https://x.com/VP/status/2055329719227142292
+  - Repost of @WHFraudTF: The crackdown is here.
+- [16:49 UTC - Repost of @RapidResponse47: "In the Old Testament, God does not force Isaiah to serve him....](2055329704173883464/)
+  - Source: https://x.com/VP/status/2055329704173883464
+  - Repost of @RapidResponse47: "In the Old Testament, God does not force Isaiah to serve him. Isaiah knew it would not be easy, but he steps up willingly... He accepts God's call to g...
+- [14:25 UTC - Repost of @JDVance: Fraudsters have been fleecing Americans for too long. That ends now. h...](2055293416553034183/)
+  - Source: https://x.com/VP/status/2055293416553034183
+  - Repost of @JDVance: Fraudsters have been fleecing Americans for too long. That ends now. https://t.co/GssKbqrEKs
+- [14:25 UTC - Repost of @JDVance: There’s a reason President Trump is respected by world leaders, and it...](2055293403470946460/)
+  - Source: https://x.com/VP/status/2055293403470946460
+  - Repost of @JDVance: There’s a reason President Trump is respected by world leaders, and it’s because he’s consistently shown a level of strength that we haven’t seen from our Comma...
+- [14:00 UTC - Repost of @WhiteHouse: President Donald J. Trump departs Beijing following a historic summ...](2055287091748057539/)
+  - Source: https://x.com/VP/status/2055287091748057539
+  - Repost of @WhiteHouse: President Donald J. Trump departs Beijing following a historic summit, heading home to the United States. ✈️🇺🇸 https://t.co/5cADuUsTxT
+- [13:59 UTC - Repost of @JDVance: If you commit fraud against taxpayers, we're coming for you. https://t...](2055287055626772697/)
+  - Source: https://x.com/VP/status/2055287055626772697
+  - Repost of @JDVance: If you commit fraud against taxpayers, we're coming for you. https://t.co/do9BZyLcVb
+- [13:59 UTC - Repost of @WhiteHouse: 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX](2055286990040424801/)
+  - Source: https://x.com/VP/status/2055286990040424801
+  - Repost of @WhiteHouse: 📍 Zhongnanhai, Beijing | May 15, 2026 https://t.co/HYVGfH6UGX

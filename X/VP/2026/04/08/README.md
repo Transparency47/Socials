@@ -1,0 +1,43 @@
+# X / VP / 2026-04-08
+
+- Posts: 13
+
+- [19:59 UTC - Repost of @RapidResponse47: .@VP: "@POTUS has made very clear that the United States has a...](2041969123060572593/)
+  - Source: https://x.com/VP/status/2041969123060572593
+  - Repost of @RapidResponse47: .@VP: "@POTUS has made very clear that the United States has a lot of leverage here. We have economic leverage; we've got military leverage... If they b...
+- [19:59 UTC - Repost of @RapidResponse47: .@VP: "We don't want Iran to have the capacity to build a nucl...](2041969109924020379/)
+  - Source: https://x.com/VP/status/2041969109924020379
+  - Repost of @RapidResponse47: .@VP: "We don't want Iran to have the capacity to build a nuclear weapon. @POTUS has also said that we don't want Iran enriching towards a nuclear weapo...
+- [19:59 UTC - Repost of @RapidResponse47: .@VP: "The United States has certain demands, and certain thin...](2041969084674265201/)
+  - Source: https://x.com/VP/status/2041969084674265201
+  - Repost of @RapidResponse47: .@VP: "The United States has certain demands, and certain things that we want... the more that they're willing to give us, I think the more they're goin...
+- [19:48 UTC - Repost of @RapidResponse47: .@VP: "We are seeing signs that the Straits are starting to re...](2041966361807634643/)
+  - Source: https://x.com/VP/status/2041966361807634643
+  - Repost of @RapidResponse47: .@VP: "We are seeing signs that the Straits are starting to reopen... The deal is a ceasefire, a negotiation — that's what we give — and what they give...
+- [19:48 UTC - Repost of @RapidResponse47: .@VP: "The Iranians thought that the ceasefire included Lebano...](2041966351179272565/)
+  - Source: https://x.com/VP/status/2041966351179272565
+  - Repost of @RapidResponse47: .@VP: "The Iranians thought that the ceasefire included Lebanon and it just didn't. We never made that promise. We never indicated that was going to be...
+- [19:48 UTC - Repost of @RapidResponse47: .@VP: I've seen various organizations like @nytimes, @CNN, and...](2041966328219680802/)
+  - Source: https://x.com/VP/status/2041966328219680802
+  - Repost of @RapidResponse47: .@VP: I've seen various organizations like @nytimes, @CNN, and others pick up and run the original 10-point proposal based on little more than a random...
+- [18:26 UTC - Repost of @RapidResponse47: .@PressSec: "@VP has played very significant and a key role in...](2041945899409060287/)
+  - Source: https://x.com/VP/status/2041945899409060287
+  - Repost of @RapidResponse47: .@PressSec: "@VP has played very significant and a key role in this since the very beginning. Of course, he’s @POTUS' right hand man...he’s been involve...
+- [17:50 UTC - Repost of @VPCommsDir: 🔥 EXCLUSIVE: @VP’s Anti-Fraud Task Force Uncovers $6 Billion In Sus...](2041936732338135520/)
+  - Source: https://x.com/VP/status/2041936732338135520
+  - Repost of @VPCommsDir: 🔥 EXCLUSIVE: @VP’s Anti-Fraud Task Force Uncovers $6 Billion In Suspected Fraudulent Government Contracts https://t.co/Iuzsp4rD3o
+- [17:50 UTC - Repost of @RapidResponse47: .@VP in Hungary: "Foreign influence is when other governments ...](2041936720644469236/)
+  - Source: https://x.com/VP/status/2041936720644469236
+  - Repost of @RapidResponse47: .@VP in Hungary: "Foreign influence is when other governments threaten, cajole, and try to use economic influence to tell you how to vote... That is fun...
+- [17:50 UTC - Repost of @RapidResponse47: .@VP in Hungary: "If think if they negotiate in good faith, we...](2041936704261476740/)
+  - Source: https://x.com/VP/status/2041936704261476740
+  - Repost of @RapidResponse47: .@VP in Hungary: "If think if they negotiate in good faith, we will be able to find a deal — but thats a big 'if,' and ultimately, it's up to the Irania...
+- [17:50 UTC - Repost of @RapidResponse47: .@PressSec: "I can announce that @POTUS is dispatching his neg...](2041936625500864910/)
+  - Source: https://x.com/VP/status/2041936625500864910
+  - Repost of @RapidResponse47: .@PressSec: "I can announce that @POTUS is dispatching his negotiating team, led by @VP, @SEPeaceMissions, and @jaredkushner to Islamabad for talks this...
+- [12:52 UTC - 📸 Vice President Vance speaks at the Mathias Corvinus Collegium in Budapest, Hungary https...](2041861712047988952/)
+  - Source: https://x.com/VP/status/2041861712047988952
+  - 📸 Vice President Vance speaks at the Mathias Corvinus Collegium in Budapest, Hungary https://t.co/IShrPRo1Lv
+- [11:36 UTC - Repost of @VPCommsDir: .@VP reflects on his time at law school and meeting Usha. “Family i...](2041842580720128441/)
+  - Source: https://x.com/VP/status/2041842580720128441
+  - Repost of @VPCommsDir: .@VP reflects on his time at law school and meeting Usha. “Family is always the most important thing.” https://t.co/uMOE7UUZ5Z

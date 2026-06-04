@@ -1,0 +1,34 @@
+# X / VP / 2026-02-26
+
+- Posts: 10
+
+- [20:59 UTC - Repost of @VPCommsDir: “We’re going to fight for our young families to own a home, and tha...](2027126519437427025/)
+  - Source: https://x.com/VP/status/2027126519437427025
+  - Repost of @VPCommsDir: “We’re going to fight for our young families to own a home, and that’s exactly what we’ve been doing for the past year.” — @VP @JDVance https://t.co/Vle5kaF5...
+- [19:53 UTC - Repost of @USTradeRep: One year of Ambassador Greer executing @POTUS’ trade agenda to adva...](2027109754061914575/)
+  - Source: https://x.com/VP/status/2027109754061914575
+  - Repost of @USTradeRep: One year of Ambassador Greer executing @POTUS’ trade agenda to advance American workers' interests: 🤝Delivering deals covering over half the world's populati...
+- [19:44 UTC - VP Vance praises the Trump Admin's economic comeback in the aftermath of the Biden Admin: ...](2027107468808012207/)
+  - Source: https://x.com/VP/status/2027107468808012207
+  - VP Vance praises the Trump Admin's economic comeback in the aftermath of the Biden Admin: “In just one year, the average American has seen a $1,700 increase in take home pay. That...
+- [19:31 UTC - Repost of @JDVance: Democrats complaining about affordability is like an arsonist complain...](2027104286157550061/)
+  - Source: https://x.com/VP/status/2027104286157550061
+  - Repost of @JDVance: Democrats complaining about affordability is like an arsonist complaining about a house fire. Joe Biden caused the inflation crisis. Donald Trump was elected to...
+- [18:51 UTC - Repost of @WhiteHouse: STOPPING NOW: @VP Vance and the whole Trump administration are comm...](2027094173774463110/)
+  - Source: https://x.com/VP/status/2027094173774463110
+  - Repost of @WhiteHouse: STOPPING NOW: @VP Vance and the whole Trump administration are committed to stomping out the pervasive and disturbing Medicare and Medicaid fraud in Minnesot...
+- [18:16 UTC - Repost of @RapidResponse47: .@VP: "The job of your government is not to open your borders,...](2027085336208146645/)
+  - Source: https://x.com/VP/status/2027085336208146645
+  - Repost of @RapidResponse47: .@VP: "The job of your government is not to open your borders, and allow fraudsters to come in and take advantage of you. The job of your government is...
+- [18:16 UTC - Repost of @RapidResponse47: .@VP: "What I think we oughta be working towards is, you build...](2027085318873022511/)
+  - Source: https://x.com/VP/status/2027085318873022511
+  - Repost of @RapidResponse47: .@VP: "What I think we oughta be working towards is, you build those data centers, and electricity costs come down for American citizens instead of goin...
+- [18:00 UTC - Repost of @RapidResponse47: .@VP goes through the economic progress made under the Trump A...](2027081429956354288/)
+  - Source: https://x.com/VP/status/2027081429956354288
+  - Repost of @RapidResponse47: .@VP goes through the economic progress made under the Trump Administration: "Under Joe Biden and the Democrats, the avg. American lost $3,000 in take h...
+- [17:53 UTC - Repost of @RapidResponse47: .@VP: "If anything, the State of the Union should've showed us...](2027079681816531378/)
+  - Source: https://x.com/VP/status/2027079681816531378
+  - Repost of @RapidResponse47: .@VP: "If anything, the State of the Union should've showed us that we cannot give power back to Congressional Democrats." "What kind of a person can't...
+- [17:30 UTC - Vice President JD Vance Delivers Remarks at a Precision Manufacturing Facility in Plover, ...](2027073806494273914/)
+  - Source: https://x.com/VP/status/2027073806494273914
+  - Vice President JD Vance Delivers Remarks at a Precision Manufacturing Facility in Plover, Wisconsin https://t.co/GHpX5LrZI9

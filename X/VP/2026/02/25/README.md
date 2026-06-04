@@ -1,0 +1,205 @@
+# X / VP / 2026-02-25
+
+- Posts: 67
+
+- [22:57 UTC - Repost of @JDVance: The United States of America is a generous country and we take care of...](2026793816578044408/)
+  - Source: https://x.com/VP/status/2026793816578044408
+  - Repost of @JDVance: The United States of America is a generous country and we take care of our own. It's disgraceful that fraudsters out there are taking advantage of programs like...
+- [22:45 UTC - Vice President Vance holds a press conference on the Trump Administration's war on fraud: ...](2026790772721258929/)
+  - Source: https://x.com/VP/status/2026790772721258929
+  - Vice President Vance holds a press conference on the Trump Administration's war on fraud: “People are getting rich off the generosity of American taxpayers...There are kids in Minn...
+- [22:40 UTC - Repost of @WhiteHouse: President Trump demands Congress to act: Lock up dangerous repeat o...](2026789506133663765/)
+  - Source: https://x.com/VP/status/2026789506133663765
+  - Repost of @WhiteHouse: President Trump demands Congress to act: Lock up dangerous repeat offenders &amp; make sure they STAY behind bars. Time to end Democrat soft-on-crime failure...
+- [22:40 UTC - Repost of @WhiteHouse: An emotional moment at last night's State of the Union when Preside...](2026789485690675270/)
+  - Source: https://x.com/VP/status/2026789485690675270
+  - Repost of @WhiteHouse: An emotional moment at last night's State of the Union when President Trump recognized Anna Zarutska, whose daughter Iryna was viciously murdered by a crimin...
+- [22:21 UTC - Repost of @RapidResponse47: .@VP: "The problem is not going after the fraud, the problem i...](2026784736476070358/)
+  - Source: https://x.com/VP/status/2026784736476070358
+  - Repost of @RapidResponse47: .@VP: "The problem is not going after the fraud, the problem is the fact that these programs are being defrauded to begin with. They WILL NOT EXIST. Our...
+- [22:16 UTC - Repost of @RapidResponse47: .@VP: "What we want to see from the Governor of Minnesota, fro...](2026783485604589758/)
+  - Source: https://x.com/VP/status/2026783485604589758
+  - Repost of @RapidResponse47: .@VP: "What we want to see from the Governor of Minnesota, from the entire administration there in Minnesota, is some affirmative steps to make sure tha...
+- [22:00 UTC - Repost of @RapidResponse47: .@VP on autism fraud schemes in Minnesota: "There are kids in ...](2026779477007650999/)
+  - Source: https://x.com/VP/status/2026779477007650999
+  - Repost of @RapidResponse47: .@VP on autism fraud schemes in Minnesota: "There are kids in Minnesota who deserve these services, who need these services, and they're not going to th...
+- [22:00 UTC - Repost of @RapidResponse47: .@VP: "Far too many people have gotten rich by taking what is ...](2026779460683309500/)
+  - Source: https://x.com/VP/status/2026779460683309500
+  - Repost of @RapidResponse47: .@VP: "Far too many people have gotten rich by taking what is best of the American spirit and getting rich off of it instead of providing services to ki...
+- [21:57 UTC - Repost of @VPDCOS: 🚨NY Post: Vice President @JDVance, @DrOzCMS make dramatic move withhold...](2026778590935687478/)
+  - Source: https://x.com/VP/status/2026778590935687478
+  - Repost of @VPDCOS: 🚨NY Post: Vice President @JDVance, @DrOzCMS make dramatic move withholding Minnesota Medicaid funds in first battle in the ‘war on fraud’ https://t.co/UvJYFzD85u
+- [21:55 UTC - Repost of @RapidResponse47: 🚨 @VP: "We have decided to temporarily halt certain amounts of...](2026778119764312274/)
+  - Source: https://x.com/VP/status/2026778119764312274
+  - Repost of @RapidResponse47: 🚨 @VP: "We have decided to temporarily halt certain amounts of Medicaid funding that are going to the state of Minnesota in order to ensure that the sta...
+- [21:47 UTC - Vice President Vance and Administrator Oz Announce Actions to Address Fraud, Waste, and Ab...](2026775999971524899/)
+  - Source: https://x.com/VP/status/2026775999971524899
+  - Vice President Vance and Administrator Oz Announce Actions to Address Fraud, Waste, and Abuse https://t.co/CCUDvYXbQN
+- [18:53 UTC - Vice President Vance and @POTUS at the State of the Union address 🇺🇸 https://t.co/s84En448...](2026732298335388016/)
+  - Source: https://x.com/VP/status/2026732298335388016
+  - Vice President Vance and @POTUS at the State of the Union address 🇺🇸 https://t.co/s84En448tc
+- [17:57 UTC - Repost of @WhiteHouse: Democrats didn't just stay seated for many successes of our nation,...](2026718209143922830/)
+  - Source: https://x.com/VP/status/2026718209143922830
+  - Repost of @WhiteHouse: Democrats didn't just stay seated for many successes of our nation, they refused to stand for the American people. "We really do have a radical fringe in our...
+- [17:14 UTC - Vice President Vance on his new role leading the Trump Administration's War on Fraud: “The...](2026707263600074904/)
+  - Source: https://x.com/VP/status/2026707263600074904
+  - Vice President Vance on his new role leading the Trump Administration's War on Fraud: “The American citizens were ripped off by people who shouldn’t be here, and by politicians who...
+- [17:13 UTC - Repost of @VPDCOS: "The American gov't should stand for American citizens, not illegal ali...](2026707137410355580/)
+  - Source: https://x.com/VP/status/2026707137410355580
+  - Repost of @VPDCOS: "The American gov't should stand for American citizens, not illegal aliens. That shouldn't be controversial, but apparently it was to the Democrats...They were l...
+- [16:59 UTC - Repost of @JDVance: One of the most profound moments of a truly historic speech. While som...](2026703619290959944/)
+  - Source: https://x.com/VP/status/2026703619290959944
+  - Repost of @JDVance: One of the most profound moments of a truly historic speech. While some in Washington prioritize the needs of illegal immigrants, President Trump and this admin...
+- [16:57 UTC - Repost of @JDVance: Under President Trump's leadership, we've accomplished so much to rebu...](2026703088774529181/)
+  - Source: https://x.com/VP/status/2026703088774529181
+  - Repost of @JDVance: Under President Trump's leadership, we've accomplished so much to rebuild the damage done by the previous administration, but I truly believe the best is yet to...
+- [16:57 UTC - Repost of @WhiteHouse: 🇺🇸 @VP &amp; @SpeakerJohnson https://t.co/o8Dd2F6OOk](2026703056964927934/)
+  - Source: https://x.com/VP/status/2026703056964927934
+  - Repost of @WhiteHouse: 🇺🇸 @VP &amp; @SpeakerJohnson https://t.co/o8Dd2F6OOk
+- [16:17 UTC - Repost of @RapidResponse47: .@VP on Team USA's appearance at the State of the Union: "It w...](2026692943021552048/)
+  - Source: https://x.com/VP/status/2026692943021552048
+  - Repost of @RapidResponse47: .@VP on Team USA's appearance at the State of the Union: "It was just a very, very cool moment—a very patriotic moment. But I really think it set the to...
+- [16:03 UTC - Repost of @RapidResponse47: .@VP: We've been engaged in very, very deliberate negotiations...](2026689540195274907/)
+  - Source: https://x.com/VP/status/2026689540195274907
+  - Repost of @RapidResponse47: .@VP: We've been engaged in very, very deliberate negotiations with both the Russians and the Ukrainians... and @POTUS has just set the entire team to t...
+- [16:00 UTC - Repost of @RapidResponse47: .@VP on the war on fraud: "First of all, @TheJusticeDept is go...](2026688771454878007/)
+  - Source: https://x.com/VP/status/2026688771454878007
+  - Repost of @RapidResponse47: .@VP on the war on fraud: "First of all, @TheJusticeDept is going to be investigating, and where possible, throwing fraudsters in prison. It also means...
+- [16:00 UTC - Repost of @RapidResponse47: .@VP: "@POTUS has been as crystal clear as he could be: Iran c...](2026688753859781023/)
+  - Source: https://x.com/VP/status/2026688753859781023
+  - Repost of @RapidResponse47: .@VP: "@POTUS has been as crystal clear as he could be: Iran can't have a nuclear weapon... that is of course what we're trying to accomplish, as the pr...
+- [15:53 UTC - Repost of @RapidResponse47: .@VP on fixing Biden's economic disaster: We are absolutely pu...](2026686895422345591/)
+  - Source: https://x.com/VP/status/2026686895422345591
+  - Repost of @RapidResponse47: .@VP on fixing Biden's economic disaster: We are absolutely pushing that car uphill, but here is the good news: I think we’re about to get over the hump...
+- [15:48 UTC - Repost of @RapidResponse47: .@VP: "Whatever your politics; whatever your views on immigrat...](2026685641732354145/)
+  - Source: https://x.com/VP/status/2026685641732354145
+  - Repost of @RapidResponse47: .@VP: "Whatever your politics; whatever your views on immigration policy, can’t we all stand and clap for an innocent young girl who shouldn’t have been...
+- [15:48 UTC - Repost of @RapidResponse47: .@VP: "'The American government should stand for American citi...](2026685627492626638/)
+  - Source: https://x.com/VP/status/2026685627492626638
+  - Repost of @RapidResponse47: .@VP: "'The American government should stand for American citizens, not illegal aliens,' that shouldn’t be controversial — but apparently, it was to the...
+- [04:01 UTC - President Trump announces VP Vance will be LEADING the administration’s war on fraud: “I a...](2026507933253546301/)
+  - Source: https://x.com/VP/status/2026507933253546301
+  - President Trump announces VP Vance will be LEADING the administration’s war on fraud: “I am officially announcing the war on fraud to be led by our great Vice President JD Vance......
+- [03:54 UTC - Repost of @RapidResponse47: .@POTUS: "For years, large swaths of territory in our region, ...](2026506068705038435/)
+  - Source: https://x.com/VP/status/2026506068705038435
+  - Repost of @RapidResponse47: .@POTUS: "For years, large swaths of territory in our region, including large parts of Mexico...have been controlled by murderous drug cartels. That's w...
+- [03:54 UTC - Repost of @WhiteHouse: MUST WATCH: Dems stay seated in front of angel families & those inj...](2026506009900945487/)
+  - Source: https://x.com/VP/status/2026506009900945487
+  - Repost of @WhiteHouse: MUST WATCH: Dems stay seated in front of angel families & those injured due to criminal illegal alien crime. "Tonight, I'm inviting every legislator to join...
+- [03:54 UTC - Repost of @RapidResponse47: CHILLS: @POTUS reunites Venezuelan woman Alejandra Gonzalez wi...](2026505995011145787/)
+  - Source: https://x.com/VP/status/2026505995011145787
+  - Repost of @RapidResponse47: CHILLS: @POTUS reunites Venezuelan woman Alejandra Gonzalez with her uncle, Enrique, who was arrested and held prisoner for years by the Maduro regime i...
+- [03:53 UTC - Repost of @RapidResponse47: .@POTUS: "America’s Armed Forces overwhelmed all defenses and ...](2026505909938110935/)
+  - Source: https://x.com/VP/status/2026505909938110935
+  - Repost of @RapidResponse47: .@POTUS: "America’s Armed Forces overwhelmed all defenses and utterly defeated the enemy...to end the reign of outlaw dictator Nicolas Maduro, and bring...
+- [03:42 UTC - Repost of @PressSec: Ilhan Omar is very upset that President Trump announced a new @VP led...](2026502933869629817/)
+  - Source: https://x.com/VP/status/2026502933869629817
+  - Repost of @PressSec: Ilhan Omar is very upset that President Trump announced a new @VP led task force to prosecute fraud!
+- [03:41 UTC - Repost of @RapidResponse47: .@POTUS: No nation should ever doubt America’s resolve. We hav...](2026502685218779605/)
+  - Source: https://x.com/VP/status/2026502685218779605
+  - Repost of @RapidResponse47: .@POTUS: No nation should ever doubt America’s resolve. We have the most powerful military on earth — hopefully, we seldom have to use it. It's called P...
+- [03:40 UTC - Repost of @RapidResponse47: .@POTUS: "Under the ceasefire I negotiated, every single hosta...](2026502648254316661/)
+  - Source: https://x.com/VP/status/2026502648254316661
+  - Repost of @RapidResponse47: .@POTUS: "Under the ceasefire I negotiated, every single hostage—both living and dead—has been returned home... And we're working hard to end the 9th wa...
+- [03:30 UTC - Repost of @RapidResponse47: PASS THE SAVE AMERICA ACT — NOW! https://t.co/KV6phF4DIG](2026499905674473870/)
+  - Source: https://x.com/VP/status/2026499905674473870
+  - Repost of @RapidResponse47: PASS THE SAVE AMERICA ACT — NOW! https://t.co/KV6phF4DIG
+- [03:28 UTC - Repost of @RapidResponse47: https://t.co/nZCUhtWxJ9](2026499519123231148/)
+  - Source: https://x.com/VP/status/2026499519123231148
+  - Repost of @RapidResponse47: https://t.co/nZCUhtWxJ9
+- [03:28 UTC - Repost of @WhiteHouse: PRESIDENT OF PEACE🕊️ https://t.co/yrvEitj43q](2026499505424654558/)
+  - Source: https://x.com/VP/status/2026499505424654558
+  - Repost of @WhiteHouse: PRESIDENT OF PEACE🕊️ https://t.co/yrvEitj43q
+- [03:26 UTC - Repost of @RapidResponse47: .@POTUS: "If you agree with this statement then stand up and s...](2026499120295248206/)
+  - Source: https://x.com/VP/status/2026499120295248206
+  - Repost of @RapidResponse47: .@POTUS: "If you agree with this statement then stand up and show your support: the first duty of the American government is to protect American citizen...
+- [03:26 UTC - Repost of @WhiteHouse: America is ONE NATION UNDER GOD.](2026499100854702284/)
+  - Source: https://x.com/VP/status/2026499100854702284
+  - Repost of @WhiteHouse: America is ONE NATION UNDER GOD.
+- [03:26 UTC - Repost of @WhiteHouse: "Homes are for people, not corporations." - President Donald J. Tru...](2026499088292712883/)
+  - Source: https://x.com/VP/status/2026499088292712883
+  - Repost of @WhiteHouse: "Homes are for people, not corporations." - President Donald J. Trump's 2026 State of the Union address https://t.co/ny19ZUptIz
+- [03:26 UTC - Repost of @RapidResponse47: .@POTUS: As we speak, Democrats in this chamber have cut off a...](2026499068231287043/)
+  - Source: https://x.com/VP/status/2026499068231287043
+  - Repost of @RapidResponse47: .@POTUS: As we speak, Democrats in this chamber have cut off all funding for the Department of Homeland Security — the agency responsible for protecting...
+- [03:26 UTC - Repost of @RapidResponse47: .@POTUS honors @MrsErikaKirk in his State of the Union address...](2026499051605155885/)
+  - Source: https://x.com/VP/status/2026499051605155885
+  - Repost of @RapidResponse47: .@POTUS honors @MrsErikaKirk in his State of the Union address: "In Charlie’s memory, we must all come together to reaffirm that America is one nation u...
+- [03:26 UTC - Repost of @RapidResponse47: .@POTUS: Surely we can all agree that no state can be allowed ...](2026499041408815317/)
+  - Source: https://x.com/VP/status/2026499041408815317
+  - Repost of @RapidResponse47: .@POTUS: Surely we can all agree that no state can be allowed to rip children from their parents’ arms and transition them to a new gender against the p...
+- [03:11 UTC - Repost of @WhiteHouse: MAKE AMERICA SAFE AGAIN🇺🇸 https://t.co/NyNcetAHaJ](2026495176349249802/)
+  - Source: https://x.com/VP/status/2026495176349249802
+  - Repost of @WhiteHouse: MAKE AMERICA SAFE AGAIN🇺🇸 https://t.co/NyNcetAHaJ
+- [03:10 UTC - Repost of @RapidResponse47: .@POTUS: "Tonight, although started 4 months ago, I am officia...](2026495027933778397/)
+  - Source: https://x.com/VP/status/2026495027933778397
+  - Repost of @RapidResponse47: .@POTUS: "Tonight, although started 4 months ago, I am officially announcing the war on fraud, to be led by our great @VP... if we're able to find enoug...
+- [03:04 UTC - Repost of @RapidResponse47: This is what the southern border looked like under Joe Biden. ...](2026493523739005409/)
+  - Source: https://x.com/VP/status/2026493523739005409
+  - Repost of @RapidResponse47: This is what the southern border looked like under Joe Biden. Now, the border is totally secured — and Border Patrol has released ZERO illegal aliens in...
+- [03:03 UTC - Repost of @RapidResponse47: .@POTUS: I am also ending the wildly inflated cost of prescrip...](2026493208243413492/)
+  - Source: https://x.com/VP/status/2026493208243413492
+  - Repost of @RapidResponse47: .@POTUS: I am also ending the wildly inflated cost of prescription drugs... Other presidents tried to do it, but they never could. They were all talk an...
+- [03:03 UTC - Repost of @RapidResponse47: .@POTUS: As we ensure that all Americans can profit from a ris...](2026493198902632467/)
+  - Source: https://x.com/VP/status/2026493198902632467
+  - Repost of @RapidResponse47: .@POTUS: As we ensure that all Americans can profit from a rising stock market, let’s also ensure that members of Congress cannot corruptly profit using...
+- [03:02 UTC - Repost of @RapidResponse47: Democrats just refused to stand for a five-year-old child whos...](2026492983940419929/)
+  - Source: https://x.com/VP/status/2026492983940419929
+  - Repost of @RapidResponse47: Democrats just refused to stand for a five-year-old child whose life was forever shattered when the vehicle she was in was rammed by a criminal illegal...
+- [03:01 UTC - Repost of @WhiteHouse: 🚨 President Donald J. Trump announces that ALL working Americans ca...](2026492711566483863/)
+  - Source: https://x.com/VP/status/2026492711566483863
+  - Repost of @WhiteHouse: 🚨 President Donald J. Trump announces that ALL working Americans can have access to a retirement plan that will match their contributions by up to $1,000 eac...
+- [02:54 UTC - Repost of @RapidResponse47: .@POTUS: "As time goes by, I believe that tariffs, paid for by...](2026490857273131364/)
+  - Source: https://x.com/VP/status/2026490857273131364
+  - Repost of @RapidResponse47: .@POTUS: "As time goes by, I believe that tariffs, paid for by foreign countries, will, like in the past, substantially replace the modern-day system of...
+- [02:50 UTC - Repost of @RapidResponse47: "The lowest cash price anywhere" for some of the most popular ...](2026490015253975070/)
+  - Source: https://x.com/VP/status/2026490015253975070
+  - Repost of @RapidResponse47: "The lowest cash price anywhere" for some of the most popular prescription drugs. That's a huge victory for the American people. https://t.co/qDpny1gZzN...
+- [02:50 UTC - Repost of @WhiteHouse: Now, it is our turn. https://t.co/4H1lfDbigg](2026489999835684924/)
+  - Source: https://x.com/VP/status/2026489999835684924
+  - Repost of @WhiteHouse: Now, it is our turn. https://t.co/4H1lfDbigg
+- [02:47 UTC - Repost of @RapidResponse47: .@POTUS: Last year, I urged this Congress to begin that missio...](2026489208714510389/)
+  - Source: https://x.com/VP/status/2026489208714510389
+  - Repost of @RapidResponse47: .@POTUS: Last year, I urged this Congress to begin that mission by passing the largest tax cuts in American history, and our Republican Majorities deliv...
+- [02:45 UTC - Repost of @RapidResponse47: .@POTUS announces that Team USA Gold Medal Hockey hero Connor ...](2026488595247223220/)
+  - Source: https://x.com/VP/status/2026488595247223220
+  - Repost of @RapidResponse47: .@POTUS announces that Team USA Gold Medal Hockey hero Connor Hellebuyck will be awarded the Presidential Medal of Freedom 🇺🇸 https://t.co/ukNLhjSmoh
+- [02:40 UTC - Repost of @WhiteHouse: "Thank you, President Trump, for inviting us to the State of the Un...](2026487559174467807/)
+  - Source: https://x.com/VP/status/2026487559174467807
+  - Repost of @WhiteHouse: "Thank you, President Trump, for inviting us to the State of the Union." 🇺🇸 WATCH: President Trump and the First Lady’s guests thank the President for bringi...
+- [02:40 UTC - Repost of @RapidResponse47: .@POTUS honors World War Two hero Buddy Taggart in his State o...](2026487354030956796/)
+  - Source: https://x.com/VP/status/2026487354030956796
+  - Repost of @RapidResponse47: .@POTUS honors World War Two hero Buddy Taggart in his State of the Union: "Buddy earned many honors, including a Purple Heart and a Bronze Star, came h...
+- [02:40 UTC - Repost of @RapidResponse47: NO TAX ON TIPS. NO TAX ON OVERTIME. NO TAX ON SOCIAL SECURITY ...](2026487324758933814/)
+  - Source: https://x.com/VP/status/2026487324758933814
+  - Repost of @RapidResponse47: NO TAX ON TIPS. NO TAX ON OVERTIME. NO TAX ON SOCIAL SECURITY FOR OUR GREAT SENIORS. BIGGEST TAX CUT IN HISTORY. PROSPERITY. EVERY SINGLE DEMOCRAT VOTED...
+- [02:36 UTC - Repost of @RapidResponse47: .@POTUS: "For all these reasons, I say tonight—Members of Cong...](2026486337906397692/)
+  - Source: https://x.com/VP/status/2026486337906397692
+  - Repost of @RapidResponse47: .@POTUS: "For all these reasons, I say tonight—Members of Congress, THE STATE OF OUR UNION IS STRONG." https://t.co/mlgPBjK2Gg
+- [02:36 UTC - Repost of @WhiteHouse: WE CAN'T STOP WINNING. https://t.co/nXDRtAJtbV](2026486322513207566/)
+  - Source: https://x.com/VP/status/2026486322513207566
+  - Repost of @WhiteHouse: WE CAN'T STOP WINNING. https://t.co/nXDRtAJtbV
+- [02:35 UTC - Repost of @RapidResponse47: OUR COUNTRY IS WINNING AGAIN! CONGRATULATIONS TO OUR INCREDIBL...](2026486291949392030/)
+  - Source: https://x.com/VP/status/2026486291949392030
+  - Repost of @RapidResponse47: OUR COUNTRY IS WINNING AGAIN! CONGRATULATIONS TO OUR INCREDIBLE TEAM USA GOLD MEDAL HOCKEY TEAMS! 🇺🇸 https://t.co/Il7Ggz0O9q
+- [02:32 UTC - Repost of @RapidResponse47: .@POTUS: When I last spoke in this chamber 12 months ago, I ha...](2026485342694469804/)
+  - Source: https://x.com/VP/status/2026485342694469804
+  - Repost of @RapidResponse47: .@POTUS: When I last spoke in this chamber 12 months ago, I had just inherited a nation in crisis. Today, our border is SECURE, our spirit is RESTORED,...
+- [02:31 UTC - Repost of @RapidResponse47: .@POTUS: "In the past 9 months, ZERO illegal aliens have been ...](2026485229448314991/)
+  - Source: https://x.com/VP/status/2026485229448314991
+  - Repost of @RapidResponse47: .@POTUS: "In the past 9 months, ZERO illegal aliens have been admitted to the United States... The flow of deadly fentanyl across our border is down by...
+- [02:31 UTC - Repost of @RapidResponse47: .@POTUS: "Mortgage rates are the lowest in 4 years, and fallin...](2026485214956978586/)
+  - Source: https://x.com/VP/status/2026485214956978586
+  - Repost of @RapidResponse47: .@POTUS: "Mortgage rates are the lowest in 4 years, and falling fast—and the annual cost of the typical new mortgage is down almost $5,000 dollars just...
+- [02:19 UTC - Repost of @RapidResponse47: https://t.co/tFp8obwBv6](2026482166700417051/)
+  - Source: https://x.com/VP/status/2026482166700417051
+  - Repost of @RapidResponse47: https://t.co/tFp8obwBv6
+- [02:19 UTC - Repost of @RapidResponse47: .@POTUS: "This July 4th, we will mark two and a half centuries...](2026482155065319648/)
+  - Source: https://x.com/VP/status/2026482155065319648
+  - Repost of @RapidResponse47: .@POTUS: "This July 4th, we will mark two and a half centuries of liberty and triumph, progress and freedom in the most incredible and exceptional natio...
+- [02:18 UTC - Repost of @WhiteHouse: Inflation is down thanks to President Trump🇺🇸 https://t.co/aD2XYyhm...](2026481998798217402/)
+  - Source: https://x.com/VP/status/2026481998798217402
+  - Repost of @WhiteHouse: Inflation is down thanks to President Trump🇺🇸 https://t.co/aD2XYyhmhz
+- [01:42 UTC - Repost of @RapidResponse47: .@VP enters the House Chamber ahead of President Trump's State...](2026472836769173506/)
+  - Source: https://x.com/VP/status/2026472836769173506
+  - Repost of @RapidResponse47: .@VP enters the House Chamber ahead of President Trump's State of the Union address https://t.co/FGmz630PQa

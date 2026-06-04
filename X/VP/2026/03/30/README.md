@@ -1,0 +1,37 @@
+# X / VP / 2026-03-30
+
+- Posts: 11
+
+- [21:33 UTC - Repost of @SecKennedy: Thank you, @VP Vance, for convening this task force to eliminate fr...](2038731423708790953/)
+  - Source: https://x.com/VP/status/2038731423708790953
+  - Repost of @SecKennedy: Thank you, @VP Vance, for convening this task force to eliminate fraud. At @HHSGov, we are taking decisive action to root out waste, enforce accountability,...
+- [19:58 UTC - Repost of @RapidResponse47: NEW POLL: Nearly six-in-ten Americans say the SAVE America Act...](2038707563223535907/)
+  - Source: https://x.com/VP/status/2038707563223535907
+  - Repost of @RapidResponse47: NEW POLL: Nearly six-in-ten Americans say the SAVE America Act should be passed into law before the midterm elections https://t.co/MJEps83g9O
+- [19:58 UTC - Repost of @RapidResponse47: 🗳️ 81% support requiring a valid ID to vote 🗳️ 74% support req...](2038707549768224897/)
+  - Source: https://x.com/VP/status/2038707549768224897
+  - Repost of @RapidResponse47: 🗳️ 81% support requiring a valid ID to vote 🗳️ 74% support requiring proof of citizenship to vote PASS THE SAVE AMERICA ACT! https://t.co/KhwLABMaAZ
+- [18:55 UTC - “[Fraud] has to stop. The President of the United states has ordered us to stop it, and th...](2038691560276079045/)
+  - Source: https://x.com/VP/status/2038691560276079045
+  - “[Fraud] has to stop. The President of the United states has ordered us to stop it, and that's what this task force is going to do” - Vice President Vance🇺🇸 https://t.co/n9NuWUbnOP
+- [18:13 UTC - Repost of @JDVance: Very proud of my wife, Usha, for launching her podcast today!](2038681073215778892/)
+  - Source: https://x.com/VP/status/2038681073215778892
+  - Repost of @JDVance: Very proud of my wife, Usha, for launching her podcast today!
+- [13:37 UTC - Repost of @WhiteHouse: Fighting for a long term solution for child literacy. 💛 @SLOTUS Ush...](2038611603629691104/)
+  - Source: https://x.com/VP/status/2038611603629691104
+  - Repost of @WhiteHouse: Fighting for a long term solution for child literacy. 💛 @SLOTUS Usha Vance announces "Storytime with the Second Lady", a podcast designed to promote reading...
+- [13:36 UTC - Repost of @RapidResponse47: .@USTreasury Targets Fraud Schemes Exploiting Government Healt...](2038611360234213710/)
+  - Source: https://x.com/VP/status/2038611360234213710
+  - Repost of @RapidResponse47: .@USTreasury Targets Fraud Schemes Exploiting Government Health Care Benefits https://t.co/7X4FqaAmOL
+- [12:49 UTC - Repost of @PressSec: Our amazing @SLOTUS just launched a brand-new podcast to support her ...](2038599408158196109/)
+  - Source: https://x.com/VP/status/2038599408158196109
+  - Repost of @PressSec: Our amazing @SLOTUS just launched a brand-new podcast to support her ongoing childhood literacy efforts, which aim to make reading more accessible to young chi...
+- [12:33 UTC - Repost of @RapidResponse47: .@SLOTUS launches "Storytime with the Second Lady" podcast to ...](2038595493521965089/)
+  - Source: https://x.com/VP/status/2038595493521965089
+  - Repost of @RapidResponse47: .@SLOTUS launches "Storytime with the Second Lady" podcast to promote childhood literacy: "We will have someone come in—a 'special reader,' we're callin...
+- [12:21 UTC - Repost of @WhiteHouse: “The United States of America is in serious discussions with A NEW,...](2038592330714730727/)
+  - Source: https://x.com/VP/status/2038592330714730727
+  - Repost of @WhiteHouse: “The United States of America is in serious discussions with A NEW, AND MORE REASONABLE, REGIME to end our Military Operations in Iran.” - President Donald J...
+- [12:18 UTC - Repost of @SLOTUS: OUT NOW: “Storytime with the Second Lady”, my new podcast for kids! Joi...](2038591770972344447/)
+  - Source: https://x.com/VP/status/2038591770972344447
+  - Repost of @SLOTUS: OUT NOW: “Storytime with the Second Lady”, my new podcast for kids! Join me and my special guests as they read good books out loud and share why they love to rea...

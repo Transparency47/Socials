@@ -1,0 +1,34 @@
+# X / VP / 2026-02-05
+
+- Posts: 10
+
+- [18:02 UTC - Repost of @MegynKellyShow: .@JDVance: "All of the things that divide Americans against eac...](2019471715345051768/)
+  - Source: https://x.com/VP/status/2019471715345051768
+  - Repost of @MegynKellyShow: .@JDVance: "All of the things that divide Americans against each other, that make Americans hate one another, and that make Americans poor and less safe-...
+- [18:02 UTC - Repost of @USAmbItaly: Welcome back to Italy, Mr. @VP Vice President, and welcome to the #...](2019471654494056666/)
+  - Source: https://x.com/VP/status/2019471654494056666
+  - Repost of @USAmbItaly: Welcome back to Italy, Mr. @VP Vice President, and welcome to the #MilanoCortina2026 Olympic Winter Games! We’re honored to have you join us as the world com...
+- [16:53 UTC - Repost of @VPDCOS: 🚨Fox News: Vance, Rubio greet American Winter Olympians in Italy   "The...](2019454383772012792/)
+  - Source: https://x.com/VP/status/2019454383772012792
+  - Repost of @VPDCOS: 🚨Fox News: Vance, Rubio greet American Winter Olympians in Italy "The whole country — Democrat, Republican, Independent — we're all rooting for you, and we're ch...
+- [14:15 UTC - Vice President JD Vance and the Second Family greet Team USA Olympians in Milan, Italy: "I...](2019414633753506049/)
+  - Source: https://x.com/VP/status/2019414633753506049
+  - Vice President JD Vance and the Second Family greet Team USA Olympians in Milan, Italy: "It really brings the country together. Everybody is rooting for you guys and everybody's ch...
+- [11:18 UTC - Repost of @VPCommsDir: .@VP and @SLOTUS take a group photo with Olympic athletes https://t...](2019369991708291449/)
+  - Source: https://x.com/VP/status/2019369991708291449
+  - Repost of @VPCommsDir: .@VP and @SLOTUS take a group photo with Olympic athletes https://t.co/vCdIle7kB3
+- [11:12 UTC - Repost of @VPCommsDir: “The whole country — Democrat, Republican, Independent — we’re all ...](2019368545268953147/)
+  - Source: https://x.com/VP/status/2019368545268953147
+  - Repost of @VPCommsDir: “The whole country — Democrat, Republican, Independent — we’re all rooting for you, we’re all cheering for you, and we know you’re going to make us proud.” —...
+- [11:05 UTC - Repost of @VPCommsDir: .@VP addresses some of the Olympic athletes 🇺🇸 “Everybody’s rooting...](2019366772106014778/)
+  - Source: https://x.com/VP/status/2019366772106014778
+  - Repost of @VPCommsDir: .@VP addresses some of the Olympic athletes 🇺🇸 “Everybody’s rooting for you, everybody’s cheering for you. We’re so excited to be here.” https://t.co/pmzvaLq...
+- [10:29 UTC - Repost of @VPCommsDir: .@VP, @SLOTUS and the Second Family arrive to the Team USA Welcome ...](2019357716473655368/)
+  - Source: https://x.com/VP/status/2019357716473655368
+  - Repost of @VPCommsDir: .@VP, @SLOTUS and the Second Family arrive to the Team USA Welcome Experience https://t.co/4yO1HZwb0U
+- [10:09 UTC - Repost of @VPCommsDir: .@VP @JDVance, @SLOTUS and the entire Second Family arrives in Mila...](2019352734558744669/)
+  - Source: https://x.com/VP/status/2019352734558744669
+  - Repost of @VPCommsDir: .@VP @JDVance, @SLOTUS and the entire Second Family arrives in Milan, Italy https://t.co/Gjezo1PsqB
+- [00:59 UTC - Repost of @VPCommsDir: .@VP and @SLOTUS head to Milan for the Winter Olympics! https://t.c...](2019214347826868370/)
+  - Source: https://x.com/VP/status/2019214347826868370
+  - Repost of @VPCommsDir: .@VP and @SLOTUS head to Milan for the Winter Olympics! https://t.co/tjyDSAtoGr

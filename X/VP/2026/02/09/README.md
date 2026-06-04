@@ -1,0 +1,58 @@
+# X / VP / 2026-02-09
+
+- Posts: 18
+
+- [22:12 UTC - 📸Vice President Vance and @SLOTUS in Yerevan, Armenia, where VP Vance and Prime Minister N...](2020984290654163354/)
+  - Source: https://x.com/VP/status/2020984290654163354
+  - 📸Vice President Vance and @SLOTUS in Yerevan, Armenia, where VP Vance and Prime Minister Nikol Pashinyan signed a historic civil nuclear agreement. https://t.co/ggLWck4soV
+- [18:39 UTC - Repost of @VPCommsDir: .@VP discusses the nuclear agreement between the U.S. and Armenia “...](2020930601172467789/)
+  - Source: https://x.com/VP/status/2020930601172467789
+  - Repost of @VPCommsDir: .@VP discusses the nuclear agreement between the U.S. and Armenia “Peace is not made by cautious people. Peace is not made by people who are too focused on t...
+- [18:39 UTC - Repost of @VPCommsDir: .@VP @JDVance and PM Pashinyan complete historic bilateral meetings...](2020930583984210098/)
+  - Source: https://x.com/VP/status/2020930583984210098
+  - Repost of @VPCommsDir: .@VP @JDVance and PM Pashinyan complete historic bilateral meetings in Armenia https://t.co/GbKSjQKmi0
+- [18:26 UTC - Repost of @VPCommsDir: .@VP @JDVance and PM Pashinyan signed a nuclear cooperation agreeme...](2020927249625788616/)
+  - Source: https://x.com/VP/status/2020927249625788616
+  - Repost of @VPCommsDir: .@VP @JDVance and PM Pashinyan signed a nuclear cooperation agreement between the United States and Armenia https://t.co/GTplitEla3
+- [18:21 UTC - Repost of @VPCommsDir: .@VP speaks at a bilateral meeting with PM Pashinyan https://t.co/N...](2020926095089074520/)
+  - Source: https://x.com/VP/status/2020926095089074520
+  - Repost of @VPCommsDir: .@VP speaks at a bilateral meeting with PM Pashinyan https://t.co/N9ATufSabz
+- [18:08 UTC - Repost of @VPCommsDir: In Yerevan, @VP shakes hands with Armenian Prime Minister Pashinyan...](2020922888585609249/)
+  - Source: https://x.com/VP/status/2020922888585609249
+  - Repost of @VPCommsDir: In Yerevan, @VP shakes hands with Armenian Prime Minister Pashinyan https://t.co/g1PAe0oZBR
+- [18:05 UTC - Repost of @VPCommsDir: The Second Family arrives in Armenia https://t.co/yHUk8A0Gc5](2020921943910645845/)
+  - Source: https://x.com/VP/status/2020921943910645845
+  - Repost of @VPCommsDir: The Second Family arrives in Armenia https://t.co/yHUk8A0Gc5
+- [16:25 UTC - VP Vance on his historic meeting with Armenian Prime Minister Pashinyan: “Peace is not mad...](2020896962262786401/)
+  - Source: https://x.com/VP/status/2020896962262786401
+  - VP Vance on his historic meeting with Armenian Prime Minister Pashinyan: “Peace is not made by people who are too focused on the past. Peace is made by people who are focused on th...
+- [16:24 UTC - Repost of @RapidResponse47: WATCH: @VP highlights the details of some of the recent agreem...](2020896642287759545/)
+  - Source: https://x.com/VP/status/2020896642287759545
+  - Repost of @RapidResponse47: WATCH: @VP highlights the details of some of the recent agreements and partnerships established between the United States and Armenia: 🇺🇸🤝🇦🇲 https://t.c...
+- [16:24 UTC - Repost of @RapidResponse47: .@VP on the TRIPP project in Armenia : "There are a lot of peo...](2020896603880480846/)
+  - Source: https://x.com/VP/status/2020896603880480846
+  - Repost of @RapidResponse47: .@VP on the TRIPP project in Armenia : "There are a lot of people across the world who think that they can make a good return on investment by investing...
+- [16:24 UTC - Repost of @RapidResponse47: .@VP in Armenia: "This is one of the oldest Christian countrie...](2020896592212156528/)
+  - Source: https://x.com/VP/status/2020896592212156528
+  - Repost of @RapidResponse47: .@VP in Armenia: "This is one of the oldest Christian countries in the entire world; a true bedrock of Christian civilization and culture. As a devout C...
+- [15:36 UTC - Repost of @RapidResponse47: .@VP and Armenian Prime Minister Nikol Pashinyan sign an agree...](2020884526482719115/)
+  - Source: https://x.com/VP/status/2020884526482719115
+  - Repost of @RapidResponse47: .@VP and Armenian Prime Minister Nikol Pashinyan sign an agreement on peaceful nuclear cooperation between the U.S. and the Republic of Armenia. https:/...
+- [15:36 UTC - Repost of @RapidResponse47: .@VP in Armenia: "This is a beautiful country — a country that...](2020884503477018931/)
+  - Source: https://x.com/VP/status/2020884503477018931
+  - Repost of @RapidResponse47: .@VP in Armenia: "This is a beautiful country — a country that @POTUS is very proud to partner with... We're not just making peace for Armenia, we're al...
+- [15:18 UTC - WATCH: Vice President JD Vance is wheels down in Armenia, where he will meet with Armenian...](2020880045644869691/)
+  - Source: https://x.com/VP/status/2020880045644869691
+  - WATCH: Vice President JD Vance is wheels down in Armenia, where he will meet with Armenian leaders later today. https://t.co/nCL2iyVFhL
+- [15:16 UTC - Vice President JD Vance Delivers Remarks with Prime Minister Nikol Pashinyan of Armenia ht...](2020879532681507320/)
+  - Source: https://x.com/VP/status/2020879532681507320
+  - Vice President JD Vance Delivers Remarks with Prime Minister Nikol Pashinyan of Armenia https://t.co/SFOPvlWuLM
+- [15:11 UTC - Repost of @RapidResponse47: .@VP in Armenia: "This is a beautiful country... I'm thankful ...](2020878111043195220/)
+  - Source: https://x.com/VP/status/2020878111043195220
+  - Repost of @RapidResponse47: .@VP in Armenia: "This is a beautiful country... I'm thankful for the personal welcome, not just to me personally, but also to my family. This is, of co...
+- [14:50 UTC - Repost of @RapidResponse47: .@VP is greeted by Armenian Prime Minister Nikol Pashinyan at ...](2020872887733825860/)
+  - Source: https://x.com/VP/status/2020872887733825860
+  - Repost of @RapidResponse47: .@VP is greeted by Armenian Prime Minister Nikol Pashinyan at the Presidential Palace in Yerevan https://t.co/joaJTdzZbQ
+- [14:29 UTC - Repost of @RapidResponse47: .@VP, @SLOTUS, and the Second Family arrive in Armenia — the f...](2020867759148589365/)
+  - Source: https://x.com/VP/status/2020867759148589365
+  - Repost of @RapidResponse47: .@VP, @SLOTUS, and the Second Family arrive in Armenia — the first-ever visit to the country by a sitting U.S. President or Vice President. 🇺🇸🇦🇲 https:/...

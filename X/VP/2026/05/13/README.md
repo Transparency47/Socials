@@ -1,0 +1,142 @@
+# X / VP / 2026-05-13
+
+- Posts: 46
+
+- [23:02 UTC - "The generosity of the American people is one of the most amazing things about our country...](2054698771691241580/)
+  - Source: https://x.com/VP/status/2054698771691241580
+  - "The generosity of the American people is one of the most amazing things about our country...I'm proud to lead the effort in our government to finally take fraud seriously." - VP V...
+- [21:19 UTC - Repost of @GovMikeDeWine: Ohio takes all Medicaid fraud allegations seriously and will con...](2054672817421947372/)
+  - Source: https://x.com/VP/status/2054672817421947372
+  - Repost of @GovMikeDeWine: Ohio takes all Medicaid fraud allegations seriously and will continue to work with the Trump Administration to proceed with several new fraud, waste, and...
+- [19:09 UTC - Repost of @SteveScalise: .@POTUS and @VP have made it clear that the days of fraudsters ri...](2054640200819568904/)
+  - Source: https://x.com/VP/status/2054640200819568904
+  - Repost of @SteveScalise: .@POTUS and @VP have made it clear that the days of fraudsters ripping off the American people are OVER. And @WHFraudTF is already proving it: with its fir...
+- [19:05 UTC - Repost of @HHSResponse: “We are going to turn off the money” 🚨 BREAKING: @VP announces tha...](2054639132916199615/)
+  - Source: https://x.com/VP/status/2054639132916199615
+  - Repost of @HHSResponse: “We are going to turn off the money” 🚨 BREAKING: @VP announces that @WHFraudTF is requiring all state Medicaid programs to show they are aggressively prosec...
+- [18:45 UTC - Repost of @RapidResponse47: .@VP: I’m sure there are going to be some politicians who say ...](2054634083897004194/)
+  - Source: https://x.com/VP/status/2054634083897004194
+  - Repost of @RapidResponse47: .@VP: I’m sure there are going to be some politicians who say what we're doing here is harming the Medicaid program. We’re trying to SAVE the Medicaid p...
+- [18:35 UTC - Repost of @SenTuberville: Thank you, @VP and the @WHFraudTF! If it were up to Democrats, t...](2054631689649889496/)
+  - Source: https://x.com/VP/status/2054631689649889496
+  - Repost of @SenTuberville: Thank you, @VP and the @WHFraudTF! If it were up to Democrats, the Somali fraud we saw in Minnesota would be happening in ALL 50 STATES. I’m proud to be l...
+- [18:35 UTC - Repost of @WhiteHouse: 🚨 NOW: VP Vance announces the @WHFraudTF is sending, across 50 Medi...](2054631598771835076/)
+  - Source: https://x.com/VP/status/2054631598771835076
+  - Repost of @WhiteHouse: 🚨 NOW: VP Vance announces the @WHFraudTF is sending, across 50 Medicaid programs, letters that will require them to show they are effectively &amp; aggressiv...
+- [18:32 UTC - Repost of @USLaborIG: Catch me @OANN today! 🇺🇸 I joined @baldwin_daniel_ to talk about @VP...](2054630843079893154/)
+  - Source: https://x.com/VP/status/2054630843079893154
+  - Repost of @USLaborIG: Catch me @OANN today! 🇺🇸 I joined @baldwin_daniel_ to talk about @VP’s @WHFraudTF crackdown on fraudsters stealing from American taxpayers. Making America aff...
+- [18:28 UTC - Repost of @USLaborIG: UI systems have failed taxpayers for far too long. @Sonderling47 and...](2054629831883559289/)
+  - Source: https://x.com/VP/status/2054629831883559289
+  - Repost of @USLaborIG: UI systems have failed taxpayers for far too long. @Sonderling47 and I are taking action alongside @WHFraudTF. @USDOL and @DOLOIG strike teams are moving aggr...
+- [18:24 UTC - Repost of @RapidResponse47: .@VP: "Today, we are sending, across 50 Medicaid programs, let...](2054628978472710289/)
+  - Source: https://x.com/VP/status/2054628978472710289
+  - Repost of @RapidResponse47: .@VP: "Today, we are sending, across 50 Medicaid programs, letters that will require them to show that they are effectively and aggressively prosecuting...
+- [18:23 UTC - Repost of @RapidResponse47: "Guess how many convictions or indictments has Hawaii had over...](2054628679414677904/)
+  - Source: https://x.com/VP/status/2054628679414677904
+  - Repost of @RapidResponse47: "Guess how many convictions or indictments has Hawaii had over the last few years in its Medicaid fraud program. The answer is zero—not a single indictm...
+- [18:15 UTC - Repost of @RapidResponse47: .@VP: "We're announcing that the federal government is deferri...](2054626640131490150/)
+  - Source: https://x.com/VP/status/2054626640131490150
+  - Repost of @RapidResponse47: .@VP: "We're announcing that the federal government is deferring $1.3 billion in Medicaid reimbursements from the state of California — and the simple r...
+- [18:07 UTC - Repost of @WhiteHouse: Vice President JD Vance’s Press Conference on Anti-Fraud Initiative...](2054624639964307612/)
+  - Source: https://x.com/VP/status/2054624639964307612
+  - Repost of @WhiteHouse: Vice President JD Vance’s Press Conference on Anti-Fraud Initiatives https://t.co/rWhzUlmMXz
+- [18:07 UTC - Repost of @RepEliCrane: Cracking down on fraud is critical to protecting these programs fo...](2054624516236534059/)
+  - Source: https://x.com/VP/status/2054624516236534059
+  - Repost of @RepEliCrane: Cracking down on fraud is critical to protecting these programs for those in need and respecting We the People.
+- [18:06 UTC - Repost of @GOPMajorityWhip: No administration has ever taken fraud as seriously as @POTUS ...](2054624379598766277/)
+  - Source: https://x.com/VP/status/2054624379598766277
+  - Repost of @GOPMajorityWhip: No administration has ever taken fraud as seriously as @POTUS and @VP. American taxpayers can rest assured knowing their hard-earned dollars will no lon...
+- [18:02 UTC - Repost of @WHFraudTF: Happening Now!](2054623410957762591/)
+  - Source: https://x.com/VP/status/2054623410957762591
+  - Repost of @WHFraudTF: Happening Now!
+- [17:28 UTC - Repost of @DrOzCMS: Today we’re shutting the door on fraud—preventing new bad actors from ...](2054614653070676007/)
+  - Source: https://x.com/VP/status/2054614653070676007
+  - Repost of @DrOzCMS: Today we’re shutting the door on fraud—preventing new bad actors from entering Medicare while we aggressively identify, investigate, and remove those already ex...
+- [17:25 UTC - Repost of @JDVance: Follow @WHFraudTF for all of our work in rooting out all fraud, no mat...](2054614082347499994/)
+  - Source: https://x.com/VP/status/2054614082347499994
+  - Repost of @JDVance: Follow @WHFraudTF for all of our work in rooting out all fraud, no matter how big or how small
+- [17:09 UTC - Repost of @SecRollins: 🚨No more fraud. No more wasting YOUR taxpayer dollars on crooked sc...](2054610065512935713/)
+  - Source: https://x.com/VP/status/2054610065512935713
+  - Repost of @SecRollins: 🚨No more fraud. No more wasting YOUR taxpayer dollars on crooked schemes and bloated bureaucracy.🚨 @WhiteHouse just launched @WHFraudTF to hunt down every ab...
+- [16:45 UTC - 🇺🇸🇺🇸🇺🇸 https://t.co/NfLUw1ADLB](2054603929699107020/)
+  - Source: https://x.com/VP/status/2054603929699107020
+  - 🇺🇸🇺🇸🇺🇸 https://t.co/NfLUw1ADLB
+- [16:44 UTC - Repost of @USDOL: As members of @VP's Task Force to Eliminate Fraud, Acting Secretary @Son...](2054603582989566313/)
+  - Source: https://x.com/VP/status/2054603582989566313
+  - Repost of @USDOL: As members of @VP's Task Force to Eliminate Fraud, Acting Secretary @Sonderling47 &amp; @DOLOIG are teaming up to restore integrity to our nation's unemployment i...
+- [16:17 UTC - Vice President Vance's Task Force has uncovered BILLIONS in fraud. The work is just beginn...](2054597019814035781/)
+  - Source: https://x.com/VP/status/2054597019814035781
+  - Vice President Vance's Task Force has uncovered BILLIONS in fraud. The work is just beginning https://t.co/DysuWlomr0
+- [16:17 UTC - Repost of @WHFraudTF: The entire Trump Administration is committed to eliminating fraud. W...](2054596882987446525/)
+  - Source: https://x.com/VP/status/2054596882987446525
+  - Repost of @WHFraudTF: The entire Trump Administration is committed to eliminating fraud. Whether we're saving hundreds of millions or a few thousand, every federal agency is hard a...
+- [16:17 UTC - Repost of @WHFraudTF: States aren't entitled to taxpayer money for fraudulent Medicaid ser...](2054596869469126679/)
+  - Source: https://x.com/VP/status/2054596869469126679
+  - Repost of @WHFraudTF: States aren't entitled to taxpayer money for fraudulent Medicaid services. Americans shouldn't have to pay fraudsters and states to waste your hard-earned mon...
+- [16:17 UTC - Repost of @WHFraudTF: States must fight fraud too. Taxpayers have given states BILLIONS to...](2054596860405235950/)
+  - Source: https://x.com/VP/status/2054596860405235950
+  - Repost of @WHFraudTF: States must fight fraud too. Taxpayers have given states BILLIONS to fight fraud and prosecute sickos who commit elder abuse. Where are the results? The feder...
+- [16:17 UTC - Repost of @WHFraudTF: Every day, the Fraud Task Force works with @DrOzCMS to cut suspected...](2054596815404589148/)
+  - Source: https://x.com/VP/status/2054596815404589148
+  - Repost of @WHFraudTF: Every day, the Fraud Task Force works with @DrOzCMS to cut suspected fraudulent providers off and save American taxpayers BILLIONS. https://t.co/TaPZ6JTJNx
+- [16:17 UTC - Repost of @WHFraudTF: Fraudulent home healthcare and hospice providers are stealing from e...](2054596801970254036/)
+  - Source: https://x.com/VP/status/2054596801970254036
+  - Repost of @WHFraudTF: Fraudulent home healthcare and hospice providers are stealing from every American taxpayer. That's why we've announced a nationwide moratorium on new certific...
+- [16:16 UTC - Repost of @WHFraudTF: Today's ANTI-FRAUD News 🧵:](2054596747951833451/)
+  - Source: https://x.com/VP/status/2054596747951833451
+  - Repost of @WHFraudTF: Today's ANTI-FRAUD News 🧵:
+- [16:16 UTC - Repost of @DrOzCMS: Great work from @OIGatHHS—nationwide Medicaid fraud audits send a clea...](2054596738657161700/)
+  - Source: https://x.com/VP/status/2054596738657161700
+  - Repost of @DrOzCMS: Great work from @OIGatHHS—nationwide Medicaid fraud audits send a clear message: protect patients, or lose the privilege of federal funding. https://t.co/MCJNnf...
+- [16:09 UTC - Repost of @WhiteHouse: BACK THE BLUE. This National Police Week, we honor the heroes who r...](2054594904131531134/)
+  - Source: https://x.com/VP/status/2054594904131531134
+  - Repost of @WhiteHouse: BACK THE BLUE. This National Police Week, we honor the heroes who run toward danger, the families who stand behind them, &amp; the fallen officers who made t...
+- [16:03 UTC - The VP-led Task Force to Eliminate Fraud is officially on X!](2054593368739455462/)
+  - Source: https://x.com/VP/status/2054593368739455462
+  - The VP-led Task Force to Eliminate Fraud is officially on X!
+- [16:01 UTC - Repost of @TimSheehyMT: Taxpayer funded benefits should only be going to AMERICANS who des...](2054592843214160191/)
+  - Source: https://x.com/VP/status/2054592843214160191
+  - Repost of @TimSheehyMT: Taxpayer funded benefits should only be going to AMERICANS who deserve them. No more games: Either get in line and clean up your fraud, or fail to comply an...
+- [15:57 UTC - Repost of @WHFraudTF: This administration will not tolerate theft and fraud. https://t.co/...](2054591756713197936/)
+  - Source: https://x.com/VP/status/2054591756713197936
+  - Repost of @WHFraudTF: This administration will not tolerate theft and fraud. https://t.co/XFH4geExBt https://t.co/JIKNccdYeo
+- [15:56 UTC - Repost of @Jim_Jordan: President Trump and VP Vance promised to investigate and put an end...](2054591746034544930/)
+  - Source: https://x.com/VP/status/2054591746034544930
+  - Repost of @Jim_Jordan: President Trump and VP Vance promised to investigate and put an end to the taxpayer-funded fraud across the country. And that's exactly what they're doing. h...
+- [15:47 UTC - Repost of @WHFraudTF: Today is the day.](2054589337082233048/)
+  - Source: https://x.com/VP/status/2054589337082233048
+  - Repost of @WHFraudTF: Today is the day.
+- [15:47 UTC - Repost of @RapidResponse47: 🚨 FOLLOW: @WHFraudTF](2054589308124676122/)
+  - Source: https://x.com/VP/status/2054589308124676122
+  - Repost of @RapidResponse47: 🚨 FOLLOW: @WHFraudTF
+- [15:47 UTC - Repost of @RepublicanStudy: 🚨 For decades, people in Washington talked a big game about st...](2054589289762029999/)
+  - Source: https://x.com/VP/status/2054589289762029999
+  - Repost of @RepublicanStudy: 🚨 For decades, people in Washington talked a big game about stopping healthcare fraud schemes and did absolutely nothing. That era is OVER. @VP's @WHFra...
+- [15:06 UTC - Repost of @DrOzCMS: $1.4 BILLION in cuts targeting healthcare and hospice fraud means $1.4...](2054579050492879212/)
+  - Source: https://x.com/VP/status/2054579050492879212
+  - Repost of @DrOzCMS: $1.4 BILLION in cuts targeting healthcare and hospice fraud means $1.4 billion saved for American taxpayers. More to come. https://t.co/reybfSQm1R https://t.co/...
+- [15:06 UTC - Repost of @WhiteHouse: HUGE: @VP Vance's Anti-Fraud Task Force just withheld $1.4 BILLION ...](2054578969375093110/)
+  - Source: https://x.com/VP/status/2054578969375093110
+  - Repost of @WhiteHouse: HUGE: @VP Vance's Anti-Fraud Task Force just withheld $1.4 BILLION in federal funding after a sweeping crackdown on fraud operations in California, Minnesota...
+- [15:06 UTC - TUNE IN: Today at 2pm Eastern Time for major announcements from the @WHFraudTF Watch live ...](2054578936139456817/)
+  - Source: https://x.com/VP/status/2054578936139456817
+  - TUNE IN: Today at 2pm Eastern Time for major announcements from the @WHFraudTF Watch live on X or at: https://t.co/f04Bt1HAZf https://t.co/nTaKF3hm2U
+- [14:51 UTC - Repost of @RepJamesComer: 🚨🚨🚨 VP Vance's fraud task force just announced it has withheld $...](2054575170493329814/)
+  - Source: https://x.com/VP/status/2054575170493329814
+  - Repost of @RepJamesComer: 🚨🚨🚨 VP Vance's fraud task force just announced it has withheld $1.4 BILLION in federal funding from home hospice providers nationwide who have ripped off...
+- [14:50 UTC - Repost of @VPCommsDir: "The nationwide moratorium is the latest move by Vice President JD ...](2054575081397911779/)
+  - Source: https://x.com/VP/status/2054575081397911779
+  - Repost of @VPCommsDir: "The nationwide moratorium is the latest move by Vice President JD Vance's anti-fraud task force to crack down on healthcare ‌scams." https://t.co/wpw8WZ95vw...
+- [14:50 UTC - Repost of @VPCommsDir: Vance-led task force cuts off $1.4B from home health, hospice provi...](2054575015731827119/)
+  - Source: https://x.com/VP/status/2054575015731827119
+  - Repost of @VPCommsDir: Vance-led task force cuts off $1.4B from home health, hospice providers suspected of fraud https://t.co/yCjDLxesOc
+- [14:44 UTC - Repost of @DrOzCMS: Much more to come. Stay tuned. https://t.co/GLi7l3LzZs https://t.co/Gn...](2054573378724348177/)
+  - Source: https://x.com/VP/status/2054573378724348177
+  - Repost of @DrOzCMS: Much more to come. Stay tuned. https://t.co/GLi7l3LzZs https://t.co/GnKuFGF2GX
+- [14:43 UTC - Repost of @RapidResponse47: .@VP-led task force cuts off $1.4B from home health, hospice p...](2054573193877213580/)
+  - Source: https://x.com/VP/status/2054573193877213580
+  - Repost of @RapidResponse47: .@VP-led task force cuts off $1.4B from home health, hospice providers suspected of fraud https://t.co/CPvDVRAhgi
+- [14:05 UTC - The Trump Administration’s War on Fraud continues to produce results for American taxpayer...](2054563778562265157/)
+  - Source: https://x.com/VP/status/2054563778562265157
+  - The Trump Administration’s War on Fraud continues to produce results for American taxpayers 🇺🇸 https://t.co/ydcv9r9iSD

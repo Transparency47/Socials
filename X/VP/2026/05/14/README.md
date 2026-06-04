@@ -1,0 +1,118 @@
+# X / VP / 2026-05-14
+
+- Posts: 38
+
+- [23:06 UTC - Repost of @DrOzCMS: Proud to stand with the @VP’s @WHFraudTF as we leave no stone unturned...](2055062252852588583/)
+  - Source: https://x.com/VP/status/2055062252852588583
+  - Repost of @DrOzCMS: Proud to stand with the @VP’s @WHFraudTF as we leave no stone unturned. American families’ hard-earned money will be saved and fraudsters will be held accountab...
+- [23:06 UTC - Repost of @WhiteHouse: "When President Xi very elegantly referred to the United States as ...](2055062183898218890/)
+  - Source: https://x.com/VP/status/2055062183898218890
+  - Repost of @WhiteHouse: "When President Xi very elegantly referred to the United States as perhaps being a declining nation, he was referring to the tremendous damage we suffered du...
+- [22:06 UTC - 📸 Vice President Vance gives remarks on the Trump Administration's War against Fraud in Ba...](2055047143589564766/)
+  - Source: https://x.com/VP/status/2055047143589564766
+  - 📸 Vice President Vance gives remarks on the Trump Administration's War against Fraud in Bangor, Maine https://t.co/9XcnyQJeXf
+- [19:43 UTC - Repost of @WhiteHouse: Both countries agreed that Iran can never have a nuclear weapon. ht...](2055011124190314903/)
+  - Source: https://x.com/VP/status/2055011124190314903
+  - Repost of @WhiteHouse: Both countries agreed that Iran can never have a nuclear weapon. https://t.co/7hYMIBoTZY
+- [19:43 UTC - Repost of @WhiteHouse: History in motion. 🇺🇸🇨🇳 https://t.co/33CTXbLa0s](2055011079453827177/)
+  - Source: https://x.com/VP/status/2055011079453827177
+  - Repost of @WhiteHouse: History in motion. 🇺🇸🇨🇳 https://t.co/33CTXbLa0s
+- [19:30 UTC - Repost of @USLaborIG: $11 million stolen through fraudulent UI claims. Now the verdict is ...](2055007796379234797/)
+  - Source: https://x.com/VP/status/2055007796379234797
+  - Repost of @USLaborIG: $11 million stolen through fraudulent UI claims. Now the verdict is in — and @VP’s @WHFraudTF is turning the tables on every fraud ring that thought taxpayers...
+- [19:29 UTC - Repost of @WHFraudTF: 👁️ https://t.co/3Bh4uobyFL https://t.co/HHyVYqS9KG](2055007734601285899/)
+  - Source: https://x.com/VP/status/2055007734601285899
+  - Repost of @WHFraudTF: 👁️ https://t.co/3Bh4uobyFL https://t.co/HHyVYqS9KG
+- [19:29 UTC - Repost of @WhiteHouse: American strength back on the world stage. 🇺🇸🇨🇳 https://t.co/Q7NdfN...](2055007595342037063/)
+  - Source: https://x.com/VP/status/2055007595342037063
+  - Repost of @WhiteHouse: American strength back on the world stage. 🇺🇸🇨🇳 https://t.co/Q7NdfNb8Uc
+- [19:29 UTC - Repost of @RapidResponse47: President Trump’s Unwavering Support for Law Enforcement is Ma...](2055007562299318502/)
+  - Source: https://x.com/VP/status/2055007562299318502
+  - Repost of @RapidResponse47: President Trump’s Unwavering Support for Law Enforcement is Making America Safe Again https://t.co/q12NFyCELk
+- [19:10 UTC - Repost of @RapidResponse47: U.S. Assistant Attorney General for Fraud Colin McDonald: "Thi...](2055002720214348125/)
+  - Source: https://x.com/VP/status/2055002720214348125
+  - Repost of @RapidResponse47: U.S. Assistant Attorney General for Fraud Colin McDonald: "This case really demonstrates the need for the federal government to be laser focused on the...
+- [19:09 UTC - Repost of @VPCommsDir: “Help us fight back against the fraud” — @VP 🇺🇸 https://t.co/aIlKSh...](2055002608272543818/)
+  - Source: https://x.com/VP/status/2055002608272543818
+  - Repost of @VPCommsDir: “Help us fight back against the fraud” — @VP 🇺🇸 https://t.co/aIlKShPcmE
+- [18:16 UTC - VP Vance speaks to a fired up crowd in Maine: "For the first time in a very long time, you...](2054989258851524849/)
+  - Source: https://x.com/VP/status/2054989258851524849
+  - VP Vance speaks to a fired up crowd in Maine: "For the first time in a very long time, you've got an administration in Washington, DC that is fighting for you, fighting to protect...
+- [17:37 UTC - Repost of @RapidResponse47: .@VP: "This job has given me more confidence than ever that th...](2054979441982378374/)
+  - Source: https://x.com/VP/status/2054979441982378374
+  - Repost of @RapidResponse47: .@VP: "This job has given me more confidence than ever that this country — its best days are ahead of it... We have the most talented, the most compassi...
+- [17:37 UTC - Repost of @RapidResponse47: .@VP takes on Fake News reporter minimizing the severity of th...](2054979433002323987/)
+  - Source: https://x.com/VP/status/2054979433002323987
+  - Repost of @RapidResponse47: .@VP takes on Fake News reporter minimizing the severity of the fraud in Maine: "What I find so preposterous about Maine—it's not just that we've found...
+- [17:35 UTC - Repost of @OhioAuditor: Great to see these steps taken. They are a good start. My office h...](2054978913198113203/)
+  - Source: https://x.com/VP/status/2054978913198113203
+  - Repost of @OhioAuditor: Great to see these steps taken. They are a good start. My office has highlighted issues within Ohio's Medicaid program during my time as Auditor and it’s go...
+- [17:29 UTC - Repost of @RepAndyBiggsAZ: Americans dutifully pay their taxes each year to a government t...](2054977401310822417/)
+  - Source: https://x.com/VP/status/2054977401310822417
+  - Repost of @RepAndyBiggsAZ: Americans dutifully pay their taxes each year to a government that could not be more unconcerned about where the money goes. Thanks to President @realDon...
+- [17:23 UTC - Repost of @RapidResponse47: .@VP: "Call me crazy, but I think that when we welcome new imm...](2054975784347984199/)
+  - Source: https://x.com/VP/status/2054975784347984199
+  - Repost of @RapidResponse47: .@VP: "Call me crazy, but I think that when we welcome new immigrants to the United States of America, they should be people who enrich our country, and...
+- [17:08 UTC - Repost of @WhiteHouse: "For the first time in a very long time, you've got an administrati...](2054972050536624636/)
+  - Source: https://x.com/VP/status/2054972050536624636
+  - Repost of @WhiteHouse: "For the first time in a very long time, you've got an administration in Washington D.C. that is fighting for you, fighting to protect your tax dollars, and...
+- [17:08 UTC - Repost of @RapidResponse47: .@VP: "I would love to work with the governor of Maine to stop...](2054972029414125756/)
+  - Source: https://x.com/VP/status/2054972029414125756
+  - Repost of @RapidResponse47: .@VP: "I would love to work with the governor of Maine to stop the fraud that's being perpetrated in this state...This isn’t Republican or Democrat—this...
+- [17:03 UTC - Repost of @RapidResponse47: "I'm talking about the construction worker who can’t buy a cel...](2054970890048213433/)
+  - Source: https://x.com/VP/status/2054970890048213433
+  - Repost of @RapidResponse47: "I'm talking about the construction worker who can’t buy a cellphone, because when an illegal alien goes and steals their identity, and applies for SNAP...
+- [17:00 UTC - Repost of @Sonderling47: The days of fraudsters taking advantage of the American Taxpayer ...](2054970120951283782/)
+  - Source: https://x.com/VP/status/2054970120951283782
+  - Repost of @Sonderling47: The days of fraudsters taking advantage of the American Taxpayer are OVER! Thanks to @POTUS, @VP, and the @WHFraudTF, we’re rooting out fraud, holding bad...
+- [17:00 UTC - Repost of @RapidResponse47: .@VP in Bangor, Maine: "Because you all work hard, because you...](2054970107894346225/)
+  - Source: https://x.com/VP/status/2054970107894346225
+  - Repost of @RapidResponse47: .@VP in Bangor, Maine: "Because you all work hard, because you all pay your taxes, because you do things the right way, it is time to have leadership in...
+- [16:53 UTC - Repost of @WHFraudTF: Watch LIVE!](2054968301596422581/)
+  - Source: https://x.com/VP/status/2054968301596422581
+  - Repost of @WHFraudTF: Watch LIVE!
+- [16:52 UTC - Repost of @MarshaBlackburn: Billions of your tax dollars are lost every year to waste, fra...](2054968078358729002/)
+  - Source: https://x.com/VP/status/2054968078358729002
+  - Repost of @MarshaBlackburn: Billions of your tax dollars are lost every year to waste, fraud, and abuse. Unlike the Biden administration, the Trump administration is giving this cr...
+- [16:52 UTC - Repost of @TheJusticeDept: 🚨Owner of Health Care Software Company Convicted of 1 BILLION D...](2054968057739526426/)
+  - Source: https://x.com/VP/status/2054968057739526426
+  - Repost of @TheJusticeDept: 🚨Owner of Health Care Software Company Convicted of 1 BILLION DOLLAR Medicare Fraud Conspiracy “The Department of Justice crushed one of the most egregio...
+- [16:52 UTC - Repost of @DrOzCMS: Here at CMS, integrity isn’t optional—and neither are the actions we j...](2054968035526533577/)
+  - Source: https://x.com/VP/status/2054968035526533577
+  - Repost of @DrOzCMS: Here at CMS, integrity isn’t optional—and neither are the actions we just took to stop fraudsters from stealing taxpayer dollars and hurting innocent people. ht...
+- [16:46 UTC - Repost of @JDVance: Every American should be proud of President Trump’s historic and conse...](2054966700718588274/)
+  - Source: https://x.com/VP/status/2054966700718588274
+  - Repost of @JDVance: Every American should be proud of President Trump’s historic and consequential trip to China. Glad we finally have a leader who fights for American interests ac...
+- [16:46 UTC - Vice President Vance continues to deliver results on the @WHFraudTF's ongoing fight to eli...](2054966665238999239/)
+  - Source: https://x.com/VP/status/2054966665238999239
+  - Vice President Vance continues to deliver results on the @WHFraudTF's ongoing fight to eliminate fraud "Those programs...don't exist to enrich fraudsters, they exist for the Americ...
+- [16:46 UTC - Repost of @WhiteHouse: Vice President JD Vance Delivers Remarks in Bangor, Maine https://t...](2054966644888244710/)
+  - Source: https://x.com/VP/status/2054966644888244710
+  - Repost of @WhiteHouse: Vice President JD Vance Delivers Remarks in Bangor, Maine https://t.co/FoYKtKtIJC
+- [16:46 UTC - Repost of @RapidResponse47: WATCH: In Maine, @Sonderling47 lays out some examples of fraud...](2054966604757115184/)
+  - Source: https://x.com/VP/status/2054966604757115184
+  - Repost of @RapidResponse47: WATCH: In Maine, @Sonderling47 lays out some examples of fraud &amp; waste uncovered by the @WHFraudTF: "Paying benefits first and verifying later NEVER...
+- [15:11 UTC - Repost of @WhiteHouse: President Donald J. Trump meets with President Xi Jinping in China....](2054942727008108787/)
+  - Source: https://x.com/VP/status/2054942727008108787
+  - Repost of @WhiteHouse: President Donald J. Trump meets with President Xi Jinping in China. 🇺🇸🇨🇳 https://t.co/LeQOPzBKd2
+- [15:11 UTC - Repost of @WhiteHouse: The two sides discussed ways to enhance economic cooperation betwee...](2054942708179911070/)
+  - Source: https://x.com/VP/status/2054942708179911070
+  - Repost of @WhiteHouse: The two sides discussed ways to enhance economic cooperation between countries, including expanding market access for American businesses into China and incr...
+- [15:11 UTC - Repost of @WhiteHouse: At the State Banquet, President Donald J. Trump invites President X...](2054942657172914423/)
+  - Source: https://x.com/VP/status/2054942657172914423
+  - Repost of @WhiteHouse: At the State Banquet, President Donald J. Trump invites President Xi to the White House this September. https://t.co/VQ9GAoUELj
+- [15:11 UTC - Repost of @WhiteHouse: From the Bilateral Meeting in Beijing: President Trump had a good m...](2054942620703510797/)
+  - Source: https://x.com/VP/status/2054942620703510797
+  - Repost of @WhiteHouse: From the Bilateral Meeting in Beijing: President Trump had a good meeting with President Xi of China. https://t.co/WaH8hR1ZV3
+- [15:11 UTC - Repost of @WhiteHouse: A powerful arrival ceremony in Beijing. 🇺🇸🇨🇳 https://t.co/kGedqmSwu...](2054942602730803406/)
+  - Source: https://x.com/VP/status/2054942602730803406
+  - Repost of @WhiteHouse: A powerful arrival ceremony in Beijing. 🇺🇸🇨🇳 https://t.co/kGedqmSwum
+- [15:10 UTC - Repost of @RapidResponse47: .@POTUS: President Xi would like to see a deal made. He said, ...](2054942551505834369/)
+  - Source: https://x.com/VP/status/2054942551505834369
+  - Repost of @RapidResponse47: .@POTUS: President Xi would like to see a deal made. He said, 'If I can be of any help at all, I would like to be of help.' Anybody that buys that much...
+- [00:06 UTC - Repost of @JDVance: It’s been almost two months since President Trump took the bold step o...](2054714866523369833/)
+  - Source: https://x.com/VP/status/2054714866523369833
+  - Repost of @JDVance: It’s been almost two months since President Trump took the bold step of officially forming the Task Force to Eliminate Fraud. We’ve already uncovered tens of bi...
+- [00:06 UTC - Repost of @WhiteHouse: The Trump administration has made it loud and clear to all states: ...](2054714818905477328/)
+  - Source: https://x.com/VP/status/2054714818905477328
+  - Repost of @WhiteHouse: The Trump administration has made it loud and clear to all states: if you commit fraud, you will lose medicaid funding. https://t.co/Y71Ehygo68

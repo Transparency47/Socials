@@ -1,0 +1,34 @@
+# X / VP / 2026-04-07
+
+- Posts: 10
+
+- [23:36 UTC - VP Vance celebrates the U.S. relationship with Hungary: "Relations between America and Hun...](2041661430701682799/)
+  - Source: https://x.com/VP/status/2041661430701682799
+  - VP Vance celebrates the U.S. relationship with Hungary: "Relations between America and Hungary have reached new heights, an exciting era of new ties on everything ranging from ener...
+- [23:36 UTC - Repost of @JDVance: The real divide in our time is between those who believe in a better f...](2041661298543345832/)
+  - Source: https://x.com/VP/status/2041661298543345832
+  - Repost of @JDVance: The real divide in our time is between those who believe in a better future for us and our children, and those who don’t. Great to speak in Budapest today with...
+- [21:12 UTC - Vice President Vance talks about the cooperation between the U.S. and Hungary, including i...](2041625216019792365/)
+  - Source: https://x.com/VP/status/2041625216019792365
+  - Vice President Vance talks about the cooperation between the U.S. and Hungary, including in energy, “technology, and AI and manufacturing… the United States and Hungary have been g...
+- [16:22 UTC - Repost of @RapidResponse47: .@VP in Budapest: "We want you to make a decision about your f...](2041552088417640736/)
+  - Source: https://x.com/VP/status/2041552088417640736
+  - Repost of @RapidResponse47: .@VP in Budapest: "We want you to make a decision about your future with no outside forces pressuring you... The bureaucrats in Brussels, those people s...
+- [15:52 UTC - Repost of @RapidResponse47: WATCH: @VP calls @POTUS from Hungary: "I love Hungary, and I l...](2041544740827509139/)
+  - Source: https://x.com/VP/status/2041544740827509139
+  - Repost of @RapidResponse47: WATCH: @VP calls @POTUS from Hungary: "I love Hungary, and I love that @PM_ViktorOrban. He's a fantastic man. We've had a tremendous relationship, and h...
+- [15:51 UTC - Repost of @RapidResponse47: .@VP in Budapest: "Thank you for being a great friend of the U...](2041544460064985193/)
+  - Source: https://x.com/VP/status/2041544460064985193
+  - Repost of @RapidResponse47: .@VP in Budapest: "Thank you for being a great friend of the United States of America." 🇺🇸🇭🇺 https://t.co/a8r6H6nFEk
+- [15:03 UTC - Vice President JD Vance Delivers Remarks in Budapest, Hungary https://t.co/7jEVxYDHH6](2041532350371176604/)
+  - Source: https://x.com/VP/status/2041532350371176604
+  - Vice President JD Vance Delivers Remarks in Budapest, Hungary https://t.co/7jEVxYDHH6
+- [13:37 UTC - Repost of @RapidResponse47: .@VP in Hungary: "What the United States and Hungary together ...](2041510617480122551/)
+  - Source: https://x.com/VP/status/2041510617480122551
+  - Repost of @RapidResponse47: .@VP in Hungary: "What the United States and Hungary together represent under @PM_ViktorOrban and @POTUS' leadership is the defense of Western civilizat...
+- [13:37 UTC - Repost of @RapidResponse47: "I hope they make the right response," says @VP on Iran. "They...](2041510607883518352/)
+  - Source: https://x.com/VP/status/2041510607883518352
+  - Repost of @RapidResponse47: "I hope they make the right response," says @VP on Iran. "They've got to know, we've got tools in our toolkit that we so far haven't decided to use. @PO...
+- [13:37 UTC - Repost of @WhiteHouse: Iran will no longer be allowed to harm the global economy with thei...](2041510588333899856/)
+  - Source: https://x.com/VP/status/2041510588333899856
+  - Repost of @WhiteHouse: Iran will no longer be allowed to harm the global economy with their terroristic intentions. @VP JD Vance speaks on Iran from Budapest, Hungary. 🇺🇸🇭🇺 https:/...

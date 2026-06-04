@@ -1,0 +1,67 @@
+# X / VP / 2026-05-26
+
+- Posts: 21
+
+- [21:54 UTC - Repost of @SenRandPaul: That’s billions. With a CAPITAL B. GOOD WORK @VP!](2059392882344169517/)
+  - Source: https://x.com/VP/status/2059392882344169517
+  - Repost of @SenRandPaul: That’s billions. With a CAPITAL B. GOOD WORK @VP!
+- [21:54 UTC - Repost of @VPCommsDir: Vice President JD Vance touts up to $160B recovered from fraudsters...](2059392798743224670/)
+  - Source: https://x.com/VP/status/2059392798743224670
+  - Repost of @VPCommsDir: Vice President JD Vance touts up to $160B recovered from fraudsters by feds https://t.co/MVYLe9tqMQ
+- [21:54 UTC - Repost of @WhiteHouse: Since @WHFraudTF launched, BILLIONS have already been recovered in ...](2059392777868161102/)
+  - Source: https://x.com/VP/status/2059392777868161102
+  - Repost of @WhiteHouse: Since @WHFraudTF launched, BILLIONS have already been recovered in taxpayer dollars. The Trump Admin will keep fighting until every fraud scheme is exposed,...
+- [21:54 UTC - 📸 Vice President Vance holds a roundtable with Attorneys General from across the country o...](2059392766262579706/)
+  - Source: https://x.com/VP/status/2059392766262579706
+  - 📸 Vice President Vance holds a roundtable with Attorneys General from across the country on eliminating fraud @WHFraudTF https://t.co/EOzdxLa3pO
+- [19:47 UTC - Repost of @HHSGov: HHS 🤝 @WHFraudTF ✅ February 25, 2026: The Trump Administration halted n...](2059360751748280503/)
+  - Source: https://x.com/VP/status/2059360751748280503
+  - Repost of @HHSGov: HHS 🤝 @WHFraudTF ✅ February 25, 2026: The Trump Administration halted nearly $260 million in Medicaid payments to Minnesota over rampant fraud allegations, deman...
+- [19:46 UTC - Repost of @Sonderling47: Under @POTUS’ leadership, the days of unchecked fraud and waste a...](2059360594222784701/)
+  - Source: https://x.com/VP/status/2059360594222784701
+  - Repost of @Sonderling47: Under @POTUS’ leadership, the days of unchecked fraud and waste are over. @USDOL is proud to support @VP and @WHFraudTF in recovering stolen funds, protect...
+- [19:15 UTC - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today at the @WHFraudTF ...](2059352711766614202/)
+  - Source: https://x.com/VP/status/2059352711766614202
+  - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today at the @WHFraudTF State AG Roundtable: “Our division is called the National Fraud Enforcement Division for a...
+- [19:13 UTC - Repost of @SenMikeLee: Excellent progress by @JDVance and his Task Force in ending massive...](2059352255447408864/)
+  - Source: https://x.com/VP/status/2059352255447408864
+  - Repost of @SenMikeLee: Excellent progress by @JDVance and his Task Force in ending massive fraud perpetrated against the American people.
+- [18:58 UTC - Repost of @DOLOIG: .@USLaborIG is proud to serve on @WHFraudTF, cracking down on BILLIONS ...](2059348458570469526/)
+  - Source: https://x.com/VP/status/2059348458570469526
+  - Repost of @DOLOIG: .@USLaborIG is proud to serve on @WHFraudTF, cracking down on BILLIONS in fraud, waste, and abuse under the strong leadership of @POTUS and @VP. This is just the...
+- [18:47 UTC - Repost of @RapidResponse47: .@VP closes by highlighting an egregious case of fraud uncover...](2059345766032777402/)
+  - Source: https://x.com/VP/status/2059345766032777402
+  - Repost of @RapidResponse47: .@VP closes by highlighting an egregious case of fraud uncovered by @WHFraudTF: "That man lived his final moments on this earth neglected, while a fraud...
+- [18:42 UTC - Repost of @RapidResponse47: Colin McDonald, Assistant AG for National Fraud Enforcement, a...](2059344363809849545/)
+  - Source: https://x.com/VP/status/2059344363809849545
+  - Repost of @RapidResponse47: Colin McDonald, Assistant AG for National Fraud Enforcement, addresses state attorneys general: "Hold criminals accountable, protect victims of crime, a...
+- [18:41 UTC - Repost of @RapidResponse47: .@AFergusonFTC: The only way to defeat the fraudsters is by ma...](2059344184906035490/)
+  - Source: https://x.com/VP/status/2059344184906035490
+  - Repost of @RapidResponse47: .@AFergusonFTC: The only way to defeat the fraudsters is by making sure they know that if they try to commit fraud, they will be pursued, arrested, pros...
+- [18:41 UTC - Repost of @RapidResponse47: .@AFergusonFTC: "Your constituents are American citizens payin...](2059344145236230367/)
+  - Source: https://x.com/VP/status/2059344145236230367
+  - Repost of @RapidResponse47: .@AFergusonFTC: "Your constituents are American citizens paying for these programs. They expect these programs to be here when they need them, and unles...
+- [18:41 UTC - Repost of @RapidResponse47: .@StephenM at a meeting of the @WHFraudTF: "Within weeks of th...](2059344127402095059/)
+  - Source: https://x.com/VP/status/2059344127402095059
+  - Repost of @RapidResponse47: .@StephenM at a meeting of the @WHFraudTF: "Within weeks of this task force being established, we've seen the largest-ever slate of indictments, recover...
+- [18:29 UTC - Repost of @WHFraudTF: This is just the beginning! 🇺🇸](2059341091317354504/)
+  - Source: https://x.com/VP/status/2059341091317354504
+  - Repost of @WHFraudTF: This is just the beginning! 🇺🇸
+- [18:29 UTC - Repost of @RapidResponse47: WATCH: @VP highlights the tremendous early success of the @WHF...](2059341058966777971/)
+  - Source: https://x.com/VP/status/2059341058966777971
+  - Repost of @RapidResponse47: WATCH: @VP highlights the tremendous early success of the @WHFraudTF in identifying and eliminating fraud. And this is just the beginning! https://t.co/...
+- [18:24 UTC - Repost of @RapidResponse47: .@VP hosts state attorneys general at the White House for a @W...](2059339887069827393/)
+  - Source: https://x.com/VP/status/2059339887069827393
+  - Repost of @RapidResponse47: .@VP hosts state attorneys general at the White House for a @WHFraudTF meeting: "The resources of the federal government, while vast, can be supplemente...
+- [18:16 UTC - Vice President JD Vance Holds a State Attorneys General Roundtable on Anti-Fraud Initiativ...](2059337938538832146/)
+  - Source: https://x.com/VP/status/2059337938538832146
+  - Vice President JD Vance Holds a State Attorneys General Roundtable on Anti-Fraud Initiatives https://t.co/BRynnKquao
+- [18:02 UTC - Repost of @WhiteHouse: The mission is simple. https://t.co/JU0uGi45sn](2059334434994700520/)
+  - Source: https://x.com/VP/status/2059334434994700520
+  - Repost of @WhiteHouse: The mission is simple. https://t.co/JU0uGi45sn
+- [18:02 UTC - Repost of @WhiteHouse: Crushing BILLIONS of dollars in medicare, hospice, childcare and ma...](2059334329373704272/)
+  - Source: https://x.com/VP/status/2059334329373704272
+  - Repost of @WhiteHouse: Crushing BILLIONS of dollars in medicare, hospice, childcare and many more types of FRAUD. The Trump Administration is bringing accountability and justice ba...
+- [18:02 UTC - Repost of @WHFraudTF: Major Anti-Fraud News Happening Now. Watch LIVE: https://t.co/Y3TJPY...](2059334265439998230/)
+  - Source: https://x.com/VP/status/2059334265439998230
+  - Repost of @WHFraudTF: Major Anti-Fraud News Happening Now. Watch LIVE: https://t.co/Y3TJPYX9KQ

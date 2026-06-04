@@ -1,0 +1,55 @@
+# X / VP / 2026-03-16
+
+- Posts: 17
+
+- [23:02 UTC - Repost of @WhiteHouse: President Donald J. Trump just signed an Executive Order creating t...](2033680432886132740/)
+  - Source: https://x.com/VP/status/2033680432886132740
+  - Repost of @WhiteHouse: President Donald J. Trump just signed an Executive Order creating the Task Force to ELIMINATE Fraud. Chaired by @VP Vance, this task force will crack down on...
+- [22:23 UTC - Repost of @JDVance: It is a disgrace that American children and families are being defraud...](2033670614087573653/)
+  - Source: https://x.com/VP/status/2033670614087573653
+  - Repost of @JDVance: It is a disgrace that American children and families are being defrauded by people who hate this country. I'm proud to lead the Administration's task force on f...
+- [21:07 UTC - Repost of @RapidResponse47: .@VP says halting payments and criminal prosecutions are two i...](2033651353004769511/)
+  - Source: https://x.com/VP/status/2033651353004769511
+  - Repost of @RapidResponse47: .@VP says halting payments and criminal prosecutions are two important steps needed to root our systemic fraud in the United States. "One of the cool th...
+- [21:04 UTC - Repost of @WhiteHouse: The FIRST-EVER effort in American history to reclaim TRILLIONS of d...](2033650729584365783/)
+  - Source: https://x.com/VP/status/2033650729584365783
+  - Repost of @WhiteHouse: The FIRST-EVER effort in American history to reclaim TRILLIONS of dollars stolen from U.S. taxpayers. 🇺🇸
+- [21:04 UTC - Repost of @RapidResponse47: .@POTUS on why other leaders haven't taken steps to root out f...](2033650720407220636/)
+  - Source: https://x.com/VP/status/2033650720407220636
+  - Repost of @RapidResponse47: .@POTUS on why other leaders haven't taken steps to root out fraud: "Because they're crooked. They make money, they gain power... like with the Somalian...
+- [21:04 UTC - Repost of @RapidResponse47: "What the President said consistently going back to 2015 — and...](2033650699460903193/)
+  - Source: https://x.com/VP/status/2033650699460903193
+  - Repost of @RapidResponse47: "What the President said consistently going back to 2015 — and I agreed with him — was that Iran should not have a nuclear weapon," says @VP on Operatio...
+- [21:04 UTC - Repost of @Scavino47: Happening Now in The Oval Office at The @WhiteHouse… President @real...](2033650652606251192/)
+  - Source: https://x.com/VP/status/2033650652606251192
+  - Repost of @Scavino47: Happening Now in The Oval Office at The @WhiteHouse… President @realDonaldTrump will be signing an Executive Order to formally launch a Fraud Task Force led b...
+- [21:04 UTC - Repost of @RapidResponse47: .@POTUS: "I don't want wars. I want wars less than almost anyb...](2033650636600864983/)
+  - Source: https://x.com/VP/status/2033650636600864983
+  - Repost of @RapidResponse47: .@POTUS: "I don't want wars. I want wars less than almost anybody... I think @VP understands better than most — if you give Iran a nuclear weapon, at le...
+- [21:03 UTC - Repost of @RapidResponse47: .@POTUS: "It'll be wrapped up soon. We're going to have a much...](2033650473228542314/)
+  - Source: https://x.com/VP/status/2033650473228542314
+  - Repost of @RapidResponse47: .@POTUS: "It'll be wrapped up soon. We're going to have a much safer world. I had an obligation to do this... you want to see a stock market go down? St...
+- [21:03 UTC - Repost of @WhiteHouse: President Trump signs an Executive Order committing to seek out and...](2033650433529368764/)
+  - Source: https://x.com/VP/status/2033650433529368764
+  - Repost of @WhiteHouse: President Trump signs an Executive Order committing to seek out and crush fraud with a new Anti-Fraud Task Force, led by @VP. "If we found half of the fraud...
+- [20:26 UTC - Repost of @RapidResponse47: .@VP: "What this executive order does is force the entire appa...](2033641036992451008/)
+  - Source: https://x.com/VP/status/2033641036992451008
+  - Repost of @RapidResponse47: .@VP: "What this executive order does is force the entire apparatus of the federal government to do two things: stop the fraud of the American taxpayer,...
+- [20:25 UTC - Repost of @RapidResponse47: "Somali is a third-world, maybe a fourth-world nation... They ...](2033640871137030384/)
+  - Source: https://x.com/VP/status/2033640871137030384
+  - Repost of @RapidResponse47: "Somali is a third-world, maybe a fourth-world nation... They come here and they steal $19 billion — it's crazy," says @POTUS on the anti-fraud task for...
+- [20:25 UTC - Repost of @RapidResponse47: .@AFergusonFTC: "This fraud is just siphoning money that milli...](2033640853302898952/)
+  - Source: https://x.com/VP/status/2033640853302898952
+  - Repost of @RapidResponse47: .@AFergusonFTC: "This fraud is just siphoning money that millions of Americans pay to fund their hospitals, to fund their daycare centers, into complete...
+- [20:23 UTC - Repost of @RapidResponse47: .@StephenM: "Under @POTUS' leadership, and then of course with...](2033640396807454733/)
+  - Source: https://x.com/VP/status/2033640396807454733
+  - Repost of @RapidResponse47: .@StephenM: "Under @POTUS' leadership, and then of course with @VP, and @AFergusonFTC, we are going to see the first ever effort in American history to...
+- [20:16 UTC - Repost of @RapidResponse47: "This is a very big thing that we’re doing... having to do wit...](2033638551200407796/)
+  - Source: https://x.com/VP/status/2033638551200407796
+  - Repost of @RapidResponse47: "This is a very big thing that we’re doing... having to do with all of the fraud that’s taking place in our country." @POTUS prepares to sign an Executi...
+- [20:14 UTC - Repost of @WhiteHouse: President Trump and Vice President JD Vance Participate in Signing ...](2033638174447014026/)
+  - Source: https://x.com/VP/status/2033638174447014026
+  - Repost of @WhiteHouse: President Trump and Vice President JD Vance Participate in Signing Time, Mar. 16, 2026 https://t.co/3ZQSQTnTXQ
+- [16:28 UTC - Repost of @JDVance: The Vance family is praying for our dear friend as she takes on her ne...](2033581128389370325/)
+  - Source: https://x.com/VP/status/2033581128389370325
+  - Repost of @JDVance: The Vance family is praying for our dear friend as she takes on her next fight! https://t.co/ol5YV047GR

@@ -1,0 +1,34 @@
+# X / VP / 2026-04-29
+
+- Posts: 10
+
+- [21:53 UTC - Repost of @JDVance: The Task Force on Eliminating Fraud continues to work with the entire ...](2049608069689036998/)
+  - Source: https://x.com/VP/status/2049608069689036998
+  - Repost of @JDVance: The Task Force on Eliminating Fraud continues to work with the entire Administration to produce results. We are working around the clock to root out fraudsters...
+- [21:25 UTC - Repost of @VPCommsDir: “Fundamentally, what we’re able to do is make sure that this fraud ...](2049601002760786394/)
+  - Source: https://x.com/VP/status/2049601002760786394
+  - Repost of @VPCommsDir: “Fundamentally, what we’re able to do is make sure that this fraud is stopping and that the American taxpayer is not being stolen from anymore.” — @VP @JDVan...
+- [20:53 UTC - Vice President Vance roasts Tim Walz for his laughable attempt to take credit for the Trum...](2049592845158277256/)
+  - Source: https://x.com/VP/status/2049592845158277256
+  - Vice President Vance roasts Tim Walz for his laughable attempt to take credit for the Trump Administration's fraud raids in Minneapolis: “This is like the arsonist trying to claim...
+- [20:44 UTC - Repost of @VPPressSec: .@VP Vance thanks @SecretService for their bravery during the White...](2049590678905131252/)
+  - Source: https://x.com/VP/status/2049590678905131252
+  - Repost of @VPPressSec: .@VP Vance thanks @SecretService for their bravery during the White House Correspondents’ Dinner: "They put their lives in harm’s way… I just feel very grate...
+- [20:44 UTC - Repost of @RapidResponse47: .@VP on Minnesota fraud: "If you're a senior officer, if you’r...](2049590628569297279/)
+  - Source: https://x.com/VP/status/2049590628569297279
+  - Repost of @RapidResponse47: .@VP on Minnesota fraud: "If you're a senior officer, if you’re the Attorney General or the Governor, or any other elected official, we're going to look...
+- [20:28 UTC - Repost of @RapidResponse47: .@VP: "We've gone from @nickshirleyy's video about the Minneap...](2049586678206001486/)
+  - Source: https://x.com/VP/status/2049586678206001486
+  - Repost of @RapidResponse47: .@VP: "We've gone from @nickshirleyy's video about the Minneapolis fraud schemes to judges issuing warrants for this investigation in a matter of 3 mont...
+- [20:28 UTC - Repost of @RapidResponse47: "What an amazing job the agents of the Secret Service do," say...](2049586662343070178/)
+  - Source: https://x.com/VP/status/2049586662343070178
+  - Repost of @RapidResponse47: "What an amazing job the agents of the Secret Service do," says @VP on the White House Correspondents' Dinner attack. "I just feel very grateful to them...
+- [20:28 UTC - Repost of @RapidResponse47: .@VP: "Political violence right now is coming not exclusively,...](2049586638703976804/)
+  - Source: https://x.com/VP/status/2049586638703976804
+  - Repost of @RapidResponse47: .@VP: "Political violence right now is coming not exclusively, but largely from one side of the aisle... If you're part of the left wing in this country...
+- [17:52 UTC - Repost of @RapidResponse47: .@VP: "This is like the arsonist trying to claim credit for th...](2049547487057232131/)
+  - Source: https://x.com/VP/status/2049547487057232131
+  - Repost of @RapidResponse47: .@VP: "This is like the arsonist trying to claim credit for the work of the fire department because Tim Walz let this fraud happen... We really did not...
+- [01:17 UTC - 📸 Vice President Vance attends His Majesty King Charles III’s joint address to Congress ht...](2049296878009794786/)
+  - Source: https://x.com/VP/status/2049296878009794786
+  - 📸 Vice President Vance attends His Majesty King Charles III’s joint address to Congress https://t.co/4ZPdXKD8Tl

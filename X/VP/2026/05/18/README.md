@@ -1,0 +1,64 @@
+# X / VP / 2026-05-18
+
+- Posts: 20
+
+- [21:49 UTC - Repost of @RapidResponse47: Fact Sheet: President Donald J. Trump Announces Expansion of T...](2056492477427626362/)
+  - Source: https://x.com/VP/status/2056492477427626362
+  - Repost of @RapidResponse47: Fact Sheet: President Donald J. Trump Announces Expansion of TrumpRx to Bring Americans Transparency and Choice on Everyday Medicines https://t.co/ldd4P...
+- [21:49 UTC - Repost of @WhiteHouse: Americans went from paying the MOST anywhere in the world for medic...](2056492439800578343/)
+  - Source: https://x.com/VP/status/2056492439800578343
+  - Repost of @WhiteHouse: Americans went from paying the MOST anywhere in the world for medications to paying the LOWEST drug prices for anybody in any country. All we needed was a ne...
+- [21:49 UTC - Repost of @Eric_Schmitt: From the Senate to the White House, JD Vance is delivering for th...](2056492307168321852/)
+  - Source: https://x.com/VP/status/2056492307168321852
+  - Repost of @Eric_Schmitt: From the Senate to the White House, JD Vance is delivering for the working people who built this country and eradicating fraud left and right. You love to...
+- [21:48 UTC - Repost of @USLaborIG: Damn right, @VP! If you steal from the American people, you should e...](2056492179602673851/)
+  - Source: https://x.com/VP/status/2056492179602673851
+  - Repost of @USLaborIG: Damn right, @VP! If you steal from the American people, you should expect handcuffs and prison bars. The fraudsters got comfortable for too long. Not anymore....
+- [21:41 UTC - President Trump and Vice President Vance are fighting for YOU🇺🇸 https://t.co/utiG5qta2D](2056490475859697812/)
+  - Source: https://x.com/VP/status/2056490475859697812
+  - President Trump and Vice President Vance are fighting for YOU🇺🇸 https://t.co/utiG5qta2D
+- [20:23 UTC - VP Vance speaks on fraud in Kansas City, Missouri: "We have leaders...who fight for you, w...](2056470713423241655/)
+  - Source: https://x.com/VP/status/2056470713423241655
+  - VP Vance speaks on fraud in Kansas City, Missouri: "We have leaders...who fight for you, who fight for your tax dollars and fight for the kids who need those programs. And ladies a...
+- [20:03 UTC - Repost of @VPCommsDir: “We have made it great to build in the United States of America aga...](2056465668933890281/)
+  - Source: https://x.com/VP/status/2056465668933890281
+  - Repost of @VPCommsDir: “We have made it great to build in the United States of America again, we’re investing in the United States of America once again and we’re investing in Amer...
+- [18:38 UTC - Repost of @WhiteHouse: "We stand and we ought to fight for you, not illegal alien criminal...](2056444341996994588/)
+  - Source: https://x.com/VP/status/2056444341996994588
+  - Repost of @WhiteHouse: "We stand and we ought to fight for you, not illegal alien criminals." @VP 🇺🇸 https://t.co/FOtXckHJ4c
+- [18:27 UTC - Repost of @RapidResponse47: .@VP: "If you are committing fraud against the American people...](2056441577170464907/)
+  - Source: https://x.com/VP/status/2056441577170464907
+  - Repost of @RapidResponse47: .@VP: "If you are committing fraud against the American people, you ought to go to prison... Just last week, we actually prosecuted a fraudster who was...
+- [18:15 UTC - Repost of @RapidResponse47: In Kansas City, @VP slams Congressional Democrats for opposing...](2056438541194863078/)
+  - Source: https://x.com/VP/status/2056438541194863078
+  - Repost of @RapidResponse47: In Kansas City, @VP slams Congressional Democrats for opposing @POTUS' historic tax cut: "That legislation provides the biggest tax cut for working clas...
+- [18:15 UTC - VP Vance and the @WHFraudTF are working around the clock to eliminate fraud and Make Ameri...](2056438502959562814/)
+  - Source: https://x.com/VP/status/2056438502959562814
+  - VP Vance and the @WHFraudTF are working around the clock to eliminate fraud and Make America great Again🇺🇸 https://t.co/oDnHlyP0Vw
+- [18:07 UTC - Repost of @RapidResponse47: .@VP in Kansas City: "We are bringing the United States of Ame...](2056436644471824681/)
+  - Source: https://x.com/VP/status/2056436644471824681
+  - Repost of @RapidResponse47: .@VP in Kansas City: "We are bringing the United States of America back — and it's starting right here in the great state of Missouri... We decided to p...
+- [18:07 UTC - Repost of @WhiteHouse: Vice President JD Vance Delivers Remarks in Kansas City, Missouri h...](2056436455891726475/)
+  - Source: https://x.com/VP/status/2056436455891726475
+  - Repost of @WhiteHouse: Vice President JD Vance Delivers Remarks in Kansas City, Missouri https://t.co/QYVXhIICk2
+- [18:02 UTC - Repost of @WhiteHouse: President Trump delivered for Americans on his trip to China, secur...](2056435161319801251/)
+  - Source: https://x.com/VP/status/2056435161319801251
+  - Repost of @WhiteHouse: President Trump delivered for Americans on his trip to China, securing monumental deals in trade, investment, industry and more. 🇺🇸 https://t.co/KrQkzUTWQR
+- [16:41 UTC - Last week, Vice President Vance honored fallen officers at the Peace Officer Memorial Serv...](2056414912960704845/)
+  - Source: https://x.com/VP/status/2056414912960704845
+  - Last week, Vice President Vance honored fallen officers at the Peace Officer Memorial Service: "God bless the fallen and may he continue to bless the great United States of America...
+- [16:37 UTC - Repost of @WhiteHouse: Career politicians betrayed American workers for decades with cheap...](2056413852292505740/)
+  - Source: https://x.com/VP/status/2056413852292505740
+  - Repost of @WhiteHouse: Career politicians betrayed American workers for decades with cheap foreign labor. But the tide has turned, the U.S. manufacturing boom is accelerating.🔥🇺🇸 T...
+- [15:51 UTC - Repost of @VPDCOS: Just a few months in and the work of the @WHFraudTF is already leading ...](2056402403709108588/)
+  - Source: https://x.com/VP/status/2056402403709108588
+  - Repost of @VPDCOS: Just a few months in and the work of the @WHFraudTF is already leading to eye-popping results. This team is laser focused on rooting out fraud, and they're just...
+- [15:08 UTC - Repost of @VPPressSec: Eliminating Fraud Restoring Trust Making America Great Again! 🇺🇸 ht...](2056391518928146718/)
+  - Source: https://x.com/VP/status/2056391518928146718
+  - Repost of @VPPressSec: Eliminating Fraud Restoring Trust Making America Great Again! 🇺🇸 https://t.co/YuXllePHbD
+- [15:00 UTC - Repost of @JDVance: Billions of dollars of fraud already uncovered and we're just getting ...](2056389439937528015/)
+  - Source: https://x.com/VP/status/2056389439937528015
+  - Repost of @JDVance: Billions of dollars of fraud already uncovered and we're just getting started. More to come. https://t.co/GOn7r1VcTI
+- [12:23 UTC - Repost of @WhiteHouse: https://t.co/DuOAK547Yp](2056349888581976305/)
+  - Source: https://x.com/VP/status/2056349888581976305
+  - Repost of @WhiteHouse: https://t.co/DuOAK547Yp

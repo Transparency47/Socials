@@ -1,0 +1,31 @@
+# X / VP / 2026-02-06
+
+- Posts: 9
+
+- [21:18 UTC - Repost of @RapidResponse47: .@TeamUSA enters San Siro Stadium in Milan — as @VP and @SLOTU...](2019883322290368917/)
+  - Source: https://x.com/VP/status/2019883322290368917
+  - Repost of @RapidResponse47: .@TeamUSA enters San Siro Stadium in Milan — as @VP and @SLOTUS proudly watch on. GO TEAM USA! 🇺🇸🇺🇸🇺🇸 https://t.co/xZ8i7NF9y0
+- [19:52 UTC - Repost of @RapidResponse47: Live from the Opening Ceremony of the Winter Olympics: "The Vi...](2019861774510457307/)
+  - Source: https://x.com/VP/status/2019861774510457307
+  - Repost of @RapidResponse47: Live from the Opening Ceremony of the Winter Olympics: "The Vice President of the United States, JD Vance, leading the U.S. contingent here in Milan." 🇺...
+- [18:09 UTC - Vice President Vance and @SecRubio are in Milan, Italy to cheer on Team USA athletes at th...](2019835742805967326/)
+  - Source: https://x.com/VP/status/2019835742805967326
+  - Vice President Vance and @SecRubio are in Milan, Italy to cheer on Team USA athletes at the 2026 Winter Olympics. GO TEAM USA! 🇺🇸 https://t.co/XiL3aIjDoT
+- [17:43 UTC - Repost of @GiorgiaMeloni: Commenti alla stampa con il Vice Presidente degli Stati Uniti d’...](2019829231052800286/)
+  - Source: https://x.com/VP/status/2019829231052800286
+  - Repost of @GiorgiaMeloni: Commenti alla stampa con il Vice Presidente degli Stati Uniti d’America, @JDVance https://t.co/2Z72l3hQ0e
+- [14:12 UTC - Vice President Vance and Italian Prime Minister @GiorgiaMeloni met this morning prior to t...](2019776339935461669/)
+  - Source: https://x.com/VP/status/2019776339935461669
+  - Vice President Vance and Italian Prime Minister @GiorgiaMeloni met this morning prior to the Olympic Opening Ceremony this evening in Milan 🇺🇸🤝🇮🇹 https://t.co/5RtjyGMhun
+- [12:39 UTC - Repost of @VPCommsDir: .@VP @JDVance speaks at a bilateral meeting with Italian PM Meloni:...](2019752883151855814/)
+  - Source: https://x.com/VP/status/2019752883151855814
+  - Repost of @VPCommsDir: .@VP @JDVance speaks at a bilateral meeting with Italian PM Meloni: “In the spirit of the Olympics, friendship, competition, and coming together around share...
+- [00:23 UTC - Repost of @SecRubio: Glad to be with @VP Vance in Milan to meet our @TeamUSA Winter Olympi...](2019567582978703833/)
+  - Source: https://x.com/VP/status/2019567582978703833
+  - Repost of @SecRubio: Glad to be with @VP Vance in Milan to meet our @TeamUSA Winter Olympics athletes. Proud of your dedication as you represent the best of American excellence. Le...
+- [00:23 UTC - Repost of @RapidResponse47: The Second Family gets their credentials at the Olympics in Mi...](2019567526858903995/)
+  - Source: https://x.com/VP/status/2019567526858903995
+  - Repost of @RapidResponse47: The Second Family gets their credentials at the Olympics in Milan 💙 @VP @SLOTUS https://t.co/iPSof8QPR5
+- [00:22 UTC - Repost of @RapidResponse47: .@VP, the Second Family, and @SecRubio lead the U.S. delegatio...](2019567460756910555/)
+  - Source: https://x.com/VP/status/2019567460756910555
+  - Repost of @RapidResponse47: .@VP, the Second Family, and @SecRubio lead the U.S. delegation in Milan, cheering the @TeamUSA women's hockey team to a 5-1 victory over Czechia in the...

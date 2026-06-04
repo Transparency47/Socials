@@ -1,0 +1,37 @@
+# X / VP / 2026-01-23
+
+- Posts: 11
+
+- [19:44 UTC - Repost of @WhiteHouse: "The March For Life, my friends, is not about just a political issu...](2014786456179359949/)
+  - Source: https://x.com/VP/status/2014786456179359949
+  - Repost of @WhiteHouse: "The March For Life, my friends, is not about just a political issue... it is about whether we will remain a civilization under God, or whether we will ultim...
+- [18:22 UTC - VP Vance thanks pro life advocates at the March for Life: “We thank you for your prayers. ...](2014765575445069937/)
+  - Source: https://x.com/VP/status/2014765575445069937
+  - VP Vance thanks pro life advocates at the March for Life: “We thank you for your prayers. We thank you for your perseverance. And we thank you that for today, we are all marching f...
+- [18:05 UTC - Repost of @WhiteHouse: 6 years ago, @POTUS was proud to be the first president in history ...](2014761377265537169/)
+  - Source: https://x.com/VP/status/2014761377265537169
+  - Repost of @WhiteHouse: 6 years ago, @POTUS was proud to be the first president in history to attend the March for Life. Since then, he has made incredible strides to defend the unb...
+- [18:05 UTC - Repost of @RapidResponse47: .@VP: "Today, the Far-Left in this country tells our young peo...](2014761347007881295/)
+  - Source: https://x.com/VP/status/2014761347007881295
+  - Repost of @RapidResponse47: .@VP: "Today, the Far-Left in this country tells our young people that marriage and children are obstacles—that it's irresponsible, even immoral...to en...
+- [17:44 UTC - Repost of @RapidResponse47: "Under this administration... you have an ally in the White Ho...](2014756078647386178/)
+  - Source: https://x.com/VP/status/2014756078647386178
+  - Repost of @RapidResponse47: "Under this administration... you have an ally in the White House!" At the March For Life, @VP touts some of the many pro-life victories achieved in the...
+- [17:33 UTC - Repost of @RapidResponse47: .@VP: @POTUS delivered, and his Supreme Court Justices deliver...](2014753408968687729/)
+  - Source: https://x.com/VP/status/2014753408968687729
+  - Repost of @RapidResponse47: .@VP: @POTUS delivered, and his Supreme Court Justices delivered, the most important Supreme Court decision of my lifetime — because what the Dobbs deci...
+- [17:33 UTC - Repost of @RapidResponse47: .@VP at the March For Life: "All of us in the Trump administra...](2014753395651817632/)
+  - Source: https://x.com/VP/status/2014753395651817632
+  - Repost of @RapidResponse47: .@VP at the March For Life: "All of us in the Trump administration from the President on down, we thank you for your prayers, we thank you for your pers...
+- [17:33 UTC - Repost of @RapidResponse47: .@VP at the March For Life: "@SLOTUS and I announced this week...](2014753379407352040/)
+  - Source: https://x.com/VP/status/2014753379407352040
+  - Repost of @RapidResponse47: .@VP at the March For Life: "@SLOTUS and I announced this week that we're expecting our 4th, and it will be our 3rd baby boy, so we'll take whatever pra...
+- [17:20 UTC - Vice President JD Vance Delivers Remarks at the 2026 National March for Life Rally https:/...](2014750177379184910/)
+  - Source: https://x.com/VP/status/2014750177379184910
+  - Vice President JD Vance Delivers Remarks at the 2026 National March for Life Rally https://t.co/AGp4tz2sfJ
+- [14:42 UTC - 📸Vice President Vance traveled to Minneapolis to discuss the ongoing migrant crisis in Min...](2014710366349959190/)
+  - Source: https://x.com/VP/status/2014710366349959190
+  - 📸Vice President Vance traveled to Minneapolis to discuss the ongoing migrant crisis in Minnesota with members of the community and the press. The Trump Administration is committed...
+- [14:26 UTC - Repost of @JDVance: 🤣](2014706229252125160/)
+  - Source: https://x.com/VP/status/2014706229252125160
+  - Repost of @JDVance: 🤣

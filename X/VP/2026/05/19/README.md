@@ -1,0 +1,91 @@
+# X / VP / 2026-05-19
+
+- Posts: 29
+
+- [21:32 UTC - Vice President Vance in Kansas City: "This is the greatest country anywhere in the world. ...](2056850614731116590/)
+  - Source: https://x.com/VP/status/2056850614731116590
+  - Vice President Vance in Kansas City: "This is the greatest country anywhere in the world. You make America great and we will not stop fighting for you."🔥 https://t.co/unnvCmAerr
+- [21:32 UTC - Repost of @WhiteHouse: President Trump’s Ratepayer Protection Pledge is putting America fi...](2056850541875953729/)
+  - Source: https://x.com/VP/status/2056850541875953729
+  - Repost of @WhiteHouse: President Trump’s Ratepayer Protection Pledge is putting America first. He’s calling on the nation’s leading AI companies to build, bring, or buy 100% of the...
+- [21:30 UTC - Repost of @WhiteHouse: Yesterday, President Trump announced a monumental expansion of Trum...](2056849931445399956/)
+  - Source: https://x.com/VP/status/2056849931445399956
+  - Repost of @WhiteHouse: Yesterday, President Trump announced a monumental expansion of TrumpRx, including 600+ new medications. Under this President, Americans are finally being pri...
+- [19:43 UTC - Repost of @RapidResponse47: Your periodic reminder that @AndrewFeinberg is a Democrat acti...](2056823099547439396/)
+  - Source: https://x.com/VP/status/2056823099547439396
+  - Repost of @RapidResponse47: Your periodic reminder that @AndrewFeinberg is a Democrat activist and talentless loser cosplaying as a reporter. @VP dismantles him with ease. https://...
+- [19:43 UTC - Repost of @WhiteHouse: Reminder: Decline is a choice. President Trump is choosing action, ...](2056823078441615380/)
+  - Source: https://x.com/VP/status/2056823078441615380
+  - Repost of @WhiteHouse: Reminder: Decline is a choice. President Trump is choosing action, beauty, strength, and pride.
+- [18:25 UTC - Repost of @RapidResponse47: "As a devout Christian, I would say it’s one of the most anti-...](2056803568032567611/)
+  - Source: https://x.com/VP/status/2056803568032567611
+  - Repost of @RapidResponse47: "As a devout Christian, I would say it’s one of the most anti-Christian things and anti-American things that you could do," says @VP on religious violen...
+- [18:18 UTC - Repost of @RapidResponse47: .@VP: "I'm 41-years-old. For my entire life, I have heard chir...](2056801576765845873/)
+  - Source: https://x.com/VP/status/2056801576765845873
+  - Repost of @RapidResponse47: .@VP: "I'm 41-years-old. For my entire life, I have heard chirping from the European media about everything that's wrong with the United States of Ameri...
+- [18:17 UTC - Repost of @WhiteHouse: "As the President has said ad nauseam... Iran CANNOT have a nuclear...](2056801545308520578/)
+  - Source: https://x.com/VP/status/2056801545308520578
+  - Repost of @WhiteHouse: "As the President has said ad nauseam... Iran CANNOT have a nuclear weapon." - @VP JD Vance 🇺🇸 https://t.co/zrsxHPPOnP
+- [18:14 UTC - Repost of @RapidResponse47: .@VP: "We’re not talking about pulling every single American t...](2056800666903785474/)
+  - Source: https://x.com/VP/status/2056800666903785474
+  - Repost of @RapidResponse47: .@VP: "We’re not talking about pulling every single American troop out of Europe, we’re talking about shifting some resources around in a way that maxim...
+- [18:14 UTC - Repost of @RapidResponse47: .@VP slams the Fake News: "There are people who objectively co...](2056800578747916504/)
+  - Source: https://x.com/VP/status/2056800578747916504
+  - Repost of @RapidResponse47: .@VP slams the Fake News: "There are people who objectively committed heinous crimes, but the American media and the American legal academy has decided...
+- [18:05 UTC - Repost of @RapidResponse47: .@VP on how the Biden admin facilitated immigration fraud: "Ef...](2056798375865913574/)
+  - Source: https://x.com/VP/status/2056798375865913574
+  - Repost of @RapidResponse47: .@VP on how the Biden admin facilitated immigration fraud: "Effectively, what the Biden administration would do is say, 'Go into the interior of the cou...
+- [18:00 UTC - Repost of @RapidResponse47: .@VP on @TheJusticeDept's newly-created Anti-Weaponization Fun...](2056797070648811555/)
+  - Source: https://x.com/VP/status/2056797070648811555
+  - Repost of @RapidResponse47: .@VP on @TheJusticeDept's newly-created Anti-Weaponization Fund: "I think that what we’re going to see, hopefully, is the entire country, led by this De...
+- [17:54 UTC - Repost of @RapidResponse47: "I think you see that conflict; the fact that maybe the Irania...](2056795680039969243/)
+  - Source: https://x.com/VP/status/2056795680039969243
+  - Repost of @RapidResponse47: "I think you see that conflict; the fact that maybe the Iranians aren't themselves quite clear in what direction they want to go. They also are just a f...
+- [17:50 UTC - Repost of @RapidResponse47: .@VP: "We are not going to have a deal that allows the Iranian...](2056794626409869340/)
+  - Source: https://x.com/VP/status/2056794626409869340
+  - Repost of @RapidResponse47: .@VP: "We are not going to have a deal that allows the Iranians to have a nuclear weapon — so as @POTUS just told me, we're locked and loaded. We don't...
+- [17:47 UTC - Repost of @RapidResponse47: .@VP: "Iran can never have a nuclear weapon... Iran would real...](2056793901571182770/)
+  - Source: https://x.com/VP/status/2056793901571182770
+  - Repost of @RapidResponse47: .@VP: "Iran can never have a nuclear weapon... Iran would really be the first domino in what would set off a nuclear arms race all over the world. That'...
+- [17:45 UTC - Repost of @RapidResponse47: .@VP highlights some of the recent work of the @WHFraudTF: We'...](2056793395842998416/)
+  - Source: https://x.com/VP/status/2056793395842998416
+  - Repost of @RapidResponse47: .@VP highlights some of the recent work of the @WHFraudTF: We've seen hundreds of millions of dollars of fraudulent loans that were being handed out thr...
+- [17:09 UTC - Repost of @WhiteHouse: The president who does it all. https://t.co/RjIbtYJuoJ](2056784234996457603/)
+  - Source: https://x.com/VP/status/2056784234996457603
+  - Repost of @WhiteHouse: The president who does it all. https://t.co/RjIbtYJuoJ
+- [17:09 UTC - Repost of @WhiteHouse: Nothing like this will ever be built again!! President Trump gives ...](2056784205120450880/)
+  - Source: https://x.com/VP/status/2056784205120450880
+  - Repost of @WhiteHouse: Nothing like this will ever be built again!! President Trump gives the press a look at the White House Ballroom construction project, built by his personal a...
+- [16:14 UTC - Repost of @WhiteHouse: 🇺🇸 Vice President Vance takes the press briefing podium. Tune in at...](2056770383018135846/)
+  - Source: https://x.com/VP/status/2056770383018135846
+  - Repost of @WhiteHouse: 🇺🇸 Vice President Vance takes the press briefing podium. Tune in at 1:00 PM EST! 🔜 https://t.co/dq9r4Y4bAQ
+- [15:03 UTC - Repost of @WhiteHouse: President Trump Visits White House Ballroom Construction https://t....](2056752683738964456/)
+  - Source: https://x.com/VP/status/2056752683738964456
+  - Repost of @WhiteHouse: President Trump Visits White House Ballroom Construction https://t.co/5lx4lxmi1k
+- [15:03 UTC - Repost of @DOLOIG: Strong leadership from @POTUS, @VP and the @WHFraudTF cracking down on ...](2056752577153220697/)
+  - Source: https://x.com/VP/status/2056752577153220697
+  - Repost of @DOLOIG: Strong leadership from @POTUS, @VP and the @WHFraudTF cracking down on waste, fraud &amp; abuse. @DOLOIG and @USLaborIG stand ready to support these efforts and...
+- [15:03 UTC - Repost of @RapidResponse47: .@POTUS: "This is a gift. This is not going to be paid for by ...](2056752558555689461/)
+  - Source: https://x.com/VP/status/2056752558555689461
+  - Repost of @RapidResponse47: .@POTUS: "This is a gift. This is not going to be paid for by the taxpayer. We have a judge that thinks it's a terrible thing that we're making a gift.....
+- [15:03 UTC - Repost of @RapidResponse47: .@POTUS: "When this is finished, my term ends shortly after th...](2056752519045419451/)
+  - Source: https://x.com/VP/status/2056752519045419451
+  - Repost of @RapidResponse47: .@POTUS: "When this is finished, my term ends shortly after that. This is really for other presidents, this is not for me. This is my gift to the United...
+- [15:02 UTC - Repost of @RapidResponse47: .@POTUS: "It's a sad thing" that some can't appreciate his D.C...](2056752326010909045/)
+  - Source: https://x.com/VP/status/2056752326010909045
+  - Repost of @RapidResponse47: .@POTUS: "It's a sad thing" that some can't appreciate his D.C. beautification efforts: "I want to see Washington be beautiful. To me, it's very importa...
+- [15:02 UTC - Repost of @RapidResponse47: .@POTUS says he's giving Iran "a limited period of time" to ma...](2056752306108993697/)
+  - Source: https://x.com/VP/status/2056752306108993697
+  - Repost of @RapidResponse47: .@POTUS says he's giving Iran "a limited period of time" to make a deal "because we can't let them have a nuclear weapon." "There's no question in my mi...
+- [15:01 UTC - Repost of @RapidResponse47: .@POTUS: "We have a country that was based on religion and I'm...](2056752229999116617/)
+  - Source: https://x.com/VP/status/2056752229999116617
+  - Repost of @RapidResponse47: .@POTUS: "We have a country that was based on religion and I'm very proud of that... Religion is a good thing. Christianity — it's a great thing for our...
+- [13:14 UTC - Repost of @Eric_Schmitt: .@JDVance came to Washington to fight for the forgotten men &amp;...](2056725290265530635/)
+  - Source: https://x.com/VP/status/2056725290265530635
+  - Repost of @Eric_Schmitt: .@JDVance came to Washington to fight for the forgotten men &amp; women who work hard, pay their taxes, raise their families, &amp; love this country. Now,...
+- [13:14 UTC - Repost of @RapidResponse47: TOMORROW, 1:00 PM ET: Press Briefing by @VP https://t.co/vjQmW...](2056725197831471440/)
+  - Source: https://x.com/VP/status/2056725197831471440
+  - Repost of @RapidResponse47: TOMORROW, 1:00 PM ET: Press Briefing by @VP https://t.co/vjQmWsUAxU
+- [13:14 UTC - Repost of @WHFraudTF: Sorry, fraudsters🇺🇸](2056725187106590899/)
+  - Source: https://x.com/VP/status/2056725187106590899
+  - Repost of @WHFraudTF: Sorry, fraudsters🇺🇸

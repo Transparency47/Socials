@@ -1,0 +1,124 @@
+# X / VP / 2026-01-22
+
+- Posts: 40
+
+- [23:57 UTC - VP Vance on left wing radicals protesting the arrests of criminal migrants: “You have a sm...](2014487595091124697/)
+  - Source: https://x.com/VP/status/2014487595091124697
+  - VP Vance on left wing radicals protesting the arrests of criminal migrants: “You have a small band of very far left people who are doing everything they can...to try to make ICE ou...
+- [23:56 UTC - Repost of @VPDCOS: Vice President @JDVance and @CarlHigbie on crazed leftwing protesters i...](2014487438484287748/)
+  - Source: https://x.com/VP/status/2014487438484287748
+  - Repost of @VPDCOS: Vice President @JDVance and @CarlHigbie on crazed leftwing protesters in Minneapolis: "It takes a certain level of commitment to sex offender, criminal illegal a...
+- [23:33 UTC - Repost of @RapidResponse47: "We love kids. We love babies. It was this interesting convers...](2014481673962856865/)
+  - Source: https://x.com/VP/status/2014481673962856865
+  - Repost of @RapidResponse47: "We love kids. We love babies. It was this interesting conversation Usha and I have been having, which is do we want to have a 4th kid. My answer to tha...
+- [23:33 UTC - Repost of @RapidResponse47: .@VP: "It's one of the big things that people don't understand...](2014481653058420804/)
+  - Source: https://x.com/VP/status/2014481653058420804
+  - Repost of @RapidResponse47: .@VP: "It's one of the big things that people don't understand about this administration. They think that... we hate Europe. We don't — we love Europe....
+- [23:23 UTC - Repost of @WhiteHouse: Thanks to President Trump, @NIH will NO LONGER fund research using ...](2014479086932922422/)
+  - Source: https://x.com/VP/status/2014479086932922422
+  - Repost of @WhiteHouse: Thanks to President Trump, @NIH will NO LONGER fund research using aborted baby tissue. "Under President Trump’s leadership, taxpayer-funded research must re...
+- [23:23 UTC - Repost of @RapidResponse47: .@VP: "If you interrupt a church service, you ought to get arr...](2014479049872023658/)
+  - Source: https://x.com/VP/status/2014479049872023658
+  - Repost of @RapidResponse47: .@VP: "If you interrupt a church service, you ought to get arrested, you ought to go to prison. I think we wanted to send a very clear signal at the Dep...
+- [23:23 UTC - Repost of @RapidResponse47: .@VP on Greenland: What keeps Russia or China from invading Gr...](2014479040858517600/)
+  - Source: https://x.com/VP/status/2014479040858517600
+  - Repost of @RapidResponse47: .@VP on Greenland: What keeps Russia or China from invading Greenland?Is it the power of Denmark? No...it is the power of the United States... it matter...
+- [22:26 UTC - Repost of @VPDCOS: 🚨The Cleveland Plain-Dealer: JD Vance visits Toledo, Minneapolis to def...](2014464788902891554/)
+  - Source: https://x.com/VP/status/2014464788902891554
+  - Repost of @VPDCOS: 🚨The Cleveland Plain-Dealer: JD Vance visits Toledo, Minneapolis to defend immigration enforcement and promote Trump record https://t.co/xyn32AgNVt
+- [22:26 UTC - Repost of @VPDCOS: Vice President @JDVance in Toledo, OH: "The IRS says this is going to b...](2014464743897964762/)
+  - Source: https://x.com/VP/status/2014464743897964762
+  - Repost of @VPDCOS: Vice President @JDVance in Toledo, OH: "The IRS says this is going to be the biggest tax refund year in the history of the United States of America...The Trump A...
+- [22:24 UTC - 📸 Vice President Vance in Toledo, Ohio https://t.co/GHbynhkEoQ](2014464222764191819/)
+  - Source: https://x.com/VP/status/2014464222764191819
+  - 📸 Vice President Vance in Toledo, Ohio https://t.co/GHbynhkEoQ
+- [21:13 UTC - Repost of @JDVance: Our plan is very simple: if you storm a church or assault a federal of...](2014446314084294767/)
+  - Source: https://x.com/VP/status/2014446314084294767
+  - Repost of @JDVance: Our plan is very simple: if you storm a church or assault a federal officer, we're going to do everything we can to put you in prison. https://t.co/xaio0CzFmq
+- [20:47 UTC - Vice President Vance sends a message to local Minneapolis officials: “We can make the wors...](2014439824451584434/)
+  - Source: https://x.com/VP/status/2014439824451584434
+  - Vice President Vance sends a message to local Minneapolis officials: “We can make the worst moments of chaos much less common, and all they've got to do is meet us halfway...we nee...
+- [20:47 UTC - Repost of @WhiteHouse: "I do a little bit more follow-up research, and what I find is that...](2014439762971525399/)
+  - Source: https://x.com/VP/status/2014439762971525399
+  - Repost of @WhiteHouse: "I do a little bit more follow-up research, and what I find is that the 5-year-old was not arrested, that his dad was an illegal alien, and when they went to...
+- [20:14 UTC - Repost of @RapidResponse47: .@VP: "When there are American citizens who've been caught up ...](2014431554227876337/)
+  - Source: https://x.com/VP/status/2014431554227876337
+  - Repost of @RapidResponse47: .@VP: "When there are American citizens who've been caught up in some of these enforcement operations, very often it is people who have assaulted a law...
+- [20:12 UTC - Repost of @RapidResponse47: .@VP in Minneapolis: "We're not trying to send a political mes...](2014430886180085808/)
+  - Source: https://x.com/VP/status/2014430886180085808
+  - Repost of @RapidResponse47: .@VP in Minneapolis: "We're not trying to send a political message. We're trying to enforce the law." https://t.co/btynR90lxJ
+- [20:11 UTC - Repost of @RapidResponse47: .@VP: "We saw, in 2025, the biggest one-year drop in murders i...](2014430856639594869/)
+  - Source: https://x.com/VP/status/2014430856639594869
+  - Repost of @RapidResponse47: .@VP: "We saw, in 2025, the biggest one-year drop in murders in the history of the United States of America... we're enforcing the immigration laws, and...
+- [20:09 UTC - Repost of @RapidResponse47: .@VP: "I do not want so many ICE officers in Minneapolis right...](2014430115581554759/)
+  - Source: https://x.com/VP/status/2014430115581554759
+  - Repost of @RapidResponse47: .@VP: "I do not want so many ICE officers in Minneapolis right now... but they're here not even to enforce immigration laws, but to protect the people f...
+- [20:04 UTC - Repost of @RapidResponse47: .@VP: They don't want any police officer in this community, in...](2014428919626150252/)
+  - Source: https://x.com/VP/status/2014428919626150252
+  - Repost of @RapidResponse47: .@VP: They don't want any police officer in this community, in this state, to help us do immigration enforcement... But if a protester shows up, and tur...
+- [20:02 UTC - Repost of @RapidResponse47: .@VP: "I do a little bit more follow-up research, and what I f...](2014428407338074382/)
+  - Source: https://x.com/VP/status/2014428407338074382
+  - Repost of @RapidResponse47: .@VP: "I do a little bit more follow-up research, and what I find is that the 5-year-old was not arrested, that his dad was an illegal alien, and when t...
+- [20:00 UTC - Repost of @RapidResponse47: .@VP explains how lack of cooperation from Democrat officials ...](2014428001329443112/)
+  - Source: https://x.com/VP/status/2014428001329443112
+  - Repost of @RapidResponse47: .@VP explains how lack of cooperation from Democrat officials puts the public's safety at risk: "These guys are trying to arrests sex offenders, but the...
+- [19:53 UTC - Repost of @RapidResponse47: .@VP after meeting with immigration agents in Minneapolis: "On...](2014426294327324713/)
+  - Source: https://x.com/VP/status/2014426294327324713
+  - Repost of @RapidResponse47: .@VP after meeting with immigration agents in Minneapolis: "One of the things I learned is that the guys behind me are doing an incredible job, and, fra...
+- [19:53 UTC - Repost of @RapidResponse47: .@VP: "I think so much of what’s gone wrong in Minneapolis is ...](2014426279932547161/)
+  - Source: https://x.com/VP/status/2014426279932547161
+  - Repost of @RapidResponse47: .@VP: "I think so much of what’s gone wrong in Minneapolis is people not trying to understand the perspective of somebody else. Try to understand what s...
+- [19:53 UTC - Repost of @RapidResponse47: .@VP: "We can do a good job of enforcing our immigration laws ...](2014426265080439271/)
+  - Source: https://x.com/VP/status/2014426265080439271
+  - Repost of @RapidResponse47: .@VP: "We can do a good job of enforcing our immigration laws without the chaos, but it requires the cooperation of state and local officials." https://...
+- [19:36 UTC - Vice President JD Vance Delivers Remarks in Minneapolis, Minnesota, Jan. 22, 2026 https://...](2014421828337316192/)
+  - Source: https://x.com/VP/status/2014421828337316192
+  - Vice President JD Vance Delivers Remarks in Minneapolis, Minnesota, Jan. 22, 2026 https://t.co/SYLv9mBVS1
+- [18:34 UTC - “We believe that you ought to keep more of your hard-earned money. If you're working hard ...](2014406420955861192/)
+  - Source: https://x.com/VP/status/2014406420955861192
+  - “We believe that you ought to keep more of your hard-earned money. If you're working hard every single day, the government ought to make it easier for you, not harder.” — VP Vance🇺...
+- [18:34 UTC - Repost of @WhiteHouse: Blessed are the peacemakers, both at home and abroad. https://t.co/...](2014406323429949690/)
+  - Source: https://x.com/VP/status/2014406323429949690
+  - Repost of @WhiteHouse: Blessed are the peacemakers, both at home and abroad. https://t.co/1PSbeb7yd1
+- [17:24 UTC - Repost of @JDVance: If you work hard every single day, you ought to be able to enjoy a goo...](2014388831089242515/)
+  - Source: https://x.com/VP/status/2014388831089242515
+  - Repost of @JDVance: If you work hard every single day, you ought to be able to enjoy a good life in the United States. After four dark years under Joe Biden, the Trump Administrati...
+- [16:17 UTC - VP Vance in Toledo, Ohio: “We are on the cusp of the greatest economic year in the history...](2014371930405503125/)
+  - Source: https://x.com/VP/status/2014371930405503125
+  - VP Vance in Toledo, Ohio: “We are on the cusp of the greatest economic year in the history of the United States of America...and we're not going to stop fighting for you until we r...
+- [16:17 UTC - Repost of @WhiteHouse: https://t.co/MyvE9HkSRA](2014371809689248073/)
+  - Source: https://x.com/VP/status/2014371809689248073
+  - Repost of @WhiteHouse: https://t.co/MyvE9HkSRA
+- [16:16 UTC - Repost of @WhiteHouse: WE DO NOT TOLERATE ATTACKS ON PLACES OF WORSHIP. https://t.co/ndfqA...](2014371711680937998/)
+  - Source: https://x.com/VP/status/2014371711680937998
+  - Repost of @WhiteHouse: WE DO NOT TOLERATE ATTACKS ON PLACES OF WORSHIP. https://t.co/ndfqAoWLek
+- [15:55 UTC - Repost of @VPCommsDir: .@VP: “The story of towns like Middletown was one of decline — fact...](2014366405311815845/)
+  - Source: https://x.com/VP/status/2014366405311815845
+  - Repost of @VPCommsDir: .@VP: “The story of towns like Middletown was one of decline — factories closing, people losing their jobs… “That is not the future we should expect. We shou...
+- [15:39 UTC - Repost of @RapidResponse47: .@VP: "If you’ve got a neighbor who’s a sex offender, and some...](2014362410593735063/)
+  - Source: https://x.com/VP/status/2014362410593735063
+  - Repost of @RapidResponse47: .@VP: "If you’ve got a neighbor who’s a sex offender, and somebody wants to go and take that person away, I’m going to raise my hand and say, 'Yes! Plea...
+- [15:39 UTC - Repost of @VPCommsDir: “.@POTUS tells us: ‘Fight for better home prices, for lower prescri...](2014362389060223233/)
+  - Source: https://x.com/VP/status/2014362389060223233
+  - Repost of @VPCommsDir: “.@POTUS tells us: ‘Fight for better home prices, for lower prescription drug prices, and of course, for rising wages.’ “That is what we’re going to do. That...
+- [14:59 UTC - Repost of @RapidResponse47: .@VP: "The Democrats talk a lot about the affordability crisis...](2014352232100081958/)
+  - Source: https://x.com/VP/status/2014352232100081958
+  - Repost of @RapidResponse47: .@VP: "The Democrats talk a lot about the affordability crisis in the United States of America, and yes, there is an affordability crisis — one created...
+- [14:59 UTC - Repost of @RapidResponse47: .@VP: "Under 4 years under the Biden administration, the avera...](2014352222679662875/)
+  - Source: https://x.com/VP/status/2014352222679662875
+  - Repost of @RapidResponse47: .@VP: "Under 4 years under the Biden administration, the average cost of a home in the United States of America nearly doubled... What's happened over t...
+- [14:59 UTC - Repost of @RapidResponse47: .@VP in Ohio: Why are we going to have the biggest tax refund ...](2014352212395249752/)
+  - Source: https://x.com/VP/status/2014352212395249752
+  - Repost of @RapidResponse47: .@VP in Ohio: Why are we going to have the biggest tax refund year in the history of the United States of America?... It's because @POTUS got No Tax on...
+- [14:49 UTC - Repost of @RapidResponse47: .@VP in Ohio: "I'm headed from here to Minneapolis... My simpl...](2014349820027167074/)
+  - Source: https://x.com/VP/status/2014349820027167074
+  - Repost of @RapidResponse47: .@VP in Ohio: "I'm headed from here to Minneapolis... My simple piece of advice to them is going to be, 'Look, if you want to turn down the chaos in Min...
+- [14:49 UTC - Repost of @PressSec: "Vice President JD Vance will visit Minneapolis on Thursday where he ...](2014349660312183173/)
+  - Source: https://x.com/VP/status/2014349660312183173
+  - Repost of @PressSec: "Vice President JD Vance will visit Minneapolis on Thursday where he will deliver remarks focused on 'restoring law and order' in Minnesota and hold a roundtab...
+- [14:47 UTC - Repost of @RapidResponse47: .@VP: "I think that we are on the cusp of the greatest economi...](2014349287140778120/)
+  - Source: https://x.com/VP/status/2014349287140778120
+  - Repost of @RapidResponse47: .@VP: "I think that we are on the cusp of the greatest economic year in the history of the United States of America because we're doing something new fo...
+- [14:28 UTC - Vice President JD Vance Delivers Remarks in Toledo, Ohio, Jan. 22, 2026 https://t.co/HXLmS...](2014344416811524240/)
+  - Source: https://x.com/VP/status/2014344416811524240
+  - Vice President JD Vance Delivers Remarks in Toledo, Ohio, Jan. 22, 2026 https://t.co/HXLmSKCEOI

@@ -1,0 +1,94 @@
+# X / VP / 2026-01-08
+
+- Posts: 30
+
+- [21:36 UTC - Repost of @WhiteHouse: 🔥 @VP Vance announces decisive action to crack down on fraud in Min...](2009378826904600767/)
+  - Source: https://x.com/VP/status/2009378826904600767
+  - Repost of @WhiteHouse: 🔥 @VP Vance announces decisive action to crack down on fraud in Minnesota and nationwide. The Trump Admin is launching a new DOJ division to PROTECT American...
+- [21:15 UTC - Repost of @VPDCOS: VP @JDVance: "He's done a very important job for the United States. He'...](2009373362611532020/)
+  - Source: https://x.com/VP/status/2009373362611532020
+  - Repost of @VPDCOS: VP @JDVance: "He's done a very important job for the United States. He's been assaulted, attacked, and injured because of it. He deserves a debt of gratitude, an...
+- [20:25 UTC - Repost of @AGPamBondi: Thank you, @VP. These deep-rooted fraud schemes rob American taxpay...](2009360726322708775/)
+  - Source: https://x.com/VP/status/2009360726322708775
+  - Repost of @AGPamBondi: Thank you, @VP. These deep-rooted fraud schemes rob American taxpayers, often while local officials fail to intervene. The problems in Minnesota are massive...
+- [20:03 UTC - VP Vance announces actions to investigate fraud in Minnesota and across the United States:...](2009355259366494353/)
+  - Source: https://x.com/VP/status/2009355259366494353
+  - VP Vance announces actions to investigate fraud in Minnesota and across the United States: “We are creating a new Assistant Attorney General position...it is going to be a nationwi...
+- [19:44 UTC - Repost of @JDVance: I've seen a lot of dishonest coverage from the media during my time in...](2009350630083871079/)
+  - Source: https://x.com/VP/status/2009350630083871079
+  - Repost of @JDVance: I've seen a lot of dishonest coverage from the media during my time in politics, but the last 24 hours may have set a new low. https://t.co/V8q4mcSCtS
+- [19:33 UTC - Repost of @WhiteHouse: 🔥@Sec_Noem: "If you lay a finger on one of our officers, we will ca...](2009347652677439611/)
+  - Source: https://x.com/VP/status/2009347652677439611
+  - Repost of @WhiteHouse: 🔥@Sec_Noem: "If you lay a finger on one of our officers, we will catch you, we will prosecute you, and you will feel the full extent of the law." https://t.c...
+- [19:32 UTC - Repost of @MargoMartin47: “I think it’s really irresponsible for you guys to go out there ...](2009347564487991779/)
+  - Source: https://x.com/VP/status/2009347564487991779
+  - Repost of @MargoMartin47: “I think it’s really irresponsible for you guys to go out there and imply or tell the American people that a guy who defended himself from being rammed by...
+- [19:32 UTC - Repost of @JDVance: Every congressional democrat and every democrat who's running for pres...](2009347452181283245/)
+  - Source: https://x.com/VP/status/2009347452181283245
+  - Repost of @JDVance: Every congressional democrat and every democrat who's running for president should be asked a simple question: Do you think this officer was wrong in defending...
+- [19:31 UTC - Repost of @VPDCOS: 🚨Fact Sheet: President Donald J. Trump Establishes New Department of Ju...](2009347297252106416/)
+  - Source: https://x.com/VP/status/2009347297252106416
+  - Repost of @VPDCOS: 🚨Fact Sheet: President Donald J. Trump Establishes New Department of Justice Division for National Fraud Enforcement https://t.co/P1s3FerZCX
+- [19:31 UTC - Repost of @WhiteHouse: MUST WATCH: Vice President Vance RIPS the fake news media "This was...](2009347272040133008/)
+  - Source: https://x.com/VP/status/2009347272040133008
+  - Repost of @WhiteHouse: MUST WATCH: Vice President Vance RIPS the fake news media "This was an attack on federal law enforcement, this was an attack on law and order, this was an at...
+- [19:07 UTC - Repost of @RapidResponse47: .@VP: I've heard a couple of things. One, that I was kept out ...](2009341234259878311/)
+  - Source: https://x.com/VP/status/2009341234259878311
+  - Repost of @RapidResponse47: .@VP: I've heard a couple of things. One, that I was kept out of the planning for the Venezuela operation—that's false. And another, that @DNIGabbard wa...
+- [18:59 UTC - Repost of @RapidResponse47: .@VP: "I think Tim Walz should resign because it's very clear ...](2009339182213468486/)
+  - Source: https://x.com/VP/status/2009339182213468486
+  - Repost of @RapidResponse47: .@VP: "I think Tim Walz should resign because it's very clear either that he knew about the fraud in Minneapolis.. or at the very least, he looked the o...
+- [18:55 UTC - Repost of @RapidResponse47: .@VP has no time for Fake News hacks: "You just asked me a que...](2009338125945065747/)
+  - Source: https://x.com/VP/status/2009338125945065747
+  - Repost of @RapidResponse47: .@VP has no time for Fake News hacks: "You just asked me a question that presumed that the reason why this woman died is because was engaged in legitima...
+- [18:52 UTC - Repost of @RapidResponse47: .@VP: "We cannot say that when a far-left fringe is inciting v...](2009337448221036876/)
+  - Source: https://x.com/VP/status/2009337448221036876
+  - Repost of @RapidResponse47: .@VP: "We cannot say that when a far-left fringe is inciting violence against our brave law enforcement officials, that we're no longer going to enforce...
+- [18:52 UTC - Repost of @RapidResponse47: .@VP: "The idea that Tim Walz and a bunch of radicals in Minne...](2009337437936603577/)
+  - Source: https://x.com/VP/status/2009337437936603577
+  - Repost of @RapidResponse47: .@VP: "The idea that Tim Walz and a bunch of radicals in Minneapolis are going to go after and make this guy's life miserable because he was doing the j...
+- [18:52 UTC - Repost of @RapidResponse47: .@VP: "I can believe that her death is a tragedy, while also r...](2009337428100956402/)
+  - Source: https://x.com/VP/status/2009337428100956402
+  - Repost of @RapidResponse47: .@VP: "I can believe that her death is a tragedy, while also recognizing that it's a tragedy of her own making, and a tragedy of the far-left, who has [...
+- [18:52 UTC - Repost of @RapidResponse47: .@VP delivers a much needed torching the Fake News: "Everybody...](2009337402612150427/)
+  - Source: https://x.com/VP/status/2009337402612150427
+  - Repost of @RapidResponse47: .@VP delivers a much needed torching the Fake News: "Everybody who has been repeating the LIE that this is some innocent woman who was out for a drive i...
+- [18:47 UTC - Repost of @RapidResponse47: .@VP: "Nobody wants an American citizen to be killed. This is ...](2009336140235722971/)
+  - Source: https://x.com/VP/status/2009336140235722971
+  - Repost of @RapidResponse47: .@VP: "Nobody wants an American citizen to be killed. This is absolutely a tragedy, but it’s a tragedy of the making of the far-left. They have radicali...
+- [18:45 UTC - Repost of @RapidResponse47: .@VP: "Tim Walz is a joke. His entire administration has been ...](2009335743341363387/)
+  - Source: https://x.com/VP/status/2009335743341363387
+  - Repost of @RapidResponse47: .@VP: "Tim Walz is a joke. His entire administration has been a joke... He's a guy who has enabled fraud, and maybe, in fact, has participated in fraud....
+- [18:39 UTC - Repost of @RapidResponse47: 🚨 @VP announces the Trump Administration will create a new Ass...](2009334205030027440/)
+  - Source: https://x.com/VP/status/2009334205030027440
+  - Repost of @RapidResponse47: 🚨 @VP announces the Trump Administration will create a new Assistant Attorney General position who will have nationwide jurisdiction over the issue of f...
+- [18:34 UTC - Repost of @RapidResponse47: .@PressSec: "Let me be clear, @POTUS and his entire administra...](2009333009024209293/)
+  - Source: https://x.com/VP/status/2009333009024209293
+  - Repost of @RapidResponse47: .@PressSec: "Let me be clear, @POTUS and his entire administration stand fully behind the heroic men and women of ICE, and will always uphold Law and Or...
+- [18:31 UTC - Repost of @WhiteHouse: Press Briefing by Press Secretary Karoline Leavitt and the Vice Pre...](2009332207262027965/)
+  - Source: https://x.com/VP/status/2009332207262027965
+  - Repost of @WhiteHouse: Press Briefing by Press Secretary Karoline Leavitt and the Vice President, Jan. 8, 2026 https://t.co/p3f3nOg19W
+- [16:03 UTC - Repost of @PressSec: 🚨I will be at the podium at 1:00PM today with @VP. Tune in!](2009294905030439213/)
+  - Source: https://x.com/VP/status/2009294905030439213
+  - Repost of @PressSec: 🚨I will be at the podium at 1:00PM today with @VP. Tune in!
+- [16:03 UTC - Repost of @WhiteHouse: 🇺🇸🇺🇸🇺🇸](2009294807877763285/)
+  - Source: https://x.com/VP/status/2009294807877763285
+  - Repost of @WhiteHouse: 🇺🇸🇺🇸🇺🇸
+- [16:01 UTC - Repost of @WhiteHouse: STAND WITH ICE. https://t.co/apkF4QC7bC](2009294334068232605/)
+  - Source: https://x.com/VP/status/2009294334068232605
+  - Repost of @WhiteHouse: STAND WITH ICE. https://t.co/apkF4QC7bC
+- [03:17 UTC - Repost of @JDVance: I want every ICE officer to know that their president, vice president,...](2009102150438457357/)
+  - Source: https://x.com/VP/status/2009102150438457357
+  - Repost of @JDVance: I want every ICE officer to know that their president, vice president, and the entire administration stands behind them. To the radicals assaulting them, doxxin...
+- [01:57 UTC - Vice President Vance praises President Trump's successful military operation in Venezuela:...](2009082066252771383/)
+  - Source: https://x.com/VP/status/2009082066252771383
+  - Vice President Vance praises President Trump's successful military operation in Venezuela: “In our neighborhood, the United States calls the shots. That's the way it's always been....
+- [01:42 UTC - Repost of @RapidResponse47: .@VP: "We believe that there is a nationwide fraud ring that's...](2009078267551339005/)
+  - Source: https://x.com/VP/status/2009078267551339005
+  - Repost of @RapidResponse47: .@VP: "We believe that there is a nationwide fraud ring that's rooted in illegal aliens and others taking advantage of the American welfare system. We'r...
+- [01:35 UTC - Repost of @JDVance: "People live in homes, not corporations." https://t.co/YLPCFi46Ro](2009076400968667274/)
+  - Source: https://x.com/VP/status/2009076400968667274
+  - Repost of @JDVance: "People live in homes, not corporations." https://t.co/YLPCFi46Ro
+- [01:29 UTC - Repost of @RapidResponse47: .@VP explains how the operation in Venezuela helps America thr...](2009075064499851454/)
+  - Source: https://x.com/VP/status/2009075064499851454
+  - Repost of @RapidResponse47: .@VP explains how the operation in Venezuela helps America through controlling their vast natural resources, gaining leverage on our enemies, and demons...

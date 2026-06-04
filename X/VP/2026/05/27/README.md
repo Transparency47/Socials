@@ -1,6 +1,6 @@
 # X / VP / 2026-05-27
 
-- Posts: 3
+- Posts: 24
 
 - [17:10 UTC - Repost of @SenatorHagerty: More than $160 billion drained from American taxpayers. The @PO...](2059683677605380329/)
   - Source: https://x.com/VP/status/2059683677605380329
@@ -11,3 +11,66 @@
 - [17:10 UTC - Repost of @DOJFraudDiv: We are seeking five Acting Deputy Assistant Attorneys General on a...](2059683606163820554/)
   - Source: https://x.com/VP/status/2059683606163820554
   - Repost of @DOJFraudDiv: We are seeking five Acting Deputy Assistant Attorneys General on a 120-day detail. This position serves as a senior executive responsible for the national o...
+- [17:08 UTC - Repost of @SpeakerJohnson: Promises made. Promises kept. Republicans are rooting out waste...](2059683223899086854/)
+  - Source: https://x.com/VP/status/2059683223899086854
+  - Repost of @SpeakerJohnson: Promises made. Promises kept. Republicans are rooting out waste, fraud, and abuse of taxpayer dollars — and fighting for the American families who have b...
+- [16:56 UTC - Repost of @RapidResponse47: .@SBA_Kelly: "At the @SBAgov, we found $200B in fraudulent PPP...](2059680174111686893/)
+  - Source: https://x.com/VP/status/2059680174111686893
+  - Repost of @RapidResponse47: .@SBA_Kelly: "At the @SBAgov, we found $200B in fraudulent PPP loans that the Biden Administration tried to hide, and forgive, and sweep under the rug....
+- [16:44 UTC - Repost of @HHSGov: HHS is rooting out fraud — for the most vulnerable who depend on our se...](2059677045987135753/)
+  - Source: https://x.com/VP/status/2059677045987135753
+  - Repost of @HHSGov: HHS is rooting out fraud — for the most vulnerable who depend on our services and for American taxpayers.
+- [16:43 UTC - Repost of @HHSResponse: .@VP gives an update on the @WHFraudTF: “@SecKennedy and @DrOzCMS ...](2059676991045992919/)
+  - Source: https://x.com/VP/status/2059676991045992919
+  - Repost of @HHSResponse: .@VP gives an update on the @WHFraudTF: “@SecKennedy and @DrOzCMS have been particular all stars…We’ve found tens of billions of dollars in Medicaid and Med...
+- [16:43 UTC - Repost of @SecRollins: Thank you, Mr. Vice President. At @USDA, we are working every day t...](2059676956765950028/)
+  - Source: https://x.com/VP/status/2059676956765950028
+  - Repost of @SecRollins: Thank you, Mr. Vice President. At @USDA, we are working every day to root out waste, fraud, and abuse in SNAP, as well as the 15 other nutrition programs we...
+- [16:37 UTC - Repost of @WhiteHouse: President Trump expresses tremendous gratitude to the outgoing Dire...](2059675252834095584/)
+  - Source: https://x.com/VP/status/2059675252834095584
+  - Repost of @WhiteHouse: President Trump expresses tremendous gratitude to the outgoing Director of @ODNIgov, @TulsiGabbard. 🇺🇸https://t.co/Cce3l6J0iE
+- [16:36 UTC - Repost of @RapidResponse47: .@epaleezeldin says the @EPA has cancelled billions of dollars...](2059675238330236941/)
+  - Source: https://x.com/VP/status/2059675238330236941
+  - Repost of @RapidResponse47: .@epaleezeldin says the @EPA has cancelled billions of dollars in wasteful spending: "Before your inauguration, they were caught on video saying they we...
+- [16:28 UTC - Repost of @RapidResponse47: .@POTUS: "I want to express our tremendous gratitude to our ou...](2059673024857567645/)
+  - Source: https://x.com/VP/status/2059673024857567645
+  - Repost of @RapidResponse47: .@POTUS: "I want to express our tremendous gratitude to our outgoing Director of National Intelligence, @TulsiGabbard — who is a terrific person." 👏🏻 ht...
+- [16:27 UTC - Repost of @RapidResponse47: .@POTUS: "Under the leadership of @VP, the @WHFraudTF is wagin...](2059672977860415954/)
+  - Source: https://x.com/VP/status/2059672977860415954
+  - Repost of @RapidResponse47: .@POTUS: "Under the leadership of @VP, the @WHFraudTF is waging war on waste, fraud, theft, and abuse...in 2 months we've exposed tens of billions of do...
+- [16:27 UTC - Repost of @RapidResponse47: .@DAGToddBlanche provides an update on prosecuting fraud: "We ...](2059672907119239512/)
+  - Source: https://x.com/VP/status/2059672907119239512
+  - Repost of @RapidResponse47: .@DAGToddBlanche provides an update on prosecuting fraud: "We had a $1B fraud—a conviction at trial—last week out of Florida, and this was an organizati...
+- [16:27 UTC - Repost of @RapidResponse47: .@VP highlights the work of the @WHFraudTF at the Cabinet meet...](2059672885405294598/)
+  - Source: https://x.com/VP/status/2059672885405294598
+  - Repost of @RapidResponse47: .@VP highlights the work of the @WHFraudTF at the Cabinet meeting, aided by many of the Cabinet Secretaries at the table: "This has been a whole-of-gove...
+- [16:15 UTC - Repost of @RapidResponse47: .@POTUS: "I'm thrilled to welcome everyone to the 12th Cabinet...](2059669873941225567/)
+  - Source: https://x.com/VP/status/2059669873941225567
+  - Repost of @RapidResponse47: .@POTUS: "I'm thrilled to welcome everyone to the 12th Cabinet meeting of our administration... We’re always letting the press join us because we’re ver...
+- [16:15 UTC - Repost of @RapidResponse47: .@POTUS on Iran: "They want very much to make a deal. So far, ...](2059669863568748993/)
+  - Source: https://x.com/VP/status/2059669863568748993
+  - Repost of @RapidResponse47: .@POTUS on Iran: "They want very much to make a deal. So far, they haven't gotten there. We're not satisfied with it, but we will be — either that or we...
+- [16:15 UTC - Repost of @DOLOIG: .@VP is right. Every stolen dollar is a dollar taken from the American ...](2059669781804994930/)
+  - Source: https://x.com/VP/status/2059669781804994930
+  - Repost of @DOLOIG: .@VP is right. Every stolen dollar is a dollar taken from the American people — that's not a partisan issue, it's an American one. @USLaborIG, @DOLOIG, and @WHFr...
+- [16:15 UTC - Repost of @SBA_Kelly: The Biden Administration knew that over 560,000 SBA borrowers owed t...](2059669753422118950/)
+  - Source: https://x.com/VP/status/2059669753422118950
+  - Repost of @SBA_Kelly: The Biden Administration knew that over 560,000 SBA borrowers owed the federal government a cumulative $22 billion in delinquent and suspected fraudulent PPP...
+- [16:15 UTC - Repost of @WhiteHouse: President Trump Participates in a Cabinet Meeting, May 27, 2026 htt...](2059669716294107475/)
+  - Source: https://x.com/VP/status/2059669716294107475
+  - Repost of @WhiteHouse: President Trump Participates in a Cabinet Meeting, May 27, 2026 https://t.co/0nkOcTVnBj
+- [14:50 UTC - 🇺🇸🇺🇸🇺🇸 https://t.co/3uBLHS1Cfu](2059648339495227422/)
+  - Source: https://x.com/VP/status/2059648339495227422
+  - 🇺🇸🇺🇸🇺🇸 https://t.co/3uBLHS1Cfu
+- [12:15 UTC - Repost of @USLaborIG: Exactly right. Fraudsters stole BILLIONS from Medicare, hospice, chi...](2059609411149009224/)
+  - Source: https://x.com/VP/status/2059609411149009224
+  - Repost of @USLaborIG: Exactly right. Fraudsters stole BILLIONS from Medicare, hospice, childcare, unemployment and other taxpayer-funded programs. Under @POTUS, the free ride is OV...
+- [12:01 UTC - Repost of @WHFraudTF: The crackdown continues. 💪](2059606036382683477/)
+  - Source: https://x.com/VP/status/2059606036382683477
+  - Repost of @WHFraudTF: The crackdown continues. 💪
+- [12:01 UTC - Repost of @JDVance: When politicians allow fraud to run rampant, normal Americans suffer. ...](2059606025464869171/)
+  - Source: https://x.com/VP/status/2059606025464869171
+  - Repost of @JDVance: When politicians allow fraud to run rampant, normal Americans suffer. https://t.co/RKiRbWJ2cx
+- [12:01 UTC - Repost of @USDOL: At the Department of Labor, protecting taxpayer dollars is a TOP priorit...](2059605908498395260/)
+  - Source: https://x.com/VP/status/2059605908498395260
+  - Repost of @USDOL: At the Department of Labor, protecting taxpayer dollars is a TOP priority. We are proud to work alongside @VP and the @WHFraudTF to investigate fraud and recover...

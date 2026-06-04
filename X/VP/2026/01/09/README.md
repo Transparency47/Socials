@@ -1,0 +1,34 @@
+# X / VP / 2026-01-09
+
+- Posts: 10
+
+- [22:39 UTC - Repost of @JDVance: These people are incapable of not lying about this. "Side window"? You...](2009756999789982134/)
+  - Source: https://x.com/VP/status/2009756999789982134
+  - Repost of @JDVance: These people are incapable of not lying about this. "Side window"? You can see the photos of the car with bullet holes. The shots came from the front of the car...
+- [21:19 UTC - VP Vance praises successful Venezuela mission: “You have an American president who's empow...](2009736915902148663/)
+  - Source: https://x.com/VP/status/2009736915902148663
+  - VP Vance praises successful Venezuela mission: “You have an American president who's empowered the American military to stop the flow of drugs into our country and to ensure that w...
+- [20:52 UTC - Repost of @WhiteHouse: 🇺🇸@VP on the operation in Venezuela: "It's going to make our countr...](2009730108416753714/)
+  - Source: https://x.com/VP/status/2009730108416753714
+  - Repost of @WhiteHouse: 🇺🇸@VP on the operation in Venezuela: "It's going to make our country richer, it's going to make our country more powerful, it's going to make our country saf...
+- [20:29 UTC - Repost of @RapidResponse47: .@VP: The operation in Venezuela is "going to make our country...](2009724300236857557/)
+  - Source: https://x.com/VP/status/2009724300236857557
+  - Repost of @RapidResponse47: .@VP: The operation in Venezuela is "going to make our country richer, it's going to make our country more powerful, it's going to make our country safe...
+- [19:08 UTC - Repost of @WhiteHouse: "A tragedy of the making of the Far Left. They have radicalized a v...](2009703905400369516/)
+  - Source: https://x.com/VP/status/2009703905400369516
+  - Repost of @WhiteHouse: "A tragedy of the making of the Far Left. They have radicalized a very small segment of the population... What our ICE officers are doing is deporting the mi...
+- [18:18 UTC - Repost of @JDVance: Watch this, as hard as it is. Many of you have been told this law enfo...](2009691249893351523/)
+  - Source: https://x.com/VP/status/2009691249893351523
+  - Repost of @JDVance: Watch this, as hard as it is. Many of you have been told this law enforcement officer wasn't hit by a car, wasn't being harassed, and murdered an innocent woman...
+- [18:18 UTC - Repost of @JDVance: If you want to say this woman's death is a tragedy, that we should pra...](2009691228221387015/)
+  - Source: https://x.com/VP/status/2009691228221387015
+  - Repost of @JDVance: If you want to say this woman's death is a tragedy, that we should pray for her soul as Christians and Americans, then I agree with you. But the media dishonest...
+- [18:18 UTC - Repost of @JDVance: What the press has done in lying about this innocent law enforcement o...](2009691212077511015/)
+  - Source: https://x.com/VP/status/2009691212077511015
+  - Repost of @JDVance: What the press has done in lying about this innocent law enforcement officer is disgusting. You should all be ashamed of yourselves. https://t.co/IfXAAxi9Ql
+- [03:04 UTC - Repost of @WhiteHouse: Millions have been deported under the Trump administration, and the...](2009461333838975278/)
+  - Source: https://x.com/VP/status/2009461333838975278
+  - Repost of @WhiteHouse: Millions have been deported under the Trump administration, and the work won't stop here. https://t.co/6aaAb6C9QP
+- [03:04 UTC - Repost of @WhiteHouse: 💸 NO TAX ON TIPS. 💸 NO TAX ON SOCIAL SECURITY. 💸 NO TAX ON OVERTIME...](2009461304139075935/)
+  - Source: https://x.com/VP/status/2009461304139075935
+  - Repost of @WhiteHouse: 💸 NO TAX ON TIPS. 💸 NO TAX ON SOCIAL SECURITY. 💸 NO TAX ON OVERTIME. Americans are getting huge tax cuts this year thanks to President Trump! https://t.co/4j...

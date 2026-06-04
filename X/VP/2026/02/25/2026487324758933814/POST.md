@@ -1,0 +1,16 @@
+<!-- source: https://x.com/VP/status/2026487324758933814 -->
+<!-- platform: X -->
+<!-- account: VP -->
+<!-- post_id: 2026487324758933814 -->
+<!-- date_published: 2026-02-25T02:40:03+00:00 -->
+<!-- date_accessed: 2026-06-04T16:08:35.031922+00:00 -->
+
+# Repost of @RapidResponse47: NO TAX ON TIPS. NO TAX ON OVERTIME. NO TAX ON SOCIAL SECURITY ...
+
+Repost of @RapidResponse47:
+
+NO TAX ON TIPS. NO TAX ON OVERTIME. NO TAX ON SOCIAL SECURITY FOR OUR GREAT SENIORS.
+
+BIGGEST TAX CUT IN HISTORY. PROSPERITY.
+
+EVERY SINGLE DEMOCRAT VOTED AGAINST IT!

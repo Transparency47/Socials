@@ -1,0 +1,34 @@
+# X / VP / 2026-05-21
+
+- Posts: 10
+
+- [17:06 UTC - Repost of @RapidResponse47: Assistant AG Colin McDonald: "This is just the beginning... @T...](2057508431720849489/)
+  - Source: https://x.com/VP/status/2057508431720849489
+  - Repost of @RapidResponse47: Assistant AG Colin McDonald: "This is just the beginning... @TheJusticeDept will continue expanding our reach across the country to pursue all fraud......
+- [17:06 UTC - Repost of @RapidResponse47: Assistant AG Colin McDonald: "My message to the Minnesota comm...](2057508420891058534/)
+  - Source: https://x.com/VP/status/2057508420891058534
+  - Repost of @RapidResponse47: Assistant AG Colin McDonald: "My message to the Minnesota community and to all of America is this: if you see something that seems too good to be true,...
+- [17:06 UTC - Repost of @RapidResponse47: .@SecKennedy demonstrates the staggering impact of the fraud t...](2057508405305086163/)
+  - Source: https://x.com/VP/status/2057508405305086163
+  - Repost of @RapidResponse47: .@SecKennedy demonstrates the staggering impact of the fraud that is being uncovered in Minnesota https://t.co/nDcviVEMFv
+- [17:06 UTC - Repost of @RapidResponse47: .@SecKennedy: "Investigators uncovered brazen schemes that bil...](2057508385910616119/)
+  - Source: https://x.com/VP/status/2057508385910616119
+  - Repost of @RapidResponse47: .@SecKennedy: "Investigators uncovered brazen schemes that billed taxpayers for nonexistent services, fraudulent diagnoses, and fake care, while crimina...
+- [17:06 UTC - Repost of @RapidResponse47: .@AFergusonFTC: "Today is about bringing justice to the frauds...](2057508361294303393/)
+  - Source: https://x.com/VP/status/2057508361294303393
+  - Repost of @RapidResponse47: .@AFergusonFTC: "Today is about bringing justice to the fraudsters at an unprecedented pace... This is going to become the new norm for American fraud p...
+- [17:06 UTC - Repost of @RapidResponse47: Assistant AG Colin McDonald: "Today, we are announcing crimina...](2057508335629328744/)
+  - Source: https://x.com/VP/status/2057508335629328744
+  - Repost of @RapidResponse47: Assistant AG Colin McDonald: "Today, we are announcing criminal charges against 15 defendants in Minnesota for fraud schemes that targeted over $90 mill...
+- [16:47 UTC - Repost of @FBIDirectorKash: 🚨🚨 Today - 15 individuals have been indicted for over $90 mill...](2057503528323551578/)
+  - Source: https://x.com/VP/status/2057503528323551578
+  - Repost of @FBIDirectorKash: 🚨🚨 Today - 15 individuals have been indicted for over $90 million in an alleged massive healthcare fraud scheme in Minnesota, after a sweeping FBI inves...
+- [14:07 UTC - Repost of @RapidResponse47: Trump task force is tackling $250 billion in government fraud....](2057463217111044570/)
+  - Source: https://x.com/VP/status/2057463217111044570
+  - Repost of @RapidResponse47: Trump task force is tackling $250 billion in government fraud. It’s just getting started https://t.co/tJsNaeZqJK
+- [13:52 UTC - Repost of @WHFraudTF: Just getting started.](2057459415846916205/)
+  - Source: https://x.com/VP/status/2057459415846916205
+  - Repost of @WHFraudTF: Just getting started.
+- [12:57 UTC - Repost of @VPCommsDir: Trump task force is tackling $250 billion in government fraud. It’s...](2057445775227978071/)
+  - Source: https://x.com/VP/status/2057445775227978071
+  - Repost of @VPCommsDir: Trump task force is tackling $250 billion in government fraud. It’s just getting started 🇺🇸 https://t.co/1RIUuBGHGc

@@ -1,0 +1,43 @@
+# X / VP / 2026-04-02
+
+- Posts: 13
+
+- [22:37 UTC - VP Vance swears in AAG Colin McDonald: “One of the things Colin is going to do is make sur...](2039834613774737746/)
+  - Source: https://x.com/VP/status/2039834613774737746
+  - VP Vance swears in AAG Colin McDonald: “One of the things Colin is going to do is make sure that no fraud...is big enough or small enough to look away from.”🔥 https://t.co/wgnfsIe6...
+- [17:43 UTC - Repost of @VPDCOS: 🚨NEW: Vance anti-fraud task force suspends 221 California hospice and h...](2039760555414630540/)
+  - Source: https://x.com/VP/status/2039760555414630540
+  - Repost of @VPDCOS: 🚨NEW: Vance anti-fraud task force suspends 221 California hospice and healthcare providers so far "We expect this number to grow much, much higher in the coming...
+- [17:42 UTC - Repost of @RapidResponse47: .@VP’s anti-fraud task force suspends 221 California hospice a...](2039760489165541585/)
+  - Source: https://x.com/VP/status/2039760489165541585
+  - Repost of @RapidResponse47: .@VP’s anti-fraud task force suspends 221 California hospice and healthcare providers so far — representing a 216% increase from numbers reported just l...
+- [17:22 UTC - Repost of @RapidResponse47: "In coordination with @VP’s Task Force to Eliminate Fraud, eig...](2039755450023813306/)
+  - Source: https://x.com/VP/status/2039755450023813306
+  - Repost of @RapidResponse47: "In coordination with @VP’s Task Force to Eliminate Fraud, eight defendants... have been arrested on federal charges that they schemed to defraud the na...
+- [17:22 UTC - Repost of @VPCommsDir: .@VP’s anti-fraud task force suspends 221 California hospice and he...](2039755427865305328/)
+  - Source: https://x.com/VP/status/2039755427865305328
+  - Repost of @VPCommsDir: .@VP’s anti-fraud task force suspends 221 California hospice and healthcare providers so far
+- [17:06 UTC - Repost of @JDVance: Our task force isn’t wasting any time cracking down on fraud. This mor...](2039751384220708894/)
+  - Source: https://x.com/VP/status/2039751384220708894
+  - Repost of @JDVance: Our task force isn’t wasting any time cracking down on fraud. This morning in the LA area, federal law enforcement is taking down fraudsters who stole $50M+ fro...
+- [15:03 UTC - Repost of @RapidResponse47: .@VP (March 2): “Whatever happens with the regime in one form ...](2039720446912860410/)
+  - Source: https://x.com/VP/status/2039720446912860410
+  - Repost of @RapidResponse47: .@VP (March 2): “Whatever happens with the regime in one form or another, it’s incidental to the President’s primary objective here — which is to make s...
+- [15:03 UTC - Repost of @RapidResponse47: .@VP (March 26): “The Iranian conventional military is effecti...](2039720437446287368/)
+  - Source: https://x.com/VP/status/2039720437446287368
+  - Repost of @RapidResponse47: .@VP (March 26): “The Iranian conventional military is effectively destroyed. They don’t have a navy. They don’t have the ability to hit us like they co...
+- [15:03 UTC - Repost of @RapidResponse47: @SecWar @SecRubio .@VP (March 28): “That was fundamentally the...](2039720425471586700/)
+  - Source: https://x.com/VP/status/2039720425471586700
+  - Repost of @RapidResponse47: @SecWar @SecRubio .@VP (March 28): “That was fundamentally the President’s goal. He said, ‘Look, this country, they’re threatening us in all these ways....
+- [15:03 UTC - Repost of @RapidResponse47: @SecWar @SecRubio @VP @PressSec President Trump’s Clear and Un...](2039720396878991633/)
+  - Source: https://x.com/VP/status/2039720396878991633
+  - Repost of @RapidResponse47: @SecWar @SecRubio @VP @PressSec President Trump’s Clear and Unchanging Objectives Drive Decisive Success Against Iranian Regime https://t.co/Z4prtvc6ar
+- [15:03 UTC - Repost of @WhiteHouse: If Iran obtained a nuclear weapon, they would be able to carry out ...](2039720371054616893/)
+  - Source: https://x.com/VP/status/2039720371054616893
+  - Repost of @WhiteHouse: If Iran obtained a nuclear weapon, they would be able to carry out their campaigns of terror and mass murder behind a nuclear shield. Thanks to President Tru...
+- [01:14 UTC - Repost of @RapidResponse47: .@POTUS: From the very first day I announced my campaign, I ha...](2039511733761446185/)
+  - Source: https://x.com/VP/status/2039511733761446185
+  - Repost of @RapidResponse47: .@POTUS: From the very first day I announced my campaign, I have vowed that I would NEVER allow Iran to have a nuclear weapon. This fanatical regime has...
+- [01:02 UTC - Repost of @WhiteHouse: President Trump Delivers an Address to the Nation, Apr. 1, 2026 htt...](2039508825531613341/)
+  - Source: https://x.com/VP/status/2039508825531613341
+  - Repost of @WhiteHouse: President Trump Delivers an Address to the Nation, Apr. 1, 2026 https://t.co/QgofMPWtzW

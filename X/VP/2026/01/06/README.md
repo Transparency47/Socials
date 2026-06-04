@@ -1,0 +1,34 @@
+# X / VP / 2026-01-06
+
+- Posts: 10
+
+- [22:58 UTC - Repost of @RapidResponse47: Happy birthday to our incredible Second Lady! @SLOTUS](2008674478243672233/)
+  - Source: https://x.com/VP/status/2008674478243672233
+  - Repost of @RapidResponse47: Happy birthday to our incredible Second Lady! @SLOTUS
+- [22:36 UTC - Repost of @JDVance: Happy Birthday to my darling Usha, who turns 40 today! https://t.co/cX...](2008669070355468289/)
+  - Source: https://x.com/VP/status/2008669070355468289
+  - Repost of @JDVance: Happy Birthday to my darling Usha, who turns 40 today! https://t.co/cXo9c4bUyu
+- [19:45 UTC - VP Vance praises the Trump Administration's successful economic policies: “2026 is going t...](2008626030265987285/)
+  - Source: https://x.com/VP/status/2008626030265987285
+  - VP Vance praises the Trump Administration's successful economic policies: “2026 is going to be a great year for the American economy. Most importantly, it's going to be a great yea...
+- [19:27 UTC - Repost of @RapidResponse47: .@VP on Gaza: "As we're trying to accomplish this very long-te...](2008621369425121725/)
+  - Source: https://x.com/VP/status/2008621369425121725
+  - Repost of @RapidResponse47: .@VP on Gaza: "As we're trying to accomplish this very long-term peace process... the fact that it's not blowing up in a negative way suggests @POTUS' p...
+- [19:05 UTC - Repost of @RapidResponse47: .@VP on Trump admin priorities in 2026: "@POTUS is sick of Oba...](2008615966360699300/)
+  - Source: https://x.com/VP/status/2008615966360699300
+  - Repost of @RapidResponse47: .@VP on Trump admin priorities in 2026: "@POTUS is sick of Obamacare and how unaffordable it's made American healthcare... We're very focused on some ho...
+- [18:59 UTC - Repost of @RapidResponse47: .@VP: It is not a coincidence that during the worst open borde...](2008614453051523351/)
+  - Source: https://x.com/VP/status/2008614453051523351
+  - Repost of @RapidResponse47: .@VP: It is not a coincidence that during the worst open border we have ever had under Joe Biden, the cost of an American home doubled... now that we're...
+- [18:58 UTC - Repost of @RapidResponse47: .@VP: The economy wasn't just wrecked under Biden, it was wrec...](2008614093171966274/)
+  - Source: https://x.com/VP/status/2008614093171966274
+  - Repost of @RapidResponse47: .@VP: The economy wasn't just wrecked under Biden, it was wrecked by 40 years of bad policy. If we rely on our OWN workers and ingenuity to make our stu...
+- [18:47 UTC - Repost of @RapidResponse47: .@VP addresses the attack on his home in Ohio: "Our family's d...](2008611499829588304/)
+  - Source: https://x.com/VP/status/2008611499829588304
+  - Repost of @RapidResponse47: .@VP addresses the attack on his home in Ohio: "Our family's doing fine... I guess this person assumed we were there and tried to make an attack... Clea...
+- [18:47 UTC - Repost of @RapidResponse47: .@VP on rooting out domestic violence: "The American people sh...](2008611471798981062/)
+  - Source: https://x.com/VP/status/2008611471798981062
+  - Repost of @RapidResponse47: .@VP on rooting out domestic violence: "The American people should expect that their government is going to respond to this stuff. We certainly are... W...
+- [14:31 UTC - Repost of @WhiteHouse: BOTH OUR NATIONAL AND FINANCIAL SECURITY HAVE NEVER BEEN STRONGER! ...](2008546958882099412/)
+  - Source: https://x.com/VP/status/2008546958882099412
+  - Repost of @WhiteHouse: BOTH OUR NATIONAL AND FINANCIAL SECURITY HAVE NEVER BEEN STRONGER! https://t.co/Ag5siNNf2C
