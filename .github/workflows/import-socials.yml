@@ -104,6 +104,7 @@ jobs:
             args+=("--force")
           fi
           args+=("--require-r2-upload")
+          args+=("--allow-partial")
           python Scraper/social_scraper.py "${args[@]}"
 
       - name: Generate listing

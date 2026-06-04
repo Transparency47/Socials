@@ -917,14 +917,14 @@ def truth_social_headers(username: str | None = None) -> dict[str, str]:
 
 def truth_social_cloudflare_block(response: requests.Response) -> bool:
     content_type = response.headers.get("content-type", "").lower()
-    if response.status_code != 429:
+    if response.status_code not in (403, 429):
         return False
     body = response.text[:2000].lower()
     if "text/html" in content_type:
         return "cloudflare" in body or "access denied" in body
     if "application/json" in content_type:
-        return "cloudflare" in body or "error 1015" in body
-    return False
+        return "cloudflare" in body or "error 1015" in body or "forbidden" in body
+    return response.status_code == 403
 
 
 def truth_social_get(
@@ -961,7 +961,7 @@ def iter_truth_social_records(
     lookup_url = "https://truthsocial.com/api/v1/accounts/lookup"
     response = truth_social_get(session, lookup_url, username=username, params={"acct": username})
     if truth_social_cloudflare_block(response):
-        raise ScrapeError("Truth Social Cloudflare access denied (HTTP 429), not an API rate limit.")
+        raise ScrapeError(f"Truth Social Cloudflare access denied (HTTP {response.status_code}), not an API rate limit.")
     if response.status_code == 429:
         raise RateLimitError(rate_limit_message(response, "Truth Social"))
     response.raise_for_status()
@@ -990,7 +990,7 @@ def iter_truth_social_records(
         )
         result = truth_social_get(session, statuses_url, username=username, params=params)
         if truth_social_cloudflare_block(result):
-            raise ScrapeError("Truth Social Cloudflare access denied (HTTP 429), not an API rate limit.")
+            raise ScrapeError(f"Truth Social Cloudflare access denied (HTTP {result.status_code}), not an API rate limit.")
         if result.status_code == 429:
             raise RateLimitError(rate_limit_message(result, "Truth Social"))
         result.raise_for_status()
@@ -2587,6 +2587,14 @@ def run(args: argparse.Namespace) -> int:
     if daily_readmes:
         print(f"Wrote {daily_readmes} daily README files.", flush=True)
     print(f"Archived {archived} new/updated records; skipped {seen} already-current records.", flush=True)
+    if state["last_errors"] and args.allow_partial and (archived or seen):
+        print(
+            f"WARNING completed with {len(state['last_errors'])} account error(s); "
+            "successful account output was preserved because --allow-partial is set.",
+            file=sys.stderr,
+            flush=True,
+        )
+        return 0
     return 0 if not state["last_errors"] else 1
 
 
@@ -2629,6 +2637,11 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
     )
     parser.add_argument("--skip-r2-upload", action="store_true", help="Download media locally without uploading it to Cloudflare R2.")
     parser.add_argument("--require-r2-upload", action="store_true", help="Fail the run if media cannot be uploaded to Cloudflare R2.")
+    parser.add_argument(
+        "--allow-partial",
+        action="store_true",
+        help="Exit successfully when at least one account completed, even if another account had a scrape error.",
+    )
     parser.add_argument(
         "--transcript-languages",
         default="en,en-US",
