@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=eafk0lNExQE: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=eafk0lNExQE! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=eafk0lNExQE: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=eafk0lNExQE! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (eafk0lNExQE) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-04T18:51:38.750468+00:00",
   "seen_posts": {
@@ -120003,6 +120003,17 @@
       "title": "OUR BORDERS ARE CLOSED. Whether by land or sea \u2014 if you try to enter our nation illegally,...",
       "url": "https://x.com/DHSgov/status/2062589935610216469"
     },
+    "x:dhsgov:2062641723579445682": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:09:57.112378+00:00",
+      "path": "X/DHSgov/2026/06/04/2062641723579445682",
+      "platform": "x",
+      "post_id": "2062641723579445682",
+      "published": "2026-06-04T21:04:43+00:00",
+      "title": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa...",
+      "url": "https://x.com/DHSgov/status/2062641723579445682"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -122533,6 +122544,17 @@
       "title": "Repost of @FBI: .@FBIDirectorKash announces the launch of the @FBIMostWanted Fraudsters Li...",
       "url": "https://x.com/FBIDirectorKash/status/2062587341223735800"
     },
+    "x:fbidirectorkash:2062642034020700646": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:05.953564+00:00",
+      "path": "X/FBIDirectorKash/2026/06/04/2062642034020700646",
+      "platform": "x",
+      "post_id": "2062642034020700646",
+      "published": "2026-06-04T21:05:57+00:00",
+      "title": "You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that hel...",
+      "url": "https://x.com/FBIDirectorKash/status/2062642034020700646"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -124590,6 +124612,17 @@
       "title": "Repost of @WhiteHouse: 500 days of winning reached, and we're only scratching the surface....",
       "url": "https://x.com/POTUS/status/2062608719519592474"
     },
+    "x:potus:2062616136299012519": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T21:10:19.447243+00:00",
+      "path": "X/POTUS/2026/06/04/2062616136299012519",
+      "platform": "x",
+      "post_id": "2062616136299012519",
+      "published": "2026-06-04T19:23:03+00:00",
+      "title": "Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...",
+      "url": "https://x.com/POTUS/status/2062616136299012519"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -125777,6 +125810,149 @@
       "published": "2026-06-04T18:33:23+00:00",
       "title": "Repost of @WHOSTP47: \ud83d\udea8 NEW: \ud83c\uddfa\ud83c\uddf8 and \ud83c\uddef\ud83c\uddf5 announce new partnership to accelerate scientific br...",
       "url": "https://x.com/RapidResponse47/status/2062603637763821619"
+    },
+    "x:rapidresponse47:2062618108670460313": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.399991+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062618108670460313",
+      "platform": "x",
+      "post_id": "2062618108670460313",
+      "published": "2026-06-04T19:30:53+00:00",
+      "title": ".@POTUS on the Lincoln Memorial Reflecting Pool: \"We have it finished \u2014 and the water is p...",
+      "url": "https://x.com/RapidResponse47/status/2062618108670460313"
+    },
+    "x:rapidresponse47:2062618983954554890": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.399635+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062618983954554890",
+      "platform": "x",
+      "post_id": "2062618983954554890",
+      "published": "2026-06-04T19:34:22+00:00",
+      "title": "Republicans must pass the SAVE America Act! https://t.co/hTrMX3C54C",
+      "url": "https://x.com/RapidResponse47/status/2062618983954554890"
+    },
+    "x:rapidresponse47:2062620179356651928": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.399323+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062620179356651928",
+      "platform": "x",
+      "post_id": "2062620179356651928",
+      "published": "2026-06-04T19:39:07+00:00",
+      "title": ".@POTUS: \"Today, we're taking historic action to bring down the price of energy and the co...",
+      "url": "https://x.com/RapidResponse47/status/2062620179356651928"
+    },
+    "x:rapidresponse47:2062620746615026001": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.398982+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062620746615026001",
+      "platform": "x",
+      "post_id": "2062620746615026001",
+      "published": "2026-06-04T19:41:22+00:00",
+      "title": ".@POTUS: \"Today, we're officially invoking the Defense Production Act to save 13 coal plan...",
+      "url": "https://x.com/RapidResponse47/status/2062620746615026001"
+    },
+    "x:rapidresponse47:2062622205574262818": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.398623+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062622205574262818",
+      "platform": "x",
+      "post_id": "2062622205574262818",
+      "published": "2026-06-04T19:47:10+00:00",
+      "title": ".@POTUS: We're taking nearly $200M that was set aside for the Green New Scam, and repurpos...",
+      "url": "https://x.com/RapidResponse47/status/2062622205574262818"
+    },
+    "x:rapidresponse47:2062622841200165182": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.398291+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062622841200165182",
+      "platform": "x",
+      "post_id": "2062622841200165182",
+      "published": "2026-06-04T19:49:41+00:00",
+      "title": ".@SecretaryBurgum: \"This administration has done more to save, protect, and expand coal in...",
+      "url": "https://x.com/RapidResponse47/status/2062622841200165182"
+    },
+    "x:rapidresponse47:2062624156429033627": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.397956+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062624156429033627",
+      "platform": "x",
+      "post_id": "2062624156429033627",
+      "published": "2026-06-04T19:54:55+00:00",
+      "title": ".@SecretaryBurgum on the McMillan Plan for D.C.: \"Between the Lincoln Memorial and Arlingt...",
+      "url": "https://x.com/RapidResponse47/status/2062624156429033627"
+    },
+    "x:rapidresponse47:2062625208427503634": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.397577+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062625208427503634",
+      "platform": "x",
+      "post_id": "2062625208427503634",
+      "published": "2026-06-04T19:59:06+00:00",
+      "title": ".@epaleezeldin: \"The Democrats were running for power, to sit at this desk, and to leverag...",
+      "url": "https://x.com/RapidResponse47/status/2062625208427503634"
+    },
+    "x:rapidresponse47:2062625691300974970": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.397238+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062625691300974970",
+      "platform": "x",
+      "post_id": "2062625691300974970",
+      "published": "2026-06-04T20:01:01+00:00",
+      "title": ".@SecretaryWright: \"45 coal plants are open today that would not be open... Where would el...",
+      "url": "https://x.com/RapidResponse47/status/2062625691300974970"
+    },
+    "x:rapidresponse47:2062627047634010139": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.396886+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062627047634010139",
+      "platform": "x",
+      "post_id": "2062627047634010139",
+      "published": "2026-06-04T20:06:24+00:00",
+      "title": ".@wvgovernor Patrick Morrisey: \"All West Virginians are so deeply grateful to you for your...",
+      "url": "https://x.com/RapidResponse47/status/2062627047634010139"
+    },
+    "x:rapidresponse47:2062628291777868142": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.396518+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062628291777868142",
+      "platform": "x",
+      "post_id": "2062628291777868142",
+      "published": "2026-06-04T20:11:21+00:00",
+      "title": ".@POTUS on @pulte: \"He's very smart. He's a person who's got high integrity. He's done a f...",
+      "url": "https://x.com/RapidResponse47/status/2062628291777868142"
+    },
+    "x:rapidresponse47:2062629797054824644": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.396159+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062629797054824644",
+      "platform": "x",
+      "post_id": "2062629797054824644",
+      "published": "2026-06-04T20:17:20+00:00",
+      "title": "SUNDAY https://t.co/fzfRORy9ch",
+      "url": "https://x.com/RapidResponse47/status/2062629797054824644"
+    },
+    "x:rapidresponse47:2062629990374502825": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:10:33.395786+00:00",
+      "path": "X/RapidResponse47/2026/06/04/2062629990374502825",
+      "platform": "x",
+      "post_id": "2062629990374502825",
+      "published": "2026-06-04T20:18:06+00:00",
+      "title": ".@GovernorGordon: \"When a kid grows up in Wyoming, their education's paid for, in large pa...",
+      "url": "https://x.com/RapidResponse47/status/2062629990374502825"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -137394,6 +137570,17 @@
       "title": "Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today in Ohio: \"Federal ...",
       "url": "https://x.com/VP/status/2062609380151853101"
     },
+    "x:vp:2062632638934855765": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T21:11:30.172648+00:00",
+      "path": "X/VP/2026/06/04/2062632638934855765",
+      "platform": "x",
+      "post_id": "2062632638934855765",
+      "published": "2026-06-04T20:28:37+00:00",
+      "title": "Repost of @JDVance: Fraudsters stole your tax dollars to buy exotic and luxury cars - but ...",
+      "url": "https://x.com/VP/status/2062632638934855765"
+    },
     "x:whitehouse:2049578578270912645": {
       "account": "WhiteHouse",
       "content_kind": "post",
@@ -146270,6 +146457,61 @@
       "published": "2026-06-04T18:55:13+00:00",
       "title": "\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8 https://t.co/lG35VWalf4",
       "url": "https://x.com/WhiteHouse/status/2062609134470517174"
+    },
+    "x:whitehouse:2062615899874775549": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:11:38.704119+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062615899874775549",
+      "platform": "x",
+      "post_id": "2062615899874775549",
+      "published": "2026-06-04T19:22:06+00:00",
+      "title": "President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15",
+      "url": "https://x.com/WhiteHouse/status/2062615899874775549"
+    },
+    "x:whitehouse:2062623056221089834": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:11:38.703775+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062623056221089834",
+      "platform": "x",
+      "post_id": "2062623056221089834",
+      "published": "2026-06-04T19:50:32+00:00",
+      "title": "No President has prioritized CLEAN, BEAUTIFUL COAL like President Trump. His actions today...",
+      "url": "https://x.com/WhiteHouse/status/2062623056221089834"
+    },
+    "x:whitehouse:2062625493820563938": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T21:11:38.703402+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062625493820563938",
+      "platform": "x",
+      "post_id": "2062625493820563938",
+      "published": "2026-06-04T20:00:14+00:00",
+      "title": "Repost of @SecretaryBurgum: Water is ON! The Reflecting Pool is about to look more beautif...",
+      "url": "https://x.com/WhiteHouse/status/2062625493820563938"
+    },
+    "x:whitehouse:2062625561072062910": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-04T21:11:38.703053+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062625561072062910",
+      "platform": "x",
+      "post_id": "2062625561072062910",
+      "published": "2026-06-04T20:00:30+00:00",
+      "title": "Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...",
+      "url": "https://x.com/WhiteHouse/status/2062625561072062910"
+    },
+    "x:whitehouse:2062635583973851564": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-04T21:11:38.702653+00:00",
+      "path": "X/WhiteHouse/2026/06/04/2062635583973851564",
+      "platform": "x",
+      "post_id": "2062635583973851564",
+      "published": "2026-06-04T20:40:19+00:00",
+      "title": "The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO",
+      "url": "https://x.com/WhiteHouse/status/2062635583973851564"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

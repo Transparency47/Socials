@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-04
 
-- Posts: 10
+- Posts: 11
 
+- [21:05 UTC - You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that hel...](2062642034020700646/)
+  - Source: https://x.com/FBIDirectorKash/status/2062642034020700646
+  - You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that helped facilitate Operation Playground Therapy. Together, we investigated health care compani...
 - [17:28 UTC - Repost of @FBI: .@FBIDirectorKash announces the launch of the @FBIMostWanted Fraudsters Li...](2062587341223735800/)
   - Source: https://x.com/FBIDirectorKash/status/2062587341223735800
   - Repost of @FBI: .@FBIDirectorKash announces the launch of the @FBIMostWanted Fraudsters List, a new wanted list dedicated to publicly identifying individuals charged with defraudin...

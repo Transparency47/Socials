@@ -1,7 +1,10 @@
 # X / POTUS / 2026-06-04
 
-- Posts: 4
+- Posts: 5
 
+- [19:23 UTC - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...](2062616136299012519/)
+  - Source: https://x.com/POTUS/status/2062616136299012519
+  - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15
 - [18:53 UTC - Repost of @WhiteHouse: 500 days of winning reached, and we're only scratching the surface....](2062608719519592474/)
   - Source: https://x.com/POTUS/status/2062608719519592474
   - Repost of @WhiteHouse: 500 days of winning reached, and we're only scratching the surface. More wins. More results. MORE TO COME. 🇺🇸🇺🇸 https://t.co/EZxVAlTrkM

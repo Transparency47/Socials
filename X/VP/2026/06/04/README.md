@@ -1,7 +1,10 @@
 # X / VP / 2026-06-04
 
-- Posts: 21
+- Posts: 22
 
+- [20:28 UTC - Repost of @JDVance: Fraudsters stole your tax dollars to buy exotic and luxury cars - but ...](2062632638934855765/)
+  - Source: https://x.com/VP/status/2062632638934855765
+  - Repost of @JDVance: Fraudsters stole your tax dollars to buy exotic and luxury cars - but now, time’s up. Proud of our task force for all of the work being done to hold criminals a...
 - [18:56 UTC - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today in Ohio: "Federal ...](2062609380151853101/)
   - Source: https://x.com/VP/status/2062609380151853101
   - Repost of @DOJFraudDiv: Assistant Attorney General Colin McDonald today in Ohio: "Federal and state partners have come together as one to battle the fraud crisis that has crippled...

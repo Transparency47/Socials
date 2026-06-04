@@ -1,7 +1,22 @@
 # X / WhiteHouse / 2026-06-04
 
-- Posts: 24
+- Posts: 29
 
+- [20:40 UTC - The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO](2062635583973851564/)
+  - Source: https://x.com/WhiteHouse/status/2062635583973851564
+  - The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO
+- [20:00 UTC - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http...](2062625561072062910/)
+  - Source: https://x.com/WhiteHouse/status/2062625561072062910
+  - Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15
+- [20:00 UTC - Repost of @SecretaryBurgum: Water is ON! The Reflecting Pool is about to look more beautif...](2062625493820563938/)
+  - Source: https://x.com/WhiteHouse/status/2062625493820563938
+  - Repost of @SecretaryBurgum: Water is ON! The Reflecting Pool is about to look more beautiful than EVER. Thank you, @POTUS!
+- [19:50 UTC - No President has prioritized CLEAN, BEAUTIFUL COAL like President Trump. His actions today...](2062623056221089834/)
+  - Source: https://x.com/WhiteHouse/status/2062623056221089834
+  - No President has prioritized CLEAN, BEAUTIFUL COAL like President Trump. His actions today take historic steps to revitalizing the American coal industry. ⛏️🇺🇸 https://t.co/tmFCBPj...
+- [19:22 UTC - President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15](2062615899874775549/)
+  - Source: https://x.com/WhiteHouse/status/2062615899874775549
+  - President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15
 - [18:55 UTC - 🇺🇸🇺🇸 https://t.co/lG35VWalf4](2062609134470517174/)
   - Source: https://x.com/WhiteHouse/status/2062609134470517174
   - 🇺🇸🇺🇸 https://t.co/lG35VWalf4

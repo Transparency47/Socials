@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-04
 
-- Posts: 13
+- Posts: 14
 
+- [21:04 UTC - Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa...](2062641723579445682/)
+  - Source: https://x.com/DHSgov/status/2062641723579445682
+  - Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sanctuary politicians smear our officers by calling them Nazis, secret police, and spreading...
 - [17:38 UTC - OUR BORDERS ARE CLOSED. Whether by land or sea — if you try to enter our nation illegally,...](2062589935610216469/)
   - Source: https://x.com/DHSgov/status/2062589935610216469
   - OUR BORDERS ARE CLOSED. Whether by land or sea — if you try to enter our nation illegally, we will hunt you down and find you.

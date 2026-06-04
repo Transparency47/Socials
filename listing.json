@@ -1,6 +1,704 @@
 {
-  "generatedAt": "2026-06-04T19:24:49.874359+00:00",
+  "generatedAt": "2026-06-04T21:16:21.737020+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:ea636bbf8ecc68e3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:05.953564+00:00",
+        "datePublished": "2026-06-04T21:05:57+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062642034020700646"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/04/2062642034020700646/README.md",
+      "path": "X/FBIDirectorKash/2026/06/04/2062642034020700646/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2062642034020700646",
+      "summary": "You mess with our kids, and you WILL be caught!",
+      "title": "You mess with our kids, and you WILL be caught! Thank you to our partners in Ohio that hel..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:15536f86ef1a9c80",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:09:57.112378+00:00",
+        "datePublished": "2026-06-04T21:04:43+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062641723579445682"
+      },
+      "metadataPath": "X/DHSgov/2026/06/04/2062641723579445682/README.md",
+      "path": "X/DHSgov/2026/06/04/2062641723579445682/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062641723579445682",
+      "summary": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sanctuary politicians smear our officers by calling them Nazis, secret police, and spreading garbage about our ICE facilities.",
+      "title": "Instead of thanking our brave @ICEgov law enforcement for keeping our communities safe, sa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:fb5d7e4f6717beef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:11:38.702653+00:00",
+        "datePublished": "2026-06-04T20:40:19+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062634848804540416.jpg",
+            "remotePath": "archive/x/whitehouse/HJ_zd3hWEAAqz85.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_zd3hWEAAqz85.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HJ_zd3hWEAAqz85.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062634848804540416.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HJ_zd3hWEAAqz85.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062635583973851564"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062635583973851564/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062635583973851564/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062635583973851564",
+      "summary": "The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO",
+      "title": "The great comeback of Clean, Beautiful American coal. https://t.co/eEHzHpUdZO"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:340d02fcd244c702",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T21:11:30.172648+00:00",
+        "datePublished": "2026-06-04T20:28:37+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062632446290509824.jpg",
+            "remotePath": "archive/x/vp/HJ_xSBdXQAAGzCV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_xSBdXQAAGzCV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/vp/HJ_xSBdXQAAGzCV.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062632446290509824.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/vp/HJ_xSBdXQAAGzCV.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062632638934855765"
+      },
+      "metadataPath": "X/VP/2026/06/04/2062632638934855765/README.md",
+      "path": "X/VP/2026/06/04/2062632638934855765/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2062632638934855765",
+      "summary": "Repost of @JDVance:",
+      "title": "Repost of @JDVance: Fraudsters stole your tax dollars to buy exotic and luxury cars - but ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:304c3adf5f23182a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.395786+00:00",
+        "datePublished": "2026-06-04T20:18:06+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062625886109667328.mp4",
+            "remotePath": "archive/x/rapidresponse47/4zr8VlY6tJdVz6U7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062625886109667328/vid/avc1/1280x720/4zr8VlY6tJdVz6U7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4zr8VlY6tJdVz6U7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062625886109667328.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4zr8VlY6tJdVz6U7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062629990374502825"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062629990374502825/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062629990374502825/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062629990374502825",
+      "summary": ".@GovernorGordon: \"When a kid grows up in Wyoming, their education's paid for, in large part, by the coal severance taxes \u2014 by the royalties that come from mining that coal. That was shut down by the Democrats. When they have a chance to get a job, they can go look to the coal mi",
+      "title": ".@GovernorGordon: \"When a kid grows up in Wyoming, their education's paid for, in large pa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:553feb0388dbaa08",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.396159+00:00",
+        "datePublished": "2026-06-04T20:17:20+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062629782836203520.jpg",
+            "remotePath": "archive/x/rapidresponse47/HJ_u2_UX0AArgAw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_u2_UX0AArgAw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HJ_u2_UX0AArgAw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062629782836203520.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HJ_u2_UX0AArgAw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062629797054824644"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062629797054824644/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062629797054824644/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062629797054824644",
+      "summary": "SUNDAY https://t.co/fzfRORy9ch",
+      "title": "SUNDAY https://t.co/fzfRORy9ch"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:cba9ce5147aa1e69",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.396518+00:00",
+        "datePublished": "2026-06-04T20:11:21+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062627153800269824.mp4",
+            "remotePath": "archive/x/rapidresponse47/4fW5S9YEghIrpDK.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062627153800269824/vid/avc1/1280x720/4fW5S9YEghIrpDK_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4fW5S9YEghIrpDK.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062627153800269824.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4fW5S9YEghIrpDK.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062628291777868142"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062628291777868142/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062628291777868142/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062628291777868142",
+      "summary": ".@POTUS on @pulte: \"He's very smart. He's a person who's got high integrity. He's done a fantastic job... and it's an Acting position. He's not going to be permanent because I don't think he'd want to be permanent. But he's a very smart guy.\" https://t.co/2wqOy7VtaS",
+      "title": ".@POTUS on @pulte: \"He's very smart. He's a person who's got high integrity. He's done a f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:d2d764e06f9c0d2d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.396886+00:00",
+        "datePublished": "2026-06-04T20:06:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062626713058570241.mp4",
+            "remotePath": "archive/x/rapidresponse47/VKI3WbXElv2fYmKx.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062626713058570241/vid/avc1/1280x720/VKI3WbXElv2fYmKx.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VKI3WbXElv2fYmKx.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062626713058570241.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VKI3WbXElv2fYmKx.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062627047634010139"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062627047634010139/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062627047634010139/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062627047634010139",
+      "summary": ".@wvgovernor Patrick Morrisey: \"All West Virginians are so deeply grateful to you for your focus on protecting their energy jobs. The coal miners know the incredible importance of why we're here today...\" https://t.co/pZrqUuRovs",
+      "title": ".@wvgovernor Patrick Morrisey: \"All West Virginians are so deeply grateful to you for your..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:119a5ecc680cada5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.397238+00:00",
+        "datePublished": "2026-06-04T20:01:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062625330158862336.mp4",
+            "remotePath": "archive/x/rapidresponse47/RlyvBw_IPE17EJlS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062625330158862336/vid/avc1/1280x720/RlyvBw_IPE17EJlS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/RlyvBw_IPE17EJlS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062625330158862336.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/RlyvBw_IPE17EJlS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062625691300974970"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062625691300974970/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062625691300974970/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062625691300974970",
+      "summary": ".@SecretaryWright: \"45 coal plants are open today that would not be open... Where would electricity prices be if we had let all of those plants close? But we\u2019re not doing it... Common sense is returning to Washington, D.C.\" https://t.co/XkeKgLARPa",
+      "title": ".@SecretaryWright: \"45 coal plants are open today that would not be open... Where would el..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:d722f7e969120d57",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T21:11:38.703053+00:00",
+        "datePublished": "2026-06-04T20:00:30+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062625561072062910"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062625561072062910/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062625561072062910/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062625561072062910",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:29acf8079d7611f0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T21:11:38.703402+00:00",
+        "datePublished": "2026-06-04T20:00:14+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062625493820563938"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062625493820563938/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062625493820563938/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062625493820563938",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: Water is ON! The Reflecting Pool is about to look more beautif..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:5e8f21fa474c262e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.397577+00:00",
+        "datePublished": "2026-06-04T19:59:06+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062624719371665408.mp4",
+            "remotePath": "archive/x/rapidresponse47/xPfUemp3qCbhxPJf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062624719371665408/vid/avc1/1280x720/xPfUemp3qCbhxPJf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/xPfUemp3qCbhxPJf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062624719371665408.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/xPfUemp3qCbhxPJf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062625208427503634"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062625208427503634/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062625208427503634/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062625208427503634",
+      "summary": ".@epaleezeldin: \"The Democrats were running for power, to sit at this desk, and to leverage that power to destroy these [coal] communities. Enter President Trump. He has saved clean, beautiful coal \u2014 and it's been an honor to be a part of it.\" https://t.co/XLOMfizyZ8",
+      "title": ".@epaleezeldin: \"The Democrats were running for power, to sit at this desk, and to leverag..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:973c7edf28162991",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.397956+00:00",
+        "datePublished": "2026-06-04T19:54:55+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062623514461413376.mp4",
+            "remotePath": "archive/x/rapidresponse47/YN3udAuOAz73QofW.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062623514461413376/vid/avc1/1280x720/YN3udAuOAz73QofW.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/YN3udAuOAz73QofW.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062623514461413376.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/YN3udAuOAz73QofW.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062624156429033627"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062624156429033627/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062624156429033627/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062624156429033627",
+      "summary": ".@SecretaryBurgum on the McMillan Plan for D.C.: \"Between the Lincoln Memorial and Arlington Cemetery, at the halfway point, there\u2019s a very large circle. It was designed to hold a monument. The Arc that would go there is a fantastic compliment and completion of this plan [from] o",
+      "title": ".@SecretaryBurgum on the McMillan Plan for D.C.: \"Between the Lincoln Memorial and Arlingt..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:600f362e2706ae62",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:11:38.703775+00:00",
+        "datePublished": "2026-06-04T19:50:32+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062621599396773888.jpg",
+            "remotePath": "archive/x/whitehouse/HJ_napoXwAA0d5T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_napoXwAA0d5T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HJ_napoXwAA0d5T.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062621599396773888.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HJ_napoXwAA0d5T.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062623056221089834"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062623056221089834/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062623056221089834/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062623056221089834",
+      "summary": "No President has prioritized CLEAN, BEAUTIFUL COAL like President Trump. His actions today take historic steps to revitalizing the American coal industry. \u26cf\ufe0f\ud83c\uddfa\ud83c\uddf8 https://t.co/tmFCBPjg7l",
+      "title": "No President has prioritized CLEAN, BEAUTIFUL COAL like President Trump. His actions today..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:33365b90ef205265",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.398291+00:00",
+        "datePublished": "2026-06-04T19:49:41+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062622410650624000.mp4",
+            "remotePath": "archive/x/rapidresponse47/hx7g-CH1yVN05Z-S.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062622410650624000/vid/avc1/1280x720/hx7g-CH1yVN05Z-S.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/hx7g-CH1yVN05Z-S.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062622410650624000.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/hx7g-CH1yVN05Z-S.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062622841200165182"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062622841200165182/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062622841200165182/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062622841200165182",
+      "summary": ".@SecretaryBurgum: \"This administration has done more to save, protect, and expand coal in our country than any administration, perhaps, ever... it's the backbone of having affordable, reliable, and secure American energy.\" https://t.co/qHXppKg4ni",
+      "title": ".@SecretaryBurgum: \"This administration has done more to save, protect, and expand coal in..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:13a984c69e8d8a67",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.398623+00:00",
+        "datePublished": "2026-06-04T19:47:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062621287088816128.mp4",
+            "remotePath": "archive/x/rapidresponse47/r-IFwyT5BGjC3K6b.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062621287088816128/vid/avc1/1280x720/r-IFwyT5BGjC3K6b.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/r-IFwyT5BGjC3K6b.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062621287088816128.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/r-IFwyT5BGjC3K6b.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062622205574262818"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062622205574262818/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062622205574262818/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062622205574262818",
+      "summary": ".@POTUS: We're taking nearly $200M that was set aside for the Green New Scam, and repurposing that money so that we can restart a coal plant in Maryland, and help build two brand new coal plants in Alaska and West Virginia. https://t.co/WlXv9JTGap",
+      "title": ".@POTUS: We're taking nearly $200M that was set aside for the Green New Scam, and repurpos..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:e5498ef04a07bfd9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.398982+00:00",
+        "datePublished": "2026-06-04T19:41:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062620282569801728.mp4",
+            "remotePath": "archive/x/rapidresponse47/9kLIgH_b99epvbRP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062620282569801728/vid/avc1/1280x720/9kLIgH_b99epvbRP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/9kLIgH_b99epvbRP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062620282569801728.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/9kLIgH_b99epvbRP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062620746615026001"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062620746615026001/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062620746615026001/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062620746615026001",
+      "summary": ".@POTUS: \"Today, we're officially invoking the Defense Production Act to save 13 coal plants in West Virginia, Kentucky, North Carolina, Indiana, Tennessee, Arizona, Arkansas, Oklahoma, North Dakota, and Wisconsin.\" https://t.co/qcIjHyHHC1",
+      "title": ".@POTUS: \"Today, we're officially invoking the Defense Production Act to save 13 coal plan..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:82e68e6b08b88755",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.399323+00:00",
+        "datePublished": "2026-06-04T19:39:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062619771426729984.mp4",
+            "remotePath": "archive/x/rapidresponse47/tNB2fMHgvn15wmNY.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062619771426729984/vid/avc1/1280x720/tNB2fMHgvn15wmNY.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/tNB2fMHgvn15wmNY.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062619771426729984.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/tNB2fMHgvn15wmNY.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062620179356651928"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062620179356651928/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062620179356651928/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062620179356651928",
+      "summary": ".@POTUS: \"Today, we're taking historic action to bring down the price of energy and the cost of living for all Americans with the power of clean, beautiful coal... As a result of the $700M investment that I'm announcing today, we will protect 14 coal plants and 42 coal mines, and",
+      "title": ".@POTUS: \"Today, we're taking historic action to bring down the price of energy and the co..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:66f23796eb92e7ab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.399635+00:00",
+        "datePublished": "2026-06-04T19:34:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062618891658887169.mp4",
+            "remotePath": "archive/x/rapidresponse47/UD4UZDvA2D2zcQuv.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062618891658887169/vid/avc1/1280x720/UD4UZDvA2D2zcQuv.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/UD4UZDvA2D2zcQuv.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062618891658887169.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/UD4UZDvA2D2zcQuv.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062618983954554890"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062618983954554890/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062618983954554890/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062618983954554890",
+      "summary": "Republicans must pass the SAVE America Act! https://t.co/hTrMX3C54C",
+      "title": "Republicans must pass the SAVE America Act! https://t.co/hTrMX3C54C"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:9adea8c0812c8aa3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:10:33.399991+00:00",
+        "datePublished": "2026-06-04T19:30:53+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062617880659677184.mp4",
+            "remotePath": "archive/x/rapidresponse47/Wv9OgZ0jw2Efd25X.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062617880659677184/vid/avc1/1280x720/Wv9OgZ0jw2Efd25X.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/Wv9OgZ0jw2Efd25X.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062617880659677184.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/Wv9OgZ0jw2Efd25X.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062618108670460313"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/04/2062618108670460313/README.md",
+      "path": "X/RapidResponse47/2026/06/04/2062618108670460313/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062618108670460313",
+      "summary": ".@POTUS on the Lincoln Memorial Reflecting Pool: \"We have it finished \u2014 and the water is pouring in as we speak.\" https://t.co/KRAheL8vwE",
+      "title": ".@POTUS on the Lincoln Memorial Reflecting Pool: \"We have it finished \u2014 and the water is p..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:4c1925b4b1ac9423",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T21:10:19.447243+00:00",
+        "datePublished": "2026-06-04T19:23:03+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062616136299012519"
+      },
+      "metadataPath": "X/POTUS/2026/06/04/2062616136299012519/README.md",
+      "path": "X/POTUS/2026/06/04/2062616136299012519/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2062616136299012519",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Makes an Announcement on Beautiful, Clean Coal http..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:1d2d3bacdf41f230",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-04T21:11:38.704119+00:00",
+        "datePublished": "2026-06-04T19:22:06+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062615899874775549"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062615899874775549/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062615899874775549/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062615899874775549",
+      "summary": "President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15",
+      "title": "President Trump Makes an Announcement on Beautiful, Clean Coal https://t.co/PYs5XFiA15"
+    },
     {
       "category": "X",
       "date": "2026-06-04",

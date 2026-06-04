@@ -1,7 +1,46 @@
 # X / RapidResponse47 / 2026-06-04
 
-- Posts: 41
+- Posts: 54
 
+- [20:18 UTC - .@GovernorGordon: "When a kid grows up in Wyoming, their education's paid for, in large pa...](2062629990374502825/)
+  - Source: https://x.com/RapidResponse47/status/2062629990374502825
+  - .@GovernorGordon: "When a kid grows up in Wyoming, their education's paid for, in large part, by the coal severance taxes — by the royalties that come from mining that coal. That w...
+- [20:17 UTC - SUNDAY https://t.co/fzfRORy9ch](2062629797054824644/)
+  - Source: https://x.com/RapidResponse47/status/2062629797054824644
+  - SUNDAY https://t.co/fzfRORy9ch
+- [20:11 UTC - .@POTUS on @pulte: "He's very smart. He's a person who's got high integrity. He's done a f...](2062628291777868142/)
+  - Source: https://x.com/RapidResponse47/status/2062628291777868142
+  - .@POTUS on @pulte: "He's very smart. He's a person who's got high integrity. He's done a fantastic job... and it's an Acting position. He's not going to be permanent because I don'...
+- [20:06 UTC - .@wvgovernor Patrick Morrisey: "All West Virginians are so deeply grateful to you for your...](2062627047634010139/)
+  - Source: https://x.com/RapidResponse47/status/2062627047634010139
+  - .@wvgovernor Patrick Morrisey: "All West Virginians are so deeply grateful to you for your focus on protecting their energy jobs. The coal miners know the incredible importance of...
+- [20:01 UTC - .@SecretaryWright: "45 coal plants are open today that would not be open... Where would el...](2062625691300974970/)
+  - Source: https://x.com/RapidResponse47/status/2062625691300974970
+  - .@SecretaryWright: "45 coal plants are open today that would not be open... Where would electricity prices be if we had let all of those plants close? But we’re not doing it... Com...
+- [19:59 UTC - .@epaleezeldin: "The Democrats were running for power, to sit at this desk, and to leverag...](2062625208427503634/)
+  - Source: https://x.com/RapidResponse47/status/2062625208427503634
+  - .@epaleezeldin: "The Democrats were running for power, to sit at this desk, and to leverage that power to destroy these [coal] communities. Enter President Trump. He has saved clea...
+- [19:54 UTC - .@SecretaryBurgum on the McMillan Plan for D.C.: "Between the Lincoln Memorial and Arlingt...](2062624156429033627/)
+  - Source: https://x.com/RapidResponse47/status/2062624156429033627
+  - .@SecretaryBurgum on the McMillan Plan for D.C.: "Between the Lincoln Memorial and Arlington Cemetery, at the halfway point, there’s a very large circle. It was designed to hold a...
+- [19:49 UTC - .@SecretaryBurgum: "This administration has done more to save, protect, and expand coal in...](2062622841200165182/)
+  - Source: https://x.com/RapidResponse47/status/2062622841200165182
+  - .@SecretaryBurgum: "This administration has done more to save, protect, and expand coal in our country than any administration, perhaps, ever... it's the backbone of having afforda...
+- [19:47 UTC - .@POTUS: We're taking nearly $200M that was set aside for the Green New Scam, and repurpos...](2062622205574262818/)
+  - Source: https://x.com/RapidResponse47/status/2062622205574262818
+  - .@POTUS: We're taking nearly $200M that was set aside for the Green New Scam, and repurposing that money so that we can restart a coal plant in Maryland, and help build two brand n...
+- [19:41 UTC - .@POTUS: "Today, we're officially invoking the Defense Production Act to save 13 coal plan...](2062620746615026001/)
+  - Source: https://x.com/RapidResponse47/status/2062620746615026001
+  - .@POTUS: "Today, we're officially invoking the Defense Production Act to save 13 coal plants in West Virginia, Kentucky, North Carolina, Indiana, Tennessee, Arizona, Arkansas, Okla...
+- [19:39 UTC - .@POTUS: "Today, we're taking historic action to bring down the price of energy and the co...](2062620179356651928/)
+  - Source: https://x.com/RapidResponse47/status/2062620179356651928
+  - .@POTUS: "Today, we're taking historic action to bring down the price of energy and the cost of living for all Americans with the power of clean, beautiful coal... As a result of t...
+- [19:34 UTC - Republicans must pass the SAVE America Act! https://t.co/hTrMX3C54C](2062618983954554890/)
+  - Source: https://x.com/RapidResponse47/status/2062618983954554890
+  - Republicans must pass the SAVE America Act! https://t.co/hTrMX3C54C
+- [19:30 UTC - .@POTUS on the Lincoln Memorial Reflecting Pool: "We have it finished — and the water is p...](2062618108670460313/)
+  - Source: https://x.com/RapidResponse47/status/2062618108670460313
+  - .@POTUS on the Lincoln Memorial Reflecting Pool: "We have it finished — and the water is pouring in as we speak." https://t.co/KRAheL8vwE
 - [18:33 UTC - Repost of @WHOSTP47: 🚨 NEW: 🇺🇸 and 🇯🇵 announce new partnership to accelerate scientific br...](2062603637763821619/)
   - Source: https://x.com/RapidResponse47/status/2062603637763821619
   - Repost of @WHOSTP47: 🚨 NEW: 🇺🇸 and 🇯🇵 announce new partnership to accelerate scientific breakthroughs and harness AI as a tool for discovery https://t.co/zaBLQNvdlr https://t.co/8n...
