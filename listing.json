@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-04T14:52:31.112213+00:00",
+  "generatedAt": "2026-06-04T14:53:02.005974+00:00",
   "records": [
     {
       "category": "TikTok",
@@ -48537,6 +48537,40 @@
       "sourceUrl": "https://x.com/POTUS/status/2054917457505026484",
       "summary": "Repost of @WhiteHouse:",
       "title": "Repost of @WhiteHouse: A powerful arrival ceremony in Beijing.\u00a0\ud83c\uddfa\ud83c\uddf8\ud83c\udde8\ud83c\uddf3 https://t.co/kGedqmSwu..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-14",
+      "id": "socials:84a5913627a238d4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-04T14:52:57.363951+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2054755971939942400.mp4",
+            "remotePath": "archive/x/potus/yRGujyBm1ggJADkS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2054755971939942400/vid/avc1/1920x1080/yRGujyBm1ggJADkS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/yRGujyBm1ggJADkS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2054755971939942400.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/yRGujyBm1ggJADkS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2054782099006132349"
+      },
+      "metadataPath": "X/POTUS/2026/05/14/2054782099006132349/README.md",
+      "path": "X/POTUS/2026/05/14/2054782099006132349/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2054782099006132349",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"It's an honor to be with you, it's an honor to be your friend, and..."
     },
     {
       "category": "X",
