@@ -1,0 +1,49 @@
+# X / ICEgov / 2026-06-02
+
+- Posts: 15
+
+- [23:50 UTC - Repost of @DHSgov: Our heroic @ICEgov law enforcement officers were bitten, assaulted, and...](2061958776190615922/)
+  - Source: https://x.com/ICEgov/status/2061958776190615922
+  - Repost of @DHSgov: Our heroic @ICEgov law enforcement officers were bitten, assaulted, and faced death threats from violent rioters in New Jersey. The First Amendment protects spee...
+- [23:50 UTC - Repost of @DHSgov: On May 28, the state of New Jersey’s health inspectors went to Delaney ...](2061958681114112253/)
+  - Source: https://x.com/ICEgov/status/2061958681114112253
+  - Repost of @DHSgov: On May 28, the state of New Jersey’s health inspectors went to Delaney Hall and they didn’t find one single violation. Meanwhile, the New Jersey state prison sys...
+- [23:15 UTC - Gabriel Merino-Riano 📍Delaney Hall Rap sheet: 👉Urination &amp; defecation in public 👉Burgl...](2061949796319977933/)
+  - Source: https://x.com/ICEgov/status/2061949796319977933
+  - Gabriel Merino-Riano 📍Delaney Hall Rap sheet: 👉Urination &amp; defecation in public 👉Burglary 👉Disorderly conduct 👉Traffic offense 🌎Mexico https://t.co/EQEFyKYTBc
+- [22:28 UTC - Repost of @DHSgov: This is nothing more than already debunked nonsense. NO detainees were ...](2061938025513271602/)
+  - Source: https://x.com/ICEgov/status/2061938025513271602
+  - Repost of @DHSgov: This is nothing more than already debunked nonsense. NO detainees were beaten or attacked by ICE agents. On May 28, 2026, staff responded to a physical fight inv...
+- [22:25 UTC - Mark T. Eager, of New Jersey, began an 11-year federal prison sentence for conspiring to d...](2061937233645404640/)
+  - Source: https://x.com/ICEgov/status/2061937233645404640
+  - Mark T. Eager, of New Jersey, began an 11-year federal prison sentence for conspiring to distribute fentanyl. “This investigation brought together law enforcement agencies from acr...
+- [22:05 UTC - Marco Antonio Penafiel-Jachero 📍Delaney Hall Rap sheet: 👉Previously removed 👉Public order ...](2061932175373500658/)
+  - Source: https://x.com/ICEgov/status/2061932175373500658
+  - Marco Antonio Penafiel-Jachero 📍Delaney Hall Rap sheet: 👉Previously removed 👉Public order crime 👉Traffic offense 👉Traffic offense 👉Traffic offense 🌎Ecuador https://t.co/ysOCukF31x
+- [21:59 UTC - Repost of @RapidResponse47: .@SecMullinDHS dispels false rumors about Delaney Hall: First,...](2061930773091938543/)
+  - Source: https://x.com/ICEgov/status/2061930773091938543
+  - Repost of @RapidResponse47: .@SecMullinDHS dispels false rumors about Delaney Hall: First, they said it was overcrowded. We have twice the square footage as the state penitentiary....
+- [21:59 UTC - Repost of @DHSgov: “We’re seeing a pattern where sanctuary cities create a safe haven for ...](2061930708847734826/)
+  - Source: https://x.com/ICEgov/status/2061930708847734826
+  - Repost of @DHSgov: “We’re seeing a pattern where sanctuary cities create a safe haven for the worst of the worst to stay…just cooperate with us. Why are we having to fight state of...
+- [21:30 UTC - Renzo Villanueva-Regalado 📍Delaney Hall Rap sheet: 👉Five Alternatives-to-Detention violati...](2061923393977356454/)
+  - Source: https://x.com/ICEgov/status/2061923393977356454
+  - Renzo Villanueva-Regalado 📍Delaney Hall Rap sheet: 👉Five Alternatives-to-Detention violations 👉Traffic offense 👉Traffic offense 🌎Peru https://t.co/4HKaaLeYvx
+- [20:55 UTC - Angel Yupangue-Tamay 📍Delaney Hall Rap sheet: 👉DUI 👉Simple assault 🌎Ecuador https://t.co/N...](2061914559439347781/)
+  - Source: https://x.com/ICEgov/status/2061914559439347781
+  - Angel Yupangue-Tamay 📍Delaney Hall Rap sheet: 👉DUI 👉Simple assault 🌎Ecuador https://t.co/NSawc1Ym9m
+- [20:35 UTC - Daniel Naranjo Morocho 📍Delaney Hall Rap sheet: 👉Assault 👉Unauthorized possession 🌎Ecuador...](2061909520582840565/)
+  - Source: https://x.com/ICEgov/status/2061909520582840565
+  - Daniel Naranjo Morocho 📍Delaney Hall Rap sheet: 👉Assault 👉Unauthorized possession 🌎Ecuador https://t.co/daMWxYbPXl
+- [20:15 UTC - Pedro Reyes Villatoro 📍Delaney Hall Rap sheet: 👉DUI 👉Disorderly conduct 👉Traffic offense 👉...](2061904494535811567/)
+  - Source: https://x.com/ICEgov/status/2061904494535811567
+  - Pedro Reyes Villatoro 📍Delaney Hall Rap sheet: 👉DUI 👉Disorderly conduct 👉Traffic offense 👉Traffic offense 👉Liquor violation 🌎El Salvador https://t.co/D59Ql9HXZW
+- [19:50 UTC - 27-year-old Nicholas Matthew Scelf from Brooklyn, NY, was charged Monday with threatening ...](2061898149099196596/)
+  - Source: https://x.com/ICEgov/status/2061898149099196596
+  - 27-year-old Nicholas Matthew Scelf from Brooklyn, NY, was charged Monday with threatening to assault and murder an ICE officer and his family outside the Delaney Hall detention fac...
+- [19:42 UTC - Repost of @DHSgov: “When…you start referring to our agents as being dangerous, unconstitut...](2061896271049236809/)
+  - Source: https://x.com/ICEgov/status/2061896271049236809
+  - Repost of @DHSgov: “When…you start referring to our agents as being dangerous, unconstitutional, and lawless — that’s why our agent death threats are up 8,000%. I know that’s not w...
+- [19:39 UTC - Repost of @DHSgov: “Senator Murphy, the outlandish claims you made — they’re just flat wro...](2061895625067708683/)
+  - Source: https://x.com/ICEgov/status/2061895625067708683
+  - Repost of @DHSgov: “Senator Murphy, the outlandish claims you made — they’re just flat wrong. You start saying we’re breaking the laws…we’re enforcing the laws that Congress did pa...

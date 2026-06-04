@@ -1,6 +1,6 @@
 # X / ICEgov / 2026-06-03
 
-- Posts: 11
+- Posts: 14
 
 - [23:02 UTC - Repost of @DHSgov: Last week, the state of New Jersey’s health inspectors went to Delaney ...](2062308969859654029/)
   - Source: https://x.com/ICEgov/status/2062308969859654029
@@ -35,3 +35,12 @@
 - [14:56 UTC - CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS Mexi...](2062186599341752504/)
   - Source: https://x.com/ICEgov/status/2062186599341752504
   - CONVICTED WA DRUG TRAFFICKER TIED TO MURDERS OF COUPLE AND UNBORN CHILD GETS 20 YEARS Mexican criminal illegal alien Ricardo “Ricky” Orizaba-Zendejas was sentenced May 28 for drug...
+- [13:29 UTC - Repost of @DHSgov: Chef, Chicken Fried Steak was on the menu for dinner last night. https:...](2062164739363328350/)
+  - Source: https://x.com/ICEgov/status/2062164739363328350
+  - Repost of @DHSgov: Chef, Chicken Fried Steak was on the menu for dinner last night. https://t.co/BbNgi3AqO9
+- [00:54 UTC - Repost of @DHSgov: Sanctuary politicians must stop with the smears about Delaney Hall. ICE...](2061974680550916252/)
+  - Source: https://x.com/ICEgov/status/2061974680550916252
+  - Repost of @DHSgov: Sanctuary politicians must stop with the smears about Delaney Hall. ICE is regularly audited and inspected by external agencies.  All detainees are provided with...
+- [00:21 UTC - Repost of @EricLDaugh: 🚨 WOW! DHS Sec. Markwayne Mullin just stared insufferable Sen. Chri...](2061966376374321235/)
+  - Source: https://x.com/ICEgov/status/2061966376374321235
+  - Repost of @EricLDaugh: 🚨 WOW! DHS Sec. Markwayne Mullin just stared insufferable Sen. Chris Murphy (D) IN THE EYE and PUMMELED his lies 🫳🏻🎤 MURPHY: DHS is just making up the law! M...
