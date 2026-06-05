@@ -1,7 +1,34 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 2
+- Posts: 11
 
+- [13:34 UTC - Ohio AG David Yost on fraud schemes: "Incredible hubris. There was a McLaren in there, Lan...](2062890928520499484/)
+  - Source: https://x.com/RapidResponse47/status/2062890928520499484
+  - Ohio AG David Yost on fraud schemes: "Incredible hubris. There was a McLaren in there, Land Rovers, a Bentley — it's just amazing." The new partnerships established between the @WH...
+- [13:30 UTC - "This is the best jobs report in Trump's second administration," says Acting Labor Secreta...](2062889844360007924/)
+  - Source: https://x.com/RapidResponse47/status/2062889844360007924
+  - "This is the best jobs report in Trump's second administration," says Acting Labor Secretary @Sonderling47. "The jobs reports continue to demolish expectations... we saw 172,000 jo...
+- [13:23 UTC - NEC Director Kevin Hassett on the May jobs report: "Basically, what we're seeing is an eno...](2062887924295729170/)
+  - Source: https://x.com/RapidResponse47/status/2062887924295729170
+  - NEC Director Kevin Hassett on the May jobs report: "Basically, what we're seeing is an enormous amount of positive momentum in hiring." "This is a job markets that's hitting on all...
+- [13:05 UTC - .@cvpayne: The May jobs report shows us "how great this economy is working, how great thes...](2062883557857456548/)
+  - Source: https://x.com/RapidResponse47/status/2062883557857456548
+  - .@cvpayne: The May jobs report shows us "how great this economy is working, how great these policies are working." https://t.co/FwJDa6G6xo
+- [13:05 UTC - .@StephenMoore: "This is a BLOWOUT number. It is a great tribute to Trumponomics...What we...](2062883422024982703/)
+  - Source: https://x.com/RapidResponse47/status/2062883422024982703
+  - .@StephenMoore: "This is a BLOWOUT number. It is a great tribute to Trumponomics...What we're seeing right now is nothing short of a miracle...we've got rising wages in this countr...
+- [13:04 UTC - .@cherylcasone: "We're still seeing wages that are tracking and still strong... and I thin...](2062883237051994480/)
+  - Source: https://x.com/RapidResponse47/status/2062883237051994480
+  - .@cherylcasone: "We're still seeing wages that are tracking and still strong... and I think that that kind of shows you the resilience of the economy." https://t.co/Zw3wFPXBXg
+- [13:02 UTC - Fox Business: "WOW! WOW! 172,000 nonfarm payrolls were added to the economy in May. The es...](2062882742107296036/)
+  - Source: https://x.com/RapidResponse47/status/2062882742107296036
+  - Fox Business: "WOW! WOW! 172,000 nonfarm payrolls were added to the economy in May. The estimate was 85,000." "Private sector jobs coming in better than expected—120,000... factory...
+- [12:59 UTC - CNBC reacts to the 172,000 nonfarm payrolls added in May: "Is there any doubt that this an...](2062881963082383732/)
+  - Source: https://x.com/RapidResponse47/status/2062881963082383732
+  - CNBC reacts to the 172,000 nonfarm payrolls added in May: "Is there any doubt that this anecdotal evidence about a good labor market has been very correct? That is a REALLY STRONG...
+- [12:39 UTC - 🇺🇸🇺🇸🇺🇸❤️❤️❤️ https://t.co/PW3B5C93mW](2062876942890672191/)
+  - Source: https://x.com/RapidResponse47/status/2062876942890672191
+  - 🇺🇸🇺🇸🇺🇸❤️❤️❤️ https://t.co/PW3B5C93mW
 - [01:27 UTC - .@RealTomHoman on Delaney Hall: “Everybody in that facility’s being legally detained, and ...](2062707745942372743/)
   - Source: https://x.com/RapidResponse47/status/2062707745942372743
   - .@RealTomHoman on Delaney Hall: “Everybody in that facility’s being legally detained, and not only that — a large portion of them are mandatory detained by federal statute. We coul...

@@ -1,6 +1,6 @@
 {
   "last_errors": [],
-  "last_successful_run": "2026-06-05T10:46:45.886674+00:00",
+  "last_successful_run": "2026-06-05T13:48:09.923270+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7375744699140721963": {
       "account": "RealDonaldTrump",
@@ -113247,6 +113247,17 @@
       "title": "Truth Social post 116695405193333847",
       "url": "https://truthsocial.com/@realDonaldTrump/116695405193333847"
     },
+    "truthsocial:realdonaldtrump:116697652239322943": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:45:04.975803+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116697652239322943",
+      "platform": "truthsocial",
+      "post_id": "116697652239322943",
+      "published": "2026-06-05T13:07:39.609000+00:00",
+      "title": "Truth Social post 116697652239322943",
+      "url": "https://truthsocial.com/@realDonaldTrump/116697652239322943"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120122,6 +120133,28 @@
       "title": "Under this updated policy, when an individual is no longer in ICE custody then ICE will no...",
       "url": "https://x.com/DHSgov/status/2062663466456875118"
     },
+    "x:dhsgov:2062872863074324584": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:43:19.183177+00:00",
+      "path": "X/DHSgov/2026/06/05/2062872863074324584",
+      "platform": "x",
+      "post_id": "2062872863074324584",
+      "published": "2026-06-05T12:23:11+00:00",
+      "title": "The facts CONTINUE to dispel sanctuary politicians\u2019 hoaxes about our facilities. ALL detai...",
+      "url": "https://x.com/DHSgov/status/2062872863074324584"
+    },
+    "x:dhsgov:2062886604599967847": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:43:19.182740+00:00",
+      "path": "X/DHSgov/2026/06/05/2062886604599967847",
+      "platform": "x",
+      "post_id": "2062886604599967847",
+      "published": "2026-06-05T13:17:47+00:00",
+      "title": "REMINDER: on May 28, the state of New Jersey\u2019s health inspectors went to Delaney Hall and ...",
+      "url": "https://x.com/DHSgov/status/2062886604599967847"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -122685,6 +122718,17 @@
       "title": "This shows the best of this FBI when on Tuesday, June 2nd, a subject Anthony Scott Searles...",
       "url": "https://x.com/FBIDirectorKash/status/2062651870649483772"
     },
+    "x:fbidirectorkash:2062851722263834733": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:29.811346+00:00",
+      "path": "X/FBIDirectorKash/2026/06/05/2062851722263834733",
+      "platform": "x",
+      "post_id": "2062851722263834733",
+      "published": "2026-06-05T10:59:11+00:00",
+      "title": "Repost of @FBI_Response: . @FBIDirectorKash \u201cTo the American public\u2026 We are doing more - w...",
+      "url": "https://x.com/FBIDirectorKash/status/2062851722263834733"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -123113,6 +123157,39 @@
       "published": "2026-06-05T02:03:24+00:00",
       "title": "Repost of @RapidResponse47: .@RealTomHoman on Delaney Hall: \u201cEverybody in that facility\u2019s ...",
       "url": "https://x.com/ICEgov/status/2062716887314624515"
+    },
+    "x:icegov:2062863155311599720": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:42.577286+00:00",
+      "path": "X/ICEgov/2026/06/05/2062863155311599720",
+      "platform": "x",
+      "post_id": "2062863155311599720",
+      "published": "2026-06-05T11:44:37+00:00",
+      "title": "Repost of @DHSgov: Under this updated policy, when an individual is no longer in ICE custo...",
+      "url": "https://x.com/ICEgov/status/2062863155311599720"
+    },
+    "x:icegov:2062885484053844025": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:43:42.577047+00:00",
+      "path": "X/ICEgov/2026/06/05/2062885484053844025",
+      "platform": "x",
+      "post_id": "2062885484053844025",
+      "published": "2026-06-05T13:13:20+00:00",
+      "title": "48 ARRESTED IN MASSIVE TEXAS METH STING Nearly 80 pounds of methamphetamine, 300 grams of ...",
+      "url": "https://x.com/ICEgov/status/2062885484053844025"
+    },
+    "x:icegov:2062887583785402713": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:42.576701+00:00",
+      "path": "X/ICEgov/2026/06/05/2062887583785402713",
+      "platform": "x",
+      "post_id": "2062887583785402713",
+      "published": "2026-06-05T13:21:41+00:00",
+      "title": "Repost of @DHSgov: REMINDER: on May 28, the state of New Jersey\u2019s health inspectors went t...",
+      "url": "https://x.com/ICEgov/status/2062887583785402713"
     },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
@@ -124797,6 +124874,39 @@
       "title": "Repost of @WhiteHouse: \"On Wednesday, June 24th, at 7 P.M., in magnificent Washington, D.C...",
       "url": "https://x.com/POTUS/status/2062657662945218650"
     },
+    "x:potus:2062872163208614030": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:52.664240+00:00",
+      "path": "X/POTUS/2026/06/05/2062872163208614030",
+      "platform": "x",
+      "post_id": "2062872163208614030",
+      "published": "2026-06-05T12:20:24+00:00",
+      "title": "Repost of @WhiteHouse: The Model Cities Initiative fights for a\u00a0safer America, with MORE p...",
+      "url": "https://x.com/POTUS/status/2062872163208614030"
+    },
+    "x:potus:2062872173325246474": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:52.664010+00:00",
+      "path": "X/POTUS/2026/06/05/2062872173325246474",
+      "platform": "x",
+      "post_id": "2062872173325246474",
+      "published": "2026-06-05T12:20:27+00:00",
+      "title": "Repost of @WhiteHouse: Sounds of the fountains in Lafayette Park flowing again: Postcard E...",
+      "url": "https://x.com/POTUS/status/2062872173325246474"
+    },
+    "x:potus:2062885517532795339": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T13:43:52.663694+00:00",
+      "path": "X/POTUS/2026/06/05/2062885517532795339",
+      "platform": "x",
+      "post_id": "2062885517532795339",
+      "published": "2026-06-05T13:13:28+00:00",
+      "title": "Repost of @WhiteHouse: OUTSTANDING JOBS NUMBERS! \ud83d\udcc8\ud83c\uddfa\ud83c\uddf8 https://t.co/8g0MspCKtZ",
+      "url": "https://x.com/POTUS/status/2062885517532795339"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -126193,6 +126303,105 @@
       "published": "2026-06-05T01:27:04+00:00",
       "title": ".@RealTomHoman on Delaney Hall: \u201cEverybody in that facility\u2019s being legally detained, and ...",
       "url": "https://x.com/RapidResponse47/status/2062707745942372743"
+    },
+    "x:rapidresponse47:2062876942890672191": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.925372+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062876942890672191",
+      "platform": "x",
+      "post_id": "2062876942890672191",
+      "published": "2026-06-05T12:39:24+00:00",
+      "title": "\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\u2764\ufe0f\u2764\ufe0f\u2764\ufe0f https://t.co/PW3B5C93mW",
+      "url": "https://x.com/RapidResponse47/status/2062876942890672191"
+    },
+    "x:rapidresponse47:2062881963082383732": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.925042+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062881963082383732",
+      "platform": "x",
+      "post_id": "2062881963082383732",
+      "published": "2026-06-05T12:59:21+00:00",
+      "title": "CNBC reacts to the 172,000 nonfarm payrolls added in May: \"Is there any doubt that this an...",
+      "url": "https://x.com/RapidResponse47/status/2062881963082383732"
+    },
+    "x:rapidresponse47:2062882742107296036": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.924677+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062882742107296036",
+      "platform": "x",
+      "post_id": "2062882742107296036",
+      "published": "2026-06-05T13:02:26+00:00",
+      "title": "Fox Business: \"WOW! WOW! 172,000 nonfarm payrolls were added to the economy in May. The es...",
+      "url": "https://x.com/RapidResponse47/status/2062882742107296036"
+    },
+    "x:rapidresponse47:2062883237051994480": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.924330+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062883237051994480",
+      "platform": "x",
+      "post_id": "2062883237051994480",
+      "published": "2026-06-05T13:04:24+00:00",
+      "title": ".@cherylcasone: \"We're still seeing wages that are tracking and still strong... and I thin...",
+      "url": "https://x.com/RapidResponse47/status/2062883237051994480"
+    },
+    "x:rapidresponse47:2062883422024982703": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.924126+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062883422024982703",
+      "platform": "x",
+      "post_id": "2062883422024982703",
+      "published": "2026-06-05T13:05:08+00:00",
+      "title": ".@StephenMoore: \"This is a BLOWOUT number. It is a great tribute to Trumponomics...What we...",
+      "url": "https://x.com/RapidResponse47/status/2062883422024982703"
+    },
+    "x:rapidresponse47:2062883557857456548": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.923911+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062883557857456548",
+      "platform": "x",
+      "post_id": "2062883557857456548",
+      "published": "2026-06-05T13:05:41+00:00",
+      "title": ".@cvpayne: The May jobs report shows us \"how great this economy is working, how great thes...",
+      "url": "https://x.com/RapidResponse47/status/2062883557857456548"
+    },
+    "x:rapidresponse47:2062887924295729170": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.923611+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062887924295729170",
+      "platform": "x",
+      "post_id": "2062887924295729170",
+      "published": "2026-06-05T13:23:02+00:00",
+      "title": "NEC Director Kevin Hassett on the May jobs report: \"Basically, what we're seeing is an eno...",
+      "url": "https://x.com/RapidResponse47/status/2062887924295729170"
+    },
+    "x:rapidresponse47:2062889844360007924": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.923153+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062889844360007924",
+      "platform": "x",
+      "post_id": "2062889844360007924",
+      "published": "2026-06-05T13:30:40+00:00",
+      "title": "\"This is the best jobs report in Trump's second administration,\" says Acting Labor Secreta...",
+      "url": "https://x.com/RapidResponse47/status/2062889844360007924"
+    },
+    "x:rapidresponse47:2062890928520499484": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:12.922757+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062890928520499484",
+      "platform": "x",
+      "post_id": "2062890928520499484",
+      "published": "2026-06-05T13:34:58+00:00",
+      "title": "Ohio AG David Yost on fraud schemes: \"Incredible hubris. There was a McLaren in there, Lan...",
+      "url": "https://x.com/RapidResponse47/status/2062890928520499484"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -146840,6 +147049,28 @@
       "published": "2026-06-05T01:03:24+00:00",
       "title": "The Model Cities Initiative fights for a\u00a0safer America, with MORE police officers on our s...",
       "url": "https://x.com/WhiteHouse/status/2062701791444185204"
+    },
+    "x:whitehouse:2062871583472152984": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:52.577747+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062871583472152984",
+      "platform": "x",
+      "post_id": "2062871583472152984",
+      "published": "2026-06-05T12:18:06+00:00",
+      "title": "Sounds of the fountains in Lafayette Park flowing again: Postcard Edition \ud83d\udca7 Thank you, Pre...",
+      "url": "https://x.com/WhiteHouse/status/2062871583472152984"
+    },
+    "x:whitehouse:2062884560006701316": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T13:44:52.577348+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062884560006701316",
+      "platform": "x",
+      "post_id": "2062884560006701316",
+      "published": "2026-06-05T13:09:40+00:00",
+      "title": "OUTSTANDING JOBS NUMBERS! \ud83d\udcc8\ud83c\uddfa\ud83c\uddf8 https://t.co/8g0MspCKtZ",
+      "url": "https://x.com/WhiteHouse/status/2062884560006701316"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
