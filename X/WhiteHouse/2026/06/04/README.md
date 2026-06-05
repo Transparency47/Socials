@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-04
 
-- Posts: 33
+- Posts: 35
 
+- [23:58 UTC - Repost of @ENERGY: Today, an advanced non-lightwater nuclear reactor reached criticality i...](2062685523618017586/)
+  - Source: https://x.com/WhiteHouse/status/2062685523618017586
+  - Repost of @ENERGY: Today, an advanced non-lightwater nuclear reactor reached criticality in the United States for the first time in more than four decades. Thanks to President Trum...
+- [23:58 UTC - Repost of @DrOzCMS: No more champagne on private jets for these people. No more new cars. ...](2062685456462954994/)
+  - Source: https://x.com/WhiteHouse/status/2062685456462954994
+  - Repost of @DrOzCMS: No more champagne on private jets for these people. No more new cars. No more luxury endeavors and vacations. It’s over for these health care fraudsters. https:...
 - [23:08 UTC - NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp](2062672997182292421/)
   - Source: https://x.com/WhiteHouse/status/2062672997182292421
   - NO MORE GAMES. Pass the SAVE America Act without delay! https://t.co/I8i1rv7gTp

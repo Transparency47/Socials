@@ -1,6 +1,350 @@
 {
-  "generatedAt": "2026-06-04T23:58:03.954483+00:00",
+  "generatedAt": "2026-06-05T02:47:51.387433+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:e84e01869e81e4e0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T02:43:44.439389+00:00",
+        "datePublished": "2026-06-05T02:03:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062707631538499584.mp4",
+            "remotePath": "archive/x/icegov/vzr2uAcG-y4jKn-B.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062707631538499584/vid/avc1/1280x720/vzr2uAcG-y4jKn-B.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/vzr2uAcG-y4jKn-B.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062707631538499584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/vzr2uAcG-y4jKn-B.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062716887314624515"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062716887314624515/README.md",
+      "path": "X/ICEgov/2026/06/05/2062716887314624515/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062716887314624515",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@RealTomHoman on Delaney Hall: \u201cEverybody in that facility\u2019s ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:8b03fe8035b9f69d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T02:44:05.644867+00:00",
+        "datePublished": "2026-06-05T01:27:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062707631538499584.mp4",
+            "remotePath": "archive/x/rapidresponse47/vzr2uAcG-y4jKn-B.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062707631538499584/vid/avc1/1280x720/vzr2uAcG-y4jKn-B.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/vzr2uAcG-y4jKn-B.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062707631538499584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/vzr2uAcG-y4jKn-B.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062707745942372743"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062707745942372743/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062707745942372743/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062707745942372743",
+      "summary": ".@RealTomHoman on Delaney Hall: \u201cEverybody in that facility\u2019s being legally detained, and not only that \u2014 a large portion of them are mandatory detained by federal statute. We couldn\u2019t release them if we wanted to\u2026the governor needs to study the immigration law and find out we\u2019re",
+      "title": ".@RealTomHoman on Delaney Hall: \u201cEverybody in that facility\u2019s being legally detained, and ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:36c4fc97b498dff7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T02:44:30.569160+00:00",
+        "datePublished": "2026-06-05T01:03:24+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062700852746346496.jpg",
+            "remotePath": "archive/x/whitehouse/HKAvfzXXYAAp9wj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAvfzXXYAAp9wj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKAvfzXXYAAp9wj.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062700852746346496.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKAvfzXXYAAp9wj.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062701791444185204"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062701791444185204/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062701791444185204/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062701791444185204",
+      "summary": "The Model Cities Initiative fights for a safer America, with MORE police officers on our streets and MORE criminals behind bars. President Trump and @TheJusticeDept are committed to cleaning up American streets for good. https://t.co/LWpGu5Z3eh",
+      "title": "The Model Cities Initiative fights for a\u00a0safer America, with MORE police officers on our s..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:4523a61d5f6c6011",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T02:44:30.569479+00:00",
+        "datePublished": "2026-06-05T00:38:03+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062687655767232512.mp4",
+            "remotePath": "archive/x/whitehouse/QtDroPOD6_jh2ZPV.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062687655767232512/vid/avc1/1080x1920/QtDroPOD6_jh2ZPV.mp4?tag=16",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/QtDroPOD6_jh2ZPV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062687655767232512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/QtDroPOD6_jh2ZPV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062695409269531002"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062695409269531002/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062695409269531002/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062695409269531002",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: ICYMI \ud83c\uddfa\ud83c\uddf8 https://t.co/AqqDpgWhFm"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0c12f4f5e2f48da0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T02:43:44.439748+00:00",
+        "datePublished": "2026-06-05T00:21:42+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062616324619091968.jpg",
+            "remotePath": "archive/x/icegov/HJ_innjXwAAcUV4.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_innjXwAAcUV4.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HJ_innjXwAAcUV4.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062616324614864896.jpg",
+            "remotePath": "archive/x/icegov/HJ_inniXQAA9IY9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_inniXQAA9IY9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HJ_inniXQAA9IY9.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2062616324581285888.jpg",
+            "remotePath": "archive/x/icegov/HJ_innaW4AAN0J9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HJ_innaW4AAN0J9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HJ_innaW4AAN0J9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062616324619091968.jpg",
+          "media/02_image_2062616324614864896.jpg",
+          "media/03_image_2062616324581285888.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HJ_innjXwAAcUV4.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HJ_inniXQAA9IY9.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HJ_innaW4AAN0J9.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062691297119379825"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062691297119379825/README.md",
+      "path": "X/ICEgov/2026/06/05/2062691297119379825/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062691297119379825",
+      "summary": "Repost of @AliBradleyTV:",
+      "title": "Repost of @AliBradleyTV: ICYMI: A @DHSgov Inspector General report found no evidence that ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2e821281c974fb89",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T02:44:05.645364+00:00",
+        "datePublished": "2026-06-05T00:21:23+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062691184619692032.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKAmtCyWIAA_Y4y.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAmtCyWIAA_Y4y.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKAmtCyWIAA_Y4y.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062691184619692032.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKAmtCyWIAA_Y4y.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062691216446079098"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062691216446079098/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062691216446079098/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062691216446079098",
+      "summary": "https://t.co/lbJAVuAODX",
+      "title": "https://t.co/lbJAVuAODX"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:773c8e3de6e754ef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T02:44:39.500340+00:00",
+        "datePublished": "2026-06-05T00:21:06.097000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116694638006168499"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116694638006168499/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116694638006168499/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116694638006168499",
+      "summary": "I\u2019d like to thank our GREAT Senator, Lindsey Graham, for putting up THE SAVE AMERICA ACT for a Vote today. It states that: 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS, DISABILITY, MI",
+      "title": "I\u2019d like to thank our GREAT Senator, Lindsey Graham, for putting up THE SAVE AMERICA ACT f..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:b07c714e44f4ea19",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T02:44:39.500717+00:00",
+        "datePublished": "2026-06-05T00:17:28.105000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116694623719827006"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116694623719827006/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116694623719827006/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116694623719827006",
+      "summary": "Watch California, everybody! Our Election process is as bad, or worse, than any Third World Country. The biggest difference is, they count their Votes much faster \u2014 They don\u2019t wait seven days to tell you who won, rigging the Election during each and every one of them. Americans a",
+      "title": "Watch California, everybody! Our Election process is as bad, or worse, than any Third Worl..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:3f4b3c3790006f3e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T02:44:30.569795+00:00",
+        "datePublished": "2026-06-04T23:58:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062671399089487873.jpg",
+            "remotePath": "archive/x/whitehouse/HKAUtX8WQAE7pSP.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAUtX8WQAE7pSP.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKAUtX8WQAE7pSP.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062671399089487873.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKAUtX8WQAE7pSP.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062685523618017586"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062685523618017586/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062685523618017586/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062685523618017586",
+      "summary": "Repost of @ENERGY:",
+      "title": "Repost of @ENERGY: Today, an advanced non-lightwater nuclear reactor reached criticality i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-04",
+      "id": "socials:8baaaf41dc22f30a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T02:44:30.570075+00:00",
+        "datePublished": "2026-06-04T23:58:30+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062654248437915649.jpg",
+            "remotePath": "archive/x/whitehouse/HKAFHEyXoAEU3fj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKAFHEyXoAEU3fj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKAFHEyXoAEU3fj.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062654248437915649.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKAFHEyXoAEU3fj.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062685456462954994"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/04/2062685456462954994/README.md",
+      "path": "X/WhiteHouse/2026/06/04/2062685456462954994/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062685456462954994",
+      "summary": "Repost of @DrOzCMS:",
+      "title": "Repost of @DrOzCMS: No more champagne on private jets for these people. No more new cars. ..."
+    },
     {
       "category": "X",
       "date": "2026-06-04",
