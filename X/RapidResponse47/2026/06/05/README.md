@@ -1,7 +1,28 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 32
+- Posts: 39
 
+- [19:47 UTC - .@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: "The j...](2062984690626081151/)
+  - Source: https://x.com/RapidResponse47/status/2062984690626081151
+  - .@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: "The job numbers were fantastic today...we have factories &amp; plants being built all over our...
+- [19:39 UTC - One might wonder why Newscum's team would post something so idiotic, but it makes sense co...](2062982741667283016/)
+  - Source: https://x.com/RapidResponse47/status/2062982741667283016
+  - One might wonder why Newscum's team would post something so idiotic, but it makes sense considering they've never actually seen a project completed. It's a foreign concept to them....
+- [19:36 UTC - Repost of @StephenM: Congratulations to the great @pulte on his selection by President Tru...](2062981866257363392/)
+  - Source: https://x.com/RapidResponse47/status/2062981866257363392
+  - Repost of @StephenM: Congratulations to the great @pulte on his selection by President Trump to serve as the Acting DNI. Bill is a tireless champion for America who will deliver am...
+- [18:58 UTC - Repost of @SecretaryBurgum: All credit to @POTUS!](2062972412375798085/)
+  - Source: https://x.com/RapidResponse47/status/2062972412375798085
+  - Repost of @SecretaryBurgum: All credit to @POTUS!
+- [18:58 UTC - Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o...](2062972386543129058/)
+  - Source: https://x.com/RapidResponse47/status/2062972386543129058
+  - Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum on AI in the national security enterprise. The men and women who defend our nation deserve...
+- [18:57 UTC - .@ATJackson47: "How great is it to have a president who is giving our nation's capital the...](2062972194469085647/)
+  - Source: https://x.com/RapidResponse47/status/2062972194469085647
+  - .@ATJackson47: "How great is it to have a president who is giving our nation's capital the attention to bring it back to the grandeur that it deserves? Especially ahead of America'...
+- [18:49 UTC - .@AFergusonFTC on Minnesota disenrolling 3400 high risk Medicaid providers: “I’m glad they...](2062970135556567527/)
+  - Source: https://x.com/RapidResponse47/status/2062970135556567527
+  - .@AFergusonFTC on Minnesota disenrolling 3400 high risk Medicaid providers: “I’m glad they’re doing this, but this should’ve been done a long time ago. All of these guys were flagg...
 - [17:59 UTC - "I can even see the American flags around the Washington Monument, it's so reflective... T...](2062957543979090022/)
   - Source: https://x.com/RapidResponse47/status/2062957543979090022
   - "I can even see the American flags around the Washington Monument, it's so reflective... That's impressive!" https://t.co/Z14ieP9kPg

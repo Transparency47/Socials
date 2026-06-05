@@ -1,6 +1,1022 @@
 {
-  "generatedAt": "2026-06-05T18:23:19.161205+00:00",
+  "generatedAt": "2026-06-05T20:27:45.484666+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:36effb94b89501ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:24:19.171361+00:00",
+        "datePublished": "2026-06-05T20:21:52+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062993327423713321"
+      },
+      "metadataPath": "X/VP/2026/06/05/2062993327423713321/README.md",
+      "path": "X/VP/2026/06/05/2062993327423713321/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2062993327423713321",
+      "summary": "Repost of @DOJFraudDiv:",
+      "title": "Repost of @DOJFraudDiv: \u201cThe Fraud Division is building a replicable model to combat the f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:dc7f4b4c160be3ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:12.856569+00:00",
+        "datePublished": "2026-06-05T20:08:17+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062989909577626069"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062989909577626069/README.md",
+      "path": "X/DHSgov/2026/06/05/2062989909577626069/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062989909577626069",
+      "summary": "Our ICE law enforcement officers truly are the best of the best. They put their lives on the line every day to arrest the worst of the worst.",
+      "title": "Our ICE law enforcement officers truly are the best of the best. They put their lives on t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:a33d3414c3625f2a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:57.464107+00:00",
+        "datePublished": "2026-06-05T19:47:33+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062984283413692416.mp4",
+            "remotePath": "archive/x/rapidresponse47/SxLc4ZUGpq8WqdXZ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062984283413692416/vid/avc1/1920x1080/SxLc4ZUGpq8WqdXZ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/SxLc4ZUGpq8WqdXZ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062984283413692416.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/SxLc4ZUGpq8WqdXZ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062984690626081151"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062984690626081151/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062984690626081151/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062984690626081151",
+      "summary": ".@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: \"The job numbers were fantastic today...we have factories &amp; plants being built all over our country at a number that we've never had before...the situation with Iran seems to be going quite we",
+      "title": ".@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: \"The j..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:f13cb15fdbd0230e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:57.464481+00:00",
+        "datePublished": "2026-06-05T19:39:48+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062982561249280001.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKEvtZUWwAEPP26.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEvtZUWwAEPP26.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKEvtZUWwAEPP26.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062982561249280001.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKEvtZUWwAEPP26.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062982741667283016"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062982741667283016/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062982741667283016/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062982741667283016",
+      "summary": "One might wonder why Newscum's team would post something so idiotic, but it makes sense considering they've never actually seen a project completed. It's a foreign concept to them. https://t.co/3F5MOTAzkb",
+      "title": "One might wonder why Newscum's team would post something so idiotic, but it makes sense co..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:05b51fabec825fe5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:57.464856+00:00",
+        "datePublished": "2026-06-05T19:36:19+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062981866257363392"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062981866257363392/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062981866257363392/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062981866257363392",
+      "summary": "Repost of @StephenM:",
+      "title": "Repost of @StephenM: Congratulations to the great @pulte on his selection by President Tru..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:3079299d0cf87022",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:31.493958+00:00",
+        "datePublished": "2026-06-05T19:33:52+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062957016750882817.mp4",
+            "remotePath": "archive/x/icegov/Rru8tpQGk_juRae9.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062957016750882817/vid/avc1/568x320/Rru8tpQGk_juRae9.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/Rru8tpQGk_juRae9.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062957016750882817.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/Rru8tpQGk_juRae9.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062981248033689650"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062981248033689650/README.md",
+      "path": "X/ICEgov/2026/06/05/2062981248033689650/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062981248033689650",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data ove..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0791ac94a83a4ca6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:31.494271+00:00",
+        "datePublished": "2026-06-05T19:32:28+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062967210914500608.mp4",
+            "remotePath": "archive/x/icegov/RHiSwWdsuZD3Vbll.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062967210914500608/vid/avc1/1920x1080/RHiSwWdsuZD3Vbll.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/RHiSwWdsuZD3Vbll.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062967210914500608.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/RHiSwWdsuZD3Vbll.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062980894554534302"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062980894554534302/README.md",
+      "path": "X/ICEgov/2026/06/05/2062980894554534302/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062980894554534302",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: \u201cYou want to shut down the facility? Then every illegal alien we arrest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0b3c00d3a9cd2ca1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:25.006782+00:00",
+        "datePublished": "2026-06-05T19:23:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062978580703813653"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/05/2062978580703813653/README.md",
+      "path": "X/FBIDirectorKash/2026/06/05/2062978580703813653/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2062978580703813653",
+      "summary": "Make sure you are following @FBI_Response for the most up to date and TRUE information on what this FBI is achieving despite what a dishonest media wants you to believe.",
+      "title": "Make sure you are following @FBI_Response for the most up to date and TRUE information on ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:3d613f7cdc1c474c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:42.712953+00:00",
+        "datePublished": "2026-06-05T19:23:02+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062975988280029184.jpg",
+            "remotePath": "archive/x/potus/HKEpuzGXcAAmJ7i.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEpuzGXcAAmJ7i.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKEpuzGXcAAmJ7i.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062975988280029184.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKEpuzGXcAAmJ7i.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062978523703198087"
+      },
+      "metadataPath": "X/POTUS/2026/06/05/2062978523703198087/README.md",
+      "path": "X/POTUS/2026/06/05/2062978523703198087/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2062978523703198087",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to sp..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:1638134c52163202",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:42.713312+00:00",
+        "datePublished": "2026-06-05T19:23:00+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062965953747357696.jpg",
+            "remotePath": "archive/x/potus/HKEgmtjWEAAJEDH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEgmtjWEAAJEDH.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKEgmtjWEAAJEDH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062965953747357696.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKEgmtjWEAAJEDH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062978511179018315"
+      },
+      "metadataPath": "X/POTUS/2026/06/05/2062978511179018315/README.md",
+      "path": "X/POTUS/2026/06/05/2062978511179018315/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2062978511179018315",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Panicans got real quiet. \ud83d\udc40 https://t.co/y9xhjwDysQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:fccc91f3e1fe44a9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:24:19.171720+00:00",
+        "datePublished": "2026-06-05T19:16:05+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062975988280029184.jpg",
+            "remotePath": "archive/x/vp/HKEpuzGXcAAmJ7i.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEpuzGXcAAmJ7i.jpg",
+            "url": "https://cdn.comparify.app/archive/x/vp/HKEpuzGXcAAmJ7i.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062975988280029184.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/vp/HKEpuzGXcAAmJ7i.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062976772459622800"
+      },
+      "metadataPath": "X/VP/2026/06/05/2062976772459622800/README.md",
+      "path": "X/VP/2026/06/05/2062976772459622800/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2062976772459622800",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to sp..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:57ba4172f38eec61",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:27.548308+00:00",
+        "datePublished": "2026-06-05T19:13:32+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062975988280029184.jpg",
+            "remotePath": "archive/x/whitehouse/HKEpuzGXcAAmJ7i.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEpuzGXcAAmJ7i.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKEpuzGXcAAmJ7i.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062975988280029184.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKEpuzGXcAAmJ7i.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062976129271480546"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062976129271480546/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062976129271480546/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062976129271480546",
+      "summary": "President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on American agriculture! \ud83d\udc2e \ud83c\uddfa\ud83c\uddf8 https://t.co/0zKIYeIKrH",
+      "title": "President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on Ameri..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:e8cadbc895ed78eb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:24:19.172123+00:00",
+        "datePublished": "2026-06-05T19:11:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062970070255427584.mp4",
+            "remotePath": "archive/x/vp/f8P3T0Loxzq0GtmX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062970070255427584/vid/avc1/1280x720/f8P3T0Loxzq0GtmX.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/vp/f8P3T0Loxzq0GtmX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062970070255427584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/vp/f8P3T0Loxzq0GtmX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062975541632778723"
+      },
+      "metadataPath": "X/VP/2026/06/05/2062975541632778723/README.md",
+      "path": "X/VP/2026/06/05/2062975541632778723/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2062975541632778723",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@AFergusonFTC on Minnesota disenrolling 3400 high risk Medica..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:89698d0826a3c4ba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:24:27.548643+00:00",
+        "datePublished": "2026-06-05T19:10:57+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062965214123884544.jpg",
+            "remotePath": "archive/x/whitehouse/HKEf7qPXgAAFPAf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEf7qPXgAAFPAf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKEf7qPXgAAFPAf.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062965214123884544.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKEf7qPXgAAFPAf.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062975480274276712"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062975480274276712/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062975480274276712/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062975480274276712",
+      "summary": "Repost of @mkratsios47:",
+      "title": "Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:58ba5fb3571ee052",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:31.494490+00:00",
+        "datePublished": "2026-06-05T19:05:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062974037400141824.jpg",
+            "remotePath": "archive/x/icegov/HKEn9PgWwAAeYQk.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEn9PgWwAAeYQk.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKEn9PgWwAAeYQk.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062974037400141824.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKEn9PgWwAAeYQk.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062974039929352616"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062974039929352616/README.md",
+      "path": "X/ICEgov/2026/06/05/2062974039929352616/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062974039929352616",
+      "summary": "When your agency partners with ICE, you keep your community safer and get resources like: \u2022 Free ICE 287(g) training \u2022 Access to federal resources",
+      "title": "When your agency partners with ICE, you keep your community safer and get resources like: ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:f4bf5aa32a3fe2b1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "PressSec",
+        "accountDisplayName": "Karoline Leavitt",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:50.473727+00:00",
+        "datePublished": "2026-06-05T19:02:41+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062973401304621198"
+      },
+      "metadataPath": "X/PressSec/2026/06/05/2062973401304621198/README.md",
+      "path": "X/PressSec/2026/06/05/2062973401304621198/POST.md",
+      "sourceUrl": "https://x.com/PressSec/status/2062973401304621198",
+      "summary": "So true! Everyone follow my Deputy @ATJackson47 - she is a patriot! \ud83c\uddfa\ud83c\uddf8",
+      "title": "So true! Everyone follow my Deputy @ATJackson47 - she is a patriot! \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9986e14e84b82590",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:57.465178+00:00",
+        "datePublished": "2026-06-05T18:58:45+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062972412375798085"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062972412375798085/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062972412375798085/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062972412375798085",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: All credit to @POTUS!"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:74f020543e7a67e0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T20:23:57.465549+00:00",
+        "datePublished": "2026-06-05T18:58:39+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062965214123884544.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKEf7qPXgAAFPAf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEf7qPXgAAFPAf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKEf7qPXgAAFPAf.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062965214123884544.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKEf7qPXgAAFPAf.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062972386543129058"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062972386543129058/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062972386543129058/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062972386543129058",
+      "summary": "Repost of @mkratsios47:",
+      "title": "Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:69e4a326794a7166",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:57.465916+00:00",
+        "datePublished": "2026-06-05T18:57:53+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062971676451610626.mp4",
+            "remotePath": "archive/x/rapidresponse47/PHSjKMQCr5A1VKg5.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062971676451610626/vid/avc1/1280x720/PHSjKMQCr5A1VKg5.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/PHSjKMQCr5A1VKg5.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062971676451610626.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/PHSjKMQCr5A1VKg5.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062972194469085647"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062972194469085647/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062972194469085647/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062972194469085647",
+      "summary": ".@ATJackson47: \"How great is it to have a president who is giving our nation's capital the attention to bring it back to the grandeur that it deserves? Especially ahead of America's 250th birthday... We are the greatest country in the world, and our capital should reflect that.\" ",
+      "title": ".@ATJackson47: \"How great is it to have a president who is giving our nation's capital the..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:248309e8dd9075ff",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:12.857098+00:00",
+        "datePublished": "2026-06-05T18:52:34+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062970854070165581"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062970854070165581/README.md",
+      "path": "X/DHSgov/2026/06/05/2062970854070165581/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062970854070165581",
+      "summary": ".@ICEgov lodged an arrest detainer the SAME DAY this criminal illegal alien was arrested for driving under the influence. That was the same day he was released by sanctuary politicians.",
+      "title": ".@ICEgov lodged an arrest detainer the SAME DAY this criminal illegal alien was arrested f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9e17516cd25c59ce",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:57.466269+00:00",
+        "datePublished": "2026-06-05T18:49:43+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062970070255427584.mp4",
+            "remotePath": "archive/x/rapidresponse47/f8P3T0Loxzq0GtmX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062970070255427584/vid/avc1/1280x720/f8P3T0Loxzq0GtmX.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/f8P3T0Loxzq0GtmX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062970070255427584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/f8P3T0Loxzq0GtmX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062970135556567527"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062970135556567527/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062970135556567527/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062970135556567527",
+      "summary": ".@AFergusonFTC on Minnesota disenrolling 3400 high risk Medicaid providers: \u201cI\u2019m glad they\u2019re doing this, but this should\u2019ve been done a long time ago. All of these guys were flagged in the past\u2026 the people who flagged it were accused of racism and told to be quiet.\u201d https://t.co",
+      "title": ".@AFergusonFTC on Minnesota disenrolling 3400 high risk Medicaid providers: \u201cI\u2019m glad they..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:2f48949b48cbb7c7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.563384+00:00",
+        "datePublished": "2026-06-05T18:40:44.718000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698961542117897.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/9e3fdb1cc246bdeb.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/961/542/117/897/original/9e3fdb1cc246bdeb.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9e3fdb1cc246bdeb.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698961542117897.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9e3fdb1cc246bdeb.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698961983538347"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698961983538347/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698961983538347/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698961983538347",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:a2ceef131bd71b76",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.563969+00:00",
+        "datePublished": "2026-06-05T18:40:26.649000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698960653729537.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/62034ee0d1aeb191.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/960/653/729/537/original/62034ee0d1aeb191.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/62034ee0d1aeb191.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698960653729537.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/62034ee0d1aeb191.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698960799135985"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698960799135985/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698960799135985/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698960799135985",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698954650603382",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698954650603382"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:eced140e6832bc9f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.564293+00:00",
+        "datePublished": "2026-06-05T18:38:52.828000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116698953458501204.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/8ecdec266e52a3d7.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/953/458/501/204/original/8ecdec266e52a3d7.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8ecdec266e52a3d7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116698953458501204.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8ecdec266e52a3d7.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698954650603382"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698954650603382/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698954650603382/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698954650603382",
+      "summary": null,
+      "title": "Truth Social post 116698954650603382"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9fb1ec52c4c7cdfc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:12.857464+00:00",
+        "datePublished": "2026-06-05T18:38:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062967210914500608.mp4",
+            "remotePath": "archive/x/dhsgov/RHiSwWdsuZD3Vbll.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062967210914500608/vid/avc1/1920x1080/RHiSwWdsuZD3Vbll.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/RHiSwWdsuZD3Vbll.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062967210914500608.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/RHiSwWdsuZD3Vbll.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062967294352069112"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062967294352069112/README.md",
+      "path": "X/DHSgov/2026/06/05/2062967294352069112/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062967294352069112",
+      "summary": "\u201cYou want to shut down the facility? Then every illegal alien we arrest in that state, we\u2019ll fly to Texas. We\u2019ll fly to Arizona, detain them there, because we\u2019re going to keep arresting people. We\u2019re going to keep detaining people. We\u2019re going to keep removing people.\u201d @RealTomHo",
+      "title": "\u201cYou want to shut down the facility? Then every illegal alien we arrest in that state, we\u2019..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:66c6a064a8c89b12",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.564607+00:00",
+        "datePublished": "2026-06-05T18:36:55.090000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698946629561141.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/2dc38c73febf5d4e.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/946/629/561/141/original/2dc38c73febf5d4e.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2dc38c73febf5d4e.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116698946631463759.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/560b1ed5e7124998.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/946/631/463/759/original/560b1ed5e7124998.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/560b1ed5e7124998.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_116698946631747569.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/d532a3c9c22bcdc7.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/946/631/747/569/original/d532a3c9c22bcdc7.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d532a3c9c22bcdc7.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698946629561141.jpg",
+          "media/02_image_116698946631463759.jpg",
+          "media/03_image_116698946631747569.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2dc38c73febf5d4e.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/560b1ed5e7124998.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d532a3c9c22bcdc7.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698946934390373"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698946934390373/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698946934390373/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698946934390373",
+      "summary": null,
+      "title": "Truth Social post 116698946934390373"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:37b91d966b349685",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.564970+00:00",
+        "datePublished": "2026-06-05T18:33:59.033000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698935293793208.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/4d30c4aededfa694.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/935/293/793/208/original/4d30c4aededfa694.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4d30c4aededfa694.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698935293793208.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4d30c4aededfa694.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698935396731378"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698935396731378/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698935396731378/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698935396731378",
+      "summary": null,
+      "title": "Truth Social post 116698935396731378"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:020191ca465c09f7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.565278+00:00",
+        "datePublished": "2026-06-05T18:33:51.723000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698934797232497.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/f95193f19b7af96e.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/934/797/232/497/original/f95193f19b7af96e.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f95193f19b7af96e.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698934797232497.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f95193f19b7af96e.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698934917338963"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698934917338963/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698934917338963/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698934917338963",
+      "summary": null,
+      "title": "Truth Social post 116698934917338963"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:5897e00091d02f35",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:34.565575+00:00",
+        "datePublished": "2026-06-05T18:33:38.829000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698933163326176.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c720493e37afd667.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/933/163/326/176/original/c720493e37afd667.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c720493e37afd667.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116698933163215270.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/9af6260e2392c52d.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/933/163/215/270/original/9af6260e2392c52d.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9af6260e2392c52d.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698933163326176.jpg",
+          "media/02_image_116698933163215270.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c720493e37afd667.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9af6260e2392c52d.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698934072280414"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698934072280414/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698934072280414/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698934072280414",
+      "summary": null,
+      "title": "Truth Social post 116698934072280414"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:4be5856eafde8c89",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:24:27.548934+00:00",
+        "datePublished": "2026-06-05T18:33:06+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062965953747357696.jpg",
+            "remotePath": "archive/x/whitehouse/HKEgmtjWEAAJEDH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEgmtjWEAAJEDH.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKEgmtjWEAAJEDH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062965953747357696.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKEgmtjWEAAJEDH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062965956339503113"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062965956339503113/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062965956339503113/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062965956339503113",
+      "summary": "Panicans got real quiet. \ud83d\udc40 https://t.co/y9xhjwDysQ",
+      "title": "Panicans got real quiet. \ud83d\udc40 https://t.co/y9xhjwDysQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2da379d7603235e6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T20:23:25.007088+00:00",
+        "datePublished": "2026-06-05T18:25:01+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062963923335229646"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/05/2062963923335229646/README.md",
+      "path": "X/FBIDirectorKash/2026/06/05/2062963923335229646/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2062963923335229646",
+      "summary": "We are following the money because MONEY DOESN\u2019T LIE!",
+      "title": "We are following the money because MONEY DOESN\u2019T LIE!"
+    },
     {
       "category": "X",
       "date": "2026-06-05",

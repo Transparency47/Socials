@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-06-05
 
-- Posts: 11
+- Posts: 18
 
+- [18:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985](116698961983538347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698961983538347
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985
+- [18:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698954650603382](116698960799135985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698960799135985
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698954650603382
+- [18:38 UTC - Truth Social post 116698954650603382](116698954650603382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698954650603382
+  - _No text content captured._
+- [18:36 UTC - Truth Social post 116698946934390373](116698946934390373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698946934390373
+  - _No text content captured._
+- [18:33 UTC - Truth Social post 116698935396731378](116698935396731378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698935396731378
+  - _No text content captured._
+- [18:33 UTC - Truth Social post 116698934917338963](116698934917338963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698934917338963
+  - _No text content captured._
+- [18:33 UTC - Truth Social post 116698934072280414](116698934072280414/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698934072280414
+  - _No text content captured._
 - [17:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impress...](116698625289241287/)
   - Source: https://truthsocial.com/@realDonaldTrump/116698625289241287
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impressive. Proud of you! President DJT

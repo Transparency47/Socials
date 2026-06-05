@@ -1,7 +1,16 @@
 # X / WhiteHouse / 2026-06-05
 
-- Posts: 16
+- Posts: 19
 
+- [19:13 UTC - President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on Ameri...](2062976129271480546/)
+  - Source: https://x.com/WhiteHouse/status/2062976129271480546
+  - President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on American agriculture! 🐮 🇺🇸 https://t.co/0zKIYeIKrH
+- [19:10 UTC - Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o...](2062975480274276712/)
+  - Source: https://x.com/WhiteHouse/status/2062975480274276712
+  - Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum on AI in the national security enterprise. The men and women who defend our nation deserve...
+- [18:33 UTC - Panicans got real quiet. 👀 https://t.co/y9xhjwDysQ](2062965956339503113/)
+  - Source: https://x.com/WhiteHouse/status/2062965956339503113
+  - Panicans got real quiet. 👀 https://t.co/y9xhjwDysQ
 - [17:56 UTC - Several months in a row SMASHING economists' expectations with more positive momentum to c...](2062956711103619581/)
   - Source: https://x.com/WhiteHouse/status/2062956711103619581
   - Several months in a row SMASHING economists' expectations with more positive momentum to come. 🇺🇸 https://t.co/JmkILFZKBi

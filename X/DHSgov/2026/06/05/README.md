@@ -1,7 +1,16 @@
 # X / DHSgov / 2026-06-05
 
-- Posts: 7
+- Posts: 10
 
+- [20:08 UTC - Our ICE law enforcement officers truly are the best of the best. They put their lives on t...](2062989909577626069/)
+  - Source: https://x.com/DHSgov/status/2062989909577626069
+  - Our ICE law enforcement officers truly are the best of the best. They put their lives on the line every day to arrest the worst of the worst. If you see an ICE officer, thank them...
+- [18:52 UTC - .@ICEgov lodged an arrest detainer the SAME DAY this criminal illegal alien was arrested f...](2062970854070165581/)
+  - Source: https://x.com/DHSgov/status/2062970854070165581
+  - .@ICEgov lodged an arrest detainer the SAME DAY this criminal illegal alien was arrested for driving under the influence. That was the same day he was released by sanctuary politic...
+- [18:38 UTC - “You want to shut down the facility? Then every illegal alien we arrest in that state, we’...](2062967294352069112/)
+  - Source: https://x.com/DHSgov/status/2062967294352069112
+  - “You want to shut down the facility? Then every illegal alien we arrest in that state, we’ll fly to Texas. We’ll fly to Arizona, detain them there, because we’re going to keep arre...
 - [18:12 UTC - Repost of @SecMullinDHS: This week, we honored some of our @ICEgov law enforcement officer...](2062960887749640397/)
   - Source: https://x.com/DHSgov/status/2062960887749640397
   - Repost of @SecMullinDHS: This week, we honored some of our @ICEgov law enforcement officers who, amid sniper shots at the Dallas ICE facility shooting on September 24, 2025, rushed...

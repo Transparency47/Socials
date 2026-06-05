@@ -1,5 +1,7 @@
 {
-  "last_errors": [],
+  "last_errors": [
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0cS50WGBj84: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0cS50WGBj84! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+  ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7375744699140721963": {
@@ -113335,6 +113337,83 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impress...",
       "url": "https://truthsocial.com/@realDonaldTrump/116698625289241287"
     },
+    "truthsocial:realdonaldtrump:116698934072280414": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.565575+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698934072280414",
+      "platform": "truthsocial",
+      "post_id": "116698934072280414",
+      "published": "2026-06-05T18:33:38.829000+00:00",
+      "title": "Truth Social post 116698934072280414",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698934072280414"
+    },
+    "truthsocial:realdonaldtrump:116698934917338963": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.565278+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698934917338963",
+      "platform": "truthsocial",
+      "post_id": "116698934917338963",
+      "published": "2026-06-05T18:33:51.723000+00:00",
+      "title": "Truth Social post 116698934917338963",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698934917338963"
+    },
+    "truthsocial:realdonaldtrump:116698935396731378": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.564970+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698935396731378",
+      "platform": "truthsocial",
+      "post_id": "116698935396731378",
+      "published": "2026-06-05T18:33:59.033000+00:00",
+      "title": "Truth Social post 116698935396731378",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698935396731378"
+    },
+    "truthsocial:realdonaldtrump:116698946934390373": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.564607+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698946934390373",
+      "platform": "truthsocial",
+      "post_id": "116698946934390373",
+      "published": "2026-06-05T18:36:55.090000+00:00",
+      "title": "Truth Social post 116698946934390373",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698946934390373"
+    },
+    "truthsocial:realdonaldtrump:116698954650603382": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.564293+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698954650603382",
+      "platform": "truthsocial",
+      "post_id": "116698954650603382",
+      "published": "2026-06-05T18:38:52.828000+00:00",
+      "title": "Truth Social post 116698954650603382",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698954650603382"
+    },
+    "truthsocial:realdonaldtrump:116698960799135985": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.563969+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698960799135985",
+      "platform": "truthsocial",
+      "post_id": "116698960799135985",
+      "published": "2026-06-05T18:40:26.649000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698954650603382",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698960799135985"
+    },
+    "truthsocial:realdonaldtrump:116698961983538347": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:34.563384+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698961983538347",
+      "platform": "truthsocial",
+      "post_id": "116698961983538347",
+      "published": "2026-06-05T18:40:44.718000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698961983538347"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120287,6 +120366,39 @@
       "title": "Repost of @SecMullinDHS: This week, we honored some of our @ICEgov law enforcement officer...",
       "url": "https://x.com/DHSgov/status/2062960887749640397"
     },
+    "x:dhsgov:2062967294352069112": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:12.857464+00:00",
+      "path": "X/DHSgov/2026/06/05/2062967294352069112",
+      "platform": "x",
+      "post_id": "2062967294352069112",
+      "published": "2026-06-05T18:38:25+00:00",
+      "title": "\u201cYou want to shut down the facility? Then every illegal alien we arrest in that state, we\u2019...",
+      "url": "https://x.com/DHSgov/status/2062967294352069112"
+    },
+    "x:dhsgov:2062970854070165581": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:12.857098+00:00",
+      "path": "X/DHSgov/2026/06/05/2062970854070165581",
+      "platform": "x",
+      "post_id": "2062970854070165581",
+      "published": "2026-06-05T18:52:34+00:00",
+      "title": ".@ICEgov lodged an arrest detainer the SAME DAY this criminal illegal alien was arrested f...",
+      "url": "https://x.com/DHSgov/status/2062970854070165581"
+    },
+    "x:dhsgov:2062989909577626069": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:12.856569+00:00",
+      "path": "X/DHSgov/2026/06/05/2062989909577626069",
+      "platform": "x",
+      "post_id": "2062989909577626069",
+      "published": "2026-06-05T20:08:17+00:00",
+      "title": "Our ICE law enforcement officers truly are the best of the best. They put their lives on t...",
+      "url": "https://x.com/DHSgov/status/2062989909577626069"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -122861,6 +122973,28 @@
       "title": "Repost of @FBI_Response: . @FBIDirectorKash \u201cTo the American public\u2026 We are doing more - w...",
       "url": "https://x.com/FBIDirectorKash/status/2062851722263834733"
     },
+    "x:fbidirectorkash:2062963923335229646": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:25.007088+00:00",
+      "path": "X/FBIDirectorKash/2026/06/05/2062963923335229646",
+      "platform": "x",
+      "post_id": "2062963923335229646",
+      "published": "2026-06-05T18:25:01+00:00",
+      "title": "We are following the money because MONEY DOESN\u2019T LIE!",
+      "url": "https://x.com/FBIDirectorKash/status/2062963923335229646"
+    },
+    "x:fbidirectorkash:2062978580703813653": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:25.006782+00:00",
+      "path": "X/FBIDirectorKash/2026/06/05/2062978580703813653",
+      "platform": "x",
+      "post_id": "2062978580703813653",
+      "published": "2026-06-05T19:23:16+00:00",
+      "title": "Make sure you are following @FBI_Response for the most up to date and TRUE information on ...",
+      "url": "https://x.com/FBIDirectorKash/status/2062978580703813653"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -123344,6 +123478,39 @@
       "published": "2026-06-05T16:14:25+00:00",
       "title": "Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prio...",
       "url": "https://x.com/ICEgov/status/2062931053279408402"
+    },
+    "x:icegov:2062974039929352616": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:31.494490+00:00",
+      "path": "X/ICEgov/2026/06/05/2062974039929352616",
+      "platform": "x",
+      "post_id": "2062974039929352616",
+      "published": "2026-06-05T19:05:13+00:00",
+      "title": "When your agency partners with ICE, you keep your community safer and get resources like: ...",
+      "url": "https://x.com/ICEgov/status/2062974039929352616"
+    },
+    "x:icegov:2062980894554534302": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:31.494271+00:00",
+      "path": "X/ICEgov/2026/06/05/2062980894554534302",
+      "platform": "x",
+      "post_id": "2062980894554534302",
+      "published": "2026-06-05T19:32:28+00:00",
+      "title": "Repost of @DHSgov: \u201cYou want to shut down the facility? Then every illegal alien we arrest...",
+      "url": "https://x.com/ICEgov/status/2062980894554534302"
+    },
+    "x:icegov:2062981248033689650": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:31.493958+00:00",
+      "path": "X/ICEgov/2026/06/05/2062981248033689650",
+      "platform": "x",
+      "post_id": "2062981248033689650",
+      "published": "2026-06-05T19:33:52+00:00",
+      "title": "Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data ove...",
+      "url": "https://x.com/ICEgov/status/2062981248033689650"
     },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
@@ -125061,6 +125228,28 @@
       "title": "Repost of @WhiteHouse: OUTSTANDING JOBS NUMBERS! \ud83d\udcc8\ud83c\uddfa\ud83c\uddf8 https://t.co/8g0MspCKtZ",
       "url": "https://x.com/POTUS/status/2062885517532795339"
     },
+    "x:potus:2062978511179018315": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:42.713312+00:00",
+      "path": "X/POTUS/2026/06/05/2062978511179018315",
+      "platform": "x",
+      "post_id": "2062978511179018315",
+      "published": "2026-06-05T19:23:00+00:00",
+      "title": "Repost of @WhiteHouse: Panicans got real quiet. \ud83d\udc40 https://t.co/y9xhjwDysQ",
+      "url": "https://x.com/POTUS/status/2062978511179018315"
+    },
+    "x:potus:2062978523703198087": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:42.712953+00:00",
+      "path": "X/POTUS/2026/06/05/2062978523703198087",
+      "platform": "x",
+      "post_id": "2062978523703198087",
+      "published": "2026-06-05T19:23:02+00:00",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to sp...",
+      "url": "https://x.com/POTUS/status/2062978523703198087"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -125522,6 +125711,17 @@
       "published": "2026-06-05T06:38:05+00:00",
       "title": "Repost of @Kaelan47: Panicans hardest hit",
       "url": "https://x.com/PressSec/status/2062786015341822334"
+    },
+    "x:presssec:2062973401304621198": {
+      "account": "PressSec",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:50.473727+00:00",
+      "path": "X/PressSec/2026/06/05/2062973401304621198",
+      "platform": "x",
+      "post_id": "2062973401304621198",
+      "published": "2026-06-05T19:02:41+00:00",
+      "title": "So true! Everyone follow my Deputy @ATJackson47 - she is a patriot! \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://x.com/PressSec/status/2062973401304621198"
     },
     "x:rapidresponse47:2061520562443202662": {
       "account": "RapidResponse47",
@@ -126787,6 +126987,83 @@
       "published": "2026-06-05T17:59:41+00:00",
       "title": "\"I can even see the American flags around the Washington Monument, it's so reflective... T...",
       "url": "https://x.com/RapidResponse47/status/2062957543979090022"
+    },
+    "x:rapidresponse47:2062970135556567527": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:57.466269+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062970135556567527",
+      "platform": "x",
+      "post_id": "2062970135556567527",
+      "published": "2026-06-05T18:49:43+00:00",
+      "title": ".@AFergusonFTC on Minnesota disenrolling 3400 high risk Medicaid providers: \u201cI\u2019m glad they...",
+      "url": "https://x.com/RapidResponse47/status/2062970135556567527"
+    },
+    "x:rapidresponse47:2062972194469085647": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:57.465916+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062972194469085647",
+      "platform": "x",
+      "post_id": "2062972194469085647",
+      "published": "2026-06-05T18:57:53+00:00",
+      "title": ".@ATJackson47: \"How great is it to have a president who is giving our nation's capital the...",
+      "url": "https://x.com/RapidResponse47/status/2062972194469085647"
+    },
+    "x:rapidresponse47:2062972386543129058": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:57.465549+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062972386543129058",
+      "platform": "x",
+      "post_id": "2062972386543129058",
+      "published": "2026-06-05T18:58:39+00:00",
+      "title": "Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o...",
+      "url": "https://x.com/RapidResponse47/status/2062972386543129058"
+    },
+    "x:rapidresponse47:2062972412375798085": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:57.465178+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062972412375798085",
+      "platform": "x",
+      "post_id": "2062972412375798085",
+      "published": "2026-06-05T18:58:45+00:00",
+      "title": "Repost of @SecretaryBurgum: All credit to @POTUS!",
+      "url": "https://x.com/RapidResponse47/status/2062972412375798085"
+    },
+    "x:rapidresponse47:2062981866257363392": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:23:57.464856+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062981866257363392",
+      "platform": "x",
+      "post_id": "2062981866257363392",
+      "published": "2026-06-05T19:36:19+00:00",
+      "title": "Repost of @StephenM: Congratulations to the great @pulte on his selection by President Tru...",
+      "url": "https://x.com/RapidResponse47/status/2062981866257363392"
+    },
+    "x:rapidresponse47:2062982741667283016": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:57.464481+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062982741667283016",
+      "platform": "x",
+      "post_id": "2062982741667283016",
+      "published": "2026-06-05T19:39:48+00:00",
+      "title": "One might wonder why Newscum's team would post something so idiotic, but it makes sense co...",
+      "url": "https://x.com/RapidResponse47/status/2062982741667283016"
+    },
+    "x:rapidresponse47:2062984690626081151": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:23:57.464107+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062984690626081151",
+      "platform": "x",
+      "post_id": "2062984690626081151",
+      "published": "2026-06-05T19:47:33+00:00",
+      "title": ".@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: \"The j...",
+      "url": "https://x.com/RapidResponse47/status/2062984690626081151"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -138448,6 +138725,39 @@
       "title": "Repost of @JDVance: Henry Nowak died the same way a civilization dies: abandoned, handcuff...",
       "url": "https://x.com/VP/status/2062943990438121954"
     },
+    "x:vp:2062975541632778723": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:24:19.172123+00:00",
+      "path": "X/VP/2026/06/05/2062975541632778723",
+      "platform": "x",
+      "post_id": "2062975541632778723",
+      "published": "2026-06-05T19:11:12+00:00",
+      "title": "Repost of @RapidResponse47: .@AFergusonFTC on Minnesota disenrolling 3400 high risk Medica...",
+      "url": "https://x.com/VP/status/2062975541632778723"
+    },
+    "x:vp:2062976772459622800": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:24:19.171720+00:00",
+      "path": "X/VP/2026/06/05/2062976772459622800",
+      "platform": "x",
+      "post_id": "2062976772459622800",
+      "published": "2026-06-05T19:16:05+00:00",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to sp...",
+      "url": "https://x.com/VP/status/2062976772459622800"
+    },
+    "x:vp:2062993327423713321": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:24:19.171361+00:00",
+      "path": "X/VP/2026/06/05/2062993327423713321",
+      "platform": "x",
+      "post_id": "2062993327423713321",
+      "published": "2026-06-05T20:21:52+00:00",
+      "title": "Repost of @DOJFraudDiv: \u201cThe Fraud Division is building a replicable model to combat the f...",
+      "url": "https://x.com/VP/status/2062993327423713321"
+    },
     "x:whitehouse:2049578578270912645": {
       "account": "WhiteHouse",
       "content_kind": "post",
@@ -147621,6 +147931,39 @@
       "published": "2026-06-05T17:56:22+00:00",
       "title": "Several months in a row SMASHING economists' expectations with more positive momentum to c...",
       "url": "https://x.com/WhiteHouse/status/2062956711103619581"
+    },
+    "x:whitehouse:2062965956339503113": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:27.548934+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062965956339503113",
+      "platform": "x",
+      "post_id": "2062965956339503113",
+      "published": "2026-06-05T18:33:06+00:00",
+      "title": "Panicans got real quiet. \ud83d\udc40 https://t.co/y9xhjwDysQ",
+      "url": "https://x.com/WhiteHouse/status/2062965956339503113"
+    },
+    "x:whitehouse:2062975480274276712": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T20:24:27.548643+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062975480274276712",
+      "platform": "x",
+      "post_id": "2062975480274276712",
+      "published": "2026-06-05T19:10:57+00:00",
+      "title": "Repost of @mkratsios47: Today, @POTUS signed a National Security Presidential Memorandum o...",
+      "url": "https://x.com/WhiteHouse/status/2062975480274276712"
+    },
+    "x:whitehouse:2062976129271480546": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T20:24:27.548308+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062976129271480546",
+      "platform": "x",
+      "post_id": "2062976129271480546",
+      "published": "2026-06-05T19:13:32+00:00",
+      "title": "President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on Ameri...",
+      "url": "https://x.com/WhiteHouse/status/2062976129271480546"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

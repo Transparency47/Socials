@@ -1,7 +1,16 @@
 # X / ICEgov / 2026-06-05
 
-- Posts: 7
+- Posts: 10
 
+- [19:33 UTC - Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data ove...](2062981248033689650/)
+  - Source: https://x.com/ICEgov/status/2062981248033689650
+  - Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data over the last decade, as of April 30, death rates in custody under the Trump administration a...
+- [19:32 UTC - Repost of @DHSgov: “You want to shut down the facility? Then every illegal alien we arrest...](2062980894554534302/)
+  - Source: https://x.com/ICEgov/status/2062980894554534302
+  - Repost of @DHSgov: “You want to shut down the facility? Then every illegal alien we arrest in that state, we’ll fly to Texas. We’ll fly to Arizona, detain them there, because we’re...
+- [19:05 UTC - When your agency partners with ICE, you keep your community safer and get resources like: ...](2062974039929352616/)
+  - Source: https://x.com/ICEgov/status/2062974039929352616
+  - When your agency partners with ICE, you keep your community safer and get resources like: • Free ICE 287(g) training • Access to federal resources ➡️Visit our 287g web page to lear...
 - [16:14 UTC - Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prio...](2062931053279408402/)
   - Source: https://x.com/ICEgov/status/2062931053279408402
   - Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prior DUI arrests has been charged with a triple murder in Modesto, CA after he allegedly stab...
