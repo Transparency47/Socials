@@ -1,6 +1,6 @@
 {
   "last_errors": [],
-  "last_successful_run": "2026-06-05T02:47:20.710568+00:00",
+  "last_successful_run": "2026-06-05T06:54:27.758734+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7375744699140721963": {
       "account": "RealDonaldTrump",
@@ -113225,6 +113225,28 @@
       "title": "I\u2019d like to thank our GREAT Senator, Lindsey Graham, for putting up THE SAVE AMERICA ACT f...",
       "url": "https://truthsocial.com/@realDonaldTrump/116694638006168499"
     },
+    "truthsocial:realdonaldtrump:116695215994955038": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T06:54:01.096330+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116695215994955038",
+      "platform": "truthsocial",
+      "post_id": "116695215994955038",
+      "published": "2026-06-05T02:48:05.507000+00:00",
+      "title": "The Ballroom is coming along fantastically well. It\u2019s on time, and under budget (Unlike th...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116695215994955038"
+    },
+    "truthsocial:realdonaldtrump:116695405193333847": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T06:54:01.095732+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116695405193333847",
+      "platform": "truthsocial",
+      "post_id": "116695405193333847",
+      "published": "2026-06-05T03:36:12.475000+00:00",
+      "title": "Truth Social post 116695405193333847",
+      "url": "https://truthsocial.com/@realDonaldTrump/116695405193333847"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -125225,6 +125247,17 @@
       "published": "2026-06-04T19:17:03+00:00",
       "title": "Repost of @Kaelan47: But she's excited to live in a country that allows women like Mollie ...",
       "url": "https://x.com/PressSec/status/2062614626605433067"
+    },
+    "x:presssec:2062786015341822334": {
+      "account": "PressSec",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T06:53:25.944604+00:00",
+      "path": "X/PressSec/2026/06/05/2062786015341822334",
+      "platform": "x",
+      "post_id": "2062786015341822334",
+      "published": "2026-06-05T06:38:05+00:00",
+      "title": "Repost of @Kaelan47: Panicans hardest hit",
+      "url": "https://x.com/PressSec/status/2062786015341822334"
     },
     "x:rapidresponse47:2061520562443202662": {
       "account": "RapidResponse47",

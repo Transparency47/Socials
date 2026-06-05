@@ -1,6 +1,87 @@
 {
-  "generatedAt": "2026-06-05T02:47:51.387433+00:00",
+  "generatedAt": "2026-06-05T06:55:03.313996+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:b7f63d8e5866b4cb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "PressSec",
+        "accountDisplayName": "Karoline Leavitt",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T06:53:25.944604+00:00",
+        "datePublished": "2026-06-05T06:38:05+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062786015341822334"
+      },
+      "metadataPath": "X/PressSec/2026/06/05/2062786015341822334/README.md",
+      "path": "X/PressSec/2026/06/05/2062786015341822334/POST.md",
+      "sourceUrl": "https://x.com/PressSec/status/2062786015341822334",
+      "summary": "Repost of @Kaelan47:",
+      "title": "Repost of @Kaelan47: Panicans hardest hit"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:6048c2ee10181e43",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T06:54:01.095732+00:00",
+        "datePublished": "2026-06-05T03:36:12.475000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116695404930471962.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c6e4c1f362068ede.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/695/404/930/471/962/original/c6e4c1f362068ede.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c6e4c1f362068ede.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116695404930471962.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c6e4c1f362068ede.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116695405193333847"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116695405193333847/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116695405193333847/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116695405193333847",
+      "summary": null,
+      "title": "Truth Social post 116695405193333847"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:f420548769722b45",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T06:54:01.096330+00:00",
+        "datePublished": "2026-06-05T02:48:05.507000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116695215994955038"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116695215994955038/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116695215994955038/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116695215994955038",
+      "summary": "The Ballroom is coming along fantastically well. It\u2019s on time, and under budget (Unlike the Federal Reserve Building, where \u201cToo Late\u201d has done a terrible job of Cost and Time Control!), and at a much higher quality than I ever promised, including the DronePort, and ALL of the ot",
+      "title": "The Ballroom is coming along fantastically well. It\u2019s on time, and under budget (Unlike th..."
+    },
     {
       "category": "X",
       "date": "2026-06-05",
