@@ -1,6 +1,390 @@
 {
-  "generatedAt": "2026-06-05T21:58:34.476934+00:00",
+  "generatedAt": "2026-06-05T23:05:42.072115+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:b4f095bc0358cb3f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:17.279399+00:00",
+        "datePublished": "2026-06-05T23:00:20+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063033203468763137.png",
+            "remotePath": "archive/x/icegov/HKFdxKSXgAEzMGS.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFdxKSXgAEzMGS.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKFdxKSXgAEzMGS.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063033203468763137.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKFdxKSXgAEzMGS.png"
+        ],
+        "platform": "X",
+        "postId": "2063033205641347187"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2063033205641347187/README.md",
+      "path": "X/ICEgov/2026/06/05/2063033205641347187/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063033205641347187",
+      "summary": "\ud83d\udea8UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges and more related to the rollover crash that killed her 9-year-old daughter.",
+      "title": "\ud83d\udea8UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:34378d7e8451ef24",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:02:11.181194+00:00",
+        "datePublished": "2026-06-05T22:58:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063032619554512896.jpg",
+            "remotePath": "archive/x/whitehouse/HKFdPLCXIAAmdlH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFdPLCXIAAmdlH.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKFdPLCXIAAmdlH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063032619554512896.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKFdPLCXIAAmdlH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063032812274381078"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063032812274381078/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063032812274381078/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063032812274381078",
+      "summary": "Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi",
+      "title": "Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:4f5f8f417a7a89af",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T23:02:11.181512+00:00",
+        "datePublished": "2026-06-05T22:54:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063031678168146053"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063031678168146053/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063031678168146053/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063031678168146053",
+      "summary": "Repost of @FBIDirectorKash:",
+      "title": "Repost of @FBIDirectorKash: Make sure you are following @FBI_Response for the most up to d..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0540bb6ff9f121f5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.026710+00:00",
+        "datePublished": "2026-06-05T22:28:58+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063024451894022144.mp4",
+            "remotePath": "archive/x/rapidresponse47/AWKit_9M4so3eiVc.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063024451894022144/vid/avc1/1920x1080/AWKit_9M4so3eiVc.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/AWKit_9M4so3eiVc.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063024451894022144.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/AWKit_9M4so3eiVc.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063025314846965804"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063025314846965804/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063025314846965804/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063025314846965804",
+      "summary": "\"There are things they never thought they'd be doing that they're going to have to do... You're talking about 47 years of getting away with whatever they wanted,\" says @POTUS on Iran talks.",
+      "title": "\"There are things they never thought they'd be doing that they're going to have to do... Y..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:3bc8c611759acde3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.027027+00:00",
+        "datePublished": "2026-06-05T22:23:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063023133070680064.mp4",
+            "remotePath": "archive/x/rapidresponse47/cvWV2ZPEH2XeaTF1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063023133070680064/vid/avc1/1280x720/cvWV2ZPEH2XeaTF1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/cvWV2ZPEH2XeaTF1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063023133070680064.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/cvWV2ZPEH2XeaTF1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063023829681684800"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063023829681684800/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063023829681684800/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063023829681684800",
+      "summary": "Wisconsin farmer to @POTUS: \"The Big Beautiful Bill is a real win for us, and we really appreciate what you've done with that. It's lowered our tax rates, it's given us the ability to pass these farms onto the next generation.\" https://t.co/3RfmQfMSYi",
+      "title": "Wisconsin farmer to @POTUS: \"The Big Beautiful Bill is a real win for us, and we really ap..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:e39af730370c48f0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:02:11.181699+00:00",
+        "datePublished": "2026-06-05T22:17:09+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063022340762489278"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063022340762489278/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063022340762489278/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063022340762489278",
+      "summary": "President Trump has delivered for American farmers by expanding exports of meat, poultry, soybeans, biofuels, and dairy!",
+      "title": "President Trump has delivered for American farmers by expanding exports of meat, poultry, ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:13340b1c03cc280d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.027335+00:00",
+        "datePublished": "2026-06-05T22:12:47+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063020318508097536.mp4",
+            "remotePath": "archive/x/rapidresponse47/AnSnia9SwLf1En6O.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063020318508097536/vid/avc1/1280x720/AnSnia9SwLf1En6O.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/AnSnia9SwLf1En6O.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063020318508097536.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/AnSnia9SwLf1En6O.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063021240520995280"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063021240520995280/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063021240520995280/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063021240520995280",
+      "summary": "Joe Thomas, NFL Hall of Famer turned farmer, thanks @POTUS and @SecRollins for their support of small beef producers like himself. https://t.co/fo9kOnyfIs",
+      "title": "Joe Thomas, NFL Hall of Famer turned farmer, thanks @POTUS and @SecRollins for their suppo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:d88393b9734a10da",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T23:02:03.949056+00:00",
+        "datePublished": "2026-06-05T22:07:18+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063019862620803508"
+      },
+      "metadataPath": "X/VP/2026/06/05/2063019862620803508/README.md",
+      "path": "X/VP/2026/06/05/2063019862620803508/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2063019862620803508",
+      "summary": "Repost of @WHFraudTF:",
+      "title": "Repost of @WHFraudTF: No amount too small. No fraud too large. Great work, @USLaborIG. \ud83d\udcaa\ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:5c224b0cfdddcd58",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T23:02:11.181876+00:00",
+        "datePublished": "2026-06-05T22:06:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063017660531585025.mp4",
+            "remotePath": "archive/x/whitehouse/DAQcjmwwBoNEtSCu.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063017660531585025/vid/avc1/1280x720/DAQcjmwwBoNEtSCu.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/DAQcjmwwBoNEtSCu.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063017660531585025.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/DAQcjmwwBoNEtSCu.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063019738666512653"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063019738666512653/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063019738666512653/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063019738666512653",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@RepVanOrden celebrates recent wins @POTUS has achieved for W..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:f88d2411cf24b05d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.027613+00:00",
+        "datePublished": "2026-06-05T22:05:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063018893308801026.mp4",
+            "remotePath": "archive/x/rapidresponse47/R4F5vOwVF2wjK2Xx.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063018893308801026/vid/avc1/1280x720/R4F5vOwVF2wjK2Xx.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/R4F5vOwVF2wjK2Xx.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063018893308801026.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/R4F5vOwVF2wjK2Xx.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063019488807731411"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063019488807731411/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063019488807731411/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063019488807731411",
+      "summary": ".@RepTiffany: \"I want to thank you and I want to thank @SecRollins because you have stood up for forestry. We are now, once again, managing our forests here in America that have been left in decline for 3 decades.\" https://t.co/J53bmcj3Sf",
+      "title": ".@RepTiffany: \"I want to thank you and I want to thank @SecRollins because you have stood ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:3973999667a81ceb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.027906+00:00",
+        "datePublished": "2026-06-05T22:02:17+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063017660531585025.mp4",
+            "remotePath": "archive/x/rapidresponse47/DAQcjmwwBoNEtSCu.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063017660531585025/vid/avc1/1280x720/DAQcjmwwBoNEtSCu.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/DAQcjmwwBoNEtSCu.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063017660531585025.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/DAQcjmwwBoNEtSCu.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063018599908835631"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063018599908835631/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063018599908835631/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063018599908835631",
+      "summary": ".@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin:",
+      "title": ".@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin: \u2014 $50M to support ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:da797994b296548d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T23:01:37.028186+00:00",
+        "datePublished": "2026-06-05T21:58:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063017193172824064.mp4",
+            "remotePath": "archive/x/rapidresponse47/0d5kWM5atalubCB2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063017193172824064/vid/avc1/1280x720/0d5kWM5atalubCB2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/0d5kWM5atalubCB2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063017193172824064.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/0d5kWM5atalubCB2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063017556932235603"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063017556932235603/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063017556932235603/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063017556932235603",
+      "summary": ".@SenRonJohnson: \"You have turned the Republican Party into the party of the working men and women of this country \u2014 who have made this country great, and will continue to make it great \u2014 and [farmers] recognize that.\" https://t.co/VtF7WrAhIo",
+      "title": ".@SenRonJohnson: \"You have turned the Republican Party into the party of the working men a..."
+    },
     {
       "category": "X",
       "date": "2026-06-05",

@@ -1,7 +1,6 @@
 {
   "last_errors": [
-    "X/ICEgov: ReadTimeout: HTTPSConnectionPool(host='abs.twimg.com', port=443): Read timed out. (read timeout=30)",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0cS50WGBj84: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0cS50WGBj84! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0cS50WGBj84: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0cS50WGBj84! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (0cS50WGBj84) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -123557,6 +123556,17 @@
       "title": "Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data ove...",
       "url": "https://x.com/ICEgov/status/2062981248033689650"
     },
+    "x:icegov:2063033205641347187": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:17.279399+00:00",
+      "path": "X/ICEgov/2026/06/05/2063033205641347187",
+      "platform": "x",
+      "post_id": "2063033205641347187",
+      "published": "2026-06-05T23:00:20+00:00",
+      "title": "\ud83d\udea8UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges an...",
+      "url": "https://x.com/ICEgov/status/2063033205641347187"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -127208,6 +127218,72 @@
       "published": "2026-06-05T21:56:03+00:00",
       "title": ".@SecRollins: \"When @POTUS came back into office, we inherited an almost $50B agricultural...",
       "url": "https://x.com/RapidResponse47/status/2063017028412178488"
+    },
+    "x:rapidresponse47:2063017556932235603": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.028186+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063017556932235603",
+      "platform": "x",
+      "post_id": "2063017556932235603",
+      "published": "2026-06-05T21:58:09+00:00",
+      "title": ".@SenRonJohnson: \"You have turned the Republican Party into the party of the working men a...",
+      "url": "https://x.com/RapidResponse47/status/2063017556932235603"
+    },
+    "x:rapidresponse47:2063018599908835631": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.027906+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063018599908835631",
+      "platform": "x",
+      "post_id": "2063018599908835631",
+      "published": "2026-06-05T22:02:17+00:00",
+      "title": ".@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin: \u2014 $50M to support ...",
+      "url": "https://x.com/RapidResponse47/status/2063018599908835631"
+    },
+    "x:rapidresponse47:2063019488807731411": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.027613+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063019488807731411",
+      "platform": "x",
+      "post_id": "2063019488807731411",
+      "published": "2026-06-05T22:05:49+00:00",
+      "title": ".@RepTiffany: \"I want to thank you and I want to thank @SecRollins because you have stood ...",
+      "url": "https://x.com/RapidResponse47/status/2063019488807731411"
+    },
+    "x:rapidresponse47:2063021240520995280": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.027335+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063021240520995280",
+      "platform": "x",
+      "post_id": "2063021240520995280",
+      "published": "2026-06-05T22:12:47+00:00",
+      "title": "Joe Thomas, NFL Hall of Famer turned farmer, thanks @POTUS and @SecRollins for their suppo...",
+      "url": "https://x.com/RapidResponse47/status/2063021240520995280"
+    },
+    "x:rapidresponse47:2063023829681684800": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.027027+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063023829681684800",
+      "platform": "x",
+      "post_id": "2063023829681684800",
+      "published": "2026-06-05T22:23:04+00:00",
+      "title": "Wisconsin farmer to @POTUS: \"The Big Beautiful Bill is a real win for us, and we really ap...",
+      "url": "https://x.com/RapidResponse47/status/2063023829681684800"
+    },
+    "x:rapidresponse47:2063025314846965804": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:01:37.026710+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063025314846965804",
+      "platform": "x",
+      "post_id": "2063025314846965804",
+      "published": "2026-06-05T22:28:58+00:00",
+      "title": "\"There are things they never thought they'd be doing that they're going to have to do... Y...",
+      "url": "https://x.com/RapidResponse47/status/2063025314846965804"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -138902,6 +138978,17 @@
       "title": "Repost of @DOJFraudDiv: \u201cThe Fraud Division is building a replicable model to combat the f...",
       "url": "https://x.com/VP/status/2062993327423713321"
     },
+    "x:vp:2063019862620803508": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T23:02:03.949056+00:00",
+      "path": "X/VP/2026/06/05/2063019862620803508",
+      "platform": "x",
+      "post_id": "2063019862620803508",
+      "published": "2026-06-05T22:07:18+00:00",
+      "title": "Repost of @WHFraudTF: No amount too small. No fraud too large. Great work, @USLaborIG. \ud83d\udcaa\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://x.com/VP/status/2063019862620803508"
+    },
     "x:whitehouse:2049578578270912645": {
       "account": "WhiteHouse",
       "content_kind": "post",
@@ -148130,6 +148217,50 @@
       "published": "2026-06-05T21:33:42+00:00",
       "title": "HAPPENING NOW:\u00a0President Trump delivers remarks on fighting for American farmers in Wiscon...",
       "url": "https://x.com/WhiteHouse/status/2063011405167571402"
+    },
+    "x:whitehouse:2063019738666512653": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T23:02:11.181876+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2063019738666512653",
+      "platform": "x",
+      "post_id": "2063019738666512653",
+      "published": "2026-06-05T22:06:49+00:00",
+      "title": "Repost of @RapidResponse47: .@RepVanOrden celebrates recent wins @POTUS has achieved for W...",
+      "url": "https://x.com/WhiteHouse/status/2063019738666512653"
+    },
+    "x:whitehouse:2063022340762489278": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:02:11.181699+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2063022340762489278",
+      "platform": "x",
+      "post_id": "2063022340762489278",
+      "published": "2026-06-05T22:17:09+00:00",
+      "title": "President Trump has delivered for American farmers by expanding exports of meat, poultry, ...",
+      "url": "https://x.com/WhiteHouse/status/2063022340762489278"
+    },
+    "x:whitehouse:2063031678168146053": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T23:02:11.181512+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2063031678168146053",
+      "platform": "x",
+      "post_id": "2063031678168146053",
+      "published": "2026-06-05T22:54:16+00:00",
+      "title": "Repost of @FBIDirectorKash: Make sure you are following @FBI_Response for the most up to d...",
+      "url": "https://x.com/WhiteHouse/status/2063031678168146053"
+    },
+    "x:whitehouse:2063032812274381078": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T23:02:11.181194+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2063032812274381078",
+      "platform": "x",
+      "post_id": "2063032812274381078",
+      "published": "2026-06-05T22:58:46+00:00",
+      "title": "Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi",
+      "url": "https://x.com/WhiteHouse/status/2063032812274381078"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

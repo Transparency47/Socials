@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-05
 
-- Posts: 10
+- Posts: 11
 
+- [23:00 UTC - 🚨UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges an...](2063033205641347187/)
+  - Source: https://x.com/ICEgov/status/2063033205641347187
+  - 🚨UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges and more related to the rollover crash that killed her 9-year-old daughter. ICE turned her o...
 - [19:33 UTC - Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data ove...](2062981248033689650/)
   - Source: https://x.com/ICEgov/status/2062981248033689650
   - Repost of @DHSgov: FACT CHECK: There has been NO spike in deaths. Consistent with data over the last decade, as of April 30, death rates in custody under the Trump administration a...

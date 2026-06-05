@@ -1,7 +1,25 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 47
+- Posts: 53
 
+- [22:28 UTC - "There are things they never thought they'd be doing that they're going to have to do... Y...](2063025314846965804/)
+  - Source: https://x.com/RapidResponse47/status/2063025314846965804
+  - "There are things they never thought they'd be doing that they're going to have to do... You're talking about 47 years of getting away with whatever they wanted," says @POTUS on Ir...
+- [22:23 UTC - Wisconsin farmer to @POTUS: "The Big Beautiful Bill is a real win for us, and we really ap...](2063023829681684800/)
+  - Source: https://x.com/RapidResponse47/status/2063023829681684800
+  - Wisconsin farmer to @POTUS: "The Big Beautiful Bill is a real win for us, and we really appreciate what you've done with that. It's lowered our tax rates, it's given us the ability...
+- [22:12 UTC - Joe Thomas, NFL Hall of Famer turned farmer, thanks @POTUS and @SecRollins for their suppo...](2063021240520995280/)
+  - Source: https://x.com/RapidResponse47/status/2063021240520995280
+  - Joe Thomas, NFL Hall of Famer turned farmer, thanks @POTUS and @SecRollins for their support of small beef producers like himself. https://t.co/fo9kOnyfIs
+- [22:05 UTC - .@RepTiffany: "I want to thank you and I want to thank @SecRollins because you have stood ...](2063019488807731411/)
+  - Source: https://x.com/RapidResponse47/status/2063019488807731411
+  - .@RepTiffany: "I want to thank you and I want to thank @SecRollins because you have stood up for forestry. We are now, once again, managing our forests here in America that have be...
+- [22:02 UTC - .@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin: — $50M to support ...](2063018599908835631/)
+  - Source: https://x.com/RapidResponse47/status/2063018599908835631
+  - .@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin: — $50M to support the WI coal industry — Over $200M to support rural healthcare in WI — Signed 'Whole Milk f...
+- [21:58 UTC - .@SenRonJohnson: "You have turned the Republican Party into the party of the working men a...](2063017556932235603/)
+  - Source: https://x.com/RapidResponse47/status/2063017556932235603
+  - .@SenRonJohnson: "You have turned the Republican Party into the party of the working men and women of this country — who have made this country great, and will continue to make it...
 - [21:56 UTC - .@SecRollins: "When @POTUS came back into office, we inherited an almost $50B agricultural...](2063017028412178488/)
   - Source: https://x.com/RapidResponse47/status/2063017028412178488
   - .@SecRollins: "When @POTUS came back into office, we inherited an almost $50B agricultural trade deficit... but in just a little over one year, 19 new trade deals have been struck....

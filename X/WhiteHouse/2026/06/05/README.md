@@ -1,7 +1,19 @@
 # X / WhiteHouse / 2026-06-05
 
-- Posts: 21
+- Posts: 25
 
+- [22:58 UTC - Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi](2063032812274381078/)
+  - Source: https://x.com/WhiteHouse/status/2063032812274381078
+  - Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi
+- [22:54 UTC - Repost of @FBIDirectorKash: Make sure you are following @FBI_Response for the most up to d...](2063031678168146053/)
+  - Source: https://x.com/WhiteHouse/status/2063031678168146053
+  - Repost of @FBIDirectorKash: Make sure you are following @FBI_Response for the most up to date and TRUE information on what this FBI is achieving despite what a dishonest media want...
+- [22:17 UTC - President Trump has delivered for American farmers by expanding exports of meat, poultry, ...](2063022340762489278/)
+  - Source: https://x.com/WhiteHouse/status/2063022340762489278
+  - President Trump has delivered for American farmers by expanding exports of meat, poultry, soybeans, biofuels, and dairy! 🐄 Dairy exports have surged: ✅ 41% to Japan ✅ 48% to the Mi...
+- [22:06 UTC - Repost of @RapidResponse47: .@RepVanOrden celebrates recent wins @POTUS has achieved for W...](2063019738666512653/)
+  - Source: https://x.com/WhiteHouse/status/2063019738666512653
+  - Repost of @RapidResponse47: .@RepVanOrden celebrates recent wins @POTUS has achieved for Wisconsin: — $50M to support the WI coal industry — Over $200M to support rural healthcare...
 - [21:33 UTC - HAPPENING NOW: President Trump delivers remarks on fighting for American farmers in Wiscon...](2063011405167571402/)
   - Source: https://x.com/WhiteHouse/status/2063011405167571402
   - HAPPENING NOW: President Trump delivers remarks on fighting for American farmers in Wisconsin. The Trump administration will never waver in pursuing the BEST for our great American...
