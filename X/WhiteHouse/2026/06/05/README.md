@@ -1,7 +1,31 @@
 # X / WhiteHouse / 2026-06-05
 
-- Posts: 4
+- Posts: 12
 
+- [16:01 UTC - President Trump is taking historic action to bring down the price of energy &amp; cost of ...](2062927826710401209/)
+  - Source: https://x.com/WhiteHouse/status/2062927826710401209
+  - President Trump is taking historic action to bring down the price of energy &amp; cost of living for ALL Americans with the power of clean, beautiful coal. The investment will resu...
+- [15:57 UTC - Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn’t help but smile when I saw @S...](2062926736518504861/)
+  - Source: https://x.com/WhiteHouse/status/2062926736518504861
+  - Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn’t help but smile when I saw @StephenMoore’s tweet! Great jobs numbers today.
+- [15:18 UTC - Repost of @Sonderling47: President Trump is bringing investment back to America. That mean...](2062917016562839688/)
+  - Source: https://x.com/WhiteHouse/status/2062917016562839688
+  - Repost of @Sonderling47: President Trump is bringing investment back to America. That means more jobs for American workers — and @USDOL is helping build the skilled workforce to fi...
+- [15:17 UTC - Repost of @SBA_Kelly: With another blockbuster jobs report for May and upward revisions fo...](2062916700278845656/)
+  - Source: https://x.com/WhiteHouse/status/2062916700278845656
+  - Repost of @SBA_Kelly: With another blockbuster jobs report for May and upward revisions for both March and April, @POTUS has added a MASSIVE 565,000 jobs to the economy in the last...
+- [15:17 UTC - Repost of @USTradeRep: 🧀 American cheesemakers, who support 58,000 jobs, are reaping the b...](2062916669987533055/)
+  - Source: https://x.com/WhiteHouse/status/2062916669987533055
+  - Repost of @USTradeRep: 🧀 American cheesemakers, who support 58,000 jobs, are reaping the benefits of “grater” market access with U.S. cheese exports up 21% in 2025 compared to the...
+- [15:16 UTC - Repost of @DHSgov: Decline is a choice. We will never stop fighting for America. https://t...](2062916549002813868/)
+  - Source: https://x.com/WhiteHouse/status/2062916549002813868
+  - Repost of @DHSgov: Decline is a choice. We will never stop fighting for America. https://t.co/rSiNOc1ee1
+- [13:55 UTC - BAD DAY TO BE A PANICAN. https://t.co/SwQMMPjoaE](2062896186713846179/)
+  - Source: https://x.com/WhiteHouse/status/2062896186713846179
+  - BAD DAY TO BE A PANICAN. https://t.co/SwQMMPjoaE
+- [13:51 UTC - Repost of @USDOL: 🚨 BREAKING: The May Jobs Report DEMOLISHED all expectations 🚨 📈 172,000 ...](2062895171117728168/)
+  - Source: https://x.com/WhiteHouse/status/2062895171117728168
+  - Repost of @USDOL: 🚨 BREAKING: The May Jobs Report DEMOLISHED all expectations 🚨 📈 172,000 jobs added. The Trump economy is strong! https://t.co/nW7j32zeI0
 - [13:09 UTC - OUTSTANDING JOBS NUMBERS! 📈🇺🇸 https://t.co/8g0MspCKtZ](2062884560006701316/)
   - Source: https://x.com/WhiteHouse/status/2062884560006701316
   - OUTSTANDING JOBS NUMBERS! 📈🇺🇸 https://t.co/8g0MspCKtZ

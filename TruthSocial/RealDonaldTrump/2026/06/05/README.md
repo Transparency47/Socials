@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-05
 
-- Posts: 5
+- Posts: 9
 
+- [15:51 UTC - Truth Social post 116698298202189065](116698298202189065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698298202189065
+  - _No text content captured._
+- [15:26 UTC - The Great Reflecting Pool, that stretches between The Lincoln Memorial and The Washington ...](116698196665878804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698196665878804
+  - The Great Reflecting Pool, that stretches between The Lincoln Memorial and The Washington Monument, just opened to “rave reviews” but, maliciously or not, some say, like The Washin...
+- [14:33 UTC - With a great Jobs Report, like just announced, stocks should go up, not down. That’s the w...](116697988425226966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116697988425226966
+  - With a great Jobs Report, like just announced, stocks should go up, not down. That’s the way it was for 200 years. Growth does not mean inflation! How else can a Country attain GRE...
+- [13:51 UTC - A great new book by fabulous Ainsley Earhardt, “America, I’m So Glad You Were Born,” is ou...](116697823135630394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116697823135630394
+  - A great new book by fabulous Ainsley Earhardt, “America, I’m So Glad You Were Born,” is out now. What a great title! Get it now. Make it number ONE!!! President DJT
 - [13:07 UTC - Truth Social post 116697652239322943](116697652239322943/)
   - Source: https://truthsocial.com/@realDonaldTrump/116697652239322943
   - _No text content captured._

@@ -1,7 +1,55 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 11
+- Posts: 27
 
+- [16:19 UTC - Repost of @USTreasury: Today, Treasury’s @FinCENnews issued an Advisory urging financial i...](2062932273805103613/)
+  - Source: https://x.com/RapidResponse47/status/2062932273805103613
+  - Repost of @USTreasury: Today, Treasury’s @FinCENnews issued an Advisory urging financial institutions to be vigilant against risks presented by the unlawful employment of illegal a...
+- [16:12 UTC - 📍 Lincoln Memorial Reflecting Pool: "These are our prized possessions that represent who w...](2062930623036039486/)
+  - Source: https://x.com/RapidResponse47/status/2062930623036039486
+  - 📍 Lincoln Memorial Reflecting Pool: "These are our prized possessions that represent who we are as a people, and why not absolutely invest and showcase it for all U.S. citizens and...
+- [16:08 UTC - Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn’t help but smile when I saw @S...](2062929466444112267/)
+  - Source: https://x.com/RapidResponse47/status/2062929466444112267
+  - Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn’t help but smile when I saw @StephenMoore’s tweet! Great jobs numbers today.
+- [15:38 UTC - https://t.co/EEsdlf8y5B](2062922118015099000/)
+  - Source: https://x.com/RapidResponse47/status/2062922118015099000
+  - https://t.co/EEsdlf8y5B
+- [15:35 UTC - Repost of @KushDesai47: Wildly misleading and inaccurate headline by @wsj. The FDA, as wid...](2062921162481451204/)
+  - Source: https://x.com/RapidResponse47/status/2062921162481451204
+  - Repost of @KushDesai47: Wildly misleading and inaccurate headline by @wsj. The FDA, as widely reported in public statements and court filings, launched a mifepristone safety review...
+- [15:34 UTC - .@SecretaryBurgum slams California's insane energy policies while touring the Sable pipeli...](2062920899322392785/)
+  - Source: https://x.com/RapidResponse47/status/2062920899322392785
+  - .@SecretaryBurgum slams California's insane energy policies while touring the Sable pipeline in Santa Barbara: California has a policy of turning themselves into an energy desert,...
+- [15:27 UTC - .@SecretaryWright at the Sable pipeline in Santa Barbara: "These are wells drilled decades...](2062919282086814172/)
+  - Source: https://x.com/RapidResponse47/status/2062919282086814172
+  - .@SecretaryWright at the Sable pipeline in Santa Barbara: "These are wells drilled decades ago, just sitting there idle. We used the Defense Production Act to bring that production...
+- [15:03 UTC - .@Sonderling47: "Economists continue to doubt @POTUS. This month, we saw 100% of the econo...](2062913129076388273/)
+  - Source: https://x.com/RapidResponse47/status/2062913129076388273
+  - .@Sonderling47: "Economists continue to doubt @POTUS. This month, we saw 100% of the economists in one survey thought the jobs would come in around 85,000; DOUBLED — 172,000." "Whe...
+- [14:57 UTC - "It's another month straight this Spring of the job market crushing expectation." 💥 https:...](2062911661464297523/)
+  - Source: https://x.com/RapidResponse47/status/2062911661464297523
+  - "It's another month straight this Spring of the job market crushing expectation." 💥 https://t.co/hFOufQIGwB
+- [14:51 UTC - Repost of @Sonderling47: 🚨 MASSIVE: The May Jobs Report SHATTERED expectations! 📈 172,000 ...](2062910302606303528/)
+  - Source: https://x.com/RapidResponse47/status/2062910302606303528
+  - Repost of @Sonderling47: 🚨 MASSIVE: The May Jobs Report SHATTERED expectations! 📈 172,000 jobs added. Under @POTUS’ leadership, more Americans are working than EVER BEFORE! ✅ More...
+- [14:46 UTC - Assistant AG Colin McDonald on yesterday's indictments in Ohio, and the creating of a new ...](2062909017605775794/)
+  - Source: https://x.com/RapidResponse47/status/2062909017605775794
+  - Assistant AG Colin McDonald on yesterday's indictments in Ohio, and the creating of a new Most Wanted Fraudsters list at the @FBI: "These fraudsters have been hiding in the dark. T...
+- [14:44 UTC - NEC Director Kevin Hassett: "@POTUS has recruited, from companies around the world, $18T o...](2062908317333160214/)
+  - Source: https://x.com/RapidResponse47/status/2062908317333160214
+  - NEC Director Kevin Hassett: "@POTUS has recruited, from companies around the world, $18T of new investment, and we're seeing... people are building factories, creating jobs, creati...
+- [14:34 UTC - https://t.co/ncrFDPuTRZ](2062905841242489189/)
+  - Source: https://x.com/RapidResponse47/status/2062905841242489189
+  - https://t.co/ncrFDPuTRZ
+- [14:33 UTC - American reacts to the repaired Reflecting Pool at the Lincoln Memorial: "The water has ju...](2062905609360457852/)
+  - Source: https://x.com/RapidResponse47/status/2062905609360457852
+  - American reacts to the repaired Reflecting Pool at the Lincoln Memorial: "The water has just been constantly basically leaking through it, and it has never gotten the proper sealan...
+- [14:27 UTC - Repost of @KushDesai47: Job growth for the third month in a row smashed expectations, with...](2062904200292397254/)
+  - Source: https://x.com/RapidResponse47/status/2062904200292397254
+  - Repost of @KushDesai47: Job growth for the third month in a row smashed expectations, with America adding 172,000 jobs in May. There is clear momentum in the American economy as a...
+- [13:49 UTC - NEC Director Kevin Hassett on the positive economic effects of @POTUS' immigration policie...](2062894611933110624/)
+  - Source: https://x.com/RapidResponse47/status/2062894611933110624
+  - NEC Director Kevin Hassett on the positive economic effects of @POTUS' immigration policies: "Wages are going up — so we're not getting low-wage immigrants, we're getting high-wage...
 - [13:34 UTC - Ohio AG David Yost on fraud schemes: "Incredible hubris. There was a McLaren in there, Lan...](2062890928520499484/)
   - Source: https://x.com/RapidResponse47/status/2062890928520499484
   - Ohio AG David Yost on fraud schemes: "Incredible hubris. There was a McLaren in there, Land Rovers, a Bentley — it's just amazing." The new partnerships established between the @WH...

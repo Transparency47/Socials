@@ -1,6 +1,1112 @@
 {
-  "generatedAt": "2026-06-05T13:48:45.197941+00:00",
+  "generatedAt": "2026-06-05T16:21:25.424025+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:add4c9c52ba89af6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:19.847128+00:00",
+        "datePublished": "2026-06-05T16:19:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062932273805103613"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062932273805103613/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062932273805103613/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062932273805103613",
+      "summary": "Repost of @USTreasury:",
+      "title": "Repost of @USTreasury: Today, Treasury\u2019s @FinCENnews issued an Advisory urging financial i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:8153054b3502085c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:18:58.942957+00:00",
+        "datePublished": "2026-06-05T16:14:25+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062921929707679745.jpg",
+            "remotePath": "archive/x/icegov/HKD4kLOW8AE2L3l.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD4kLOW8AE2L3l.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKD4kLOW8AE2L3l.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062921947659345920.jpg",
+            "remotePath": "archive/x/icegov/HKD4lOGXoAAZqzK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD4lOGXoAAZqzK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKD4lOGXoAAZqzK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062921929707679745.jpg",
+          "media/02_image_2062921947659345920.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKD4kLOW8AE2L3l.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HKD4lOGXoAAZqzK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062931053279408402"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062931053279408402/README.md",
+      "path": "X/ICEgov/2026/06/05/2062931053279408402/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062931053279408402",
+      "summary": "Repost of @BillMelugin_:",
+      "title": "Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prio..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:6fbdd0d7b2964d14",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.847523+00:00",
+        "datePublished": "2026-06-05T16:12:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062930023607083008.mp4",
+            "remotePath": "archive/x/rapidresponse47/fjDwmL7H4EBEOat6.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062930023607083008/vid/avc1/1920x1080/fjDwmL7H4EBEOat6.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/fjDwmL7H4EBEOat6.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062930023607083008.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/fjDwmL7H4EBEOat6.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062930623036039486"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062930623036039486/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062930623036039486/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062930623036039486",
+      "summary": "\ud83d\udccd Lincoln Memorial Reflecting Pool:",
+      "title": "\ud83d\udccd Lincoln Memorial Reflecting Pool: \"These are our prized possessions that represent who w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:ea95190c849c8c4a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:19.847880+00:00",
+        "datePublished": "2026-06-05T16:08:06+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062929466444112267"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062929466444112267/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062929466444112267/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062929466444112267",
+      "summary": "Repost of @SusieWiles47:",
+      "title": "Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn\u2019t help but smile when I saw @S..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:e290ffc3721c01c1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:18:58.943464+00:00",
+        "datePublished": "2026-06-05T16:05:18+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062928756910559233.png",
+            "remotePath": "archive/x/icegov/HKD-xkiXkAEv2Cw.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD-xkiXkAEv2Cw.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKD-xkiXkAEv2Cw.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062928756910559233.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKD-xkiXkAEv2Cw.png"
+        ],
+        "platform": "X",
+        "postId": "2062928758948999676"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2062928758948999676/README.md",
+      "path": "X/ICEgov/2026/06/05/2062928758948999676/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2062928758948999676",
+      "summary": "Mosaih Omar Wright aka Kevin Foster, of Jamaica, entered the U.S. in Miami, Fla., in 1995 as a stowaway and was previously deported as a murderer.",
+      "title": "Mosaih Omar Wright aka Kevin Foster, of Jamaica, entered the U.S. in Miami, Fla., in 1995 ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:edbddf23e4b259b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:04.286385+00:00",
+        "datePublished": "2026-06-05T16:01:35+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062927529929785344.jpg",
+            "remotePath": "archive/x/whitehouse/HKD9qJrWwAARvUt.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD9qJrWwAARvUt.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJrWwAARvUt.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2062927529866940416.jpg",
+            "remotePath": "archive/x/whitehouse/HKD9qJcX0AAKhpB.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD9qJcX0AAKhpB.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJcX0AAKhpB.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2062927529892048896.jpg",
+            "remotePath": "archive/x/whitehouse/HKD9qJiW8AAMAmR.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD9qJiW8AAMAmR.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJiW8AAMAmR.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2062927529892098048.jpg",
+            "remotePath": "archive/x/whitehouse/HKD9qJiXsAAUp-m.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD9qJiXsAAUp-m.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJiXsAAUp-m.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062927529929785344.jpg",
+          "media/02_image_2062927529866940416.jpg",
+          "media/03_image_2062927529892048896.jpg",
+          "media/04_image_2062927529892098048.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJrWwAARvUt.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJcX0AAKhpB.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJiW8AAMAmR.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKD9qJiXsAAUp-m.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062927826710401209"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062927826710401209/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062927826710401209/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062927826710401209",
+      "summary": "President Trump is taking historic action to bring down the price of energy &amp; cost of living for ALL Americans with the power of clean, beautiful coal.",
+      "title": "President Trump is taking historic action to bring down the price of energy &amp; cost of ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:311c3acb7ea15f77",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.286761+00:00",
+        "datePublished": "2026-06-05T15:57:15+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062926736518504861"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062926736518504861/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062926736518504861/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062926736518504861",
+      "summary": "Repost of @SusieWiles47:",
+      "title": "Repost of @SusieWiles47: As a lifelong Knicks fan, I couldn\u2019t help but smile when I saw @S..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:3a3ddb85caae29d7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:18.670188+00:00",
+        "datePublished": "2026-06-05T15:51:56.215000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698297952406211.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/1590c7afaa77cc7c.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/297/952/406/211/original/1590c7afaa77cc7c.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1590c7afaa77cc7c.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698297952406211.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1590c7afaa77cc7c.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698298202189065"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698298202189065/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698298202189065/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698298202189065",
+      "summary": null,
+      "title": "Truth Social post 116698298202189065"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:706355307921a915",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:49.278989+00:00",
+        "datePublished": "2026-06-05T15:45:56+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062903604927684608.jpg",
+            "remotePath": "archive/x/secmullindhs/HKDn5iGWYAA6G69.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDn5iGWYAA6G69.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKDn5iGWYAA6G69.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062903604927684608.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKDn5iGWYAA6G69.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062923887529050393"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/05/2062923887529050393/README.md",
+      "path": "X/SecMullinDHS/2026/06/05/2062923887529050393/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2062923887529050393",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Decline is a choice. We will never stop fighting for America. https://t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:1553a584bda7b115",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.848274+00:00",
+        "datePublished": "2026-06-05T15:38:54+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062922111950147585.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKD4uyIWUAE2b1T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKD4uyIWUAE2b1T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKD4uyIWUAE2b1T.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062922111950147585.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKD4uyIWUAE2b1T.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062922118015099000"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062922118015099000/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062922118015099000/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062922118015099000",
+      "summary": "https://t.co/EEsdlf8y5B",
+      "title": "https://t.co/EEsdlf8y5B"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:e58ec1a3cac78667",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:19.848653+00:00",
+        "datePublished": "2026-06-05T15:35:07+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062921162481451204"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062921162481451204/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062921162481451204/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062921162481451204",
+      "summary": "Repost of @KushDesai47:",
+      "title": "Repost of @KushDesai47: Wildly misleading and inaccurate headline by @wsj. The FDA, as wid..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:79a23773fe8ccf01",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.849003+00:00",
+        "datePublished": "2026-06-05T15:34:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062919712833511424.mp4",
+            "remotePath": "archive/x/rapidresponse47/VIirvBxuv4Sn5tV.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062919712833511424/vid/avc1/1280x720/VIirvBxuv4Sn5tV_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VIirvBxuv4Sn5tV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062919712833511424.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VIirvBxuv4Sn5tV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062920899322392785"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062920899322392785/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062920899322392785/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062920899322392785",
+      "summary": ".@SecretaryBurgum slams California's insane energy policies while touring the Sable pipeline in Santa Barbara: California has a policy of turning themselves into an energy desert, raising prices, lowering national security. We're here today because @POTUS wants every American to ",
+      "title": ".@SecretaryBurgum slams California's insane energy policies while touring the Sable pipeli..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:35a9fb4d826def41",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.849409+00:00",
+        "datePublished": "2026-06-05T15:27:38+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062919108438405120.mp4",
+            "remotePath": "archive/x/rapidresponse47/NrjXDwk0la7dy-Vk.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062919108438405120/vid/avc1/1280x720/NrjXDwk0la7dy-Vk.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/NrjXDwk0la7dy-Vk.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062919108438405120.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/NrjXDwk0la7dy-Vk.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062919282086814172"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062919282086814172/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062919282086814172/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062919282086814172",
+      "summary": ".@SecretaryWright at the Sable pipeline in Santa Barbara: \"These are wells drilled decades ago, just sitting there idle. We used the Defense Production Act to bring that production on. It grew California's oil and gas production by 20% \u2014 just turning a valve.\" https://t.co/Wi7PEy",
+      "title": ".@SecretaryWright at the Sable pipeline in Santa Barbara: \"These are wells drilled decades..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:b890b78a0c3fe904",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:18.670746+00:00",
+        "datePublished": "2026-06-05T15:26:06.895000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116698196665878804"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698196665878804/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698196665878804/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698196665878804",
+      "summary": "The Great Reflecting Pool, that stretches between The Lincoln Memorial and The Washington Monument, just opened to \u201crave reviews\u201d but, maliciously or not, some say, like The Washington Post, it was a \u201cpaint job.\u201d This was not a paint job. This was highly sophisticated material, i",
+      "title": "The Great Reflecting Pool, that stretches between The Lincoln Memorial and The Washington ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0ecb2f8e83962ca8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.287117+00:00",
+        "datePublished": "2026-06-05T15:18:38+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062905638955429888.mp4",
+            "remotePath": "archive/x/whitehouse/f9Axj93MIdMQRRy7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062905638955429888/vid/avc1/1280x720/f9Axj93MIdMQRRy7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/f9Axj93MIdMQRRy7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062905638955429888.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/f9Axj93MIdMQRRy7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062917016562839688"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062917016562839688/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062917016562839688/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062917016562839688",
+      "summary": "Repost of @Sonderling47:",
+      "title": "Repost of @Sonderling47: President Trump is bringing investment back to America. That mean..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:181dba7dad4712ad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.287518+00:00",
+        "datePublished": "2026-06-05T15:17:23+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062916700278845656"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062916700278845656/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062916700278845656/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062916700278845656",
+      "summary": "Repost of @SBA_Kelly:",
+      "title": "Repost of @SBA_Kelly: With another blockbuster jobs report for May and upward revisions fo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:f62b89eae29beca5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.287878+00:00",
+        "datePublished": "2026-06-05T15:17:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062740418681327616.jpg",
+            "remotePath": "archive/x/whitehouse/HKBTe19XUAAHUah.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKBTe19XUAAHUah.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKBTe19XUAAHUah.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062740418681327616.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKBTe19XUAAHUah.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062916669987533055"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062916669987533055/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062916669987533055/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062916669987533055",
+      "summary": "Repost of @USTradeRep:",
+      "title": "Repost of @USTradeRep: \ud83e\uddc0 American cheesemakers, who support 58,000 jobs, are reaping the b..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:52ee328780936042",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.288242+00:00",
+        "datePublished": "2026-06-05T15:16:47+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062903604927684608.jpg",
+            "remotePath": "archive/x/whitehouse/HKDn5iGWYAA6G69.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDn5iGWYAA6G69.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKDn5iGWYAA6G69.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062903604927684608.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKDn5iGWYAA6G69.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062916549002813868"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062916549002813868/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062916549002813868/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062916549002813868",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Decline is a choice. We will never stop fighting for America. https://t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:91e2b1abf876bfcd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.849816+00:00",
+        "datePublished": "2026-06-05T15:03:11+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062911894273286144.mp4",
+            "remotePath": "archive/x/rapidresponse47/CEqD9E_DBi_fuEox.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062911894273286144/vid/avc1/1280x720/CEqD9E_DBi_fuEox.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/CEqD9E_DBi_fuEox.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062911894273286144.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/CEqD9E_DBi_fuEox.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062913129076388273"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062913129076388273/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062913129076388273/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062913129076388273",
+      "summary": ".@Sonderling47: \"Economists continue to doubt @POTUS. This month, we saw 100% of the economists in one survey thought the jobs would come in around 85,000; DOUBLED \u2014 172,000.\"",
+      "title": ".@Sonderling47: \"Economists continue to doubt @POTUS. This month, we saw 100% of the econo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:aac59b3010bfff5b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.850090+00:00",
+        "datePublished": "2026-06-05T14:57:21+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062911340524572672.mp4",
+            "remotePath": "archive/x/rapidresponse47/Sl7Ol5GZ9Ga4RwiW.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062911340524572672/vid/avc1/1280x720/Sl7Ol5GZ9Ga4RwiW.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/Sl7Ol5GZ9Ga4RwiW.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062911340524572672.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/Sl7Ol5GZ9Ga4RwiW.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062911661464297523"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062911661464297523/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062911661464297523/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062911661464297523",
+      "summary": "\"It's another month straight this Spring of the job market crushing expectation.\" \ud83d\udca5 https://t.co/hFOufQIGwB",
+      "title": "\"It's another month straight this Spring of the job market crushing expectation.\" \ud83d\udca5 https:..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:070a115291ba7bac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:19.850440+00:00",
+        "datePublished": "2026-06-05T14:51:57+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062882526360666112.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKDUumUWgAA9N0U.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDUumUWgAA9N0U.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKDUumUWgAA9N0U.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062882526360666112.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKDUumUWgAA9N0U.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062910302606303528"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062910302606303528/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062910302606303528/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062910302606303528",
+      "summary": "Repost of @Sonderling47:",
+      "title": "Repost of @Sonderling47: \ud83d\udea8 MASSIVE: The May Jobs Report SHATTERED expectations! \ud83d\udcc8 172,000 ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:194dba4603707a1d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.850794+00:00",
+        "datePublished": "2026-06-05T14:46:51+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062908447004246016.mp4",
+            "remotePath": "archive/x/rapidresponse47/eVxtuaT6VNY6_P6m.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062908447004246016/vid/avc1/1280x720/eVxtuaT6VNY6_P6m.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/eVxtuaT6VNY6_P6m.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062908447004246016.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/eVxtuaT6VNY6_P6m.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062909017605775794"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062909017605775794/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062909017605775794/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062909017605775794",
+      "summary": "Assistant AG Colin McDonald on yesterday's indictments in Ohio, and the creating of a new Most Wanted Fraudsters list at the @FBI:",
+      "title": "Assistant AG Colin McDonald on yesterday's indictments in Ohio, and the creating of a new ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:b40db659dbf98b9a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.851227+00:00",
+        "datePublished": "2026-06-05T14:44:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062906116980252672.mp4",
+            "remotePath": "archive/x/rapidresponse47/t_lVPrChjczfAePy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062906116980252672/vid/avc1/1280x720/t_lVPrChjczfAePy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/t_lVPrChjczfAePy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062906116980252672.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/t_lVPrChjczfAePy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062908317333160214"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062908317333160214/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062908317333160214/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062908317333160214",
+      "summary": "NEC Director Kevin Hassett: \"@POTUS has recruited, from companies around the world, $18T of new investment, and we're seeing... people are building factories, creating jobs, creating the Golden Age\u2014the boom\u2014that is a logical supply-side response to the Big Beautiful Bill.\" \ud83d\udd25 http",
+      "title": "NEC Director Kevin Hassett: \"@POTUS has recruited, from companies around the world, $18T o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:d1c97a342f36f385",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.851498+00:00",
+        "datePublished": "2026-06-05T14:34:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062905837627023360.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKDp7fjWoAAO2E3.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDp7fjWoAAO2E3.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKDp7fjWoAAO2E3.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062905837627023360.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKDp7fjWoAAO2E3.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062905841242489189"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062905841242489189/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062905841242489189/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062905841242489189",
+      "summary": "https://t.co/ncrFDPuTRZ",
+      "title": "https://t.co/ncrFDPuTRZ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:76cf816a8bf2587f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.851721+00:00",
+        "datePublished": "2026-06-05T14:33:18+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062905478334562304.mp4",
+            "remotePath": "archive/x/rapidresponse47/qhyoofykPgGG7Rtv.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062905478334562304/vid/avc1/1920x1080/qhyoofykPgGG7Rtv.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/qhyoofykPgGG7Rtv.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062905478334562304.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/qhyoofykPgGG7Rtv.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062905609360457852"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062905609360457852/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062905609360457852/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062905609360457852",
+      "summary": "American reacts to the repaired Reflecting Pool at the Lincoln Memorial:",
+      "title": "American reacts to the repaired Reflecting Pool at the Lincoln Memorial: \"The water has ju..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:2c84b15618d42cd1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:18.671105+00:00",
+        "datePublished": "2026-06-05T14:33:09.398000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116697988425226966"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116697988425226966/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116697988425226966/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116697988425226966",
+      "summary": "With a great Jobs Report, like just announced, stocks should go up, not down. That\u2019s the way it was for 200 years. Growth does not mean inflation! How else can a Country attain GREATNESS??? President DJT",
+      "title": "With a great Jobs Report, like just announced, stocks should go up, not down. That\u2019s the w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:62d8b1ce049740a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:19:19.851953+00:00",
+        "datePublished": "2026-06-05T14:27:42+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062904200292397254"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062904200292397254/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062904200292397254/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062904200292397254",
+      "summary": "Repost of @KushDesai47:",
+      "title": "Repost of @KushDesai47: Job growth for the third month in a row smashed expectations, with..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9356301e5d0e42a0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:18:42.058970+00:00",
+        "datePublished": "2026-06-05T14:25:22+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062903604927684608.jpg",
+            "remotePath": "archive/x/dhsgov/HKDn5iGWYAA6G69.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDn5iGWYAA6G69.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKDn5iGWYAA6G69.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062903604927684608.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKDn5iGWYAA6G69.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062903610342568158"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062903610342568158/README.md",
+      "path": "X/DHSgov/2026/06/05/2062903610342568158/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062903610342568158",
+      "summary": "Decline is a choice.",
+      "title": "Decline is a choice. We will never stop fighting for America. https://t.co/rSiNOc1ee1"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:c4523f00e257f4a6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:18:42.059371+00:00",
+        "datePublished": "2026-06-05T14:14:59+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062900999623147995"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062900999623147995/README.md",
+      "path": "X/DHSgov/2026/06/05/2062900999623147995/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062900999623147995",
+      "summary": "DRUG TRAFFICKERS SENTENCED.",
+      "title": "DRUG TRAFFICKERS SENTENCED. TWO illegal aliens from Mexico participated in a conspiracy to..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:619414895f79441a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:04.288577+00:00",
+        "datePublished": "2026-06-05T13:55:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062896087577329664.jpg",
+            "remotePath": "archive/x/whitehouse/HKDhD9yXAAA6J_9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDhD9yXAAA6J_9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKDhD9yXAAA6J_9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062896087577329664.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKDhD9yXAAA6J_9.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062896186713846179"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062896186713846179/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062896186713846179/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062896186713846179",
+      "summary": "BAD DAY TO BE A PANICAN. https://t.co/SwQMMPjoaE",
+      "title": "BAD DAY TO BE A PANICAN. https://t.co/SwQMMPjoaE"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:3b773d4c682576c3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T16:20:04.288917+00:00",
+        "datePublished": "2026-06-05T13:51:50+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062885364457492480.jpg",
+            "remotePath": "archive/x/whitehouse/HKDXTzDXUAAgit0.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKDXTzDXUAAgit0.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKDXTzDXUAAgit0.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062885364457492480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKDXTzDXUAAgit0.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062895171117728168"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062895171117728168/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062895171117728168/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062895171117728168",
+      "summary": "Repost of @USDOL:",
+      "title": "Repost of @USDOL: \ud83d\udea8 BREAKING: The May Jobs Report DEMOLISHED all expectations \ud83d\udea8 \ud83d\udcc8 172,000 ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:c98e02e0b7ec2ba9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:18.671467+00:00",
+        "datePublished": "2026-06-05T13:51:07.277000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116697823135630394"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116697823135630394/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116697823135630394/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116697823135630394",
+      "summary": "A great new book by fabulous Ainsley Earhardt, \u201cAmerica, I\u2019m So Glad You Were Born,\u201d is out now. What a great title! Get it now. Make it number ONE!!! President DJT",
+      "title": "A great new book by fabulous Ainsley Earhardt, \u201cAmerica, I\u2019m So Glad You Were Born,\u201d is ou..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-05",
+      "id": "socials:980c7d01ab46edc6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:20:31.311924+00:00",
+        "datePublished": "2026-06-05T13:49:40+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7647907926501313805.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7647907926501313805.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647907926501313805",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7647907926501313805.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7647907926501313805.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7647907926501313805.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7647907926501313805"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/05/7647907926501313805/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/05/7647907926501313805/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7647907926501313805",
+      "summary": "Job growth blows past expectations \ud83d\udd25",
+      "title": "Job growth blows past expectations \ud83d\udd25"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:ea2a8f27b5a10185",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T16:19:19.852151+00:00",
+        "datePublished": "2026-06-05T13:49:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062894173695410176.mp4",
+            "remotePath": "archive/x/rapidresponse47/b1ZEd6ZpaqojwnwT.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062894173695410176/vid/avc1/1280x720/b1ZEd6ZpaqojwnwT.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/b1ZEd6ZpaqojwnwT.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062894173695410176.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/b1ZEd6ZpaqojwnwT.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062894611933110624"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062894611933110624/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062894611933110624/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062894611933110624",
+      "summary": "NEC Director Kevin Hassett on the positive economic effects of @POTUS' immigration policies:",
+      "title": "NEC Director Kevin Hassett on the positive economic effects of @POTUS' immigration policie..."
+    },
     {
       "category": "X",
       "date": "2026-06-05",

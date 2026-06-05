@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-05
 
-- Posts: 5
+- Posts: 7
 
+- [16:14 UTC - Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prio...](2062931053279408402/)
+  - Source: https://x.com/ICEgov/status/2062931053279408402
+  - Repost of @BillMelugin_: ICYMI: A previously deported Mexican illegal alien with four prior DUI arrests has been charged with a triple murder in Modesto, CA after he allegedly stab...
+- [16:05 UTC - Mosaih Omar Wright aka Kevin Foster, of Jamaica, entered the U.S. in Miami, Fla., in 1995 ...](2062928758948999676/)
+  - Source: https://x.com/ICEgov/status/2062928758948999676
+  - Mosaih Omar Wright aka Kevin Foster, of Jamaica, entered the U.S. in Miami, Fla., in 1995 as a stowaway and was previously deported as a murderer. 🔎Aliens arriving as stowaways are...
 - [13:21 UTC - Repost of @DHSgov: REMINDER: on May 28, the state of New Jersey’s health inspectors went t...](2062887583785402713/)
   - Source: https://x.com/ICEgov/status/2062887583785402713
   - Repost of @DHSgov: REMINDER: on May 28, the state of New Jersey’s health inspectors went to Delaney Hall and they didn’t find one single violation. Compare this to New Jersey’s own...
