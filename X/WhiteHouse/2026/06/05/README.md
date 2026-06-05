@@ -1,7 +1,19 @@
 # X / WhiteHouse / 2026-06-05
 
-- Posts: 12
+- Posts: 16
 
+- [17:56 UTC - Several months in a row SMASHING economists' expectations with more positive momentum to c...](2062956711103619581/)
+  - Source: https://x.com/WhiteHouse/status/2062956711103619581
+  - Several months in a row SMASHING economists' expectations with more positive momentum to come. 🇺🇸 https://t.co/JmkILFZKBi
+- [17:53 UTC - Repost of @SecKennedy: Bottom line: EAT REAL FOOD. https://t.co/aTlSWaolS5](2062956030925914435/)
+  - Source: https://x.com/WhiteHouse/status/2062956030925914435
+  - Repost of @SecKennedy: Bottom line: EAT REAL FOOD. https://t.co/aTlSWaolS5
+- [17:14 UTC - Repost of @DrOzCMS: TrumpRx is free and easy to use for every American 🇺🇸 Hundreds of pres...](2062946171048386917/)
+  - Source: https://x.com/WhiteHouse/status/2062946171048386917
+  - Repost of @DrOzCMS: TrumpRx is free and easy to use for every American 🇺🇸 Hundreds of prescriptions at lower costs right at your fingertips! President Trump is saving YOU money at...
+- [17:13 UTC - Repost of @RapidResponse47: .@POTUS departs for Chippewa Falls, Wisconsin, where he will h...](2062945909344764294/)
+  - Source: https://x.com/WhiteHouse/status/2062945909344764294
+  - Repost of @RapidResponse47: .@POTUS departs for Chippewa Falls, Wisconsin, where he will hold a roundtable discussion on supporting American agriculture 🐮 👨‍🌾 🇺🇸 https://t.co/eE60I...
 - [16:01 UTC - President Trump is taking historic action to bring down the price of energy &amp; cost of ...](2062927826710401209/)
   - Source: https://x.com/WhiteHouse/status/2062927826710401209
   - President Trump is taking historic action to bring down the price of energy &amp; cost of living for ALL Americans with the power of clean, beautiful coal. The investment will resu...

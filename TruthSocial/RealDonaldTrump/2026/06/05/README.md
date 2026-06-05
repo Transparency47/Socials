@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-05
 
-- Posts: 9
+- Posts: 11
 
+- [17:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impress...](116698625289241287/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698625289241287
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impressive. Proud of you! President DJT
+- [17:14 UTC - Truth Social post 116698624343659358](116698624343659358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116698624343659358
+  - _No text content captured._
 - [15:51 UTC - Truth Social post 116698298202189065](116698298202189065/)
   - Source: https://truthsocial.com/@realDonaldTrump/116698298202189065
   - _No text content captured._

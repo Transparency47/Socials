@@ -1,6 +1,541 @@
 {
-  "generatedAt": "2026-06-05T16:21:25.424025+00:00",
+  "generatedAt": "2026-06-05T18:23:19.161205+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:035af06c165d8e81",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:21:02.155019+00:00",
+        "datePublished": "2026-06-05T18:12:58+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062959811424108544.mp4",
+            "remotePath": "archive/x/dhsgov/k8bGwQd22FD_RGr7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062959811424108544/vid/avc1/1080x1920/k8bGwQd22FD_RGr7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/k8bGwQd22FD_RGr7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062959811424108544.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/k8bGwQd22FD_RGr7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062960887749640397"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062960887749640397/README.md",
+      "path": "X/DHSgov/2026/06/05/2062960887749640397/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062960887749640397",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: This week, we honored some of our @ICEgov law enforcement officer..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:7ef9d3a5406c3bbc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:52.125618+00:00",
+        "datePublished": "2026-06-05T18:10:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062959811424108544.mp4",
+            "remotePath": "archive/x/secmullindhs/k8bGwQd22FD_RGr7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062959811424108544/vid/avc1/1080x1920/k8bGwQd22FD_RGr7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/k8bGwQd22FD_RGr7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062959811424108544.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/k8bGwQd22FD_RGr7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062960172524323296"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/05/2062960172524323296/README.md",
+      "path": "X/SecMullinDHS/2026/06/05/2062960172524323296/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2062960172524323296",
+      "summary": "This week, we honored some of our @ICEgov law enforcement officers who, amid sniper shots at the Dallas ICE facility shooting on September 24, 2025, rushed into action to save illegal aliens\u2019 lives.",
+      "title": "This week, we honored some of our @ICEgov law enforcement officers who, amid sniper shots ..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-05",
+      "id": "socials:4a573cb7020a4faa",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-05T18:22:35.434349+00:00",
+        "datePublished": "2026-06-05T18:04:55+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "odNMRF4ADFk"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/05/odNMRF4ADFk/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/05/odNMRF4ADFk/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=odNMRF4ADFk",
+      "summary": "- [02:51.760] So, we had incredible job numbers today. - [02:54.080] You saw that. - [02:56.239] And uh we have good everything good good - [02:59.120] numbers, but the job numbers just came - [03:01.280] out and they were fantastic. Uh far - [03:04.239] better than even anticipa",
+      "title": "President Trump Gaggles with Press on Air Force One En Route Chippewa Falls, WI, Jun. 5, 2026"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:63d8663770830075",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:38.781929+00:00",
+        "datePublished": "2026-06-05T17:59:41+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062956860748046336.mp4",
+            "remotePath": "archive/x/rapidresponse47/wzP1nNJ1ONENGyMI.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062956860748046336/vid/avc1/608x1080/wzP1nNJ1ONENGyMI.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/wzP1nNJ1ONENGyMI.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062956860748046336.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/wzP1nNJ1ONENGyMI.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062957543979090022"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062957543979090022/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062957543979090022/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062957543979090022",
+      "summary": "\"I can even see the American flags around the Washington Monument, it's so reflective... That's impressive!\" https://t.co/Z14ieP9kPg",
+      "title": "\"I can even see the American flags around the Washington Monument, it's so reflective... T..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:dba0eb9bbb9885b6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:02.155345+00:00",
+        "datePublished": "2026-06-05T17:58:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062957016750882817.mp4",
+            "remotePath": "archive/x/dhsgov/Rru8tpQGk_juRae9.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062957016750882817/vid/avc1/568x320/Rru8tpQGk_juRae9.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/Rru8tpQGk_juRae9.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062957016750882817.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/Rru8tpQGk_juRae9.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062957160279990404"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062957160279990404/README.md",
+      "path": "X/DHSgov/2026/06/05/2062957160279990404/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062957160279990404",
+      "summary": "FACT CHECK: There has been NO spike in deaths. Consistent with data over the last decade, as of April 30, death rates in custody under the Trump administration are 0.009% of the detained population.",
+      "title": "FACT CHECK: There has been NO spike in deaths. Consistent with data over the last decade, ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:dbc5ba437f47952b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:22:08.449925+00:00",
+        "datePublished": "2026-06-05T17:56:22+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2062955537604444160.jpg",
+            "remotePath": "archive/x/whitehouse/HKEXIaZWgAA56fz.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKEXIaZWgAA56fz.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKEXIaZWgAA56fz.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2062955537604444160.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKEXIaZWgAA56fz.jpg"
+        ],
+        "platform": "X",
+        "postId": "2062956711103619581"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062956711103619581/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062956711103619581/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062956711103619581",
+      "summary": "Several months in a row SMASHING economists' expectations with more positive momentum to come. \ud83c\uddfa\ud83c\uddf8 https://t.co/JmkILFZKBi",
+      "title": "Several months in a row SMASHING economists' expectations with more positive momentum to c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:bcf78c17adc652b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:22:08.450226+00:00",
+        "datePublished": "2026-06-05T17:53:40+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062902156382887936.mp4",
+            "remotePath": "archive/x/whitehouse/oNi_ZhSvRX_qDbhG.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062902156382887936/vid/avc1/1080x1350/oNi_ZhSvRX_qDbhG.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/oNi_ZhSvRX_qDbhG.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062902156382887936.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/oNi_ZhSvRX_qDbhG.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062956030925914435"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062956030925914435/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062956030925914435/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062956030925914435",
+      "summary": "Repost of @SecKennedy:",
+      "title": "Repost of @SecKennedy: Bottom line: EAT REAL FOOD. https://t.co/aTlSWaolS5"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:7f470314033d53c1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:38.782251+00:00",
+        "datePublished": "2026-06-05T17:37:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062951156150607872.mp4",
+            "remotePath": "archive/x/rapidresponse47/ga-7-BGbIrfm7SEB.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062951156150607872/vid/avc1/1280x720/ga-7-BGbIrfm7SEB.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ga-7-BGbIrfm7SEB.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062951156150607872.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ga-7-BGbIrfm7SEB.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062951887545004338"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062951887545004338/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062951887545004338/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062951887545004338",
+      "summary": ".@AnnaKelly47 on the astounding May jobs report: \"This is a proven economic formula that @POTUS delivered in his first term, and he's delivering again in his second term... and as he travels to Wisconsin, that's something he's going to touch on... and the best is yet to come for ",
+      "title": ".@AnnaKelly47 on the astounding May jobs report: \"This is a proven economic formula that @..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2b21cc24b60b9b41",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:21:02.155555+00:00",
+        "datePublished": "2026-06-05T17:19:44+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062947490995802153"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062947490995802153/README.md",
+      "path": "X/DHSgov/2026/06/05/2062947490995802153/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062947490995802153",
+      "summary": "Repost of @DHSGenCounsel:",
+      "title": "Repost of @DHSGenCounsel: The Left has been running the same gambit with so called \u201canimus..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:f2087848dd0761bd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:22:20.447419+00:00",
+        "datePublished": "2026-06-05T17:15:07.171000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116698624891146167.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/9d9911999191473d.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/624/891/146/167/original/9d9911999191473d.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9d9911999191473d.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116698624891146167.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9d9911999191473d.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698625289241287"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698625289241287/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698625289241287/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698625289241287",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impressive. Proud of you! President DJT",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impress..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:82e59a210ad8ddeb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:22:20.848524+00:00",
+        "datePublished": "2026-06-05T17:14:52.745000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116698623047793826.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/3ba3e634f2eac50f.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/698/623/047/793/826/original/3ba3e634f2eac50f.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/3ba3e634f2eac50f.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116698623047793826.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/3ba3e634f2eac50f.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116698624343659358"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116698624343659358/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698624343659358/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116698624343659358",
+      "summary": null,
+      "title": "Truth Social post 116698624343659358"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:d64cbf9c4bbe7f53",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:22:08.450525+00:00",
+        "datePublished": "2026-06-05T17:14:29+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062937243774279680.mp4",
+            "remotePath": "archive/x/whitehouse/mi9BOOG98owXhKZd.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062937243774279680/vid/avc1/2160x3840/mi9BOOG98owXhKZd.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/mi9BOOG98owXhKZd.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062937243774279680.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/mi9BOOG98owXhKZd.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062946171048386917"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062946171048386917/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062946171048386917/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062946171048386917",
+      "summary": "Repost of @DrOzCMS:",
+      "title": "Repost of @DrOzCMS: TrumpRx is free and easy to use for every American \ud83c\uddfa\ud83c\uddf8 Hundreds of pres..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:97f2643190b0f590",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:21:38.782613+00:00",
+        "datePublished": "2026-06-05T17:14:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062946064722763787"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062946064722763787/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062946064722763787/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062946064722763787",
+      "summary": "Repost of @JDVance:",
+      "title": "Repost of @JDVance: Henry Nowak died the same way a civilization dies: abandoned, handcuff..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:4606ee64d65046e8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:22:08.450823+00:00",
+        "datePublished": "2026-06-05T17:13:27+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062945242135818240.mp4",
+            "remotePath": "archive/x/whitehouse/0x4nY4s9AUFXFkhl.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062945242135818240/vid/avc1/1280x720/0x4nY4s9AUFXFkhl.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/0x4nY4s9AUFXFkhl.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062945242135818240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/0x4nY4s9AUFXFkhl.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062945909344764294"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2062945909344764294/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2062945909344764294/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2062945909344764294",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS departs for Chippewa Falls, Wisconsin, where he will h..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:cd571fdf39308087",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:38.782914+00:00",
+        "datePublished": "2026-06-05T17:11:55+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2062945242135818240.mp4",
+            "remotePath": "archive/x/rapidresponse47/0x4nY4s9AUFXFkhl.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2062945242135818240/vid/avc1/1280x720/0x4nY4s9AUFXFkhl.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/0x4nY4s9AUFXFkhl.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2062945242135818240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/0x4nY4s9AUFXFkhl.mp4"
+        ],
+        "platform": "X",
+        "postId": "2062945526618730957"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062945526618730957/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062945526618730957/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062945526618730957",
+      "summary": ".@POTUS departs for Chippewa Falls, Wisconsin, where he will hold a roundtable discussion on supporting American agriculture \ud83d\udc2e \ud83d\udc68\u200d\ud83c\udf3e \ud83c\uddfa\ud83c\uddf8 https://t.co/eE60IxlFN1",
+      "title": ".@POTUS departs for Chippewa Falls, Wisconsin, where he will hold a roundtable discussion ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9a9492f1352ec430",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T18:22:01.473231+00:00",
+        "datePublished": "2026-06-05T17:05:49+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062943990438121954"
+      },
+      "metadataPath": "X/VP/2026/06/05/2062943990438121954/README.md",
+      "path": "X/VP/2026/06/05/2062943990438121954/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2062943990438121954",
+      "summary": "Repost of @JDVance:",
+      "title": "Repost of @JDVance: Henry Nowak died the same way a civilization dies: abandoned, handcuff..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:03c778f67ae292e8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T18:21:38.783178+00:00",
+        "datePublished": "2026-06-05T16:23:33+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062933352307433947"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2062933352307433947/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2062933352307433947/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2062933352307433947",
+      "summary": ".@RealPNavarro: A Great Jobs Report Does Not Warrant a Rate Hike https://t.co/1JzTqejsla",
+      "title": ".@RealPNavarro: A Great Jobs Report Does Not Warrant a Rate Hike https://t.co/1JzTqejsla"
+    },
     {
       "category": "X",
       "date": "2026-06-05",

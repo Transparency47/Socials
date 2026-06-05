@@ -1,6 +1,6 @@
 {
   "last_errors": [],
-  "last_successful_run": "2026-06-05T16:20:50.402454+00:00",
+  "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
     "tiktok:realdonaldtrump:7375744699140721963": {
       "account": "RealDonaldTrump",
@@ -113313,6 +113313,28 @@
       "title": "Truth Social post 116698298202189065",
       "url": "https://truthsocial.com/@realDonaldTrump/116698298202189065"
     },
+    "truthsocial:realdonaldtrump:116698624343659358": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:22:20.848524+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698624343659358",
+      "platform": "truthsocial",
+      "post_id": "116698624343659358",
+      "published": "2026-06-05T17:14:52.745000+00:00",
+      "title": "Truth Social post 116698624343659358",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698624343659358"
+    },
+    "truthsocial:realdonaldtrump:116698625289241287": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:22:20.447419+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116698625289241287",
+      "platform": "truthsocial",
+      "post_id": "116698625289241287",
+      "published": "2026-06-05T17:15:07.171000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698624343659358 Very impress...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116698625289241287"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120232,6 +120254,39 @@
       "title": "Decline is a choice. We will never stop fighting for America. https://t.co/rSiNOc1ee1",
       "url": "https://x.com/DHSgov/status/2062903610342568158"
     },
+    "x:dhsgov:2062947490995802153": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:21:02.155555+00:00",
+      "path": "X/DHSgov/2026/06/05/2062947490995802153",
+      "platform": "x",
+      "post_id": "2062947490995802153",
+      "published": "2026-06-05T17:19:44+00:00",
+      "title": "Repost of @DHSGenCounsel: The Left has been running the same gambit with so called \u201canimus...",
+      "url": "https://x.com/DHSgov/status/2062947490995802153"
+    },
+    "x:dhsgov:2062957160279990404": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:02.155345+00:00",
+      "path": "X/DHSgov/2026/06/05/2062957160279990404",
+      "platform": "x",
+      "post_id": "2062957160279990404",
+      "published": "2026-06-05T17:58:09+00:00",
+      "title": "FACT CHECK: There has been NO spike in deaths. Consistent with data over the last decade, ...",
+      "url": "https://x.com/DHSgov/status/2062957160279990404"
+    },
+    "x:dhsgov:2062960887749640397": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:21:02.155019+00:00",
+      "path": "X/DHSgov/2026/06/05/2062960887749640397",
+      "platform": "x",
+      "post_id": "2062960887749640397",
+      "published": "2026-06-05T18:12:58+00:00",
+      "title": "Repost of @SecMullinDHS: This week, we honored some of our @ICEgov law enforcement officer...",
+      "url": "https://x.com/DHSgov/status/2062960887749640397"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -126678,6 +126733,61 @@
       "title": "Repost of @USTreasury: Today, Treasury\u2019s @FinCENnews issued an Advisory urging financial i...",
       "url": "https://x.com/RapidResponse47/status/2062932273805103613"
     },
+    "x:rapidresponse47:2062933352307433947": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:38.783178+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062933352307433947",
+      "platform": "x",
+      "post_id": "2062933352307433947",
+      "published": "2026-06-05T16:23:33+00:00",
+      "title": ".@RealPNavarro: A Great Jobs Report Does Not Warrant a Rate Hike https://t.co/1JzTqejsla",
+      "url": "https://x.com/RapidResponse47/status/2062933352307433947"
+    },
+    "x:rapidresponse47:2062945526618730957": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:38.782914+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062945526618730957",
+      "platform": "x",
+      "post_id": "2062945526618730957",
+      "published": "2026-06-05T17:11:55+00:00",
+      "title": ".@POTUS departs for Chippewa Falls, Wisconsin, where he will hold a roundtable discussion ...",
+      "url": "https://x.com/RapidResponse47/status/2062945526618730957"
+    },
+    "x:rapidresponse47:2062946064722763787": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:21:38.782613+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062946064722763787",
+      "platform": "x",
+      "post_id": "2062946064722763787",
+      "published": "2026-06-05T17:14:04+00:00",
+      "title": "Repost of @JDVance: Henry Nowak died the same way a civilization dies: abandoned, handcuff...",
+      "url": "https://x.com/RapidResponse47/status/2062946064722763787"
+    },
+    "x:rapidresponse47:2062951887545004338": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:38.782251+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062951887545004338",
+      "platform": "x",
+      "post_id": "2062951887545004338",
+      "published": "2026-06-05T17:37:12+00:00",
+      "title": ".@AnnaKelly47 on the astounding May jobs report: \"This is a proven economic formula that @...",
+      "url": "https://x.com/RapidResponse47/status/2062951887545004338"
+    },
+    "x:rapidresponse47:2062957543979090022": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:38.781929+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2062957543979090022",
+      "platform": "x",
+      "post_id": "2062957543979090022",
+      "published": "2026-06-05T17:59:41+00:00",
+      "title": "\"I can even see the American flags around the Washington Monument, it's so reflective... T...",
+      "url": "https://x.com/RapidResponse47/status/2062957543979090022"
+    },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
       "content_kind": "post",
@@ -128987,6 +129097,17 @@
       "published": "2026-06-05T15:45:56+00:00",
       "title": "Repost of @DHSgov: Decline is a choice. We will never stop fighting for America. https://t...",
       "url": "https://x.com/SecMullinDHS/status/2062923887529050393"
+    },
+    "x:secmullindhs:2062960172524323296": {
+      "account": "SecMullinDHS",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:21:52.125618+00:00",
+      "path": "X/SecMullinDHS/2026/06/05/2062960172524323296",
+      "platform": "x",
+      "post_id": "2062960172524323296",
+      "published": "2026-06-05T18:10:07+00:00",
+      "title": "This week, we honored some of our @ICEgov law enforcement officers who, amid sniper shots ...",
+      "url": "https://x.com/SecMullinDHS/status/2062960172524323296"
     },
     "x:vp:2000974738076979672": {
       "account": "VP",
@@ -138316,6 +138437,17 @@
       "title": "Repost of @JDVance: Fraudsters stole your tax dollars to buy exotic and luxury cars - but ...",
       "url": "https://x.com/VP/status/2062632638934855765"
     },
+    "x:vp:2062943990438121954": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:22:01.473231+00:00",
+      "path": "X/VP/2026/06/05/2062943990438121954",
+      "platform": "x",
+      "post_id": "2062943990438121954",
+      "published": "2026-06-05T17:05:49+00:00",
+      "title": "Repost of @JDVance: Henry Nowak died the same way a civilization dies: abandoned, handcuff...",
+      "url": "https://x.com/VP/status/2062943990438121954"
+    },
     "x:whitehouse:2049578578270912645": {
       "account": "WhiteHouse",
       "content_kind": "post",
@@ -147445,6 +147577,50 @@
       "published": "2026-06-05T16:01:35+00:00",
       "title": "President Trump is taking historic action to bring down the price of energy &amp; cost of ...",
       "url": "https://x.com/WhiteHouse/status/2062927826710401209"
+    },
+    "x:whitehouse:2062945909344764294": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:22:08.450823+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062945909344764294",
+      "platform": "x",
+      "post_id": "2062945909344764294",
+      "published": "2026-06-05T17:13:27+00:00",
+      "title": "Repost of @RapidResponse47: .@POTUS departs for Chippewa Falls, Wisconsin, where he will h...",
+      "url": "https://x.com/WhiteHouse/status/2062945909344764294"
+    },
+    "x:whitehouse:2062946171048386917": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:22:08.450525+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062946171048386917",
+      "platform": "x",
+      "post_id": "2062946171048386917",
+      "published": "2026-06-05T17:14:29+00:00",
+      "title": "Repost of @DrOzCMS: TrumpRx is free and easy to use for every American \ud83c\uddfa\ud83c\uddf8 Hundreds of pres...",
+      "url": "https://x.com/WhiteHouse/status/2062946171048386917"
+    },
+    "x:whitehouse:2062956030925914435": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-05T18:22:08.450226+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062956030925914435",
+      "platform": "x",
+      "post_id": "2062956030925914435",
+      "published": "2026-06-05T17:53:40+00:00",
+      "title": "Repost of @SecKennedy: Bottom line: EAT REAL FOOD. https://t.co/aTlSWaolS5",
+      "url": "https://x.com/WhiteHouse/status/2062956030925914435"
+    },
+    "x:whitehouse:2062956711103619581": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-05T18:22:08.449925+00:00",
+      "path": "X/WhiteHouse/2026/06/05/2062956711103619581",
+      "platform": "x",
+      "post_id": "2062956711103619581",
+      "published": "2026-06-05T17:56:22+00:00",
+      "title": "Several months in a row SMASHING economists' expectations with more positive momentum to c...",
+      "url": "https://x.com/WhiteHouse/status/2062956711103619581"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
@@ -162669,6 +162845,17 @@
       "published": "2026-03-03T17:31:58+00:00",
       "title": "President Trump Participates in a Bilateral Meeting, Mar. 3, 2026",
       "url": "https://www.youtube.com/watch?v=ocFJL5jRLXM"
+    },
+    "youtube:whitehouse:odNMRF4ADFk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-05T18:22:35.434349+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/05/odNMRF4ADFk",
+      "platform": "youtube",
+      "post_id": "odNMRF4ADFk",
+      "published": "2026-06-05T18:04:55+00:00",
+      "title": "President Trump Gaggles with Press on Air Force One En Route Chippewa Falls, WI, Jun. 5, 2026",
+      "url": "https://www.youtube.com/watch?v=odNMRF4ADFk"
     },
     "youtube:whitehouse:oeJ04vltVh4": {
       "account": "WhiteHouse",
