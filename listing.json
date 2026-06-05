@@ -1,6 +1,483 @@
 {
-  "generatedAt": "2026-06-05T20:27:45.484666+00:00",
+  "generatedAt": "2026-06-05T21:58:34.476934+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:46a8c19b808293ae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.503527+00:00",
+        "datePublished": "2026-06-05T21:56:03+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063016670495444992.mp4",
+            "remotePath": "archive/x/rapidresponse47/ojGOxfmySO9TmlDL.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063016670495444992/vid/avc1/1280x720/ojGOxfmySO9TmlDL.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ojGOxfmySO9TmlDL.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063016670495444992.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ojGOxfmySO9TmlDL.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063017028412178488"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063017028412178488/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063017028412178488/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063017028412178488",
+      "summary": ".@SecRollins: \"When @POTUS came back into office, we inherited an almost $50B agricultural trade deficit... but in just a little over one year, 19 new trade deals have been struck. The markets have opened around the world!\" https://t.co/KEJ9Z8TPEq",
+      "title": ".@SecRollins: \"When @POTUS came back into office, we inherited an almost $50B agricultural..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2c37ad23714e2269",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.503843+00:00",
+        "datePublished": "2026-06-05T21:53:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063015392407175168.mp4",
+            "remotePath": "archive/x/rapidresponse47/hsMQHcoOh_oWFsca.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063015392407175168/vid/avc1/1280x720/hsMQHcoOh_oWFsca.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/hsMQHcoOh_oWFsca.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063015392407175168.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/hsMQHcoOh_oWFsca.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063016360775471596"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063016360775471596/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063016360775471596/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063016360775471596",
+      "summary": ".@POTUS lists some of his administration's wins for farmers at a roundtable on American agriculture in Wisconsin, including expanding exports for meat, poultry, soybeans, biofuels, and dairy:",
+      "title": ".@POTUS lists some of his administration's wins for farmers at a roundtable on American ag..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:7cf1728aab92b452",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:55:26.788383+00:00",
+        "datePublished": "2026-06-05T21:50:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063015496270663680.mp4",
+            "remotePath": "archive/x/dhsgov/b6x-qbJgDi_2Y1KZ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063015496270663680/vid/avc1/1080x1920/b6x-qbJgDi_2Y1KZ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/b6x-qbJgDi_2Y1KZ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063015496270663680.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/b6x-qbJgDi_2Y1KZ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063015598628409740"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2063015598628409740/README.md",
+      "path": "X/DHSgov/2026/06/05/2063015598628409740/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063015598628409740",
+      "summary": "Bye. Bye. Bye.",
+      "title": "Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2173ef040f6b3012",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:55:26.788765+00:00",
+        "datePublished": "2026-06-05T21:49:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063015305333338112.mp4",
+            "remotePath": "archive/x/dhsgov/h2dIV17rcNySr66g.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063015305333338112/vid/avc1/1280x720/h2dIV17rcNySr66g.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/h2dIV17rcNySr66g.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063015305333338112.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/h2dIV17rcNySr66g.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063015358697550208"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2063015358697550208/README.md",
+      "path": "X/DHSgov/2026/06/05/2063015358697550208/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063015358697550208",
+      "summary": "\u201cPresident Trump is the first president in decades to make a heavy investment in our @USCG. He\u2019s put over $24 billion toward a mission to revitalize the Coast Guard for today\u2019s threats and tomorrow\u2019s threats \u2014 and without this campus, we couldn\u2019t make it happen.\u201d @SecMullinDHS",
+      "title": "\u201cPresident Trump is the first president in decades to make a heavy investment in our @USCG..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:84ced12dd7de09f2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.504139+00:00",
+        "datePublished": "2026-06-05T21:49:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063014747482537984.mp4",
+            "remotePath": "archive/x/rapidresponse47/D4kZ_G7hgpK4FCgY.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063014747482537984/vid/avc1/1280x720/D4kZ_G7hgpK4FCgY.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/D4kZ_G7hgpK4FCgY.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063014747482537984.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/D4kZ_G7hgpK4FCgY.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063015294113550652"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063015294113550652/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063015294113550652/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063015294113550652",
+      "summary": "WATCH: Olympic gold medalist speed skater Jordan Stolz gives President Trump one of his Gold Medals at a roundtable in Wisconsin \ud83c\udfc5 https://t.co/9C41HWT5OV",
+      "title": "WATCH: Olympic gold medalist speed skater Jordan Stolz gives President Trump one of his Go..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:448609c3e545c04a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.504451+00:00",
+        "datePublished": "2026-06-05T21:43:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063012895877668866.mp4",
+            "remotePath": "archive/x/rapidresponse47/yXOM2lgZmjCtQWVY.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063012895877668866/vid/avc1/1280x720/yXOM2lgZmjCtQWVY.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/yXOM2lgZmjCtQWVY.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063012895877668866.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/yXOM2lgZmjCtQWVY.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063013763046072771"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063013763046072771/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063013763046072771/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063013763046072771",
+      "summary": ".@POTUS: \"Biden and the Radical Left Dumocrats in Congress crushed farmers with brutal restrictions, crippled you with the worst inflation...by contrast, in my first year back in the Oval Office, average farm incomes for agricultural producers in our country have skyrocketed by m",
+      "title": ".@POTUS: \"Biden and the Radical Left Dumocrats in Congress crushed farmers with brutal res..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:73db962a2ad60041",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.504725+00:00",
+        "datePublished": "2026-06-05T21:39:02+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063011615574720512.mp4",
+            "remotePath": "archive/x/rapidresponse47/5xgWoFRHjSE3c9Ax.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063011615574720512/vid/avc1/1280x720/5xgWoFRHjSE3c9Ax.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/5xgWoFRHjSE3c9Ax.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063011615574720512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/5xgWoFRHjSE3c9Ax.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063012745595785537"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063012745595785537/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063012745595785537/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063012745595785537",
+      "summary": "At a Wisconsin roundtable on supporting American agriculture, @POTUS highlights how key provisions in his signature tax cut help farming communities:",
+      "title": "At a Wisconsin roundtable on supporting American agriculture, @POTUS highlights how key pr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:8f49990d67d3c7ba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:57:27.037884+00:00",
+        "datePublished": "2026-06-05T21:33:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063010889200992256.mp4",
+            "remotePath": "archive/x/whitehouse/8skgGilpPzcOMGjY.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063010889200992256/vid/avc1/1080x1080/8skgGilpPzcOMGjY.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/8skgGilpPzcOMGjY.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063010889200992256.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/8skgGilpPzcOMGjY.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063011405167571402"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063011405167571402/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063011405167571402/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063011405167571402",
+      "summary": "HAPPENING NOW: President Trump delivers remarks on fighting for American farmers in Wisconsin. The Trump administration will never waver in pursuing the BEST for our great American agriculture industry. \ud83d\ude9c\ud83c\uddfa\ud83c\uddf8 https://t.co/ELCzVq9bAR",
+      "title": "HAPPENING NOW:\u00a0President Trump delivers remarks on fighting for American farmers in Wiscon..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:8c05b46896aed2b8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.504979+00:00",
+        "datePublished": "2026-06-05T21:27:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063009606582878208.mp4",
+            "remotePath": "archive/x/rapidresponse47/TPu_TGfBjt8gnSs.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063009606582878208/vid/avc1/1280x720/_TPu_TGfBjt8gnSs.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/TPu_TGfBjt8gnSs.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063009606582878208.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/TPu_TGfBjt8gnSs.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063009812036596041"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063009812036596041/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063009812036596041/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063009812036596041",
+      "summary": "WATCH: @POTUS shows off some results of the historic beautification efforts in Washington, D.C. ahead of America's 250th birthday https://t.co/tw6wvEc7eo",
+      "title": "WATCH: @POTUS shows off some results of the historic beautification efforts in Washington,..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:9adf32f2a4cd5b86",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.505267+00:00",
+        "datePublished": "2026-06-05T21:26:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063008405971718144.mp4",
+            "remotePath": "archive/x/rapidresponse47/2FbEEE5cLJiMCE5M.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063008405971718144/vid/avc1/1280x720/2FbEEE5cLJiMCE5M.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/2FbEEE5cLJiMCE5M.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063008405971718144.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/2FbEEE5cLJiMCE5M.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063009504925499581"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063009504925499581/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063009504925499581/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063009504925499581",
+      "summary": ".@POTUS: \"Wages for workers continue to rise, and for manufacturing workers, wages are up more than 8% since I took office, which is close to a record.\" https://t.co/eUeqhjP3cd",
+      "title": ".@POTUS: \"Wages for workers continue to rise, and for manufacturing workers, wages are up ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:0f54da753eea0c16",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:56:41.505548+00:00",
+        "datePublished": "2026-06-05T21:14:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063006106025078785.mp4",
+            "remotePath": "archive/x/rapidresponse47/85mCI7DJ4bl85ZuQ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063006106025078785/vid/avc1/1280x720/85mCI7DJ4bl85ZuQ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/85mCI7DJ4bl85ZuQ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063006106025078785.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/85mCI7DJ4bl85ZuQ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063006602886529104"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063006602886529104/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063006602886529104/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063006602886529104",
+      "summary": "\"Today, we're celebrating the historic strides for some of the most loyal, hardworking patriots anywhere in the nation,\" says @POTUS in Wisconsin.",
+      "title": "\"Today, we're celebrating the historic strides for some of the most loyal, hardworking pat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:985bc456cae64bef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T21:56:23.556194+00:00",
+        "datePublished": "2026-06-05T20:58:48+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063002622244577560"
+      },
+      "metadataPath": "X/POTUS/2026/06/05/2063002622244577560/README.md",
+      "path": "X/POTUS/2026/06/05/2063002622244577560/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063002622244577560",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Participates in a Roundtable on American Agricultur..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:6c8eae85b4018518",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:57:27.038205+00:00",
+        "datePublished": "2026-06-05T20:55:36+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063001815021392211"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/05/2063001815021392211/README.md",
+      "path": "X/WhiteHouse/2026/06/05/2063001815021392211/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063001815021392211",
+      "summary": "President Trump Participates in a Roundtable on American Agriculture https://t.co/m96Sn822GW",
+      "title": "President Trump Participates in a Roundtable on American Agriculture https://t.co/m96Sn822..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:1aaa84f808116189",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-05T21:55:26.789065+00:00",
+        "datePublished": "2026-06-05T20:46:33+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062999540374863930"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062999540374863930/README.md",
+      "path": "X/DHSgov/2026/06/05/2062999540374863930/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062999540374863930",
+      "summary": "Repost of @USCG:",
+      "title": "Repost of @USCG: LIVE: U.S. Coast Guard Ribbon Cutting Ceremony at TRACEN Birmingham-South..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:cb1e0cd5e1a051d2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-05T21:55:26.789357+00:00",
+        "datePublished": "2026-06-05T20:40:02+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2062997899579900137"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2062997899579900137/README.md",
+      "path": "X/DHSgov/2026/06/05/2062997899579900137/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2062997899579900137",
+      "summary": "WATCH: Secretary Mullin Participates in Ribbon Cutting Ceremony for U.S. Coast Guard\u2019s Newest Training Facility in Birmingham, AL. https://t.co/NE5ZHTkbGU",
+      "title": "WATCH: Secretary Mullin Participates in Ribbon Cutting Ceremony for U.S. Coast Guard\u2019s New..."
+    },
     {
       "category": "X",
       "date": "2026-06-05",

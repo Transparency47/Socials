@@ -1,7 +1,31 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 39
+- Posts: 47
 
+- [21:56 UTC - .@SecRollins: "When @POTUS came back into office, we inherited an almost $50B agricultural...](2063017028412178488/)
+  - Source: https://x.com/RapidResponse47/status/2063017028412178488
+  - .@SecRollins: "When @POTUS came back into office, we inherited an almost $50B agricultural trade deficit... but in just a little over one year, 19 new trade deals have been struck....
+- [21:53 UTC - .@POTUS lists some of his administration's wins for farmers at a roundtable on American ag...](2063016360775471596/)
+  - Source: https://x.com/RapidResponse47/status/2063016360775471596
+  - .@POTUS lists some of his administration's wins for farmers at a roundtable on American agriculture in Wisconsin, including expanding exports for meat, poultry, soybeans, biofuels,...
+- [21:49 UTC - WATCH: Olympic gold medalist speed skater Jordan Stolz gives President Trump one of his Go...](2063015294113550652/)
+  - Source: https://x.com/RapidResponse47/status/2063015294113550652
+  - WATCH: Olympic gold medalist speed skater Jordan Stolz gives President Trump one of his Gold Medals at a roundtable in Wisconsin 🏅 https://t.co/9C41HWT5OV
+- [21:43 UTC - .@POTUS: "Biden and the Radical Left Dumocrats in Congress crushed farmers with brutal res...](2063013763046072771/)
+  - Source: https://x.com/RapidResponse47/status/2063013763046072771
+  - .@POTUS: "Biden and the Radical Left Dumocrats in Congress crushed farmers with brutal restrictions, crippled you with the worst inflation...by contrast, in my first year back in t...
+- [21:39 UTC - At a Wisconsin roundtable on supporting American agriculture, @POTUS highlights how key pr...](2063012745595785537/)
+  - Source: https://x.com/RapidResponse47/status/2063012745595785537
+  - At a Wisconsin roundtable on supporting American agriculture, @POTUS highlights how key provisions in his signature tax cut help farming communities: "We made the small business ta...
+- [21:27 UTC - WATCH: @POTUS shows off some results of the historic beautification efforts in Washington,...](2063009812036596041/)
+  - Source: https://x.com/RapidResponse47/status/2063009812036596041
+  - WATCH: @POTUS shows off some results of the historic beautification efforts in Washington, D.C. ahead of America's 250th birthday https://t.co/tw6wvEc7eo
+- [21:26 UTC - .@POTUS: "Wages for workers continue to rise, and for manufacturing workers, wages are up ...](2063009504925499581/)
+  - Source: https://x.com/RapidResponse47/status/2063009504925499581
+  - .@POTUS: "Wages for workers continue to rise, and for manufacturing workers, wages are up more than 8% since I took office, which is close to a record." https://t.co/eUeqhjP3cd
+- [21:14 UTC - "Today, we're celebrating the historic strides for some of the most loyal, hardworking pat...](2063006602886529104/)
+  - Source: https://x.com/RapidResponse47/status/2063006602886529104
+  - "Today, we're celebrating the historic strides for some of the most loyal, hardworking patriots anywhere in the nation," says @POTUS in Wisconsin. "I’m delighted to report that for...
 - [19:47 UTC - .@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: "The j...](2062984690626081151/)
   - Source: https://x.com/RapidResponse47/status/2062984690626081151
   - .@POTUS arrives in WI where he'll hold a roundtable on supporting U.S. agriculture: "The job numbers were fantastic today...we have factories &amp; plants being built all over our...

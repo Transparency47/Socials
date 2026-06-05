@@ -1,7 +1,19 @@
 # X / DHSgov / 2026-06-05
 
-- Posts: 10
+- Posts: 14
 
+- [21:50 UTC - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl](2063015598628409740/)
+  - Source: https://x.com/DHSgov/status/2063015598628409740
+  - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl
+- [21:49 UTC - “President Trump is the first president in decades to make a heavy investment in our @USCG...](2063015358697550208/)
+  - Source: https://x.com/DHSgov/status/2063015358697550208
+  - “President Trump is the first president in decades to make a heavy investment in our @USCG. He’s put over $24 billion toward a mission to revitalize the Coast Guard for today’s thr...
+- [20:46 UTC - Repost of @USCG: LIVE: U.S. Coast Guard Ribbon Cutting Ceremony at TRACEN Birmingham-South...](2062999540374863930/)
+  - Source: https://x.com/DHSgov/status/2062999540374863930
+  - Repost of @USCG: LIVE: U.S. Coast Guard Ribbon Cutting Ceremony at TRACEN Birmingham-Southern. https://t.co/OYvtKgx5zK
+- [20:40 UTC - WATCH: Secretary Mullin Participates in Ribbon Cutting Ceremony for U.S. Coast Guard’s New...](2062997899579900137/)
+  - Source: https://x.com/DHSgov/status/2062997899579900137
+  - WATCH: Secretary Mullin Participates in Ribbon Cutting Ceremony for U.S. Coast Guard’s Newest Training Facility in Birmingham, AL. https://t.co/NE5ZHTkbGU
 - [20:08 UTC - Our ICE law enforcement officers truly are the best of the best. They put their lives on t...](2062989909577626069/)
   - Source: https://x.com/DHSgov/status/2062989909577626069
   - Our ICE law enforcement officers truly are the best of the best. They put their lives on the line every day to arrest the worst of the worst. If you see an ICE officer, thank them...

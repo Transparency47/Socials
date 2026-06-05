@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-05
 
-- Posts: 19
+- Posts: 21
 
+- [21:33 UTC - HAPPENING NOW: President Trump delivers remarks on fighting for American farmers in Wiscon...](2063011405167571402/)
+  - Source: https://x.com/WhiteHouse/status/2063011405167571402
+  - HAPPENING NOW: President Trump delivers remarks on fighting for American farmers in Wisconsin. The Trump administration will never waver in pursuing the BEST for our great American...
+- [20:55 UTC - President Trump Participates in a Roundtable on American Agriculture https://t.co/m96Sn822...](2063001815021392211/)
+  - Source: https://x.com/WhiteHouse/status/2063001815021392211
+  - President Trump Participates in a Roundtable on American Agriculture https://t.co/m96Sn822GW
 - [19:13 UTC - President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on Ameri...](2062976129271480546/)
   - Source: https://x.com/WhiteHouse/status/2062976129271480546
   - President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on American agriculture! 🐮 🇺🇸 https://t.co/0zKIYeIKrH

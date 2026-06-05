@@ -1,7 +1,10 @@
 # X / POTUS / 2026-06-05
 
-- Posts: 5
+- Posts: 6
 
+- [20:58 UTC - Repost of @WhiteHouse: President Trump Participates in a Roundtable on American Agricultur...](2063002622244577560/)
+  - Source: https://x.com/POTUS/status/2063002622244577560
+  - Repost of @WhiteHouse: President Trump Participates in a Roundtable on American Agriculture https://t.co/m96Sn822GW
 - [19:23 UTC - Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to sp...](2062978523703198087/)
   - Source: https://x.com/POTUS/status/2062978523703198087
   - Repost of @WhiteHouse: President Donald J. Trump heads to Chippewa Falls, Wisconsin, to speak to farmers on American agriculture! 🐮 🇺🇸 https://t.co/0zKIYeIKrH
