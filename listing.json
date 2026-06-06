@@ -1,6 +1,298 @@
 {
-  "generatedAt": "2026-06-06T18:22:42.374880+00:00",
+  "generatedAt": "2026-06-06T19:54:38.573562+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:bd360268f79caa83",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T19:53:07.716950+00:00",
+        "datePublished": "2026-06-06T19:39:25+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063345030048194561.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKJ5X20XIAEmT1O.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJ5X20XIAEmT1O.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKJ5X20XIAEmT1O.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063345030048194561.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKJ5X20XIAEmT1O.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063345034431254769"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063345034431254769/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063345034431254769/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063345034431254769",
+      "summary": "https://t.co/jTDjGvxgkm",
+      "title": "https://t.co/jTDjGvxgkm"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:8a3394cf7b8d868a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T19:52:45.841895+00:00",
+        "datePublished": "2026-06-06T19:35:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063343971015811072.png",
+            "remotePath": "archive/x/icegov/HKJ4aNnXYAAskJx.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJ4aNnXYAAskJx.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJ4aNnXYAAskJx.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063343971015811072.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJ4aNnXYAAskJx.png"
+        ],
+        "platform": "X",
+        "postId": "2063343973490373115"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063343973490373115/README.md",
+      "path": "X/ICEgov/2026/06/06/2063343973490373115/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063343973490373115",
+      "summary": "Johanna Sata Arroyave \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Johanna Sata Arroyave \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Credit card theft \ud83d\udc49Credit card crime \ud83d\udc49Fr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c0495e888f790655",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T19:53:18.046834+00:00",
+        "datePublished": "2026-06-06T19:15:25+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063338991630606684"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/06/2063338991630606684/README.md",
+      "path": "X/SecMullinDHS/2026/06/06/2063338991630606684/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2063338991630606684",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: While ICE law enforcement officers attempted to clear roadblocks anti-I..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c8ab29315369049d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T19:53:18.047109+00:00",
+        "datePublished": "2026-06-06T19:15:17+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063315653931532289.jpg",
+            "remotePath": "archive/x/secmullindhs/HKJep8QXgAEhQ8T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8QXgAEhQ8T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKJep8QXgAEhQ8T.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063315653939924992.jpg",
+            "remotePath": "archive/x/secmullindhs/HKJep8SXkAACwO1.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8SXkAACwO1.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKJep8SXkAACwO1.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063315653835051008.jpg",
+            "remotePath": "archive/x/secmullindhs/HKJep75XUAAlDzL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep75XUAAlDzL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKJep75XUAAlDzL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063315653931532289.jpg",
+          "media/02_image_2063315653939924992.jpg",
+          "media/03_image_2063315653835051008.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKJep8QXgAEhQ8T.jpg",
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKJep8SXkAACwO1.jpg",
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKJep75XUAAlDzL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063338960391463017"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/06/2063338960391463017/README.md",
+      "path": "X/SecMullinDHS/2026/06/06/2063338960391463017/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2063338960391463017",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:f00efc51797d7575",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T19:52:45.842264+00:00",
+        "datePublished": "2026-06-06T19:05:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063336424368119809.png",
+            "remotePath": "archive/x/icegov/HKJxi8KWIAES7CF.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJxi8KWIAES7CF.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJxi8KWIAES7CF.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063336424368119809.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJxi8KWIAES7CF.png"
+        ],
+        "platform": "X",
+        "postId": "2063336426977034508"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063336426977034508/README.md",
+      "path": "X/ICEgov/2026/06/06/2063336426977034508/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063336426977034508",
+      "summary": "Jose Manuel Rivera-Mes, a criminal illegal alien from Guatemala, stabbed Danilo Gonzalez-Flores with a kitchen knife outside a grocery store in Palisades Park, NJ, several years ago. After the stabbing, Rivera-Mes fled to Maryland and his victim died from his injuries.",
+      "title": "Jose Manuel Rivera-Mes, a criminal illegal alien from Guatemala, stabbed Danilo Gonzalez-F..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:7a4b553808cee793",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T19:52:45.842571+00:00",
+        "datePublished": "2026-06-06T18:45:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063315653931532289.jpg",
+            "remotePath": "archive/x/icegov/HKJep8QXgAEhQ8T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8QXgAEhQ8T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJep8QXgAEhQ8T.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063315653939924992.jpg",
+            "remotePath": "archive/x/icegov/HKJep8SXkAACwO1.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8SXkAACwO1.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJep8SXkAACwO1.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063315653835051008.jpg",
+            "remotePath": "archive/x/icegov/HKJep75XUAAlDzL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep75XUAAlDzL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJep75XUAAlDzL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063315653931532289.jpg",
+          "media/02_image_2063315653939924992.jpg",
+          "media/03_image_2063315653835051008.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJep8QXgAEhQ8T.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HKJep8SXkAACwO1.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HKJep75XUAAlDzL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063331556173717935"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063331556173717935/README.md",
+      "path": "X/ICEgov/2026/06/06/2063331556173717935/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063331556173717935",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:e0acb0e43f284a09",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T19:52:45.842854+00:00",
+        "datePublished": "2026-06-06T18:45:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063331388686811161"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063331388686811161/README.md",
+      "path": "X/ICEgov/2026/06/06/2063331388686811161/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063331388686811161",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Play stupid games, win stupid prizes. Threats, assaults, and abuse towa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:2f105ba553108c94",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T19:52:45.843126+00:00",
+        "datePublished": "2026-06-06T18:30:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063327617093193728.png",
+            "remotePath": "archive/x/icegov/HKJpiSgX0AACx5e.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJpiSgX0AACx5e.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJpiSgX0AACx5e.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063327617093193728.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJpiSgX0AACx5e.png"
+        ],
+        "platform": "X",
+        "postId": "2063327619076981162"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063327619076981162/README.md",
+      "path": "X/ICEgov/2026/06/06/2063327619076981162/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063327619076981162",
+      "summary": "Agustin Santos-Paulino \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Agustin Santos-Paulino \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Illegal re-entry \ud83d\udc49Alien present without..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

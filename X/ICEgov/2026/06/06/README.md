@@ -1,7 +1,22 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 13
+- Posts: 18
 
+- [19:35 UTC - Johanna Sata Arroyave 📍IN DELANEY HALL RIGHT NOW 👉Credit card theft 👉Credit card crime 👉Fr...](2063343973490373115/)
+  - Source: https://x.com/ICEgov/status/2063343973490373115
+  - Johanna Sata Arroyave 📍IN DELANEY HALL RIGHT NOW 👉Credit card theft 👉Credit card crime 👉Fraudulent use of a credit card ICE arrested Santa Arroyave upon her release from the jail i...
+- [19:05 UTC - Jose Manuel Rivera-Mes, a criminal illegal alien from Guatemala, stabbed Danilo Gonzalez-F...](2063336426977034508/)
+  - Source: https://x.com/ICEgov/status/2063336426977034508
+  - Jose Manuel Rivera-Mes, a criminal illegal alien from Guatemala, stabbed Danilo Gonzalez-Flores with a kitchen knife outside a grocery store in Palisades Park, NJ, several years ag...
+- [18:45 UTC - Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences....](2063331556173717935/)
+  - Source: https://x.com/ICEgov/status/2063331556173717935
+  - Repost of @DHSgov: RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences. If you lay a finger on a law enforcement officer, you will be arrested. https://t.co/9uoe...
+- [18:45 UTC - Repost of @DHSgov: Play stupid games, win stupid prizes. Threats, assaults, and abuse towa...](2063331388686811161/)
+  - Source: https://x.com/ICEgov/status/2063331388686811161
+  - Repost of @DHSgov: Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforcement officers WILL NOT be tolerated. Our ICE law enforcement officers a...
+- [18:30 UTC - Agustin Santos-Paulino 📍IN DELANEY HALL RIGHT NOW 👉Illegal re-entry 👉Alien present without...](2063327619076981162/)
+  - Source: https://x.com/ICEgov/status/2063327619076981162
+  - Agustin Santos-Paulino 📍IN DELANEY HALL RIGHT NOW 👉Illegal re-entry 👉Alien present without admission or parole 👉Illegal entry Santos was granted Voluntary Return twice (in 2004 &am...
 - [18:19 UTC - Antonio Compos-Morales 📍IN DELANEY HALL RIGHT NOW 👉Fraud conviction 👉Final removal order I...](2063324907862200477/)
   - Source: https://x.com/ICEgov/status/2063324907862200477
   - Antonio Compos-Morales 📍IN DELANEY HALL RIGHT NOW 👉Fraud conviction 👉Final removal order ICE @ERONewark Fugitive Operations officers arrested him in Lakewood, N.J., May 23. https:/...
