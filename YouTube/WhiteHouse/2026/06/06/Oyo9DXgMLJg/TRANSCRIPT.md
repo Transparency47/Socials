@@ -1,0 +1,1509 @@
+<!-- source: https://www.youtube.com/watch?v=Oyo9DXgMLJg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Oyo9DXgMLJg -->
+<!-- date_published: 2026-06-06T00:21:02+00:00 -->
+<!-- date_accessed: 2026-06-06T07:37:52.197561+00:00 -->
+
+# Transcript: President Trump Participates in a Roundtable on American Agriculture
+
+- [00:05.359] Ladies and gentlemen, please welcome the
+- [00:08.000] President of the United States, Donald
+- [00:11.200] J. Trump.
+- [00:13.679] >> An American where at least I know I'm
+- [00:17.440] free. And I won't forget the men who
+- [00:21.439] died, who gave that life to me. And I
+- [00:25.039] gladly stand up next to you and remember
+- [00:30.080] still today.
+- [00:32.000] Cuz there ain't no doubt I love this
+- [00:34.800] land.
+- [00:37.040] God bless the USA.
+- [00:52.079] From the lakes of Minnesota
+- [00:55.360] to the hills of Tennessee,
+- [00:59.039] across the plains of Texas, from sea to
+- [01:03.120] shining sea,
+- [01:05.519] from Detroit down to Houston and New
+- [01:09.439] York to LA,
+- [01:11.920] where there's pride in every American
+- [01:14.799] heart. And it's time we stand and say,
+- [01:21.920] that I'm proud to be an American where
+- [01:25.680] at least I know I'm free. And I won't
+- [01:29.759] forget the men who died, who gave that
+- [01:33.280] life to me. And I gladly stand up next
+- [01:37.680] to you and defend her still today.
+- [01:42.000] Cuz there ain't no doubt I love this
+- [01:44.720] land.
+- [01:46.960] God bless the USA.
+- [01:55.360] And I'm proud to be an American where at
+- [01:59.280] least I know I'm free. And I won't
+- [02:03.520] forget the men who died, who gave that
+- [02:07.119] right to me. And I gladly stand up
+- [02:12.319] next to you and defend her still today.
+- [02:16.959] Cuz there ain't no doubt I love this
+- [02:19.920] land.
+- [02:22.319] God bless
+- [02:24.400] you.
+- [03:00.720] Thank you very much everybody. So
+- [03:08.159] I just did an interview in the most
+- [03:10.159] beautiful barn I've ever seen. Ken, it
+- [03:12.720] was a beauty, but it was raining. And it
+- [03:15.200] was with uh NBC fake news.
+- [03:19.440] And
+- [03:21.120] because it was raining, I got a little
+- [03:23.200] bit angry at them. I was not happy with
+- [03:25.280] them. But we had a good time. I just
+- [03:27.599] want to thank everybody for being here.
+- [03:29.200] We love the farmers. We love everything
+- [03:31.280] about your state. And
+- [03:35.200] and you know, we won your state by a
+- [03:37.280] lot. And we've had great success here in
+- [03:40.239] Wisconsin. and we brought a lot of
+- [03:42.239] business to Wisconsin. We recommend it.
+- [03:44.239] I love the place and hopefully you're
+- [03:46.720] going to be voting Republican because
+- [03:48.640] frankly Republican is uh I call it the
+- [03:51.120] sane way to go. It's the sane way
+- [03:54.239] because what I'm seeing from the
+- [03:55.680] Democrats, they're going to have some
+- [03:57.040] problems. And by the way, if they don't
+- [03:59.120] if they win, this country is finished.
+- [04:01.040] We're in trouble. So, uh I hate to say
+- [04:04.000] that you have no choice, but I don't
+- [04:05.439] think you have much of a choice. These
+- [04:07.120] are some very sick puppies that I'm
+- [04:09.040] looking at that are running for office.
+- [04:10.560] And on the other side, I call them the
+- [04:12.400] Democrats. DUM, you take out the B. A
+- [04:15.599] lot of people don't know dumb has a B.
+- [04:17.280] You take out the B and you change the E.
+- [04:20.000] You put the U and you have a Democrat.
+- [04:22.240] But they are, their policy is just
+- [04:25.120] outstandingly bad. And it's really bad
+- [04:27.840] for the farmer because we were having
+- [04:30.080] record stuff and then we had to put out
+- [04:31.759] a fire. We had to extinguish a nuclear
+- [04:34.960] weapon, a capable nuclear. This was
+- [04:37.600] going to be a very capable country that
+- [04:41.120] was going to have a massive nuclear
+- [04:43.199] presence. And we weren't going to let
+- [04:44.560] that happen. Nobody wanted that to
+- [04:46.080] happen. And we've largely finished that.
+- [04:48.800] You'll see.
+- [04:52.560] And one way or the other, it's finished.
+- [04:54.639] One way. One way or the other, it's
+- [04:57.199] finished. It's either finished with a
+- [04:58.639] piece of paper or finished a more
+- [05:00.479] difficult way. Although you could say a
+- [05:02.639] much easier way. Uh, as you know with
+- [05:05.280] Iran, they have no navy.
+- [05:08.639] 159 ships in four days. Even Ken is
+- [05:12.080] impressed by that. Four days, 159 ships
+- [05:15.520] at the bottom of the sea. Not that we
+- [05:18.080] like that, but that's the way it is. And
+- [05:20.240] the blockade is unbelievable. There's
+- [05:22.240] never been a blockade like that. The
+- [05:23.759] Navy is We have the greatest military
+- [05:26.320] anywhere in the world. There's never
+- [05:27.759] been a military like it.
+- [05:32.800] And
+- [05:34.720] and if you remember when all the heat I
+- [05:36.880] was taking from the Democrats, we'll be
+- [05:39.759] nice. I'll use Democrats at least half
+- [05:41.759] the time, but if you remember the heat
+- [05:44.880] that I had to take to get help for the
+- [05:47.840] farmer and also to get help for the
+- [05:50.000] military because they don't want
+- [05:51.280] anything to do with the military, the
+- [05:52.960] farmer, for the most part, they don't
+- [05:54.880] want anything to do with anything good.
+- [05:57.120] And that's why the midterms are coming
+- [05:59.039] up and I hope you people are really
+- [06:01.120] spiritized because we're at a point
+- [06:03.440] we're going to come out of Iran very
+- [06:05.440] quickly and it's going to be very strong
+- [06:07.039] one way or the other whether it's a
+- [06:08.960] piece of paper or the very tough way.
+- [06:12.160] Okay, the very tough way is maybe the
+- [06:14.639] easier way, but we're going to come out
+- [06:16.720] and your fertilizer prices are going to
+- [06:19.120] go way down just like they were four
+- [06:21.520] months ago. Your fertilizer is down,
+- [06:23.520] your energy is down, your oil, your gas
+- [06:26.240] is all coming way down. And frankly, I
+- [06:29.039] thought it would go much higher than it
+- [06:30.479] did. I thought, frankly, that gasoline
+- [06:32.960] would be much higher than it was. I was
+- [06:34.960] in Iowa, another place I like a lot. And
+- [06:38.000] it was just before we started the
+- [06:40.400] excursion to Iran, and we passed gas
+- [06:43.919] stations. It was a $185
+- [06:46.319] a gallon. And we're going to get them
+- [06:48.160] down to those numbers again very
+- [06:49.840] quickly, but
+- [06:54.319] But as
+- [06:56.240] as they say in the farming business, we
+- [06:58.560] had to take care of business. Look at
+- [07:00.000] this guy over here. I don't know who the
+- [07:01.680] hell he is, but he is one hell of a
+- [07:03.680] specimen. I can
+- [07:07.120] This guy, this is one hell of a physical
+- [07:09.840] specimen. I thought I was big until I
+- [07:12.160] met you, Joe. You know, you're
+- [07:14.400] fantastic. That's what I like. Anyway, I
+- [07:17.759] just want to let you all know that I'm
+- [07:19.680] thrilled to be here at Kuster Farms and
+- [07:22.160] Ken and his family. They're amazing. I
+- [07:24.080] took pictures with them backstage and
+- [07:25.759] got to know him a little bit. They're
+- [07:27.759] really amazing people. They're They
+- [07:29.919] built this country. You all built this
+- [07:31.759] country. Not the complainers, not the
+- [07:33.840] wise guys. You all built this country.
+- [07:36.319] And I just want to
+- [07:42.880] and I just want to just let you know
+- [07:44.800] that Wisconsin for me has been just a
+- [07:47.120] great place. You know, it's known as
+- [07:48.720] difficult. It's difficult. You got to be
+- [07:51.039] good to win. But we won here, as you
+- [07:53.599] know. We won it a lot. And we're trying
+- [07:55.840] to figure out who the few people that
+- [07:57.599] voted against us are. We're looking
+- [07:59.280] we're looking for them right now. But
+- [08:01.440] today we're celebrating the historic
+- [08:03.280] strides for some of the most loyal,
+- [08:06.080] hardworking patriots anywhere in the
+- [08:08.400] nation. And they're really called our
+- [08:10.479] American farmers. And we're with you a
+- [08:12.319] thousand% or I wouldn't be here with
+- [08:14.879] with you like you wouldn't believe. And
+- [08:17.280] you're going to see some very good
+- [08:18.400] things happen over the next 90day
+- [08:20.800] period. I told I told Ken 90 days, watch
+- [08:23.919] what happens. You're going to be better
+- [08:25.520] better than you were four months ago.
+- [08:27.919] And before we begin, I'm delighted to
+- [08:29.759] report that for the third month in a
+- [08:31.919] row, the jobs numbers, I guess you saw
+- [08:34.399] them this morning, they just got
+- [08:36.320] released and they smashed all
+- [08:37.919] expectations by actually three times
+- [08:41.440] with
+- [08:47.120] and this is during a military conflict.
+- [08:49.279] I call it that because it's really not
+- [08:51.519] that much of a war, but it's a military
+- [08:54.480] conflict. It's a practice. But this is
+- [08:58.080] 172,000
+- [08:59.680] jobs were created in May. That's about
+- [09:02.480] four times higher than anticipated. And
+- [09:05.279] experts predicted 30,000 jobs. These are
+- [09:08.160] the strongest job numbers of the entire
+- [09:11.440] administration so far. And that's during
+- [09:13.760] this conflict on top of it. So it's
+- [09:16.640] great. And you know, we have a thing. We
+- [09:18.480] have a problem in this country because
+- [09:20.560] it used to be if you're I'm a little
+- [09:22.240] older than a couple of you. But I don't
+- [09:24.480] feel old. I feel the same as I did 50
+- [09:26.560] years ago. It's crazy, Mr. Senator. We
+- [09:28.800] got a great senator right here, Ron. But
+- [09:31.600] I do feel the same. But but in the old
+- [09:34.720] days, you know, if you had good job
+- [09:36.800] numbers, like great job numbers like
+- [09:38.640] they announced today, the stock market
+- [09:40.880] goes up. Today, everything is crazy. The
+- [09:44.880] whole world is crazy. So when you have
+- [09:46.880] great job numbers, the stock market goes
+- [09:48.880] down because they think interest rates
+- [09:51.040] will go up. And when interest rates go
+- [09:53.200] up, they stop inflation. Well, you know
+- [09:55.600] what else stops inflation? Growth
+- [09:58.160] actually stops inflation. And they ought
+- [10:00.720] to go back to the old system. When we
+- [10:02.880] have good numbers, the markets ought to
+- [10:04.560] go up, not go down. And it would be
+- [10:06.640] that's the way you build greatness. You
+- [10:08.640] build greatness that way. So I think
+- [10:10.880] it's going to We have a great gentleman
+- [10:12.320] coming in, Kevin W. He's going to do a
+- [10:14.320] fantastic job at the Fed. We're getting
+- [10:16.720] rid of too late. But uh we have uh Kevin
+- [10:20.959] is one of the great. So you're going to
+- [10:22.720] see but you're going to see beyond
+- [10:23.920] anything. You're going to see numbers
+- [10:25.279] coming in over the next more than two
+- [10:27.920] and a half. We have two and a half years
+- [10:29.440] plus. Can you believe how time flies,
+- [10:32.000] right? And can you believe the work
+- [10:34.399] we've done? You know, it's sad because
+- [10:38.079] you have speech writers and you have
+- [10:39.760] advisors and you have all these people
+- [10:41.600] and generally you don't like listening
+- [10:43.360] to any of them because if you do, you're
+- [10:44.959] in trouble. But I said, you know, I want
+- [10:47.279] to write about the border and I want to
+- [10:49.839] talk about the border because when I
+- [10:52.240] came here, we had the most unsafe. We
+- [10:54.880] had the worst border maybe anywhere in
+- [10:56.399] the world. There was no border. 25
+- [10:58.640] million people came in. Drug dealers
+- [11:00.399] came in. People from mental institutions
+- [11:03.600] came in. murderers came in. 11,888
+- [11:08.160] murderers, most of whom over 50% of whom
+- [11:12.000] killed, can you believe this? More than
+- [11:14.320] one person. One killed seven people. We
+- [11:17.440] allowed them into our country. We've got
+- [11:19.120] them largely. They're going out and
+- [11:20.800] they're going out fast. We have to fight
+- [11:23.200] crooked judges, crooked administrations,
+- [11:25.600] crooked politicians, but they're going
+- [11:27.920] out fast. But we have the safest border
+- [11:31.200] in our history for the last 12 months.
+- [11:35.120] And this is a hard number to believe,
+- [11:36.480] but I don't give it. It's a number that
+- [11:38.320] is out there. You've heard it. Zero
+- [11:41.279] people have come into our country
+- [11:45.120] through our southern border. Zero.
+- [11:49.760] It's a little hard to believe.
+- [11:53.360] It's a little hard. If they said like 20
+- [11:55.600] people, I would have been, you know, 25
+- [11:57.600] million came in through Sleepy Joe
+- [11:59.839] Biden. So, we had zero people. And these
+- [12:03.120] are done by largely sort of a radical
+- [12:05.519] leading leading left people, the
+- [12:07.839] reports. But it is what it is. And the
+- [12:10.160] good thing is they don't try to come in.
+- [12:11.760] It makes it a lot easier because they
+- [12:13.360] know it's going to be very hard to come
+- [12:15.360] in. Now, we take people in, but they
+- [12:17.360] have to come in legally. We want people
+- [12:18.800] to come in, but they have to come in
+- [12:20.240] legally. But I say, "Let's talk about
+- [12:22.320] the border, sir. Nobody cares about the
+- [12:24.720] border. I said, I won the election on
+- [12:26.959] the border. Let's talk about the Sir,
+- [12:29.279] I'm telling you, nobody cares. Run.
+- [12:32.160] Nobody cares about the border. You fix
+- [12:34.399] the border. I want to brag about it,
+- [12:36.560] sir. They want to hear about other
+- [12:38.720] things like fertilizer and we'll take
+- [12:41.040] care of fertilizer, too. You know, when
+- [12:42.880] I also came in, eggs were like the
+- [12:45.600] highest. And remember this, I inherited
+- [12:48.639] all these high prices. They came in and
+- [12:51.680] they said affordability. They made up
+- [12:54.480] the word because that's the only thing
+- [12:55.760] they're good at. Although I'm good at
+- [12:56.959] making up words, too. They go
+- [12:59.360] affordability.
+- [13:01.040] I was there one day and I said to our
+- [13:03.920] great secretary of agriculture, "What's
+- [13:06.480] with the egg prices?" So on my second
+- [13:08.720] day, I gave a news conference, which is
+- [13:11.040] more news conferences that Biden gave in
+- [13:13.839] like six months. But in my he almost did
+- [13:18.240] he didn't do
+- [13:19.920] Yeah, Sleepy Joe was not heavy into news
+- [13:22.959] conferences. All right. He'd take one
+- [13:25.200] question, he'd go, "Oh, let's see. Let's
+- [13:27.920] see.
+- [13:29.839] Jim Smith from
+- [13:32.959] NBC."
+- [13:35.120] I don't do that. They just start
+- [13:36.560] screaming at me. But so I had a news
+- [13:39.600] conference on my second day and they
+- [13:41.760] said, "WHAT ABOUT EGGS? WHAT ABOUT EGGS?
+- [13:43.440] TELL ME ABOUT EGGS." I SAID, "What's the
+- [13:45.040] story with eggs?" Give me a little hand.
+- [13:47.120] What's with eggs? They said, "What's
+- [13:48.720] happening with eggs?" And I was told,
+- [13:51.839] you know, we have the great Easter egg
+- [13:53.519] hunt at the White House. And I was told
+- [13:56.399] to order plastic eggs. I said, "I'm not
+- [13:58.480] ordering plastic eggs." And I called
+- [14:00.480] this young lady right over here, Brooke
+- [14:02.160] Rollins, Secretary of Agriculture. I
+- [14:04.079] said, "Brooke, get the egg prices down,
+- [14:06.800] please." And she got them down. And by
+- [14:09.760] the way, speaking of Tom Tiffany is one
+- [14:12.079] of the best congressmen
+- [14:14.720] in
+- [14:16.880] our country.
+- [14:20.079] And I was there, I don't know, seven,
+- [14:21.839] eight years ago. Right at the beginning,
+- [14:23.440] I endorsed this guy. I didn't know. I
+- [14:25.120] had no idea. But I liked his last name.
+- [14:27.519] You know why? Because I bought the air
+- [14:29.120] rights many years ago off Tiffany and I
+- [14:30.959] made a lot of money. So I saw Tom
+- [14:32.880] Tiffany and I backed him and he went
+- [14:35.440] like a rocket ship and he won. and
+- [14:36.959] you've kept winning and now he's running
+- [14:38.959] for a thing called governor and you have
+- [14:46.800] >> and you have I don't want to knock him
+- [14:49.120] because he's finished after this but you
+- [14:50.880] have a very sleepy governor too and you
+- [14:53.440] got a very sleepy but I can tell you Tom
+- [14:55.519] Tiffany is running for governor he's a
+- [14:57.839] winner and he's going to do a great job
+- [14:59.519] okay
+- [15:02.079] good luck there
+- [15:05.680] so in a single single month, we added
+- [15:08.240] 7,000 new manufacturing jobs and 17,000
+- [15:11.519] new construction jobs. And we're
+- [15:13.440] building more plants than at any time in
+- [15:15.440] the history of our country. We have $18
+- [15:18.160] trillion coming into the United States.
+- [15:20.880] As an example, the previous
+- [15:22.399] administration in four years, think of
+- [15:25.519] this, had less, much less than one
+- [15:28.399] trillion come in. We have $18 trillion
+- [15:31.680] from countries and people all over the
+- [15:33.600] world in 11 months, not even one year.
+- [15:36.560] So that's some difference.
+- [15:40.160] And I think that's probably why people
+- [15:42.240] are shocked to see the job numbers
+- [15:43.839] because the construction jobs are
+- [15:45.600] through the roof. But when these plants,
+- [15:47.760] car plants and AI plants and all the
+- [15:50.079] different plants that were when they
+- [15:51.759] open up, you know, we're leading China
+- [15:53.839] by a lot. I just got back from China. I
+- [15:55.759] was with President Xi, who I respect,
+- [15:58.079] but we're leading China by a lot in the
+- [16:00.079] AI race, a very important race. And
+- [16:02.480] we're leading everybody now when it
+- [16:04.000] comes to cars. They're coming in from
+- [16:05.839] Germany. They're coming in from Japan.
+- [16:09.120] They're coming in from Canada. Canada's
+- [16:11.199] treats you guys rough. You know, Canada,
+- [16:13.120] they put on big tariffs. We didn't meet
+- [16:15.839] them with tariffs. I took care of them
+- [16:17.440] my first term really strongly, and I am
+- [16:19.759] now. But Canada's been very rough. Do
+- [16:22.079] you find them rough to deal with? Yes.
+- [16:23.920] You're pretty rough to deal with. He's
+- [16:25.600] more of a diplomat than me.
+- [16:28.639] And we are doing well. The previous two
+- [16:31.120] months we were revised upward by nearly
+- [16:34.240] 100,000 jobs. They put the numbers too
+- [16:36.639] low. So actually we had a 100,000 more
+- [16:39.519] jobs than they reported. They were
+- [16:41.600] obviously Democrats, right? Wages for
+- [16:44.480] workers continued to rise and for
+- [16:46.800] manufacturing workers, wages are up more
+- [16:49.600] than 8% since I took office, which is
+- [16:52.480] close to a record. Think of that a blue
+- [16:55.040] collar is doing better than it's ever
+- [16:56.720] done before. And your farmers, if you
+- [16:59.279] remember, we had a bad patch in my first
+- [17:01.680] term where China and other countries
+- [17:04.160] were sort of boycotting the United
+- [17:06.079] States. And I met with the farmers and I
+- [17:09.760] said, "I'm going to get you something
+- [17:11.120] for it because you've been treated very
+- [17:12.720] badly." And I got 28 million 28 billion
+- [17:16.640] dollars for the farmers in the first.
+- [17:18.640] Remember, I just asked Ken whether or
+- [17:20.640] not he got it. He said, "I did." And
+- [17:22.880] we're looking at something also right
+- [17:24.640] now. We're looking at something to take
+- [17:26.240] the place of what's happened because
+- [17:28.079] it's artificial. What happened to you is
+- [17:29.760] artificial with the energy and with the
+- [17:31.919] fertilizer. So, we're looking at
+- [17:33.679] something. But in the first term, I got
+- [17:36.480] the farmers $28 billion. And I'll never
+- [17:39.440] forget, I was in the White House. I had
+- [17:41.039] about 35 farmers along this big,
+- [17:42.960] beautiful table. Not as beautiful as
+- [17:45.280] this table, okay? But this gorgeous,
+- [17:48.720] beautiful White House table. All the
+- [17:50.559] best. And I said, "I'm going to get you
+- [17:53.600] a subsidy." And they looked at me and he
+- [17:56.559] just said the same thing. One of them
+- [17:58.720] looked at me, stood up, said, "Sir, we
+- [18:00.960] don't want subsidy. We just want an even
+- [18:03.200] playing field." I said, "Nobody ever
+- [18:05.200] said that to me. All they want is
+- [18:06.720] money." You understand that? First time.
+- [18:13.200] Nobody ever said that. I've had so many
+- [18:15.200] meetings with different groups,
+- [18:16.559] different industries. If I said, "I'm
+- [18:18.320] going to get you $28 billion." They say,
+- [18:20.400] "Oh, get it as fast." They actually
+- [18:22.960] said, "We don't want it." Now, I got it
+- [18:24.559] for you anyway. I I didn't notice
+- [18:26.559] anybody turning it down, but I got it.
+- [18:28.720] But they said something that no other
+- [18:31.039] group said, "Ron." They said, "We don't
+- [18:33.360] want a subsidy. We just want a just an
+- [18:36.559] even playing field, fair trade." They
+- [18:38.960] just wanted to be treated fairly. And
+- [18:41.200] nobody else has said that but the
+- [18:42.880] farmers. So, we love you. We love you
+- [18:44.640] guys. So, we're building more factories
+- [18:46.880] now than at any time. And we've also had
+- [18:49.760] huge drops. And and and I'll tell you,
+- [18:52.160] this is something that's amazing.
+- [18:54.160] AfricanAmerican unemployment is now
+- [18:57.039] doing better than it's ever done. And I
+- [19:01.360] don't know where that stat came from,
+- [19:02.960] but I'll take it. I don't know where the
+- [19:05.360] hell that stat came, but we'll take it.
+- [19:07.600] And a short time ago, we were a dead
+- [19:09.520] country. We're dead as a doornail. If
+- [19:11.840] you look, go back two years, we were a
+- [19:14.400] laughingstock all over the world. We had
+- [19:16.240] a president that couldn't walk up a
+- [19:17.919] flight of stairs. He couldn't walk down
+- [19:20.559] a flight of stairs either, you know. And
+- [19:23.280] we had everybody, we were a
+- [19:24.720] laughingstock all over the world. And I
+- [19:26.960] was with the king of Saudi Arabia
+- [19:28.480] because I wanted him to invest trillions
+- [19:30.960] of dollars into our country. Look at
+- [19:33.200] that whole situation now, too. It's very
+- [19:35.120] interesting. But he was good. And he
+- [19:37.520] said to me, you know, President, it's
+- [19:39.679] amazing. A year ago, year and a half
+- [19:42.240] ago, we thought you were a dead country.
+- [19:44.400] And now you're the hottest country
+- [19:46.160] anywhere in the world. And we are. We're
+- [19:47.760] the strongest, were the hottest, and
+- [19:50.000] we're the most respected country
+- [19:51.600] anywhere in the world.
+- [19:56.400] So, as I said, the stock market just hit
+- [19:59.440] 73 all-time records in a short period of
+- [20:02.400] time. We've had 73 all-time record
+- [20:05.360] highs. And your 401ks, who has a 401k
+- [20:08.880] here? Let me just say a lot. Your 401ks,
+- [20:12.880] as you know, just hit a record high. So
+- [20:15.280] that's everybody.
+- [20:18.080] And we're just off a very big success in
+- [20:21.120] Washington DC. We had, it doesn't sound
+- [20:24.640] like much, but Washington DC was not
+- [20:28.480] properly managed or kept. We had 22
+- [20:32.320] fountains. None of them worked for the
+- [20:35.360] last 50 years. None of them. They were
+- [20:38.559] graffiti strewn. I did it the
+- [20:40.880] inexpensive way. Why should we have a
+- [20:42.720] screen? Everybody here has good vision.
+- [20:44.799] I want to show you something. Look at
+- [20:47.440] this. I'm going to show you the cheap
+- [20:50.000] way. Okay. We don't want to bring
+- [20:52.159] screens. It cost too much money. Look at
+- [20:54.480] that.
+- [20:56.080] That's before and after. Look at that.
+- [20:59.520] Look at that. Can anybody see that?
+- [21:01.280] That's before.
+- [21:06.240] That's our nation's capital.
+- [21:08.720] That's what it Look at his graffiti all
+- [21:10.480] over it. Filthy, disgusting stone. The
+- [21:12.559] stone was all horrible. And look over
+- [21:14.640] there. That's before and after. Then we
+- [21:17.039] had the reflecting pond. 2,500 ft.
+- [21:21.200] Massive. Longer than a building. We have
+- [21:23.440] we have a stat here that's sort of
+- [21:25.039] great. Can you guys see this? Okay.
+- [21:26.880] Because I'm too cheap to put up a like a
+- [21:28.960] projector.
+- [21:30.480] Look. So that's the fond. If we're
+- [21:34.240] standing up, here's your
+- [21:38.159] Sears Tower, Empire State Building,
+- [21:40.799] World Trade Center. Look, it's double
+- [21:43.280] and triple the size in terms of area. So
+- [21:45.919] it would have cost $400 million, Ron, to
+- [21:50.159] fix. It would have taken four years. And
+- [21:53.039] they were getting ready. Doug Bergam's
+- [21:54.720] done an amazing job. And I said, 'You
+- [21:56.960] know, rather than doing that, they were
+- [21:58.480] going to put stone down. Big stone,
+- [22:00.320] granite, wonderful, but it all leaks
+- [22:02.240] because you have joints. So, being a
+- [22:04.159] very good builder, I said, 'You know
+- [22:06.159] what? I built a lot of swimming pools.
+- [22:08.960] Many, many swimming pools. Every time I
+- [22:10.799] do a development, I do swimming pools. I
+- [22:12.799] know more about swimming pools. I said,
+- [22:15.039] why can't we put the wonderful material
+- [22:18.480] which is thick, pasty, beautiful, like
+- [22:20.960] rubber, but industrial strength? Why
+- [22:23.600] can't we use it? And let's pick the
+- [22:25.600] color blue from the American flag, which
+- [22:27.760] is what we did. And that is the most
+- [22:30.559] beautiful thing that you've ever seen.
+- [22:39.840] And
+- [22:41.520] look at that. I mean, look at that. It
+- [22:43.360] just opened yesterday. Just uh we just
+- [22:45.840] opened it. So, there was going to take
+- [22:48.720] four years, 400 million. It took really
+- [22:52.880] about a month. Okay. It was going to Can
+- [22:55.919] you imagine Washington between Lincoln?
+- [22:58.960] Think of Washington DC between the
+- [23:01.840] Lincoln Memorial and the Washington.
+- [23:05.440] Just think about this. You know that
+- [23:07.280] beautiful spire in honor of the great
+- [23:09.840] George Washington and the beautiful
+- [23:12.080] Lincoln Memorial. So between there
+- [23:15.200] thousands of feet long. It was built in
+- [23:18.000] 1922. And to be honest, it never really
+- [23:21.600] worked. It leaked like a civ because it
+- [23:23.440] was stone and concrete. So I took over
+- [23:26.320] the project. Now Barack Hussein Obama,
+- [23:28.400] have you heard of him? Barack Hussein
+- [23:33.280] Barack Hussein Obama spent and Joe
+- [23:36.880] Biden, Sleepy Joe, they spent a total of
+- [23:39.679] about $150 million trying to fix it.
+- [23:42.880] They never got it opened. It never
+- [23:44.480] worked. It was terrible, disgusting. It
+- [23:46.400] was garbage ridden. And I sent my pool
+- [23:49.039] guy, I said, ' Take a look at it. And he
+- [23:51.440] said, 'Well, sir, we can do it. We'll
+- [23:55.120] get industrial strength. And I used some
+- [23:57.120] guys, not him. I used some guys, but he
+- [23:58.880] gave me some good ideas because he's a
+- [24:00.880] pro. You know, they got very upset when
+- [24:02.880] I sent my pool person. I said, "Who else
+- [24:05.200] am I going to send?" So, I sent him over
+- [24:08.720] and we sprayed it and put down beautiful
+- [24:12.799] like a pool coating. It'll last maybe 50
+- [24:15.840] to 100 years. So here's the thing. 400
+- [24:19.039] million versus like 10 million. Four
+- [24:22.159] years, four years versus a month. Can
+- [24:27.120] you imagine? Can you imagine? And
+- [24:33.039] and the difference is look, here's your
+- [24:36.159] Lincoln Memorial.
+- [24:38.880] You have the Washington Monument and the
+- [24:41.679] Lincoln Memorial. Look at that.
+- [24:43.440] Beautiful. Look at how that reflects. is
+- [24:45.120] like a mirror off beautiful clean water.
+- [24:47.760] They had like garbage. Barack Obama
+- [24:50.480] wanted to save money so he took the
+- [24:53.039] water out of the PTOAC. That didn't work
+- [24:55.520] out too well. A lot of things were
+- [24:57.600] coming out of that river into this. It
+- [24:59.919] wasn't good. So we just think of it. So
+- [25:03.600] like a month of this work, we actually
+- [25:05.760] added to it. We did the sidewalks
+- [25:07.360] because once we did this, we had to do
+- [25:09.200] the rest because it looks so good. But
+- [25:11.360] think of it, 400 million versus like 10
+- [25:14.559] million bucks for a better job. Four
+- [25:18.240] years versus a month for a better job.
+- [25:22.640] We have many things like that. I talk
+- [25:24.400] about that all the time. We do a lot of
+- [25:26.159] things like that. So, we're very proud
+- [25:29.039] of Washington. We had 22 fountains that
+- [25:32.000] didn't work. All of the fountains, not
+- [25:34.240] one fountain in Washington worked. Out
+- [25:36.559] of the 22 fountains, they're all looking
+- [25:38.480] beautiful, just like the one I showed
+- [25:40.559] you. And now they're clean, they're
+- [25:43.600] beautiful, there's no graffiti.
+- [25:45.520] Washington DC is a safe city. It was a
+- [25:47.840] very unsafe city a year and a half ago.
+- [25:51.120] And
+- [25:56.559] a very unsafe city. Your child would go
+- [25:59.679] to see the Jefferson Memorial or the
+- [26:02.320] Washington or the Lincoln or any of them
+- [26:05.279] and would often time not come back. It
+- [26:08.320] was a horrible place. It was horrible
+- [26:10.000] what was happening. And we put our great
+- [26:12.320] military in there and we did a job. We
+- [26:14.640] removed 5,000 people that were career
+- [26:16.880] criminals. 2% of the people, think of
+- [26:19.760] this, 2% of the people, did you know
+- [26:22.320] this, Ron, create 91% of the crime. And
+- [26:25.360] I love that statistic because you can
+- [26:27.279] get rid of 2%. And we took them out. We
+- [26:29.600] brought them back to where they came
+- [26:30.799] from. They came in, many of them came in
+- [26:32.960] through Sleepy Joe's uh open border
+- [26:35.760] policy. One of the craziest policies
+- [26:37.600] I've ever heard. So we uh saved a lot of
+- [26:40.480] money. And you go to Washington DC, new
+- [26:43.679] grass. People say they don't even
+- [26:45.520] recognize it. We did that all in a
+- [26:48.240] little bit more than a year. And uh even
+- [26:51.200] I said, I mean, it's amazing. But maybe
+- [26:53.600] the biggest thing is we don't have it's
+- [26:55.520] considered now a very very safe city and
+- [26:59.120] you can go there and you're going to be
+- [27:00.799] 100% perfect. We had the restaurants
+- [27:03.120] were all closing and now they're opening
+- [27:05.360] up. They don't have enough restaurants
+- [27:06.799] anymore. It's like it's a beautiful
+- [27:08.480] thing to see. Every day my
+- [27:10.720] administration is fighting to protect
+- [27:12.559] and defend the jobs and livelihood of
+- [27:14.480] our great farmers. I love our farmers,
+- [27:16.960] our growers, agricultural producers,
+- [27:19.200] ranchers from coast to coast. Under the
+- [27:22.559] last administration, Biden and the
+- [27:24.559] radical left Democrats in Congress
+- [27:27.679] crushed farmers with brutal
+- [27:29.200] restrictions, crippled you with the
+- [27:31.279] worst inflation. So the Biden
+- [27:33.919] administration had the worst inflation
+- [27:36.559] in the history of our country. They say
+- [27:38.720] 49 years, 48 years, but whether you say
+- [27:42.400] 48 or or forever, I think it was
+- [27:44.960] forever. We had the worst inflation
+- [27:47.039] we've ever had. And uh think of that and
+- [27:50.159] failed to negotiate even a single new
+- [27:53.039] trade deal for our farmers. They didn't
+- [27:55.360] negotiate one new trade deal for our
+- [27:58.960] farmers. I just made a great deal. I
+- [28:00.640] came back from President Xi and he's
+- [28:02.320] buying billions and billions of dollars
+- [28:04.880] worth of soybeans and other things. and
+- [28:06.799] you're seeing that's starting to kick
+- [28:08.159] in.
+- [28:10.880] Thank you.
+- [28:14.320] So, by contrast, in my first year back
+- [28:16.799] in the Oval Office, average farm incomes
+- [28:19.600] for agricultural producers in our
+- [28:21.919] country have skyrocketed by more than
+- [28:24.960] 20%. Now, it's been over the last couple
+- [28:28.559] of months since we went in for the
+- [28:30.080] military operation. You've seen
+- [28:32.240] fertilizer go up and you've seen energy
+- [28:34.240] go up. It's going to come down to to
+- [28:36.159] where it was or lower. You'll be very
+- [28:38.640] happy. Otherwise, Ken is going to call
+- [28:40.240] me. He's going to ball me out and I'll
+- [28:41.600] say, "Sorry. Sorry, Ken. I was only
+- [28:43.600] kidding, right?"
+- [28:44.880] >> All right. He knows I'm going to do it.
+- [28:47.279] >> With Republicans in Congress like Tom
+- [28:49.760] Tiffany, like Derek Van Orton, where is
+- [28:51.760] Derek? Where is Derek?
+- [28:54.320] >> This guy is he fights like hell. He's in
+- [28:57.360] a little bit of a community that tends
+- [28:59.120] to be on slightly a little bit more than
+- [29:01.840] we wanted left, but he loves them all.
+- [29:04.240] and he's very popular and he's going to
+- [29:06.320] win by a lot. You're doing well. I
+- [29:07.840] understand you're really doing well. So,
+- [29:09.679] thank you, D.
+- [29:14.960] And he's a real fighter and he's a great
+- [29:16.640] guy. We've been friends right from all
+- [29:18.159] of us. We've been friends right from the
+- [29:19.840] beginning. So, we passed the largest tax
+- [29:22.399] cuts in American history with a great
+- [29:25.039] big beautiful bill. We made the small
+- [29:27.440] business tax deduction permanent
+- [29:29.840] benefiting 98% of the farmers and
+- [29:32.159] ranchers. We gave you 100% expensing and
+- [29:35.360] bonus depreciation. So when you buy a
+- [29:38.000] new tractor or anything else you buy,
+- [29:39.679] you're allowed to deduct it. You do you
+- [29:41.279] buy any new tractors? Got a lot of nice
+- [29:43.279] tractors back. Got a lot of tractors
+- [29:45.360] back there, by the way. But uh so you
+- [29:47.760] can deduct it the full cost of the
+- [29:50.240] tractors. One year, any equipment, one
+- [29:52.559] year, all you can deduct it all in the
+- [29:55.360] first year instead of over a period of
+- [29:57.360] many, many years. And we also saved the
+- [30:00.159] $2 million. Thank you very much. That's
+- [30:03.039] a big deal. Actually, we also saved the
+- [30:05.360] $2 million American farms from, think of
+- [30:07.919] that, from extinction by ending what we
+- [30:10.559] did is we got rid of the estate tax or
+- [30:13.679] the death tax. So, if you love your
+- [30:16.080] child,
+- [30:23.440] if you love your child, if you don't
+- [30:25.440] love your child, then don't worry about
+- [30:26.880] it. Doesn't make any Does anybody not
+- [30:29.120] love your child in the audience? No, but
+- [30:31.360] if you have a farm like this, someday
+- [30:33.039] it's going to come the time, right? And
+- [30:35.039] I met your boys and he loves his boys. I
+- [30:37.360] know that because he started clapping
+- [30:39.120] for that last statement about no death
+- [30:41.440] tax. And he was clapping. He didn't clap
+- [30:43.520] for anything else. That's the only That
+- [30:44.799] means you love your boys. So boys, I
+- [30:46.799] just found out your father loves you.
+- [30:48.720] But think of it, we were and I was
+- [30:50.880] seeing this in my first term. We we did
+- [30:52.720] it my first term. We did it now. We
+- [30:54.559] extended it out. So you have no estate
+- [30:56.720] tax or no, we call it the death tax on a
+- [30:58.799] farm or a small business. Now, I saw it
+- [31:02.880] myself. You have a way of life that
+- [31:06.080] sometimes you're land rich and cash
+- [31:08.159] poor. Sometimes you're lots of different
+- [31:10.080] conditions. But people that are on farms
+- [31:13.039] love being on farms. You wouldn't trade
+- [31:15.600] my life. You wouldn't want my life.
+- [31:17.360] Believe me, you don't want it. Your life
+- [31:19.279] is much better than my life. I will tell
+- [31:21.919] you, your ear wasn't little pierced over
+- [31:23.919] here. You didn't get pierced. You have a
+- [31:25.840] nice, safe, beautiful life. But I've
+- [31:28.399] seen it with farmers maybe more than any
+- [31:30.240] industry. People want to have their
+- [31:31.919] farm. It's a way of life and they love
+- [31:34.240] they love the the life on the farm. And
+- [31:37.840] the family would leave, the father would
+- [31:40.159] die, the mother would die, leave it to
+- [31:41.919] the kids. The kids would have a big
+- [31:44.000] estate tax problem or a death tax
+- [31:45.919] problem. They'd go to the bank. They'd
+- [31:47.360] borrow a lot of money, more money than
+- [31:49.519] they should
+- [31:53.120] farm. In many cases, I have to say they
+- [31:56.080] do terrible things.
+- [31:57.600] commit suicide.
+- [32:50.960] these things that we have done and Tom
+- [32:53.679] Tiffany I have to say you were so
+- [32:55.840] helpful and Derek what the job you've
+- [32:58.159] done with me and uh helping to get it
+- [33:00.559] passed and let me tell you that man is a
+- [33:02.720] senator he loves the farmers and he
+- [33:04.480] loves your state and uh he doesn't care
+- [33:07.760] about anything else. He wants to make
+- [33:09.120] sure you get treated fairly. And uh
+- [33:11.600] there's no better advocate. You have no
+- [33:13.360] better advocate than Ron Ron Johnson.
+- [33:16.159] So, thank you, Mr. S.
+- [33:25.039] And he'll be a hell of a governor. I
+- [33:26.640] know the guy. He'll drive you crazy.
+- [33:28.399] He'll be calling me, "President, you got
+- [33:30.880] to send more money to Wisconsin. Leave
+- [33:32.799] me alone." All right. He'll do well,
+- [33:35.279] too. Thank you. As president, I fought
+- [33:38.159] for the American farmer like no one has
+- [33:40.159] ever fought before. Nobody's like, I'm
+- [33:41.840] up here today. I don't need this. I got
+- [33:43.440] elected. I don't have What the hell do I
+- [33:45.600] have to be here for? I got elected. I'm
+- [33:48.080] here because I like the farmer. I mean,
+- [33:49.600] when you think about it, I guess there's
+- [33:51.440] a lot of truth to that, right? I could
+- [33:53.679] be home right now in the beautiful White
+- [33:55.360] House enjoying watching somebody else on
+- [33:57.760] television talking. On day one, I
+- [34:00.480] terminated the insane electrical
+- [34:02.640] electric vehicle mandate. They wanted
+- [34:04.399] your tractors to be all electric. They
+- [34:06.640] wanted your cars to be all electric. And
+- [34:09.359] you know, look, Elon, he had a bad
+- [34:10.960] moment, but now he's a friend of mine
+- [34:12.399] again. He had a very bad moment. He's
+- [34:15.040] 80% brilliant and 20% think he's got
+- [34:17.760] little bad moments. But
+- [34:20.320] >> I love electric cars, but you know what?
+- [34:22.159] Not everybody wants them. And not
+- [34:23.599] everybody in terms of distance and lots
+- [34:25.919] of other things. And I think they're
+- [34:27.679] great, but I also want to see all
+- [34:29.200] gasoline. I want to see the the hybrids,
+- [34:31.599] which are great. I want you to have
+- [34:33.679] anything. And they wanted your tractors,
+- [34:35.359] you know. They wanted the tractors to be
+- [34:37.119] turned into all electric. And that
+- [34:40.079] didn't even sound good to me, right?
+- [34:41.760] That didn't even sound good to me. And
+- [34:43.679] it wouldn't have worked very long. You
+- [34:45.200] would have had to stop every 15 minutes
+- [34:46.879] to get a new charge. How would it be if
+- [34:49.200] you're driving your tractor along?
+- [34:50.879] Everything's wonderful. And then Ken, he
+- [34:53.040] wants to work. He goes, "Oh man, I got
+- [34:56.000] to go get a new charge every 10 every 10
+- [34:59.520] minutes." That's not too good, right?
+- [35:02.720] you'd rather be able to operate it for
+- [35:04.160] about four days before you fill it up,
+- [35:06.000] right? So anyway, so we solved that
+- [35:08.400] problem. We ended the electric mandate.
+- [35:10.480] Okay. And on day one
+- [35:18.000] and one of the other reasons this would
+- [35:20.320] have gutted the uh ethanol industry. Do
+- [35:23.920] we have fans here of the ethanol
+- [35:25.680] industry?
+- [35:27.119] >> Okay. because if they got in, they will
+- [35:29.839] end the ethanol industry in one swoop.
+- [35:32.079] So, you better remember that. And we
+- [35:34.160] eliminated all unnecessary restrictions
+- [35:36.480] on sales of E15. And I've made it clear
+- [35:40.000] that we're going to go E15 all year
+- [35:42.000] round. And I think it's something that
+- [35:44.400] you want, right? What do you like that?
+- [35:46.400] Are you happy with that? Are you happy?
+- [35:48.960] >> Absolutely.
+- [35:49.760] >> So, they put a lot of these guys, that's
+- [35:51.200] all they talked about. E15, they were
+- [35:52.960] driving me crazy. They called me, can we
+- [35:55.520] talk about E15? How about something
+- [35:57.200] else? Right. Tom Tiffany would call. Can
+- [35:59.440] we talk about E15?
+- [36:01.599] But anyway, but you got your wish,
+- [36:03.680] fellas. Okay. And we massively expanded
+- [36:06.560] crop insurance and issued a historic 12
+- [36:09.359] billion in farm relief. So it's 12
+- [36:11.440] billion, but it was 28 billion in my
+- [36:13.839] first. So we're looking at that right
+- [36:15.280] now about increasing it. And to stop
+- [36:17.760] major equipment manufacturers from
+- [36:19.839] restricting you from fixing your own
+- [36:21.680] farm equipment, we gave you the right to
+- [36:24.000] repair. Do you like it? The right to
+- [36:25.920] repair.
+- [36:31.200] It was a little strange. I mean, some of
+- [36:33.040] you are better mechanics than the people
+- [36:34.640] at John Deere. And of We love John
+- [36:36.400] Deere, Mr. May of John Deere. But, uh,
+- [36:39.119] they wanted to, you know, your tractor's
+- [36:41.119] broken down. I'll bet you can fix a
+- [36:43.200] tractor as well as about anybody else,
+- [36:45.119] right? I can look at this guy. I
+- [36:46.960] guarantee uh if you were mandated, let's
+- [36:50.160] say you have a tractor, it's broken and
+- [36:51.599] you know exactly how to fix it. You
+- [36:53.520] wouldn't be too happy about being
+- [36:55.440] mandated to bring the tractor back to
+- [36:57.520] John Deere or wherever you got it,
+- [36:59.040] right? You'd like to fix it.
+- [37:00.079] >> Not so much.
+- [37:01.119] >> I mean, they actually have the Democrats
+- [37:03.839] a restriction that if you get caught
+- [37:06.240] fixing your tractor, they bring you to
+- [37:08.960] jail. Do you know that? Do you know
+- [37:11.680] that? I pardoned a man last week who was
+- [37:14.880] sentenced to seven years in jail because
+- [37:17.599] he got caught fixing his car or his
+- [37:20.560] truck. I said, I like to always say,
+- [37:23.200] what did he do? Sir, he was fixing his
+- [37:25.839] truck. I said, how long is he getting?
+- [37:28.800] Seven years. I said, say it again. It's
+- [37:32.320] the first time I've ever heard like two
+- [37:33.839] weeks ago, I gave him a pardon because
+- [37:36.480] he had to go to jail because he was
+- [37:38.000] fixing his tractor or his truck.
+- [37:45.200] So I promise Ken if you ever get caught
+- [37:47.599] fixing your tractor or truck, I will
+- [37:49.359] give you a pardon. Okay. No, but these
+- [37:51.680] are the crazy Democrats. That's what
+- [37:53.280] they want. I terminated the ridiculous
+- [37:55.760] so-called diesel exhaust fluid
+- [37:57.920] requirement. Does that mean anything to
+- [37:59.520] you big? Right.
+- [38:03.680] >> Joe is happy. So I want to keep him
+- [38:05.680] happy just in case he gets violent. He's
+- [38:08.640] happy. And I repealed the Biden era EPA
+- [38:12.720] lit. Just a crazy waters of the United
+- [38:15.599] States rule. It sounds so nice. It's the
+- [38:18.640] worst rule that you've ever had. Waters
+- [38:21.200] of the How could it be nicer? What a
+- [38:22.960] beautiful title. It was like taking your
+- [38:25.920] land away from you. It was horrible. And
+- [38:28.560] I totally repealed it. And there are
+- [38:30.240] some people, you know, when I did that
+- [38:32.240] repeal, I had a lot of farmers and
+- [38:34.480] contractors, builders, house builders in
+- [38:37.200] my office. And I I announced the repeal
+- [38:40.079] in front of them. I signed it. And these
+- [38:42.320] are tough guys. In fact, they look like
+- [38:44.000] him, just smaller. And who isn't
+- [38:47.200] smaller? I think everybody's smaller.
+- [38:49.520] But no, they look like they look like
+- [38:51.200] Joe. And they were cry. Half of them
+- [38:53.520] were crying. You remember that? Half of
+- [38:55.520] them were crying. They said, "Why are
+- [38:58.000] you crying? What's the big deal?" He
+- [38:59.280] said, "You gave us back our life." They
+- [39:01.680] actually had their life taken away. They
+- [39:03.200] couldn't touch their land. If they even
+- [39:05.599] touched it, they were in violation. they
+- [39:07.520] they also would go to jail. That was the
+- [39:09.920] crazy environmental nonsense that we're
+- [39:11.839] all putting up with, which has largely
+- [39:14.000] ended. Perhaps most importantly, with
+- [39:16.400] our historic trade deals, I've
+- [39:18.000] dramatically expanded exports of
+- [39:20.000] American meat, poultry, soybeans,
+- [39:22.240] bofuels, and of course, Wisconsin dairy.
+- [39:25.440] The best. Right.
+- [39:26.400] >> Right.
+- [39:30.480] >> And
+- [39:32.880] and I just see that dairy exports have
+- [39:35.280] surged only 1.2 2 billion dollars under
+- [39:38.560] our leadership and just and this is with
+- [39:41.920] a conflict going on. Remember what I
+- [39:44.480] said, Ken, when this conflict ends,
+- [39:47.520] you're going to see things that you've
+- [39:48.800] never seen before because we are ready
+- [39:50.720] to rock. We've never been, we've never
+- [39:52.960] had this kind of investment coming into
+- [39:54.800] our country. Nobody else has either.
+- [39:56.720] Nobody has ever had anywhere near, not
+- [39:59.599] even near, including China. Nobody's had
+- [40:01.680] this kind of investment coming in to a
+- [40:03.920] country. So increasing 41% to Japan.
+- [40:07.599] You've increased your sales. 41% to
+- [40:10.480] Japan, 48% to the Middle East, 61% to
+- [40:14.480] European Union, 63% to South Asia, and
+- [40:19.040] 85%
+- [40:20.720] to Australia. So you're doing pretty
+- [40:24.640] well. You're going to see it and you're
+- [40:25.839] going to see it a lot better in about
+- [40:27.119] three months from now. I also signed
+- [40:32.960] something that you may or may not like.
+- [40:34.720] I don't know. I sounded good to me. It
+- [40:37.040] didn't sound very bad to me, but people
+- [40:39.040] love it. I also signed the Whole Milk
+- [40:42.480] for Healthy Kids Act. Do you know what
+- [40:44.160] that means?
+- [40:52.960] >> That was uh that was another one. I had
+- [40:55.040] a big uh signing at the White House. We
+- [40:57.359] had some people that have been fighting
+- [40:58.640] for that for years. I said, I called
+- [41:01.520] Ron. I said, "Run, what's the to fight
+- [41:03.119] for?" I mean, it just sounds good and
+- [41:05.359] it's just better. It's healthy. I like
+- [41:07.280] it. I drank it. I don't know. It gets
+- [41:09.680] harder to get it now. We have it so
+- [41:11.359] that, you know, it's totally opened up
+- [41:12.960] now for the kids and it's great for
+- [41:14.720] anybody. And now we're working with
+- [41:16.720] Congress to quickly pass a new farm
+- [41:18.640] bill. We're very well into. We got some
+- [41:20.960] great approvals, the hardest approvals.
+- [41:22.800] And I think we're very well on our way
+- [41:24.720] to getting the farm bill finished and
+- [41:26.319] approved. And just to finish up, with
+- [41:28.720] the help of the farmers like those here
+- [41:31.040] today, we're also helping bring down
+- [41:32.880] grocery prices for hardworking Americans
+- [41:36.000] and they're coming down very rapidly.
+- [41:37.680] Remember, I inherited these prices. I
+- [41:40.720] didn't start. My prices were great. They
+- [41:43.359] rigged the election. When I turn, the
+- [41:45.760] election was totally rigged. It was a
+- [41:47.440] rigged ele just like they're rigging the
+- [41:49.359] election right now. It looks like in
+- [41:50.960] California. Can you imagine? It's four
+- [41:53.599] days and they still aren't even close to
+- [41:57.119] telling you who won. You know why?
+- [41:58.880] Because they're rigging the election.
+- [42:00.400] That's why. Four days.
+- [42:05.599] You know, in Spain, they had an ele. I'm
+- [42:08.160] not a big fan of Spain to be honest with
+- [42:09.760] you. It's gone very far left. But they
+- [42:12.240] had an election. All the votes were in
+- [42:14.960] similar size to the state of California.
+- [42:18.079] A little larger actually. And every vote
+- [42:20.560] was in by 10 o'clock in the evening. It
+- [42:22.400] counted. You You're gonna be waiting
+- [42:24.960] weeks to get these votes. It's corrupt.
+- [42:28.960] Somebody said it's incompetent. I said,
+- [42:30.720] "No, just the opposite. It's
+- [42:33.119] unbelievably competent if you happen to
+- [42:35.280] be a Democrat politician." Because with
+- [42:38.319] their policies, the only way they can
+- [42:39.920] get elected is to cheat. And when you
+- [42:42.560] look at an election, not even relatively
+- [42:45.200] a big election for one state, for one
+- [42:48.079] city, for Los Angeles, they're nowhere
+- [42:50.480] close to counting the votes. But you
+- [42:52.560] look at what's happening. It's getting
+- [42:54.319] tighter and tighter and tighter. And the
+- [42:57.200] people that were supposed to win, bad
+- [42:59.760] things are happening. It's a crooked
+- [43:01.680] state. We have crooked third world
+- [43:03.760] elections in a lot of our states. And we
+- [43:05.920] should pass our Save America Act.
+- [43:10.400] Amazing.
+- [43:24.800] And that'll that'll really stop it, too.
+- [43:27.119] That'll stop it. You know, that's where
+- [43:28.640] you have voter ID. It's where you have
+- [43:32.160] birth of, you know, your citizenship.
+- [43:34.000] You have to prove your citizenship. I
+- [43:35.680] think that sounds good. And uh also, you
+- [43:38.640] know, I added a couple in there. Also,
+- [43:40.160] the the ballots, the voting, the mail-in
+- [43:42.400] ballots so crooked. They send millions
+- [43:45.359] of ballots out all over the place. If
+- [43:47.520] you're a Democrat, sometimes you get six
+- [43:49.520] or seven. If you're a Republican, you
+- [43:51.680] have to call up, "Where are my ballots?"
+- [43:53.680] It's such a crooked deal. We're third
+- [43:55.520] world country. But I added two things.
+- [43:58.079] No men playing in women's sports.
+- [44:06.960] And
+- [44:08.640] this is like best of no transgender
+- [44:12.800] brutalization surgery on your child on
+- [44:15.920] your children.
+- [44:19.200] So we added them.
+- [44:22.960] So we inherited very high costs and
+- [44:24.960] we're getting them down. They're coming
+- [44:26.240] down very rapidly. And when fuel comes
+- [44:28.160] down, they're really going to come down.
+- [44:30.000] And I just want to say it's an honor to
+- [44:32.160] be here. Uh we have Senator Ron Johnson.
+- [44:35.200] We have Congressman Tom Tiffany. We have
+- [44:37.280] Congressman Derek Van Ororton. We have
+- [44:39.520] Hall of Fame offensive lineman Joe T.
+- [44:42.319] Oh, that's Look at the size of this guy.
+- [44:45.040] Good boy. Oh, boy. So, you're a Hall of
+- [44:47.680] Fame.
+- [44:49.359] Did anybody get by you?
+- [44:50.960] >> No.
+- [44:51.760] >> No.
+- [44:53.599] He's a good He's a good-looking man.
+- [44:56.160] That's great, Joe. It's great to know
+- [44:57.760] you. Really good. Great career, too. I
+- [44:59.440] know who you are. former president of
+- [45:01.440] Lion and Cougall Brewing Company. Jake
+- [45:04.880] Linen Cougall.
+- [45:07.760] Thank you, Jake.
+- [45:13.200] The owner here of Kuster Farms and he's
+- [45:15.440] a great guy. I think I can almost call
+- [45:16.880] him a friend. We had a great time back
+- [45:18.400] there and a wonderful family. Ken, thank
+- [45:21.040] you very much.
+- [45:28.400] and a fantastic dairy farmer, Jamie Witz
+- [45:32.560] Pollock. Where is Jamie?
+- [45:35.920] Jamie. Hi, Jamie. Thank you. And
+- [45:39.359] finally, two-time gold medal winner in
+- [45:41.359] speed skating in this year's Winter
+- [45:43.520] Olympics, Jordan Souls. Where the hell
+- [45:46.000] is Whoa.
+- [45:49.040] Whoa,
+- [45:51.680] that's pretty good. Oh, stand up.
+- [45:56.079] Stand up.
+- [45:59.760] Yeah.
+- [46:03.599] USA.
+- [46:05.920] USA. USA. USA. USA.
+- [46:11.359] USA. USA.
+- [46:21.280] I'm keeping it.
+- [46:24.880] >> I'm keeping
+- [46:25.599] >> I'm keeping it, Jordan. I'm not giving
+- [46:27.280] it back. I'm a very good guy for keeping
+- [46:29.359] gold. I like gold. I'm going to I'm
+- [46:32.000] never giving this back. Congratulations.
+- [46:34.480] I forgot to touch his leg. I didn't want
+- [46:36.480] to do that. But I I can tell you one
+- [46:39.040] thing. His leg is like a rock. That's f
+- [46:41.520] two gold medals. Wow. That's big stuff.
+- [46:43.680] Thank you. It's an honor. And speaking
+- [46:45.839] for my other athlete up here, right?
+- [46:47.760] That's pretty good, right?
+- [46:49.680] >> And you go through big competition with
+- [46:51.520] a lot of great athletes, right? Are you
+- [46:53.520] going to be doing it again, another
+- [46:55.040] Olympics?
+- [46:56.160] >> I plan to be doing it until 2030. As
+- [46:58.160] long as I can until Salt Lake City and
+- [47:00.240] 2034.
+- [47:01.119] >> Well, that'll be on home soil.
+- [47:02.880] >> We're going to be watching. Okay. You
+- [47:04.720] could do it again.
+- [47:08.960] >> Right.
+- [47:10.960] So,
+- [47:12.800] if uh we'll go in order if I can and
+- [47:15.119] we'll start with Brook Rollins and go to
+- [47:17.040] Ron Johnson and Tom Tiffany and Derek
+- [47:19.920] and Joe Thomas. We'd love to have you
+- [47:21.599] say a few words because you can tell us
+- [47:23.200] about real tough life and it's tough in
+- [47:26.160] those pits, right? Pretty nasty people
+- [47:28.000] in there. You meet some large nasty
+- [47:30.240] people, but you can handle it. And Jake,
+- [47:32.640] we're gonna ask you to say a few words
+- [47:34.480] if you would. and Ken and uh we'll go
+- [47:37.440] pretty quickly because I have to get
+- [47:38.960] back to fighting a war in Iran. There's
+- [47:42.480] a there's a hell of a speaker list. We
+- [47:45.119] might be here all night. Yeah. If we
+- [47:47.680] can, fellas, I got to get back to a
+- [47:49.760] place called Washington and protect you.
+- [47:51.920] Okay. So, if you go very quickly, we
+- [47:55.040] don't need your life story other than I
+- [47:56.800] like the Olympic guy and I like this guy
+- [47:58.640] right over here.
+- [48:01.200] And Jordan Stalls would like to have you
+- [48:03.599] say a couple of words, too. Okay. Hey
+- [48:05.440] Jordan, why don't you start? Go ahead.
+- [48:07.920] >> Well, first I want to thank you to all
+- [48:09.280] the farmers who are here and uh I don't
+- [48:11.920] think people really understand how much
+- [48:14.000] you guys make a difference in the
+- [48:15.200] country. I mean, you guys are the
+- [48:16.079] backbone of the nation and for me myself
+- [48:18.800] personally, I try and eat as clean as
+- [48:20.560] possible and uh you know, a lot of
+- [48:22.880] steak, a lot of dairy and uh you know,
+- [48:25.280] you guys are the backbone of Wisconsin.
+- [48:26.720] So, I just want to say thank you to uh
+- [48:28.240] all the farmers and everybody who can
+- [48:30.240] make it here today and of course to the
+- [48:31.599] president.
+- [48:32.960] >> Thank you.
+- [48:40.240] That's a winner. Tough to win like that.
+- [48:42.480] It's a very tough when you're dealing
+- [48:44.000] with fractions of a second. That's a
+- [48:46.160] tough That's a tough thing to do.
+- [48:48.079] Congratulations, Secretary, if you would
+- [48:50.160] go quickly. Thank you.
+- [48:51.520] >> Very quickly. How about a big thank you
+- [48:54.000] to God for the rain and the farmers and
+- [48:57.520] for President Donald J. Trump.
+- [49:07.599] President Trump mentioned that when uh
+- [49:09.440] he came back into office, we inherited
+- [49:11.359] an almost $50 billion agricultural trade
+- [49:15.040] deficit. Meaning under Sleepy Joe Biden,
+- [49:17.680] not one new trade deal was struck and we
+- [49:20.240] lost $50 billion dollar of market access
+- [49:23.359] around the world for you, our great
+- [49:25.599] farmers. But in just a little over one
+- [49:28.319] year, 19 new trade deals have been
+- [49:31.760] struck. The markets have opened around
+- [49:34.640] the world. We are going to break every
+- [49:37.200] record for dairy, for tree nuts, for
+- [49:39.920] corn, for ethanol as we move the
+- [49:42.800] American farmers product, the best in
+- [49:45.280] the world, back out to the rest of the
+- [49:47.839] world while at the same time inheriting
+- [49:50.640] inputs that had never been so high in
+- [49:53.040] the history of our country. Whether that
+- [49:55.040] was fuel, fertilizer, labor, interest
+- [49:58.640] rates, seed, one after the other. And
+- [50:01.440] those numbers all were coming down
+- [50:03.599] significantly and as the president
+- [50:05.359] promised will soon come down very soon
+- [50:08.720] again. Sir, there is no better American
+- [50:12.319] than the most American of all Americans,
+- [50:15.040] and that is our great American farmer.
+- [50:18.079] God bless you. Thank you so much, sir.
+- [50:24.880] Ron Johnson, please.
+- [50:27.040] >> Mr. President, welcome to Wisconsin
+- [50:29.359] again. You you certainly have paid a lot
+- [50:31.920] of attention to our state and we truly
+- [50:33.760] appreciate it. Um, like you, I met with
+- [50:37.280] these great farmers backstage and and
+- [50:40.319] and you you nailed it. They love
+- [50:43.040] farming. Uh, this right now is a third
+- [50:45.599] generation farm. Hopefully pass on to
+- [50:47.520] fourth. But they they face numerous
+- [50:50.079] challenges. But what I thought was very
+- [50:51.760] common in all the comments speaking to
+- [50:53.200] me is they realize that you are going to
+- [50:56.079] fight for them. You have turned the
+- [50:58.240] Republican party into the party of the
+- [51:01.359] working men and men and women of this
+- [51:03.680] country who have made this country great
+- [51:05.359] and who will continue to make it great.
+- [51:06.960] And they recognize that. So they they
+- [51:08.880] know the big messes the Democrats left
+- [51:10.800] for you. They realize you don't turn
+- [51:13.040] those messes around and fix them right
+- [51:15.200] away, but they know you are absolutely
+- [51:17.200] dedicated to it and they love you for
+- [51:19.040] it. So, God bless you.
+- [51:20.480] >> Thank you.
+- [51:27.119] >> So, your next governor, hopefully your
+- [51:29.680] next governor, Tom Tiffany, please.
+- [51:36.240] >> Mr. President, where we sit here today,
+- [51:38.559] I grew up about uh 30 miles from here on
+- [51:41.680] a dairy farm milking cows with my
+- [51:43.680] brothers and sisters. I want to thank
+- [51:45.839] you for signing that bill, whole milk
+- [51:48.000] for healthy kids. There is no reason
+- [51:49.839] kids can't have whole milk in our
+- [51:51.440] schools. Thank you very much for that.
+- [51:56.720] And I also want to thank you and I want
+- [51:58.960] to thank the Secretary of Agriculture
+- [52:00.800] because you've stood up for forestry. We
+- [52:03.040] are now once again managing our forests
+- [52:06.000] here in America that have been left in
+- [52:08.640] decline for three decades. You are doing
+- [52:11.520] good things on that front. And the final
+- [52:13.920] thing that I want to say to you, that
+- [52:15.680] gentleman to your right was the impetus
+- [52:18.640] six years ago when I came into the
+- [52:20.559] Congress of the United States, showing
+- [52:23.280] what a disaster it was to convert our
+- [52:26.720] beautiful, productive farmland in
+- [52:29.200] Wisconsin and across America into
+- [52:31.920] intermittent sources of power like wind
+- [52:33.920] and solar. He was the impetus behind me
+- [52:37.520] talking to you about that. Remember July
+- [52:39.520] 2nd last year when we had that meeting
+- [52:41.760] in the White House? This is what we
+- [52:43.920] talked about and it has led to higher
+- [52:47.040] utility rates and it has led to the
+- [52:49.359] destruction of our farmland. We're not
+- [52:51.440] going to allow that to happen here in
+- [52:53.040] the state of Wisconsin.
+- [53:00.720] >> He's right about that. He's right about
+- [53:03.119] that. Derek, please.
+- [53:04.240] >> Mr. Mr. President, uh yesterday we got
+- [53:06.079] uh to spend about an hour and a half in
+- [53:07.440] the Oval Office and you announced the
+- [53:09.520] $50 million that you are sending to the
+- [53:12.559] state of Wisconsin for clean, beautiful
+- [53:15.440] coal.
+- [53:17.359] Thank you for that,
+- [53:20.559] Mr. President. You signed a $50 billion
+- [53:24.160] rural healthcare infrastructure bill. Of
+- [53:26.720] that, over $200 million is coming to the
+- [53:30.160] state of Wisconsin to make sure that we
+- [53:32.640] have health care in our rural areas.
+- [53:35.280] Thank you for that, sir.
+- [53:40.160] You signed Whole milk for healthy kids
+- [53:42.319] into law, sir. You just reopened every
+- [53:44.800] single domestic market in our schools,
+- [53:47.280] and that is amazing for the maha
+- [53:49.200] movement, for our kids, and for our
+- [53:51.040] dairy farmers. Thank you for that, sir.
+- [53:53.760] >> Thank you.
+- [53:54.960] Last thing,
+- [53:57.599] E15, we were bugging you. And this is
+- [54:01.040] the thing about the president, you don't
+- [54:02.640] know. You call him, he answers the phone
+- [54:05.040] and he understands these issues inside
+- [54:07.599] and out. So, and he was sort of joking
+- [54:09.200] about us talking about E15, sir. You
+- [54:10.800] took that on board hard. The only reason
+- [54:12.800] that E15 year round got through the
+- [54:15.599] Congress is because of Donald J. Trump
+- [54:17.599] and that did so much for our rocropper.
+- [54:19.839] Thank you very much and welcome back to
+- [54:22.240] your second home.
+- [54:30.079] So Joe, great great football player. I
+- [54:32.960] would tell one of the one of the truly
+- [54:34.319] great Hall of Famer. Thank you.
+- [54:36.960] >> Thanks, Mr. President. Uh Joe Thomas,
+- [54:39.520] Hall of Fame Farms, Muskade, Wisconsin.
+- [54:41.440] You should come visit. It's beautiful.
+- [54:43.119] Uh, I got to pump Secretary Rollins's
+- [54:45.359] tires a little bit for the small
+- [54:46.880] processors action plan because as a
+- [54:49.920] farm-to-table beef producer like myself,
+- [54:52.160] we see one of the biggest bottlenecks in
+- [54:54.000] our country is the lack of small packing
+- [54:56.400] and processing plants. For people like
+- [54:58.400] me that are trying to raise farm-totable
+- [55:00.240] beef, Wagyu and Angus, and be able to
+- [55:02.400] feed our community. and she's doing
+- [55:04.559] great work with that new mission to be
+- [55:07.520] able to help us be able to feed our
+- [55:09.520] communities and not have to rely on
+- [55:11.359] trying to get into the big four packers
+- [55:13.280] which is al often impossible and leads
+- [55:16.319] to higher costs for the customer and
+- [55:18.559] less money and revenue for the farmer
+- [55:20.319] and the producer. So thank you very much
+- [55:22.319] Mr. President and thank you Secretary
+- [55:24.400] Rollins for all the work you're doing
+- [55:25.520] for us small beef producers on
+- [55:28.160] Wisconsin.
+- [55:30.160] So,
+- [55:32.240] so Joe,
+- [55:34.400] he played a long time in the NFL. He's a
+- [55:36.640] Hall of Famer. Who is the greatest
+- [55:38.640] quarterback you've ever seen?
+- [55:41.760] >> Oh, that's a tough one. Is anybody
+- [55:43.520] listening here? Because uh Brady and
+- [55:45.520] Manning were pretty good. And I I'd have
+- [55:47.280] a hard time picking between either one
+- [55:49.359] of those guys.
+- [55:50.160] >> And who is the greatest running back
+- [55:51.760] you've ever seen?
+- [55:53.359] >> I never got to see him in person, but
+- [55:54.880] Jim Brown or Barry Sanders are my two.
+- [55:58.000] >> Okay, good. for football fans, you know,
+- [55:59.839] got to keep it. That's good. Thank you
+- [56:01.599] very much. Uh, please, Jake. Thank you
+- [56:05.200] very much,
+- [56:06.960] Mr. Mr. President, thank you very much
+- [56:09.359] for coming to Wisconsin. As we all said,
+- [56:12.160] I want to just say without the American
+- [56:15.040] farmers, we as a company would not be
+- [56:19.040] able to brew beer. In fact, out of all
+- [56:21.599] the thousands of breweries and across
+- [56:24.000] America, you supply the most important
+- [56:27.520] ingredients here in the USA, barley,
+- [56:32.480] malt, wheat, and we use some corn. But
+- [56:36.160] thank you all and really appreciate uh
+- [56:39.440] the time, Mr. President. Thank you much.
+- [56:42.160] >> Thank you. Thank you.
+- [56:48.000] Ken, please.
+- [56:52.720] >> First off, M
+- [56:57.839] first off, Mr. President, it's an honor
+- [56:59.680] and a blessing to have you here. We are
+- [57:02.400] uh
+- [57:04.400] there isn't a in the
+- [57:07.359] sound on the roof is a blessing. We
+- [57:10.319] American farmers uh risk a lot and count
+- [57:13.200] on God's blessing. And our forefathers
+- [57:17.280] in this country understood that. That's
+- [57:18.880] what makes us great is God's blessing.
+- [57:21.839] And I I thank you for being who you are.
+- [57:26.640] The integrity that you hold, doing what
+- [57:29.119] you say you're going to do. You make the
+- [57:31.760] right decisions for America. They aren't
+- [57:33.839] popular. Thank you.
+- [57:36.160] And we as farmers have lost, as
+- [57:40.160] Secretary R has talked, a tremendous
+- [57:42.640] amount of our trade. And that's all we
+- [57:45.520] need is uh we can compete with anybody
+- [57:47.839] in the world. We need we need fair
+- [57:50.640] trade.
+- [57:51.359] >> Yep. We lost a lot during that last
+- [57:54.079] administration. We're bringing it back.
+- [57:56.559] We're bringing it back.
+- [58:00.319] >> Jamie, please.
+- [58:03.920] Thank you.
+- [58:06.160] Thank you, Mr. President. So, I want to
+- [58:09.119] say as a dairy farmer and a mom,
+- [58:14.480] I don't know why he's doing that.
+- [58:16.720] >> Let's go a little bit further back.
+- [58:19.280] >> As a dairy farmer and a mom, I see how
+- [58:22.000] important it is for these policies put
+- [58:24.319] in place, not only for the families that
+- [58:26.400] are growing the food, but for the people
+- [58:28.799] who are consuming it every day. I was so
+- [58:32.079] excited to witness a signing of the
+- [58:34.079] Whole Milk Healthy Kids Act. I didn't
+- [58:37.440] even know what to think because in
+- [58:39.040] reality it was common sense to me why we
+- [58:41.920] don't have those options for our
+- [58:43.200] children's in the schools. Whole milk
+- [58:45.520] provides essential nutrients that our
+- [58:47.359] kids need for bone growth, muscle
+- [58:50.079] growth, and brain development. So, I was
+- [58:53.119] really excited to be part of that. And
+- [58:55.040] as our dad always said, drink milk, it
+- [58:58.160] does a body good. that still stands true
+- [59:00.799] to this day. So, thank you, President
+- [59:03.280] Trump and Senator Rollins.
+- [59:06.079] >> Thank you.
+- [59:13.599] And Steve,
+- [59:16.319] first of all, thank you for coming to
+- [59:19.599] Chiple Falls, Wisconsin, and hearing us
+- [59:22.240] out here. Really appreciate that. And as
+- [59:25.440] I sit here and represent uh the farmers
+- [59:28.240] of this state and the farmers of
+- [59:29.839] America, I think we've all experienced
+- [59:32.079] some tough times here in the last four
+- [59:33.680] or five years. And and listening to what
+- [59:37.359] you guys are saying, I'm very hopeful
+- [59:39.599] for some better times coming. And you
+- [59:42.480] know, some of the stuff that we see and
+- [59:44.400] talk about that that really affects us
+- [59:46.880] is the monopolization of the the the
+- [59:50.000] inputs. You know, there's at this point
+- [59:52.559] there's four seed and chemical companies
+- [59:54.559] in the country that that control 78% of
+- [59:57.760] that. Three fertilizers
+- [01:00:00.720] control 90% of the market and four beef
+- [01:00:04.160] companies
+- [01:00:06.160] control 85% of the beef market. That
+- [01:00:10.079] makes it really tough for us when um
+- [01:00:13.440] when things are good. You know, our our
+- [01:00:15.440] our inputs just rise with the commodity
+- [01:00:18.160] prices. So, we'd like some help on that.
+- [01:00:20.880] On another note, uh the big beautiful
+- [01:00:23.280] bill is a real win for us and we really
+- [01:00:26.000] appreciate what you've done with that.
+- [01:00:28.000] It's lowered our tax rates. It's it's
+- [01:00:32.559] uh
+- [01:00:35.440] given us the ability to pass these farms
+- [01:00:37.760] on to to the next generation. Um you
+- [01:00:41.280] strengthen the crop insurance. Um, you
+- [01:00:44.799] know, I I think that that all that stuff
+- [01:00:48.319] and another thing that I want to mention
+- [01:00:49.920] is the border deal. We we feel really
+- [01:00:52.319] blessed to have the the control you put
+- [01:00:54.960] in place on the border. Um, and other
+- [01:00:58.640] than that, I think you've done a great
+- [01:01:00.000] job. I'd like to add one more thing.
+- [01:01:02.400] We're in the pipeline construction
+- [01:01:04.160] business and I was sharing with
+- [01:01:07.440] Secretary Rollins there that you know we
+- [01:01:09.760] were a 8,000 person company under your
+- [01:01:13.520] first administration and we went down to
+- [01:01:16.160] 12 to,500 people now and it's just
+- [01:01:20.240] starting its way back up and we're in
+- [01:01:22.079] the middle of uh negotiations on a big
+- [01:01:24.720] project in Alaska called Glenn Farn that
+- [01:01:28.160] I think you're very aware of. Um, and
+- [01:01:30.880] we're in the final stretches of that.
+- [01:01:32.640] So, I know that's not farm related, but
+- [01:01:34.720] if there's any help we could get out of
+- [01:01:36.319] you guys for for that, uh, I think
+- [01:01:39.359] that's a real big piece for our energy
+- [01:01:42.480] security of this country and it's all I
+- [01:01:46.160] have. Thank you.
+- [01:01:47.520] >> We'll take we'll take care of it.
+- [01:01:51.839] >> You all right? Anybody else?
+- [01:01:56.880] >> Would you like to say something?
+- [01:02:02.240] Uh
+- [01:02:03.760] thank you. Thank you very much for like
+- [01:02:06.400] he said the one big beautiful bill act
+- [01:02:08.400] that was those tax credits the the uh a
+- [01:02:12.400] lot of the stuff that supports the
+- [01:02:14.480] American agriculture through the um
+- [01:02:17.280] trade side as well. Um, we've got um
+- [01:02:21.920] fair trade has been a challenge in
+- [01:02:24.319] America lately and we need to get what
+- [01:02:26.960] we deserve for our products and uh I I
+- [01:02:30.480] thank you for putting in the effort and
+- [01:02:32.480] doing the work and getting you know we'd
+- [01:02:34.240] rather have fair trade than than the
+- [01:02:36.000] subsidies like uh previously mentioned
+- [01:02:39.119] E15 some of that stuff's great energy
+- [01:02:41.599] independence um on our farm we actually
+- [01:02:43.839] have a co-igtor where we take food waste
+- [01:02:47.200] and uh the commoner and make methane.
+- [01:02:50.720] And I think um some of that can also
+- [01:02:54.640] help increase local um energy
+- [01:02:58.720] independence and uh keep some of our
+- [01:03:02.480] food that we all work so hard to produce
+- [01:03:04.799] from going in the landfills. So, thank
+- [01:03:07.920] you. Thank you very much. And thank you
+- [01:03:09.440] for being frugal with our tax dollars on
+- [01:03:11.440] repairing Washington.
+- [01:03:12.720] >> That's right. Thank you.
+- [01:03:21.359] So, I just want to thank everybody. This
+- [01:03:23.280] is great. You're amazing people. You
+- [01:03:25.440] built this country. You built the
+- [01:03:27.200] country. We have all the complainers,
+- [01:03:28.880] all the people, they talk, talk, talk.
+- [01:03:31.280] They don't do anything. You're the ones
+- [01:03:32.640] that made America great. And we're
+- [01:03:35.440] making it greater than ever before. We
+- [01:03:37.280] have make America great again, but we're
+- [01:03:39.359] now making it greater than ever before.
+- [01:03:41.119] So, I just want to thank you all. It's
+- [01:03:42.559] an honor to be with you. We're
+- [01:03:44.319] straightening out a little unfinished
+- [01:03:46.000] business in Iran and a couple of other
+- [01:03:47.920] places. Tremendous success that we had
+- [01:03:50.720] in Venezuela, as you know, and we're
+- [01:03:52.319] doing amazing oil business there right
+- [01:03:55.039] now, and it's been incredible. But I
+- [01:03:57.280] just want to thank everybody for being
+- [01:03:58.799] here special. And I want to thank you uh
+- [01:04:01.200] really for your support. We won in a
+- [01:04:03.599] landslide. And uh I just want to thank
+- [01:04:06.240] you for your support. Thank you all. And
+- [01:04:07.839] Ken, thank you very much.
+- [01:04:35.680] Young man, there's no need to feel down.
+- [01:04:38.720] And I said, "Young man, pick yourself
+- [01:04:41.680] off the ground." I said, "Young man, cuz
+- [01:04:44.960] you're in a new town, there's no need to
+- [01:04:48.480] be unhappy, young man. There's a place
+- [01:04:52.960] you can go." I said, "Young man, when
+- [01:04:56.319] you're short on your stay there, and I'm
+- [01:05:00.400] sure you will find many ways to have a
+- [01:05:05.119] good time.
+- [01:05:08.079] >> It's fun to stay at the YMCA."
+- [01:05:11.920] >> It's fun to stay at the YMCA.
+- [01:05:16.880] >> They have everything fundamental joy.
+- [01:05:20.720] You can hang out with all the boys.

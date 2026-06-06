@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-06T04:39:33.821747+00:00",
+  "generatedAt": "2026-06-06T07:38:36.776705+00:00",
   "records": [
     {
       "category": "X",
@@ -591,6 +591,29 @@
       "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700314213235270",
       "summary": null,
       "title": "Truth Social post 116700314213235270"
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-06",
+      "id": "socials:d23dd5b45efd4af1",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-06T07:37:52.197561+00:00",
+        "datePublished": "2026-06-06T00:21:02+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "Oyo9DXgMLJg"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/06/Oyo9DXgMLJg/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/06/Oyo9DXgMLJg/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=Oyo9DXgMLJg",
+      "summary": "- [00:05.359] Ladies and gentlemen, please welcome the - [00:08.000] President of the United States, Donald - [00:11.200] J. Trump. - [00:13.679] >> An American where at least I know I'm - [00:17.440] free. And I won't forget the men who - [00:21.439] died, who gave that life to ",
+      "title": "President Trump Participates in a Roundtable on American Agriculture"
     },
     {
       "category": "X",
