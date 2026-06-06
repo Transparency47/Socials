@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-06
 
-- Posts: 9
+- Posts: 10
 
+- [22:34 UTC - Repost of @FBI: Learn how the FBI is using drones and partnerships with local law enforcem...](2063389084719145144/)
+  - Source: https://x.com/FBIDirectorKash/status/2063389084719145144
+  - Repost of @FBI: Learn how the FBI is using drones and partnerships with local law enforcement to keep @FIFAWorldCup events safe. https://t.co/v9Ep9UHobR
 - [20:47 UTC - June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of N...](2063362229467066628/)
   - Source: https://x.com/FBIDirectorKash/status/2063362229467066628
   - June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of Normandy during World War II - securing the blessing of freedom for generations of American...

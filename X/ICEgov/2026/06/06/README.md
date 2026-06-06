@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 22
+- Posts: 24
 
+- [22:35 UTC - Louis Gaetan Elysee 📍IN DELANEY HALL RIGHT NOW 👉Police obstruction 👉Resisting arrest 👉Alie...](2063389278311251976/)
+  - Source: https://x.com/ICEgov/status/2063389278311251976
+  - Louis Gaetan Elysee 📍IN DELANEY HALL RIGHT NOW 👉Police obstruction 👉Resisting arrest 👉Alien present without admission 👉Inadmissible alien 👉Immigrant without an immigrant visa https...
+- [22:05 UTC - Luke David Hanna, a U.S. citizen and Ypsilanti, Mich., resident, began a 15-year prison se...](2063381720385077652/)
+  - Source: https://x.com/ICEgov/status/2063381720385077652
+  - Luke David Hanna, a U.S. citizen and Ypsilanti, Mich., resident, began a 15-year prison sentence March 27 after an ICE @HSIDetroit-led investigation revealed that he solicited sexu...
 - [21:35 UTC - Leonardo Larico Flores 📍IN DELANEY HALL RIGHT NOW 👉Simple assault 👉Threatening 👉Illegal en...](2063374172005216557/)
   - Source: https://x.com/ICEgov/status/2063374172005216557
   - Leonardo Larico Flores 📍IN DELANEY HALL RIGHT NOW 👉Simple assault 👉Threatening 👉Illegal entry https://t.co/dVaVXfuJEf

@@ -1,6 +1,152 @@
 {
-  "generatedAt": "2026-06-06T22:03:40.792489+00:00",
+  "generatedAt": "2026-06-06T23:20:33.493093+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:37d5762f0d426a87",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T23:16:31.662495+00:00",
+        "datePublished": "2026-06-06T22:35:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063389276348235776.png",
+            "remotePath": "archive/x/icegov/HKKhnVIWQAAV4aP.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKhnVIWQAAV4aP.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKKhnVIWQAAV4aP.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063389276348235776.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKKhnVIWQAAV4aP.png"
+        ],
+        "platform": "X",
+        "postId": "2063389278311251976"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063389278311251976/README.md",
+      "path": "X/ICEgov/2026/06/06/2063389278311251976/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063389278311251976",
+      "summary": "Louis Gaetan Elysee \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Louis Gaetan Elysee \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Police obstruction \ud83d\udc49Resisting arrest \ud83d\udc49Alie..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:ee72dda3379ce286",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T23:16:25.243196+00:00",
+        "datePublished": "2026-06-06T22:34:28+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063389084719145144"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063389084719145144/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063389084719145144/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063389084719145144",
+      "summary": "Repost of @FBI:",
+      "title": "Repost of @FBI: Learn how the FBI is using drones and partnerships with local law enforcem..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:3f913573aeb09d10",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T23:17:13.689236+00:00",
+        "datePublished": "2026-06-06T22:30:05+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063375822661070848.jpg",
+            "remotePath": "archive/x/whitehouse/HKKVYOPXsAA9xYz.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKVYOPXsAA9xYz.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKVYOPXsAA9xYz.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063375863626797056.jpg",
+            "remotePath": "archive/x/whitehouse/HKKVam2XEAA90vv.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKVam2XEAA90vv.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKVam2XEAA90vv.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063375942244864000.jpg",
+            "remotePath": "archive/x/whitehouse/HKKVfLuXkAAjXxV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKVfLuXkAAjXxV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKVfLuXkAAjXxV.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063375822661070848.jpg",
+          "media/02_image_2063375863626797056.jpg",
+          "media/03_image_2063375942244864000.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKVYOPXsAA9xYz.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKVam2XEAA90vv.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKVfLuXkAAjXxV.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063387980400603194"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063387980400603194/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063387980400603194/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063387980400603194",
+      "summary": "Repost of @thejointstaff:",
+      "title": "Repost of @thejointstaff: Chairman of the Joint Chiefs of Staff Gen. Dan Caine stood along..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:44df7aaf98664e6c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T23:16:31.663026+00:00",
+        "datePublished": "2026-06-06T22:05:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063381717914734592.jpg",
+            "remotePath": "archive/x/icegov/HKKavXxX0AAId5I.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKavXxX0AAId5I.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKKavXxX0AAId5I.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063381717914734592.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKKavXxX0AAId5I.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063381720385077652"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063381720385077652/README.md",
+      "path": "X/ICEgov/2026/06/06/2063381720385077652/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063381720385077652",
+      "summary": "Luke David Hanna, a U.S. citizen and Ypsilanti, Mich., resident, began a 15-year prison sentence March 27 after an ICE @HSIDetroit-led investigation revealed that he solicited sexually explicit videos from a child.",
+      "title": "Luke David Hanna, a U.S. citizen and Ypsilanti, Mich., resident, began a 15-year prison se..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 16
+- Posts: 17
 
+- [22:30 UTC - Repost of @thejointstaff: Chairman of the Joint Chiefs of Staff Gen. Dan Caine stood along...](2063387980400603194/)
+  - Source: https://x.com/WhiteHouse/status/2063387980400603194
+  - Repost of @thejointstaff: Chairman of the Joint Chiefs of Staff Gen. Dan Caine stood alongside veterans, service members, and Allies today at the Normandy American Cemetery, honori...
 - [21:48 UTC - Repost of @Freedom250: 🇺🇸 America Is Back. Join us on the National Mall as we officially l...](2063377508712538479/)
   - Source: https://x.com/WhiteHouse/status/2063377508712538479
   - Repost of @Freedom250: 🇺🇸 America Is Back. Join us on the National Mall as we officially launch the Great American State Fair and kick off America’s 250th birthday celebration. Fea...
