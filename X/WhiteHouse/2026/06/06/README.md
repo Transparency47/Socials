@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 4
+- Posts: 5
 
+- [11:11 UTC - Repost of @DOWResponse: .@SECWAR “To the veterans who are here today—who served in France ...](2063217314389017086/)
+  - Source: https://x.com/WhiteHouse/status/2063217314389017086
+  - Repost of @DOWResponse: .@SECWAR “To the veterans who are here today—who served in France and around the globe: Gentlemen, we love you. We owe you a debt of gratitude.” https://t.c...
 - [01:35 UTC - Repost of @AndrewHGiuliani: 🇺🇸 Thanks to President Trump’s leadership, American veterans a...](2063072179927794026/)
   - Source: https://x.com/WhiteHouse/status/2063072179927794026
   - Repost of @AndrewHGiuliani: 🇺🇸 Thanks to President Trump’s leadership, American veterans and first responders will receive 4547 @FIFAWorldCup tickets including 250 for each @USMNT...

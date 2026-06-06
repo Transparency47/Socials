@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-06T09:52:52.310367+00:00",
+  "generatedAt": "2026-06-06T11:21:34.061825+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c6e3df90e48c9b4d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T11:20:32.610136+00:00",
+        "datePublished": "2026-06-06T11:11:55+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063206637536501760.mp4",
+            "remotePath": "archive/x/whitehouse/CycKuoOZqzCrh2HX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063206637536501760/vid/avc1/1080x566/CycKuoOZqzCrh2HX.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/CycKuoOZqzCrh2HX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063206637536501760.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/CycKuoOZqzCrh2HX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063217314389017086"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063217314389017086/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063217314389017086/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063217314389017086",
+      "summary": "Repost of @DOWResponse:",
+      "title": "Repost of @DOWResponse: .@SECWAR \u201cTo the veterans who are here today\u2014who served in France ..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",
