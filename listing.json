@@ -1,6 +1,242 @@
 {
-  "generatedAt": "2026-06-06T15:56:21.173562+00:00",
+  "generatedAt": "2026-06-06T17:07:38.152289+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:b82546428aa4e8d7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T17:04:24.654481+00:00",
+        "datePublished": "2026-06-06T17:04:01+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063300334236147712.jpg",
+            "remotePath": "archive/x/whitehouse/HKJQuN8XIAA5ILV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJQuN8XIAA5ILV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN8XIAA5ILV.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063300334227709952.jpg",
+            "remotePath": "archive/x/whitehouse/HKJQuN6WYAAn59d.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJQuN6WYAAn59d.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN6WYAAn59d.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063300334227783680.jpg",
+            "remotePath": "archive/x/whitehouse/HKJQuN6XgAA66TW.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJQuN6XgAA66TW.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN6XgAA66TW.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2063300334248693760.jpg",
+            "remotePath": "archive/x/whitehouse/HKJQuN_WkAA-uS1.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJQuN_WkAA-uS1.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN_WkAA-uS1.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063300334236147712.jpg",
+          "media/02_image_2063300334227709952.jpg",
+          "media/03_image_2063300334227783680.jpg",
+          "media/04_image_2063300334248693760.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN8XIAA5ILV.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN6WYAAn59d.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN6XgAA66TW.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKJQuN_WkAA-uS1.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063305925184688397"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063305925184688397/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063305925184688397/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063305925184688397",
+      "summary": "Repost of @SecWar:",
+      "title": "Repost of @SecWar: Eighty-two years ago, Allied forces stormed the beaches of Normandy int..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:276739009731a014",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T17:03:18.291179+00:00",
+        "datePublished": "2026-06-06T16:46:48+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063301592384684506"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063301592384684506/README.md",
+      "path": "X/DHSgov/2026/06/06/2063301592384684506/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063301592384684506",
+      "summary": "Back story:",
+      "title": "Back story: While ICE law enforcement officers attempted to clear roadblocks anti-ICE riot..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:87833362e5a36186",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T17:03:18.291546+00:00",
+        "datePublished": "2026-06-06T16:33:39+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063298283838071058"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063298283838071058/README.md",
+      "path": "X/DHSgov/2026/06/06/2063298283838071058/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063298283838071058",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:f2b83a0fdcdedf98",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T17:04:10.903334+00:00",
+        "datePublished": "2026-06-06T16:29:54+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063297337624056081"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/06/2063297337624056081/README.md",
+      "path": "X/SecMullinDHS/2026/06/06/2063297337624056081/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2063297337624056081",
+      "summary": "On the night of June 5, 2026, ICE law enforcement officers arrested 4 rioters for assault of law enforcement officers, obstruction, and threats. NJ authorities arrested a rioter who broke a car windshield.",
+      "title": "On the night of June 5, 2026, ICE law enforcement officers arrested 4 rioters for assault ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:2908cba75d01c914",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T17:03:43.835147+00:00",
+        "datePublished": "2026-06-06T16:09:56+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063250848570818560.mp4",
+            "remotePath": "archive/x/potus/U5Vx8uu3nnxBdpSF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063250848570818560/vid/avc1/3840x2160/U5Vx8uu3nnxBdpSF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/U5Vx8uu3nnxBdpSF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063250848570818560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/U5Vx8uu3nnxBdpSF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063292313544061111"
+      },
+      "metadataPath": "X/POTUS/2026/06/06/2063292313544061111/README.md",
+      "path": "X/POTUS/2026/06/06/2063292313544061111/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063292313544061111",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: JOBS, JOBS, JOBS. THE NUMBERS DON\u2019T MISS. \ud83d\udd25 https://t.co/HC2cbjzBNN"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:22effcbf37763207",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T17:03:34.291064+00:00",
+        "datePublished": "2026-06-06T16:05:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063291122705682432.jpg",
+            "remotePath": "archive/x/icegov/HKJIWCUW0AA3-io.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJIWCUW0AA3-io.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJIWCUW0AA3-io.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063291122705682432.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJIWCUW0AA3-io.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063291125427814767"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063291125427814767/README.md",
+      "path": "X/ICEgov/2026/06/06/2063291125427814767/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063291125427814767",
+      "summary": "\u26bd Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, and often funds other illicit activities like drug and weapons trafficking.",
+      "title": "\u26bd Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:779781cd7de60910",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T17:03:34.291438+00:00",
+        "datePublished": "2026-06-06T15:51:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063277424159170560.mp4",
+            "remotePath": "archive/x/icegov/ubCWnluVVqdG7Rje.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063277424159170560/vid/avc1/640x360/ubCWnluVVqdG7Rje.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/ubCWnluVVqdG7Rje.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063277424159170560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/ubCWnluVVqdG7Rje.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063287579999408561"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063287579999408561/README.md",
+      "path": "X/ICEgov/2026/06/06/2063287579999408561/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063287579999408561",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: .@HSI_HQ alongside our partners at @TheJusticeDept discovered and disma..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

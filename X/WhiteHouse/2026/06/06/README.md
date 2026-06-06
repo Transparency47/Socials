@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 10
+- Posts: 11
 
+- [17:04 UTC - Repost of @SecWar: Eighty-two years ago, Allied forces stormed the beaches of Normandy int...](2063305925184688397/)
+  - Source: https://x.com/WhiteHouse/status/2063305925184688397
+  - Repost of @SecWar: Eighty-two years ago, Allied forces stormed the beaches of Normandy into the hell of war — answering the call of duty in defense of freedom. Today, we honor thei...
 - [15:41 UTC - Repost of @Interior: This morning at the World War II Memorial, we pause to honor the cour...](2063285199547339096/)
   - Source: https://x.com/WhiteHouse/status/2063285199547339096
   - Repost of @Interior: This morning at the World War II Memorial, we pause to honor the courage and sacrifice of those who stormed the beaches of Normandy 82 years ago today. 🇺🇸 Phot...

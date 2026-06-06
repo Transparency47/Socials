@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 8
+- Posts: 10
 
+- [16:05 UTC - ⚽ Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, a...](2063291125427814767/)
+  - Source: https://x.com/ICEgov/status/2063291125427814767
+  - ⚽ Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, and often funds other illicit activities like drug and weapons trafficking. The ICE HSI-led...
+- [15:51 UTC - Repost of @DHSgov: .@HSI_HQ alongside our partners at @TheJusticeDept discovered and disma...](2063287579999408561/)
+  - Source: https://x.com/ICEgov/status/2063287579999408561
+  - Repost of @DHSgov: .@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine. Under the l...
 - [15:50 UTC - Repost of @DHSgov: Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a ...](2063287535762124950/)
   - Source: https://x.com/ICEgov/status/2063287535762124950
   - Repost of @DHSgov: Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and committed several violent crimes including a hit-and-run car crash AND p...

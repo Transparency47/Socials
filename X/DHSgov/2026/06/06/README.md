@@ -1,7 +1,13 @@
 # X / DHSgov / 2026-06-06
 
-- Posts: 9
+- Posts: 11
 
+- [16:46 UTC - Back story: While ICE law enforcement officers attempted to clear roadblocks anti-ICE riot...](2063301592384684506/)
+  - Source: https://x.com/DHSgov/status/2063301592384684506
+  - Back story: While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed in front of Delaney Hall, an ICE law enforcement officer was punched in the fac...
+- [16:33 UTC - Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrest...](2063298283838071058/)
+  - Source: https://x.com/DHSgov/status/2063298283838071058
+  - Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrested 4 rioters for assault of law enforcement officers, obstruction, and threats. NJ authori...
 - [15:11 UTC - .@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-borde...](2063277577179963517/)
   - Source: https://x.com/DHSgov/status/2063277577179963517
   - .@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine. Under the leadership of @POTUS...
