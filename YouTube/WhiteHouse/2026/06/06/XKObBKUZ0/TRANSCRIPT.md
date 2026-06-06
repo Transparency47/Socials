@@ -1,0 +1,542 @@
+<!-- source: https://www.youtube.com/watch?v=--XKObBKUZ0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: --XKObBKUZ0 -->
+<!-- date_published: 2026-06-06T12:20:56+00:00 -->
+<!-- date_accessed: 2026-06-06T14:27:53.134481+00:00 -->
+
+# Transcript: President Trump Gaggles with Press on Air Force One En Route Chippewa Falls, WI, Jun. 5, 2026
+
+- [00:01.040] Hello everybody.
+- [00:03.200] >> So we had incredible job numbers today.
+- [00:05.520] You saw that.
+- [00:07.600] And uh we have good everything. Good
+- [00:10.240] good numbers, but the job numbers just
+- [00:12.480] came out and they were fantastic. Uh far
+- [00:15.679] better than even anticipated. They
+- [00:19.119] anticipated pretty good, but they had no
+- [00:20.880] idea it was going to be that. And
+- [00:23.279] unfortunately, we're in a world where
+- [00:25.119] for the last 15 years or so, when you
+- [00:27.119] have good numbers, the market goes down.
+- [00:29.840] When you have bad numbers, the market
+- [00:32.079] goes up because too much emphasis is
+- [00:34.320] placed on inflation.
+- [00:36.719] And you don't have to have inflation by
+- [00:38.960] having growth. And we have great growth.
+- [00:41.280] And that doesn't mean inflation. In
+- [00:42.960] fact, it can be anti-inflation growth.
+- [00:46.480] So, I hope the market starts to learn
+- [00:48.239] that when you have good numbers, the
+- [00:50.399] market should go up, not down.
+- [00:54.239] question.
+- [00:55.760] >> Sorry. Sorry. Given those job numbers,
+- [00:58.160] do you think the Fed should cut rates at
+- [00:59.920] its next meeting? And do you think new
+- [01:01.440] chair Kevin
+- [01:02.559] >> Well, I'm going to let Kevin make that
+- [01:03.920] decision. I'd like to see lower interest
+- [01:05.760] rates because
+- [01:07.600] each point, think of this, is $600
+- [01:11.119] million.
+- [01:12.799] Okay. So, you know,
+- [01:15.360] >> you said yesterday, you know, you're
+- [01:17.040] interviewing some candidates for our
+- [01:19.040] director of national intelligence who's
+- [01:20.880] under consideration.
+- [01:22.799] >> Um, I have five interviews
+- [01:26.400] and we'll have a very good person
+- [01:29.280] watching things, Bill Py. But I have uh
+- [01:32.560] five interviews. So, cutting rates just
+- [01:34.960] get evacuated. You save hundreds of
+- [01:37.759] millions of dollars when you take one.
+- [01:41.360] Hundreds of millions of dollars. two
+- [01:43.840] points, you save double hundreds of
+- [01:46.960] millions of dollars. And so I therefore,
+- [01:50.479] you know, from that standpoint, but
+- [01:53.520] someday we're going to have to
+- [01:56.240] go back to the old theory when we're
+- [01:58.479] we're doing so good. We have more auto
+- [02:01.280] plants being built than we've ever had.
+- [02:03.119] We have more plants being built than
+- [02:04.640] we've ever All these numbers are good,
+- [02:06.479] but when the numbers are good, we should
+- [02:08.080] be allowed to grow, not to styy the
+- [02:11.440] growth.
+- [02:13.120] And you know, we had a we had a Fed here
+- [02:14.720] that didn't understand the
+- [02:15.760] >> financial markets now pricing at a cut
+- [02:17.680] actually for the October meeting.
+- [02:19.680] >> Well, I would like to see that, but I
+- [02:21.760] leave that up. Look, I have a very
+- [02:23.520] talented guy. I leave it up to Kevin,
+- [02:25.360] but uh I've always said, I've said it
+- [02:29.360] for years,
+- [02:30.800] >> when you have a country that's doing
+- [02:32.400] well, the market should go up.
+- [02:35.440] >> The market should And the reason they go
+- [02:37.440] down is if it's doing well, people said,
+- [02:39.120] "Oh, we have to stop inflation." And it
+- [02:41.760] doesn't mean inflation. In fact, it
+- [02:43.440] could be just the opposite.
+- [02:46.000] >> Before the midterm elections mean
+- [02:48.560] >> remember that we save 600 $600 billion
+- [02:51.519] every point.
+- [02:53.920] >> President, why do you want Bill Clinton
+- [02:55.440] to cut the uh Mr. Why do you want Bill
+- [02:58.000] Clinton to cut the office of the
+- [02:59.440] director of national intelligence? And
+- [03:01.120] how long is he going to be in that role?
+- [03:02.720] >> Depends on how long it takes to get
+- [03:04.400] somebody approved. Uh he'll do a very
+- [03:06.879] good job. Bill, you'll watch it closely.
+- [03:09.680] But, uh, Bill Bolt is very good. He's
+- [03:12.560] very talented. Done a great job at Fanny
+- [03:15.440] May, Freddy Mack. Uh, we the value there
+- [03:18.800] is close to a trillion dollars. We built
+- [03:21.280] a value that's incredible. Uh, so he's
+- [03:23.840] done a very good job in that. He'll do a
+- [03:25.440] good job. He's watching for, you know,
+- [03:27.040] during this time period.
+- [03:28.400] >> And you wanted to cut uh the number of
+- [03:30.159] people working there.
+- [03:30.959] >> I wouldn't mind. I've heard that's way
+- [03:32.879] too high for way too long. Yeah, I
+- [03:34.720] wouldn't mind. If he got, I wouldn't
+- [03:36.799] mind that.
+- [03:38.720] >> Intelligence. Are you considering the
+- [03:40.319] possibility of the US government taking
+- [03:42.159] stakes in some AI companies?
+- [03:44.720] >> Well, it's something I did it with
+- [03:47.040] Intel. So, I made a deal on Intel. You
+- [03:50.080] know, we made I made for the country
+- [03:53.920] $50 billion.
+- [03:56.560] We took a stake in Intel. It was given
+- [03:58.640] to us by our helping. I said, "Look,
+- [04:01.680] we'll help you, but you have to give us
+- [04:03.599] 10% of the company." And it was Intel
+- [04:05.760] just 9 months ago and as I think you
+- [04:09.360] know we made about $50 million on that
+- [04:12.000] deal.
+- [04:12.319] >> Would you want to do anything?
+- [04:13.120] >> I did a very good job. I should be a
+- [04:14.560] stock broker. Mr. President.
+- [04:16.560] >> Yes sir. I'm going to change the subject
+- [04:18.720] if you don't mind. Did you get a chance
+- [04:19.919] to watch game one of the NBA finals?
+- [04:21.680] What' you think?
+- [04:22.320] >> I did. Um
+- [04:24.479] well I'll be going to game three. I
+- [04:26.080] guess it's game three on Monday. Uh I
+- [04:28.000] thought it was amazing. I think that I
+- [04:30.160] think the Knicks have an amazing team
+- [04:31.840] the way they played. started off slow
+- [04:34.639] and it just got stronger and stronger.
+- [04:37.520] We looks like he's going to be a great
+- [04:39.120] player, but uh they really played well,
+- [04:42.160] I think.
+- [04:43.440] >> Did you see Wei crossing his arms during
+- [04:45.280] the US national anthem? Did you have any
+- [04:46.880] thoughts on that?
+- [04:47.840] >> Uh I did not see that. Is that what he
+- [04:49.759] did?
+- [04:50.160] >> He did. Yes.
+- [04:51.040] >> And what did he mean by that?
+- [04:53.120] >> Nobody asked him.
+- [04:54.880] >> Well, I guess you have to ask him.
+- [04:56.960] >> Well, who's your favorite Nick?
+- [04:59.759] >> Well, Brunson's fantastic. Towns is
+- [05:02.240] fantastic.
+- [05:03.759] They just have a great team.
+- [05:05.199] >> What do you think that the game you're
+- [05:06.720] going to the cheapest price for the game
+- [05:09.520] three you're going to is $8,000.
+- [05:12.560] Everyday Americans can't afford these.
+- [05:14.800] >> Well, I know, but they could watch it on
+- [05:16.560] television. It's sort of semifree to
+- [05:19.680] watch it on television, but it's the way
+- [05:22.479] life goes. You know, you have some. And
+- [05:25.280] now, if the game wasn't a big if the
+- [05:26.960] team wasn't a big success, you could go
+- [05:28.800] very easily. So, you know, you can you
+- [05:31.440] can do that, too. But that's the way
+- [05:33.199] life is, you know, and they've had great
+- [05:36.000] success. And don't forget, they've
+- [05:38.000] suffered also losses and they've
+- [05:40.240] suffered during the bad time. Now, they
+- [05:42.400] have a good time. They have a team
+- [05:43.440] that's amazing. I don't think they've
+- [05:45.840] lost a playoff game, right?
+- [05:48.400] >> Very unus. Has that ever happened
+- [05:49.919] before? Has that
+- [05:51.199] >> Has anyone ever had this kind of a run
+- [05:53.120] in a playoff game? I don't
+- [05:54.880] >> unusual. Do you have any
+- [05:56.320] >> not the new proono you announced
+- [05:57.919] yesterday, Mr. President? Where's the
+- [05:59.520] funding going to come from?
+- [06:01.280] >> Uh probably it's not a lot of money and
+- [06:04.000] it's going to be beautiful. You know,
+- [06:05.199] it's always been the Lincoln Memorial
+- [06:06.720] has always been very tied to the PTOAC
+- [06:09.759] River, but they built two roadways
+- [06:11.680] behind it unexpectedly at the time many
+- [06:15.600] years ago, but after the memorial was
+- [06:18.319] built, it used to have a tie to the
+- [06:20.319] river and then the highways cut it off.
+- [06:22.720] And we have a really beautiful plan
+- [06:24.800] where it goes over beautiful a beautiful
+- [06:29.199] uh series of platforms that bring you
+- [06:32.000] right down to the river. It's beautiful.
+- [06:34.639] It's a prominade. It's a beautiful
+- [06:36.479] prominade. Uh probably uh well it could
+- [06:40.080] come from a lot of we have a lot of
+- [06:41.600] sources of funding. We won't have to go
+- [06:43.120] back to Congress or we have a lot of
+- [06:45.440] sources of funding and a lot of people
+- [06:47.120] have asked me to stay involved with the
+- [06:50.319] Kennedy Center. We had a judge who's
+- [06:52.800] totally conflicted, but that's all
+- [06:54.240] right. He's a totally conflicted judge
+- [06:56.000] to be ashamed of himself, but uh they've
+- [06:58.560] asked me in the strongest of language to
+- [07:01.520] stay involved with the Kennedy Center.
+- [07:03.280] We want to see cuz the building well I
+- [07:05.520] mean it's a very it's very dangerous
+- [07:07.440] number one. Number two, it was losing
+- [07:09.759] for years tremendous amounts of money.
+- [07:12.479] So I I'm considering that. But a lot of
+- [07:14.400] people have asked me to get it fixed. We
+- [07:16.880] have to fix the Kennedy Center award
+- [07:18.880] both physically and from the standpoint
+- [07:21.280] of attendance.
+- [07:23.120] >> There's a question on oil and gas
+- [07:25.120] prices. I know you're saying that the
+- [07:26.800] oil prices and gas prices will fall
+- [07:28.479] after the conflict ends. Would you limit
+- [07:30.639] exports of gasoline if prices in the
+- [07:32.960] >> I can do a lot of things. So we have a
+- [07:34.319] lot of alternatives. But the beautiful
+- [07:36.479] thing from our standpoint is we have
+- [07:38.880] more oil and gas and coal and everything
+- [07:41.039] else than any other country on the
+- [07:42.560] planet. And then when you add Venezuela
+- [07:45.120] to it, uh there's we have probably 64%
+- [07:51.199] of that type of energy. That's
+- [07:53.759] unbelievable. The Venezuela is working
+- [07:56.000] out very well. We're getting along
+- [07:58.720] incredibly. The country is happy. The
+- [08:01.440] people love the USA
+- [08:03.840] and we have a lot of, you know, the big
+- [08:05.360] oil companies are moving in there now as
+- [08:07.360] we speak and we're going to be taking
+- [08:09.280] out millions of barrels of oil. Are US
+- [08:12.000] oil majors doing enough to boost output
+- [08:13.919] in the US? Are you asking?
+- [08:15.039] >> Oh, yeah. Sure. Well, we have we have
+- [08:17.840] everything we need. The world doesn't.
+- [08:21.440] But I will say people thought it was
+- [08:23.039] going to be a lot worse. You know, today
+- [08:24.800] I looked at $96 a barrel. People thought
+- [08:27.280] that was going to be $300 a barrel. And
+- [08:29.919] in the meantime, we're having great
+- [08:31.280] success with Iran. We they're not going
+- [08:33.360] to have a nuclear weapon
+- [08:35.200] >> and they're in no position to have a
+- [08:36.959] nuclear weapon. Senator Tillis said he
+- [08:39.120] won't support Todd Blanch's confirmation
+- [08:41.680] unless Todd Blanch condemns January 6.
+- [08:44.080] Do you have a reaction to that?
+- [08:46.000] >> Senator Tillis is a loser. That's why he
+- [08:49.040] didn't run. He didn't run because I
+- [08:50.560] wouldn't support him and he's just an
+- [08:53.440] angry man because he's not going to be a
+- [08:55.600] senator any longer. He wasn't respected
+- [08:58.320] in the Senate. He fought a lot of
+- [09:00.480] people. He fought Pete Hexath. Beat
+- [09:02.720] Hexath turned out to be a gym. Uh, no,
+- [09:06.240] Senator Tillis is a loser, stone cold.
+- [09:08.560] And he's an angry man because I
+- [09:11.040] basically he he was forced to leave the
+- [09:14.560] Senate because I wouldn't support him
+- [09:16.080] and he quit. So now he's trying to make
+- [09:18.880] trouble by, you know, opposing anybody.
+- [09:20.720] Todd Blanch is a brilliant guy who
+- [09:23.440] everybody likes and everybody respects
+- [09:25.920] and Tillis is always like, I'm going to
+- [09:27.760] do this, I'm going to do that. He should
+- [09:29.760] have done it before when he was a
+- [09:31.200] senator. he would have gotten wiped out
+- [09:32.800] in a race, but he needed my support. And
+- [09:35.600] I said, I can't give you my support.
+- [09:37.519] He's not qualified. He's he's not he's
+- [09:40.399] not good for the position of senator. I
+- [09:42.560] didn't hear about what he did with
+- [09:45.040] Blanch. Todd Blanch is fantastic.
+- [09:46.880] >> Sir, on the AI companies potentially
+- [09:49.120] taking these equity stakes, have you
+- [09:51.200] spoken to Sam Waldman or any other
+- [09:53.839] >> No, there's a concept out there. there's
+- [09:55.839] so much money and it's so big that there
+- [09:58.880] are concepts where pieces could be given
+- [10:01.839] to the American public where the
+- [10:04.000] American public essentially becomes a
+- [10:05.920] partner with the company with the
+- [10:07.760] companies and I will tell you yeah I
+- [10:10.080] have I have spoken at all of them
+- [10:12.399] there's something very interesting about
+- [10:14.320] it where it almost becomes a partnership
+- [10:17.200] with the American public and we'll look
+- [10:19.920] into that but we are looking I actually
+- [10:22.000] have a meeting scheduled in the very
+- [10:24.800] your very near future with did you know
+- [10:28.320] that with all of the companies and we're
+- [10:31.279] talking about it where the American
+- [10:33.760] people can benefit from the success of
+- [10:37.279] AI and by doing that they're going to
+- [10:39.519] like it better because we're leading
+- [10:42.000] China. We're leading everybody in the
+- [10:43.760] world with AI and we want to keep it
+- [10:46.160] that way. It's probably the biggest
+- [10:47.839] industry maybe that we've ever seen.
+- [10:50.160] >> Which companies in the meeting?
+- [10:51.680] >> All of them.
+- [10:52.399] >> And probably
+- [10:52.959] >> all the big ones. Yes. All of them.
+- [10:54.959] >> They're all coming to the White House
+- [10:57.200] >> probably next week.
+- [10:58.560] >> The idea that that would be dividends
+- [10:59.839] for the American
+- [11:00.480] >> I don't know. We're going to see. I
+- [11:01.519] mean, we're going to see. Sort of. It's
+- [11:02.800] like you make them a partnership in this
+- [11:05.680] revolution would be a beautiful thing.
+- [11:07.360] And
+- [11:07.839] >> Senator,
+- [11:08.480] >> it would make them it would make them
+- [11:09.680] rich.
+- [11:10.320] >> Senator Bernie Sanders proposed this 50%
+- [11:13.040] manage public private partnership.
+- [11:15.200] >> Well, I've been talking about it for the
+- [11:17.519] last year.
+- [11:18.079] >> But is it odd to be kind of on the same
+- [11:20.079] page with Senator Sanders? No, actually
+- [11:23.040] when Bernie Sanders was taken advantage
+- [11:27.120] of with Hillary Clinton and he lost in
+- [11:30.720] the primaries cuz a lot of people think
+- [11:33.279] he didn't lose. I mean, he had two of
+- [11:34.959] them, right? He lost then and he lost a
+- [11:36.880] second time with with Biden. But, uh,
+- [11:40.399] when Bernie Sanders lost, you know that
+- [11:42.240] I got many of his people. They voted for
+- [11:44.320] me because we are on an economic plan.
+- [11:49.120] As far as economics is concerned, we
+- [11:51.519] have certain things that aren't that far
+- [11:53.120] apart. People are surprised, but many of
+- [11:56.079] you, if you'll take a look, many of the
+- [11:58.640] people that voted for Bernie Sanders
+- [12:01.120] when he was no longer there to vote for,
+- [12:02.880] they went to me. I picked up a lot of
+- [12:05.120] his a tremendous amount of his voters.
+- [12:10.079] >> How many um how much oil have you gotten
+- [12:12.160] through the straight with the help of
+- [12:13.279] naval escorts? And are you asking are
+- [12:15.120] you directing US forces to guide those
+- [12:16.959] ships through the straight more tankers?
+- [12:19.200] >> A lot. I don't want to say how many, but
+- [12:21.120] a lot. A lot of oil is coming into our
+- [12:23.519] country. A lot of oil is coming into the
+- [12:25.920] world that people don't even know about.
+- [12:28.079] And that's why it's at $97 a barrel
+- [12:30.480] instead of $300 a barrel. And when that
+- [12:33.360] whole thing is straightened out, it
+- [12:34.639] shouldn't take long. One way or the
+- [12:36.000] other, it's going to get done. And when
+- [12:38.000] it's all straightened out, you're going
+- [12:39.120] to have oil prices drop down to maybe
+- [12:41.519] even lower than they were. I was, and
+- [12:43.519] you've heard me say this, I was in Iowa
+- [12:46.320] and for a gallon of gasoline, it was at
+- [12:50.079] 185
+- [12:52.000] >> last year,
+- [12:52.399] >> and that was three and a half months
+- [12:53.760] ago.
+- [12:54.480] >> Last year, the FBI reopened it. Last
+- [12:56.720] year, the FBI reopened its investigation
+- [12:58.959] into the cocaine found in the White
+- [13:00.639] House during the Biden administration.
+- [13:02.399] Have you been briefed on where that
+- [13:03.839] investigation stands?
+- [13:04.959] >> No, but I might ask about it. I might
+- [13:07.680] ask. You mean in the shelves where they
+- [13:10.240] found the cocaine? Actually,
+- [13:14.560] >> I might I might ask about it.
+- [13:16.399] >> Have you made a decision on the arm
+- [13:17.920] sales to Taiwan that?
+- [13:20.720] >> We're looking at that. Yeah.
+- [13:21.839] >> Were you still planning to talk to
+- [13:22.959] Taiwan's president about it?
+- [13:24.399] >> I'll always talk to him, but uh we're
+- [13:26.079] looking at it.
+- [13:27.200] >> What was your reaction to John Bolton
+- [13:29.120] agreeing to plead guilty in the
+- [13:30.880] classified documents?
+- [13:32.240] >> Well, I was never much of a fan of John
+- [13:34.880] Bolton. I never thought he was a smart
+- [13:37.279] person and he was a radical
+- [13:40.720] uh right in terms of war, not in terms
+- [13:43.519] of other things. He was he wanted to go
+- [13:46.320] to war with anybody that opened their
+- [13:48.079] mouth, anybody that talked. Uh and I
+- [13:51.360] used him for a purpose. You know, he was
+- [13:52.959] involved with Bush and he created a lot
+- [13:54.959] of problems. But he always wanted to
+- [13:57.279] kill people in war. And that was okay
+- [14:01.839] for me as long as I didn't listen to
+- [14:04.000] him, which I never did. Uh he's a he's a
+- [14:07.360] bad guy, John B. He's a dirty guy. And
+- [14:10.320] we caught him, you know, we caught him.
+- [14:13.040] And uh you know, he wrote a book. You
+- [14:15.839] look at all the information he took. I
+- [14:17.680] mean, if you look at that case, it's uh
+- [14:21.120] it's a great honor to have helped from
+- [14:23.920] the standpoint of encouragement. I I
+- [14:26.000] looked at John Bolton as somebody that
+- [14:28.880] was a very dishonest guy and not a smart
+- [14:31.680] guy. And I guess he's paying the price
+- [14:34.240] for certainly being dishonest.
+- [14:36.639] >> You mentioned the Kennedy Center, sir.
+- [14:38.240] How do you want to be involved moving
+- [14:39.519] forward?
+- [14:39.920] >> Well, the same way it is. I'm the
+- [14:41.360] chairman. So, we'll just keep it going.
+- [14:43.440] Somebody has to do it. It loses a lot of
+- [14:46.320] money. It has for years. It's lost
+- [14:49.920] hundreds of millions of dollars for
+- [14:51.760] years. And yet it's something you have
+- [14:54.000] to keep going. You know, it's the arts.
+- [14:56.560] Uh they all lose money. Carnegie Hall,
+- [14:58.639] you you take a look at all of that kind
+- [15:00.880] of thing loses. So they really everybody
+- [15:04.480] they want me to say very badly. So we're
+- [15:06.160] going to we're going to take a look at
+- [15:07.519] it.
+- [15:07.680] >> You also mentioned Fanny May.
+- [15:09.120] >> The judge really hurt the Kennedy Center
+- [15:11.839] because he slowed down. We were going
+- [15:13.279] to, you know, we're going to spend a lot
+- [15:14.959] of money on fixing it and making it
+- [15:16.480] bringing it back to health and the judge
+- [15:18.560] really made it very hard to do that. But
+- [15:21.199] we'll we're going to I'm going to look
+- [15:22.480] at his ruling on that, but we have to
+- [15:24.720] bring it back physically. We have to
+- [15:26.959] bring it back and we have to bring it
+- [15:29.199] back another way. So, we'll take a good
+- [15:31.360] look at it.
+- [15:32.160] >> You mentioned Fanny May and Freddy May
+- [15:34.480] with Colt's move over now acting DNI. Is
+- [15:38.480] an IPO off the table?
+- [15:41.360] >> No, it's not. We're thinking about an
+- [15:43.120] IPO for that. We're not it's not a rush
+- [15:46.720] but we've created a tre you know I could
+- [15:49.120] have sold that for literally less than
+- [15:52.800] 10% in my first term I was offered a lot
+- [15:56.000] of people were offering me money to me
+- [15:58.399] meaning the country to buy Fanny May
+- [16:01.360] Freddy back as you know and it suffered
+- [16:04.480] tremendous hardship and then we built it
+- [16:07.920] back and I could have sold it in my
+- [16:10.399] first term for onetenth of what it's
+- [16:12.399] worth now and I didn't want to do
+- [16:14.800] Now I think would you know we would
+- [16:16.480] consider an IPO
+- [16:17.839] >> and he would stay at he would
+- [16:19.440] potentially
+- [16:19.920] >> No, he'd be there. No, he's he's staying
+- [16:21.279] there.
+- [16:21.519] >> So then who are the people you're
+- [16:22.880] talking to for he and I? Can you give us
+- [16:24.720] >> I'm looking at five different people all
+- [16:27.600] very good. All people that you know very
+- [16:29.839] well, all people that do that kind of
+- [16:32.480] thing and they're very respected people.
+- [16:34.639] >> Mr. President, what do you think about
+- [16:36.079] Major League Baseball owners pushing for
+- [16:37.839] a salary cap? Do you think it's time for
+- [16:39.360] baseball to have a salary cap?
+- [16:42.480] Don't they sort of have one,
+- [16:44.560] >> don't they?
+- [16:45.199] >> No. It's a luxury tax threshold, but the
+- [16:47.440] teams that have the money are willing to
+- [16:48.639] spend it.
+- [16:49.040] >> Well, if you don't have a salary cap,
+- [16:50.480] you don't have a sport because they
+- [16:52.240] can't help themselves. You know, in
+- [16:54.399] sports, they can't help themselves.
+- [16:56.560] Football has a salary cap.
+- [16:58.160] >> Every every major professional league
+- [16:59.920] except Major League Baseball in America.
+- [17:02.160] >> They should have done it a long time
+- [17:03.519] ago. I I know I know so much about
+- [17:06.640] sports. They should have done it a long
+- [17:08.720] time ago. We're trying to help save
+- [17:10.720] college sports because they got some
+- [17:12.160] rulings that really essentially
+- [17:14.319] destroyed
+- [17:16.240] uh college sports. We're working with
+- [17:18.480] Randy Lavine and Nick Sabin and some
+- [17:21.199] great people on trying to save it
+- [17:23.760] because it's so horrible.
+- [17:24.799] >> What do you think could happen if this
+- [17:25.919] NIL just gets completely out of control
+- [17:27.679] and nobody checks it?
+- [17:28.799] >> Well, I think what's going to happen if
+- [17:30.080] you don't have what they're trying to do
+- [17:31.840] now, that's sort of a gap in a certain
+- [17:33.919] way. If you don't have that, you you
+- [17:36.559] really have a problem. But not only
+- [17:38.640] college sports, colleges where you see
+- [17:40.799] where Penn State lost $500 million,
+- [17:44.160] where a certain school that I like very
+- [17:47.039] much in Florida, they lose 4 500. But
+- [17:49.360] you can't you can't have that. Nobody
+- [17:51.919] can afford that because they go crazy.
+- [17:54.559] That's why when you say Major League
+- [17:56.080] Baseball, Major League Baseball,
+- [17:59.600] it's shocking, frankly, that they didn't
+- [18:01.919] put a cap on many years ago.
+- [18:04.160] >> They had a chance to do a cap and they
+- [18:05.840] blew it. destroy Ukraine. Now that
+- [18:07.679] Zilinski has proposed a facetof face
+- [18:09.440] meeting with Zilinski, do you still want
+- [18:10.799] them to go first before the US gets
+- [18:12.720] involved in talking?
+- [18:13.440] >> Well, I don't mind. I mean, it's let
+- [18:15.280] them deal. I'm the one that got him to
+- [18:18.640] this position and I think that's going
+- [18:20.880] to get worked out. I think we're getting
+- [18:23.280] close to where Russia Ukraine should
+- [18:25.039] have. It's a war that should have never
+- [18:26.799] happened. Would have never happened if I
+- [18:28.240] was president. But I think I think
+- [18:30.400] that's going to get worked out. Yeah.
+- [18:32.000] >> Secretary Rubio take a more active role
+- [18:33.760] or Secretary
+- [18:34.480] >> He'll be involved. They'll be involved.
+- [18:36.080] JD, everybody. We'll all be involved. We
+- [18:38.720] want to see it done. You know, we're not
+- [18:40.720] spending money. They're buying things
+- [18:42.240] from us actually at full price. With
+- [18:46.080] Biden, he gave them everything. It was
+- [18:48.000] just gave them hundreds of billions of
+- [18:50.559] dollars of weapons and everything else.
+- [18:53.440] But, uh, it's a war that should have
+- [18:55.440] never happened. And it's a war that has
+- [18:57.039] to be last week 25,000
+- [19:00.160] people over the course of the month,
+- [19:01.679] 25,000 people were killed. Russia,
+- [19:04.640] Ukraine, 25,000.
+- [19:07.120] It's not acceptable.
+- [19:09.039] >> Not acceptable. Thank you very much.
+- [19:10.559] Have a good time.

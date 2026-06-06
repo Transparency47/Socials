@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 5
+- Posts: 6
 
+- [13:34 UTC - Anderson Bastien 📍IN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arre...](2063253121359356237/)
+  - Source: https://x.com/ICEgov/status/2063253121359356237
+  - Anderson Bastien 📍IN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arrest for domestic violence April 21. That case is still pending, but due to the violent natu...
 - [09:03 UTC - Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down.](2063185067258651057/)
   - Source: https://x.com/ICEgov/status/2063185067258651057
   - Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down.

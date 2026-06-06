@@ -1,7 +1,16 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 6
+- Posts: 9
 
+- [13:26 UTC - JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN](2063251100547874874/)
+  - Source: https://x.com/WhiteHouse/status/2063251100547874874
+  - JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN
+- [13:20 UTC - Repost of @SECNAV: The eyes of the world were upon them - and today, we honor their legacy...](2063249571195637862/)
+  - Source: https://x.com/WhiteHouse/status/2063249571195637862
+  - Repost of @SECNAV: The eyes of the world were upon them - and today, we honor their legacy as we live in the freedom secured by their noble sacrifice. https://t.co/Oj1lxsM1gK
+- [13:19 UTC - Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, an...](2063249540036055508/)
+  - Source: https://x.com/WhiteHouse/status/2063249540036055508
+  - Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, and Allied forces stormed into hell to help save the world. We will never forget the courage...
 - [11:43 UTC - Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and s...](2063225265581330705/)
   - Source: https://x.com/WhiteHouse/status/2063225265581330705
   - Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and sacrifice, American troops stormed the beaches of Normandy, defeated tyranny, and helped se...

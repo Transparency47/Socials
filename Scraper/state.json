@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=--XKObBKUZ0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=--XKObBKUZ0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=--XKObBKUZ0&ei=zBckaoHnK9WHkucPvvKT6AE&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780775484&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=AF5AD250892282810B9F5EFCB324B6215785FDCE.322A0C9EEE8A477A33B0C83106E080526CC6CDF9&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -123842,6 +123842,17 @@
       "title": "Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down.",
       "url": "https://x.com/ICEgov/status/2063185067258651057"
     },
+    "x:icegov:2063253121359356237": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T14:26:33.525258+00:00",
+      "path": "X/ICEgov/2026/06/06/2063253121359356237",
+      "platform": "x",
+      "post_id": "2063253121359356237",
+      "published": "2026-06-06T13:34:12+00:00",
+      "title": "Anderson Bastien \ud83d\udccdIN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arre...",
+      "url": "https://x.com/ICEgov/status/2063253121359356237"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -125623,6 +125634,17 @@
       "published": "2026-06-06T00:38:55+00:00",
       "title": "Repost of @WhiteHouse: Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm",
       "url": "https://x.com/POTUS/status/2063058014555213985"
+    },
+    "x:potus:2063247085806252401": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T14:26:41.947434+00:00",
+      "path": "X/POTUS/2026/06/06/2063247085806252401",
+      "platform": "x",
+      "post_id": "2063247085806252401",
+      "published": "2026-06-06T13:10:13+00:00",
+      "title": "Repost of @WhiteHouse: Today, we remember the heroes of D-Day - June 6, 1944. Through extr...",
+      "url": "https://x.com/POTUS/status/2063247085806252401"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -130023,6 +130045,17 @@
       "published": "2026-06-05T18:10:07+00:00",
       "title": "This week, we honored some of our @ICEgov law enforcement officers who, amid sniper shots ...",
       "url": "https://x.com/SecMullinDHS/status/2062960172524323296"
+    },
+    "x:secmullindhs:2063257714365452495": {
+      "account": "SecMullinDHS",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T14:27:10.584573+00:00",
+      "path": "X/SecMullinDHS/2026/06/06/2063257714365452495",
+      "platform": "x",
+      "post_id": "2063257714365452495",
+      "published": "2026-06-06T13:52:27+00:00",
+      "title": "Another busy week at DHS. I testified before Congress on our department\u2019s agenda and how w...",
+      "url": "https://x.com/SecMullinDHS/status/2063257714365452495"
     },
     "x:vp:2000974738076979672": {
       "account": "VP",
@@ -148746,6 +148779,39 @@
       "title": "Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and s...",
       "url": "https://x.com/WhiteHouse/status/2063225265581330705"
     },
+    "x:whitehouse:2063249540036055508": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T14:27:31.589251+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063249540036055508",
+      "platform": "x",
+      "post_id": "2063249540036055508",
+      "published": "2026-06-06T13:19:58+00:00",
+      "title": "Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, an...",
+      "url": "https://x.com/WhiteHouse/status/2063249540036055508"
+    },
+    "x:whitehouse:2063249571195637862": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T14:27:31.588940+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063249571195637862",
+      "platform": "x",
+      "post_id": "2063249571195637862",
+      "published": "2026-06-06T13:20:05+00:00",
+      "title": "Repost of @SECNAV: The eyes of the world were upon them - and today, we honor their legacy...",
+      "url": "https://x.com/WhiteHouse/status/2063249571195637862"
+    },
+    "x:whitehouse:2063251100547874874": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T14:27:31.588618+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063251100547874874",
+      "platform": "x",
+      "post_id": "2063251100547874874",
+      "published": "2026-06-06T13:26:10+00:00",
+      "title": "JOBS, JOBS, JOBS. THE NUMBERS DON\u2019T MISS. \ud83d\udd25 https://t.co/HC2cbjzBNN",
+      "url": "https://x.com/WhiteHouse/status/2063251100547874874"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -148756,6 +148822,17 @@
       "published": "2025-10-30T22:45:24+00:00",
       "title": "President Trump and the First Lady Participate in Halloween at The White House",
       "url": "https://www.youtube.com/watch?v=--RrhTSk2L8"
+    },
+    "youtube:whitehouse:--XKObBKUZ0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-06T14:27:53.134481+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/06/XKObBKUZ0",
+      "platform": "youtube",
+      "post_id": "--XKObBKUZ0",
+      "published": "2026-06-06T12:20:56+00:00",
+      "title": "President Trump Gaggles with Press on Air Force One En Route Chippewa Falls, WI, Jun. 5, 2026",
+      "url": "https://www.youtube.com/watch?v=--XKObBKUZ0"
     },
     "youtube:whitehouse:-0CMJbUNbLo": {
       "account": "WhiteHouse",

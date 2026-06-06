@@ -1,6 +1,239 @@
 {
-  "generatedAt": "2026-06-06T12:54:11.858369+00:00",
+  "generatedAt": "2026-06-06T14:28:40.959170+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:a54f32c353caa954",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T14:27:10.584573+00:00",
+        "datePublished": "2026-06-06T13:52:27+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063257384533770240.mp4",
+            "remotePath": "archive/x/secmullindhs/nKv3o_U0cKNqtUA1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063257384533770240/vid/avc1/2160x3840/nKv3o_U0cKNqtUA1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/nKv3o_U0cKNqtUA1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063257384533770240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/nKv3o_U0cKNqtUA1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063257714365452495"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/06/2063257714365452495/README.md",
+      "path": "X/SecMullinDHS/2026/06/06/2063257714365452495/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2063257714365452495",
+      "summary": "Another busy week at DHS.",
+      "title": "Another busy week at DHS. I testified before Congress on our department\u2019s agenda and how w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:1cb6d5f1524983b3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T14:26:33.525258+00:00",
+        "datePublished": "2026-06-06T13:34:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063251832168656896.png",
+            "remotePath": "archive/x/icegov/HKIknBqWMAA8oJo.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIknBqWMAA8oJo.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKIknBqWMAA8oJo.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063251832168656896.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKIknBqWMAA8oJo.png"
+        ],
+        "platform": "X",
+        "postId": "2063253121359356237"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063253121359356237/README.md",
+      "path": "X/ICEgov/2026/06/06/2063253121359356237/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063253121359356237",
+      "summary": "Anderson Bastien",
+      "title": "Anderson Bastien \ud83d\udccdIN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arre..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:8896a22a776edb21",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T14:27:31.588618+00:00",
+        "datePublished": "2026-06-06T13:26:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063250848570818560.mp4",
+            "remotePath": "archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063250848570818560/vid/avc1/3840x2160/U5Vx8uu3nnxBdpSF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063250848570818560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063251100547874874"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063251100547874874/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063251100547874874/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063251100547874874",
+      "summary": "JOBS, JOBS, JOBS.",
+      "title": "JOBS, JOBS, JOBS. THE NUMBERS DON\u2019T MISS. \ud83d\udd25 https://t.co/HC2cbjzBNN"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:fe7838db10aaa8e0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T14:27:31.588940+00:00",
+        "datePublished": "2026-06-06T13:20:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063214598589673472.mp4",
+            "remotePath": "archive/x/whitehouse/S4RZQuXOrkLO1xgV.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2063214598589673472/pu/vid/avc1/720x900/S4RZQuXOrkLO1xgV.mp4?tag=25",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/S4RZQuXOrkLO1xgV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063214598589673472.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/S4RZQuXOrkLO1xgV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063249571195637862"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063249571195637862/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063249571195637862/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063249571195637862",
+      "summary": "Repost of @SECNAV:",
+      "title": "Repost of @SECNAV: The eyes of the world were upon them - and today, we honor their legacy..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:a2fc980efe6329dd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T14:27:31.589251+00:00",
+        "datePublished": "2026-06-06T13:19:58+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063233346495291392.jpg",
+            "remotePath": "archive/x/whitehouse/HKITzBKXoAAXYjK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKITzBKXoAAXYjK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKITzBKXoAAXYjK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063233346495291392.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKITzBKXoAAXYjK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063249540036055508"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063249540036055508/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063249540036055508/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063249540036055508",
+      "summary": "Repost of @SecWar:",
+      "title": "Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:9622f4617a2ccdbf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T14:26:41.947434+00:00",
+        "datePublished": "2026-06-06T13:10:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063225261366104064.jpg",
+            "remotePath": "archive/x/potus/HKIMcZtW0AAPPHX.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIMcZtW0AAPPHX.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKIMcZtW0AAPPHX.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063225261366104064.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKIMcZtW0AAPPHX.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063247085806252401"
+      },
+      "metadataPath": "X/POTUS/2026/06/06/2063247085806252401/README.md",
+      "path": "X/POTUS/2026/06/06/2063247085806252401/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063247085806252401",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Today, we remember the heroes of D-Day - June 6, 1944. Through extr..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-06",
+      "id": "socials:cb7bb36efeddd179",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-06T14:27:53.134481+00:00",
+        "datePublished": "2026-06-06T12:20:56+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "--XKObBKUZ0"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/06/XKObBKUZ0/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/06/XKObBKUZ0/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=--XKObBKUZ0",
+      "summary": "- [00:01.040] Hello everybody. - [00:03.200] >> So we had incredible job numbers today. - [00:05.520] You saw that. - [00:07.600] And uh we have good everything. Good - [00:10.240] good numbers, but the job numbers just - [00:12.480] came out and they were fantastic. Uh far - [00",
+      "title": "President Trump Gaggles with Press on Air Force One En Route Chippewa Falls, WI, Jun. 5, 2026"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-06",
