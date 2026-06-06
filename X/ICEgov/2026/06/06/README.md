@@ -1,7 +1,16 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 10
+- Posts: 13
 
+- [18:19 UTC - Antonio Compos-Morales 📍IN DELANEY HALL RIGHT NOW 👉Fraud conviction 👉Final removal order I...](2063324907862200477/)
+  - Source: https://x.com/ICEgov/status/2063324907862200477
+  - Antonio Compos-Morales 📍IN DELANEY HALL RIGHT NOW 👉Fraud conviction 👉Final removal order ICE @ERONewark Fugitive Operations officers arrested him in Lakewood, N.J., May 23. https:/...
+- [17:38 UTC - Repost of @DHSgov: While ICE law enforcement officers attempted to clear roadblocks anti-I...](2063314511008846074/)
+  - Source: https://x.com/ICEgov/status/2063314511008846074
+  - Repost of @DHSgov: While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed in front of Delaney Hall, an ICE law enforcement officer was punched in...
+- [17:06 UTC - Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrest...](2063306490354508276/)
+  - Source: https://x.com/ICEgov/status/2063306490354508276
+  - Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrested 4 rioters for assault of law enforcement officers, obstruction, and threats. NJ authori...
 - [16:05 UTC - ⚽ Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, a...](2063291125427814767/)
   - Source: https://x.com/ICEgov/status/2063291125427814767
   - ⚽ Counterfeit merchandise undermines legitimate business, can be dangerous to consumers, and often funds other illicit activities like drug and weapons trafficking. The ICE HSI-led...

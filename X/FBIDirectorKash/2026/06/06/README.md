@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-06
 
-- Posts: 6
+- Posts: 7
 
+- [18:06 UTC - Repost of @TheJusticeDept: Acting Attorney General @DAGToddBlanche on the arrests yesterda...](2063321651513905379/)
+  - Source: https://x.com/FBIDirectorKash/status/2063321651513905379
+  - Repost of @TheJusticeDept: Acting Attorney General @DAGToddBlanche on the arrests yesterday of three individuals who allegedly conspired to provide material support to ISIS: "Anoth...
 - [15:49 UTC - CONGRATULATIONS to my friend @DAGToddBlanche ! I’ve worked closely with Todd these last 15...](2063287215128547828/)
   - Source: https://x.com/FBIDirectorKash/status/2063287215128547828
   - CONGRATULATIONS to my friend @DAGToddBlanche ! I’ve worked closely with Todd these last 15 months and there is nobody better suited to lead the fight on making America safe again,...

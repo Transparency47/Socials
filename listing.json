@@ -1,6 +1,466 @@
 {
-  "generatedAt": "2026-06-06T17:07:38.152289+00:00",
+  "generatedAt": "2026-06-06T18:22:42.374880+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:32c6d84c7d8aa1ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:20:38.114869+00:00",
+        "datePublished": "2026-06-06T18:19:27+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063324905660108800.jpg",
+            "remotePath": "archive/x/icegov/HKJnEdoWUAAJ5mS.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJnEdoWUAAJ5mS.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKJnEdoWUAAJ5mS.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063324905660108800.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKJnEdoWUAAJ5mS.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063324907862200477"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063324907862200477/README.md",
+      "path": "X/ICEgov/2026/06/06/2063324907862200477/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063324907862200477",
+      "summary": "Antonio Compos-Morales \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Antonio Compos-Morales \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Fraud conviction \ud83d\udc49Final removal order I..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:93ddefacf1988ec9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:20:13.420652+00:00",
+        "datePublished": "2026-06-06T18:08:25+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063322132319261022"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063322132319261022/README.md",
+      "path": "X/DHSgov/2026/06/06/2063322132319261022/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063322132319261022",
+      "summary": "Play stupid games, win stupid prizes.",
+      "title": "Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforce..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:6baa7da3844eb3f6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T18:20:29.494751+00:00",
+        "datePublished": "2026-06-06T18:06:31+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063277696763772928.mp4",
+            "remotePath": "archive/x/fbidirectorkash/PbC0RhjFaZ5VBzju.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063277696763772928/vid/avc1/1280x720/PbC0RhjFaZ5VBzju.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/PbC0RhjFaZ5VBzju.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063277696763772928.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/PbC0RhjFaZ5VBzju.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063321651513905379"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063321651513905379/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063321651513905379/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063321651513905379",
+      "summary": "Repost of @TheJusticeDept:",
+      "title": "Repost of @TheJusticeDept: Acting Attorney General @DAGToddBlanche on the arrests yesterda..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:5f2c12d8d529e21f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T18:21:21.485189+00:00",
+        "datePublished": "2026-06-06T18:01:27+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063319092921077760.mp4",
+            "remotePath": "archive/x/whitehouse/Bf_M2uBJ0WY_GWoM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063319092921077760/vid/avc1/1280x720/Bf_M2uBJ0WY_GWoM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/Bf_M2uBJ0WY_GWoM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063319092921077760.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/Bf_M2uBJ0WY_GWoM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063320376398983585"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063320376398983585/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063320376398983585/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063320376398983585",
+      "summary": "Repost of @DeptofWar:",
+      "title": "Repost of @DeptofWar: HAPPY BIRTHDAY TO @SECWAR https://t.co/ItuXpIlp0k"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:9108bcbdef9da863",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:21:35.589791+00:00",
+        "datePublished": "2026-06-06T17:49:29.705000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116704295979727379.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/16f50b7757403295.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/704/295/979/727/379/original/16f50b7757403295.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/16f50b7757403295.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116704295979727379.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/16f50b7757403295.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116704422765567886"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116704422765567886/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116704422765567886/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116704422765567886",
+      "summary": "The Barack Hussein Obama Library, in 10 years, when fully matured!",
+      "title": "The Barack Hussein Obama Library, in 10 years, when fully matured!"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:f066b828affb90cd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:21:35.590561+00:00",
+        "datePublished": "2026-06-06T17:48:56.341000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116704297482767783.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/2600400ff997cd02.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/704/297/482/767/783/original/2600400ff997cd02.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2600400ff997cd02.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116704297482767783.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2600400ff997cd02.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116704420579005040"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116704420579005040/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116704420579005040/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116704420579005040",
+      "summary": "All work is complete! Great American Patriots, primarily from the Great State of Oklahoma, plus Doug Burgum, Secretary of the Interior, inspecting the very complex, but powerful, Dark Blue surface of the Reflecting Pool, prior to submerging it in CLEAN, BEAUTIFUL WATER. It was or",
+      "title": "All work is complete! Great American Patriots, primarily from the Great State of Oklahoma,..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:bfacd406587951e1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:20:13.421051+00:00",
+        "datePublished": "2026-06-06T17:42:43+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063315653931532289.jpg",
+            "remotePath": "archive/x/dhsgov/HKJep8QXgAEhQ8T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8QXgAEhQ8T.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKJep8QXgAEhQ8T.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063315653939924992.jpg",
+            "remotePath": "archive/x/dhsgov/HKJep8SXkAACwO1.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep8SXkAACwO1.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKJep8SXkAACwO1.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063315653835051008.jpg",
+            "remotePath": "archive/x/dhsgov/HKJep75XUAAlDzL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJep75XUAAlDzL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKJep75XUAAlDzL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063315653931532289.jpg",
+          "media/02_image_2063315653939924992.jpg",
+          "media/03_image_2063315653835051008.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKJep8QXgAEhQ8T.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKJep8SXkAACwO1.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKJep75XUAAlDzL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063315664463413480"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063315664463413480/README.md",
+      "path": "X/DHSgov/2026/06/06/2063315664463413480/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063315664463413480",
+      "summary": "RIOTERS WILL NOT SLOW US DOWN.",
+      "title": "RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences. If you lay a finge..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:8236a191443cd5fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T18:20:38.115295+00:00",
+        "datePublished": "2026-06-06T17:38:08+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063314511008846074"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063314511008846074/README.md",
+      "path": "X/ICEgov/2026/06/06/2063314511008846074/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063314511008846074",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: While ICE law enforcement officers attempted to clear roadblocks anti-I..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c9c8dfcf7705f9d4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:20:13.421432+00:00",
+        "datePublished": "2026-06-06T17:21:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063310053499658240.mp4",
+            "remotePath": "archive/x/dhsgov/jYeuhYjrcTlR9VyM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063310053499658240/vid/avc1/1080x1920/jYeuhYjrcTlR9VyM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/jYeuhYjrcTlR9VyM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063310053499658240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/jYeuhYjrcTlR9VyM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063310290582700317"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063310290582700317/README.md",
+      "path": "X/DHSgov/2026/06/06/2063310290582700317/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063310290582700317",
+      "summary": "Bye. Bye. Bye.",
+      "title": "Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/dTSUx6PiB0"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:e3d66bbac0e042f4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:21:21.485618+00:00",
+        "datePublished": "2026-06-06T17:18:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063309464170622976.jpg",
+            "remotePath": "archive/x/whitehouse/HKJZBpmXcAAarjC.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJZBpmXcAAarjC.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKJZBpmXcAAarjC.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063309464170622976.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKJZBpmXcAAarjC.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063309611336138814"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063309611336138814/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063309611336138814/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063309611336138814",
+      "summary": "Celebrating results for some of the most loyal, hardworking patriots, AMERICA'S FARMERS! \ud83c\uddfa\ud83c\uddf8",
+      "title": "Celebrating results for some of the most loyal, hardworking patriots, AMERICA'S FARMERS! \ud83c\uddfa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:d53ff2f833e2e052",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T18:21:21.485969+00:00",
+        "datePublished": "2026-06-06T17:10:33+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063250848570818560.mp4",
+            "remotePath": "archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063250848570818560/vid/avc1/3840x2160/U5Vx8uu3nnxBdpSF.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063250848570818560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/U5Vx8uu3nnxBdpSF.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063307571063099513"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063307571063099513/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063307571063099513/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063307571063099513",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: JOBS, JOBS, JOBS. THE NUMBERS DON\u2019T MISS. \ud83d\udd25 https://t.co/HC2cbjzBNN"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-06",
+      "id": "socials:cece01a075101bac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:21:48.425972+00:00",
+        "datePublished": "2026-06-06T17:09:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7648330572783176973.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7648330572783176973.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648330572783176973",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7648330572783176973.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7648330572783176973.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7648330572783176973.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7648330572783176973"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/06/7648330572783176973/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/06/7648330572783176973/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648330572783176973",
+      "summary": "JOBS, JOBS, JOBS \ud83d\udd25",
+      "title": "JOBS, JOBS, JOBS \ud83d\udd25"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:fe4d8c52e2f79d62",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T18:20:13.421782+00:00",
+        "datePublished": "2026-06-06T17:07:27+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063306789551022277"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063306789551022277/README.md",
+      "path": "X/DHSgov/2026/06/06/2063306789551022277/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063306789551022277",
+      "summary": "While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed in front of Delaney Hall, an ICE law enforcement officer was punched in the face by an anti-ICE agitator. Assaulting law enforcement is a crime and felony.",
+      "title": "While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:1ecda7b11d35b7eb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T18:20:38.115656+00:00",
+        "datePublished": "2026-06-06T17:06:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063306490354508276"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063306490354508276/README.md",
+      "path": "X/ICEgov/2026/06/06/2063306490354508276/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063306490354508276",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: On the night of June 5, 2026, ICE law enforcement officers arrest..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

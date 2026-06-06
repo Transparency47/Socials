@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-06
 
-- Posts: 6
+- Posts: 8
 
+- [17:49 UTC - The Barack Hussein Obama Library, in 10 years, when fully matured!](116704422765567886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116704422765567886
+  - The Barack Hussein Obama Library, in 10 years, when fully matured!
+- [17:48 UTC - All work is complete! Great American Patriots, primarily from the Great State of Oklahoma,...](116704420579005040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116704420579005040
+  - All work is complete! Great American Patriots, primarily from the Great State of Oklahoma, plus Doug Burgum, Secretary of the Interior, inspecting the very complex, but powerful, D...
 - [12:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376](116703096524227539/)
   - Source: https://truthsocial.com/@realDonaldTrump/116703096524227539
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376

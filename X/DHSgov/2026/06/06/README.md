@@ -1,7 +1,19 @@
 # X / DHSgov / 2026-06-06
 
-- Posts: 11
+- Posts: 15
 
+- [18:08 UTC - Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforce...](2063322132319261022/)
+  - Source: https://x.com/DHSgov/status/2063322132319261022
+  - Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforcement officers WILL NOT be tolerated. Our ICE law enforcement officers are facing an 8,000%...
+- [17:42 UTC - RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences. If you lay a finge...](2063315664463413480/)
+  - Source: https://x.com/DHSgov/status/2063315664463413480
+  - RIOTERS WILL NOT SLOW US DOWN. Riot and you will face the consequences. If you lay a finger on a law enforcement officer, you will be arrested. https://t.co/9uoeBoIKMX
+- [17:21 UTC - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/dTSUx6PiB0](2063310290582700317/)
+  - Source: https://x.com/DHSgov/status/2063310290582700317
+  - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/dTSUx6PiB0
+- [17:07 UTC - While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed i...](2063306789551022277/)
+  - Source: https://x.com/DHSgov/status/2063306789551022277
+  - While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed in front of Delaney Hall, an ICE law enforcement officer was punched in the face by an anti...
 - [16:46 UTC - Back story: While ICE law enforcement officers attempted to clear roadblocks anti-ICE riot...](2063301592384684506/)
   - Source: https://x.com/DHSgov/status/2063301592384684506
   - Back story: While ICE law enforcement officers attempted to clear roadblocks anti-ICE rioters placed in front of Delaney Hall, an ICE law enforcement officer was punched in the fac...

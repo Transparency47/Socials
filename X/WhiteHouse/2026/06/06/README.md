@@ -1,7 +1,16 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 11
+- Posts: 14
 
+- [18:01 UTC - Repost of @DeptofWar: HAPPY BIRTHDAY TO @SECWAR https://t.co/ItuXpIlp0k](2063320376398983585/)
+  - Source: https://x.com/WhiteHouse/status/2063320376398983585
+  - Repost of @DeptofWar: HAPPY BIRTHDAY TO @SECWAR https://t.co/ItuXpIlp0k
+- [17:18 UTC - Celebrating results for some of the most loyal, hardworking patriots, AMERICA'S FARMERS! 🇺...](2063309611336138814/)
+  - Source: https://x.com/WhiteHouse/status/2063309611336138814
+  - Celebrating results for some of the most loyal, hardworking patriots, AMERICA'S FARMERS! 🇺🇸 "Biden & the Radical Left Dumocrats in Congress crushed farmers with brutal restrictions...
+- [17:10 UTC - Repost of @WhiteHouse: JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN](2063307571063099513/)
+  - Source: https://x.com/WhiteHouse/status/2063307571063099513
+  - Repost of @WhiteHouse: JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN
 - [17:04 UTC - Repost of @SecWar: Eighty-two years ago, Allied forces stormed the beaches of Normandy int...](2063305925184688397/)
   - Source: https://x.com/WhiteHouse/status/2063305925184688397
   - Repost of @SecWar: Eighty-two years ago, Allied forces stormed the beaches of Normandy into the hell of war — answering the call of duty in defense of freedom. Today, we honor thei...
