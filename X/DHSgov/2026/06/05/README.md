@@ -1,7 +1,13 @@
 # X / DHSgov / 2026-06-05
 
-- Posts: 14
+- Posts: 16
 
+- [23:16 UTC - Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will b...](2063037181761925411/)
+  - Source: https://x.com/DHSgov/status/2063037181761925411
+  - Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will be found, arrested, and prosecuted. Law and order will prevail.
+- [23:02 UTC - Reminder: if you lay a finger on a federal officer or agent, you will face the full extent...](2063033842571653250/)
+  - Source: https://x.com/DHSgov/status/2063033842571653250
+  - Reminder: if you lay a finger on a federal officer or agent, you will face the full extent of the law. Actions have consequences. https://t.co/XbfbdN7Eec
 - [21:50 UTC - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl](2063015598628409740/)
   - Source: https://x.com/DHSgov/status/2063015598628409740
   - Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl

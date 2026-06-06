@@ -1,6 +1,612 @@
 {
-  "generatedAt": "2026-06-05T23:05:42.072115+00:00",
+  "generatedAt": "2026-06-06T00:21:07.355114+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:f5cee153952150c5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:00.908675+00:00",
+        "datePublished": "2026-06-06T00:17:55+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063052724371898368.jpg",
+            "remotePath": "archive/x/whitehouse/HKFvhbUWwAABOu2.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFvhbUWwAABOu2.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKFvhbUWwAABOu2.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063052724371898368.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKFvhbUWwAABOu2.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063052730852114774"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063052730852114774/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063052730852114774/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063052730852114774",
+      "summary": "Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm",
+      "title": "Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-05",
+      "id": "socials:b1e84d084c2126b3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:19.078414+00:00",
+        "datePublished": "2026-06-05T23:59:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7648065172673793310.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7648065172673793310.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648065172673793310",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7648065172673793310.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7648065172673793310.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7648065172673793310.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7648065172673793310"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/05/7648065172673793310/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/05/7648065172673793310/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648065172673793310",
+      "summary": "Fighting for American farmers \ud83c\uddfa\ud83c\uddf8\ud83d\udc2e\ud83e\udd20",
+      "title": "Fighting for American farmers \ud83c\uddfa\ud83c\uddf8\ud83d\udc2e\ud83e\udd20"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:07b626ff4e4ba6f7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T00:19:12.978836+00:00",
+        "datePublished": "2026-06-05T23:52:47+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063046404944044405"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2063046404944044405/README.md",
+      "path": "X/ICEgov/2026/06/05/2063046404944044405/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063046404944044405",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:c6efa2069417dee7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T00:19:20.323523+00:00",
+        "datePublished": "2026-06-05T23:42:27+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063032619554512896.jpg",
+            "remotePath": "archive/x/potus/HKFdPLCXIAAmdlH.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFdPLCXIAAmdlH.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKFdPLCXIAAmdlH.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063032619554512896.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKFdPLCXIAAmdlH.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063043804765073778"
+      },
+      "metadataPath": "X/POTUS/2026/06/05/2063043804765073778/README.md",
+      "path": "X/POTUS/2026/06/05/2063043804765073778/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063043804765073778",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:6f7ee3205b149da8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.953367+00:00",
+        "datePublished": "2026-06-05T23:39:18+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063043007302049792.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKFmr0aXoAAznUK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFmr0aXoAAznUK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKFmr0aXoAAznUK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063043007302049792.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKFmr0aXoAAznUK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063043011911491746"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063043011911491746/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063043011911491746/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063043011911491746",
+      "summary": "https://t.co/hcPxDjxiLX",
+      "title": "https://t.co/hcPxDjxiLX"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:9e99244680f1550d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:07.177665+00:00",
+        "datePublished": "2026-06-05T23:38:49.746000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116700134096664481"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116700134096664481/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700134096664481/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700134096664481",
+      "summary": "Congressman Barry Moore, an America First Patriot, and friend, who has been with me from the very beginning (he was the first Elected Official in the Country to Endorse me!), is running for the United States Senate in Alabama, a place I love and WON BIG in 2016, 2020, and 2024, g",
+      "title": "Congressman Barry Moore, an America First Patriot, and friend, who has been with me from t..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:ae0ee50671406fe4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:07.178124+00:00",
+        "datePublished": "2026-06-05T23:37:44.705000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116700129599021812.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/7f05e25ae6b3138b.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/700/129/599/021/812/original/7f05e25ae6b3138b.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7f05e25ae6b3138b.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116700129599021812.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7f05e25ae6b3138b.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116700129833996613"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116700129833996613/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700129833996613/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700129833996613",
+      "summary": "Despite the best efforts of the America Hating Dumocrat Party, which did its very best to DESTROY the U.S.A. during the four long years of the Autopen Administration, over 172,000 AMERICANS found Jobs in the month of May alone! As usual, 100 PERCENT of Bloomberg Economists (who a",
+      "title": "Despite the best efforts of the America Hating Dumocrat\u00a0Party, which did its very best to ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:491d7b5c5b904913",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:07.178835+00:00",
+        "datePublished": "2026-06-05T23:32:44.179000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116700109494218272.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/7a23a6864eeceba6.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/700/109/494/218/272/original/7a23a6864eeceba6.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7a23a6864eeceba6.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116700109494218272.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/7a23a6864eeceba6.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116700110138790417"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116700110138790417/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700110138790417/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700110138790417",
+      "summary": "Eric Metaxas, a great guy, has written an incredible new book, \u201cRevolution: The Birth of the Greatest Nation in the History of the World.\u201d As we celebrate our Nation\u2019s 250th Birthday, Eric honors the Faith, Wisdom, and Courage of the Great Patriots who sacrificed so much to secur",
+      "title": "Eric Metaxas, a great guy, has written an incredible new book, \u201cRevolution: The Birth of t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:03ba70ae5020b398",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.953677+00:00",
+        "datePublished": "2026-06-05T23:29:33+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063040559720063192"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063040559720063192/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063040559720063192/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063040559720063192",
+      "summary": "Total bullshit. Another fake hatchet job from a wannabe reporter peddling anonymous sources who don\u2019t actually know anything.",
+      "title": "Total bullshit. Another fake hatchet job from a wannabe reporter peddling anonymous source..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-05",
+      "id": "socials:42d88c1646c8b5bb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:20:07.179414+00:00",
+        "datePublished": "2026-06-05T23:28:26.660000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116700093262063892"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/05/116700093262063892/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700093262063892/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700093262063892",
+      "summary": "I am pleased to announce that TrumpRx.gov is adding another 160 Prescription Drugs, at highly discounted prices, for a new total of over 800 of the most commonly-used Prescription Drugs. TrumpRx.gov will now provide clear, transparent, and DISCOUNTED offerings for FOUR OUT OF FIV",
+      "title": "I am pleased to announce that TrumpRx.gov is adding another 160 Prescription\u00a0Drugs, at hig..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:f642567bceb4beab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:18:56.368090+00:00",
+        "datePublished": "2026-06-05T23:16:08+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063037181761925411"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2063037181761925411/README.md",
+      "path": "X/DHSgov/2026/06/05/2063037181761925411/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063037181761925411",
+      "summary": "Lawlessness will NOT be tolerated.",
+      "title": "Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will b..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:8fd546034a638c05",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.953980+00:00",
+        "datePublished": "2026-06-05T23:15:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063036478268063744.mp4",
+            "remotePath": "archive/x/rapidresponse47/7loep-WGaxsgz7GM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063036478268063744/vid/avc1/1024x576/7loep-WGaxsgz7GM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/7loep-WGaxsgz7GM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063036478268063744.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/7loep-WGaxsgz7GM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063037050912137620"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063037050912137620/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063037050912137620/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063037050912137620",
+      "summary": ".@POTUS: \"The Lincoln Memorial has always been very tied to the Potomac River but they built two roadways behind it... and we have a really beautiful plan... a beautiful series of platforms that bring you right down to the river. It's a promenade. It's a beautiful promenade.\" htt",
+      "title": ".@POTUS: \"The Lincoln Memorial has always been very tied to the Potomac River but they bui..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:4c7334663ef5df1b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T00:19:12.979139+00:00",
+        "datePublished": "2026-06-05T23:14:32+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063033792533590016.jpg",
+            "remotePath": "archive/x/icegov/HKFeTcuXcAAxDjj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTcuXcAAxDjj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKFeTcuXcAAxDjj.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063033792323796992.jpg",
+            "remotePath": "archive/x/icegov/HKFeTb8WQAAwWtf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTb8WQAAwWtf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKFeTb8WQAAwWtf.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063033792340586496.jpg",
+            "remotePath": "archive/x/icegov/HKFeTcAWcAAW_Ot.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTcAWcAAW_Ot.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKFeTcAWcAAW_Ot.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063033792533590016.jpg",
+          "media/02_image_2063033792323796992.jpg",
+          "media/03_image_2063033792340586496.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKFeTcuXcAAxDjj.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HKFeTb8WQAAwWtf.jpg",
+          "https://cdn.comparify.app/archive/x/icegov/HKFeTcAWcAAW_Ot.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063036781126160667"
+      },
+      "metadataPath": "X/ICEgov/2026/06/05/2063036781126160667/README.md",
+      "path": "X/ICEgov/2026/06/05/2063036781126160667/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063036781126160667",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Reminder: if you lay a finger on a federal officer or agent, you will f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:37c61a15b9f6cfb8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.954264+00:00",
+        "datePublished": "2026-06-05T23:12:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063036046397313024.mp4",
+            "remotePath": "archive/x/rapidresponse47/RcVwzEDMnZjwWwtc.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063036046397313024/vid/avc1/1024x576/RcVwzEDMnZjwWwtc.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/RcVwzEDMnZjwWwtc.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063036046397313024.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/RcVwzEDMnZjwWwtc.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063036351247761523"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063036351247761523/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063036351247761523/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063036351247761523",
+      "summary": "\"Who is your favorite Knick?\"",
+      "title": "\"Who is your favorite Knick?\" @POTUS: \"Well Brunson's fantastic. Towns is fantastic \u2014 they..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:2b1582c570856a25",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.954541+00:00",
+        "datePublished": "2026-06-05T23:11:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063035370858553344.mp4",
+            "remotePath": "archive/x/rapidresponse47/4Sdpkg59y4TQhqxi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063035370858553344/vid/avc1/1024x576/4Sdpkg59y4TQhqxi.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4Sdpkg59y4TQhqxi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063035370858553344.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4Sdpkg59y4TQhqxi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063035946061254741"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063035946061254741/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063035946061254741/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063035946061254741",
+      "summary": ".@POTUS shares his thoughts on Game 1 of the @NBA Finals: \"I'll be going to Game 3... I thought it was amazing. I think the @nyknicks have an amazing team, the way they played... Wemby looks like he's going to be a great player, but they really played well I thought.\" https://t.c",
+      "title": ".@POTUS shares his thoughts on Game 1 of the @NBA Finals: \"I'll be going to Game 3... I th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:d94e00c29ffa0a4f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.954820+00:00",
+        "datePublished": "2026-06-05T23:08:03+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063034768640409600.mp4",
+            "remotePath": "archive/x/rapidresponse47/3B5108ja6TQap86Z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063034768640409600/vid/avc1/1024x576/3B5108ja6TQap86Z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3B5108ja6TQap86Z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063034768640409600.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3B5108ja6TQap86Z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063035149697093672"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063035149697093672/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063035149697093672/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063035149697093672",
+      "summary": "\"How long is @pulte going to be in that position?\"",
+      "title": "\"How long is @pulte going to be in that position?\" @POTUS: \"Depends on how long it takes t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:a83ebb6757ed7de3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:19:32.955076+00:00",
+        "datePublished": "2026-06-05T23:06:15+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063034440108875776.mp4",
+            "remotePath": "archive/x/rapidresponse47/ICkiNIfpm4l-Cfxf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063034440108875776/vid/avc1/1024x576/ICkiNIfpm4l-Cfxf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ICkiNIfpm4l-Cfxf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063034440108875776.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ICkiNIfpm4l-Cfxf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063034695432962363"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/05/2063034695432962363/README.md",
+      "path": "X/RapidResponse47/2026/06/05/2063034695432962363/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063034695432962363",
+      "summary": ".@POTUS: \"We had incredible job numbers today... far better than even anticipated...\" https://t.co/bY0vt8q78o",
+      "title": ".@POTUS: \"We had incredible job numbers today... far better than even anticipated...\" http..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-05",
+      "id": "socials:cdee15940012ae5f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T00:18:56.368417+00:00",
+        "datePublished": "2026-06-05T23:02:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063033792533590016.jpg",
+            "remotePath": "archive/x/dhsgov/HKFeTcuXcAAxDjj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTcuXcAAxDjj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKFeTcuXcAAxDjj.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063033792323796992.jpg",
+            "remotePath": "archive/x/dhsgov/HKFeTb8WQAAwWtf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTb8WQAAwWtf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKFeTb8WQAAwWtf.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063033792340586496.jpg",
+            "remotePath": "archive/x/dhsgov/HKFeTcAWcAAW_Ot.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFeTcAWcAAW_Ot.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKFeTcAWcAAW_Ot.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063033792533590016.jpg",
+          "media/02_image_2063033792323796992.jpg",
+          "media/03_image_2063033792340586496.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKFeTcuXcAAxDjj.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKFeTb8WQAAwWtf.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKFeTcAWcAAW_Ot.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063033842571653250"
+      },
+      "metadataPath": "X/DHSgov/2026/06/05/2063033842571653250/README.md",
+      "path": "X/DHSgov/2026/06/05/2063033842571653250/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063033842571653250",
+      "summary": "Reminder: if you lay a finger on a federal officer or agent, you will face the full extent of the law.",
+      "title": "Reminder: if you lay a finger on a federal officer or agent, you will face the full extent..."
+    },
     {
       "category": "X",
       "date": "2026-06-05",
@@ -279,6 +885,29 @@
       "sourceUrl": "https://x.com/WhiteHouse/status/2063019738666512653",
       "summary": "Repost of @RapidResponse47:",
       "title": "Repost of @RapidResponse47: .@RepVanOrden celebrates recent wins @POTUS has achieved for W..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-05",
+      "id": "socials:3a3ab80b70c93408",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-06T00:20:22.259162+00:00",
+        "datePublished": "2026-06-05T22:06:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "0cS50WGBj84"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/05/0cS50WGBj84/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/05/0cS50WGBj84/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=0cS50WGBj84",
+      "summary": "- [00:07.200] Ladies and gentlemen, please welcome the - [00:09.840] President of the United States, Donald - [00:12.960] J. Trump. - [00:15.519] >> An American where at least I know I'm - [00:19.199] free. And I won't forget the men who - [00:23.279] died, who gave that life to ",
+      "title": "President Trump Participates in a Roundtable on American Agriculture"
     },
     {
       "category": "X",

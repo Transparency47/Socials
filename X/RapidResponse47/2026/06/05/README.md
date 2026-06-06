@@ -1,7 +1,28 @@
 # X / RapidResponse47 / 2026-06-05
 
-- Posts: 53
+- Posts: 60
 
+- [23:39 UTC - https://t.co/hcPxDjxiLX](2063043011911491746/)
+  - Source: https://x.com/RapidResponse47/status/2063043011911491746
+  - https://t.co/hcPxDjxiLX
+- [23:29 UTC - Total bullshit. Another fake hatchet job from a wannabe reporter peddling anonymous source...](2063040559720063192/)
+  - Source: https://x.com/RapidResponse47/status/2063040559720063192
+  - Total bullshit. Another fake hatchet job from a wannabe reporter peddling anonymous sources who don’t actually know anything.
+- [23:15 UTC - .@POTUS: "The Lincoln Memorial has always been very tied to the Potomac River but they bui...](2063037050912137620/)
+  - Source: https://x.com/RapidResponse47/status/2063037050912137620
+  - .@POTUS: "The Lincoln Memorial has always been very tied to the Potomac River but they built two roadways behind it... and we have a really beautiful plan... a beautiful series of...
+- [23:12 UTC - "Who is your favorite Knick?" @POTUS: "Well Brunson's fantastic. Towns is fantastic — they...](2063036351247761523/)
+  - Source: https://x.com/RapidResponse47/status/2063036351247761523
+  - "Who is your favorite Knick?" @POTUS: "Well Brunson's fantastic. Towns is fantastic — they just have a great team." https://t.co/2DUw8DN8V0
+- [23:11 UTC - .@POTUS shares his thoughts on Game 1 of the @NBA Finals: "I'll be going to Game 3... I th...](2063035946061254741/)
+  - Source: https://x.com/RapidResponse47/status/2063035946061254741
+  - .@POTUS shares his thoughts on Game 1 of the @NBA Finals: "I'll be going to Game 3... I thought it was amazing. I think the @nyknicks have an amazing team, the way they played... W...
+- [23:08 UTC - "How long is @pulte going to be in that position?" @POTUS: "Depends on how long it takes t...](2063035149697093672/)
+  - Source: https://x.com/RapidResponse47/status/2063035149697093672
+  - "How long is @pulte going to be in that position?" @POTUS: "Depends on how long it takes to get somebody approved. He'll do a very good job. He'll watch it closely. Bill Pulte's ve...
+- [23:06 UTC - .@POTUS: "We had incredible job numbers today... far better than even anticipated..." http...](2063034695432962363/)
+  - Source: https://x.com/RapidResponse47/status/2063034695432962363
+  - .@POTUS: "We had incredible job numbers today... far better than even anticipated..." https://t.co/bY0vt8q78o
 - [22:28 UTC - "There are things they never thought they'd be doing that they're going to have to do... Y...](2063025314846965804/)
   - Source: https://x.com/RapidResponse47/status/2063025314846965804
   - "There are things they never thought they'd be doing that they're going to have to do... You're talking about 47 years of getting away with whatever they wanted," says @POTUS on Ir...

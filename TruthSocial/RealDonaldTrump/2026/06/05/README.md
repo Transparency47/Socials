@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-05
 
-- Posts: 18
+- Posts: 22
 
+- [23:38 UTC - Congressman Barry Moore, an America First Patriot, and friend, who has been with me from t...](116700134096664481/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116700134096664481
+  - Congressman Barry Moore, an America First Patriot, and friend, who has been with me from the very beginning (he was the first Elected Official in the Country to Endorse me!), is ru...
+- [23:37 UTC - Despite the best efforts of the America Hating Dumocrat Party, which did its very best to ...](116700129833996613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116700129833996613
+  - Despite the best efforts of the America Hating Dumocrat Party, which did its very best to DESTROY the U.S.A. during the four long years of the Autopen Administration, over 172,000...
+- [23:32 UTC - Eric Metaxas, a great guy, has written an incredible new book, “Revolution: The Birth of t...](116700110138790417/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116700110138790417
+  - Eric Metaxas, a great guy, has written an incredible new book, “Revolution: The Birth of the Greatest Nation in the History of the World.” As we celebrate our Nation’s 250th Birthd...
+- [23:28 UTC - I am pleased to announce that TrumpRx.gov is adding another 160 Prescription Drugs, at hig...](116700093262063892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116700093262063892
+  - I am pleased to announce that TrumpRx.gov is adding another 160 Prescription Drugs, at highly discounted prices, for a new total of over 800 of the most commonly-used Prescription...
 - [18:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985](116698961983538347/)
   - Source: https://truthsocial.com/@realDonaldTrump/116698961983538347
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985

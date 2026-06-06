@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-05
 
-- Posts: 11
+- Posts: 13
 
+- [23:52 UTC - Repost of @DHSgov: Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law...](2063046404944044405/)
+  - Source: https://x.com/ICEgov/status/2063046404944044405
+  - Repost of @DHSgov: Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will be found, arrested, and prosecuted. Law and order will prevail.
+- [23:14 UTC - Repost of @DHSgov: Reminder: if you lay a finger on a federal officer or agent, you will f...](2063036781126160667/)
+  - Source: https://x.com/ICEgov/status/2063036781126160667
+  - Repost of @DHSgov: Reminder: if you lay a finger on a federal officer or agent, you will face the full extent of the law. Actions have consequences. https://t.co/XbfbdN7Eec
 - [23:00 UTC - 🚨UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges an...](2063033205641347187/)
   - Source: https://x.com/ICEgov/status/2063033205641347187
   - 🚨UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges and more related to the rollover crash that killed her 9-year-old daughter. ICE turned her o...

@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0cS50WGBj84: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0cS50WGBj84! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (0cS50WGBj84) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9133,6 +9133,17 @@
       "published": "2026-06-05T13:49:40+00:00",
       "title": "Job growth blows past expectations \ud83d\udd25",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7647907926501313805"
+    },
+    "tiktok:whitehouse:7648065172673793310": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:19.078414+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/05/7648065172673793310",
+      "platform": "tiktok",
+      "post_id": "7648065172673793310",
+      "published": "2026-06-05T23:59:16+00:00",
+      "title": "Fighting for American farmers \ud83c\uddfa\ud83c\uddf8\ud83d\udc2e\ud83e\udd20",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7648065172673793310"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -113414,6 +113425,50 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116698960799135985",
       "url": "https://truthsocial.com/@realDonaldTrump/116698961983538347"
     },
+    "truthsocial:realdonaldtrump:116700093262063892": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:07.179414+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700093262063892",
+      "platform": "truthsocial",
+      "post_id": "116700093262063892",
+      "published": "2026-06-05T23:28:26.660000+00:00",
+      "title": "I am pleased to announce that TrumpRx.gov is adding another 160 Prescription\u00a0Drugs, at hig...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700093262063892"
+    },
+    "truthsocial:realdonaldtrump:116700110138790417": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:07.178835+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700110138790417",
+      "platform": "truthsocial",
+      "post_id": "116700110138790417",
+      "published": "2026-06-05T23:32:44.179000+00:00",
+      "title": "Eric Metaxas, a great guy, has written an incredible new book, \u201cRevolution: The Birth of t...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700110138790417"
+    },
+    "truthsocial:realdonaldtrump:116700129833996613": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:07.178124+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700129833996613",
+      "platform": "truthsocial",
+      "post_id": "116700129833996613",
+      "published": "2026-06-05T23:37:44.705000+00:00",
+      "title": "Despite the best efforts of the America Hating Dumocrat\u00a0Party, which did its very best to ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700129833996613"
+    },
+    "truthsocial:realdonaldtrump:116700134096664481": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:07.177665+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/05/116700134096664481",
+      "platform": "truthsocial",
+      "post_id": "116700134096664481",
+      "published": "2026-06-05T23:38:49.746000+00:00",
+      "title": "Congressman Barry Moore, an America First Patriot, and friend, who has been with me from t...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700134096664481"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120443,6 +120498,28 @@
       "title": "Bye. Bye. Bye. https://t.co/YGo3uuNvrE https://t.co/D7CMMMpWSl",
       "url": "https://x.com/DHSgov/status/2063015598628409740"
     },
+    "x:dhsgov:2063033842571653250": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:18:56.368417+00:00",
+      "path": "X/DHSgov/2026/06/05/2063033842571653250",
+      "platform": "x",
+      "post_id": "2063033842571653250",
+      "published": "2026-06-05T23:02:52+00:00",
+      "title": "Reminder: if you lay a finger on a federal officer or agent, you will face the full extent...",
+      "url": "https://x.com/DHSgov/status/2063033842571653250"
+    },
+    "x:dhsgov:2063037181761925411": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:18:56.368090+00:00",
+      "path": "X/DHSgov/2026/06/05/2063037181761925411",
+      "platform": "x",
+      "post_id": "2063037181761925411",
+      "published": "2026-06-05T23:16:08+00:00",
+      "title": "Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will b...",
+      "url": "https://x.com/DHSgov/status/2063037181761925411"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -123567,6 +123644,28 @@
       "title": "\ud83d\udea8UPDATE: Maricopa County indicted Brenda Liliana Rivera-Estrada on manslaughter charges an...",
       "url": "https://x.com/ICEgov/status/2063033205641347187"
     },
+    "x:icegov:2063036781126160667": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T00:19:12.979139+00:00",
+      "path": "X/ICEgov/2026/06/05/2063036781126160667",
+      "platform": "x",
+      "post_id": "2063036781126160667",
+      "published": "2026-06-05T23:14:32+00:00",
+      "title": "Repost of @DHSgov: Reminder: if you lay a finger on a federal officer or agent, you will f...",
+      "url": "https://x.com/ICEgov/status/2063036781126160667"
+    },
+    "x:icegov:2063046404944044405": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T00:19:12.978836+00:00",
+      "path": "X/ICEgov/2026/06/05/2063046404944044405",
+      "platform": "x",
+      "post_id": "2063046404944044405",
+      "published": "2026-06-05T23:52:47+00:00",
+      "title": "Repost of @DHSgov: Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law...",
+      "url": "https://x.com/ICEgov/status/2063046404944044405"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -125315,6 +125414,17 @@
       "published": "2026-06-05T20:58:48+00:00",
       "title": "Repost of @WhiteHouse: President Trump Participates in a Roundtable on American Agricultur...",
       "url": "https://x.com/POTUS/status/2063002622244577560"
+    },
+    "x:potus:2063043804765073778": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T00:19:20.323523+00:00",
+      "path": "X/POTUS/2026/06/05/2063043804765073778",
+      "platform": "x",
+      "post_id": "2063043804765073778",
+      "published": "2026-06-05T23:42:27+00:00",
+      "title": "Repost of @WhiteHouse: Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi",
+      "url": "https://x.com/POTUS/status/2063043804765073778"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -127284,6 +127394,83 @@
       "published": "2026-06-05T22:28:58+00:00",
       "title": "\"There are things they never thought they'd be doing that they're going to have to do... Y...",
       "url": "https://x.com/RapidResponse47/status/2063025314846965804"
+    },
+    "x:rapidresponse47:2063034695432962363": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.955076+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063034695432962363",
+      "platform": "x",
+      "post_id": "2063034695432962363",
+      "published": "2026-06-05T23:06:15+00:00",
+      "title": ".@POTUS: \"We had incredible job numbers today... far better than even anticipated...\" http...",
+      "url": "https://x.com/RapidResponse47/status/2063034695432962363"
+    },
+    "x:rapidresponse47:2063035149697093672": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.954820+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063035149697093672",
+      "platform": "x",
+      "post_id": "2063035149697093672",
+      "published": "2026-06-05T23:08:03+00:00",
+      "title": "\"How long is @pulte going to be in that position?\" @POTUS: \"Depends on how long it takes t...",
+      "url": "https://x.com/RapidResponse47/status/2063035149697093672"
+    },
+    "x:rapidresponse47:2063035946061254741": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.954541+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063035946061254741",
+      "platform": "x",
+      "post_id": "2063035946061254741",
+      "published": "2026-06-05T23:11:13+00:00",
+      "title": ".@POTUS shares his thoughts on Game 1 of the @NBA Finals: \"I'll be going to Game 3... I th...",
+      "url": "https://x.com/RapidResponse47/status/2063035946061254741"
+    },
+    "x:rapidresponse47:2063036351247761523": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.954264+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063036351247761523",
+      "platform": "x",
+      "post_id": "2063036351247761523",
+      "published": "2026-06-05T23:12:50+00:00",
+      "title": "\"Who is your favorite Knick?\" @POTUS: \"Well Brunson's fantastic. Towns is fantastic \u2014 they...",
+      "url": "https://x.com/RapidResponse47/status/2063036351247761523"
+    },
+    "x:rapidresponse47:2063037050912137620": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.953980+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063037050912137620",
+      "platform": "x",
+      "post_id": "2063037050912137620",
+      "published": "2026-06-05T23:15:36+00:00",
+      "title": ".@POTUS: \"The Lincoln Memorial has always been very tied to the Potomac River but they bui...",
+      "url": "https://x.com/RapidResponse47/status/2063037050912137620"
+    },
+    "x:rapidresponse47:2063040559720063192": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.953677+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063040559720063192",
+      "platform": "x",
+      "post_id": "2063040559720063192",
+      "published": "2026-06-05T23:29:33+00:00",
+      "title": "Total bullshit. Another fake hatchet job from a wannabe reporter peddling anonymous source...",
+      "url": "https://x.com/RapidResponse47/status/2063040559720063192"
+    },
+    "x:rapidresponse47:2063043011911491746": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:19:32.953367+00:00",
+      "path": "X/RapidResponse47/2026/06/05/2063043011911491746",
+      "platform": "x",
+      "post_id": "2063043011911491746",
+      "published": "2026-06-05T23:39:18+00:00",
+      "title": "https://t.co/hcPxDjxiLX",
+      "url": "https://x.com/RapidResponse47/status/2063043011911491746"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -148262,6 +148449,17 @@
       "title": "Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi",
       "url": "https://x.com/WhiteHouse/status/2063032812274381078"
     },
+    "x:whitehouse:2063052730852114774": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T00:20:00.908675+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063052730852114774",
+      "platform": "x",
+      "post_id": "2063052730852114774",
+      "published": "2026-06-06T00:17:55+00:00",
+      "title": "Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm",
+      "url": "https://x.com/WhiteHouse/status/2063052730852114774"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -148723,6 +148921,17 @@
       "published": "2025-04-23T09:34:45+00:00",
       "title": "President Trump Swears In the Chairman of the Securities and Exchange Commission",
       "url": "https://www.youtube.com/watch?v=0c6pm6393C4"
+    },
+    "youtube:whitehouse:0cS50WGBj84": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-06T00:20:22.259162+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/05/0cS50WGBj84",
+      "platform": "youtube",
+      "post_id": "0cS50WGBj84",
+      "published": "2026-06-05T22:06:12+00:00",
+      "title": "President Trump Participates in a Roundtable on American Agriculture",
+      "url": "https://www.youtube.com/watch?v=0cS50WGBj84"
     },
     "youtube:whitehouse:0dBvYuDHmxU": {
       "account": "WhiteHouse",
