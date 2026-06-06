@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 4
+- Posts: 5
 
+- [09:03 UTC - Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down.](2063185067258651057/)
+  - Source: https://x.com/ICEgov/status/2063185067258651057
+  - Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down.
 - [02:42 UTC - Repost of @DHSgov: If you riot, you will be ARRESTED. We will NOT be deterred by these vio...](2063089152728485974/)
   - Source: https://x.com/ICEgov/status/2063089152728485974
   - Repost of @DHSgov: If you riot, you will be ARRESTED. We will NOT be deterred by these violent rioters. https://t.co/ts9LTFm2VK

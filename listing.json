@@ -1,6 +1,29 @@
 {
-  "generatedAt": "2026-06-06T07:38:36.776705+00:00",
+  "generatedAt": "2026-06-06T09:52:52.310367+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:e993e90556349e38",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T09:48:11.645228+00:00",
+        "datePublished": "2026-06-06T09:03:46+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063185067258651057"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063185067258651057/README.md",
+      "path": "X/ICEgov/2026/06/06/2063185067258651057/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063185067258651057",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Our message to rioters is clear: you will NOT slow us down."
+    },
     {
       "category": "X",
       "date": "2026-06-06",
