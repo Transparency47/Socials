@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Oyo9DXgMLJg: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Oyo9DXgMLJg! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Oyo9DXgMLJg&ei=uKMjapnQKtaUir4Ph4bD2Qc&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780745768&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=4CA87F82DF6999ADBEEE31DA6B4485000C369DB2.48D381399441894978CE64917242FB1895F724AF&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -113469,6 +113469,50 @@
       "title": "Congressman Barry Moore, an America First Patriot, and friend, who has been with me from t...",
       "url": "https://truthsocial.com/@realDonaldTrump/116700134096664481"
     },
+    "truthsocial:realdonaldtrump:116700314213235270": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:52.726889+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700314213235270",
+      "platform": "truthsocial",
+      "post_id": "116700314213235270",
+      "published": "2026-06-06T00:24:38.104000+00:00",
+      "title": "Truth Social post 116700314213235270",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700314213235270"
+    },
+    "truthsocial:realdonaldtrump:116700317044413863": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:52.726638+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700317044413863",
+      "platform": "truthsocial",
+      "post_id": "116700317044413863",
+      "published": "2026-06-06T00:25:21.304000+00:00",
+      "title": "The Governor of the Great State of Maryland, Wes Moore, has put a halt to all work being d...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700317044413863"
+    },
+    "truthsocial:realdonaldtrump:116700467581548341": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:52.726202+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700467581548341",
+      "platform": "truthsocial",
+      "post_id": "116700467581548341",
+      "published": "2026-06-06T01:03:38.321000+00:00",
+      "title": "I am pleased to announce the nomination of Stuart Nash to the District of Columbia Court o...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700467581548341"
+    },
+    "truthsocial:realdonaldtrump:116700520262725077": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:52.725714+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700520262725077",
+      "platform": "truthsocial",
+      "post_id": "116700520262725077",
+      "published": "2026-06-06T01:17:02.172000+00:00",
+      "title": "I am pleased to announce the nomination of Judge James Crowell to the District of Columbia...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116700520262725077"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120520,6 +120564,50 @@
       "title": "Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law enforcement will b...",
       "url": "https://x.com/DHSgov/status/2063037181761925411"
     },
+    "x:dhsgov:2063055540322734474": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:32.257252+00:00",
+      "path": "X/DHSgov/2026/06/06/2063055540322734474",
+      "platform": "x",
+      "post_id": "2063055540322734474",
+      "published": "2026-06-06T00:29:05+00:00",
+      "title": "LAW AND ORDER.",
+      "url": "https://x.com/DHSgov/status/2063055540322734474"
+    },
+    "x:dhsgov:2063074491199041565": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:32.256949+00:00",
+      "path": "X/DHSgov/2026/06/06/2063074491199041565",
+      "platform": "x",
+      "post_id": "2063074491199041565",
+      "published": "2026-06-06T01:44:23+00:00",
+      "title": "Pound sand.",
+      "url": "https://x.com/DHSgov/status/2063074491199041565"
+    },
+    "x:dhsgov:2063087158357798930": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:32.256573+00:00",
+      "path": "X/DHSgov/2026/06/06/2063087158357798930",
+      "platform": "x",
+      "post_id": "2063087158357798930",
+      "published": "2026-06-06T02:34:43+00:00",
+      "title": "If you riot, you will be ARRESTED. We will NOT be deterred by these violent rioters. https...",
+      "url": "https://x.com/DHSgov/status/2063087158357798930"
+    },
+    "x:dhsgov:2063090457681240435": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:32.256094+00:00",
+      "path": "X/DHSgov/2026/06/06/2063090457681240435",
+      "platform": "x",
+      "post_id": "2063090457681240435",
+      "published": "2026-06-06T02:47:50+00:00",
+      "title": "Our message to rioters is clear: you will NOT slow us down.",
+      "url": "https://x.com/DHSgov/status/2063090457681240435"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -123116,6 +123204,17 @@
       "title": "Make sure you are following @FBI_Response for the most up to date and TRUE information on ...",
       "url": "https://x.com/FBIDirectorKash/status/2062978580703813653"
     },
+    "x:fbidirectorkash:2063075436116967504": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:45.944476+00:00",
+      "path": "X/FBIDirectorKash/2026/06/06/2063075436116967504",
+      "platform": "x",
+      "post_id": "2063075436116967504",
+      "published": "2026-06-06T01:48:08+00:00",
+      "title": "If you betray this country we will find you, and you WILL FACE JUSTICE! https://t.co/B97S9...",
+      "url": "https://x.com/FBIDirectorKash/status/2063075436116967504"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -123665,6 +123764,50 @@
       "published": "2026-06-05T23:52:47+00:00",
       "title": "Repost of @DHSgov: Lawlessness will NOT be tolerated. ANYONE who riots or assaults our law...",
       "url": "https://x.com/ICEgov/status/2063046404944044405"
+    },
+    "x:icegov:2063061434087428369": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:34:53.336508+00:00",
+      "path": "X/ICEgov/2026/06/06/2063061434087428369",
+      "platform": "x",
+      "post_id": "2063061434087428369",
+      "published": "2026-06-06T00:52:30+00:00",
+      "title": "Repost of @DHSgov: LAW AND ORDER.",
+      "url": "https://x.com/ICEgov/status/2063061434087428369"
+    },
+    "x:icegov:2063075462788653232": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:34:53.336335+00:00",
+      "path": "X/ICEgov/2026/06/06/2063075462788653232",
+      "platform": "x",
+      "post_id": "2063075462788653232",
+      "published": "2026-06-06T01:48:15+00:00",
+      "title": "Repost of @DHSgov: Pound sand.",
+      "url": "https://x.com/ICEgov/status/2063075462788653232"
+    },
+    "x:icegov:2063078441562341426": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:34:53.336087+00:00",
+      "path": "X/ICEgov/2026/06/06/2063078441562341426",
+      "platform": "x",
+      "post_id": "2063078441562341426",
+      "published": "2026-06-06T02:00:05+00:00",
+      "title": "Hawaii police apprehended and arrested 36-year-old Jacob Daniel Baker May 28. He was wante...",
+      "url": "https://x.com/ICEgov/status/2063078441562341426"
+    },
+    "x:icegov:2063089152728485974": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:34:53.335704+00:00",
+      "path": "X/ICEgov/2026/06/06/2063089152728485974",
+      "platform": "x",
+      "post_id": "2063089152728485974",
+      "published": "2026-06-06T02:42:39+00:00",
+      "title": "Repost of @DHSgov: If you riot, you will be ARRESTED. We will NOT be deterred by these vio...",
+      "url": "https://x.com/ICEgov/status/2063089152728485974"
     },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
@@ -125426,6 +125569,28 @@
       "title": "Repost of @WhiteHouse: Keep doubting. Keep watching. https://t.co/Pq7TA2KSxi",
       "url": "https://x.com/POTUS/status/2063043804765073778"
     },
+    "x:potus:2063057966119432455": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:04.964766+00:00",
+      "path": "X/POTUS/2026/06/06/2063057966119432455",
+      "platform": "x",
+      "post_id": "2063057966119432455",
+      "published": "2026-06-06T00:38:43+00:00",
+      "title": "Repost of @WhiteHouse: President Trump has delivered for American farmers by expanding exp...",
+      "url": "https://x.com/POTUS/status/2063057966119432455"
+    },
+    "x:potus:2063058014555213985": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:04.964359+00:00",
+      "path": "X/POTUS/2026/06/06/2063058014555213985",
+      "platform": "x",
+      "post_id": "2063058014555213985",
+      "published": "2026-06-06T00:38:55+00:00",
+      "title": "Repost of @WhiteHouse: Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm",
+      "url": "https://x.com/POTUS/status/2063058014555213985"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -125898,6 +126063,17 @@
       "published": "2026-06-05T19:02:41+00:00",
       "title": "So true! Everyone follow my Deputy @ATJackson47 - she is a patriot! \ud83c\uddfa\ud83c\uddf8",
       "url": "https://x.com/PressSec/status/2062973401304621198"
+    },
+    "x:presssec:2063060747362488646": {
+      "account": "PressSec",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:11.935640+00:00",
+      "path": "X/PressSec/2026/06/06/2063060747362488646",
+      "platform": "x",
+      "post_id": "2063060747362488646",
+      "published": "2026-06-06T00:49:46+00:00",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th...",
+      "url": "https://x.com/PressSec/status/2063060747362488646"
     },
     "x:rapidresponse47:2061520562443202662": {
       "account": "RapidResponse47",
@@ -127471,6 +127647,28 @@
       "published": "2026-06-05T23:39:18+00:00",
       "title": "https://t.co/hcPxDjxiLX",
       "url": "https://x.com/RapidResponse47/status/2063043011911491746"
+    },
+    "x:rapidresponse47:2063054886514692136": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:18.172503+00:00",
+      "path": "X/RapidResponse47/2026/06/06/2063054886514692136",
+      "platform": "x",
+      "post_id": "2063054886514692136",
+      "published": "2026-06-06T00:26:29+00:00",
+      "title": "https://t.co/4z21LF7eMP",
+      "url": "https://x.com/RapidResponse47/status/2063054886514692136"
+    },
+    "x:rapidresponse47:2063055378888163727": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:18.172178+00:00",
+      "path": "X/RapidResponse47/2026/06/06/2063055378888163727",
+      "platform": "x",
+      "post_id": "2063055378888163727",
+      "published": "2026-06-06T00:28:26+00:00",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th...",
+      "url": "https://x.com/RapidResponse47/status/2063055378888163727"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -148459,6 +148657,39 @@
       "published": "2026-06-06T00:17:55+00:00",
       "title": "Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm",
       "url": "https://x.com/WhiteHouse/status/2063052730852114774"
+    },
+    "x:whitehouse:2063056943485235217": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:43.571451+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063056943485235217",
+      "platform": "x",
+      "post_id": "2063056943485235217",
+      "published": "2026-06-06T00:34:39+00:00",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th...",
+      "url": "https://x.com/WhiteHouse/status/2063056943485235217"
+    },
+    "x:whitehouse:2063066092046561507": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T04:35:43.571235+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063066092046561507",
+      "platform": "x",
+      "post_id": "2063066092046561507",
+      "published": "2026-06-06T01:11:00+00:00",
+      "title": "NEVER STOP FIGHTING FOR AMERICA'S FARMERS! \ud83c\uddfa\ud83c\uddf8\ud83c\udf3e https://t.co/Asynz9lQb4",
+      "url": "https://x.com/WhiteHouse/status/2063066092046561507"
+    },
+    "x:whitehouse:2063072179927794026": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-06T04:35:43.570935+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063072179927794026",
+      "platform": "x",
+      "post_id": "2063072179927794026",
+      "published": "2026-06-06T01:35:12+00:00",
+      "title": "Repost of @AndrewHGiuliani: \ud83c\uddfa\ud83c\uddf8 Thanks to President Trump\u2019s leadership, American veterans a...",
+      "url": "https://x.com/WhiteHouse/status/2063072179927794026"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

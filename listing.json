@@ -1,6 +1,597 @@
 {
-  "generatedAt": "2026-06-06T00:21:07.355114+00:00",
+  "generatedAt": "2026-06-06T04:39:33.821747+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:51482de5e2ff9f1d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:32.256094+00:00",
+        "datePublished": "2026-06-06T02:47:50+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063090457681240435"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063090457681240435/README.md",
+      "path": "X/DHSgov/2026/06/06/2063090457681240435/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063090457681240435",
+      "summary": "Our message to rioters is clear: you will NOT slow us down.",
+      "title": "Our message to rioters is clear: you will NOT slow us down."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:cac2cc100d109d77",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:34:53.335704+00:00",
+        "datePublished": "2026-06-06T02:42:39+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063086800877305856.mp4",
+            "remotePath": "archive/x/icegov/xyVSaZ9KlzzmglCo.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063086800877305856/vid/avc1/1920x1080/xyVSaZ9KlzzmglCo.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/xyVSaZ9KlzzmglCo.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063086800877305856.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/xyVSaZ9KlzzmglCo.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063089152728485974"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063089152728485974/README.md",
+      "path": "X/ICEgov/2026/06/06/2063089152728485974/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063089152728485974",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: If you riot, you will be ARRESTED. We will NOT be deterred by these vio..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c6636137cba93fbc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:32.256573+00:00",
+        "datePublished": "2026-06-06T02:34:43+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063086800877305856.mp4",
+            "remotePath": "archive/x/dhsgov/xyVSaZ9KlzzmglCo.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063086800877305856/vid/avc1/1920x1080/xyVSaZ9KlzzmglCo.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/xyVSaZ9KlzzmglCo.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063086800877305856.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/xyVSaZ9KlzzmglCo.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063087158357798930"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063087158357798930/README.md",
+      "path": "X/DHSgov/2026/06/06/2063087158357798930/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063087158357798930",
+      "summary": "If you riot, you will be ARRESTED.",
+      "title": "If you riot, you will be ARRESTED. We will NOT be deterred by these violent rioters. https..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:2360a1cf98a98fea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:53.336087+00:00",
+        "datePublished": "2026-06-06T02:00:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063077220357111808.mp4",
+            "remotePath": "archive/x/icegov/HTfVCyhQUjf-i_Wj.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2063077220357111808/pu/vid/avc1/1280x720/HTfVCyhQUjf-i_Wj.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HTfVCyhQUjf-i_Wj.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063077220357111808.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HTfVCyhQUjf-i_Wj.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063078441562341426"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063078441562341426/README.md",
+      "path": "X/ICEgov/2026/06/06/2063078441562341426/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063078441562341426",
+      "summary": "Hawaii police apprehended and arrested 36-year-old Jacob Daniel Baker May 28. He was wanted in connection with the murders of three elderly men in Puna in a matter of two days.",
+      "title": "Hawaii police apprehended and arrested 36-year-old Jacob Daniel Baker May 28. He was wante..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:9f886b65587370d4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:34:53.336335+00:00",
+        "datePublished": "2026-06-06T01:48:15+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063075462788653232"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063075462788653232/README.md",
+      "path": "X/ICEgov/2026/06/06/2063075462788653232/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063075462788653232",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Pound sand."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:43bfc61d2fd2155d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:45.944476+00:00",
+        "datePublished": "2026-06-06T01:48:08+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063075429733318656.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKGELDYXQAAH-N.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKGELDYXQAAH-N_.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKGELDYXQAAH-N.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063075429733318656.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKGELDYXQAAH-N.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063075436116967504"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063075436116967504/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063075436116967504/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063075436116967504",
+      "summary": "If you betray this country we will find you, and you WILL FACE JUSTICE! https://t.co/B97S9mnvbj",
+      "title": "If you betray this country we will find you, and you WILL FACE JUSTICE! https://t.co/B97S9..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:826e45d317068722",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:32.256949+00:00",
+        "datePublished": "2026-06-06T01:44:23+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063074491199041565"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063074491199041565/README.md",
+      "path": "X/DHSgov/2026/06/06/2063074491199041565/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063074491199041565",
+      "summary": "Pound sand.",
+      "title": "Pound sand."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:427a708224231982",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:43.570935+00:00",
+        "datePublished": "2026-06-06T01:35:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063067795689033728.mp4",
+            "remotePath": "archive/x/whitehouse/S7EoP8YcD8ZavY5C.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063067795689033728/vid/avc1/2994x2158/S7EoP8YcD8ZavY5C.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/S7EoP8YcD8ZavY5C.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063067795689033728.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/S7EoP8YcD8ZavY5C.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063072179927794026"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063072179927794026/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063072179927794026/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063072179927794026",
+      "summary": "Repost of @AndrewHGiuliani:",
+      "title": "Repost of @AndrewHGiuliani: \ud83c\uddfa\ud83c\uddf8 Thanks to President Trump\u2019s leadership, American veterans a..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:25baae107dbb2bab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:52.725714+00:00",
+        "datePublished": "2026-06-06T01:17:02.172000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116700520262725077"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116700520262725077/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700520262725077/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700520262725077",
+      "summary": "I am pleased to announce the nomination of Judge James Crowell to the District of Columbia Court of Appeals! James is one of the best Judges on the D.C. Superior Court, and previously served as a Senior DOJ Official, and Chief of the Criminal Division in the Maryland U.S. Attorne",
+      "title": "I am pleased to announce the nomination of Judge James Crowell to the District of Columbia..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:d8f568c196957b71",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:43.571235+00:00",
+        "datePublished": "2026-06-06T01:11:00+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063066087818678273.jpg",
+            "remotePath": "archive/x/whitehouse/HKF7rSCWUAElOcL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKF7rSCWUAElOcL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKF7rSCWUAElOcL.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063066087818678273.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKF7rSCWUAElOcL.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063066092046561507"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063066092046561507/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063066092046561507/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063066092046561507",
+      "summary": "NEVER STOP FIGHTING FOR AMERICA'S FARMERS! \ud83c\uddfa\ud83c\uddf8\ud83c\udf3e https://t.co/Asynz9lQb4",
+      "title": "NEVER STOP FIGHTING FOR AMERICA'S FARMERS! \ud83c\uddfa\ud83c\uddf8\ud83c\udf3e https://t.co/Asynz9lQb4"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:0c5d3d48c4e2702d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:52.726202+00:00",
+        "datePublished": "2026-06-06T01:03:38.321000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116700467581548341"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116700467581548341/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700467581548341/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700467581548341",
+      "summary": "I am pleased to announce the nomination of Stuart Nash to the District of Columbia Court of Appeals! Stuart is currently a Partner at Holland & Knight LLP, and previously served as a Judge on the D.C. Superior Court. He also worked as a Senior Official in the Office of the Deputy",
+      "title": "I am pleased to announce the nomination of Stuart Nash to the District of Columbia Court o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:53b05bb830cc9970",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:34:53.336508+00:00",
+        "datePublished": "2026-06-06T00:52:30+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063061434087428369"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063061434087428369/README.md",
+      "path": "X/ICEgov/2026/06/06/2063061434087428369/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063061434087428369",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: LAW AND ORDER."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:75f119264b9321c0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "PressSec",
+        "accountDisplayName": "Karoline Leavitt",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:11.935640+00:00",
+        "datePublished": "2026-06-06T00:49:46+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063060747362488646"
+      },
+      "metadataPath": "X/PressSec/2026/06/06/2063060747362488646/README.md",
+      "path": "X/PressSec/2026/06/06/2063060747362488646/POST.md",
+      "sourceUrl": "https://x.com/PressSec/status/2063060747362488646",
+      "summary": "Repost of @SusieWiles47:",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c9fbb1206a7821a7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:04.964359+00:00",
+        "datePublished": "2026-06-06T00:38:55+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063052724371898368.jpg",
+            "remotePath": "archive/x/potus/HKFvhbUWwAABOu2.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFvhbUWwAABOu2.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKFvhbUWwAABOu2.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063052724371898368.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKFvhbUWwAABOu2.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063058014555213985"
+      },
+      "metadataPath": "X/POTUS/2026/06/06/2063058014555213985/README.md",
+      "path": "X/POTUS/2026/06/06/2063058014555213985/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063058014555213985",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Patriots in control. \ud83e\udee1 https://t.co/8oykFqSPIm"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c7ae3deb82d044ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:04.964766+00:00",
+        "datePublished": "2026-06-06T00:38:43+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063057966119432455"
+      },
+      "metadataPath": "X/POTUS/2026/06/06/2063057966119432455/README.md",
+      "path": "X/POTUS/2026/06/06/2063057966119432455/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063057966119432455",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump has delivered for American farmers by expanding exp..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:2fd83a45174aca2f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:43.571451+00:00",
+        "datePublished": "2026-06-06T00:34:39+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063056943485235217"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063056943485235217/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063056943485235217/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063056943485235217",
+      "summary": "Repost of @SusieWiles47:",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:0c5933dc068a5cf3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:34:32.257252+00:00",
+        "datePublished": "2026-06-06T00:29:05+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063055540322734474"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063055540322734474/README.md",
+      "path": "X/DHSgov/2026/06/06/2063055540322734474/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063055540322734474",
+      "summary": "LAW AND ORDER.",
+      "title": "LAW AND ORDER."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:e2a91587c09585fb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T04:35:18.172178+00:00",
+        "datePublished": "2026-06-06T00:28:26+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063055378888163727"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063055378888163727/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063055378888163727/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063055378888163727",
+      "summary": "Repost of @SusieWiles47:",
+      "title": "Repost of @SusieWiles47: After an accomplishment filled week by President Trump, I have th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:256b7345663de279",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:18.172503+00:00",
+        "datePublished": "2026-06-06T00:26:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063054882504929280.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKFxfC_XcAAWJ3B.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFxfC_XcAAWJ3B.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKFxfC_XcAAWJ3B.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063054882504929280.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKFxfC_XcAAWJ3B.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063054886514692136"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063054886514692136/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063054886514692136/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063054886514692136",
+      "summary": "https://t.co/4z21LF7eMP",
+      "title": "https://t.co/4z21LF7eMP"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:e6a20bf58fad69b9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:52.726638+00:00",
+        "datePublished": "2026-06-06T00:25:21.304000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116700317044413863"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116700317044413863/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700317044413863/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700317044413863",
+      "summary": "The Governor of the Great State of Maryland, Wes Moore, has put a halt to all work being done at Joint Base Andrews Air Force Base, concerning the renovation and restoration of their two old and dilapidated Golf Courses, into two, World Class, Jack Nicklaus Designed Courses, plus",
+      "title": "The Governor of the Great State of Maryland, Wes Moore, has put a halt to all work being d..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:45dc526b1025eb66",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T04:35:52.726889+00:00",
+        "datePublished": "2026-06-06T00:24:38.104000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116700313649815447.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/2d7ef81b647ad600.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/700/313/649/815/447/original/2d7ef81b647ad600.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2d7ef81b647ad600.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116700313649815447.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/2d7ef81b647ad600.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116700314213235270"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116700314213235270/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116700314213235270/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116700314213235270",
+      "summary": null,
+      "title": "Truth Social post 116700314213235270"
+    },
     {
       "category": "X",
       "date": "2026-06-06",
