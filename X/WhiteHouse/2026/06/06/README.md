@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 5
+- Posts: 6
 
+- [11:43 UTC - Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and s...](2063225265581330705/)
+  - Source: https://x.com/WhiteHouse/status/2063225265581330705
+  - Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and sacrifice, American troops stormed the beaches of Normandy, defeated tyranny, and helped se...
 - [11:11 UTC - Repost of @DOWResponse: .@SECWAR “To the veterans who are here today—who served in France ...](2063217314389017086/)
   - Source: https://x.com/WhiteHouse/status/2063217314389017086
   - Repost of @DOWResponse: .@SECWAR “To the veterans who are here today—who served in France and around the globe: Gentlemen, we love you. We owe you a debt of gratitude.” https://t.c...

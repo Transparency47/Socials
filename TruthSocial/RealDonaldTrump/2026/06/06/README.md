@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-06
 
-- Posts: 4
+- Posts: 6
 
+- [12:12 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376](116703096524227539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116703096524227539
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376
+- [12:11 UTC - Truth Social post 116703094991947376](116703094991947376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116703094991947376
+  - _No text content captured._
 - [01:17 UTC - I am pleased to announce the nomination of Judge James Crowell to the District of Columbia...](116700520262725077/)
   - Source: https://truthsocial.com/@realDonaldTrump/116700520262725077
   - I am pleased to announce the nomination of Judge James Crowell to the District of Columbia Court of Appeals! James is one of the best Judges on the D.C. Superior Court, and previou...

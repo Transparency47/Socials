@@ -1,6 +1,111 @@
 {
-  "generatedAt": "2026-06-06T11:21:34.061825+00:00",
+  "generatedAt": "2026-06-06T12:54:11.858369+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:cded61a177970d91",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T12:51:11.268724+00:00",
+        "datePublished": "2026-06-06T12:12:12.897000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116703096249301801.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/d8073e84c999f42f.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/703/096/249/301/801/original/d8073e84c999f42f.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d8073e84c999f42f.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116703096249301801.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d8073e84c999f42f.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116703096524227539"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116703096524227539/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116703096524227539/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116703096524227539",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:e2137da31bde76f8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T12:51:11.269042+00:00",
+        "datePublished": "2026-06-06T12:11:49.489000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116703092875940408.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a9996d0bc986f1f1.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/703/092/875/940/408/original/a9996d0bc986f1f1.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a9996d0bc986f1f1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116703092875940408.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a9996d0bc986f1f1.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116703094991947376"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116703094991947376/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116703094991947376/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116703094991947376",
+      "summary": null,
+      "title": "Truth Social post 116703094991947376"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:44d181bc8d2a69a0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T12:51:04.876274+00:00",
+        "datePublished": "2026-06-06T11:43:30+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063225261366104064.jpg",
+            "remotePath": "archive/x/whitehouse/HKIMcZtW0AAPPHX.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIMcZtW0AAPPHX.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKIMcZtW0AAPPHX.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063225261366104064.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKIMcZtW0AAPPHX.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063225265581330705"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063225265581330705/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063225265581330705/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063225265581330705",
+      "summary": "Today, we remember the heroes of D-Day - June 6, 1944.",
+      "title": "Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and s..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

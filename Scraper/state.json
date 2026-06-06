@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=--XKObBKUZ0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=--XKObBKUZ0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=--XKObBKUZ0&ei=zBckaoHnK9WHkucPvvKT6AE&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780775484&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=AF5AD250892282810B9F5EFCB324B6215785FDCE.322A0C9EEE8A477A33B0C83106E080526CC6CDF9&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -113513,6 +113513,28 @@
       "title": "I am pleased to announce the nomination of Judge James Crowell to the District of Columbia...",
       "url": "https://truthsocial.com/@realDonaldTrump/116700520262725077"
     },
+    "truthsocial:realdonaldtrump:116703094991947376": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T12:51:11.269042+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116703094991947376",
+      "platform": "truthsocial",
+      "post_id": "116703094991947376",
+      "published": "2026-06-06T12:11:49.489000+00:00",
+      "title": "Truth Social post 116703094991947376",
+      "url": "https://truthsocial.com/@realDonaldTrump/116703094991947376"
+    },
+    "truthsocial:realdonaldtrump:116703096524227539": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T12:51:11.268724+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116703096524227539",
+      "platform": "truthsocial",
+      "post_id": "116703096524227539",
+      "published": "2026-06-06T12:12:12.897000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116703094991947376",
+      "url": "https://truthsocial.com/@realDonaldTrump/116703096524227539"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -148712,6 +148734,17 @@
       "published": "2026-06-06T11:11:55+00:00",
       "title": "Repost of @DOWResponse: .@SECWAR \u201cTo the veterans who are here today\u2014who served in France ...",
       "url": "https://x.com/WhiteHouse/status/2063217314389017086"
+    },
+    "x:whitehouse:2063225265581330705": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-06T12:51:04.876274+00:00",
+      "path": "X/WhiteHouse/2026/06/06/2063225265581330705",
+      "platform": "x",
+      "post_id": "2063225265581330705",
+      "published": "2026-06-06T11:43:30+00:00",
+      "title": "Today, we remember the heroes of D-Day - June 6, 1944. Through extraordinary courage and s...",
+      "url": "https://x.com/WhiteHouse/status/2063225265581330705"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
