@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-06
 
-- Posts: 8
+- Posts: 13
 
+- [20:24 UTC - This will someday save Washington. Judge Leon has to get out of the way, and FAST. He is p...](116705031438300324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116705031438300324
+  - This will someday save Washington. Judge Leon has to get out of the way, and FAST. He is putting our Country in danger!
+- [20:23 UTC - Truth Social post 116705030219403020](116705030219403020/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116705030219403020
+  - _No text content captured._
+- [20:23 UTC - Truth Social post 116705029461901408](116705029461901408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116705029461901408
+  - _No text content captured._
+- [20:23 UTC - Truth Social post 116705028510137698](116705028510137698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116705028510137698
+  - _No text content captured._
+- [20:23 UTC - Truth Social post 116705027777737558](116705027777737558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116705027777737558
+  - _No text content captured._
 - [17:49 UTC - The Barack Hussein Obama Library, in 10 years, when fully matured!](116704422765567886/)
   - Source: https://truthsocial.com/@realDonaldTrump/116704422765567886
   - The Barack Hussein Obama Library, in 10 years, when fully matured!

@@ -1,6 +1,379 @@
 {
-  "generatedAt": "2026-06-06T19:54:38.573562+00:00",
+  "generatedAt": "2026-06-06T20:59:17.793837+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:41faf54acf7fbf00",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:57:16.238682+00:00",
+        "datePublished": "2026-06-06T20:47:45+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063362226518462464.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKKJA0qXkAAAfr2.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKJA0qXkAAAfr2.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKKJA0qXkAAAfr2.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063362226518462464.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKKJA0qXkAAAfr2.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063362229467066628"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063362229467066628/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063362229467066628/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063362229467066628",
+      "summary": "June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of Normandy during World War II - securing the blessing of freedom for generations of Americans to come.",
+      "title": "June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of N..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:6b7a00fb5a02ab71",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T20:57:23.692680+00:00",
+        "datePublished": "2026-06-06T20:47:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063352966896066560.mp4",
+            "remotePath": "archive/x/icegov/SA6xPOFVvEB4B5UP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063352966896066560/vid/avc1/2160x3840/SA6xPOFVvEB4B5UP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/SA6xPOFVvEB4B5UP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063352966896066560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/SA6xPOFVvEB4B5UP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063362197636424087"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063362197636424087/README.md",
+      "path": "X/ICEgov/2026/06/06/2063362197636424087/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063362197636424087",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Riot and you\u2019ll be arrested. https://t.co/7cSIjkBP8E"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:b3c64f2c0994333e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:57:45.264920+00:00",
+        "datePublished": "2026-06-06T20:24:57+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063356486890278912.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKKDyu4X0AArlnl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKDyu4X0AArlnl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKKDyu4X0AArlnl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063356486890278912.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKKDyu4X0AArlnl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063356489696223692"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063356489696223692/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063356489696223692/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063356489696223692",
+      "summary": "https://t.co/SG55wTAlOb",
+      "title": "https://t.co/SG55wTAlOb"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:273b2c97ac93bf6f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:58:13.942492+00:00",
+        "datePublished": "2026-06-06T20:24:17.312000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116705030652242478.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/4443b942bbc533cc.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/705/030/652/242/478/original/4443b942bbc533cc.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4443b942bbc533cc.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116705030652242478.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4443b942bbc533cc.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116705031438300324"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116705031438300324/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116705031438300324/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116705031438300324",
+      "summary": "This will someday save Washington. Judge Leon has to get out of the way, and FAST. He is putting our Country in danger!",
+      "title": "This will someday save Washington. Judge Leon has to get out of the way, and FAST. He is p..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:5ad5227f408dfa57",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:58:13.942880+00:00",
+        "datePublished": "2026-06-06T20:23:58.718000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116705029999862204.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/70ba054abefe4f47.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/705/029/999/862/204/original/70ba054abefe4f47.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/70ba054abefe4f47.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116705029999862204.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/70ba054abefe4f47.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116705030219403020"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116705030219403020/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116705030219403020/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116705030219403020",
+      "summary": null,
+      "title": "Truth Social post 116705030219403020"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:06ee90c7e1fcd9a8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:58:13.943178+00:00",
+        "datePublished": "2026-06-06T20:23:47.157000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116705029234917617.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/155d2f7b4f1bfd01.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/705/029/234/917/617/original/155d2f7b4f1bfd01.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/155d2f7b4f1bfd01.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116705029234917617.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/155d2f7b4f1bfd01.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116705029461901408"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116705029461901408/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116705029461901408/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116705029461901408",
+      "summary": null,
+      "title": "Truth Social post 116705029461901408"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:dfbefdde01ea5163",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:58:13.943462+00:00",
+        "datePublished": "2026-06-06T20:23:32.634000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116705028269517648.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/9c5dc6bdab97817e.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/705/028/269/517/648/original/9c5dc6bdab97817e.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9c5dc6bdab97817e.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116705028269517648.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/9c5dc6bdab97817e.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116705028510137698"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116705028510137698/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116705028510137698/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116705028510137698",
+      "summary": null,
+      "title": "Truth Social post 116705028510137698"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-06",
+      "id": "socials:8c404078cebe047c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:58:13.943768+00:00",
+        "datePublished": "2026-06-06T20:23:21.458000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116705027546587180.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/19ea8f22288e98a6.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/705/027/546/587/180/original/19ea8f22288e98a6.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/19ea8f22288e98a6.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116705027546587180.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/19ea8f22288e98a6.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116705027777737558"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/06/116705027777737558/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/06/116705027777737558/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116705027777737558",
+      "summary": null,
+      "title": "Truth Social post 116705027777737558"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:46ed7c7cc48bfb7b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:57:02.078390+00:00",
+        "datePublished": "2026-06-06T20:11:34+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063352966896066560.mp4",
+            "remotePath": "archive/x/dhsgov/SA6xPOFVvEB4B5UP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063352966896066560/vid/avc1/2160x3840/SA6xPOFVvEB4B5UP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/SA6xPOFVvEB4B5UP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063352966896066560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/SA6xPOFVvEB4B5UP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063353121359704093"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063353121359704093/README.md",
+      "path": "X/DHSgov/2026/06/06/2063353121359704093/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063353121359704093",
+      "summary": "Riot and you\u2019ll be arrested. https://t.co/7cSIjkBP8E",
+      "title": "Riot and you\u2019ll be arrested. https://t.co/7cSIjkBP8E"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:620a69a4628fbc7a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T20:57:16.239214+00:00",
+        "datePublished": "2026-06-06T20:07:45+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063233346495291392.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKITzBKXoAAXYjK.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKITzBKXoAAXYjK.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKITzBKXoAAXYjK.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063233346495291392.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKITzBKXoAAXYjK.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063352162437234971"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063352162437234971/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063352162437234971/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063352162437234971",
+      "summary": "Repost of @SecWar:",
+      "title": "Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:de90ecd623b18c02",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T20:57:23.693062+00:00",
+        "datePublished": "2026-06-06T20:00:35+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063350358970151161"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063350358970151161/README.md",
+      "path": "X/ICEgov/2026/06/06/2063350358970151161/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063350358970151161",
+      "summary": "Assaults against our law enforcement officers WILL NOT be tolerated.",
+      "title": "Assaults against our law enforcement officers WILL NOT be tolerated."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

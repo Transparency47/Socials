@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-06
 
-- Posts: 15
+- Posts: 16
 
+- [20:11 UTC - Riot and you’ll be arrested. https://t.co/7cSIjkBP8E](2063353121359704093/)
+  - Source: https://x.com/DHSgov/status/2063353121359704093
+  - Riot and you’ll be arrested. https://t.co/7cSIjkBP8E
 - [18:08 UTC - Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforce...](2063322132319261022/)
   - Source: https://x.com/DHSgov/status/2063322132319261022
   - Play stupid games, win stupid prizes. Threats, assaults, and abuse towards our law enforcement officers WILL NOT be tolerated. Our ICE law enforcement officers are facing an 8,000%...

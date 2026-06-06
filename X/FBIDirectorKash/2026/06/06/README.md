@@ -1,7 +1,13 @@
 # X / FBIDirectorKash / 2026-06-06
 
-- Posts: 7
+- Posts: 9
 
+- [20:47 UTC - June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of N...](2063362229467066628/)
+  - Source: https://x.com/FBIDirectorKash/status/2063362229467066628
+  - June 6, 1944 - today we honor the greatest generation who bravely stormed the beaches of Normandy during World War II - securing the blessing of freedom for generations of American...
+- [20:07 UTC - Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, an...](2063352162437234971/)
+  - Source: https://x.com/FBIDirectorKash/status/2063352162437234971
+  - Repost of @SecWar: Eighty-two years ago today, freedom stood on the edge of extinction, and Allied forces stormed into hell to help save the world. We will never forget the courage...
 - [18:06 UTC - Repost of @TheJusticeDept: Acting Attorney General @DAGToddBlanche on the arrests yesterda...](2063321651513905379/)
   - Source: https://x.com/FBIDirectorKash/status/2063321651513905379
   - Repost of @TheJusticeDept: Acting Attorney General @DAGToddBlanche on the arrests yesterday of three individuals who allegedly conspired to provide material support to ISIS: "Anoth...

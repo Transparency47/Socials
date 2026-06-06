@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 18
+- Posts: 20
 
+- [20:47 UTC - Repost of @DHSgov: Riot and you’ll be arrested. https://t.co/7cSIjkBP8E](2063362197636424087/)
+  - Source: https://x.com/ICEgov/status/2063362197636424087
+  - Repost of @DHSgov: Riot and you’ll be arrested. https://t.co/7cSIjkBP8E
+- [20:00 UTC - Assaults against our law enforcement officers WILL NOT be tolerated.](2063350358970151161/)
+  - Source: https://x.com/ICEgov/status/2063350358970151161
+  - Assaults against our law enforcement officers WILL NOT be tolerated.
 - [19:35 UTC - Johanna Sata Arroyave 📍IN DELANEY HALL RIGHT NOW 👉Credit card theft 👉Credit card crime 👉Fr...](2063343973490373115/)
   - Source: https://x.com/ICEgov/status/2063343973490373115
   - Johanna Sata Arroyave 📍IN DELANEY HALL RIGHT NOW 👉Credit card theft 👉Credit card crime 👉Fraudulent use of a credit card ICE arrested Santa Arroyave upon her release from the jail i...
