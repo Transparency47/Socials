@@ -1,7 +1,22 @@
 # X / DHSgov / 2026-06-06
 
-- Posts: 4
+- Posts: 9
 
+- [15:11 UTC - .@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-borde...](2063277577179963517/)
+  - Source: https://x.com/DHSgov/status/2063277577179963517
+  - .@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine. Under the leadership of @POTUS...
+- [14:57 UTC - Repost of @SecMullinDHS: Another busy week at DHS. I testified before Congress on our depa...](2063274132364509542/)
+  - Source: https://x.com/DHSgov/status/2063274132364509542
+  - Repost of @SecMullinDHS: Another busy week at DHS. I testified before Congress on our department’s agenda and how we’re working to protect our homeland. Yesterday, I had the privil...
+- [14:46 UTC - Don’t even think about coming to our country illegally. If you do, we will find you and ar...](2063271221521797331/)
+  - Source: https://x.com/DHSgov/status/2063271221521797331
+  - Don’t even think about coming to our country illegally. If you do, we will find you and arrest you. Our borders are CLOSED. https://t.co/6d27Q6zOgj
+- [14:30 UTC - Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and c...](2063267232658936017/)
+  - Source: https://x.com/DHSgov/status/2063267232658936017
+  - Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and committed several violent crimes including a hit-and-run car crash AND pouring a gallon of...
+- [14:29 UTC - Repost of @USCG: It’s official! Training Center Birmingham-Southern is open for business. ...](2063266968233214429/)
+  - Source: https://x.com/DHSgov/status/2063266968233214429
+  - Repost of @USCG: It’s official! Training Center Birmingham-Southern is open for business. Yesterday, we cut the ribbon on the home of our Enlisted Training Center of Excellence. Bi...
 - [02:47 UTC - Our message to rioters is clear: you will NOT slow us down.](2063090457681240435/)
   - Source: https://x.com/DHSgov/status/2063090457681240435
   - Our message to rioters is clear: you will NOT slow us down.

@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 6
+- Posts: 8
 
+- [15:50 UTC - Repost of @DHSgov: Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a ...](2063287535762124950/)
+  - Source: https://x.com/ICEgov/status/2063287535762124950
+  - Repost of @DHSgov: Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and committed several violent crimes including a hit-and-run car crash AND p...
+- [15:50 UTC - Repost of @DHSgov: Don’t even think about coming to our country illegally. If you do, we w...](2063287508037677134/)
+  - Source: https://x.com/ICEgov/status/2063287508037677134
+  - Repost of @DHSgov: Don’t even think about coming to our country illegally. If you do, we will find you and arrest you. Our borders are CLOSED. https://t.co/6d27Q6zOgj
 - [13:34 UTC - Anderson Bastien 📍IN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arre...](2063253121359356237/)
   - Source: https://x.com/ICEgov/status/2063253121359356237
   - Anderson Bastien 📍IN DELANEY HALL RIGHT NOW ICE took custody of Bastien following his arrest for domestic violence April 21. That case is still pending, but due to the violent natu...

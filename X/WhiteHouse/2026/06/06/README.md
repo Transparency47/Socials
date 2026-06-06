@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 9
+- Posts: 10
 
+- [15:41 UTC - Repost of @Interior: This morning at the World War II Memorial, we pause to honor the cour...](2063285199547339096/)
+  - Source: https://x.com/WhiteHouse/status/2063285199547339096
+  - Repost of @Interior: This morning at the World War II Memorial, we pause to honor the courage and sacrifice of those who stormed the beaches of Normandy 82 years ago today. 🇺🇸 Phot...
 - [13:26 UTC - JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN](2063251100547874874/)
   - Source: https://x.com/WhiteHouse/status/2063251100547874874
   - JOBS, JOBS, JOBS. THE NUMBERS DON’T MISS. 🔥 https://t.co/HC2cbjzBNN

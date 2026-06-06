@@ -1,6 +1,461 @@
 {
-  "generatedAt": "2026-06-06T14:28:40.959170+00:00",
+  "generatedAt": "2026-06-06T15:56:21.173562+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:428460f7d35aa7f1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:51:00.244163+00:00",
+        "datePublished": "2026-06-06T15:50:57+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063267227067969536.jpg",
+            "remotePath": "archive/x/icegov/HKIynIIXcAAP04X.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIynIIXcAAP04X.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKIynIIXcAAP04X.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063267227067969536.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKIynIIXcAAP04X.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063287535762124950"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063287535762124950/README.md",
+      "path": "X/ICEgov/2026/06/06/2063287535762124950/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063287535762124950",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:3519759c5f279c1c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:51:00.244404+00:00",
+        "datePublished": "2026-06-06T15:50:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063271002188988416.mp4",
+            "remotePath": "archive/x/icegov/T8MaAdLQIeXOTGNy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063271002188988416/vid/avc1/640x360/T8MaAdLQIeXOTGNy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/icegov/T8MaAdLQIeXOTGNy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063271002188988416.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/T8MaAdLQIeXOTGNy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063287508037677134"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063287508037677134/README.md",
+      "path": "X/ICEgov/2026/06/06/2063287508037677134/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063287508037677134",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Don\u2019t even think about coming to our country illegally. If you do, we w..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:0a021cfdf8b3db9d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T15:50:40.924659+00:00",
+        "datePublished": "2026-06-06T15:49:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063287211416571904.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKJEyXoXUAAryaZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKJEyXoXUAAryaZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKJEyXoXUAAryaZ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063287211416571904.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKJEyXoXUAAryaZ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063287215128547828"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063287215128547828/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063287215128547828/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063287215128547828",
+      "summary": "CONGRATULATIONS to my friend @DAGToddBlanche !",
+      "title": "CONGRATULATIONS to my friend @DAGToddBlanche ! I\u2019ve worked closely with Todd these last 15..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:2cd8f7bc28a8fe51",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:51:50.810012+00:00",
+        "datePublished": "2026-06-06T15:41:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063257347263172608.jpg",
+            "remotePath": "archive/x/whitehouse/HKIpoC_WEAADyqp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIpoC_WEAADyqp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKIpoC_WEAADyqp.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063257347263172608.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKIpoC_WEAADyqp.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063285199547339096"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063285199547339096/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063285199547339096/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063285199547339096",
+      "summary": "Repost of @Interior:",
+      "title": "Repost of @Interior: This morning at the World War II Memorial, we pause to honor the cour..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:534c9f0ddfaec4f4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T15:49:58.773784+00:00",
+        "datePublished": "2026-06-06T15:11:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063277424159170560.mp4",
+            "remotePath": "archive/x/dhsgov/ubCWnluVVqdG7Rje.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063277424159170560/vid/avc1/640x360/ubCWnluVVqdG7Rje.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/ubCWnluVVqdG7Rje.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063277424159170560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/ubCWnluVVqdG7Rje.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063277577179963517"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063277577179963517/README.md",
+      "path": "X/DHSgov/2026/06/06/2063277577179963517/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063277577179963517",
+      "summary": ".@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-border CARTEL DRUG TUNNEL and seized more than a TON of cocaine.",
+      "title": ".@HSI_HQ alongside our partners at @TheJusticeDept discovered and dismantled a cross-borde..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:3a147e296751943f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:49:58.774104+00:00",
+        "datePublished": "2026-06-06T14:57:41+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063257384533770240.mp4",
+            "remotePath": "archive/x/dhsgov/nKv3o_U0cKNqtUA1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063257384533770240/vid/avc1/2160x3840/nKv3o_U0cKNqtUA1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/nKv3o_U0cKNqtUA1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063257384533770240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/nKv3o_U0cKNqtUA1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063274132364509542"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063274132364509542/README.md",
+      "path": "X/DHSgov/2026/06/06/2063274132364509542/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063274132364509542",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Another busy week at DHS. I testified before Congress on our depa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:1a67893fa0fca08e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T15:50:40.924892+00:00",
+        "datePublished": "2026-06-06T14:52:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063272622859669504.mp4",
+            "remotePath": "archive/x/fbidirectorkash/2Q4-u_mBAD7zZIl3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063272622859669504/vid/avc1/1920x1080/2Q4-u_mBAD7zZIl3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/2Q4-u_mBAD7zZIl3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063272622859669504.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/2Q4-u_mBAD7zZIl3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063272806477914595"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063272806477914595/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063272806477914595/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063272806477914595",
+      "summary": "We did something that other adminstrations refused to do\u2026.",
+      "title": "We did something that other adminstrations refused to do\u2026. We followed the money because M..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:f5d628738d2cb81e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:50:40.925121+00:00",
+        "datePublished": "2026-06-06T14:47:08+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063271208087400448.mp4",
+            "remotePath": "archive/x/fbidirectorkash/J1-1trDTQPRiiY4p.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063271208087400448/vid/avc1/1920x1080/J1-1trDTQPRiiY4p.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/J1-1trDTQPRiiY4p.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063271208087400448.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/J1-1trDTQPRiiY4p.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063271478213165189"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063271478213165189/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063271478213165189/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063271478213165189",
+      "summary": "Repost of @FBI_Response:",
+      "title": "Repost of @FBI_Response: We had a SURGE in the FBI to arrest 44,000 VIOLENT offenders last..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:200ff090552ac808",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T15:49:58.774373+00:00",
+        "datePublished": "2026-06-06T14:46:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063271002188988416.mp4",
+            "remotePath": "archive/x/dhsgov/T8MaAdLQIeXOTGNy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063271002188988416/vid/avc1/640x360/T8MaAdLQIeXOTGNy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/T8MaAdLQIeXOTGNy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063271002188988416.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/T8MaAdLQIeXOTGNy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063271221521797331"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063271221521797331/README.md",
+      "path": "X/DHSgov/2026/06/06/2063271221521797331/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063271221521797331",
+      "summary": "Don\u2019t even think about coming to our country illegally. If you do, we will find you and arrest you.",
+      "title": "Don\u2019t even think about coming to our country illegally. If you do, we will find you and ar..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:d3103b0ab4f47d10",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:50:40.925352+00:00",
+        "datePublished": "2026-06-06T14:41:28+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063269393786683392.mp4",
+            "remotePath": "archive/x/fbidirectorkash/nOLC9niZ0XFSkhrG.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063269393786683392/vid/avc1/640x360/nOLC9niZ0XFSkhrG.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/nOLC9niZ0XFSkhrG.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063269393786683392.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/nOLC9niZ0XFSkhrG.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063270049100476568"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063270049100476568/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063270049100476568/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063270049100476568",
+      "summary": "Repost of @FBI_Response:",
+      "title": "Repost of @FBI_Response: 7,000 Missing Children LOCATED!! An INCREASE of 144% from last ye..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:e4b2840ba42831a3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:50:40.925575+00:00",
+        "datePublished": "2026-06-06T14:33:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063267539585564672.mp4",
+            "remotePath": "archive/x/fbidirectorkash/fuvPQH3EiYm7Llgn.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063267539585564672/vid/avc1/640x360/fuvPQH3EiYm7Llgn.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/fuvPQH3EiYm7Llgn.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063267539585564672.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/fuvPQH3EiYm7Llgn.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063268094777102570"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/06/2063268094777102570/README.md",
+      "path": "X/FBIDirectorKash/2026/06/06/2063268094777102570/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063268094777102570",
+      "summary": "Repost of @FBI_Response:",
+      "title": "Repost of @FBI_Response: . @FBIDirectorKash If you wish to do harm to our citizens by igni..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:33a8cd5ebf736972",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T15:49:58.774617+00:00",
+        "datePublished": "2026-06-06T14:30:16+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063267227067969536.jpg",
+            "remotePath": "archive/x/dhsgov/HKIynIIXcAAP04X.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIynIIXcAAP04X.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKIynIIXcAAP04X.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063267227067969536.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKIynIIXcAAP04X.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063267232658936017"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063267232658936017/README.md",
+      "path": "X/DHSgov/2026/06/06/2063267232658936017/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063267232658936017",
+      "summary": "Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and committed several violent crimes including a hit-and-run car crash AND pouring a gallon of gasoline near a home while a man and a woman were inside.",
+      "title": "Victor Adulfo-Herrera, a criminal illegal alien from Mexico, went on a CRIME RAMPAGE and c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:0457ac6e57e1dfe3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T15:49:58.774847+00:00",
+        "datePublished": "2026-06-06T14:29:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063266354703032320.mp4",
+            "remotePath": "archive/x/dhsgov/DxUBu3lRZM3gnPZH.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063266354703032320/vid/avc1/1920x1080/DxUBu3lRZM3gnPZH.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/DxUBu3lRZM3gnPZH.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063266354703032320.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/DxUBu3lRZM3gnPZH.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063266968233214429"
+      },
+      "metadataPath": "X/DHSgov/2026/06/06/2063266968233214429/README.md",
+      "path": "X/DHSgov/2026/06/06/2063266968233214429/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063266968233214429",
+      "summary": "Repost of @USCG:",
+      "title": "Repost of @USCG: It\u2019s official! Training Center Birmingham-Southern is open for business. ..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",
