@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 20
+- Posts: 22
 
+- [21:35 UTC - Leonardo Larico Flores 📍IN DELANEY HALL RIGHT NOW 👉Simple assault 👉Threatening 👉Illegal en...](2063374172005216557/)
+  - Source: https://x.com/ICEgov/status/2063374172005216557
+  - Leonardo Larico Flores 📍IN DELANEY HALL RIGHT NOW 👉Simple assault 👉Threatening 👉Illegal entry https://t.co/dVaVXfuJEf
+- [21:05 UTC - Jordy Alvaro-Cisneros 📍IN DELANEY HALL RIGHT NOW 👉Cocaine 👉Simple assault 👉Immigrant witho...](2063366619032662324/)
+  - Source: https://x.com/ICEgov/status/2063366619032662324
+  - Jordy Alvaro-Cisneros 📍IN DELANEY HALL RIGHT NOW 👉Cocaine 👉Simple assault 👉Immigrant without an immigrant visa https://t.co/BQheKQLZFF
 - [20:47 UTC - Repost of @DHSgov: Riot and you’ll be arrested. https://t.co/7cSIjkBP8E](2063362197636424087/)
   - Source: https://x.com/ICEgov/status/2063362197636424087
   - Repost of @DHSgov: Riot and you’ll be arrested. https://t.co/7cSIjkBP8E

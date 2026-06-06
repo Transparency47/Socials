@@ -1,6 +1,146 @@
 {
-  "generatedAt": "2026-06-06T20:59:17.793837+00:00",
+  "generatedAt": "2026-06-06T22:03:40.792489+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:94def753c5d991f2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-06T22:02:20.411376+00:00",
+        "datePublished": "2026-06-06T21:48:28+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063375692918583297.jpg",
+            "remotePath": "archive/x/whitehouse/HKKVQq6WcAEFoep.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKVQq6WcAEFoep.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKVQq6WcAEFoep.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063375692918583297.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKVQq6WcAEFoep.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063377508712538479"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063377508712538479/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063377508712538479/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063377508712538479",
+      "summary": "Repost of @Freedom250:",
+      "title": "Repost of @Freedom250: \ud83c\uddfa\ud83c\uddf8 America Is Back. Join us on the National Mall as we officially l..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:0a5c4276c4ea1a8c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T22:01:35.506721+00:00",
+        "datePublished": "2026-06-06T21:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063374170012934144.png",
+            "remotePath": "archive/x/icegov/HKKT4BpWYAAAPoe.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKT4BpWYAAAPoe.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKKT4BpWYAAAPoe.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063374170012934144.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKKT4BpWYAAAPoe.png"
+        ],
+        "platform": "X",
+        "postId": "2063374172005216557"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063374172005216557/README.md",
+      "path": "X/ICEgov/2026/06/06/2063374172005216557/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063374172005216557",
+      "summary": "Leonardo Larico Flores \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Leonardo Larico Flores \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Simple assault \ud83d\udc49Threatening \ud83d\udc49Illegal en..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:6d1b0eaaec53cfc3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T22:02:20.411876+00:00",
+        "datePublished": "2026-06-06T21:07:35+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063367204070940672.jpg",
+            "remotePath": "archive/x/whitehouse/HKKNijfW4AApAYV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKNijfW4AApAYV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKNijfW4AApAYV.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063367204070940672.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKNijfW4AApAYV.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063367221514994160"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/06/2063367221514994160/README.md",
+      "path": "X/WhiteHouse/2026/06/06/2063367221514994160/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063367221514994160",
+      "summary": "RAINING JOBS!! https://t.co/XAU5P2klwt",
+      "title": "RAINING JOBS!! https://t.co/XAU5P2klwt"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:5a3462710657fd05",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-06T22:01:35.507101+00:00",
+        "datePublished": "2026-06-06T21:05:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063366616985800704.png",
+            "remotePath": "archive/x/icegov/HKKNAYbWkAAVVMo.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKNAYbWkAAVVMo.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKKNAYbWkAAVVMo.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063366616985800704.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKKNAYbWkAAVVMo.png"
+        ],
+        "platform": "X",
+        "postId": "2063366619032662324"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063366619032662324/README.md",
+      "path": "X/ICEgov/2026/06/06/2063366619032662324/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063366619032662324",
+      "summary": "Jordy Alvaro-Cisneros \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Jordy Alvaro-Cisneros \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Cocaine \ud83d\udc49Simple assault \ud83d\udc49Immigrant witho..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",

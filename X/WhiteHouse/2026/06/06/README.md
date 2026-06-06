@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-06
 
-- Posts: 14
+- Posts: 16
 
+- [21:48 UTC - Repost of @Freedom250: 🇺🇸 America Is Back. Join us on the National Mall as we officially l...](2063377508712538479/)
+  - Source: https://x.com/WhiteHouse/status/2063377508712538479
+  - Repost of @Freedom250: 🇺🇸 America Is Back. Join us on the National Mall as we officially launch the Great American State Fair and kick off America’s 250th birthday celebration. Fea...
+- [21:07 UTC - RAINING JOBS!! https://t.co/XAU5P2klwt](2063367221514994160/)
+  - Source: https://x.com/WhiteHouse/status/2063367221514994160
+  - RAINING JOBS!! https://t.co/XAU5P2klwt
 - [18:01 UTC - Repost of @DeptofWar: HAPPY BIRTHDAY TO @SECWAR https://t.co/ItuXpIlp0k](2063320376398983585/)
   - Source: https://x.com/WhiteHouse/status/2063320376398983585
   - Repost of @DeptofWar: HAPPY BIRTHDAY TO @SECWAR https://t.co/ItuXpIlp0k
