@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 12
+- Posts: 13
 
+- [18:35 UTC - Singh Kulnoor 📍IN DELANEY HALL RIGHT NOW Pending charges for: 👉Drug trafficking 👉Drug poss...](2063691259982598275/)
+  - Source: https://x.com/ICEgov/status/2063691259982598275
+  - Singh Kulnoor 📍IN DELANEY HALL RIGHT NOW Pending charges for: 👉Drug trafficking 👉Drug possession 👉Felony money laundering 👉Public order crimes https://t.co/VkxxQyTtb8
 - [17:35 UTC - Italo Orlando Silva-Loja 📍IN DELANEY HALL RIGHT NOW 👉Felony receiving stolen property ICE ...](2063676164703457427/)
   - Source: https://x.com/ICEgov/status/2063676164703457427
   - Italo Orlando Silva-Loja 📍IN DELANEY HALL RIGHT NOW 👉Felony receiving stolen property ICE Newark Fugitive Operations officers arrested him May 19 during a targeted enforcement oper...

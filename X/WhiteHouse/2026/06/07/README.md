@@ -1,7 +1,19 @@
 # X / WhiteHouse / 2026-06-07
 
-- Posts: 4
+- Posts: 8
 
+- [18:36 UTC - Repost of @SecretaryBurgum: .@Interior is honoring America's 250th birthday with the Great...](2063691667505340601/)
+  - Source: https://x.com/WhiteHouse/status/2063691667505340601
+  - Repost of @SecretaryBurgum: .@Interior is honoring America's 250th birthday with the Great American Expedition, celebrating the communities, partners and @Interior team who steward...
+- [18:36 UTC - Repost of @SecWar: The boys of D-Day said: “Send me.” https://t.co/HjL4x0c8dc](2063691643635556719/)
+  - Source: https://x.com/WhiteHouse/status/2063691643635556719
+  - Repost of @SecWar: The boys of D-Day said: “Send me.” https://t.co/HjL4x0c8dc
+- [18:36 UTC - Repost of @DrOzCMS: If you look closely, you’ll see that the savings are FLOWING for Ameri...](2063691613646278751/)
+  - Source: https://x.com/WhiteHouse/status/2063691613646278751
+  - Repost of @DrOzCMS: If you look closely, you’ll see that the savings are FLOWING for Americans on https://t.co/XYW10M4Ib4 ⛲️ https://t.co/fDTf8HyEr2
+- [18:36 UTC - Repost of @USDOL: .@POTUS’ America First policies are creating momentum into the ALL-AMERI...](2063691543001641381/)
+  - Source: https://x.com/WhiteHouse/status/2063691543001641381
+  - Repost of @USDOL: .@POTUS’ America First policies are creating momentum into the ALL-AMERICAN summer: ✅ TRILLIONS of dollars in new investments ✅ SOLID jobs reports over the past 3...
 - [16:38 UTC - Under President Trump's leadership, Americans are working more than ever before, trillions...](2063661780417515799/)
   - Source: https://x.com/WhiteHouse/status/2063661780417515799
   - Under President Trump's leadership, Americans are working more than ever before, trillions of dollars in investments are being poured into our country, and private sector job growt...
