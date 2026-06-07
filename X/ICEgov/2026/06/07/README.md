@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 10
+- Posts: 12
 
+- [17:35 UTC - Italo Orlando Silva-Loja 📍IN DELANEY HALL RIGHT NOW 👉Felony receiving stolen property ICE ...](2063676164703457427/)
+  - Source: https://x.com/ICEgov/status/2063676164703457427
+  - Italo Orlando Silva-Loja 📍IN DELANEY HALL RIGHT NOW 👉Felony receiving stolen property ICE Newark Fugitive Operations officers arrested him May 19 during a targeted enforcement oper...
+- [16:35 UTC - Noe Ordonez-Mejia 📍IN DELANEY HALL RIGHT NOW 👉Possession of fraudulent immigration documen...](2063661069478813963/)
+  - Source: https://x.com/ICEgov/status/2063661069478813963
+  - Noe Ordonez-Mejia 📍IN DELANEY HALL RIGHT NOW 👉Possession of fraudulent immigration documents ICE @ERONewark Fugitive Operations officers arrested him May 6 during a targeted enforc...
 - [16:05 UTC - The most convincing “kid” online might not be a kid at all. 🚩 Talking about online safety ...](2063653514237079882/)
   - Source: https://x.com/ICEgov/status/2063653514237079882
   - The most convincing “kid” online might not be a kid at all. 🚩 Talking about online safety with kids and teens matters because not everyone online is who they say they are, and @Kno...

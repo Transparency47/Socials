@@ -1,6 +1,169 @@
 {
-  "generatedAt": "2026-06-07T16:12:08.179134+00:00",
+  "generatedAt": "2026-06-07T17:42:07.593140+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:5fa906bd934c50ac",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T17:40:25.416043+00:00",
+        "datePublished": "2026-06-07T17:35:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063676162283331584.png",
+            "remotePath": "archive/x/icegov/HKOmiShW4AAZeL6.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKOmiShW4AAZeL6.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKOmiShW4AAZeL6.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063676162283331584.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKOmiShW4AAZeL6.png"
+        ],
+        "platform": "X",
+        "postId": "2063676164703457427"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063676164703457427/README.md",
+      "path": "X/ICEgov/2026/06/07/2063676164703457427/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063676164703457427",
+      "summary": "Italo Orlando Silva-Loja \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Italo Orlando Silva-Loja \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Felony receiving stolen property ICE ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:250fe8fe8b6ac41a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T17:41:04.772278+00:00",
+        "datePublished": "2026-06-07T16:38:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063660329867833344.jpg",
+            "remotePath": "archive/x/whitehouse/HKOYIuLWcAAP6HE.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKOYIuLWcAAP6HE.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKOYIuLWcAAP6HE.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063660329867833344.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKOYIuLWcAAP6HE.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063661780417515799"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063661780417515799/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063661780417515799/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063661780417515799",
+      "summary": "Under President Trump's leadership, Americans are working more than ever before, trillions of dollars in investments are being poured into our country, and private sector job growth is through the roof. https://t.co/bod4d67LZd",
+      "title": "Under\u00a0President Trump's leadership, Americans are working more than ever before, trillions..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:78cb05b8f585b1dd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T17:40:25.416369+00:00",
+        "datePublished": "2026-06-07T16:35:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063661066958045184.png",
+            "remotePath": "archive/x/icegov/HKOYzoDWgAABpM2.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKOYzoDWgAABpM2.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKOYzoDWgAABpM2.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063661066958045184.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKOYzoDWgAABpM2.png"
+        ],
+        "platform": "X",
+        "postId": "2063661069478813963"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063661069478813963/README.md",
+      "path": "X/ICEgov/2026/06/07/2063661069478813963/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063661069478813963",
+      "summary": "Noe Ordonez-Mejia \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Noe Ordonez-Mejia \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Possession of fraudulent immigration documen..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:5b3ceb35073253e6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T17:40:17.940368+00:00",
+        "datePublished": "2026-06-07T16:28:56+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063659482995933663"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/07/2063659482995933663/README.md",
+      "path": "X/FBIDirectorKash/2026/06/07/2063659482995933663/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063659482995933663",
+      "summary": "Facts over click bait.",
+      "title": "Facts over click bait."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:7a91266459d67cd6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T17:40:17.940771+00:00",
+        "datePublished": "2026-06-07T16:22:37+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063229462682988544.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKIQQ81W8AAHqjh.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKIQQ81W8AAHqjh.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKIQQ81W8AAHqjh.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063229462682988544.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKIQQ81W8AAHqjh.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063657893136842974"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/07/2063657893136842974/README.md",
+      "path": "X/FBIDirectorKash/2026/06/07/2063657893136842974/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063657893136842974",
+      "summary": "Repost of @EpochTimes:",
+      "title": "Repost of @EpochTimes: The Justice Department announced the results of Operation Spring Cl..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",
