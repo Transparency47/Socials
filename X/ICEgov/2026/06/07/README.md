@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 9
+- Posts: 10
 
+- [16:05 UTC - The most convincing “kid” online might not be a kid at all. 🚩 Talking about online safety ...](2063653514237079882/)
+  - Source: https://x.com/ICEgov/status/2063653514237079882
+  - The most convincing “kid” online might not be a kid at all. 🚩 Talking about online safety with kids and teens matters because not everyone online is who they say they are, and @Kno...
 - [14:35 UTC - Juan Ancheta-Barragan 📍IN DELANEY HALL RIGHT NOW 👉Obstructing police (Sale of documents an...](2063630861770035442/)
   - Source: https://x.com/ICEgov/status/2063630861770035442
   - Juan Ancheta-Barragan 📍IN DELANEY HALL RIGHT NOW 👉Obstructing police (Sale of documents and forms) He was arrested by our ICE Newark officers during a targeted immigration enforcem...

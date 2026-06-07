@@ -1,6 +1,157 @@
 {
-  "generatedAt": "2026-06-07T14:54:27.296567+00:00",
+  "generatedAt": "2026-06-07T16:12:08.179134+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:a21e2316e400d77e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T16:09:59.082049+00:00",
+        "datePublished": "2026-06-07T16:05:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063653510751617024.jpg",
+            "remotePath": "archive/x/icegov/HKOR7y_WgAAqjxp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKOR7y_WgAAqjxp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKOR7y_WgAAqjxp.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063653510751617024.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKOR7y_WgAAqjxp.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063653514237079882"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063653514237079882/README.md",
+      "path": "X/ICEgov/2026/06/07/2063653514237079882/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063653514237079882",
+      "summary": "The most convincing \u201ckid\u201d online might not be a kid at all. \ud83d\udea9",
+      "title": "The most convincing \u201ckid\u201d online might not be a kid at all. \ud83d\udea9 Talking about online safety ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:0858f376e08471be",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T16:09:50.562731+00:00",
+        "datePublished": "2026-06-07T15:57:09+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063651486979297726"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/07/2063651486979297726/README.md",
+      "path": "X/FBIDirectorKash/2026/06/07/2063651486979297726/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063651486979297726",
+      "summary": "Repost of @FBI_Response:",
+      "title": "Repost of @FBI_Response: @GuntherEagleman This FBI is GETTING IT DONE!"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:9a1af87afbdec15a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T16:10:44.877282+00:00",
+        "datePublished": "2026-06-07T15:52:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063649860700528640.mp4",
+            "remotePath": "archive/x/whitehouse/9ejFp7UaT7QYj5Bo.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063649860700528640/vid/avc1/3840x2026/9ejFp7UaT7QYj5Bo.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/9ejFp7UaT7QYj5Bo.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063649860700528640.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/9ejFp7UaT7QYj5Bo.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063650194550395076"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063650194550395076/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063650194550395076/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063650194550395076",
+      "summary": "\ud83d\udccd Chippewa Falls, Wisconsin",
+      "title": "\ud83d\udccd Chippewa Falls, Wisconsin \u201cEvery day my administration is fighting to protect and defend..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:430ef182b2b29422",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T16:09:50.563093+00:00",
+        "datePublished": "2026-06-07T15:45:07+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063648457219522590"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/07/2063648457219522590/README.md",
+      "path": "X/FBIDirectorKash/2026/06/07/2063648457219522590/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063648457219522590",
+      "summary": "Repost of @FBIDirectorKash:",
+      "title": "Repost of @FBIDirectorKash: Make sure you are following @FBI_Response for the most up to d..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:d780fbc4e49c1f3e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T16:10:44.877806+00:00",
+        "datePublished": "2026-06-07T15:09:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063624888200413184.mp4",
+            "remotePath": "archive/x/whitehouse/1HMPe6BQPxKv4CWn.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063624888200413184/vid/avc1/1280x720/1HMPe6BQPxKv4CWn.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/1HMPe6BQPxKv4CWn.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063624888200413184.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/1HMPe6BQPxKv4CWn.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063639519627292717"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063639519627292717/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063639519627292717/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063639519627292717",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: \"You got a strong jobs report today...\" @POTUS: \"Not strong \u2014 ..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",
