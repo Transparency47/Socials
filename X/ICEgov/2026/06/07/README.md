@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 7
+- Posts: 9
 
+- [14:35 UTC - Juan Ancheta-Barragan 📍IN DELANEY HALL RIGHT NOW 👉Obstructing police (Sale of documents an...](2063630861770035442/)
+  - Source: https://x.com/ICEgov/status/2063630861770035442
+  - Juan Ancheta-Barragan 📍IN DELANEY HALL RIGHT NOW 👉Obstructing police (Sale of documents and forms) He was arrested by our ICE Newark officers during a targeted immigration enforcem...
+- [13:35 UTC - Aurica Calin 📍IN DELANEY HALL RIGHT NOW 👉Possessing a stolen vehicle She also has pending ...](2063615761835282808/)
+  - Source: https://x.com/ICEgov/status/2063615761835282808
+  - Aurica Calin 📍IN DELANEY HALL RIGHT NOW 👉Possessing a stolen vehicle She also has pending charges for: 👉Cruelty toward the elderly 👉Felony Larceny 👉Felony possession of stolen prop...
 - [12:48 UTC - Eliannys Del Carmen Pineda-Ugarte 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony poss...](2063603926146986016/)
   - Source: https://x.com/ICEgov/status/2063603926146986016
   - Eliannys Del Carmen Pineda-Ugarte 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony possession of a stolen vehicle 👉Prostitution x3 https://t.co/SR1blF51vO

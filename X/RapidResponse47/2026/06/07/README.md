@@ -1,0 +1,43 @@
+# X / RapidResponse47 / 2026-06-07
+
+- Posts: 13
+
+- [14:35 UTC - .@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system: "Do you...](2063631054305411116/)
+  - Source: https://x.com/RapidResponse47/status/2063631054305411116
+  - .@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system: "Do you think it's appropriate that they have an election and five days later they're nowhere clo...
+- [14:19 UTC - .@POTUS: "When they raise interest rates, they try and kill success... I would like to see...](2063626971104379332/)
+  - Source: https://x.com/RapidResponse47/status/2063626971104379332
+  - .@POTUS: "When they raise interest rates, they try and kill success... I would like to see rates get lower because we could build this into the greatest machine that the world has...
+- [14:13 UTC - "You got a strong jobs report today..." @POTUS: "Not strong — really strong." "Beat expect...](2063625344876257419/)
+  - Source: https://x.com/RapidResponse47/status/2063625344876257419
+  - "You got a strong jobs report today..." @POTUS: "Not strong — really strong." "Beat expectations." @POTUS: "By how much? Triple." "172,000 jobs created..." @POTUS: "Triple." 😏 http...
+- [14:09 UTC - .@POTUS: "I don't like these endless wars. This is not an endless war. We've been doing th...](2063624508301287427/)
+  - Source: https://x.com/RapidResponse47/status/2063624508301287427
+  - .@POTUS: "I don't like these endless wars. This is not an endless war. We've been doing this for three months; much of it has been under a pretty good form of ceasefire." https://t...
+- [14:03 UTC - .@POTUS: "I had to stop a country — a very powerful, very dangerous country — from having ...](2063622838670508137/)
+  - Source: https://x.com/RapidResponse47/status/2063622838670508137
+  - .@POTUS: "I had to stop a country — a very powerful, very dangerous country — from having a nuclear weapon because they'd use it... They're nuts. They're crazy people." https://t.c...
+- [13:55 UTC - "Would you unfreeze any Iranian assets or lift any sanctions up front as a part of any dea...](2063620954488492393/)
+  - Source: https://x.com/RapidResponse47/status/2063620954488492393
+  - "Would you unfreeze any Iranian assets or lift any sanctions up front as a part of any deal?" @POTUS: "No." https://t.co/ydrGk3wSyz
+- [13:54 UTC - .@POTUS on Iran's nuclear dust: "If we make a deal, we'll go together — it'll be our equip...](2063620730827198671/)
+  - Source: https://x.com/RapidResponse47/status/2063620730827198671
+  - .@POTUS on Iran's nuclear dust: "If we make a deal, we'll go together — it'll be our equipment — we'll take it out and destroy it... If we don't make a deal, then we're going to ta...
+- [13:38 UTC - .@POTUS on the Iranian regime: "It's a very hard thing for them... There are things they n...](2063616592068362440/)
+  - Source: https://x.com/RapidResponse47/status/2063616592068362440
+  - .@POTUS on the Iranian regime: "It's a very hard thing for them... There are things they never thought they'd be doing that they're going to have to do. They've got no choice. And...
+- [13:36 UTC - .@POTUS on a deal with Iran: "We're very close. We have a couple of points; they don't eve...](2063616018849632712/)
+  - Source: https://x.com/RapidResponse47/status/2063616018849632712
+  - .@POTUS on a deal with Iran: "We're very close. We have a couple of points; they don't even seem like big points. They've conceded the fact that they will not have nuclear weapons....
+- [13:32 UTC - .@POTUS on Mojtaba Khamenei: "I don't want to say whether or not I know where he is, but t...](2063614962744869261/)
+  - Source: https://x.com/RapidResponse47/status/2063614962744869261
+  - .@POTUS on Mojtaba Khamenei: "I don't want to say whether or not I know where he is, but there's a good probability that I do... He's very seriously injured." https://t.co/BgzgTk4A...
+- [13:26 UTC - .@POTUS: "We have a blockade. It's been extremely effective — and the reason we have it is...](2063613679212376277/)
+  - Source: https://x.com/RapidResponse47/status/2063613679212376277
+  - .@POTUS: "We have a blockade. It's been extremely effective — and the reason we have it is they tried to blockade and now we blockaded them. They're losing $4-500 million a day......
+- [13:26 UTC - Democrat Sen. @MarkWarner: Bill Pulte could make up intelligence to be used as an excuse f...](2063613622685741232/)
+  - Source: https://x.com/RapidResponse47/status/2063613622685741232
+  - Democrat Sen. @MarkWarner: Bill Pulte could make up intelligence to be used as an excuse for Trump to send ICE to "close down elections, seize polling stations." These deranged los...
+- [13:24 UTC - .@POTUS on Iran: "We're very close to having a deal — and if we don't have a deal, we'll d...](2063613064679710897/)
+  - Source: https://x.com/RapidResponse47/status/2063613064679710897
+  - .@POTUS on Iran: "We're very close to having a deal — and if we don't have a deal, we'll do it one way or the other. Either way, we win." https://t.co/xwqj3ujSBS

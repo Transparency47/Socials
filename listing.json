@@ -1,6 +1,636 @@
 {
-  "generatedAt": "2026-06-07T13:02:17.591254+00:00",
+  "generatedAt": "2026-06-07T14:54:27.296567+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:6b22ca4c601fe92b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.969688+00:00",
+        "datePublished": "2026-06-07T14:35:58+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063630060909658113.mp4",
+            "remotePath": "archive/x/rapidresponse47/vlUNWmy-dw4_1Sp6.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063630060909658113/vid/avc1/1280x720/vlUNWmy-dw4_1Sp6.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/vlUNWmy-dw4_1Sp6.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063630060909658113.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/vlUNWmy-dw4_1Sp6.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063631054305411116"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063631054305411116/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063631054305411116/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063631054305411116",
+      "summary": ".@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system:",
+      "title": ".@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system: \"Do you..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:536ea496d6a298fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:05.538562+00:00",
+        "datePublished": "2026-06-07T14:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063630859530391552.png",
+            "remotePath": "archive/x/icegov/HKN9VUnX0AAM5vV.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKN9VUnX0AAM5vV.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKN9VUnX0AAM5vV.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063630859530391552.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKN9VUnX0AAM5vV.png"
+        ],
+        "platform": "X",
+        "postId": "2063630861770035442"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063630861770035442/README.md",
+      "path": "X/ICEgov/2026/06/07/2063630861770035442/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063630861770035442",
+      "summary": "Juan Ancheta-Barragan \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Juan Ancheta-Barragan \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Obstructing police (Sale of documents an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:43d7730242731a96",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.970040+00:00",
+        "datePublished": "2026-06-07T14:19:44+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063626090547998720.mp4",
+            "remotePath": "archive/x/rapidresponse47/NZsHTMVeS3pTt_Bi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063626090547998720/vid/avc1/1280x720/NZsHTMVeS3pTt_Bi.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/NZsHTMVeS3pTt_Bi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063626090547998720.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/NZsHTMVeS3pTt_Bi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063626971104379332"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063626971104379332/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063626971104379332/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063626971104379332",
+      "summary": ".@POTUS: \"When they raise interest rates, they try and kill success... I would like to see rates get lower because we could build this into the greatest machine that the world has ever seen, but you can't do that when everybody immediately raises interest rates.\" https://t.co/hn9",
+      "title": ".@POTUS: \"When they raise interest rates, they try and kill success... I would like to see..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:7457d50628f84bcf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.970401+00:00",
+        "datePublished": "2026-06-07T14:13:17+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063624888200413184.mp4",
+            "remotePath": "archive/x/rapidresponse47/1HMPe6BQPxKv4CWn.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063624888200413184/vid/avc1/1280x720/1HMPe6BQPxKv4CWn.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/1HMPe6BQPxKv4CWn.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063624888200413184.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/1HMPe6BQPxKv4CWn.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063625344876257419"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063625344876257419/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063625344876257419/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063625344876257419",
+      "summary": "\"You got a strong jobs report today...\"",
+      "title": "\"You got a strong jobs report today...\" @POTUS: \"Not strong \u2014 really strong.\" \"Beat expect..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:8f4e09fb0d0d1a55",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.970748+00:00",
+        "datePublished": "2026-06-07T14:09:57+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063624132382674944.mp4",
+            "remotePath": "archive/x/rapidresponse47/FwV6Gn4NPte6kY0C.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063624132382674944/vid/avc1/1280x720/FwV6Gn4NPte6kY0C.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/FwV6Gn4NPte6kY0C.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063624132382674944.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/FwV6Gn4NPte6kY0C.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063624508301287427"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063624508301287427/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063624508301287427/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063624508301287427",
+      "summary": ".@POTUS: \"I don't like these endless wars. This is not an endless war. We've been doing this for three months; much of it has been under a pretty good form of ceasefire.\" https://t.co/ZKAIsMfRCg",
+      "title": ".@POTUS: \"I don't like these endless wars. This is not an endless war. We've been doing th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:662921a697fbf307",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.971005+00:00",
+        "datePublished": "2026-06-07T14:03:19+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063622521929236481.mp4",
+            "remotePath": "archive/x/rapidresponse47/SMQewif6nwTnxyee.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063622521929236481/vid/avc1/1280x720/SMQewif6nwTnxyee.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/SMQewif6nwTnxyee.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063622521929236481.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/SMQewif6nwTnxyee.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063622838670508137"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063622838670508137/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063622838670508137/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063622838670508137",
+      "summary": ".@POTUS: \"I had to stop a country \u2014 a very powerful, very dangerous country \u2014 from having a nuclear weapon because they'd use it... They're nuts. They're crazy people.\" https://t.co/LxLkapmpLG",
+      "title": ".@POTUS: \"I had to stop a country \u2014 a very powerful, very dangerous country \u2014 from having ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:13605e005716a3f3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T14:52:13.862995+00:00",
+        "datePublished": "2026-06-07T13:58:45+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063620910725091328.jpg",
+            "remotePath": "archive/x/potus/HKN0SObWUAAyPhM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKN0SObWUAAyPhM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKN0SObWUAAyPhM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063620910725091328.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKN0SObWUAAyPhM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063621687183134903"
+      },
+      "metadataPath": "X/POTUS/2026/06/07/2063621687183134903/README.md",
+      "path": "X/POTUS/2026/06/07/2063621687183134903/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063621687183134903",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Donald J. Trump sits down with Kristen Welker on @MeetThe..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:f5f10d9cdc7ba8a7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:53:14.801921+00:00",
+        "datePublished": "2026-06-07T13:56:21+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063620910725091328.jpg",
+            "remotePath": "archive/x/whitehouse/HKN0SObWUAAyPhM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKN0SObWUAAyPhM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKN0SObWUAAyPhM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063620910725091328.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKN0SObWUAAyPhM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063621086642671958"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063621086642671958/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063621086642671958/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063621086642671958",
+      "summary": "President Donald J. Trump sits down with Kristen Welker on @MeetThePress for an exclusive interview.",
+      "title": "President Donald J. Trump sits down with Kristen Welker on @MeetThePress for an exclusive ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:761906c554beff4c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.971192+00:00",
+        "datePublished": "2026-06-07T13:55:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063620757108748289.mp4",
+            "remotePath": "archive/x/rapidresponse47/0y0TINo3AbcLdwSn.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063620757108748289/vid/avc1/1280x720/0y0TINo3AbcLdwSn.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/0y0TINo3AbcLdwSn.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063620757108748289.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/0y0TINo3AbcLdwSn.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063620954488492393"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063620954488492393/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063620954488492393/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063620954488492393",
+      "summary": "\"Would you unfreeze any Iranian assets or lift any sanctions up front as a part of any deal?\"",
+      "title": "\"Would you unfreeze any Iranian assets or lift any sanctions up front as a part of any dea..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:b84a38b598e549bf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.971375+00:00",
+        "datePublished": "2026-06-07T13:54:57+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063620092517105665.mp4",
+            "remotePath": "archive/x/rapidresponse47/Rg0xl_Wd7W4t8W15.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063620092517105665/vid/avc1/1280x720/Rg0xl_Wd7W4t8W15.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/Rg0xl_Wd7W4t8W15.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063620092517105665.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/Rg0xl_Wd7W4t8W15.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063620730827198671"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063620730827198671/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063620730827198671/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063620730827198671",
+      "summary": ".@POTUS on Iran's nuclear dust: \"If we make a deal, we'll go together \u2014 it'll be our equipment \u2014 we'll take it out and destroy it... If we don't make a deal, then we're going to take them out militarily very harshly, and we'll wait until we do that before we go.\" https://t.co/3Kz",
+      "title": ".@POTUS on Iran's nuclear dust: \"If we make a deal, we'll go together \u2014 it'll be our equip..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-07",
+      "id": "socials:892b168a6e627d03",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:53:32.722877+00:00",
+        "datePublished": "2026-06-07T13:43:38+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7648648549172907278.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7648648549172907278.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648648549172907278",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7648648549172907278.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7648648549172907278.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7648648549172907278.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7648648549172907278"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/07/7648648549172907278/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/07/7648648549172907278/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648648549172907278",
+      "summary": "Good morning. It\u2019s 6/7.",
+      "title": "Good morning. It\u2019s 6/7."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:8c1eb176aa7b7c95",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.971561+00:00",
+        "datePublished": "2026-06-07T13:38:30+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063616038663569408.mp4",
+            "remotePath": "archive/x/rapidresponse47/a5H6An8mj7bmgkbR.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063616038663569408/vid/avc1/1280x720/a5H6An8mj7bmgkbR.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/a5H6An8mj7bmgkbR.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063616038663569408.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/a5H6An8mj7bmgkbR.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063616592068362440"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063616592068362440/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063616592068362440/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063616592068362440",
+      "summary": ".@POTUS on the Iranian regime: \"It's a very hard thing for them... There are things they never thought they'd be doing that they're going to have to do. They've got no choice. And it takes a little while \u2014 you're talking about 47 years of getting away with whatever they wanted.\" ",
+      "title": ".@POTUS on the Iranian regime: \"It's a very hard thing for them... There are things they n..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:d21674079abddeb1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.971824+00:00",
+        "datePublished": "2026-06-07T13:36:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063615640963833857.mp4",
+            "remotePath": "archive/x/rapidresponse47/4rK2olZxDUurBAg2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063615640963833857/vid/avc1/1280x720/4rK2olZxDUurBAg2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4rK2olZxDUurBAg2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063615640963833857.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4rK2olZxDUurBAg2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063616018849632712"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063616018849632712/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063616018849632712/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063616018849632712",
+      "summary": ".@POTUS on a deal with Iran: \"We're very close. We have a couple of points; they don't even seem like big points. They've conceded the fact that they will not have nuclear weapons.\" https://t.co/oS16lKiWUF",
+      "title": ".@POTUS on a deal with Iran: \"We're very close. We have a couple of points; they don't eve..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:cd1777f1aa4f593e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:05.539003+00:00",
+        "datePublished": "2026-06-07T13:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063615759545159680.png",
+            "remotePath": "archive/x/icegov/HKNvmYyWUAA2OGw.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKNvmYyWUAA2OGw.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKNvmYyWUAA2OGw.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063615759545159680.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKNvmYyWUAA2OGw.png"
+        ],
+        "platform": "X",
+        "postId": "2063615761835282808"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063615761835282808/README.md",
+      "path": "X/ICEgov/2026/06/07/2063615761835282808/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063615761835282808",
+      "summary": "Aurica Calin \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Aurica Calin \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Possessing a stolen vehicle She also has pending ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:5744617842a29264",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.972148+00:00",
+        "datePublished": "2026-06-07T13:32:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063614657202462720.mp4",
+            "remotePath": "archive/x/rapidresponse47/HUSQx-jHci1z7_I6.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063614657202462720/vid/avc1/1280x720/HUSQx-jHci1z7_I6.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HUSQx-jHci1z7_I6.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063614657202462720.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HUSQx-jHci1z7_I6.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063614962744869261"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063614962744869261/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063614962744869261/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063614962744869261",
+      "summary": ".@POTUS on Mojtaba Khamenei: \"I don't want to say whether or not I know where he is, but there's a good probability that I do... He's very seriously injured.\" https://t.co/BgzgTk4AVy",
+      "title": ".@POTUS on Mojtaba Khamenei: \"I don't want to say whether or not I know where he is, but t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:b0020a7036f25e64",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.972460+00:00",
+        "datePublished": "2026-06-07T13:26:55+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063613100780126208.mp4",
+            "remotePath": "archive/x/rapidresponse47/4nRyMAnQKY0p2dwQ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063613100780126208/vid/avc1/1280x720/4nRyMAnQKY0p2dwQ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4nRyMAnQKY0p2dwQ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063613100780126208.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4nRyMAnQKY0p2dwQ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063613679212376277"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063613679212376277/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063613679212376277/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063613679212376277",
+      "summary": ".@POTUS: \"We have a blockade. It's been extremely effective \u2014 and the reason we have it is they tried to blockade and now we blockaded them. They're losing $4-500 million a day... We have the ultimate blockade.\" https://t.co/rC7Z6IeQDk",
+      "title": ".@POTUS: \"We have a blockade. It's been extremely effective \u2014 and the reason we have it is..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:16603970826359fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.972817+00:00",
+        "datePublished": "2026-06-07T13:26:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063610541940105217.mp4",
+            "remotePath": "archive/x/rapidresponse47/TvmyOqiYqjE84ui1.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063610541940105217/vid/avc1/1280x720/TvmyOqiYqjE84ui1.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/TvmyOqiYqjE84ui1.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063610541940105217.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/TvmyOqiYqjE84ui1.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063613622685741232"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063613622685741232/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063613622685741232/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063613622685741232",
+      "summary": "Democrat Sen. @MarkWarner: Bill Pulte could make up intelligence to be used as an excuse for Trump to send ICE to \"close down elections, seize polling stations.\"",
+      "title": "Democrat Sen. @MarkWarner: Bill Pulte could make up intelligence to be used as an excuse f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:7f7f2292d20cb3ef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T14:52:26.973129+00:00",
+        "datePublished": "2026-06-07T13:24:29+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063612878662295552.mp4",
+            "remotePath": "archive/x/rapidresponse47/Q3OtaCzV5QuWHu08.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063612878662295552/vid/avc1/1280x720/Q3OtaCzV5QuWHu08.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/Q3OtaCzV5QuWHu08.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063612878662295552.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/Q3OtaCzV5QuWHu08.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063613064679710897"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063613064679710897/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063613064679710897/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063613064679710897",
+      "summary": ".@POTUS on Iran: \"We're very close to having a deal \u2014 and if we don't have a deal, we'll do it one way or the other. Either way, we win.\" https://t.co/xwqj3ujSBS",
+      "title": ".@POTUS on Iran: \"We're very close to having a deal \u2014 and if we don't have a deal, we'll d..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",
