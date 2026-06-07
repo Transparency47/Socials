@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-06
 
-- Posts: 24
+- Posts: 25
 
+- [23:35 UTC - Manolo Reyes-Villatoro 📍IN DELANEY HALL RIGHT NOW 👉DUI 👉Faiure to appear 👉Driving without ...](2063404365696680323/)
+  - Source: https://x.com/ICEgov/status/2063404365696680323
+  - Manolo Reyes-Villatoro 📍IN DELANEY HALL RIGHT NOW 👉DUI 👉Faiure to appear 👉Driving without a license ICE picked him up from jail, and he’s now facing removal proceedings. https://t....
 - [22:35 UTC - Louis Gaetan Elysee 📍IN DELANEY HALL RIGHT NOW 👉Police obstruction 👉Resisting arrest 👉Alie...](2063389278311251976/)
   - Source: https://x.com/ICEgov/status/2063389278311251976
   - Louis Gaetan Elysee 📍IN DELANEY HALL RIGHT NOW 👉Police obstruction 👉Resisting arrest 👉Alien present without admission 👉Inadmissible alien 👉Immigrant without an immigrant visa https...

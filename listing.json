@@ -1,6 +1,204 @@
 {
-  "generatedAt": "2026-06-06T23:20:33.493093+00:00",
+  "generatedAt": "2026-06-07T01:38:06.706996+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:c6056eb14f841117",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T01:36:18.931851+00:00",
+        "datePublished": "2026-06-07T01:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063434566686081024.png",
+            "remotePath": "archive/x/icegov/HKLKzkyWAAAz7ir.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKLKzkyWAAAz7ir.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKLKzkyWAAAz7ir.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063434566686081024.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKLKzkyWAAAz7ir.png"
+        ],
+        "platform": "X",
+        "postId": "2063434568934343146"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063434568934343146/README.md",
+      "path": "X/ICEgov/2026/06/07/2063434568934343146/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063434568934343146",
+      "summary": "Breider Macias Ospino \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Breider Macias Ospino \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Grand theft motor vehicle \ud83d\udc49Operating a v..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:f4b1e5fa76de0054",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T01:36:03.592808+00:00",
+        "datePublished": "2026-06-07T00:35:53+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063419642308124901"
+      },
+      "metadataPath": "X/DHSgov/2026/06/07/2063419642308124901/README.md",
+      "path": "X/DHSgov/2026/06/07/2063419642308124901/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063419642308124901",
+      "summary": "Repost of @SecretService:",
+      "title": "Repost of @SecretService: Information about Game 3 attendees should know before arriving a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:01c2ee7fdfb251b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T01:36:18.932312+00:00",
+        "datePublished": "2026-06-07T00:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063419468122869760.png",
+            "remotePath": "archive/x/icegov/HKK9EuQW0AATZRS.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKK9EuQW0AATZRS.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKK9EuQW0AATZRS.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063419468122869760.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKK9EuQW0AATZRS.png"
+        ],
+        "platform": "X",
+        "postId": "2063419469947400456"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063419469947400456/README.md",
+      "path": "X/ICEgov/2026/06/07/2063419469947400456/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063419469947400456",
+      "summary": "Rohit Singh \ud83d\udccdPROCESSED THROUGH DELANEY HALL LAST WEEK",
+      "title": "Rohit Singh \ud83d\udccdPROCESSED THROUGH DELANEY HALL LAST WEEK \ud83d\udc49Multiple motor vehicle infractions ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:c58a9893d6a2bcb0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T01:36:38.671418+00:00",
+        "datePublished": "2026-06-06T23:55:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063408463938457600.mp4",
+            "remotePath": "archive/x/rapidresponse47/kUQaApYT-FxL9beE.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063408463938457600/vid/avc1/1280x720/kUQaApYT-FxL9beE.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/kUQaApYT-FxL9beE.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063408463938457600.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/kUQaApYT-FxL9beE.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063409558681239889"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063409558681239889/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063409558681239889/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063409558681239889",
+      "summary": ".@epaleezeldin: During the first Trump Admin, @EPA took significant steps to permanently phase out animal testing \u2014 but that progress stalled under Biden. This past week, we just announced new progress towards phasing out animal testing altogether. https://t.co/Bf04xk7hOs",
+      "title": ".@epaleezeldin: During the first Trump Admin, @EPA took significant steps to permanently p..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:d1fc95406dd7815e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T01:36:38.671756+00:00",
+        "datePublished": "2026-06-06T23:38:33+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063404538623660035.mp4",
+            "remotePath": "archive/x/rapidresponse47/oiJjNZt_dzO7TlLM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063404538623660035/vid/avc1/1280x720/oiJjNZt_dzO7TlLM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/oiJjNZt_dzO7TlLM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063404538623660035.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/oiJjNZt_dzO7TlLM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063405212765684221"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/06/2063405212765684221/README.md",
+      "path": "X/RapidResponse47/2026/06/06/2063405212765684221/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063405212765684221",
+      "summary": ".@DAGToddBlanche on the @FBIMostWanted Fraudsters: \"These are individuals who are just stealing from us, and then going out and living in the lap of luxury \u2014 so we are going to continue, in every jurisdiction, to go after these fraudsters and arrest them.\" https://t.co/RiAFIKu3IG",
+      "title": ".@DAGToddBlanche on the @FBIMostWanted Fraudsters: \"These are individuals who are just ste..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-06",
+      "id": "socials:4a732543579afd4c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T01:36:18.932617+00:00",
+        "datePublished": "2026-06-06T23:35:11+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063404363616333824.png",
+            "remotePath": "archive/x/icegov/HKKvVhlXsAAkb7U.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKvVhlXsAAkb7U.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKKvVhlXsAAkb7U.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063404363616333824.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKKvVhlXsAAkb7U.png"
+        ],
+        "platform": "X",
+        "postId": "2063404365696680323"
+      },
+      "metadataPath": "X/ICEgov/2026/06/06/2063404365696680323/README.md",
+      "path": "X/ICEgov/2026/06/06/2063404365696680323/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063404365696680323",
+      "summary": "Manolo Reyes-Villatoro \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Manolo Reyes-Villatoro \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49DUI \ud83d\udc49Faiure to appear \ud83d\udc49Driving without ..."
+    },
     {
       "category": "X",
       "date": "2026-06-06",
