@@ -1,6 +1,64 @@
 {
-  "generatedAt": "2026-06-07T21:41:08.208397+00:00",
+  "generatedAt": "2026-06-07T22:50:40.403412+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:eb08465b403d5335",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T22:46:05.791647+00:00",
+        "datePublished": "2026-06-07T22:21:36+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063708889212755968.jpg",
+            "remotePath": "archive/x/whitehouse/HKPETP1XoAAJ9o2.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKPETP1XoAAJ9o2.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKPETP1XoAAJ9o2.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063708889212755968.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKPETP1XoAAJ9o2.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063748235886272633"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063748235886272633/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063748235886272633/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063748235886272633",
+      "summary": "Repost of @HHSGov:",
+      "title": "Repost of @HHSGov: Thought we\u2019d liven up the place with some decor. #Backrooms https://t.c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:32b1a75a1c3e8a87",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T22:45:24.593441+00:00",
+        "datePublished": "2026-06-07T22:05:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063744109660012691"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063744109660012691/README.md",
+      "path": "X/ICEgov/2026/06/07/2063744109660012691/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063744109660012691",
+      "summary": "Parents detained by ICE choose whether they want to name a guardian for their child. Many parents, understandably, want their children by their side.",
+      "title": "Parents detained by ICE choose whether they want to name a guardian for their child. Many ..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",

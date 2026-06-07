@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VNA4mTwiMg8: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VNA4mTwiMg8! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VNA4mTwiMg8&ei=x-QlavPwJtbdybgPlMe9-Qc&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780893495&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=48B2211498571B6C10EAE3141174EB972EF003BB.BEF10E47B206E3ECD64E59316DD10DC1CA719BDB&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VNA4mTwiMg8: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VNA4mTwiMg8! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VNA4mTwiMg8&ei=xfQlauaFFruAsfIPrJK2oQg&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780897589&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=AF34B4AAC5FE1DC69ACD11D9DB9A121AEEBCA792.6DC594B1A7BD072689D4D0C998B4A6E86A3A29E2&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -124645,6 +124645,17 @@
       "title": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges: \ud83d\udc49Felony assault...",
       "url": "https://x.com/ICEgov/status/2063736557295550852"
     },
+    "x:icegov:2063744109660012691": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-07T22:45:24.593441+00:00",
+      "path": "X/ICEgov/2026/06/07/2063744109660012691",
+      "platform": "x",
+      "post_id": "2063744109660012691",
+      "published": "2026-06-07T22:05:12+00:00",
+      "title": "Parents detained by ICE choose whether they want to name a guardian for their child. Many ...",
+      "url": "https://x.com/ICEgov/status/2063744109660012691"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -150076,6 +150087,17 @@
       "published": "2026-06-07T20:49:04+00:00",
       "title": "ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. \ud83d\udd25 When you doubt President...",
       "url": "https://x.com/WhiteHouse/status/2063724948493893932"
+    },
+    "x:whitehouse:2063748235886272633": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-07T22:46:05.791647+00:00",
+      "path": "X/WhiteHouse/2026/06/07/2063748235886272633",
+      "platform": "x",
+      "post_id": "2063748235886272633",
+      "published": "2026-06-07T22:21:36+00:00",
+      "title": "Repost of @HHSGov: Thought we\u2019d liven up the place with some decor. #Backrooms https://t.c...",
+      "url": "https://x.com/WhiteHouse/status/2063748235886272633"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

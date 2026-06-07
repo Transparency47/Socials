@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-07
 
-- Posts: 12
+- Posts: 13
 
+- [22:21 UTC - Repost of @HHSGov: Thought we’d liven up the place with some decor. #Backrooms https://t.c...](2063748235886272633/)
+  - Source: https://x.com/WhiteHouse/status/2063748235886272633
+  - Repost of @HHSGov: Thought we’d liven up the place with some decor. #Backrooms https://t.co/YkS3Hq6lpG
 - [20:49 UTC - ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. 🔥 When you doubt President...](2063724948493893932/)
   - Source: https://x.com/WhiteHouse/status/2063724948493893932
   - ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. 🔥 When you doubt President Trump, you lose. https://t.co/xTdU3NEtv3

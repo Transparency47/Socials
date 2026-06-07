@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 15
+- Posts: 16
 
+- [22:05 UTC - Parents detained by ICE choose whether they want to name a guardian for their child. Many ...](2063744109660012691/)
+  - Source: https://x.com/ICEgov/status/2063744109660012691
+  - Parents detained by ICE choose whether they want to name a guardian for their child. Many parents, understandably, want their children by their side. Unaccompanied alien children d...
 - [21:35 UTC - Cristian Misael Garcia-Sandres 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony assault...](2063736557295550852/)
   - Source: https://x.com/ICEgov/status/2063736557295550852
   - Cristian Misael Garcia-Sandres 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony assault 👉Harassment He has a 2019 final removal order and was previously removed. https://t.co/3k...
