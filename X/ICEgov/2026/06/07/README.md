@@ -1,7 +1,13 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 13
+- Posts: 15
 
+- [21:35 UTC - Cristian Misael Garcia-Sandres 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony assault...](2063736557295550852/)
+  - Source: https://x.com/ICEgov/status/2063736557295550852
+  - Cristian Misael Garcia-Sandres 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony assault 👉Harassment He has a 2019 final removal order and was previously removed. https://t.co/3k...
+- [20:35 UTC - Eloy Vargas Rivera 📍IN DELANEY HALL RIGHT NOW 👉Human smuggling Rivera thought he’d casuall...](2063721458870739254/)
+  - Source: https://x.com/ICEgov/status/2063721458870739254
+  - Eloy Vargas Rivera 📍IN DELANEY HALL RIGHT NOW 👉Human smuggling Rivera thought he’d casually fly back and forth between Mexico and the U.S. using his lawful permanent resident statu...
 - [18:35 UTC - Singh Kulnoor 📍IN DELANEY HALL RIGHT NOW Pending charges for: 👉Drug trafficking 👉Drug poss...](2063691259982598275/)
   - Source: https://x.com/ICEgov/status/2063691259982598275
   - Singh Kulnoor 📍IN DELANEY HALL RIGHT NOW Pending charges for: 👉Drug trafficking 👉Drug possession 👉Felony money laundering 👉Public order crimes https://t.co/VkxxQyTtb8

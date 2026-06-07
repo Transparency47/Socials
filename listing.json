@@ -1,6 +1,146 @@
 {
-  "generatedAt": "2026-06-07T20:12:20.716155+00:00",
+  "generatedAt": "2026-06-07T21:41:08.208397+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:ac62460d52bd9f88",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T21:36:36.561194+00:00",
+        "datePublished": "2026-06-07T21:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063736555101941760.png",
+            "remotePath": "archive/x/icegov/HKPddnTW8AAIgaZ.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKPddnTW8AAIgaZ.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKPddnTW8AAIgaZ.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063736555101941760.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKPddnTW8AAIgaZ.png"
+        ],
+        "platform": "X",
+        "postId": "2063736557295550852"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063736557295550852/README.md",
+      "path": "X/ICEgov/2026/06/07/2063736557295550852/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063736557295550852",
+      "summary": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges: \ud83d\udc49Felony assault..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:771a3d6c836c52d9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T21:37:18.157721+00:00",
+        "datePublished": "2026-06-07T20:49:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063724302969581568.mp4",
+            "remotePath": "archive/x/whitehouse/NNUPE_irkpiqxrP0.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063724302969581568/vid/avc1/3840x2160/NNUPE_irkpiqxrP0.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/NNUPE_irkpiqxrP0.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063724302969581568.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/NNUPE_irkpiqxrP0.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063724948493893932"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063724948493893932/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063724948493893932/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063724948493893932",
+      "summary": "ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. \ud83d\udd25",
+      "title": "ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. \ud83d\udd25 When you doubt President..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:aed66e1523871ead",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T21:36:36.561448+00:00",
+        "datePublished": "2026-06-07T20:35:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063721456626753536.png",
+            "remotePath": "archive/x/icegov/HKPPuxGW4AAR56e.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKPPuxGW4AAR56e.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKPPuxGW4AAR56e.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063721456626753536.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKPPuxGW4AAR56e.png"
+        ],
+        "platform": "X",
+        "postId": "2063721458870739254"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063721458870739254/README.md",
+      "path": "X/ICEgov/2026/06/07/2063721458870739254/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063721458870739254",
+      "summary": "Eloy Vargas Rivera \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Eloy Vargas Rivera \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Human smuggling Rivera thought he\u2019d casuall..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:fc1b57deab211ab5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T21:37:18.158004+00:00",
+        "datePublished": "2026-06-07T20:29:47+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063713371677949952.mp4",
+            "remotePath": "archive/x/whitehouse/2IYWyydlQGjcknJ2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063713371677949952/vid/avc1/1280x720/2IYWyydlQGjcknJ2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/2IYWyydlQGjcknJ2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063713371677949952.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/2IYWyydlQGjcknJ2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063720097261236287"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063720097261236287/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063720097261236287/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063720097261236287",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS speaks with @TreyYingst: \"What I would suggest to Iran..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",

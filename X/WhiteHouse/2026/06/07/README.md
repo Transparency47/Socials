@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-07
 
-- Posts: 10
+- Posts: 12
 
+- [20:49 UTC - ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. 🔥 When you doubt President...](2063724948493893932/)
+  - Source: https://x.com/WhiteHouse/status/2063724948493893932
+  - ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. 🔥 When you doubt President Trump, you lose. https://t.co/xTdU3NEtv3
+- [20:29 UTC - Repost of @RapidResponse47: .@POTUS speaks with @TreyYingst: "What I would suggest to Iran...](2063720097261236287/)
+  - Source: https://x.com/WhiteHouse/status/2063720097261236287
+  - Repost of @RapidResponse47: .@POTUS speaks with @TreyYingst: "What I would suggest to Iran: You've shot your missiles. That's enough — get back to the table and make a deal." https...
 - [19:26 UTC - Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup   ...](2063704195450986813/)
   - Source: https://x.com/WhiteHouse/status/2063704195450986813
   - Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup This @FBI is turning to its extensive cadre of crisis response experts to help support the m...

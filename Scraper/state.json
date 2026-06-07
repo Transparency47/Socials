@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VNA4mTwiMg8: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VNA4mTwiMg8! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VNA4mTwiMg8&ei=x-QlavPwJtbdybgPlMe9-Qc&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780893495&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=48B2211498571B6C10EAE3141174EB972EF003BB.BEF10E47B206E3ECD64E59316DD10DC1CA719BDB&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -124623,6 +124623,28 @@
       "title": "Singh Kulnoor \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges for: \ud83d\udc49Drug trafficking \ud83d\udc49Drug poss...",
       "url": "https://x.com/ICEgov/status/2063691259982598275"
     },
+    "x:icegov:2063721458870739254": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-07T21:36:36.561448+00:00",
+      "path": "X/ICEgov/2026/06/07/2063721458870739254",
+      "platform": "x",
+      "post_id": "2063721458870739254",
+      "published": "2026-06-07T20:35:12+00:00",
+      "title": "Eloy Vargas Rivera \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49Human smuggling Rivera thought he\u2019d casuall...",
+      "url": "https://x.com/ICEgov/status/2063721458870739254"
+    },
+    "x:icegov:2063736557295550852": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-07T21:36:36.561194+00:00",
+      "path": "X/ICEgov/2026/06/07/2063736557295550852",
+      "platform": "x",
+      "post_id": "2063736557295550852",
+      "published": "2026-06-07T21:35:12+00:00",
+      "title": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges: \ud83d\udc49Felony assault...",
+      "url": "https://x.com/ICEgov/status/2063736557295550852"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -150032,6 +150054,28 @@
       "published": "2026-06-07T19:26:36+00:00",
       "title": "Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup \u00a0 ...",
       "url": "https://x.com/WhiteHouse/status/2063704195450986813"
+    },
+    "x:whitehouse:2063720097261236287": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-07T21:37:18.158004+00:00",
+      "path": "X/WhiteHouse/2026/06/07/2063720097261236287",
+      "platform": "x",
+      "post_id": "2063720097261236287",
+      "published": "2026-06-07T20:29:47+00:00",
+      "title": "Repost of @RapidResponse47: .@POTUS speaks with @TreyYingst: \"What I would suggest to Iran...",
+      "url": "https://x.com/WhiteHouse/status/2063720097261236287"
+    },
+    "x:whitehouse:2063724948493893932": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-07T21:37:18.157721+00:00",
+      "path": "X/WhiteHouse/2026/06/07/2063724948493893932",
+      "platform": "x",
+      "post_id": "2063724948493893932",
+      "published": "2026-06-07T20:49:04+00:00",
+      "title": "ANOTHER MONTH STRAIGHT OF THE JOB MARKET CRUSHING EXPECTATIONS. \ud83d\udd25 When you doubt President...",
+      "url": "https://x.com/WhiteHouse/status/2063724948493893932"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
