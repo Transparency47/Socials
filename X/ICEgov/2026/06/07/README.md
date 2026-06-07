@@ -1,7 +1,19 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 2
+- Posts: 6
 
+- [04:05 UTC - Freiman Xaviel Hamui-Morales 📍PROCESSED THROUGH DELANEY HALL LAST MONTH 👉Credit card fraud...](2063472316294607278/)
+  - Source: https://x.com/ICEgov/status/2063472316294607278
+  - Freiman Xaviel Hamui-Morales 📍PROCESSED THROUGH DELANEY HALL LAST MONTH 👉Credit card fraud 👉Organized scheme to defraud 👉Cocaine 👉Narcotics equipment possession 👉Possession of coun...
+- [03:05 UTC - Yuehua Li 📍IN DELANEY HALL RIGHT NOW Pending Charges: 👉Fraud-impersonation 👉Drug Possessio...](2063457227109793861/)
+  - Source: https://x.com/ICEgov/status/2063457227109793861
+  - Yuehua Li 📍IN DELANEY HALL RIGHT NOW Pending Charges: 👉Fraud-impersonation 👉Drug Possession 👉Dangerous drugs 👉Prostitution ICE @ERONewYork arrested her Feb. 3 pursuant to a warrant...
+- [02:54 UTC - Repost of @DHSgov: LAW AND ORDER.](2063454608215744880/)
+  - Source: https://x.com/ICEgov/status/2063454608215744880
+  - Repost of @DHSgov: LAW AND ORDER.
+- [02:00 UTC - 📢The United States is not a safe haven for international fugitives. https://t.co/T5UDyicnn...](2063440813900599743/)
+  - Source: https://x.com/ICEgov/status/2063440813900599743
+  - 📢The United States is not a safe haven for international fugitives. https://t.co/T5UDyicnnj
 - [01:35 UTC - Breider Macias Ospino 📍IN DELANEY HALL RIGHT NOW 👉Grand theft motor vehicle 👉Operating a v...](2063434568934343146/)
   - Source: https://x.com/ICEgov/status/2063434568934343146
   - Breider Macias Ospino 📍IN DELANEY HALL RIGHT NOW 👉Grand theft motor vehicle 👉Operating a vehicle without a license https://t.co/uNMUwkhEiM
