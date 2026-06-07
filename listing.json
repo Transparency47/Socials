@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-07T11:29:41.572400+00:00",
+  "generatedAt": "2026-06-07T13:02:17.591254+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:bae8b493222cc0b4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T12:58:14.043394+00:00",
+        "datePublished": "2026-06-07T12:48:10+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063600661770416128.png",
+            "remotePath": "archive/x/icegov/HKNh3lMWMAAxfoA.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKNh3lMWMAAxfoA.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKNh3lMWMAAxfoA.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063600661770416128.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKNh3lMWMAAxfoA.png"
+        ],
+        "platform": "X",
+        "postId": "2063603926146986016"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063603926146986016/README.md",
+      "path": "X/ICEgov/2026/06/07/2063603926146986016/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063603926146986016",
+      "summary": "Eliannys Del Carmen Pineda-Ugarte \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Eliannys Del Carmen Pineda-Ugarte \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges: \ud83d\udc49Felony poss..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",

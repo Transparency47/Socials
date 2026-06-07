@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 6
+- Posts: 7
 
+- [12:48 UTC - Eliannys Del Carmen Pineda-Ugarte 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony poss...](2063603926146986016/)
+  - Source: https://x.com/ICEgov/status/2063603926146986016
+  - Eliannys Del Carmen Pineda-Ugarte 📍IN DELANEY HALL RIGHT NOW Pending charges: 👉Felony possession of a stolen vehicle 👉Prostitution x3 https://t.co/SR1blF51vO
 - [04:05 UTC - Freiman Xaviel Hamui-Morales 📍PROCESSED THROUGH DELANEY HALL LAST MONTH 👉Credit card fraud...](2063472316294607278/)
   - Source: https://x.com/ICEgov/status/2063472316294607278
   - Freiman Xaviel Hamui-Morales 📍PROCESSED THROUGH DELANEY HALL LAST MONTH 👉Credit card fraud 👉Organized scheme to defraud 👉Cocaine 👉Narcotics equipment possession 👉Possession of coun...
