@@ -1,6 +1,64 @@
 {
-  "generatedAt": "2026-06-07T22:50:40.403412+00:00",
+  "generatedAt": "2026-06-07T23:51:23.835644+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:573032c9ecd631f0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T23:47:32.632107+00:00",
+        "datePublished": "2026-06-07T23:47:20+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063769810350080061"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063769810350080061/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063769810350080061/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063769810350080061",
+      "summary": "Repost of @ENERGY:",
+      "title": "Repost of @ENERGY: \ud83d\udea8ICYMI: First test reactor in President Trump\u2019s Pilot Program hits mile..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:0c9761aa8eb4d382",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T23:47:06.225879+00:00",
+        "datePublished": "2026-06-07T23:05:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063759205706747904.png",
+            "remotePath": "archive/x/icegov/HKPyEDYX0AAhOza.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKPyEDYX0AAhOza.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKPyEDYX0AAhOza.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063759205706747904.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKPyEDYX0AAhOza.png"
+        ],
+        "platform": "X",
+        "postId": "2063759207640305868"
+      },
+      "metadataPath": "X/ICEgov/2026/06/07/2063759207640305868/README.md",
+      "path": "X/ICEgov/2026/06/07/2063759207640305868/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063759207640305868",
+      "summary": "Hector Rivas Sanchez \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Hector Rivas Sanchez \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49DUI x2 \ud83d\udc49Receiving stolen property \ud83d\udc49Felony..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",

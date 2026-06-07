@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-07
 
-- Posts: 16
+- Posts: 17
 
+- [23:05 UTC - Hector Rivas Sanchez 📍IN DELANEY HALL RIGHT NOW 👉DUI x2 👉Receiving stolen property 👉Felony...](2063759207640305868/)
+  - Source: https://x.com/ICEgov/status/2063759207640305868
+  - Hector Rivas Sanchez 📍IN DELANEY HALL RIGHT NOW 👉DUI x2 👉Receiving stolen property 👉Felony larceny In addition to arrests for assault and domestic violence, he has pending charges...
 - [22:05 UTC - Parents detained by ICE choose whether they want to name a guardian for their child. Many ...](2063744109660012691/)
   - Source: https://x.com/ICEgov/status/2063744109660012691
   - Parents detained by ICE choose whether they want to name a guardian for their child. Many parents, understandably, want their children by their side. Unaccompanied alien children d...
