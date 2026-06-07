@@ -1,6 +1,126 @@
 {
-  "generatedAt": "2026-06-07T19:00:10.993085+00:00",
+  "generatedAt": "2026-06-07T20:12:20.716155+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:7b3318261a82b876",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-07T20:08:43.301285+00:00",
+        "datePublished": "2026-06-07T20:05:19+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063713371677949952.mp4",
+            "remotePath": "archive/x/rapidresponse47/2IYWyydlQGjcknJ2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063713371677949952/vid/avc1/1280x720/2IYWyydlQGjcknJ2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/2IYWyydlQGjcknJ2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063713371677949952.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/2IYWyydlQGjcknJ2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063713939226083575"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/07/2063713939226083575/README.md",
+      "path": "X/RapidResponse47/2026/06/07/2063713939226083575/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063713939226083575",
+      "summary": ".@POTUS speaks with @TreyYingst: \"What I would suggest to Iran: You've shot your missiles. That's enough \u2014 get back to the table and make a deal.\" https://t.co/smFK6R7cmB",
+      "title": ".@POTUS speaks with @TreyYingst: \"What I would suggest to Iran: You've shot your missiles...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:4c88f2be2baf1811",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T20:09:07.372412+00:00",
+        "datePublished": "2026-06-07T19:26:36+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063704195450986813"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063704195450986813/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063704195450986813/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063704195450986813",
+      "summary": "Repost of @FBIDirectorKash:",
+      "title": "Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup \u00a0 ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:d679dfc1a7e25ea7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-07T20:09:07.372722+00:00",
+        "datePublished": "2026-06-07T19:26:27+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063699254925783040.jpg",
+            "remotePath": "archive/x/whitehouse/HKO7idUW8AAYt8B.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKO7idUW8AAYt8B.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKO7idUW8AAYt8B.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063699254841839616.jpg",
+            "remotePath": "archive/x/whitehouse/HKO7idAWEAARUcf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKO7idAWEAARUcf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKO7idAWEAARUcf.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2063699254896361472.jpg",
+            "remotePath": "archive/x/whitehouse/HKO7idNWAAARIpe.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKO7idNWAAARIpe.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKO7idNWAAARIpe.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2063699254875463680.jpg",
+            "remotePath": "archive/x/whitehouse/HKO7idIXIAAfgOk.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKO7idIXIAAfgOk.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKO7idIXIAAfgOk.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063699254925783040.jpg",
+          "media/02_image_2063699254841839616.jpg",
+          "media/03_image_2063699254896361472.jpg",
+          "media/04_image_2063699254875463680.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKO7idUW8AAYt8B.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKO7idAWEAARUcf.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKO7idNWAAARIpe.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKO7idIXIAAfgOk.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063704157555401180"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/07/2063704157555401180/README.md",
+      "path": "X/WhiteHouse/2026/06/07/2063704157555401180/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063704157555401180",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: Life, Liberty and the Pursuit of Summer Vibes \ud83c\uddfa\ud83c\uddf8 https://t.co/..."
+    },
     {
       "category": "X",
       "date": "2026-06-07",

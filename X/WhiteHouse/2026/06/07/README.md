@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-07
 
-- Posts: 8
+- Posts: 10
 
+- [19:26 UTC - Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup   ...](2063704195450986813/)
+  - Source: https://x.com/WhiteHouse/status/2063704195450986813
+  - Repost of @FBIDirectorKash: June 7: FBI tactical teams mobilizing for the @FIFAWorldCup This @FBI is turning to its extensive cadre of crisis response experts to help support the m...
+- [19:26 UTC - Repost of @SecretaryBurgum: Life, Liberty and the Pursuit of Summer Vibes 🇺🇸 https://t.co/...](2063704157555401180/)
+  - Source: https://x.com/WhiteHouse/status/2063704157555401180
+  - Repost of @SecretaryBurgum: Life, Liberty and the Pursuit of Summer Vibes 🇺🇸 https://t.co/tAIaDkaD06
 - [18:36 UTC - Repost of @SecretaryBurgum: .@Interior is honoring America's 250th birthday with the Great...](2063691667505340601/)
   - Source: https://x.com/WhiteHouse/status/2063691667505340601
   - Repost of @SecretaryBurgum: .@Interior is honoring America's 250th birthday with the Great American Expedition, celebrating the communities, partners and @Interior team who steward...

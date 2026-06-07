@@ -1,7 +1,10 @@
 # X / RapidResponse47 / 2026-06-07
 
-- Posts: 13
+- Posts: 14
 
+- [20:05 UTC - .@POTUS speaks with @TreyYingst: "What I would suggest to Iran: You've shot your missiles....](2063713939226083575/)
+  - Source: https://x.com/RapidResponse47/status/2063713939226083575
+  - .@POTUS speaks with @TreyYingst: "What I would suggest to Iran: You've shot your missiles. That's enough — get back to the table and make a deal." https://t.co/smFK6R7cmB
 - [14:35 UTC - .@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system: "Do you...](2063631054305411116/)
   - Source: https://x.com/RapidResponse47/status/2063631054305411116
   - .@POTUS bodies @kwelkernbc on California's pathetic excuse for an election system: "Do you think it's appropriate that they have an election and five days later they're nowhere clo...
