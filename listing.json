@@ -1,6 +1,168 @@
 {
-  "generatedAt": "2026-06-08T07:28:31.245560+00:00",
+  "generatedAt": "2026-06-08T12:20:01.971155+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:c588ff19d188b096",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:27.265550+00:00",
+        "datePublished": "2026-06-08T11:16:59+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063943364509143040.jpg",
+            "remotePath": "archive/x/whitehouse/HKSZjgYXkAAWRhU.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKSZjgYXkAAWRhU.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKSZjgYXkAAWRhU.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063943364509143040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKSZjgYXkAAWRhU.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063943366983725410"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2063943366983725410/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2063943366983725410/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063943366983725410",
+      "summary": "\u201cBoth sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on \u201cPeace\u201d are proceeding, subject to ignorance or stupidity getting in its way\u2026\u201d - President DONALD J. TRUMP https://t.co/zLoFSZo3jZ",
+      "title": "\u201cBoth sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:c1b128ba2b1051c2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:34.449314+00:00",
+        "datePublished": "2026-06-08T10:34:10.472000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116714035637911912"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116714035637911912/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116714035637911912/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116714035637911912",
+      "summary": "Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on \u201cPeace\u201d are proceeding, subject to ignorance or stupidity getting in its way. The Blockade will remain in place, and in full force and effect, until a \u201cFinal Deal\u201d is reached. Things shou",
+      "title": "Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:5c71bad7c5b2dd35",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:34.450034+00:00",
+        "datePublished": "2026-06-08T10:15:09.792000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116713960884981914"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116713960884981914/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116713960884981914/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116713960884981914",
+      "summary": "Congressional report slams Minnesota's Walz, Ellison for turning \u2018blind eye\u2019 to mass welfare fraud: [https:// justthenews.com/accountability /waste-fraud-and-abuse/mon4ablind-eye-house-report-slams-minnesotas-walz-ellison](https://justthenews.com/accountability/waste-fraud-and-ab",
+      "title": "Congressional report slams Minnesota's Walz, Ellison for turning \u2018blind eye\u2019 to mass welfa..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:ea4a274a353cb2f7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:34.450365+00:00",
+        "datePublished": "2026-06-08T09:36:39.124000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116713809450237814"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116713809450237814/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116713809450237814/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116713809450237814",
+      "summary": "Israel and Iran must immediately stop \u201cshooting.\u201d President DONALD J. TRUMP",
+      "title": "Israel and Iran must immediately stop \u201cshooting.\u201d President DONALD J. TRUMP"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:c3b815c12faea329",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:34.450701+00:00",
+        "datePublished": "2026-06-08T09:26:56.495000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116713771022409099.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/534121378c9d51e1.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/713/771/022/409/099/original/534121378c9d51e1.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/534121378c9d51e1.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116713771022409099.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/534121378c9d51e1.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116713771269812342"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116713771269812342/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116713771269812342/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116713771269812342",
+      "summary": "No way this could have happened. Rigged Election!",
+      "title": "No way this could have happened. Rigged Election!"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:6d5639db79a53481",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T12:15:34.452206+00:00",
+        "datePublished": "2026-06-08T09:00:46.813000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116713668398940960"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116713668398940960/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116713668398940960/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116713668398940960",
+      "summary": "RT [@ pjcolbeck](https://truthsocial.com/@pjcolbeck) FACT-CHECKING: During June 7, 2026 interview of President Trump in Wisconsin, the Meet the Press reporter says \"there is no evidence\" that the 2020 election was rigged. President Trump says there is. Who is correct? PRESIDENT T",
+      "title": "RT [@ pjcolbeck](https://truthsocial.com/@pjcolbeck) FACT-CHECKING: During June 7, 2026 in..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-08",

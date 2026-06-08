@@ -1,7 +1,10 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 3
+- Posts: 4
 
+- [11:16 UTC - “Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations...](2063943366983725410/)
+  - Source: https://x.com/WhiteHouse/status/2063943366983725410
+  - “Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on “Peace” are proceeding, subject to ignorance or stupidity getting in its way…” - Presi...
 - [01:08 UTC - ONE WEEK AWAY. 🔥🥊 @UFC X WHITE HOUSE. Buckle up. It’s about to go DOWN. https://t.co/AECSM...](2063790148878234068/)
   - Source: https://x.com/WhiteHouse/status/2063790148878234068
   - ONE WEEK AWAY. 🔥🥊 @UFC X WHITE HOUSE. Buckle up. It’s about to go DOWN. https://t.co/AECSMggzd9
