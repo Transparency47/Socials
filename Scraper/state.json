@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=VNA4mTwiMg8: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=VNA4mTwiMg8! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=VNA4mTwiMg8&ei=RwMmaqXPNaGAkucPy8nQoAE&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780901303&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=1E65BCDD74133B39FE4B02214E695C15B814448E.59B6E5E698F3557F8C9125DF4D0E4B421E8577E8&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9166,6 +9166,17 @@
       "published": "2026-06-07T13:43:38+00:00",
       "title": "Good morning. It\u2019s 6/7.",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7648648549172907278"
+    },
+    "tiktok:whitehouse:7648848710503255310": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:53:46.771616+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/08/7648848710503255310",
+      "platform": "tiktok",
+      "post_id": "7648848710503255310",
+      "published": "2026-06-08T02:39:48+00:00",
+      "title": "ONE WEEK.",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7648848710503255310"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -113634,6 +113645,17 @@
       "title": "This will someday save Washington. Judge Leon has to get out of the way, and FAST. He is p...",
       "url": "https://truthsocial.com/@realDonaldTrump/116705031438300324"
     },
+    "truthsocial:realdonaldtrump:116712221527618072": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:53:36.885366+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116712221527618072",
+      "platform": "truthsocial",
+      "post_id": "116712221527618072",
+      "published": "2026-06-08T02:52:49.306000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)",
+      "url": "https://truthsocial.com/@realDonaldTrump/116712221527618072"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -120883,6 +120905,28 @@
       "title": "LAW AND ORDER.",
       "url": "https://x.com/DHSgov/status/2063447755079430559"
     },
+    "x:dhsgov:2063770673101594975": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:52:28.296467+00:00",
+      "path": "X/DHSgov/2026/06/07/2063770673101594975",
+      "platform": "x",
+      "post_id": "2063770673101594975",
+      "published": "2026-06-07T23:50:46+00:00",
+      "title": "Rioters will NOT slow us down. @ICEgov operations at Delaney Hall continue undeterred.",
+      "url": "https://x.com/DHSgov/status/2063770673101594975"
+    },
+    "x:dhsgov:2063777969349202063": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:52:28.296122+00:00",
+      "path": "X/DHSgov/2026/06/08/2063777969349202063",
+      "platform": "x",
+      "post_id": "2063777969349202063",
+      "published": "2026-06-08T00:19:45+00:00",
+      "title": "Order will prevail. Violent rioters will not stop or deter us.",
+      "url": "https://x.com/DHSgov/status/2063777969349202063"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -124667,6 +124711,50 @@
       "title": "Hector Rivas Sanchez \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49DUI x2 \ud83d\udc49Receiving stolen property \ud83d\udc49Felony...",
       "url": "https://x.com/ICEgov/status/2063759207640305868"
     },
+    "x:icegov:2063774308623683830": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:52:43.379034+00:00",
+      "path": "X/ICEgov/2026/06/08/2063774308623683830",
+      "platform": "x",
+      "post_id": "2063774308623683830",
+      "published": "2026-06-08T00:05:12+00:00",
+      "title": "Angel Patricio Yupangue-Tamay \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49DUI Arrested twice for DUI and c...",
+      "url": "https://x.com/ICEgov/status/2063774308623683830"
+    },
+    "x:icegov:2063777377361043470": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T02:52:43.378756+00:00",
+      "path": "X/ICEgov/2026/06/08/2063777377361043470",
+      "platform": "x",
+      "post_id": "2063777377361043470",
+      "published": "2026-06-08T00:17:24+00:00",
+      "title": "Repost of @DHSgov: Rioters will NOT slow us down. @ICEgov operations at Delaney Hall conti...",
+      "url": "https://x.com/ICEgov/status/2063777377361043470"
+    },
+    "x:icegov:2063790715616796862": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T02:52:43.378470+00:00",
+      "path": "X/ICEgov/2026/06/08/2063790715616796862",
+      "platform": "x",
+      "post_id": "2063790715616796862",
+      "published": "2026-06-08T01:10:24+00:00",
+      "title": "Repost of @DHSgov: Order will prevail. Violent rioters will not stop or deter us.",
+      "url": "https://x.com/ICEgov/status/2063790715616796862"
+    },
+    "x:icegov:2063812053412786650": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:52:43.378145+00:00",
+      "path": "X/ICEgov/2026/06/08/2063812053412786650",
+      "platform": "x",
+      "post_id": "2063812053412786650",
+      "published": "2026-06-08T02:35:11+00:00",
+      "title": "ICE @ERONewark arrested Marcos Delacruz, a criminal illegal alien from El Salvador who was...",
+      "url": "https://x.com/ICEgov/status/2063812053412786650"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -126481,6 +126569,17 @@
       "published": "2026-06-07T13:58:45+00:00",
       "title": "Repost of @WhiteHouse: President Donald J. Trump sits down with Kristen Welker on @MeetThe...",
       "url": "https://x.com/POTUS/status/2063621687183134903"
+    },
+    "x:potus:2063801760754319705": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T02:52:51.219598+00:00",
+      "path": "X/POTUS/2026/06/08/2063801760754319705",
+      "platform": "x",
+      "post_id": "2063801760754319705",
+      "published": "2026-06-08T01:54:18+00:00",
+      "title": "Repost of @WhiteHouse: ONE WEEK AWAY. \ud83d\udd25\ud83e\udd4a @UFC X WHITE HOUSE. Buckle up. It\u2019s about to go D...",
+      "url": "https://x.com/POTUS/status/2063801760754319705"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -150121,6 +150220,39 @@
       "title": "Repost of @HHSGov: Thought we\u2019d liven up the place with some decor. #Backrooms https://t.c...",
       "url": "https://x.com/WhiteHouse/status/2063748235886272633"
     },
+    "x:whitehouse:2063788646717608433": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T02:53:26.515851+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2063788646717608433",
+      "platform": "x",
+      "post_id": "2063788646717608433",
+      "published": "2026-06-08T01:02:11+00:00",
+      "title": "Repost of @SecDuffy: ALL ROADS LEAD TO TEAM USA \ud83c\uddfa\ud83c\uddf8\u26bd\ufe0f From bus drivers to baggage handlers....",
+      "url": "https://x.com/WhiteHouse/status/2063788646717608433"
+    },
+    "x:whitehouse:2063788883985260640": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T02:53:26.515559+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2063788883985260640",
+      "platform": "x",
+      "post_id": "2063788883985260640",
+      "published": "2026-06-08T01:03:07+00:00",
+      "title": "Repost of @Freedom250: \ud83c\udfa1\ud83c\uddfa\ud83c\uddf8 Take a look at what's coming to the National Mall. A Ferris whe...",
+      "url": "https://x.com/WhiteHouse/status/2063788883985260640"
+    },
+    "x:whitehouse:2063790148878234068": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T02:53:26.515211+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2063790148878234068",
+      "platform": "x",
+      "post_id": "2063790148878234068",
+      "published": "2026-06-08T01:08:09+00:00",
+      "title": "ONE WEEK AWAY. \ud83d\udd25\ud83e\udd4a @UFC X WHITE HOUSE. Buckle up. It\u2019s about to go DOWN. https://t.co/AECSM...",
+      "url": "https://x.com/WhiteHouse/status/2063790148878234068"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -159503,6 +159635,17 @@
       "published": "2025-05-02T18:45:24+00:00",
       "title": "President Trump at the University of Alabama: \"We believe in the SEC and the USA\"",
       "url": "https://www.youtube.com/watch?v=VN0eJb7pWAA"
+    },
+    "youtube:whitehouse:VNA4mTwiMg8": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-08T02:53:49.422924+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/07/VNA4mTwiMg8",
+      "platform": "youtube",
+      "post_id": "VNA4mTwiMg8",
+      "published": "2026-06-07T21:03:25+00:00",
+      "title": "May Jobs Report: Another Month Straight of the Jobs Report Crushing Expectations",
+      "url": "https://www.youtube.com/watch?v=VNA4mTwiMg8"
     },
     "youtube:whitehouse:VOAjg2boK_g": {
       "account": "WhiteHouse",

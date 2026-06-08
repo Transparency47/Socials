@@ -1,6 +1,366 @@
 {
-  "generatedAt": "2026-06-07T23:51:23.835644+00:00",
+  "generatedAt": "2026-06-08T02:54:36.249029+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:13b61f78e7f4e55e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:53:36.885366+00:00",
+        "datePublished": "2026-06-08T02:52:49.306000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116712221527618072"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116712221527618072/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116712221527618072/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116712221527618072",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-08",
+      "id": "socials:e411d2abd8ca691d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:53:46.771616+00:00",
+        "datePublished": "2026-06-08T02:39:48+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7648848710503255310.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7648848710503255310.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648848710503255310",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7648848710503255310.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7648848710503255310.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7648848710503255310.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7648848710503255310"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/08/7648848710503255310/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/08/7648848710503255310/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7648848710503255310",
+      "summary": "ONE WEEK.",
+      "title": "ONE WEEK."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5a4adcfe2293d97c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:52:43.378145+00:00",
+        "datePublished": "2026-06-08T02:35:11+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063812050564874240.png",
+            "remotePath": "archive/x/icegov/HKQiIB0XAAAwWU0.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKQiIB0XAAAwWU0.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKQiIB0XAAAwWU0.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063812050564874240.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKQiIB0XAAAwWU0.png"
+        ],
+        "platform": "X",
+        "postId": "2063812053412786650"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063812053412786650/README.md",
+      "path": "X/ICEgov/2026/06/08/2063812053412786650/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063812053412786650",
+      "summary": "ICE @ERONewark arrested Marcos Delacruz, a criminal illegal alien from El Salvador who was convicted of sexual assault and fraud, upon his release from a state correctional facility in Avenel, NJ.",
+      "title": "ICE @ERONewark arrested Marcos Delacruz, a criminal illegal alien from El Salvador who was..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:36c728c39c594472",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T02:52:51.219598+00:00",
+        "datePublished": "2026-06-08T01:54:18+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063789818933313536.mp4",
+            "remotePath": "archive/x/potus/UieOeerjmK8XFqRP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063789818933313536/vid/avc1/3840x2026/UieOeerjmK8XFqRP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/UieOeerjmK8XFqRP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063789818933313536.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/UieOeerjmK8XFqRP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063801760754319705"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2063801760754319705/README.md",
+      "path": "X/POTUS/2026/06/08/2063801760754319705/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063801760754319705",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: ONE WEEK AWAY. \ud83d\udd25\ud83e\udd4a @UFC X WHITE HOUSE. Buckle up. It\u2019s about to go D..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:456b5fea36c5a457",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T02:52:43.378470+00:00",
+        "datePublished": "2026-06-08T01:10:24+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063790715616796862"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063790715616796862/README.md",
+      "path": "X/ICEgov/2026/06/08/2063790715616796862/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063790715616796862",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Order will prevail. Violent rioters will not stop or deter us."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6fbda3ce52f6457c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:53:26.515211+00:00",
+        "datePublished": "2026-06-08T01:08:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063789818933313536.mp4",
+            "remotePath": "archive/x/whitehouse/UieOeerjmK8XFqRP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063789818933313536/vid/avc1/3840x2026/UieOeerjmK8XFqRP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/UieOeerjmK8XFqRP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063789818933313536.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/UieOeerjmK8XFqRP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063790148878234068"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2063790148878234068/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2063790148878234068/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063790148878234068",
+      "summary": "ONE WEEK AWAY. \ud83d\udd25\ud83e\udd4a",
+      "title": "ONE WEEK AWAY. \ud83d\udd25\ud83e\udd4a @UFC X WHITE HOUSE. Buckle up. It\u2019s about to go DOWN. https://t.co/AECSM..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a602d9b0a5593df9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T02:53:26.515559+00:00",
+        "datePublished": "2026-06-08T01:03:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063785500335292417.mp4",
+            "remotePath": "archive/x/whitehouse/jMdNlPrqhOeltYvB.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063785500335292417/vid/avc1/1920x1080/jMdNlPrqhOeltYvB.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/jMdNlPrqhOeltYvB.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063785500335292417.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/jMdNlPrqhOeltYvB.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063788883985260640"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2063788883985260640/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2063788883985260640/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063788883985260640",
+      "summary": "Repost of @Freedom250:",
+      "title": "Repost of @Freedom250: \ud83c\udfa1\ud83c\uddfa\ud83c\uddf8 Take a look at what's coming to the National Mall. A Ferris whe..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:dd60f5e88a8ed056",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T02:53:26.515851+00:00",
+        "datePublished": "2026-06-08T01:02:11+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063756973913300992.mp4",
+            "remotePath": "archive/x/whitehouse/szb63D96IawgF5v8.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063756973913300992/vid/avc1/1280x720/szb63D96IawgF5v8.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/szb63D96IawgF5v8.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063756973913300992.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/szb63D96IawgF5v8.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063788646717608433"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2063788646717608433/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2063788646717608433/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2063788646717608433",
+      "summary": "Repost of @SecDuffy:",
+      "title": "Repost of @SecDuffy: ALL ROADS LEAD TO TEAM USA \ud83c\uddfa\ud83c\uddf8\u26bd\ufe0f From bus drivers to baggage handlers...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3193b9b7734eb388",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:52:28.296122+00:00",
+        "datePublished": "2026-06-08T00:19:45+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063777969349202063"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2063777969349202063/README.md",
+      "path": "X/DHSgov/2026/06/08/2063777969349202063/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063777969349202063",
+      "summary": "Order will prevail.",
+      "title": "Order will prevail. Violent rioters will not stop or deter us."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2978967cd142cf96",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T02:52:43.378756+00:00",
+        "datePublished": "2026-06-08T00:17:24+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063777377361043470"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063777377361043470/README.md",
+      "path": "X/ICEgov/2026/06/08/2063777377361043470/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063777377361043470",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Rioters will NOT slow us down. @ICEgov operations at Delaney Hall conti..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a0548280e291ffab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:52:43.379034+00:00",
+        "datePublished": "2026-06-08T00:05:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063774306572570624.png",
+            "remotePath": "archive/x/icegov/HKP_zCfWEAAHf7d.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKP_zCfWEAAHf7d.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKP_zCfWEAAHf7d.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063774306572570624.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKP_zCfWEAAHf7d.png"
+        ],
+        "platform": "X",
+        "postId": "2063774308623683830"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063774308623683830/README.md",
+      "path": "X/ICEgov/2026/06/08/2063774308623683830/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063774308623683830",
+      "summary": "Angel Patricio Yupangue-Tamay \ud83d\udccdIN DELANEY HALL RIGHT NOW",
+      "title": "Angel Patricio Yupangue-Tamay \ud83d\udccdIN DELANEY HALL RIGHT NOW \ud83d\udc49DUI Arrested twice for DUI and c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-07",
+      "id": "socials:a505458e6d223000",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T02:52:28.296467+00:00",
+        "datePublished": "2026-06-07T23:50:46+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063770673101594975"
+      },
+      "metadataPath": "X/DHSgov/2026/06/07/2063770673101594975/README.md",
+      "path": "X/DHSgov/2026/06/07/2063770673101594975/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063770673101594975",
+      "summary": "Rioters will NOT slow us down.",
+      "title": "Rioters will NOT slow us down. @ICEgov operations at Delaney Hall continue undeterred."
+    },
     {
       "category": "X",
       "date": "2026-06-07",
@@ -151,6 +511,29 @@
       "sourceUrl": "https://x.com/ICEgov/status/2063736557295550852",
       "summary": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW",
       "title": "Cristian Misael Garcia-Sandres \ud83d\udccdIN DELANEY HALL RIGHT NOW Pending charges: \ud83d\udc49Felony assault..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-07",
+      "id": "socials:df8769d903107dd1",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-08T02:53:49.422924+00:00",
+        "datePublished": "2026-06-07T21:03:25+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "VNA4mTwiMg8"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/07/VNA4mTwiMg8/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/07/VNA4mTwiMg8/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=VNA4mTwiMg8",
+      "summary": "- [00:00.080] And the data is out. The maid job jobs - [00:03.040] report - [00:05.520] 172,000. - [00:07.520] That is a really strong number. - [00:09.200] >> It's another month straight this spring - [00:10.719] of the job market crushing expectations. - [00:13.440] 172,000 new",
+      "title": "May Jobs Report: Another Month Straight of the Jobs Report Crushing Expectations"
     },
     {
       "category": "X",

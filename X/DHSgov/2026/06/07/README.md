@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-07
 
-- Posts: 2
+- Posts: 3
 
+- [23:50 UTC - Rioters will NOT slow us down. @ICEgov operations at Delaney Hall continue undeterred.](2063770673101594975/)
+  - Source: https://x.com/DHSgov/status/2063770673101594975
+  - Rioters will NOT slow us down. @ICEgov operations at Delaney Hall continue undeterred.
 - [02:27 UTC - LAW AND ORDER.](2063447755079430559/)
   - Source: https://x.com/DHSgov/status/2063447755079430559
   - LAW AND ORDER.
