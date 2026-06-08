@@ -1,6 +1,29 @@
 {
-  "generatedAt": "2026-06-08T02:54:36.249029+00:00",
+  "generatedAt": "2026-06-08T07:28:31.245560+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:9e9a46ee6a62083b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T07:27:18.278777+00:00",
+        "datePublished": "2026-06-08T03:02:48.439000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116712260792747726"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116712260792747726/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116712260792747726/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116712260792747726",
+      "summary": "Has anybody been watching the CROOKED Election going on in California. Two great Republican Candidates are being cheated, and so is America, which if the Dumocrats are able to fulfill their mission, great trouble and consternation will follow. Watch this \u201cElection\u201d closely!!! Pre",
+      "title": "Has anybody been watching the CROOKED Election going on in California. Two great Republica..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-08",
