@@ -1,7 +1,19 @@
 # X / DHSgov / 2026-06-08
 
-- Posts: 8
+- Posts: 12
 
+- [22:12 UTC - Repost of @SecMullinDHS: I’m not surprised you would say something like this, @GovSherrill...](2064108363990880628/)
+  - Source: https://x.com/DHSgov/status/2064108363990880628
+  - Repost of @SecMullinDHS: I’m not surprised you would say something like this, @GovSherrillNJ. On June 8th, I personally granted you access to the facility as an act of good faith—...
+- [21:37 UTC - Repost of @SecMullinDHS: It has been more than 100 days since congressional Democrats defu...](2064099537447219414/)
+  - Source: https://x.com/DHSgov/status/2064099537447219414
+  - Repost of @SecMullinDHS: It has been more than 100 days since congressional Democrats defunded ICE and Border Patrol in a radical attempt to protect violent criminal illegal aliens...
+- [21:35 UTC - OUR BORDERS ARE CLOSED. If you attempt to enter our nation illegally, we will find you, ar...](2064098894569775301/)
+  - Source: https://x.com/DHSgov/status/2064098894569775301
+  - OUR BORDERS ARE CLOSED. If you attempt to enter our nation illegally, we will find you, arrest you — and you will face the consequences.
+- [21:25 UTC - While Americans enjoyed their weekends, @ICEgov law enforcement were arresting murders, pe...](2064096521054745028/)
+  - Source: https://x.com/DHSgov/status/2064096521054745028
+  - While Americans enjoyed their weekends, @ICEgov law enforcement were arresting murders, pedophiles, child abusers, and drug traffickers. Under @POTUS Trump and @SecMullinDHS, we wi...
 - [19:46 UTC - Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and secu...](2064071487611343302/)
   - Source: https://x.com/DHSgov/status/2064071487611343302
   - Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and securing our southern border. If you attempt to enter our nation illegally, we will find you,...

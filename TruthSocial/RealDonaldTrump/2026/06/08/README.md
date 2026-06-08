@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-08
 
-- Posts: 26
+- Posts: 27
 
+- [21:18 UTC - I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Car...](116716568733590358/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116716568733590358
+  - I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Carolina Gubernatorial Candidate Pamela Evette — Both have my Complete and Total Endorsement....
 - [20:43 UTC - President Trump Trashes RINO Senator Tillis, Calls Him a “Loser” in Blistering Remarks to ...](116716431302721375/)
   - Source: https://truthsocial.com/@realDonaldTrump/116716431302721375
   - President Trump Trashes RINO Senator Tillis, Calls Him a “Loser” in Blistering Remarks to Reporters (VIDEO): [https://www. thegatewaypundit.com/2026/06/p resident-trump-blasts-rino...

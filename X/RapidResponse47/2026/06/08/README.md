@@ -1,7 +1,16 @@
 # X / RapidResponse47 / 2026-06-08
 
-- Posts: 25
+- Posts: 28
 
+- [22:42 UTC - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s ...](2064115926375522579/)
+  - Source: https://x.com/RapidResponse47/status/2064115926375522579
+  - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s Nutrition Education Pledge after 19 schools signed on today. Nutrition is a powerful tools...
+- [22:37 UTC - Repost of @SBA_Kelly: Last week in Ohio, SBA announced suspensions for another 27,000 borr...](2064114540514533758/)
+  - Source: https://x.com/RapidResponse47/status/2064114540514533758
+  - Repost of @SBA_Kelly: Last week in Ohio, SBA announced suspensions for another 27,000 borrowers tied to $1.1 billion in suspected COVID fraud - four of whom have already been indic...
+- [21:41 UTC - Repost of @DinaPowellMcC: Today @Meta is proud to launch America’s Workforce Academy with ...](2064100477139104072/)
+  - Source: https://x.com/RapidResponse47/status/2064100477139104072
+  - Repost of @DinaPowellMcC: Today @Meta is proud to launch America’s Workforce Academy with our partners. This program will provide paid training, certification and a job for America...
 - [21:03 UTC - Repost of @SecretaryBurgum: On June 8, 1912, President Taft dedicated the Columbus Memoria...](2064090843611353570/)
   - Source: https://x.com/RapidResponse47/status/2064090843611353570
   - Repost of @SecretaryBurgum: On June 8, 1912, President Taft dedicated the Columbus Memorial Fountain. A century later, thanks to @POTUS, the fountain looks as good as new. https://...

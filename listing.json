@@ -1,6 +1,628 @@
 {
-  "generatedAt": "2026-06-08T21:13:33.590680+00:00",
+  "generatedAt": "2026-06-08T22:52:59.609666+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:884fd3b69054d84d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:22.140689+00:00",
+        "datePublished": "2026-06-08T22:42:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064103868435234817.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKUriEGXgAEBSjD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUriEGXgAEBSjD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKUriEGXgAEBSjD.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064103868435234817.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKUriEGXgAEBSjD.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064115926375522579"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064115926375522579/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064115926375522579/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064115926375522579",
+      "summary": "Repost of @HHSGov:",
+      "title": "Repost of @HHSGov: \ud83d\udea8 HUGE \ud83d\udea8 73 medical schools have now joined the Trump administration\u2019s ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5c5d36ceb632009e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:22.141149+00:00",
+        "datePublished": "2026-06-08T22:37:10+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064114540514533758"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064114540514533758/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064114540514533758/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064114540514533758",
+      "summary": "Repost of @SBA_Kelly:",
+      "title": "Repost of @SBA_Kelly: Last week in Ohio, SBA announced suspensions for another 27,000 borr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6c040a8c068151db",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:46.770593+00:00",
+        "datePublished": "2026-06-08T22:18:00+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064109626908430336.mp4",
+            "remotePath": "archive/x/whitehouse/NX-tHVKAZgzLr83D.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064109626908430336/vid/avc1/720x1280/NX-tHVKAZgzLr83D.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/NX-tHVKAZgzLr83D.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064109626908430336.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/NX-tHVKAZgzLr83D.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064109715798261833"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064109715798261833/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064109715798261833/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064109715798261833",
+      "summary": "Ok, anyways, we fixed the hat for you.",
+      "title": "Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. https://t.co/JpCodjApVo"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b5a5ec0e7f37ccb1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:46.770942+00:00",
+        "datePublished": "2026-06-08T22:14:51+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064095388441649152.jpg",
+            "remotePath": "archive/x/whitehouse/HKUj0dqWIAA7aYD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUj0dqWIAA7aYD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUj0dqWIAA7aYD.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064095388441649152.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUj0dqWIAA7aYD.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064108924945441177"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064108924945441177/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064108924945441177/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064108924945441177",
+      "summary": "Repost of @SecDuffy:",
+      "title": "Repost of @SecDuffy: The GREATEST city on Earth should have the GREATEST train station on ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2b6942165f800f1a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:48:46.274242+00:00",
+        "datePublished": "2026-06-08T22:12:37+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064108363990880628"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064108363990880628/README.md",
+      "path": "X/DHSgov/2026/06/08/2064108363990880628/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064108363990880628",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: I\u2019m not surprised you would say something like this, @GovSherrill..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:14adaa47fafbe4c7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:33.312542+00:00",
+        "datePublished": "2026-06-08T22:11:56+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064108190870954241"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/08/2064108190870954241/README.md",
+      "path": "X/SecMullinDHS/2026/06/08/2064108190870954241/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064108190870954241",
+      "summary": "I\u2019m not surprised you would say something like this, @GovSherrillNJ.",
+      "title": "I\u2019m not surprised you would say something like this, @GovSherrillNJ. On June 8th, I person..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-08",
+      "id": "socials:89fb4d0c3690e749",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:50:06.793978+00:00",
+        "datePublished": "2026-06-08T22:06:58+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649149518528711966.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649149518528711966.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649149518528711966",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649149518528711966.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649149518528711966.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649149518528711966.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649149518528711966"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/08/7649149518528711966/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/08/7649149518528711966/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649149518528711966",
+      "summary": "With love from NYC",
+      "title": "With love from NYC"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:04b3d6e1d39b46b8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:46.771230+00:00",
+        "datePublished": "2026-06-08T22:05:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064103939323179008.mp4",
+            "remotePath": "archive/x/whitehouse/5n5zeqITHYS-m5sM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064103939323179008/vid/avc1/1080x1920/5n5zeqITHYS-m5sM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/5n5zeqITHYS-m5sM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064103939323179008.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/5n5zeqITHYS-m5sM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064106599480688712"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064106599480688712/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064106599480688712/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064106599480688712",
+      "summary": "New York is all heart. \ud83d\udc99 https://t.co/Jhgn6P5lP9",
+      "title": "New York is all heart. \ud83d\udc99 https://t.co/Jhgn6P5lP9"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5a3767a781b91a69",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:02.462876+00:00",
+        "datePublished": "2026-06-08T22:05:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064105281223593984.mp4",
+            "remotePath": "archive/x/icegov/ibNwgrsfSl2e5yRP.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2064105281223593984/pu/vid/avc1/720x1280/ibNwgrsfSl2e5yRP.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/icegov/ibNwgrsfSl2e5yRP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064105281223593984.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/ibNwgrsfSl2e5yRP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064106451551875205"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2064106451551875205/README.md",
+      "path": "X/ICEgov/2026/06/08/2064106451551875205/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064106451551875205",
+      "summary": "As millions gather for the #FIFAWorldCup2026, ICE @HSI_HQ special agents from @HSINewark and across the nation are working around the clock with @CBP and other federal, state, local and international partners to identify threats, disrupt criminal networks and help ensure a safe a",
+      "title": "As millions gather for the #FIFAWorldCup2026, ICE @HSI_HQ special agents from @HSINewark a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:250a043072fd3730",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:46.771506+00:00",
+        "datePublished": "2026-06-08T21:51:58+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064102566938468352.jpg",
+            "remotePath": "archive/x/whitehouse/HKUqWTpW4AAwXkN.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUqWTpW4AAwXkN.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUqWTpW4AAwXkN.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064102566938468352.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUqWTpW4AAwXkN.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064103166400950330"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064103166400950330/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064103166400950330/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064103166400950330",
+      "summary": "President Trump's effective tariff policy has made the United States BILLIONS. The Trump Administration won't stop fighting to make America rich again. https://t.co/8AMYgZLH6j",
+      "title": "President Trump's effective tariff policy has made the United States BILLIONS. The Trump A..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:8cf950db4b3ed9b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:22.141399+00:00",
+        "datePublished": "2026-06-08T21:41:17+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064100477139104072"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064100477139104072/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064100477139104072/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064100477139104072",
+      "summary": "Repost of @DinaPowellMcC:",
+      "title": "Repost of @DinaPowellMcC: Today @Meta is proud to launch America\u2019s Workforce Academy with ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b3415fec4844aa6e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:46.771766+00:00",
+        "datePublished": "2026-06-08T21:39:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064099950733008958"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064099950733008958/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064099950733008958/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064099950733008958",
+      "summary": "Repost of @PeteHegseth:",
+      "title": "Repost of @PeteHegseth: The Arsenal of Freedom."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:9aa7900e4584e87e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:48:46.274545+00:00",
+        "datePublished": "2026-06-08T21:37:33+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064099227752435712.jpg",
+            "remotePath": "archive/x/dhsgov/HKUnT8NXkAAUpAD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUnT8NXkAAUpAD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKUnT8NXkAAUpAD.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064099227865657344.jpg",
+            "remotePath": "archive/x/dhsgov/HKUnT8oXMAAn4W.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUnT8oXMAAn4W_.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKUnT8oXMAAn4W.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064099227752435712.jpg",
+          "media/02_image_2064099227865657344.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKUnT8NXkAAUpAD.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKUnT8oXMAAn4W.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064099537447219414"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064099537447219414/README.md",
+      "path": "X/DHSgov/2026/06/08/2064099537447219414/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064099537447219414",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: It has been more than 100 days since congressional Democrats defu..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:1f480030d475eb0a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:33.312845+00:00",
+        "datePublished": "2026-06-08T21:36:20+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064099227752435712.jpg",
+            "remotePath": "archive/x/secmullindhs/HKUnT8NXkAAUpAD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUnT8NXkAAUpAD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKUnT8NXkAAUpAD.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064099227865657344.jpg",
+            "remotePath": "archive/x/secmullindhs/HKUnT8oXMAAn4W.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUnT8oXMAAn4W_.jpg",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/HKUnT8oXMAAn4W.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064099227752435712.jpg",
+          "media/02_image_2064099227865657344.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKUnT8NXkAAUpAD.jpg",
+          "https://cdn.comparify.app/archive/x/secmullindhs/HKUnT8oXMAAn4W.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064099231195976149"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/08/2064099231195976149/README.md",
+      "path": "X/SecMullinDHS/2026/06/08/2064099231195976149/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064099231195976149",
+      "summary": "It has been more than 100 days since congressional Democrats defunded ICE and Border Patrol in a radical attempt to protect violent criminal illegal aliens and undermine President Trump\u2019s highly successful border security agenda. There is no time for further delay. https://t.co/8",
+      "title": "It has been more than 100 days since congressional Democrats defunded ICE and Border Patro..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a26aae004914a2b8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:48:46.274751+00:00",
+        "datePublished": "2026-06-08T21:35:00+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064098894569775301"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064098894569775301/README.md",
+      "path": "X/DHSgov/2026/06/08/2064098894569775301/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064098894569775301",
+      "summary": "OUR BORDERS ARE CLOSED.",
+      "title": "OUR BORDERS ARE CLOSED. If you attempt to enter our nation illegally, we will find you, ar..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2ba23e16f55ab54b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:48:46.274999+00:00",
+        "datePublished": "2026-06-08T21:25:34+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064096521054745028"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064096521054745028/README.md",
+      "path": "X/DHSgov/2026/06/08/2064096521054745028/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064096521054745028",
+      "summary": "While Americans enjoyed their weekends, @ICEgov law enforcement were arresting murders, pedophiles, child abusers, and drug traffickers.",
+      "title": "While Americans enjoyed their weekends, @ICEgov law enforcement were arresting murders, pe..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:ff3e3b9fce84c06b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:56.258563+00:00",
+        "datePublished": "2026-06-08T21:18:22.445000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116716568733590358"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116716568733590358/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116716568733590358/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116716568733590358",
+      "summary": "I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Carolina Gubernatorial Candidate Pamela Evette \u2014 Both have my Complete and Total Endorsement. They will never let you down! Vote for Lindsey and Pam. They LOVE the great people of South Carolin",
+      "title": "I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Car..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3f02444c5d8255b6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:10.226428+00:00",
+        "datePublished": "2026-06-08T21:18:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064092426298339328.jpg",
+            "remotePath": "archive/x/potus/HKUhIC0WMAAoxWw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUhIC0WMAAoxWw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKUhIC0WMAAoxWw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064092426298339328.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKUhIC0WMAAoxWw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064094678299853121"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2064094678299853121/README.md",
+      "path": "X/POTUS/2026/06/08/2064094678299853121/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064094678299853121",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Decline is a choice. Making D.C. safe &amp; beautiful again is too...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:ec4b99e4db33715f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T22:49:10.226747+00:00",
+        "datePublished": "2026-06-08T21:18:11+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064087156675518466.jpg",
+            "remotePath": "archive/x/potus/HKUcVT8XIAI0IPe.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUcVT8XIAI0IPe.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKUcVT8XIAI0IPe.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064087156675518466.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKUcVT8XIAI0IPe.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064094665398227061"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2064094665398227061/README.md",
+      "path": "X/POTUS/2026/06/08/2064094665398227061/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064094665398227061",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: See you soon, New York City. https://t.co/nxS4Zs8lfQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b22ec491f0b2af82",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T22:49:46.772048+00:00",
+        "datePublished": "2026-06-08T21:12:24+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064092426298339328.jpg",
+            "remotePath": "archive/x/whitehouse/HKUhIC0WMAAoxWw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUhIC0WMAAoxWw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUhIC0WMAAoxWw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064092426298339328.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUhIC0WMAAoxWw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064093208204681579"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064093208204681579/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064093208204681579/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064093208204681579",
+      "summary": "Decline is a choice. Making D.C. safe &amp; beautiful again is too.",
+      "title": "Decline is a choice. Making D.C. safe &amp; beautiful again is too. THANK YOU, @POTUS! \ud83c\uddfa\ud83c\uddf8 ..."
+    },
     {
       "category": "X",
       "date": "2026-06-08",

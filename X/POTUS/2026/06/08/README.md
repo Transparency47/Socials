@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-08
 
-- Posts: 5
+- Posts: 7
 
+- [21:18 UTC - Repost of @WhiteHouse: Decline is a choice. Making D.C. safe &amp; beautiful again is too....](2064094678299853121/)
+  - Source: https://x.com/POTUS/status/2064094678299853121
+  - Repost of @WhiteHouse: Decline is a choice. Making D.C. safe &amp; beautiful again is too. THANK YOU, @POTUS! 🇺🇸 https://t.co/hlC9j0jATU
+- [21:18 UTC - Repost of @WhiteHouse: See you soon, New York City. https://t.co/nxS4Zs8lfQ](2064094665398227061/)
+  - Source: https://x.com/POTUS/status/2064094665398227061
+  - Repost of @WhiteHouse: See you soon, New York City. https://t.co/nxS4Zs8lfQ
 - [17:42 UTC - Repost of @WhiteHouse: Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ](2064040396200521916/)
   - Source: https://x.com/POTUS/status/2064040396200521916
   - Repost of @WhiteHouse: Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ

@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-08
 
-- Posts: 10
+- Posts: 11
 
+- [22:05 UTC - As millions gather for the #FIFAWorldCup2026, ICE @HSI_HQ special agents from @HSINewark a...](2064106451551875205/)
+  - Source: https://x.com/ICEgov/status/2064106451551875205
+  - As millions gather for the #FIFAWorldCup2026, ICE @HSI_HQ special agents from @HSINewark and across the nation are working around the clock with @CBP and other federal, state, loca...
 - [19:05 UTC - 🚨Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citi...](2064061202515308708/)
   - Source: https://x.com/ICEgov/status/2064061202515308708
   - 🚨Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citizens. They also pleaded guilty to shooting a third U.S. Citizen in 2024 in Bronx, N.Y., fo...

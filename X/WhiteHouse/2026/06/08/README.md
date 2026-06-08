@@ -1,7 +1,25 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 18
+- Posts: 24
 
+- [22:18 UTC - Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. https://t.co/JpCodjApVo](2064109715798261833/)
+  - Source: https://x.com/WhiteHouse/status/2064109715798261833
+  - Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. https://t.co/JpCodjApVo
+- [22:14 UTC - Repost of @SecDuffy: The GREATEST city on Earth should have the GREATEST train station on ...](2064108924945441177/)
+  - Source: https://x.com/WhiteHouse/status/2064108924945441177
+  - Repost of @SecDuffy: The GREATEST city on Earth should have the GREATEST train station on Earth 🗽🚊 That’s why @POTUS is making history and making New York City’s Penn Station beaut...
+- [22:05 UTC - New York is all heart. 💙 https://t.co/Jhgn6P5lP9](2064106599480688712/)
+  - Source: https://x.com/WhiteHouse/status/2064106599480688712
+  - New York is all heart. 💙 https://t.co/Jhgn6P5lP9
+- [21:51 UTC - President Trump's effective tariff policy has made the United States BILLIONS. The Trump A...](2064103166400950330/)
+  - Source: https://x.com/WhiteHouse/status/2064103166400950330
+  - President Trump's effective tariff policy has made the United States BILLIONS. The Trump Administration won't stop fighting to make America rich again. https://t.co/8AMYgZLH6j
+- [21:39 UTC - Repost of @PeteHegseth: The Arsenal of Freedom.](2064099950733008958/)
+  - Source: https://x.com/WhiteHouse/status/2064099950733008958
+  - Repost of @PeteHegseth: The Arsenal of Freedom.
+- [21:12 UTC - Decline is a choice. Making D.C. safe &amp; beautiful again is too. THANK YOU, @POTUS! 🇺🇸 ...](2064093208204681579/)
+  - Source: https://x.com/WhiteHouse/status/2064093208204681579
+  - Decline is a choice. Making D.C. safe &amp; beautiful again is too. THANK YOU, @POTUS! 🇺🇸 https://t.co/hlC9j0jATU
 - [20:52 UTC - See you soon, New York City. https://t.co/nxS4Zs8lfQ](2064088203993244008/)
   - Source: https://x.com/WhiteHouse/status/2064088203993244008
   - See you soon, New York City. https://t.co/nxS4Zs8lfQ

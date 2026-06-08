@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-06-08
 
-- Posts: 4
+- Posts: 5
 
+- [22:06 UTC - With love from NYC](7649149518528711966/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7649149518528711966
+  - With love from NYC
 - [20:38 UTC - D.C. is beautiful again thanks to President Trump 🇺🇸](7649126693675830541/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7649126693675830541
   - D.C. is beautiful again thanks to President Trump 🇺🇸
