@@ -1,7 +1,28 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 4
+- Posts: 11
 
+- [15:44 UTC - Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7RaBUDL](2064010698384916706/)
+  - Source: https://x.com/WhiteHouse/status/2064010698384916706
+  - Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7RaBUDL
+- [15:38 UTC - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...](2064009265224802593/)
+  - Source: https://x.com/WhiteHouse/status/2064009265224802593
+  - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honestly. If you come here break our laws, and lie in your immigration proceedings, you forfeit...
+- [15:22 UTC - More Jobs. Real results. 💪 President Donald J. Trump is delivering for Americans, and ther...](2064005034094805023/)
+  - Source: https://x.com/WhiteHouse/status/2064005034094805023
+  - More Jobs. Real results. 💪 President Donald J. Trump is delivering for Americans, and there’s much more to come. 🔥 https://t.co/SvOkZPMO91
+- [15:18 UTC - Repost of @CDCgov: ⚽ Through close collaboration and proactive planning, CDC has helped Ka...](2064004065072144733/)
+  - Source: https://x.com/WhiteHouse/status/2064004065072144733
+  - Repost of @CDCgov: ⚽ Through close collaboration and proactive planning, CDC has helped Kansas City prepare for safe and successful soccer events. As the city prepares to host #FIF...
+- [15:18 UTC - Repost of @CDCgov: Seen at Hartsfield-Jackson Atlanta International Airport: CDC is provid...](2064004024093884654/)
+  - Source: https://x.com/WhiteHouse/status/2064004024093884654
+  - Repost of @CDCgov: Seen at Hartsfield-Jackson Atlanta International Airport: CDC is providing travelers and soccer fans with quick access to essential public health information. Th...
+- [15:07 UTC - Repost of @DoWCTO: GM. Nothing can stop the United States of America. 🇺🇸 https://t.co/d6WU...](2064001457435681146/)
+  - Source: https://x.com/WhiteHouse/status/2064001457435681146
+  - Repost of @DoWCTO: GM. Nothing can stop the United States of America. 🇺🇸 https://t.co/d6WURmlPxe
+- [15:02 UTC - Repost of @ENERGY: Energy subtraction peddlers hate to see them coming 😤 https://t.co/M8HB...](2064000012510478555/)
+  - Source: https://x.com/WhiteHouse/status/2064000012510478555
+  - Repost of @ENERGY: Energy subtraction peddlers hate to see them coming 😤 https://t.co/M8HBK2SJit
 - [11:16 UTC - “Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations...](2063943366983725410/)
   - Source: https://x.com/WhiteHouse/status/2063943366983725410
   - “Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on “Peace” are proceeding, subject to ignorance or stupidity getting in its way…” - Presi...

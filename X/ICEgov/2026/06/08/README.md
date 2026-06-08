@@ -1,7 +1,19 @@
 # X / ICEgov / 2026-06-08
 
-- Posts: 4
+- Posts: 8
 
+- [16:05 UTC - Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that fo...](2064015920054333740/)
+  - Source: https://x.com/ICEgov/status/2064015920054333740
+  - Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that followed his arrest by police in Portland on charges of sodomy, sexual abuse, sexual penetra...
+- [15:32 UTC - Repost of @DHSgov: .@USCIS has revealed RAMPANT fraud in juvenile immigrant claims. For ye...](2064007788641026049/)
+  - Source: https://x.com/ICEgov/status/2064007788641026049
+  - Repost of @DHSgov: .@USCIS has revealed RAMPANT fraud in juvenile immigrant claims. For years, state court judges failed to verify whether THOUSANDS of illegal alien minors actuall...
+- [14:35 UTC - Success Bounte 🚨ARRESTED IN NEW JERSEY Felony convictions 👉Robbery 👉Burglary 👉Identity the...](2063993260419301783/)
+  - Source: https://x.com/ICEgov/status/2063993260419301783
+  - Success Bounte 🚨ARRESTED IN NEW JERSEY Felony convictions 👉Robbery 👉Burglary 👉Identity theft 👉Fraud – illegal use of credit cards ICE @ERONewark officers arrested him May 29. https...
+- [13:05 UTC - Today we honor Deportation Officer Brian P. Beliso who died of a heart attack in 2016 suff...](2063970621097197806/)
+  - Source: https://x.com/ICEgov/status/2063970621097197806
+  - Today we honor Deportation Officer Brian P. Beliso who died of a heart attack in 2016 suffered while in pursuit of a fugitive. 🎗️ICE remembers you and pledges its continued resolve...
 - [02:35 UTC - ICE @ERONewark arrested Marcos Delacruz, a criminal illegal alien from El Salvador who was...](2063812053412786650/)
   - Source: https://x.com/ICEgov/status/2063812053412786650
   - ICE @ERONewark arrested Marcos Delacruz, a criminal illegal alien from El Salvador who was convicted of sexual assault and fraud, upon his release from a state correctional facilit...

@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-08
 
-- Posts: 7
+- Posts: 8
 
+- [16:16 UTC - Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3r...](116715381418144428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715381418144428
+  - Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3rd World Nation. Rigged Elections! Now they’ll be working on great guy Steve Hilton. Won’t...
 - [10:34 UTC - Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations ...](116714035637911912/)
   - Source: https://truthsocial.com/@realDonaldTrump/116714035637911912
   - Both sides, Israel and Iran, are looking to do an immediate CEASEFIRE! Final negotiations on “Peace” are proceeding, subject to ignorance or stupidity getting in its way. The Block...

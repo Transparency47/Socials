@@ -1,0 +1,43 @@
+# X / RapidResponse47 / 2026-06-08
+
+- Posts: 13
+
+- [16:18 UTC - https://t.co/zWh0WY5oxc](2064019228370350507/)
+  - Source: https://x.com/RapidResponse47/status/2064019228370350507
+  - https://t.co/zWh0WY5oxc
+- [16:00 UTC - WSJ EDITORIAL BOARD: The Food Stamp Rolls Decline—Hurray https://t.co/oEKcTxPtAq](2064014793871151202/)
+  - Source: https://x.com/RapidResponse47/status/2064014793871151202
+  - WSJ EDITORIAL BOARD: The Food Stamp Rolls Decline—Hurray https://t.co/oEKcTxPtAq
+- [15:51 UTC - Steel imports down 30% in 2026 as tariffs bolster US production https://t.co/1wWW1mdJRZ](2064012343491654130/)
+  - Source: https://x.com/RapidResponse47/status/2064012343491654130
+  - Steel imports down 30% in 2026 as tariffs bolster US production https://t.co/1wWW1mdJRZ
+- [15:50 UTC - Trump administration launches largest-ever effort to denaturalize U.S. citizens accused of...](2064012141129044286/)
+  - Source: https://x.com/RapidResponse47/status/2064012141129044286
+  - Trump administration launches largest-ever effort to denaturalize U.S. citizens accused of fraud or other crimes https://t.co/tvTusN4Zt3
+- [15:26 UTC - American reacts to the renovated Reflecting Pool at the Lincoln Memorial: So far, it looks...](2064006242289209795/)
+  - Source: https://x.com/RapidResponse47/status/2064006242289209795
+  - American reacts to the renovated Reflecting Pool at the Lincoln Memorial: So far, it looks like the most amazing, most wonderful, and most beautiful reflecting pool in the world. h...
+- [14:35 UTC - Repost of @DHSgov: Our components and @WHTaskForceFIFA are working tirelessly to ensure al...](2063993412584440149/)
+  - Source: https://x.com/RapidResponse47/status/2063993412584440149
+  - Repost of @DHSgov: Our components and @WHTaskForceFIFA are working tirelessly to ensure all matches across the country are safe and secure. Thanks to @POTUS Trump’s leadership, thi...
+- [13:14 UTC - TRUMP EFFECT: Swiss firms invest $27 billion in US after tariff deal, NZZ am Sonntag repor...](2063972846074834968/)
+  - Source: https://x.com/RapidResponse47/status/2063972846074834968
+  - TRUMP EFFECT: Swiss firms invest $27 billion in US after tariff deal, NZZ am Sonntag reports https://t.co/jGk5nEz31y
+- [13:09 UTC - .@AndrewHGiuliani, Director of the White House Task Force for the FIFA World Cup 2026: "Th...](2063971575485870410/)
+  - Source: https://x.com/RapidResponse47/status/2063971575485870410
+  - .@AndrewHGiuliani, Director of the White House Task Force for the FIFA World Cup 2026: "This is going to be like 78 Super Bowls... Last year, 5 events in the United States of Ameri...
+- [13:05 UTC - .@SecRollins discusses actions taken to combat the New World Screwworm: — Upped production...](2063970682262745391/)
+  - Source: https://x.com/RapidResponse47/status/2063970682262745391
+  - .@SecRollins discusses actions taken to combat the New World Screwworm: — Upped production at the only sterile fly-producing facility in North America — Outfitted a new facility in...
+- [12:54 UTC - "@POTUS loves going to sporting events!" "This is authentic!" https://t.co/wAedmL7YT3](2063967960662753424/)
+  - Source: https://x.com/RapidResponse47/status/2063967960662753424
+  - "@POTUS loves going to sporting events!" "This is authentic!" https://t.co/wAedmL7YT3
+- [12:37 UTC - .@RealTomHoman: "When this reconciliation passes, that's $70B that will fund us until the ...](2063963653825548506/)
+  - Source: https://x.com/RapidResponse47/status/2063963653825548506
+  - .@RealTomHoman: "When this reconciliation passes, that's $70B that will fund us until the end of the Trump Administration. You're going to see targeting increase, you're going to s...
+- [12:36 UTC - "A beautiful shot of Washington, D.C." — Mika Brzezinski SO TRUE! https://t.co/AefW2vZ9bN](2063963304305827949/)
+  - Source: https://x.com/RapidResponse47/status/2063963304305827949
+  - "A beautiful shot of Washington, D.C." — Mika Brzezinski SO TRUE! https://t.co/AefW2vZ9bN
+- [12:15 UTC - https://t.co/H3DHk0Q78r](2063958071425003528/)
+  - Source: https://x.com/RapidResponse47/status/2063958071425003528
+  - https://t.co/H3DHk0Q78r

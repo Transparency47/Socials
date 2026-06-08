@@ -1,6 +1,1131 @@
 {
-  "generatedAt": "2026-06-08T12:20:01.971155+00:00",
+  "generatedAt": "2026-06-08T16:27:51.945483+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:7092793d989639c9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.547537+00:00",
+        "datePublished": "2026-06-08T16:18:26+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064019224813518848.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKTejKCWQAA7lmM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTejKCWQAA7lmM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKTejKCWQAA7lmM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064019224813518848.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKTejKCWQAA7lmM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064019228370350507"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064019228370350507/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064019228370350507/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064019228370350507",
+      "summary": "https://t.co/zWh0WY5oxc",
+      "title": "https://t.co/zWh0WY5oxc"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:53243d7118892f33",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:23:34.303766+00:00",
+        "datePublished": "2026-06-08T16:16:25.448000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715381418144428"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715381418144428/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715381418144428/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715381418144428",
+      "summary": "Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3rd World Nation. Rigged Elections! Now they\u2019ll be working on great guy Steve Hilton. Won\u2019t have results for, possibly, TWO WEEKS, according to officials. President DJT",
+      "title": "Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3r..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:aa96868fde2bff73",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:17.646573+00:00",
+        "datePublished": "2026-06-08T16:05:17+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064015916774359040.png",
+            "remotePath": "archive/x/icegov/HKTbimoWgAA-U2L.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTbimoWgAA-U2L.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKTbimoWgAA-U2L.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064015916774359040.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKTbimoWgAA-U2L.png"
+        ],
+        "platform": "X",
+        "postId": "2064015920054333740"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2064015920054333740/README.md",
+      "path": "X/ICEgov/2026/06/08/2064015920054333740/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064015920054333740",
+      "summary": "Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that followed his arrest by police in Portland on charges of sodomy, sexual abuse, sexual penetration and strangulation.",
+      "title": "Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that fo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6e62cdffa9a51eba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.547760+00:00",
+        "datePublished": "2026-06-08T16:00:49+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064014793871151202"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064014793871151202/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064014793871151202/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064014793871151202",
+      "summary": "WSJ EDITORIAL BOARD: The Food Stamp Rolls Decline\u2014Hurray https://t.co/oEKcTxPtAq",
+      "title": "WSJ EDITORIAL BOARD: The Food Stamp Rolls Decline\u2014Hurray https://t.co/oEKcTxPtAq"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6402576bba098bc5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.547967+00:00",
+        "datePublished": "2026-06-08T15:51:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064012343491654130"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064012343491654130/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064012343491654130/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064012343491654130",
+      "summary": "Steel imports down 30% in 2026 as tariffs bolster US production https://t.co/1wWW1mdJRZ",
+      "title": "Steel imports down 30% in 2026 as tariffs bolster US production https://t.co/1wWW1mdJRZ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:7026962c434ff9bc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.548178+00:00",
+        "datePublished": "2026-06-08T15:50:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064012141129044286"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064012141129044286/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064012141129044286/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064012141129044286",
+      "summary": "Trump administration launches largest-ever effort to denaturalize U.S. citizens accused of fraud or other crimes https://t.co/tvTusN4Zt3",
+      "title": "Trump administration launches largest-ever effort to denaturalize U.S. citizens accused of..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-08",
+      "id": "socials:42735f2334c4e47b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:23:46.965848+00:00",
+        "datePublished": "2026-06-08T15:50:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649052239629159693.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649052239629159693.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649052239629159693",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649052239629159693.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649052239629159693.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649052239629159693.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649052239629159693"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/08/7649052239629159693/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/08/7649052239629159693/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649052239629159693",
+      "summary": "We heard it\u2019s National best friends day \ud83e\udd70",
+      "title": "We heard it\u2019s National best friends day \ud83e\udd70"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:de59049a1f2e4cf1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:21:56.749254+00:00",
+        "datePublished": "2026-06-08T15:46:42+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064010373544472576.jpg",
+            "remotePath": "archive/x/dhsgov/HKTWf8fW8AAAvlm.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTWf8fW8AAAvlm.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKTWf8fW8AAAvlm.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064010373544472576.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKTWf8fW8AAAvlm.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064011244411949113"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064011244411949113/README.md",
+      "path": "X/DHSgov/2026/06/08/2064011244411949113/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064011244411949113",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7R..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:c07629c0476419d5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:23:22.005897+00:00",
+        "datePublished": "2026-06-08T15:44:32+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064010373544472576.jpg",
+            "remotePath": "archive/x/whitehouse/HKTWf8fW8AAAvlm.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTWf8fW8AAAvlm.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKTWf8fW8AAAvlm.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064010373544472576.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKTWf8fW8AAAvlm.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064010698384916706"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064010698384916706/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064010698384916706/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064010698384916706",
+      "summary": "Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7RaBUDL",
+      "title": "Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7RaBUDL"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5ee88a022b030c7d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:21:56.749643+00:00",
+        "datePublished": "2026-06-08T15:42:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064010110393897125"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064010110393897125/README.md",
+      "path": "X/DHSgov/2026/06/08/2064010110393897125/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064010110393897125",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:1dafd65b275060a8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:23:22.006174+00:00",
+        "datePublished": "2026-06-08T15:38:50+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064009265224802593"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064009265224802593/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064009265224802593/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064009265224802593",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3678440439a0e2b3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:27.299202+00:00",
+        "datePublished": "2026-06-08T15:37:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064004187453603840.jpg",
+            "remotePath": "archive/x/potus/HKTQ33gXQAAHlH9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTQ33gXQAAHlH9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKTQ33gXQAAHlH9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064004187453603840.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKTQ33gXQAAHlH9.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064008818934132920"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2064008818934132920/README.md",
+      "path": "X/POTUS/2026/06/08/2064008818934132920/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064008818934132920",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: More Jobs. Real results. \ud83d\udcaa President Donald J. Trump is delivering ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:aec676526aa95a5a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:17.646832+00:00",
+        "datePublished": "2026-06-08T15:32:58+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064007788641026049"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2064007788641026049/README.md",
+      "path": "X/ICEgov/2026/06/08/2064007788641026049/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064007788641026049",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: .@USCIS has revealed RAMPANT fraud in juvenile immigrant claims. For ye..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a33ae0ea20845b6c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.548385+00:00",
+        "datePublished": "2026-06-08T15:26:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064005779598786560.mp4",
+            "remotePath": "archive/x/rapidresponse47/54BEJpeC_W2_vEXO.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064005779598786560/vid/avc1/1280x720/54BEJpeC_W2_vEXO.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/54BEJpeC_W2_vEXO.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064005779598786560.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/54BEJpeC_W2_vEXO.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064006242289209795"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064006242289209795/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064006242289209795/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064006242289209795",
+      "summary": "American reacts to the renovated Reflecting Pool at the Lincoln Memorial: So far, it looks like the most amazing, most wonderful, and most beautiful reflecting pool in the world. https://t.co/M1zoDJ9yWO",
+      "title": "American reacts to the renovated Reflecting Pool at the Lincoln Memorial: So far, it looks..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:1e86ade1d25600b2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:23:22.006383+00:00",
+        "datePublished": "2026-06-08T15:22:02+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064004187453603840.jpg",
+            "remotePath": "archive/x/whitehouse/HKTQ33gXQAAHlH9.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTQ33gXQAAHlH9.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKTQ33gXQAAHlH9.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064004187453603840.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKTQ33gXQAAHlH9.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064005034094805023"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064005034094805023/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064005034094805023/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064005034094805023",
+      "summary": "More Jobs. Real results. \ud83d\udcaa",
+      "title": "More Jobs. Real results. \ud83d\udcaa President Donald J. Trump is delivering for Americans, and ther..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5b4a2d893a195804",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:06.930748+00:00",
+        "datePublished": "2026-06-08T15:21:20+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064004859104301196"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/08/2064004859104301196/README.md",
+      "path": "X/FBIDirectorKash/2026/06/08/2064004859104301196/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064004859104301196",
+      "summary": "Repost of @FBI:",
+      "title": "Repost of @FBI: Today\u2019s story behind the numbers: This #FBI and the takedown of a prolific..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:f1a0b4ab96171a14",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:23:22.006614+00:00",
+        "datePublished": "2026-06-08T15:18:11+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063392276332605440.jpg",
+            "remotePath": "archive/x/whitehouse/HKKkV88W8AAqkTa.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKKkV88W8AAqkTa.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKKkV88W8AAqkTa.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063392276332605440.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKKkV88W8AAqkTa.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064004065072144733"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064004065072144733/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064004065072144733/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064004065072144733",
+      "summary": "Repost of @CDCgov:",
+      "title": "Repost of @CDCgov: \u26bd Through close collaboration and proactive planning, CDC has helped Ka..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:1bee4c4e4efacd98",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:23:22.006846+00:00",
+        "datePublished": "2026-06-08T15:18:01+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063027409121628160.jpg",
+            "remotePath": "archive/x/whitehouse/HKFYf4qW0AA1BHj.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFYf4qW0AA1BHj.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKFYf4qW0AA1BHj.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063027409121628160.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKFYf4qW0AA1BHj.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064004024093884654"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064004024093884654/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064004024093884654/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064004024093884654",
+      "summary": "Repost of @CDCgov:",
+      "title": "Repost of @CDCgov: Seen at Hartsfield-Jackson Atlanta International Airport: CDC is provid..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:116eff125770b526",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:06.931005+00:00",
+        "datePublished": "2026-06-08T15:09:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063971201081339904.mp4",
+            "remotePath": "archive/x/fbidirectorkash/924C1v1qbPXF6Z0T.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063971201081339904/vid/avc1/1280x720/924C1v1qbPXF6Z0T.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/924C1v1qbPXF6Z0T.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063971201081339904.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/924C1v1qbPXF6Z0T.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064001967274479998"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/08/2064001967274479998/README.md",
+      "path": "X/FBIDirectorKash/2026/06/08/2064001967274479998/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064001967274479998",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@AndrewHGiuliani, Director of the White House Task Force for ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:c34e644fb396e2d7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:23:22.007068+00:00",
+        "datePublished": "2026-06-08T15:07:49+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063983100271427584.jpg",
+            "remotePath": "archive/x/whitehouse/HKS9sboWgAABXar.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKS9sboWgAABXar.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKS9sboWgAABXar.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063983100271427584.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKS9sboWgAABXar.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064001457435681146"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064001457435681146/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064001457435681146/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064001457435681146",
+      "summary": "Repost of @DoWCTO:",
+      "title": "Repost of @DoWCTO: GM. Nothing can stop the United States of America. \ud83c\uddfa\ud83c\uddf8 https://t.co/d6WU..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:e08b7968ee6bc8ef",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:23:08.373875+00:00",
+        "datePublished": "2026-06-08T15:07:10+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064001296277950852"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/08/2064001296277950852/README.md",
+      "path": "X/SecMullinDHS/2026/06/08/2064001296277950852/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064001296277950852",
+      "summary": "American citizenship is a privilege, and it must be earned honestly. If you come here break our laws, and lie in your immigration proceedings, you forfeit that privilege.",
+      "title": "American citizenship is a privilege, and it must be earned honestly. If you come here brea..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:11aca8c4939264ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:23:22.007264+00:00",
+        "datePublished": "2026-06-08T15:02:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063701989381296128.jpg",
+            "remotePath": "archive/x/whitehouse/HKO-Bn9W0AAPPjv.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKO-Bn9W0AAPPjv.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKO-Bn9W0AAPPjv.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063701989381296128.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKO-Bn9W0AAPPjv.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064000012510478555"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064000012510478555/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064000012510478555/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064000012510478555",
+      "summary": "Repost of @ENERGY:",
+      "title": "Repost of @ENERGY: Energy subtraction\u00a0peddlers hate to see them coming \ud83d\ude24 https://t.co/M8HB..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:7f5f6ed0c122b16c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:42.548617+00:00",
+        "datePublished": "2026-06-08T14:35:51+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063993412584440149"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063993412584440149/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063993412584440149/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063993412584440149",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Our components and @WHTaskForceFIFA are working tirelessly to ensure al..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b7d1fcda2159a340",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:17.647063+00:00",
+        "datePublished": "2026-06-08T14:35:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063993257529335808.png",
+            "remotePath": "archive/x/icegov/HKTG7qXWYAA4Id3.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTG7qXWYAA4Id3.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKTG7qXWYAA4Id3.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063993257529335808.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKTG7qXWYAA4Id3.png"
+        ],
+        "platform": "X",
+        "postId": "2063993260419301783"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063993260419301783/README.md",
+      "path": "X/ICEgov/2026/06/08/2063993260419301783/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063993260419301783",
+      "summary": "Success Bounte \ud83d\udea8ARRESTED IN NEW JERSEY",
+      "title": "Success Bounte \ud83d\udea8ARRESTED IN NEW JERSEY Felony convictions \ud83d\udc49Robbery \ud83d\udc49Burglary \ud83d\udc49Identity the..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:dfa42afd4b71c7d4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:21:56.749835+00:00",
+        "datePublished": "2026-06-08T14:31:36+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063992343787638898"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2063992343787638898/README.md",
+      "path": "X/DHSgov/2026/06/08/2063992343787638898/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2063992343787638898",
+      "summary": "Our components and @WHTaskForceFIFA are working tirelessly to ensure all matches across the country are safe and secure.",
+      "title": "Our components and @WHTaskForceFIFA are working tirelessly to ensure all matches across th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3738a8a013b67e1e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:06.931267+00:00",
+        "datePublished": "2026-06-08T13:22:49+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063005484722827264.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKFEjt6WMAAasWL.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFEjt6WMAAasWL.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKFEjt6WMAAasWL.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2063005484731215872.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKFEjt8WMAAp_ks.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKFEjt8WMAAp_ks.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKFEjt8WMAAp_ks.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063005484722827264.jpg",
+          "media/02_image_2063005484731215872.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKFEjt6WMAAasWL.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKFEjt8WMAAp_ks.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063975032099950976"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/08/2063975032099950976/README.md",
+      "path": "X/FBIDirectorKash/2026/06/08/2063975032099950976/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2063975032099950976",
+      "summary": "Repost of @FBIWFO:",
+      "title": "Repost of @FBIWFO: United States attorney's offices are vital to the #FBI's efforts to com..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:ae4635e2958713da",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.548823+00:00",
+        "datePublished": "2026-06-08T13:14:07+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2063972846074834968"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063972846074834968/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063972846074834968/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063972846074834968",
+      "summary": "TRUMP EFFECT: Swiss firms invest $27 billion in US after tariff deal, NZZ am Sonntag reports https://t.co/jGk5nEz31y",
+      "title": "TRUMP EFFECT: Swiss firms invest $27 billion in US after tariff deal, NZZ am Sonntag repor..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:f63051f9d3dcb456",
+      "kind": "social_post",
+      "metadata": {
+        "account": "PressSec",
+        "accountDisplayName": "Karoline Leavitt",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:34.685074+00:00",
+        "datePublished": "2026-06-08T13:13:34+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063784604767592448.mp4",
+            "remotePath": "archive/x/presssec/3HHHywr6Jd7SsEW9.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063784604767592448/vid/avc1/1920x1080/3HHHywr6Jd7SsEW9.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/presssec/3HHHywr6Jd7SsEW9.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063784604767592448.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/presssec/3HHHywr6Jd7SsEW9.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063972704340857033"
+      },
+      "metadataPath": "X/PressSec/2026/06/08/2063972704340857033/README.md",
+      "path": "X/PressSec/2026/06/08/2063972704340857033/POST.md",
+      "sourceUrl": "https://x.com/PressSec/status/2063972704340857033",
+      "summary": "Repost of @Freedom250:",
+      "title": "Repost of @Freedom250: \ud83c\uddfa\ud83c\uddf8 Here's a preview of what the America Is Back Kick-Off Celebratio..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:192d5d874b056e54",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.549051+00:00",
+        "datePublished": "2026-06-08T13:09:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063971201081339904.mp4",
+            "remotePath": "archive/x/rapidresponse47/924C1v1qbPXF6Z0T.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063971201081339904/vid/avc1/1280x720/924C1v1qbPXF6Z0T.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/924C1v1qbPXF6Z0T.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063971201081339904.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/924C1v1qbPXF6Z0T.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063971575485870410"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063971575485870410/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063971575485870410/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063971575485870410",
+      "summary": ".@AndrewHGiuliani, Director of the White House Task Force for the FIFA World Cup 2026: \"This is going to be like 78 Super Bowls... Last year, 5 events in the United States of America had counter-drone measures. All 78 matches, including a fan fest in every single city will have t",
+      "title": ".@AndrewHGiuliani, Director of the White House Task Force for the FIFA World Cup 2026: \"Th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:00cd6ea6ac71703a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.549278+00:00",
+        "datePublished": "2026-06-08T13:05:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063970573550563328.mp4",
+            "remotePath": "archive/x/rapidresponse47/PCc4irzCpLBYHWCD.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063970573550563328/vid/avc1/1280x720/PCc4irzCpLBYHWCD.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/PCc4irzCpLBYHWCD.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063970573550563328.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/PCc4irzCpLBYHWCD.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063970682262745391"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063970682262745391/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063970682262745391/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063970682262745391",
+      "summary": ".@SecRollins discusses actions taken to combat the New World Screwworm:",
+      "title": ".@SecRollins discusses actions taken to combat the New World Screwworm: \u2014 Upped production..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:d1b628219174c5af",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:17.647281+00:00",
+        "datePublished": "2026-06-08T13:05:17+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063970617297108992.jpg",
+            "remotePath": "archive/x/icegov/HKSyV07WgAAt7ca.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKSyV07WgAAt7ca.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKSyV07WgAAt7ca.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063970617297108992.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKSyV07WgAAt7ca.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063970621097197806"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2063970621097197806/README.md",
+      "path": "X/ICEgov/2026/06/08/2063970621097197806/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2063970621097197806",
+      "summary": "Today we honor Deportation Officer Brian P. Beliso who died of a heart attack in 2016 suffered while in pursuit of a fugitive.",
+      "title": "Today we honor Deportation Officer Brian P. Beliso who died of a heart attack in 2016 suff..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3b188c4c5bc3b0ec",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T16:22:27.299450+00:00",
+        "datePublished": "2026-06-08T13:01:24+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063943364509143040.jpg",
+            "remotePath": "archive/x/potus/HKSZjgYXkAAWRhU.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKSZjgYXkAAWRhU.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKSZjgYXkAAWRhU.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063943364509143040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKSZjgYXkAAWRhU.jpg"
+        ],
+        "platform": "X",
+        "postId": "2063969644579258541"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2063969644579258541/README.md",
+      "path": "X/POTUS/2026/06/08/2063969644579258541/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2063969644579258541",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \u201cBoth sides, Israel and Iran, are looking to do an immediate CEASEF..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:93b5e8b30551dcb5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.549484+00:00",
+        "datePublished": "2026-06-08T12:54:43+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063966854712901632.mp4",
+            "remotePath": "archive/x/rapidresponse47/xBWd7-3Ia10k-VT.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063966854712901632/vid/avc1/1280x720/xBWd7-3Ia10k-VT_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/xBWd7-3Ia10k-VT.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063966854712901632.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/xBWd7-3Ia10k-VT.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063967960662753424"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063967960662753424/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063967960662753424/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063967960662753424",
+      "summary": "\"@POTUS loves going to sporting events!\"",
+      "title": "\"@POTUS loves going to sporting events!\" \"This is authentic!\" https://t.co/wAedmL7YT3"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:d4bf31722f9fbfd2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.549698+00:00",
+        "datePublished": "2026-06-08T12:37:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063958525022224384.mp4",
+            "remotePath": "archive/x/rapidresponse47/eADyCTQodvQ_pupH.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063958525022224384/vid/avc1/1280x720/eADyCTQodvQ_pupH.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/eADyCTQodvQ_pupH.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063958525022224384.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/eADyCTQodvQ_pupH.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063963653825548506"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063963653825548506/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063963653825548506/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063963653825548506",
+      "summary": ".@RealTomHoman: \"When this reconciliation passes, that's $70B that will fund us until the end of the Trump Administration. You're going to see targeting increase, you're going to see arrests increase, we're also going to be able to pay our vendors... our medical contractors.\" htt",
+      "title": ".@RealTomHoman: \"When this reconciliation passes, that's $70B that will fund us until the ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:f2fb6749c71250f8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.549918+00:00",
+        "datePublished": "2026-06-08T12:36:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2063957128218329088.mp4",
+            "remotePath": "archive/x/rapidresponse47/DmmoXgLMQXxdAeXP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2063957128218329088/vid/avc1/1280x720/DmmoXgLMQXxdAeXP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/DmmoXgLMQXxdAeXP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2063957128218329088.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/DmmoXgLMQXxdAeXP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2063963304305827949"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063963304305827949/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063963304305827949/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063963304305827949",
+      "summary": "\"A beautiful shot of Washington, D.C.\" \u2014 Mika Brzezinski",
+      "title": "\"A beautiful shot of Washington, D.C.\" \u2014 Mika Brzezinski SO TRUE! https://t.co/AefW2vZ9bN"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2e3979a3e96570ed",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T16:22:42.550114+00:00",
+        "datePublished": "2026-06-08T12:15:25+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2063958068015038464.png",
+            "remotePath": "archive/x/rapidresponse47/HKSm7XNWgAADf1q.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKSm7XNWgAADf1q.png",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKSm7XNWgAADf1q.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2063958068015038464.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKSm7XNWgAADf1q.png"
+        ],
+        "platform": "X",
+        "postId": "2063958071425003528"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2063958071425003528/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2063958071425003528/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2063958071425003528",
+      "summary": "https://t.co/H3DHk0Q78r",
+      "title": "https://t.co/H3DHk0Q78r"
+    },
     {
       "category": "X",
       "date": "2026-06-08",
