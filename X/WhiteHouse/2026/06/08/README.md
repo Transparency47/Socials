@@ -1,7 +1,19 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 14
+- Posts: 18
 
+- [20:52 UTC - See you soon, New York City. https://t.co/nxS4Zs8lfQ](2064088203993244008/)
+  - Source: https://x.com/WhiteHouse/status/2064088203993244008
+  - See you soon, New York City. https://t.co/nxS4Zs8lfQ
+- [20:44 UTC - Repost of @SecDuffy: 🚂 THE TRUMP TRAIN IS ROLLING 🇺🇸 Check out @UnionPacific’s stunning lo...](2064086124272714172/)
+  - Source: https://x.com/WhiteHouse/status/2064086124272714172
+  - Repost of @SecDuffy: 🚂 THE TRUMP TRAIN IS ROLLING 🇺🇸 Check out @UnionPacific’s stunning locomotive No. 4547, honoring @POTUS and America’s 250th birthday @Freedom250 It’s currently...
+- [20:11 UTC - ALL SUMMER LONG 🇺🇸 https://t.co/NzqgUonwkO](2064077792908542116/)
+  - Source: https://x.com/WhiteHouse/status/2064077792908542116
+  - ALL SUMMER LONG 🇺🇸 https://t.co/NzqgUonwkO
+- [19:03 UTC - Through the Secure America Act, Republicans are fighting to secure long-term funding for I...](2064060689962926404/)
+  - Source: https://x.com/WhiteHouse/status/2064060689962926404
+  - Through the Secure America Act, Republicans are fighting to secure long-term funding for ICE and Border Patrol, working to keep America SAFE by ensuring the border remains secure a...
 - [17:33 UTC - Repost of @SecRollins: 🚨 WAR ON SCREWWORM Inspect • Report • Protect We have been in full ...](2064038069993423013/)
   - Source: https://x.com/WhiteHouse/status/2064038069993423013
   - Repost of @SecRollins: 🚨 WAR ON SCREWWORM Inspect • Report • Protect We have been in full combat mode against this invasive threat since Day One. • Millions of sterile flies deploy...

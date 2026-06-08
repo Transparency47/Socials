@@ -1,6 +1,510 @@
 {
-  "generatedAt": "2026-06-08T18:44:22.560480+00:00",
+  "generatedAt": "2026-06-08T21:13:33.590680+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:ac3a50294180994c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T21:08:12.183608+00:00",
+        "datePublished": "2026-06-08T21:03:00+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064086329449660416.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKUblKSWQAAFv0c.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUblKSWQAAFv0c.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKUblKSWQAAFv0c.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064086329088954368.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKUblI8WUAAaOOy.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUblI8WUAAaOOy.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKUblI8WUAAaOOy.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064086329449660416.jpg",
+          "media/02_image_2064086329088954368.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKUblKSWQAAFv0c.jpg",
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKUblI8WUAAaOOy.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064090843611353570"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064090843611353570/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064090843611353570/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064090843611353570",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: On June 8, 1912, President Taft dedicated the Columbus Memoria..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:38a02ca45b35736c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:12.184017+00:00",
+        "datePublished": "2026-06-08T20:54:54+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064087669412433920.mp4",
+            "remotePath": "archive/x/rapidresponse47/PpLyzEhFb7fzhy9z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064087669412433920/vid/avc1/1280x720/PpLyzEhFb7fzhy9z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/PpLyzEhFb7fzhy9z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064087669412433920.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/PpLyzEhFb7fzhy9z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064088804504248777"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064088804504248777/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064088804504248777/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064088804504248777",
+      "summary": "\"Who's more of a New Yorker president than Donald Trump?\"",
+      "title": "\"Who's more of a New Yorker president than Donald Trump?\" CNN plays throwback footage of D..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:46b2b0d9fdfb54ed",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:55.142313+00:00",
+        "datePublished": "2026-06-08T20:52:31+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064087156675518466.jpg",
+            "remotePath": "archive/x/whitehouse/HKUcVT8XIAI0IPe.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUcVT8XIAI0IPe.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUcVT8XIAI0IPe.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064087156675518466.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUcVT8XIAI0IPe.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064088203993244008"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064088203993244008/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064088203993244008/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064088203993244008",
+      "summary": "See you soon, New York City. https://t.co/nxS4Zs8lfQ",
+      "title": "See you soon, New York City. https://t.co/nxS4Zs8lfQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:5a46cbb12670901f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T21:08:55.142745+00:00",
+        "datePublished": "2026-06-08T20:44:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064078969545138176.jpg",
+            "remotePath": "archive/x/whitehouse/HKUU4wgXoAA2Rjf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUU4wgXoAA2Rjf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUU4wgXoAA2Rjf.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064078969918373888.jpg",
+            "remotePath": "archive/x/whitehouse/HKUU4x5WwAAHxhc.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUU4x5WwAAHxhc.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUU4x5WwAAHxhc.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064078969545150464.jpg",
+            "remotePath": "archive/x/whitehouse/HKUU4wgX0AAMPYD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUU4wgX0AAMPYD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUU4wgX0AAMPYD.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064078969545138176.jpg",
+          "media/02_image_2064078969918373888.jpg",
+          "media/03_image_2064078969545150464.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUU4wgXoAA2Rjf.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUU4x5WwAAHxhc.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUU4wgX0AAMPYD.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064086124272714172"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064086124272714172/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064086124272714172/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064086124272714172",
+      "summary": "Repost of @SecDuffy:",
+      "title": "Repost of @SecDuffy: \ud83d\ude82 THE TRUMP TRAIN IS ROLLING \ud83c\uddfa\ud83c\uddf8 Check out @UnionPacific\u2019s stunning lo..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:a23da36205e918c6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:09:05.509992+00:00",
+        "datePublished": "2026-06-08T20:43:25.416000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116716431302721375"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116716431302721375/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116716431302721375/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116716431302721375",
+      "summary": "President Trump Trashes RINO Senator Tillis, Calls Him a \u201cLoser\u201d in Blistering Remarks to Reporters (VIDEO): [https://www. thegatewaypundit.com/2026/06/p resident-trump-blasts-rino-senator-tillis-as-loser/](https://www.thegatewaypundit.com/2026/06/president-trump-blasts-rino-sena",
+      "title": "President Trump Trashes RINO Senator Tillis, Calls Him a \u201cLoser\u201d in Blistering Remarks to ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:286bbfd8ff1cf91f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T21:08:12.184457+00:00",
+        "datePublished": "2026-06-08T20:42:36+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064085709607022719"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064085709607022719/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064085709607022719/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064085709607022719",
+      "summary": "Repost of @BPUnion:",
+      "title": "Repost of @BPUnion: Thank you Senate Republicans for passing the Budget Reconciliation Bil..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-08",
+      "id": "socials:f42b068b1ccb21be",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:09:18.511088+00:00",
+        "datePublished": "2026-06-08T20:38:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649126693675830541.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649126693675830541.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649126693675830541",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649126693675830541.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649126693675830541.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649126693675830541.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649126693675830541"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/08/7649126693675830541/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/08/7649126693675830541/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649126693675830541",
+      "summary": "D.C. is beautiful again thanks to President Trump \ud83c\uddfa\ud83c\uddf8",
+      "title": "D.C. is beautiful again thanks to President Trump \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:3935342f75066c33",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:55.143108+00:00",
+        "datePublished": "2026-06-08T20:11:09+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064076642549420032.jpg",
+            "remotePath": "archive/x/whitehouse/HKUSxTxW0AAsbGQ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUSxTxW0AAsbGQ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUSxTxW0AAsbGQ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064076642549420032.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUSxTxW0AAsbGQ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064077792908542116"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064077792908542116/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064077792908542116/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064077792908542116",
+      "summary": "ALL SUMMER LONG \ud83c\uddfa\ud83c\uddf8 https://t.co/NzqgUonwkO",
+      "title": "ALL SUMMER LONG \ud83c\uddfa\ud83c\uddf8 https://t.co/NzqgUonwkO"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:63a615ade60b0486",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:12.184814+00:00",
+        "datePublished": "2026-06-08T19:49:17+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064072292531913197"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064072292531913197/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064072292531913197/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064072292531913197",
+      "summary": ".@RealPNavarro: Trump\u2019s new order secures America\u2019s customs border https://t.co/KE9VCf8HQE",
+      "title": ".@RealPNavarro: Trump\u2019s new order secures America\u2019s customs border https://t.co/KE9VCf8HQE"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:487e3d2a1a324d91",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:07:28.036857+00:00",
+        "datePublished": "2026-06-08T19:46:05+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064071479193391104.jpg",
+            "remotePath": "archive/x/dhsgov/HKUOEwxWUAAlop7.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUOEwxWUAAlop7.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKUOEwxWUAAlop7.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064071479193391104.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKUOEwxWUAAlop7.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064071487611343302"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064071487611343302/README.md",
+      "path": "X/DHSgov/2026/06/08/2064071487611343302/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064071487611343302",
+      "summary": "Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and securing our southern border.",
+      "title": "Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and secu..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:02a05e75dbc9cbe8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:12.185157+00:00",
+        "datePublished": "2026-06-08T19:25:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064063319196024832.mp4",
+            "remotePath": "archive/x/rapidresponse47/AZS6LzX2vtZevquy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064063319196024832/vid/avc1/1280x720/AZS6LzX2vtZevquy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/AZS6LzX2vtZevquy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064063319196024832.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/AZS6LzX2vtZevquy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064066221767586018"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064066221767586018/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064066221767586018/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064066221767586018",
+      "summary": ".@DrOzCMS says the rural health transformation fund provided an opportunity to reward states who include nutrition in their medical school education\u2014incentivizing a MAHA approach to medicine. https://t.co/99P3kEphxC",
+      "title": ".@DrOzCMS says the rural health transformation fund provided an opportunity to reward stat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2770a90c81f61cd9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:12.185522+00:00",
+        "datePublished": "2026-06-08T19:10:28+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064059151504814080.mp4",
+            "remotePath": "archive/x/rapidresponse47/YVDRfaGL1U1LGnRm.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064059151504814080/vid/avc1/1280x720/YVDRfaGL1U1LGnRm.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/YVDRfaGL1U1LGnRm.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064059151504814080.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/YVDRfaGL1U1LGnRm.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064062521296773434"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064062521296773434/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064062521296773434/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064062521296773434",
+      "summary": ".@SecKennedy announces \"several major reforms that will help reshape the future of American medicine.\"",
+      "title": ".@SecKennedy announces \"several major reforms that will help reshape the future of America..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:85c76da03b678cc6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:07:46.356412+00:00",
+        "datePublished": "2026-06-08T19:05:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064061198941773824.jpg",
+            "remotePath": "archive/x/icegov/HKUEuX2XYAArMUl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUEuX2XYAArMUl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKUEuX2XYAArMUl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064061198941773824.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKUEuX2XYAArMUl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064061202515308708"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2064061202515308708/README.md",
+      "path": "X/ICEgov/2026/06/08/2064061202515308708/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064061202515308708",
+      "summary": "\ud83d\udea8Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citizens.",
+      "title": "\ud83d\udea8Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:f03d9767362cbc81",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:55.143460+00:00",
+        "datePublished": "2026-06-08T19:03:11+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064060216665104385.jpg",
+            "remotePath": "archive/x/whitehouse/HKUD1MlW4AEltYe.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUD1MlW4AEltYe.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUD1MlW4AEltYe.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064060216665104385.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUD1MlW4AEltYe.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064060689962926404"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064060689962926404/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064060689962926404/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064060689962926404",
+      "summary": "Through the Secure America Act, Republicans are fighting to secure long-term funding for ICE and Border Patrol, working to keep America SAFE by ensuring the border remains secure and strict immigration laws are enforced. https://t.co/6wiqhl1RdW",
+      "title": "Through the Secure America Act, Republicans are fighting to secure long-term funding for I..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:1e3243ae893b760d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T21:08:12.185908+00:00",
+        "datePublished": "2026-06-08T18:56:32+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064059016817398018"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064059016817398018/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064059016817398018/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064059016817398018",
+      "summary": "DOJ opens new front in war on California as four NorCal school districts targeted https://t.co/RnJjKGD2VJ",
+      "title": "DOJ opens new front in war on California as four NorCal school districts targeted https://..."
+    },
     {
       "category": "X",
       "date": "2026-06-08",

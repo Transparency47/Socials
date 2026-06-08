@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-08
 
-- Posts: 9
+- Posts: 10
 
+- [19:05 UTC - 🚨Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citi...](2064061202515308708/)
+  - Source: https://x.com/ICEgov/status/2064061202515308708
+  - 🚨Four illegal alien Tren de Aragua members plead guilty to 2024 double murder of U.S. citizens. They also pleaded guilty to shooting a third U.S. Citizen in 2024 in Bronx, N.Y., fo...
 - [17:01 UTC - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...](2064030171934392520/)
   - Source: https://x.com/ICEgov/status/2064030171934392520
   - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honestly. If you come here break our laws, and lie in your immigration proceedings, you forfeit...

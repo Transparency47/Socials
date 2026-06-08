@@ -1,7 +1,28 @@
 # X / RapidResponse47 / 2026-06-08
 
-- Posts: 18
+- Posts: 25
 
+- [21:03 UTC - Repost of @SecretaryBurgum: On June 8, 1912, President Taft dedicated the Columbus Memoria...](2064090843611353570/)
+  - Source: https://x.com/RapidResponse47/status/2064090843611353570
+  - Repost of @SecretaryBurgum: On June 8, 1912, President Taft dedicated the Columbus Memorial Fountain. A century later, thanks to @POTUS, the fountain looks as good as new. https://...
+- [20:54 UTC - "Who's more of a New Yorker president than Donald Trump?" CNN plays throwback footage of D...](2064088804504248777/)
+  - Source: https://x.com/RapidResponse47/status/2064088804504248777
+  - "Who's more of a New Yorker president than Donald Trump?" CNN plays throwback footage of Donald Trump attending Knicks games ahead of @POTUS' appearance tonight at Game 3 of the NB...
+- [20:42 UTC - Repost of @BPUnion: Thank you Senate Republicans for passing the Budget Reconciliation Bil...](2064085709607022719/)
+  - Source: https://x.com/RapidResponse47/status/2064085709607022719
+  - Repost of @BPUnion: Thank you Senate Republicans for passing the Budget Reconciliation Bill last week that will give Border Patrol and ICE stable funding for the next three years....
+- [19:49 UTC - .@RealPNavarro: Trump’s new order secures America’s customs border https://t.co/KE9VCf8HQE](2064072292531913197/)
+  - Source: https://x.com/RapidResponse47/status/2064072292531913197
+  - .@RealPNavarro: Trump’s new order secures America’s customs border https://t.co/KE9VCf8HQE
+- [19:25 UTC - .@DrOzCMS says the rural health transformation fund provided an opportunity to reward stat...](2064066221767586018/)
+  - Source: https://x.com/RapidResponse47/status/2064066221767586018
+  - .@DrOzCMS says the rural health transformation fund provided an opportunity to reward states who include nutrition in their medical school education—incentivizing a MAHA approach t...
+- [19:10 UTC - .@SecKennedy announces "several major reforms that will help reshape the future of America...](2064062521296773434/)
+  - Source: https://x.com/RapidResponse47/status/2064062521296773434
+  - .@SecKennedy announces "several major reforms that will help reshape the future of American medicine." — 9 of the nation's leading medical accreditors, certifying boards, testing o...
+- [18:56 UTC - DOJ opens new front in war on California as four NorCal school districts targeted https://...](2064059016817398018/)
+  - Source: https://x.com/RapidResponse47/status/2064059016817398018
+  - DOJ opens new front in war on California as four NorCal school districts targeted https://t.co/RnJjKGD2VJ
 - [18:20 UTC - https://t.co/H3EQxryE0h](2064049895082741822/)
   - Source: https://x.com/RapidResponse47/status/2064049895082741822
   - https://t.co/H3EQxryE0h

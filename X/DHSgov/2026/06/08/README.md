@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-08
 
-- Posts: 7
+- Posts: 8
 
+- [19:46 UTC - Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and secu...](2064071487611343302/)
+  - Source: https://x.com/DHSgov/status/2064071487611343302
+  - Under the leadership of @POTUS Trump and @SecMullinDHS, we are finishing the wall and securing our southern border. If you attempt to enter our nation illegally, we will find you,...
 - [17:51 UTC - Apparently @NYCMayor doesn’t think that arresting rapists, murderers, pedophiles, and assa...](2064042645840662770/)
   - Source: https://x.com/DHSgov/status/2064042645840662770
   - Apparently @NYCMayor doesn’t think that arresting rapists, murderers, pedophiles, and assailants serves “the interest of public safety.” While sanctuary politicians like Mamdani ke...

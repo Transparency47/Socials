@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-08
 
-- Posts: 25
+- Posts: 26
 
+- [20:43 UTC - President Trump Trashes RINO Senator Tillis, Calls Him a “Loser” in Blistering Remarks to ...](116716431302721375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116716431302721375
+  - President Trump Trashes RINO Senator Tillis, Calls Him a “Loser” in Blistering Remarks to Reporters (VIDEO): [https://www. thegatewaypundit.com/2026/06/p resident-trump-blasts-rino...
 - [18:19 UTC - Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats ...](116715864662361245/)
   - Source: https://truthsocial.com/@realDonaldTrump/116715864662361245
   - Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats Republicans, and everything that they stand for, horribly! She was put there by then Senat...

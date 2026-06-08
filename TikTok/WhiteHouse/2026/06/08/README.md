@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-06-08
 
-- Posts: 3
+- Posts: 4
 
+- [20:38 UTC - D.C. is beautiful again thanks to President Trump 🇺🇸](7649126693675830541/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7649126693675830541
+  - D.C. is beautiful again thanks to President Trump 🇺🇸
 - [17:39 UTC - Always locked in 🎥🏀](7649080504490200334/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7649080504490200334
   - Always locked in 🎥🏀
