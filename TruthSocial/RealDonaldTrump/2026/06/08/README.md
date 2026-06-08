@@ -1,7 +1,58 @@
 # TruthSocial / RealDonaldTrump / 2026-06-08
 
-- Posts: 8
+- Posts: 25
 
+- [18:19 UTC - Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats ...](116715864662361245/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715864662361245
+  - Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats Republicans, and everything that they stand for, horribly! She was put there by then Senat...
+- [17:19 UTC - Congressman Russell Fry is an America First Patriot, who is doing an incredible job repres...](116715630555341816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715630555341816
+  - Congressman Russell Fry is an America First Patriot, who is doing an incredible job representing South Carolina’s 7th Congressional District! A MAGA Warrior, who has been with us f...
+- [17:19 UTC - Congressman William Timmons is doing a truly fantastic job representing the wonderful peop...](116715629293844038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715629293844038
+  - Congressman William Timmons is doing a truly fantastic job representing the wonderful people of South Carolina’s 4th Congressional District! A Captain in the South Carolina Air Nat...
+- [17:19 UTC - Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South ...](116715628078883917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715628078883917
+  - Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South Carolina’s 3rd Congressional District! A distinguished Nurse and Lieutenant Colonel in the...
+- [17:18 UTC - Congressman Joe Wilson, who has been with us from the very beginning, is a Tremendous Cham...](116715626878417081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715626878417081
+  - Congressman Joe Wilson, who has been with us from the very beginning, is a Tremendous Champion of South Carolina’s 2nd Congressional District! A retired Colonel from the South Caro...
+- [17:18 UTC - I love the Great State of South Carolina, won every one of my Races there BY A LANDSLIDE, ...](116715625347665800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715625347665800
+  - I love the Great State of South Carolina, won every one of my Races there BY A LANDSLIDE, and only want the BEST representing you in Elected Office! There is a RINO Candidate in th...
+- [17:18 UTC - Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in...](116715623986026200/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715623986026200
+  - Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in the wonderful State of South Carolina, which I won in 2016, 2020, and 2024, with the High...
+- [17:17 UTC - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ...](116715622764306728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715622764306728
+  - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, a State I love and WON BIG in 2016, 2020, and 2024! Lindsey has been a wonderful friend, a...
+- [17:17 UTC - Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an...](116715621524683482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715621524683482
+  - Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an America First Patriot who has been with me from the very beginning. She never wavered, ne...
+- [17:17 UTC - It is my Great Honor to endorse America First Patriot, Marty O'Donnell, who is running to ...](116715619830723198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715619830723198
+  - It is my Great Honor to endorse America First Patriot, Marty O'Donnell, who is running to represent the incredible people of Nevada’s 3rd Congressional District. Marty is running a...
+- [17:14 UTC - It is my Great Honor to endorse America First Patriot, David Flippo, who is running to rep...](116715610606173494/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715610606173494
+  - It is my Great Honor to endorse America First Patriot, David Flippo, who is running to represent the fantastic people of Nevada’s 2nd Congressional District! He is strongly support...
+- [17:14 UTC - It is my Great Honor to endorse Highly Respected State Senator, Carrie Buck, who is runnin...](116715608900561503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715608900561503
+  - It is my Great Honor to endorse Highly Respected State Senator, Carrie Buck, who is running to represent the fantastic people of Nevada’s 1st Congressional District. Carrie is runn...
+- [17:13 UTC - It is my Great Honor to endorse America First Patriot, Adriana Guzmán Fralick, who is runn...](116715607671988453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715607671988453
+  - It is my Great Honor to endorse America First Patriot, Adriana Guzmán Fralick, who is running to be the next Attorney General of the Wonderful State of Nevada. Adriana is strongly...
+- [17:13 UTC - Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A...](116715606308730372/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715606308730372
+  - Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A Highly Respected Police Officer, Civic Leader, and Las Vegas City Council Member, and now...
+- [17:13 UTC - Joe Lombardo is the strong and very popular Governor of Nevada, a very special place to me...](116715605006475064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715605006475064
+  - Joe Lombardo is the strong and very popular Governor of Nevada, a very special place to me in that we had a BIG Presidential Election Win on November 5, 2024! As the former Sheriff...
+- [17:12 UTC - Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of No...](116715603697839026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715603697839026
+  - Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of North Dakota, a State I love, and WON BIG, THREE TIMES, in 2016, 2020, and 2024! Julie has a...
+- [17:12 UTC - Former Governor Paul LePage will be a tremendous Congressman for the amazing people of Mai...](116715601994142024/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116715601994142024
+  - Former Governor Paul LePage will be a tremendous Congressman for the amazing people of Maine’s 2nd Congressional District! A proven America First Fighter, Paul has been with us fro...
 - [16:16 UTC - Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3r...](116715381418144428/)
   - Source: https://truthsocial.com/@realDonaldTrump/116715381418144428
   - Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3rd World Nation. Rigged Elections! Now they’ll be working on great guy Steve Hilton. Won’t...

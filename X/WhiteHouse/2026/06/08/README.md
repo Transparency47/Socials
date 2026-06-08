@@ -1,7 +1,16 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 11
+- Posts: 14
 
+- [17:33 UTC - Repost of @SecRollins: 🚨 WAR ON SCREWWORM Inspect • Report • Protect We have been in full ...](2064038069993423013/)
+  - Source: https://x.com/WhiteHouse/status/2064038069993423013
+  - Repost of @SecRollins: 🚨 WAR ON SCREWWORM Inspect • Report • Protect We have been in full combat mode against this invasive threat since Day One. • Millions of sterile flies deploy...
+- [17:33 UTC - Repost of @ENERGY: President Trump is bringing his ENERGY ADDITION agenda to California. S...](2064038026485891562/)
+  - Source: https://x.com/WhiteHouse/status/2064038026485891562
+  - Repost of @ENERGY: President Trump is bringing his ENERGY ADDITION agenda to California. Sable Offshore’s oil is flowing again — strengthening the United States’ national security...
+- [17:12 UTC - Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ](2064032930804985919/)
+  - Source: https://x.com/WhiteHouse/status/2064032930804985919
+  - Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ
 - [15:44 UTC - Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7RaBUDL](2064010698384916706/)
   - Source: https://x.com/WhiteHouse/status/2064010698384916706
   - Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7RaBUDL

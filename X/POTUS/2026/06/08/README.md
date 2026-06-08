@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-08
 
-- Posts: 3
+- Posts: 5
 
+- [17:42 UTC - Repost of @WhiteHouse: Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ](2064040396200521916/)
+  - Source: https://x.com/POTUS/status/2064040396200521916
+  - Repost of @WhiteHouse: Always locked in 🎥🏀 https://t.co/IHSJgwSrKQ
+- [17:42 UTC - Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7R...](2064040382711656751/)
+  - Source: https://x.com/POTUS/status/2064040382711656751
+  - Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. 🖤 https://t.co/KTH7RaBUDL
 - [15:37 UTC - Repost of @WhiteHouse: More Jobs. Real results. 💪 President Donald J. Trump is delivering ...](2064008818934132920/)
   - Source: https://x.com/POTUS/status/2064008818934132920
   - Repost of @WhiteHouse: More Jobs. Real results. 💪 President Donald J. Trump is delivering for Americans, and there’s much more to come. 🔥 https://t.co/SvOkZPMO91

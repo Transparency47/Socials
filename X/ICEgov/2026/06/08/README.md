@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-08
 
-- Posts: 8
+- Posts: 9
 
+- [17:01 UTC - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...](2064030171934392520/)
+  - Source: https://x.com/ICEgov/status/2064030171934392520
+  - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honestly. If you come here break our laws, and lie in your immigration proceedings, you forfeit...
 - [16:05 UTC - Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that fo...](2064015920054333740/)
   - Source: https://x.com/ICEgov/status/2064015920054333740
   - Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that followed his arrest by police in Portland on charges of sodomy, sexual abuse, sexual penetra...

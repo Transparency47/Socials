@@ -1,6 +1,874 @@
 {
-  "generatedAt": "2026-06-08T16:27:51.945483+00:00",
+  "generatedAt": "2026-06-08T18:44:22.560480+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a7f92a189c4df018",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:45.535227+00:00",
+        "datePublished": "2026-06-08T18:20:17+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064049887373570048.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKT6b8-WMAAjq9a.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKT6b8-WMAAjq9a.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKT6b8-WMAAjq9a.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064049887373570048.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKT6b8-WMAAjq9a.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064049895082741822"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064049895082741822/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064049895082741822/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064049895082741822",
+      "summary": "https://t.co/H3EQxryE0h",
+      "title": "https://t.co/H3EQxryE0h"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:b4c223dbf2cc887e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.110356+00:00",
+        "datePublished": "2026-06-08T18:19:19.172000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715864662361245"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715864662361245/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715864662361245/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715864662361245",
+      "summary": "Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats Republicans, and everything that they stand for, horribly! She was put there by then Senate Majority Leader Harry Reid, and Barack Hussein Obama, need I say more? She is a nasty holdover fro",
+      "title": "Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:12d1c2dba4138527",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:09.552191+00:00",
+        "datePublished": "2026-06-08T17:51:29+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064042031005974528.mp4",
+            "remotePath": "archive/x/dhsgov/HqjYzPARpRH7e1Xm.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064042031005974528/vid/avc1/1206x678/HqjYzPARpRH7e1Xm.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HqjYzPARpRH7e1Xm.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064042031005974528.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HqjYzPARpRH7e1Xm.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064042645840662770"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064042645840662770/README.md",
+      "path": "X/DHSgov/2026/06/08/2064042645840662770/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064042645840662770",
+      "summary": "Apparently @NYCMayor doesn\u2019t think that arresting rapists, murderers, pedophiles, and assailants serves \u201cthe interest of public safety.\u201d",
+      "title": "Apparently @NYCMayor doesn\u2019t think that arresting rapists, murderers, pedophiles, and assa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:7f55a1def1e073ed",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:45.535545+00:00",
+        "datePublished": "2026-06-08T17:43:26+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064039362996678656.mp4",
+            "remotePath": "archive/x/rapidresponse47/kSyWM7MaejjBKVw7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064039362996678656/vid/avc1/1920x1080/kSyWM7MaejjBKVw7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/kSyWM7MaejjBKVw7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064039362996678656.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/kSyWM7MaejjBKVw7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064040620247658645"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064040620247658645/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064040620247658645/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064040620247658645",
+      "summary": "\"The President announcing plans to build a promenade\u2014or a pedestrian bridge\u2014off the back of the Lincoln Memorial, connecting it to the waterfront.\"",
+      "title": "\"The President announcing plans to build a promenade\u2014or a pedestrian bridge\u2014off the back o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6c7d371e7cfc1d92",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:42:33.224721+00:00",
+        "datePublished": "2026-06-08T17:42:33+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064032185917534208.mp4",
+            "remotePath": "archive/x/potus/gVAhxI3oV4wEMaPA.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064032185917534208/vid/avc1/1080x1920/gVAhxI3oV4wEMaPA.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/gVAhxI3oV4wEMaPA.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064032185917534208.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/gVAhxI3oV4wEMaPA.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064040396200521916"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2064040396200521916/README.md",
+      "path": "X/POTUS/2026/06/08/2064040396200521916/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064040396200521916",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Always locked in \ud83c\udfa5\ud83c\udfc0 https://t.co/IHSJgwSrKQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b1f31cbef5e4daa0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:42:33.225037+00:00",
+        "datePublished": "2026-06-08T17:42:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064010373544472576.jpg",
+            "remotePath": "archive/x/potus/HKTWf8fW8AAAvlm.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTWf8fW8AAAvlm.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKTWf8fW8AAAvlm.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064010373544472576.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKTWf8fW8AAAvlm.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064040382711656751"
+      },
+      "metadataPath": "X/POTUS/2026/06/08/2064040382711656751/README.md",
+      "path": "X/POTUS/2026/06/08/2064040382711656751/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064040382711656751",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7R..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-08",
+      "id": "socials:edf08c58a11c76d4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:33.726047+00:00",
+        "datePublished": "2026-06-08T17:39:22+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649080504490200334.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649080504490200334.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649080504490200334",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649080504490200334.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649080504490200334.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649080504490200334.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649080504490200334"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/08/7649080504490200334/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/08/7649080504490200334/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649080504490200334",
+      "summary": "Always locked in \ud83c\udfa5\ud83c\udfc0",
+      "title": "Always locked in \ud83c\udfa5\ud83c\udfc0"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:be0dcd7cacb0a378",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:43:10.722690+00:00",
+        "datePublished": "2026-06-08T17:33:18+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064028091781877760.jpg",
+            "remotePath": "archive/x/whitehouse/HKTmnSEWEAAeFBR.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTmnSEWEAAeFBR.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKTmnSEWEAAeFBR.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064028091781877760.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKTmnSEWEAAeFBR.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064038069993423013"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064038069993423013/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064038069993423013/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064038069993423013",
+      "summary": "Repost of @SecRollins:",
+      "title": "Repost of @SecRollins: \ud83d\udea8 WAR ON SCREWWORM Inspect \u2022 Report \u2022 Protect We have been in full ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:30801c16ec581d6b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:43:10.722968+00:00",
+        "datePublished": "2026-06-08T17:33:08+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064028357625364480.jpg",
+            "remotePath": "archive/x/whitehouse/HKTm2waXwAAXi0R.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTm2waXwAAXi0R.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKTm2waXwAAXi0R.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064028357625364480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKTm2waXwAAXi0R.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064038026485891562"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064038026485891562/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064038026485891562/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064038026485891562",
+      "summary": "Repost of @ENERGY:",
+      "title": "Repost of @ENERGY: President\u00a0Trump is bringing his ENERGY ADDITION agenda to California. S..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:74733cf234516914",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:42:45.535886+00:00",
+        "datePublished": "2026-06-08T17:21:53+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064035196727447569"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064035196727447569/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064035196727447569/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064035196727447569",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:2e4ba5251ded3bd6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.111574+00:00",
+        "datePublished": "2026-06-08T17:19:46.981000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715630555341816"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715630555341816/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715630555341816/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715630555341816",
+      "summary": "Congressman Russell Fry is an America First Patriot, who is doing an incredible job representing South Carolina\u2019s 7th Congressional District! A MAGA Warrior, who has been with us from the very beginning, Russell is working hard to Grow our Economy, Cut Taxes and Regulations, Adva",
+      "title": "Congressman Russell Fry is an America First Patriot, who is doing an incredible job repres..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:adaa5338915f9e8f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.112493+00:00",
+        "datePublished": "2026-06-08T17:19:27.731000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715629293844038"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715629293844038/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715629293844038/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715629293844038",
+      "summary": "Congressman William Timmons is doing a truly fantastic job representing the wonderful people of South Carolina\u2019s 4th Congressional District! A Captain in the South Carolina Air National Guard, and former Criminal Prosecutor, William knows what it takes to ensure LAW AND ORDER, an",
+      "title": "Congressman William Timmons is doing a truly fantastic job representing the wonderful peop..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:c7bdb1c930efcb88",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.113326+00:00",
+        "datePublished": "2026-06-08T17:19:09.192000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715628078883917"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715628078883917/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715628078883917/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715628078883917",
+      "summary": "Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South Carolina\u2019s 3rd Congressional District! A distinguished Nurse and Lieutenant Colonel in the Air National Guard, Sheri knows the Wisdom and Courage that is necessary to Defend our Country, Sup",
+      "title": "Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:11ab359969ed08e2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.114464+00:00",
+        "datePublished": "2026-06-08T17:18:50.875000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715626878417081"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715626878417081/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715626878417081/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715626878417081",
+      "summary": "Congressman Joe Wilson, who has been with us from the very beginning, is a Tremendous Champion of South Carolina\u2019s 2nd Congressional District! A retired Colonel from the South Carolina Army National Guard, and Member of the House Armed Services Committee, Joe knows the Wisdom and",
+      "title": "Congressman Joe Wilson, who has been with us from the very beginning, is a Tremendous Cham..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:eb54d1d0f14aa256",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:45.536130+00:00",
+        "datePublished": "2026-06-08T17:18:45+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064034401168592896.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKTsWiXXEAAq0A6.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKTsWiXXEAAq0A6.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKTsWiXXEAAq0A6.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064034401168592896.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKTsWiXXEAAq0A6.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064034407057371189"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064034407057371189/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064034407057371189/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064034407057371189",
+      "summary": "https://t.co/sW6WgQ3bGU",
+      "title": "https://t.co/sW6WgQ3bGU"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:1d0c58c031287cee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.115258+00:00",
+        "datePublished": "2026-06-08T17:18:27.517000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715625347665800"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715625347665800/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715625347665800/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715625347665800",
+      "summary": "I love the Great State of South Carolina, won every one of my Races there BY A LANDSLIDE, and only want the BEST representing you in Elected Office! There is a RINO Candidate in the Palmetto State named David Pascoe, a lifelong Democrat who previously endorsed Crooked Joe Biden f",
+      "title": "I love the Great State of South Carolina, won every one of my Races there BY A LANDSLIDE, ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:18b6631cafb0cfa1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.116255+00:00",
+        "datePublished": "2026-06-08T17:18:06.741000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715623986026200"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715623986026200/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715623986026200/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715623986026200",
+      "summary": "Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in the wonderful State of South Carolina, which I won in 2016, 2020, and 2024, with the Highest Vote in History! Cody is a Fifth Generation Farmer, and Former Agriculture Advisor and Chief Exe",
+      "title": "Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:5fda3c8878f2eb44",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.117057+00:00",
+        "datePublished": "2026-06-08T17:17:48.099000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715622764306728"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715622764306728/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715622764306728/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715622764306728",
+      "summary": "Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, a State I love and WON BIG in 2016, 2020, and 2024! Lindsey has been a wonderful friend, and has always been there when I needed him. As the Chair of the Senate Budget Committee, Lindsey is ",
+      "title": "Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:1757f6f76ccedfeb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.117936+00:00",
+        "datePublished": "2026-06-08T17:17:29.184000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715621524683482"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715621524683482/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715621524683482/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715621524683482",
+      "summary": "Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an America First Patriot who has been with me from the very beginning. She never wavered, never let me down, and was the only South Carolina Gubernatorial Candidate to Endorse me as soon as I ",
+      "title": "Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:35e63098b6a27412",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.118818+00:00",
+        "datePublished": "2026-06-08T17:17:03.336000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715619830723198"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715619830723198/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715619830723198/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715619830723198",
+      "summary": "It is my Great Honor to endorse America First Patriot, Marty O'Donnell, who is running to represent the incredible people of Nevada\u2019s 3rd Congressional District. Marty is running against Susie Lee, a true Radical Left Extremist who does not represent the Values of Southern Nevada",
+      "title": "It is my Great Honor to endorse America First Patriot, Marty O'Donnell, who is running to ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:44898d4171780ee4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.119652+00:00",
+        "datePublished": "2026-06-08T17:14:42.580000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715610606173494"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715610606173494/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715610606173494/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715610606173494",
+      "summary": "It is my Great Honor to endorse America First Patriot, David Flippo, who is running to represent the fantastic people of Nevada\u2019s 2nd Congressional District! He is strongly supported by the most Highly Respected MAGA Warriors in Nevada, and many Republicans in the U.S. House of R",
+      "title": "It is my Great Honor to endorse America First Patriot, David Flippo, who is running to rep..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:51b4818f2c404b53",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.120552+00:00",
+        "datePublished": "2026-06-08T17:14:16.555000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715608900561503"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715608900561503/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715608900561503/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715608900561503",
+      "summary": "It is my Great Honor to endorse Highly Respected State Senator, Carrie Buck, who is running to represent the fantastic people of Nevada\u2019s 1st Congressional District. Carrie is running against a Career Politician named Dina Titus, who tried to raise Taxes by over 4 Trillion Dollar",
+      "title": "It is my Great Honor to endorse Highly Respected State Senator, Carrie Buck, who is runnin..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:1b33f87802e6a670",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.121387+00:00",
+        "datePublished": "2026-06-08T17:13:57.809000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715607671988453"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715607671988453/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715607671988453/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715607671988453",
+      "summary": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is running to be the next Attorney General of the Wonderful State of Nevada. Adriana is strongly supported by many of the Greatest MAGA Warriors in Nevada, including my friend, Governor Joe Lombard",
+      "title": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is runn..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:be36f98d4617e38d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.122160+00:00",
+        "datePublished": "2026-06-08T17:13:37.006000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715606308730372"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715606308730372/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715606308730372/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715606308730372",
+      "summary": "Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A Highly Respected Police Officer, Civic Leader, and Las Vegas City Council Member, and now, distinguished Lieutenant Governor, working with outstanding Governor Joe Lombardo, Stavros has pro",
+      "title": "Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6b2c377e6dbe7960",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:09.552552+00:00",
+        "datePublished": "2026-06-08T17:13:26+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064033070647218503"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064033070647218503/README.md",
+      "path": "X/DHSgov/2026/06/08/2064033070647218503/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064033070647218503",
+      "summary": "American citizenship is a privilege, and it must be earned honestly.",
+      "title": "American citizenship is a privilege, and it must be earned honestly. If you come here and ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:859484aecf5e5770",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.122939+00:00",
+        "datePublished": "2026-06-08T17:13:17.135000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715605006475064"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715605006475064/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715605006475064/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715605006475064",
+      "summary": "Joe Lombardo is the strong and very popular Governor of Nevada, a very special place to me in that we had a BIG Presidential Election Win on November 5, 2024! As the former Sheriff of Clark County, and brave U.S. Army Veteran, Joe strongly supports our incredible Law Enforcement,",
+      "title": "Joe Lombardo is the strong and very popular Governor of Nevada, a very special place to me..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:cdf25345d39b526f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.123719+00:00",
+        "datePublished": "2026-06-08T17:12:57.168000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715603697839026"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715603697839026/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715603697839026/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715603697839026",
+      "summary": "Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of North Dakota, a State I love, and WON BIG, THREE TIMES, in 2016, 2020, and 2024! Julie has an incredible Record of Success, and strong support from her Community. In Congress, she is working t",
+      "title": "Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of No..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:8df410457f0055a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:10.723145+00:00",
+        "datePublished": "2026-06-08T17:12:53+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064032185917534208.mp4",
+            "remotePath": "archive/x/whitehouse/gVAhxI3oV4wEMaPA.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064032185917534208/vid/avc1/1080x1920/gVAhxI3oV4wEMaPA.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/gVAhxI3oV4wEMaPA.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064032185917534208.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/gVAhxI3oV4wEMaPA.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064032930804985919"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064032930804985919/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064032930804985919/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064032930804985919",
+      "summary": "Always locked in \ud83c\udfa5\ud83c\udfc0 https://t.co/IHSJgwSrKQ",
+      "title": "Always locked in \ud83c\udfa5\ud83c\udfc0 https://t.co/IHSJgwSrKQ"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:8b04e5ca3201699e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:43:18.124650+00:00",
+        "datePublished": "2026-06-08T17:12:31.173000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116715601994142024"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116715601994142024/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715601994142024/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116715601994142024",
+      "summary": "Former Governor Paul LePage will be a tremendous Congressman for the amazing people of Maine\u2019s 2nd Congressional District! A proven America First Fighter, Paul has been with us from the very beginning, helping us, MAKE AMERICA GREAT AGAIN! In Congress, he will work hard to Grow o",
+      "title": "Former Governor Paul LePage will be a tremendous Congressman for the amazing people of Mai..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:2c3ede8af0697b14",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:42:27.215743+00:00",
+        "datePublished": "2026-06-08T17:01:55+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064030171934392520"
+      },
+      "metadataPath": "X/ICEgov/2026/06/08/2064030171934392520/README.md",
+      "path": "X/ICEgov/2026/06/08/2064030171934392520/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064030171934392520",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:39696f435d4d38ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-08T18:42:45.536390+00:00",
+        "datePublished": "2026-06-08T16:51:09+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064027463882006693"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064027463882006693/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064027463882006693/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064027463882006693",
+      "summary": "Repost of @SenTuberville:",
+      "title": "Repost of @SenTuberville: For too long, the SWAMP has plagued our intel community. I appre..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:0d02186c34fcfee2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T18:42:09.552872+00:00",
+        "datePublished": "2026-06-08T16:35:19+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064022591694659584.mp4",
+            "remotePath": "archive/x/dhsgov/QKBNx0dtOiMMBFzz.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064022591694659584/vid/avc1/1206x678/QKBNx0dtOiMMBFzz.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/QKBNx0dtOiMMBFzz.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064022591694659584.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/QKBNx0dtOiMMBFzz.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064023478450143530"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064023478450143530/README.md",
+      "path": "X/DHSgov/2026/06/08/2064023478450143530/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064023478450143530",
+      "summary": "CAROLINA CRIME SPREE.",
+      "title": "CAROLINA CRIME SPREE. This criminal illegal alien went on a crime rampage in North Carolin..."
+    },
     {
       "category": "X",
       "date": "2026-06-08",
@@ -743,6 +1611,29 @@
       "sourceUrl": "https://x.com/DHSgov/status/2063992343787638898",
       "summary": "Our components and @WHTaskForceFIFA are working tirelessly to ensure all matches across the country are safe and secure.",
       "title": "Our components and @WHTaskForceFIFA are working tirelessly to ensure all matches across th..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-08",
+      "id": "socials:0b3afd90d0fb3ae0",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-08T18:43:36.923895+00:00",
+        "datePublished": "2026-06-08T14:05:09+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "-RHfGxVR-HI"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/08/RHfGxVR_HI/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/08/RHfGxVR_HI/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/shorts/-RHfGxVR-HI",
+      "summary": "- [00:00.000] We all know President [music] Trump - [00:01.480] loves UFC crowds and they love him. - [00:04.720] >> New construction is underway for an - [00:06.680] unprecedented [music] spectacle. - [00:08.320] >> Yeah, the octagon is coming to 1600 - [00:10.520] Pennsylvania ",
+      "title": "UFC 250 at the White House"
     },
     {
       "category": "X",

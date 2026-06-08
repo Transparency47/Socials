@@ -1,7 +1,22 @@
 # X / RapidResponse47 / 2026-06-08
 
-- Posts: 13
+- Posts: 18
 
+- [18:20 UTC - https://t.co/H3EQxryE0h](2064049895082741822/)
+  - Source: https://x.com/RapidResponse47/status/2064049895082741822
+  - https://t.co/H3EQxryE0h
+- [17:43 UTC - "The President announcing plans to build a promenade—or a pedestrian bridge—off the back o...](2064040620247658645/)
+  - Source: https://x.com/RapidResponse47/status/2064040620247658645
+  - "The President announcing plans to build a promenade—or a pedestrian bridge—off the back of the Lincoln Memorial, connecting it to the waterfront." Our nation's capital is about to...
+- [17:21 UTC - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...](2064035196727447569/)
+  - Source: https://x.com/RapidResponse47/status/2064035196727447569
+  - Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honestly. If you come here break our laws, and lie in your immigration proceedings, you forfeit...
+- [17:18 UTC - https://t.co/sW6WgQ3bGU](2064034407057371189/)
+  - Source: https://x.com/RapidResponse47/status/2064034407057371189
+  - https://t.co/sW6WgQ3bGU
+- [16:51 UTC - Repost of @SenTuberville: For too long, the SWAMP has plagued our intel community. I appre...](2064027463882006693/)
+  - Source: https://x.com/RapidResponse47/status/2064027463882006693
+  - Repost of @SenTuberville: For too long, the SWAMP has plagued our intel community. I appreciate all the progress @DNIGabbard achieved, and I am confident @Pulte will continue to im...
 - [16:18 UTC - https://t.co/zWh0WY5oxc](2064019228370350507/)
   - Source: https://x.com/RapidResponse47/status/2064019228370350507
   - https://t.co/zWh0WY5oxc

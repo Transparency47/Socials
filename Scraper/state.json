@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/-RHfGxVR-HI: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=-RHfGxVR-HI! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=-RHfGxVR-HI&ei=mewmasbXHqKLsfIPscfdwAo&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1780961033&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=CCF6133AB3A5C00F93955E23FAF8A628D009E1D2.C65D7014FF99803D54049C117C33D2F202A8207C&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9188,6 +9188,17 @@
       "published": "2026-06-08T15:50:01+00:00",
       "title": "We heard it\u2019s National best friends day \ud83e\udd70",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7649052239629159693"
+    },
+    "tiktok:whitehouse:7649080504490200334": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:33.726047+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/08/7649080504490200334",
+      "platform": "tiktok",
+      "post_id": "7649080504490200334",
+      "published": "2026-06-08T17:39:22+00:00",
+      "title": "Always locked in \ud83c\udfa5\ud83c\udfc0",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7649080504490200334"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -113744,6 +113755,193 @@
       "title": "Not possible for Spencer Pratt to have lost the L.A. runoffs after the big lead he had. 3r...",
       "url": "https://truthsocial.com/@realDonaldTrump/116715381418144428"
     },
+    "truthsocial:realdonaldtrump:116715601994142024": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.124650+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715601994142024",
+      "platform": "truthsocial",
+      "post_id": "116715601994142024",
+      "published": "2026-06-08T17:12:31.173000+00:00",
+      "title": "Former Governor Paul LePage will be a tremendous Congressman for the amazing people of Mai...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715601994142024"
+    },
+    "truthsocial:realdonaldtrump:116715603697839026": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.123719+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715603697839026",
+      "platform": "truthsocial",
+      "post_id": "116715603697839026",
+      "published": "2026-06-08T17:12:57.168000+00:00",
+      "title": "Congresswoman Julie Fedorchak is doing a fantastic job representing the Great People of No...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715603697839026"
+    },
+    "truthsocial:realdonaldtrump:116715605006475064": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.122939+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715605006475064",
+      "platform": "truthsocial",
+      "post_id": "116715605006475064",
+      "published": "2026-06-08T17:13:17.135000+00:00",
+      "title": "Joe Lombardo is the strong and very popular Governor of Nevada, a very special place to me...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715605006475064"
+    },
+    "truthsocial:realdonaldtrump:116715606308730372": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.122160+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715606308730372",
+      "platform": "truthsocial",
+      "post_id": "116715606308730372",
+      "published": "2026-06-08T17:13:37.006000+00:00",
+      "title": "Stavros Anthony has been a fantastic Lieutenant Governor for the Great People of Nevada! A...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715606308730372"
+    },
+    "truthsocial:realdonaldtrump:116715607671988453": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.121387+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715607671988453",
+      "platform": "truthsocial",
+      "post_id": "116715607671988453",
+      "published": "2026-06-08T17:13:57.809000+00:00",
+      "title": "It is my Great Honor to endorse America First Patriot, Adriana Guzm\u00e1n Fralick, who is runn...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715607671988453"
+    },
+    "truthsocial:realdonaldtrump:116715608900561503": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.120552+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715608900561503",
+      "platform": "truthsocial",
+      "post_id": "116715608900561503",
+      "published": "2026-06-08T17:14:16.555000+00:00",
+      "title": "It is my Great Honor to endorse Highly Respected State Senator, Carrie Buck, who is runnin...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715608900561503"
+    },
+    "truthsocial:realdonaldtrump:116715610606173494": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.119652+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715610606173494",
+      "platform": "truthsocial",
+      "post_id": "116715610606173494",
+      "published": "2026-06-08T17:14:42.580000+00:00",
+      "title": "It is my Great Honor to endorse America First Patriot, David Flippo, who is running to rep...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715610606173494"
+    },
+    "truthsocial:realdonaldtrump:116715619830723198": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.118818+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715619830723198",
+      "platform": "truthsocial",
+      "post_id": "116715619830723198",
+      "published": "2026-06-08T17:17:03.336000+00:00",
+      "title": "It is my Great Honor to endorse America First Patriot, Marty O'Donnell, who is running to ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715619830723198"
+    },
+    "truthsocial:realdonaldtrump:116715621524683482": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.117936+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715621524683482",
+      "platform": "truthsocial",
+      "post_id": "116715621524683482",
+      "published": "2026-06-08T17:17:29.184000+00:00",
+      "title": "Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715621524683482"
+    },
+    "truthsocial:realdonaldtrump:116715622764306728": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.117057+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715622764306728",
+      "platform": "truthsocial",
+      "post_id": "116715622764306728",
+      "published": "2026-06-08T17:17:48.099000+00:00",
+      "title": "Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715622764306728"
+    },
+    "truthsocial:realdonaldtrump:116715623986026200": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.116255+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715623986026200",
+      "platform": "truthsocial",
+      "post_id": "116715623986026200",
+      "published": "2026-06-08T17:18:06.741000+00:00",
+      "title": "Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715623986026200"
+    },
+    "truthsocial:realdonaldtrump:116715625347665800": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.115258+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715625347665800",
+      "platform": "truthsocial",
+      "post_id": "116715625347665800",
+      "published": "2026-06-08T17:18:27.517000+00:00",
+      "title": "I love the Great State of South Carolina, won every one of my Races there BY A LANDSLIDE, ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715625347665800"
+    },
+    "truthsocial:realdonaldtrump:116715626878417081": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.114464+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715626878417081",
+      "platform": "truthsocial",
+      "post_id": "116715626878417081",
+      "published": "2026-06-08T17:18:50.875000+00:00",
+      "title": "Congressman Joe Wilson, who has been with us from the very beginning, is a Tremendous Cham...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715626878417081"
+    },
+    "truthsocial:realdonaldtrump:116715628078883917": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.113326+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715628078883917",
+      "platform": "truthsocial",
+      "post_id": "116715628078883917",
+      "published": "2026-06-08T17:19:09.192000+00:00",
+      "title": "Congresswoman Sheri Biggs is a terrific Representative for the incredible people of South ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715628078883917"
+    },
+    "truthsocial:realdonaldtrump:116715629293844038": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.112493+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715629293844038",
+      "platform": "truthsocial",
+      "post_id": "116715629293844038",
+      "published": "2026-06-08T17:19:27.731000+00:00",
+      "title": "Congressman William Timmons is doing a truly fantastic job representing the wonderful peop...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715629293844038"
+    },
+    "truthsocial:realdonaldtrump:116715630555341816": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.111574+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715630555341816",
+      "platform": "truthsocial",
+      "post_id": "116715630555341816",
+      "published": "2026-06-08T17:19:46.981000+00:00",
+      "title": "Congressman Russell Fry is an America First Patriot, who is doing an incredible job repres...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715630555341816"
+    },
+    "truthsocial:realdonaldtrump:116715864662361245": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:18.110356+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116715864662361245",
+      "platform": "truthsocial",
+      "post_id": "116715864662361245",
+      "published": "2026-06-08T18:19:19.172000+00:00",
+      "title": "Senate Majority Leader John Thune should immediately fire the Parliamentarian, who treats ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116715864662361245"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -121048,6 +121246,39 @@
       "title": "Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7R...",
       "url": "https://x.com/DHSgov/status/2064011244411949113"
     },
+    "x:dhsgov:2064023478450143530": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:09.552872+00:00",
+      "path": "X/DHSgov/2026/06/08/2064023478450143530",
+      "platform": "x",
+      "post_id": "2064023478450143530",
+      "published": "2026-06-08T16:35:19+00:00",
+      "title": "CAROLINA CRIME SPREE. This criminal illegal alien went on a crime rampage in North Carolin...",
+      "url": "https://x.com/DHSgov/status/2064023478450143530"
+    },
+    "x:dhsgov:2064033070647218503": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:09.552552+00:00",
+      "path": "X/DHSgov/2026/06/08/2064033070647218503",
+      "platform": "x",
+      "post_id": "2064033070647218503",
+      "published": "2026-06-08T17:13:26+00:00",
+      "title": "American citizenship is a privilege, and it must be earned honestly. If you come here and ...",
+      "url": "https://x.com/DHSgov/status/2064033070647218503"
+    },
+    "x:dhsgov:2064042645840662770": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:09.552191+00:00",
+      "path": "X/DHSgov/2026/06/08/2064042645840662770",
+      "platform": "x",
+      "post_id": "2064042645840662770",
+      "published": "2026-06-08T17:51:29+00:00",
+      "title": "Apparently @NYCMayor doesn\u2019t think that arresting rapists, murderers, pedophiles, and assa...",
+      "url": "https://x.com/DHSgov/status/2064042645840662770"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -124953,6 +125184,17 @@
       "title": "Vidal George-Jimenz, of Honduras, just finished up a 2012 rape conviction sentence that fo...",
       "url": "https://x.com/ICEgov/status/2064015920054333740"
     },
+    "x:icegov:2064030171934392520": {
+      "account": "ICEgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:42:27.215743+00:00",
+      "path": "X/ICEgov/2026/06/08/2064030171934392520",
+      "platform": "x",
+      "post_id": "2064030171934392520",
+      "published": "2026-06-08T17:01:55+00:00",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...",
+      "url": "https://x.com/ICEgov/status/2064030171934392520"
+    },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
       "content_kind": "repost",
@@ -126800,6 +127042,28 @@
       "published": "2026-06-08T15:37:04+00:00",
       "title": "Repost of @WhiteHouse: More Jobs. Real results. \ud83d\udcaa President Donald J. Trump is delivering ...",
       "url": "https://x.com/POTUS/status/2064008818934132920"
+    },
+    "x:potus:2064040382711656751": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:42:33.225037+00:00",
+      "path": "X/POTUS/2026/06/08/2064040382711656751",
+      "platform": "x",
+      "post_id": "2064040382711656751",
+      "published": "2026-06-08T17:42:29+00:00",
+      "title": "Repost of @WhiteHouse: Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7R...",
+      "url": "https://x.com/POTUS/status/2064040382711656751"
+    },
+    "x:potus:2064040396200521916": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:42:33.224721+00:00",
+      "path": "X/POTUS/2026/06/08/2064040396200521916",
+      "platform": "x",
+      "post_id": "2064040396200521916",
+      "published": "2026-06-08T17:42:33+00:00",
+      "title": "Repost of @WhiteHouse: Always locked in \ud83c\udfa5\ud83c\udfc0 https://t.co/IHSJgwSrKQ",
+      "url": "https://x.com/POTUS/status/2064040396200521916"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -129242,6 +129506,61 @@
       "published": "2026-06-08T16:18:26+00:00",
       "title": "https://t.co/zWh0WY5oxc",
       "url": "https://x.com/RapidResponse47/status/2064019228370350507"
+    },
+    "x:rapidresponse47:2064027463882006693": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:42:45.536390+00:00",
+      "path": "X/RapidResponse47/2026/06/08/2064027463882006693",
+      "platform": "x",
+      "post_id": "2064027463882006693",
+      "published": "2026-06-08T16:51:09+00:00",
+      "title": "Repost of @SenTuberville: For too long, the SWAMP has plagued our intel community. I appre...",
+      "url": "https://x.com/RapidResponse47/status/2064027463882006693"
+    },
+    "x:rapidresponse47:2064034407057371189": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:45.536130+00:00",
+      "path": "X/RapidResponse47/2026/06/08/2064034407057371189",
+      "platform": "x",
+      "post_id": "2064034407057371189",
+      "published": "2026-06-08T17:18:45+00:00",
+      "title": "https://t.co/sW6WgQ3bGU",
+      "url": "https://x.com/RapidResponse47/status/2064034407057371189"
+    },
+    "x:rapidresponse47:2064035196727447569": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:42:45.535886+00:00",
+      "path": "X/RapidResponse47/2026/06/08/2064035196727447569",
+      "platform": "x",
+      "post_id": "2064035196727447569",
+      "published": "2026-06-08T17:21:53+00:00",
+      "title": "Repost of @SecMullinDHS: American citizenship is a privilege, and it must be earned honest...",
+      "url": "https://x.com/RapidResponse47/status/2064035196727447569"
+    },
+    "x:rapidresponse47:2064040620247658645": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:45.535545+00:00",
+      "path": "X/RapidResponse47/2026/06/08/2064040620247658645",
+      "platform": "x",
+      "post_id": "2064040620247658645",
+      "published": "2026-06-08T17:43:26+00:00",
+      "title": "\"The President announcing plans to build a promenade\u2014or a pedestrian bridge\u2014off the back o...",
+      "url": "https://x.com/RapidResponse47/status/2064040620247658645"
+    },
+    "x:rapidresponse47:2064049895082741822": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:42:45.535227+00:00",
+      "path": "X/RapidResponse47/2026/06/08/2064049895082741822",
+      "platform": "x",
+      "post_id": "2064049895082741822",
+      "published": "2026-06-08T18:20:17+00:00",
+      "title": "https://t.co/H3EQxryE0h",
+      "url": "https://x.com/RapidResponse47/status/2064049895082741822"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -150726,6 +151045,39 @@
       "title": "Dems + Criminal Illegal Aliens = BFFs forever. \ud83d\udda4 https://t.co/KTH7RaBUDL",
       "url": "https://x.com/WhiteHouse/status/2064010698384916706"
     },
+    "x:whitehouse:2064032930804985919": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-08T18:43:10.723145+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2064032930804985919",
+      "platform": "x",
+      "post_id": "2064032930804985919",
+      "published": "2026-06-08T17:12:53+00:00",
+      "title": "Always locked in \ud83c\udfa5\ud83c\udfc0 https://t.co/IHSJgwSrKQ",
+      "url": "https://x.com/WhiteHouse/status/2064032930804985919"
+    },
+    "x:whitehouse:2064038026485891562": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:43:10.722968+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2064038026485891562",
+      "platform": "x",
+      "post_id": "2064038026485891562",
+      "published": "2026-06-08T17:33:08+00:00",
+      "title": "Repost of @ENERGY: President\u00a0Trump is bringing his ENERGY ADDITION agenda to California. S...",
+      "url": "https://x.com/WhiteHouse/status/2064038026485891562"
+    },
+    "x:whitehouse:2064038069993423013": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-08T18:43:10.722690+00:00",
+      "path": "X/WhiteHouse/2026/06/08/2064038069993423013",
+      "platform": "x",
+      "post_id": "2064038069993423013",
+      "published": "2026-06-08T17:33:18+00:00",
+      "title": "Repost of @SecRollins: \ud83d\udea8 WAR ON SCREWWORM Inspect \u2022 Report \u2022 Protect We have been in full ...",
+      "url": "https://x.com/WhiteHouse/status/2064038069993423013"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -150868,6 +151220,17 @@
       "published": "2026-05-22T21:21:55+00:00",
       "title": "President Trump Delivers Remarks, May 22, 2026",
       "url": "https://www.youtube.com/watch?v=-N6NIXzXliM"
+    },
+    "youtube:whitehouse:-RHfGxVR-HI": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-08T18:43:36.923895+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/08/RHfGxVR_HI",
+      "platform": "youtube",
+      "post_id": "-RHfGxVR-HI",
+      "published": "2026-06-08T14:05:09+00:00",
+      "title": "UFC 250 at the White House",
+      "url": "https://www.youtube.com/shorts/-RHfGxVR-HI"
     },
     "youtube:whitehouse:-SUHbfXX01I": {
       "account": "WhiteHouse",
