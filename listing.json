@@ -1,6 +1,980 @@
 {
-  "generatedAt": "2026-06-09T13:43:58.132621+00:00",
+  "generatedAt": "2026-06-09T16:27:24.021574+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:c4a2e357d9ad073c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.997888+00:00",
+        "datePublished": "2026-06-09T16:21:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064381611144056832.mp4",
+            "remotePath": "archive/x/rapidresponse47/p9KZcC_VjXvP54NV.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064381611144056832/vid/avc1/1280x720/p9KZcC_VjXvP54NV.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/p9KZcC_VjXvP54NV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064381611144056832.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/p9KZcC_VjXvP54NV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064382304861016450"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064382304861016450/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064382304861016450/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064382304861016450",
+      "summary": ".@SecRubio (last week): \"We have no problem with the athletes... But what we're not going to allow is for them to embed in their delegation a bunch of people that we know have nothing to do with athletics and have ties to the IRGC.\" https://t.co/p7jJa6mJjI",
+      "title": ".@SecRubio (last week): \"We have no problem with the athletes... But what we're not going ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b45bc7d19b911068",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:23:26.675649+00:00",
+        "datePublished": "2026-06-09T16:19:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064381373805166592.mp4",
+            "remotePath": "archive/x/whitehouse/GJ-5G1N51ZT85G2Z.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064381373805166592/vid/avc1/1080x1080/GJ-5G1N51ZT85G2Z.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/GJ-5G1N51ZT85G2Z.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064381373805166592.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/GJ-5G1N51ZT85G2Z.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064381761958604961"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064381761958604961/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064381761958604961/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064381761958604961",
+      "summary": "\"Use this chapter of your life to sail away with your dreams. To continue to build boldly and importantly, to safeguard America's leading position in the world of technology.\" - @FLOTUS Melania Trump \ud83c\uddfa\ud83c\uddf8 https://t.co/07g11sVBNc",
+      "title": "\"Use this chapter of your life\u00a0to sail away with your dreams.\u00a0To continue to build boldly\u00a0..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:bdc4bfde6e6bf33c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:21:56.826307+00:00",
+        "datePublished": "2026-06-09T16:15:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064380935236149249.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYnheXW4AE1YvN.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYnheXW4AE1YvN.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheXW4AE1YvN.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064380935206756352.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYnheQWYAAvQmO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYnheQWYAAvQmO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheQWYAAvQmO.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064380935185879042.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYnheLX0AITdGU.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYnheLX0AITdGU.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheLX0AITdGU.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064380935236149249.jpg",
+          "media/02_image_2064380935206756352.jpg",
+          "media/03_image_2064380935185879042.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheXW4AE1YvN.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheQWYAAvQmO.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYnheLX0AITdGU.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064380945487077464"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064380945487077464/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064380945487077464/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064380945487077464",
+      "summary": "On the ground in Phoenix with our @FBIPhoenix team \u2013 a group doing incredible work to crush violent crime, protect our kids, and support our tribal partners in the region.",
+      "title": "On the ground in Phoenix with our @FBIPhoenix team \u2013 a group doing incredible work to crus..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:32db2377d34251dd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:22:16.555412+00:00",
+        "datePublished": "2026-06-09T16:05:50+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064337103979249664.jpg",
+            "remotePath": "archive/x/potus/HKX_qKNXgAAzKvz.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKX_qKNXgAAzKvz.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKX_qKNXgAAzKvz.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064337103979249664.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKX_qKNXgAAzKvz.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064378446646579617"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064378446646579617/README.md",
+      "path": "X/POTUS/2026/06/09/2064378446646579617/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064378446646579617",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25 History in the making. June 14th. https://t.co/McQi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:ce35a7c38c148f66",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:22:16.555727+00:00",
+        "datePublished": "2026-06-09T16:05:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064357739531214849.jpg",
+            "remotePath": "archive/x/potus/HKYSbToWIAEkdNT.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYSbToWIAEkdNT.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKYSbToWIAEkdNT.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064357739531214849.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKYSbToWIAEkdNT.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064378428954914851"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064378428954914851/README.md",
+      "path": "X/POTUS/2026/06/09/2064378428954914851/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064378428954914851",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: King of New York. https://t.co/RpIUpo99f9"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:3f8f3392a245b3d7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.998200+00:00",
+        "datePublished": "2026-06-09T16:05:18+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2047432625325850624.mp4",
+            "remotePath": "archive/x/rapidresponse47/3OPOfJB4eMD2YJJc.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2047432625325850624/vid/avc1/1280x720/3OPOfJB4eMD2YJJc.mp4?tag=21",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3OPOfJB4eMD2YJJc.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2047432625325850624.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3OPOfJB4eMD2YJJc.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064378313565446519"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064378313565446519/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064378313565446519/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064378313565446519",
+      "summary": "\"What [Iran] can't bring is a bunch of IRGC terrorists into our country and pretend that they're journalists and athletic trainers.\"",
+      "title": "\"What [Iran] can't bring is a bunch of IRGC terrorists into our country and pretend that t..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-09",
+      "id": "socials:ee68fb3d2d89af11",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:23:48.174913+00:00",
+        "datePublished": "2026-06-09T16:01:45+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649426430756916511.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649426430756916511.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649426430756916511",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649426430756916511.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649426430756916511.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649426430756916511.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649426430756916511"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/09/7649426430756916511/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/09/7649426430756916511/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649426430756916511",
+      "summary": "Bye-bye \ud83d\udc4b President Trump has delivered the most secure border in history",
+      "title": "Bye-bye \ud83d\udc4b President Trump has delivered the most secure border in history"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:d10a4019751ca5ee",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:08.879775+00:00",
+        "datePublished": "2026-06-09T15:55:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064375780470140928.jpg",
+            "remotePath": "archive/x/icegov/HKYi1bXXsAARweM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYi1bXXsAARweM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKYi1bXXsAARweM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064375780470140928.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKYi1bXXsAARweM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064375783502528561"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064375783502528561/README.md",
+      "path": "X/ICEgov/2026/06/09/2064375783502528561/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064375783502528561",
+      "summary": "Thanks to a 287(g) partnership, the Mongomery County Sheriff\u2019s Office quickly confirmed the immigration status of Juan Ayala Montero, a 60-year-old criminal illegal alien from Mexico, who was arrested after allegedly opening fire on his neighbors over Memorial Day weekend. After ",
+      "title": "Thanks to a 287(g) partnership, the Mongomery County Sheriff\u2019s Office quickly confirmed th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:6bfccbf7f507f512",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:21:56.826655+00:00",
+        "datePublished": "2026-06-09T15:33:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064320536184856577.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKXwlyXXoAElZpZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKXwlyXXoAElZpZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKXwlyXXoAElZpZ.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064320535899545600.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKXwlxTWIAAylpb.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKXwlxTWIAAylpb.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKXwlxTWIAAylpb.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064320536184856577.jpg",
+          "media/02_image_2064320535899545600.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKXwlyXXoAElZpZ.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKXwlxTWIAAylpb.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064370246639653007"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064370246639653007/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064370246639653007/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064370246639653007",
+      "summary": "Repost of @FBICharlotte:",
+      "title": "Repost of @FBICharlotte: Vance County Detention Center escapees Michael Miles and Lishawn ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5295804105657baf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:21:56.827050+00:00",
+        "datePublished": "2026-06-09T15:33:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064362182968549376.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYWd8uXIAAP77r.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYWd8uXIAAP77r.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd8uXIAAP77r.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064362183065059328.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYWd9FXwAAqCT1.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYWd9FXwAAqCT1.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd9FXwAAqCT1.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064362182918230016.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYWd8iXUAALwSs.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYWd8iXUAALwSs.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd8iXUAALwSs.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064362183509569537.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKYWd-vWcAEr3nX.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYWd-vWcAEr3nX.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd-vWcAEr3nX.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064362182968549376.jpg",
+          "media/02_image_2064362183065059328.jpg",
+          "media/03_image_2064362182918230016.jpg",
+          "media/04_image_2064362183509569537.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd8uXIAAP77r.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd9FXwAAqCT1.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd8iXUAALwSs.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKYWd-vWcAEr3nX.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064370200342827301"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064370200342827301/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064370200342827301/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064370200342827301",
+      "summary": "Repost of @FBI:",
+      "title": "Repost of @FBI: From April to present, through the Homeland Security Task Forces and the N..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:bcc7038795753b9d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.998511+00:00",
+        "datePublished": "2026-06-09T15:30:39+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064368038095314945.mp4",
+            "remotePath": "archive/x/rapidresponse47/3-LBK1baDmhQrmF3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064368038095314945/vid/avc1/1280x720/3-LBK1baDmhQrmF3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3-LBK1baDmhQrmF3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064368038095314945.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3-LBK1baDmhQrmF3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064369590054850560"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064369590054850560/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064369590054850560/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064369590054850560",
+      "summary": ".@mkratsios47: \"The purpose of this national competition was simple \u2014 to bring young Americans from across the country together in using AI tools to improve the lives of their communities... Our competitors in this historic challenge produced more than 2,500 projects aiming to ov",
+      "title": ".@mkratsios47: \"The purpose of this national competition was simple \u2014 to bring young Ameri..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:62e443313a489df7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:21:39.774098+00:00",
+        "datePublished": "2026-06-09T15:27:03+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064366382318272512.mp4",
+            "remotePath": "archive/x/dhsgov/7e1G6KYXk8ch54nM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064366382318272512/vid/avc1/1080x1920/7e1G6KYXk8ch54nM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/7e1G6KYXk8ch54nM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064366382318272512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/7e1G6KYXk8ch54nM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064368687511953639"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064368687511953639/README.md",
+      "path": "X/DHSgov/2026/06/09/2064368687511953639/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064368687511953639",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Last week, I got to pay a visit to our @USCG facility in Birmingh..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b25240f2c6ef62e9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.998796+00:00",
+        "datePublished": "2026-06-09T15:22:54+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064367136122789889.mp4",
+            "remotePath": "archive/x/rapidresponse47/oIUEmD8OyF3AQIlV.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064367136122789889/vid/avc1/1280x720/oIUEmD8OyF3AQIlV.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/oIUEmD8OyF3AQIlV.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064367136122789889.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/oIUEmD8OyF3AQIlV.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064367643541361017"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064367643541361017/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064367643541361017/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064367643541361017",
+      "summary": ".@FLOTUS: \"The first Presidential AI Challenge was broadly welcomed across our nation. More than 20,000 students participated across all 50 states, plus D.C., Puerto Rico, and 49 @DeptofWar schools in ten countries around the world \u2014 and we are just at the beginning.\" https://t.c",
+      "title": ".@FLOTUS: \"The first Presidential AI Challenge was broadly welcomed across our nation. Mor..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:7164c4cfec8bd8a4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.999068+00:00",
+        "datePublished": "2026-06-09T15:19:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064366307315683328.mp4",
+            "remotePath": "archive/x/rapidresponse47/szaRcW1mOJW3ihbc.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064366307315683328/vid/avc1/1280x720/szaRcW1mOJW3ihbc.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/szaRcW1mOJW3ihbc.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064366307315683328.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/szaRcW1mOJW3ihbc.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064366835303100771"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064366835303100771/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064366835303100771/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064366835303100771",
+      "summary": ".@FLOTUS opens the Presidential AI Challenge National Champion Awards Ceremony: \"Today is about opening doors. When the doors open, passions flow, courage blossoms, and dreams are realized.\" https://t.co/OucV7KwQ5O",
+      "title": ".@FLOTUS opens the Presidential AI Challenge National Champion Awards Ceremony: \"Today is ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:e0f61a32144760e8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:23:07.862781+00:00",
+        "datePublished": "2026-06-09T15:18:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064366382318272512.mp4",
+            "remotePath": "archive/x/secmullindhs/7e1G6KYXk8ch54nM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064366382318272512/vid/avc1/1080x1920/7e1G6KYXk8ch54nM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/7e1G6KYXk8ch54nM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064366382318272512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/7e1G6KYXk8ch54nM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064366613541839060"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/09/2064366613541839060/README.md",
+      "path": "X/SecMullinDHS/2026/06/09/2064366613541839060/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064366613541839060",
+      "summary": "Last week, I got to pay a visit to our @USCG facility in Birmingham.",
+      "title": "Last week, I got to pay a visit to our @USCG facility in Birmingham. It was great to meet ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5fa2bcbef694a0e2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:23:26.676098+00:00",
+        "datePublished": "2026-06-09T15:09:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064364160205369469"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064364160205369469/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064364160205369469/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064364160205369469",
+      "summary": "First Lady Melania Trump Participates in the Presidential AI Challenge National Champions Awards https://t.co/5mYEJg8rKq",
+      "title": "First Lady Melania Trump Participates in the Presidential AI Challenge National Champions ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:60347d9a0162f713",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:23:26.676406+00:00",
+        "datePublished": "2026-06-09T14:52:13+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064357739531214849.jpg",
+            "remotePath": "archive/x/whitehouse/HKYSbToWIAEkdNT.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYSbToWIAEkdNT.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKYSbToWIAEkdNT.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064357739531214849.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKYSbToWIAEkdNT.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064359920242209147"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064359920242209147/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064359920242209147/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064359920242209147",
+      "summary": "King of New York. https://t.co/RpIUpo99f9",
+      "title": "King of New York. https://t.co/RpIUpo99f9"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:ca97c9b48f30d97d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:21:39.774472+00:00",
+        "datePublished": "2026-06-09T14:46:52+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064358572339704192"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064358572339704192/README.md",
+      "path": "X/DHSgov/2026/06/09/2064358572339704192/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064358572339704192",
+      "summary": "Repost of @ICEgov:",
+      "title": "Repost of @ICEgov: \"We're taking the worst of the worst off the streets with the best of t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:2a7a112eeb19d852",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:08.880091+00:00",
+        "datePublished": "2026-06-09T14:44:29+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064357973300752589"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064357973300752589/README.md",
+      "path": "X/ICEgov/2026/06/09/2064357973300752589/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064357973300752589",
+      "summary": "\"We're taking the worst of the worst off the streets with the best of the best \u2014 and that's ICE.\"",
+      "title": "\"We're taking the worst of the worst off the streets with the best of the best \u2014 and that'..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:645491bb16478a0e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:23:26.676700+00:00",
+        "datePublished": "2026-06-09T14:43:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064344583497007104.mp4",
+            "remotePath": "archive/x/whitehouse/3reT6cJ5j6IQ7sx4.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064344583497007104/vid/avc1/1280x720/3reT6cJ5j6IQ7sx4.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/3reT6cJ5j6IQ7sx4.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064344583497007104.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/3reT6cJ5j6IQ7sx4.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064357667972202726"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064357667972202726/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064357667972202726/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064357667972202726",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS put winning the AI race at the top of his agenda and t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9e20169e5af600ca",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:22:30.999437+00:00",
+        "datePublished": "2026-06-09T14:40:42+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064339937701371904.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKYCPGpXoAA9nT5.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYCPGpXoAA9nT5.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKYCPGpXoAA9nT5.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064339937701371904.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKYCPGpXoAA9nT5.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064357019495125411"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064357019495125411/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064357019495125411/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064357019495125411",
+      "summary": "Repost of @harleydavidson:",
+      "title": "Repost of @harleydavidson: For more than a century, Harley-Davidson has invested in Americ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f4469c72687417d1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.999702+00:00",
+        "datePublished": "2026-06-09T14:32:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064335977196503041.mp4",
+            "remotePath": "archive/x/rapidresponse47/iCGrRuyy7AUftYaf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064335977196503041/vid/avc1/1920x1080/iCGrRuyy7AUftYaf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/iCGrRuyy7AUftYaf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064335977196503041.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/iCGrRuyy7AUftYaf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064354886930624552"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064354886930624552/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064354886930624552/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064354886930624552",
+      "summary": "WATCH IN FULL: President Donald J. Trump holds a midnight gaggle with reporters on the tarmac at John F. Kennedy International Airport in New York https://t.co/Hq2uCdBCyq",
+      "title": "WATCH IN FULL: President Donald J. Trump holds a midnight gaggle with reporters on the tar..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:188557621cf22c9a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T16:23:26.676978+00:00",
+        "datePublished": "2026-06-09T14:17:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064144831752859649.jpg",
+            "remotePath": "archive/x/whitehouse/HKVQycWWcAE0SmZ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKVQycWWcAE0SmZ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKVQycWWcAE0SmZ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064144831752859649.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKVQycWWcAE0SmZ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064351179992146168"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064351179992146168/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064351179992146168/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064351179992146168",
+      "summary": "Repost of @RepublicanAGs:",
+      "title": "Repost of @RepublicanAGs: Congratulations @DAGToddBlanche on your nomination to be America..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9eaa3bcc41d6b259",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:30.999959+00:00",
+        "datePublished": "2026-06-09T14:17:28+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064351175965593993"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064351175965593993/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064351175965593993/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064351175965593993",
+      "summary": "Trump's America Is Exporting, and the Trade Deficit Is Shrinking @RealPNavarro https://t.co/7gGaMEuHjp",
+      "title": "Trump's America Is Exporting, and the Trade Deficit Is Shrinking @RealPNavarro https://t.c..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f4e1bf664e9f1223",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:21:39.774783+00:00",
+        "datePublished": "2026-06-09T14:09:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064349060564218323"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064349060564218323/README.md",
+      "path": "X/DHSgov/2026/06/09/2064349060564218323/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064349060564218323",
+      "summary": "More illegal alien crime in Virgina. This latest crime, where a pedophile SEXUALLY ASSAULTED an 8-year-old girl, is just the latest in a string of violent crimes committed by illegal aliens in the commonwealth.",
+      "title": "More illegal alien crime in Virgina. This latest crime, where a pedophile SEXUALLY ASSAULT..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9ddfc93b1aa80290",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:31.000250+00:00",
+        "datePublished": "2026-06-09T13:59:34+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064345430083694592.mp4",
+            "remotePath": "archive/x/rapidresponse47/ve86ewdwr-3rWO0x.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064345430083694592/vid/avc1/1280x720/ve86ewdwr-3rWO0x.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ve86ewdwr-3rWO0x.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064345430083694592.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ve86ewdwr-3rWO0x.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064346671031419285"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064346671031419285/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064346671031419285/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064346671031419285",
+      "summary": "\"Why in the world would any politician say, 'Don't take my criminal illegal aliens!'\"",
+      "title": "\"Why in the world would any politician say, 'Don't take my criminal illegal aliens!'\" @Rea..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9a306e85d2c97f3f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:31.000520+00:00",
+        "datePublished": "2026-06-09T13:55:08+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064344583497007104.mp4",
+            "remotePath": "archive/x/rapidresponse47/3reT6cJ5j6IQ7sx4.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064344583497007104/vid/avc1/1280x720/3reT6cJ5j6IQ7sx4.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3reT6cJ5j6IQ7sx4.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064344583497007104.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3reT6cJ5j6IQ7sx4.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064345553383690422"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064345553383690422/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064345553383690422/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064345553383690422",
+      "summary": ".@POTUS put winning the AI race at the top of his agenda and the private sector is stepping up.",
+      "title": ".@POTUS put winning the AI race at the top of his agenda and the private sector is steppin..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5bd6ba8d876bbf9f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T16:22:31.000793+00:00",
+        "datePublished": "2026-06-09T13:51:02+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064344069380194304.mp4",
+            "remotePath": "archive/x/rapidresponse47/4xJIDcYH_Fmq6Cvn.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064344069380194304/vid/avc1/1920x1080/4xJIDcYH_Fmq6Cvn.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/4xJIDcYH_Fmq6Cvn.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064344069380194304.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/4xJIDcYH_Fmq6Cvn.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064344521337352464"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064344521337352464/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064344521337352464/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064344521337352464",
+      "summary": "\ud83d\udccd Lincoln Memorial Reflecting Pool:",
+      "title": "\ud83d\udccd Lincoln Memorial Reflecting Pool: \"I think the pool looks great. I'm glad it's getting f..."
+    },
     {
       "category": "X",
       "date": "2026-06-09",

@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/9Tx53zoEd1U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9Tx53zoEd1U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=zjPGuY5IPVo: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zjPGuY5IPVo! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=zjPGuY5IPVo&ei=Gj4oasSmDpSpir4P7dW3oAQ&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781047434&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=ADD4371B5450620762691E70D3F4BFE91ED2A1BB.2EC6C69B01102DFD27BFD1DFB4C8774E1E1D64A6&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9232,6 +9232,17 @@
       "published": "2026-06-09T00:04:58+00:00",
       "title": "NEW YORK, STAND UP \ud83d\uddfd",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7649179929812176141"
+    },
+    "tiktok:whitehouse:7649426430756916511": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:23:48.174913+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/09/7649426430756916511",
+      "platform": "tiktok",
+      "post_id": "7649426430756916511",
+      "published": "2026-06-09T16:01:45+00:00",
+      "title": "Bye-bye \ud83d\udc4b President Trump has delivered the most secure border in history",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7649426430756916511"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -121510,6 +121521,39 @@
       "title": "Repost of @SecMullinDHS: Best of the best.",
       "url": "https://x.com/DHSgov/status/2064330755589734830"
     },
+    "x:dhsgov:2064349060564218323": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:21:39.774783+00:00",
+      "path": "X/DHSgov/2026/06/09/2064349060564218323",
+      "platform": "x",
+      "post_id": "2064349060564218323",
+      "published": "2026-06-09T14:09:04+00:00",
+      "title": "More illegal alien crime in Virgina. This latest crime, where a pedophile SEXUALLY ASSAULT...",
+      "url": "https://x.com/DHSgov/status/2064349060564218323"
+    },
+    "x:dhsgov:2064358572339704192": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:21:39.774472+00:00",
+      "path": "X/DHSgov/2026/06/09/2064358572339704192",
+      "platform": "x",
+      "post_id": "2064358572339704192",
+      "published": "2026-06-09T14:46:52+00:00",
+      "title": "Repost of @ICEgov: \"We're taking the worst of the worst off the streets with the best of t...",
+      "url": "https://x.com/DHSgov/status/2064358572339704192"
+    },
+    "x:dhsgov:2064368687511953639": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:21:39.774098+00:00",
+      "path": "X/DHSgov/2026/06/09/2064368687511953639",
+      "platform": "x",
+      "post_id": "2064368687511953639",
+      "published": "2026-06-09T15:27:03+00:00",
+      "title": "Repost of @SecMullinDHS: Last week, I got to pay a visit to our @USCG facility in Birmingh...",
+      "url": "https://x.com/DHSgov/status/2064368687511953639"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -124370,6 +124414,39 @@
       "title": "\"The FBI is committed to making American cities safe again!\" If you wish to bring harm on ...",
       "url": "https://x.com/FBIDirectorKash/status/2064330967712415965"
     },
+    "x:fbidirectorkash:2064370200342827301": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:21:56.827050+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064370200342827301",
+      "platform": "x",
+      "post_id": "2064370200342827301",
+      "published": "2026-06-09T15:33:04+00:00",
+      "title": "Repost of @FBI: From April to present, through the Homeland Security Task Forces and the N...",
+      "url": "https://x.com/FBIDirectorKash/status/2064370200342827301"
+    },
+    "x:fbidirectorkash:2064370246639653007": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:21:56.826655+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064370246639653007",
+      "platform": "x",
+      "post_id": "2064370246639653007",
+      "published": "2026-06-09T15:33:15+00:00",
+      "title": "Repost of @FBICharlotte: Vance County Detention Center escapees Michael Miles and Lishawn ...",
+      "url": "https://x.com/FBIDirectorKash/status/2064370246639653007"
+    },
+    "x:fbidirectorkash:2064380945487077464": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:21:56.826307+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064380945487077464",
+      "platform": "x",
+      "post_id": "2064380945487077464",
+      "published": "2026-06-09T16:15:46+00:00",
+      "title": "On the ground in Phoenix with our @FBIPhoenix team \u2013 a group doing incredible work to crus...",
+      "url": "https://x.com/FBIDirectorKash/status/2064380945487077464"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -125524,6 +125601,28 @@
       "published": "2026-06-09T13:05:15+00:00",
       "title": "ICE @EROBoston arrested Jose Luis Carmarena-Pena, of Mexico, at the Hillsborough County De...",
       "url": "https://x.com/ICEgov/status/2064333000221847710"
+    },
+    "x:icegov:2064357973300752589": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:08.880091+00:00",
+      "path": "X/ICEgov/2026/06/09/2064357973300752589",
+      "platform": "x",
+      "post_id": "2064357973300752589",
+      "published": "2026-06-09T14:44:29+00:00",
+      "title": "\"We're taking the worst of the worst off the streets with the best of the best \u2014 and that'...",
+      "url": "https://x.com/ICEgov/status/2064357973300752589"
+    },
+    "x:icegov:2064375783502528561": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:08.879775+00:00",
+      "path": "X/ICEgov/2026/06/09/2064375783502528561",
+      "platform": "x",
+      "post_id": "2064375783502528561",
+      "published": "2026-06-09T15:55:15+00:00",
+      "title": "Thanks to a 287(g) partnership, the Mongomery County Sheriff\u2019s Office quickly confirmed th...",
+      "url": "https://x.com/ICEgov/status/2064375783502528561"
     },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
@@ -127460,6 +127559,28 @@
       "published": "2026-06-09T01:50:36+00:00",
       "title": "Repost of @WhiteHouse: Trust. https://t.co/F5y1CLP4Hi",
       "url": "https://x.com/POTUS/status/2064163221410300085"
+    },
+    "x:potus:2064378428954914851": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:22:16.555727+00:00",
+      "path": "X/POTUS/2026/06/09/2064378428954914851",
+      "platform": "x",
+      "post_id": "2064378428954914851",
+      "published": "2026-06-09T16:05:46+00:00",
+      "title": "Repost of @WhiteHouse: King of New York. https://t.co/RpIUpo99f9",
+      "url": "https://x.com/POTUS/status/2064378428954914851"
+    },
+    "x:potus:2064378446646579617": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:22:16.555412+00:00",
+      "path": "X/POTUS/2026/06/09/2064378446646579617",
+      "platform": "x",
+      "post_id": "2064378446646579617",
+      "published": "2026-06-09T16:05:50+00:00",
+      "title": "Repost of @WhiteHouse: FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25 History in the making. June 14th. https://t.co/McQi...",
+      "url": "https://x.com/POTUS/status/2064378446646579617"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -130233,6 +130354,127 @@
       "title": ".@POTUS on his call with PM Netanyahu: \"I said, 'Do what's right, but I want you to stop a...",
       "url": "https://x.com/RapidResponse47/status/2064334306542002357"
     },
+    "x:rapidresponse47:2064344521337352464": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:31.000793+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064344521337352464",
+      "platform": "x",
+      "post_id": "2064344521337352464",
+      "published": "2026-06-09T13:51:02+00:00",
+      "title": "\ud83d\udccd Lincoln Memorial Reflecting Pool: \"I think the pool looks great. I'm glad it's getting f...",
+      "url": "https://x.com/RapidResponse47/status/2064344521337352464"
+    },
+    "x:rapidresponse47:2064345553383690422": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:31.000520+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064345553383690422",
+      "platform": "x",
+      "post_id": "2064345553383690422",
+      "published": "2026-06-09T13:55:08+00:00",
+      "title": ".@POTUS put winning the AI race at the top of his agenda and the private sector is steppin...",
+      "url": "https://x.com/RapidResponse47/status/2064345553383690422"
+    },
+    "x:rapidresponse47:2064346671031419285": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:31.000250+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064346671031419285",
+      "platform": "x",
+      "post_id": "2064346671031419285",
+      "published": "2026-06-09T13:59:34+00:00",
+      "title": "\"Why in the world would any politician say, 'Don't take my criminal illegal aliens!'\" @Rea...",
+      "url": "https://x.com/RapidResponse47/status/2064346671031419285"
+    },
+    "x:rapidresponse47:2064351175965593993": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.999959+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064351175965593993",
+      "platform": "x",
+      "post_id": "2064351175965593993",
+      "published": "2026-06-09T14:17:28+00:00",
+      "title": "Trump's America Is Exporting, and the Trade Deficit Is Shrinking @RealPNavarro https://t.c...",
+      "url": "https://x.com/RapidResponse47/status/2064351175965593993"
+    },
+    "x:rapidresponse47:2064354886930624552": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.999702+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064354886930624552",
+      "platform": "x",
+      "post_id": "2064354886930624552",
+      "published": "2026-06-09T14:32:13+00:00",
+      "title": "WATCH IN FULL: President Donald J. Trump holds a midnight gaggle with reporters on the tar...",
+      "url": "https://x.com/RapidResponse47/status/2064354886930624552"
+    },
+    "x:rapidresponse47:2064357019495125411": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:22:30.999437+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064357019495125411",
+      "platform": "x",
+      "post_id": "2064357019495125411",
+      "published": "2026-06-09T14:40:42+00:00",
+      "title": "Repost of @harleydavidson: For more than a century, Harley-Davidson has invested in Americ...",
+      "url": "https://x.com/RapidResponse47/status/2064357019495125411"
+    },
+    "x:rapidresponse47:2064366835303100771": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.999068+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064366835303100771",
+      "platform": "x",
+      "post_id": "2064366835303100771",
+      "published": "2026-06-09T15:19:42+00:00",
+      "title": ".@FLOTUS opens the Presidential AI Challenge National Champion Awards Ceremony: \"Today is ...",
+      "url": "https://x.com/RapidResponse47/status/2064366835303100771"
+    },
+    "x:rapidresponse47:2064367643541361017": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.998796+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064367643541361017",
+      "platform": "x",
+      "post_id": "2064367643541361017",
+      "published": "2026-06-09T15:22:54+00:00",
+      "title": ".@FLOTUS: \"The first Presidential AI Challenge was broadly welcomed across our nation. Mor...",
+      "url": "https://x.com/RapidResponse47/status/2064367643541361017"
+    },
+    "x:rapidresponse47:2064369590054850560": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.998511+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064369590054850560",
+      "platform": "x",
+      "post_id": "2064369590054850560",
+      "published": "2026-06-09T15:30:39+00:00",
+      "title": ".@mkratsios47: \"The purpose of this national competition was simple \u2014 to bring young Ameri...",
+      "url": "https://x.com/RapidResponse47/status/2064369590054850560"
+    },
+    "x:rapidresponse47:2064378313565446519": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.998200+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064378313565446519",
+      "platform": "x",
+      "post_id": "2064378313565446519",
+      "published": "2026-06-09T16:05:18+00:00",
+      "title": "\"What [Iran] can't bring is a bunch of IRGC terrorists into our country and pretend that t...",
+      "url": "https://x.com/RapidResponse47/status/2064378313565446519"
+    },
+    "x:rapidresponse47:2064382304861016450": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:22:30.997888+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064382304861016450",
+      "platform": "x",
+      "post_id": "2064382304861016450",
+      "published": "2026-06-09T16:21:10+00:00",
+      "title": ".@SecRubio (last week): \"We have no problem with the athletes... But what we're not going ...",
+      "url": "https://x.com/RapidResponse47/status/2064382304861016450"
+    },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
       "content_kind": "post",
@@ -132663,6 +132905,17 @@
       "published": "2026-06-09T12:55:57+00:00",
       "title": "Best of the best.",
       "url": "https://x.com/SecMullinDHS/status/2064330658495807656"
+    },
+    "x:secmullindhs:2064366613541839060": {
+      "account": "SecMullinDHS",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:23:07.862781+00:00",
+      "path": "X/SecMullinDHS/2026/06/09/2064366613541839060",
+      "platform": "x",
+      "post_id": "2064366613541839060",
+      "published": "2026-06-09T15:18:49+00:00",
+      "title": "Last week, I got to pay a visit to our @USCG facility in Birmingham. It was great to meet ...",
+      "url": "https://x.com/SecMullinDHS/status/2064366613541839060"
     },
     "x:vp:2000974738076979672": {
       "account": "VP",
@@ -152056,6 +152309,61 @@
       "published": "2026-06-09T13:22:12+00:00",
       "title": "FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25 History in the making. June 14th. https://t.co/McQie7vpmZ",
       "url": "https://x.com/WhiteHouse/status/2064337266114232415"
+    },
+    "x:whitehouse:2064351179992146168": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:23:26.676978+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064351179992146168",
+      "platform": "x",
+      "post_id": "2064351179992146168",
+      "published": "2026-06-09T14:17:29+00:00",
+      "title": "Repost of @RepublicanAGs: Congratulations @DAGToddBlanche on your nomination to be America...",
+      "url": "https://x.com/WhiteHouse/status/2064351179992146168"
+    },
+    "x:whitehouse:2064357667972202726": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T16:23:26.676700+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064357667972202726",
+      "platform": "x",
+      "post_id": "2064357667972202726",
+      "published": "2026-06-09T14:43:16+00:00",
+      "title": "Repost of @RapidResponse47: .@POTUS put winning the AI race at the top of his agenda and t...",
+      "url": "https://x.com/WhiteHouse/status/2064357667972202726"
+    },
+    "x:whitehouse:2064359920242209147": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:23:26.676406+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064359920242209147",
+      "platform": "x",
+      "post_id": "2064359920242209147",
+      "published": "2026-06-09T14:52:13+00:00",
+      "title": "King of New York. https://t.co/RpIUpo99f9",
+      "url": "https://x.com/WhiteHouse/status/2064359920242209147"
+    },
+    "x:whitehouse:2064364160205369469": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:23:26.676098+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064364160205369469",
+      "platform": "x",
+      "post_id": "2064364160205369469",
+      "published": "2026-06-09T15:09:04+00:00",
+      "title": "First Lady Melania Trump Participates in the Presidential AI Challenge National Champions ...",
+      "url": "https://x.com/WhiteHouse/status/2064364160205369469"
+    },
+    "x:whitehouse:2064381761958604961": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T16:23:26.675649+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064381761958604961",
+      "platform": "x",
+      "post_id": "2064381761958604961",
+      "published": "2026-06-09T16:19:01+00:00",
+      "title": "\"Use this chapter of your life\u00a0to sail away with your dreams.\u00a0To continue to build boldly\u00a0...",
+      "url": "https://x.com/WhiteHouse/status/2064381761958604961"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",

@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-09
 
-- Posts: 4
+- Posts: 6
 
+- [16:05 UTC - Repost of @WhiteHouse: FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQi...](2064378446646579617/)
+  - Source: https://x.com/POTUS/status/2064378446646579617
+  - Repost of @WhiteHouse: FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQie7vpmZ
+- [16:05 UTC - Repost of @WhiteHouse: King of New York. https://t.co/RpIUpo99f9](2064378428954914851/)
+  - Source: https://x.com/POTUS/status/2064378428954914851
+  - Repost of @WhiteHouse: King of New York. https://t.co/RpIUpo99f9
 - [01:50 UTC - Repost of @WhiteHouse: Trust. https://t.co/F5y1CLP4Hi](2064163221410300085/)
   - Source: https://x.com/POTUS/status/2064163221410300085
   - Repost of @WhiteHouse: Trust. https://t.co/F5y1CLP4Hi

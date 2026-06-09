@@ -1,7 +1,16 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 4
+- Posts: 7
 
+- [16:15 UTC - On the ground in Phoenix with our @FBIPhoenix team – a group doing incredible work to crus...](2064380945487077464/)
+  - Source: https://x.com/FBIDirectorKash/status/2064380945487077464
+  - On the ground in Phoenix with our @FBIPhoenix team – a group doing incredible work to crush violent crime, protect our kids, and support our tribal partners in the region. Recently...
+- [15:33 UTC - Repost of @FBICharlotte: Vance County Detention Center escapees Michael Miles and Lishawn ...](2064370246639653007/)
+  - Source: https://x.com/FBIDirectorKash/status/2064370246639653007
+  - Repost of @FBICharlotte: Vance County Detention Center escapees Michael Miles and Lishawn Knott were captured without incident at approximately 12:20 am, June 9, 2026, at a home on...
+- [15:33 UTC - Repost of @FBI: From April to present, through the Homeland Security Task Forces and the N...](2064370200342827301/)
+  - Source: https://x.com/FBIDirectorKash/status/2064370200342827301
+  - Repost of @FBI: From April to present, through the Homeland Security Task Forces and the National Coordination Center, the FBI and interagency partners including HSI, DEA, ATF, IRS...
 - [12:57 UTC - "The FBI is committed to making American cities safe again!" If you wish to bring harm on ...](2064330967712415965/)
   - Source: https://x.com/FBIDirectorKash/status/2064330967712415965
   - "The FBI is committed to making American cities safe again!" If you wish to bring harm on Americans we WILL find you, and we WILL bring you to justice! https://t.co/NKPYIlgWAS

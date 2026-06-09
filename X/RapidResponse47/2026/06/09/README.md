@@ -1,7 +1,40 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 14
+- Posts: 25
 
+- [16:21 UTC - .@SecRubio (last week): "We have no problem with the athletes... But what we're not going ...](2064382304861016450/)
+  - Source: https://x.com/RapidResponse47/status/2064382304861016450
+  - .@SecRubio (last week): "We have no problem with the athletes... But what we're not going to allow is for them to embed in their delegation a bunch of people that we know have noth...
+- [16:05 UTC - "What [Iran] can't bring is a bunch of IRGC terrorists into our country and pretend that t...](2064378313565446519/)
+  - Source: https://x.com/RapidResponse47/status/2064378313565446519
+  - "What [Iran] can't bring is a bunch of IRGC terrorists into our country and pretend that they're journalists and athletic trainers." — @SecRubio (in April) https://t.co/xghqfvjR2Z
+- [15:30 UTC - .@mkratsios47: "The purpose of this national competition was simple — to bring young Ameri...](2064369590054850560/)
+  - Source: https://x.com/RapidResponse47/status/2064369590054850560
+  - .@mkratsios47: "The purpose of this national competition was simple — to bring young Americans from across the country together in using AI tools to improve the lives of their comm...
+- [15:22 UTC - .@FLOTUS: "The first Presidential AI Challenge was broadly welcomed across our nation. Mor...](2064367643541361017/)
+  - Source: https://x.com/RapidResponse47/status/2064367643541361017
+  - .@FLOTUS: "The first Presidential AI Challenge was broadly welcomed across our nation. More than 20,000 students participated across all 50 states, plus D.C., Puerto Rico, and 49 @...
+- [15:19 UTC - .@FLOTUS opens the Presidential AI Challenge National Champion Awards Ceremony: "Today is ...](2064366835303100771/)
+  - Source: https://x.com/RapidResponse47/status/2064366835303100771
+  - .@FLOTUS opens the Presidential AI Challenge National Champion Awards Ceremony: "Today is about opening doors. When the doors open, passions flow, courage blossoms, and dreams are...
+- [14:40 UTC - Repost of @harleydavidson: For more than a century, Harley-Davidson has invested in Americ...](2064357019495125411/)
+  - Source: https://x.com/RapidResponse47/status/2064357019495125411
+  - Repost of @harleydavidson: For more than a century, Harley-Davidson has invested in American manufacturing, skilled workers, and the communities that build our motorcycles. Today,...
+- [14:32 UTC - WATCH IN FULL: President Donald J. Trump holds a midnight gaggle with reporters on the tar...](2064354886930624552/)
+  - Source: https://x.com/RapidResponse47/status/2064354886930624552
+  - WATCH IN FULL: President Donald J. Trump holds a midnight gaggle with reporters on the tarmac at John F. Kennedy International Airport in New York https://t.co/Hq2uCdBCyq
+- [14:17 UTC - Trump's America Is Exporting, and the Trade Deficit Is Shrinking @RealPNavarro https://t.c...](2064351175965593993/)
+  - Source: https://x.com/RapidResponse47/status/2064351175965593993
+  - Trump's America Is Exporting, and the Trade Deficit Is Shrinking @RealPNavarro https://t.co/7gGaMEuHjp
+- [13:59 UTC - "Why in the world would any politician say, 'Don't take my criminal illegal aliens!'" @Rea...](2064346671031419285/)
+  - Source: https://x.com/RapidResponse47/status/2064346671031419285
+  - "Why in the world would any politician say, 'Don't take my criminal illegal aliens!'" @RealTomHoman: It's about hatred for President Trump, and counting them in the next Census to...
+- [13:55 UTC - .@POTUS put winning the AI race at the top of his agenda and the private sector is steppin...](2064345553383690422/)
+  - Source: https://x.com/RapidResponse47/status/2064345553383690422
+  - .@POTUS put winning the AI race at the top of his agenda and the private sector is stepping up. "If we want to win in this race with China, we have to win in a few critical areas.....
+- [13:51 UTC - 📍 Lincoln Memorial Reflecting Pool: "I think the pool looks great. I'm glad it's getting f...](2064344521337352464/)
+  - Source: https://x.com/RapidResponse47/status/2064344521337352464
+  - 📍 Lincoln Memorial Reflecting Pool: "I think the pool looks great. I'm glad it's getting filled up now so that the tourists can start to see it, especially before the 4th of July —...
 - [13:10 UTC - .@POTUS on his call with PM Netanyahu: "I said, 'Do what's right, but I want you to stop a...](2064334306542002357/)
   - Source: https://x.com/RapidResponse47/status/2064334306542002357
   - .@POTUS on his call with PM Netanyahu: "I said, 'Do what's right, but I want you to stop as quickly as you can' — because they have to stop. This had to do with Lebanon, and it has...

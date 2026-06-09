@@ -1,7 +1,22 @@
 # X / WhiteHouse / 2026-06-09
 
-- Posts: 7
+- Posts: 12
 
+- [16:19 UTC - "Use this chapter of your life to sail away with your dreams. To continue to build boldly ...](2064381761958604961/)
+  - Source: https://x.com/WhiteHouse/status/2064381761958604961
+  - "Use this chapter of your life to sail away with your dreams. To continue to build boldly and importantly, to safeguard America's leading position in the world of technology." - @F...
+- [15:09 UTC - First Lady Melania Trump Participates in the Presidential AI Challenge National Champions ...](2064364160205369469/)
+  - Source: https://x.com/WhiteHouse/status/2064364160205369469
+  - First Lady Melania Trump Participates in the Presidential AI Challenge National Champions Awards https://t.co/5mYEJg8rKq
+- [14:52 UTC - King of New York. https://t.co/RpIUpo99f9](2064359920242209147/)
+  - Source: https://x.com/WhiteHouse/status/2064359920242209147
+  - King of New York. https://t.co/RpIUpo99f9
+- [14:43 UTC - Repost of @RapidResponse47: .@POTUS put winning the AI race at the top of his agenda and t...](2064357667972202726/)
+  - Source: https://x.com/WhiteHouse/status/2064357667972202726
+  - Repost of @RapidResponse47: .@POTUS put winning the AI race at the top of his agenda and the private sector is stepping up. "If we want to win in this race with China, we have to w...
+- [14:17 UTC - Repost of @RepublicanAGs: Congratulations @DAGToddBlanche on your nomination to be America...](2064351179992146168/)
+  - Source: https://x.com/WhiteHouse/status/2064351179992146168
+  - Repost of @RepublicanAGs: Congratulations @DAGToddBlanche on your nomination to be America’s next Attorney General. Republican Attorneys General are proud to stand with you in defe...
 - [13:22 UTC - FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQie7vpmZ](2064337266114232415/)
   - Source: https://x.com/WhiteHouse/status/2064337266114232415
   - FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQie7vpmZ
