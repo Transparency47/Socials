@@ -1,6 +1,354 @@
 {
-  "generatedAt": "2026-06-08T22:52:59.609666+00:00",
+  "generatedAt": "2026-06-09T00:01:44.225504+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:ec252e4240c660ae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T00:00:04.160184+00:00",
+        "datePublished": "2026-06-08T23:42:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064130671220609024.mp4",
+            "remotePath": "archive/x/rapidresponse47/VpA4LF1qZ8c8TzhB.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064130671220609024/vid/avc1/1280x720/VpA4LF1qZ8c8TzhB.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VpA4LF1qZ8c8TzhB.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064130671220609024.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VpA4LF1qZ8c8TzhB.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064130874296188942"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/08/2064130874296188942/README.md",
+      "path": "X/RapidResponse47/2026/06/08/2064130874296188942/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064130874296188942",
+      "summary": "President Donald J. Trump's motorcade arrives at Madison Square Garden in New York City ahead of tonight's Game 3 of the NBA Finals \ud83c\udfc0\ud83c\uddfa\ud83c\uddf8 https://t.co/4pPLIQl0rf",
+      "title": "President Donald J. Trump's motorcade arrives at Madison Square Garden in New York City ah..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:21fa722a6e9a7945",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T00:00:21.317711+00:00",
+        "datePublished": "2026-06-08T23:35:56+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064129331236904996"
+      },
+      "metadataPath": "X/VP/2026/06/08/2064129331236904996/README.md",
+      "path": "X/VP/2026/06/08/2064129331236904996/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064129331236904996",
+      "summary": "Repost of @SBA_Kelly:",
+      "title": "Repost of @SBA_Kelly: Last week in Ohio, SBA announced suspensions for another 27,000 borr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:e0b6f2cc7cb06e3b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T00:00:21.318205+00:00",
+        "datePublished": "2026-06-08T23:35:38+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064091537537990656.jpg",
+            "remotePath": "archive/x/vp/HKUgUT7XgAAsW61.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUgUT7XgAAsW61.jpg",
+            "url": "https://cdn.comparify.app/archive/x/vp/HKUgUT7XgAAsW61.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064091537537990656.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/vp/HKUgUT7XgAAsW61.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064129255286390978"
+      },
+      "metadataPath": "X/VP/2026/06/08/2064129255286390978/README.md",
+      "path": "X/VP/2026/06/08/2064129255286390978/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064129255286390978",
+      "summary": "Repost of @DOJFraudDiv:",
+      "title": "Repost of @DOJFraudDiv: A federal jury in the District of Colorado convicted four individu..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:ce3a10e9038e41cb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T00:00:21.318602+00:00",
+        "datePublished": "2026-06-08T23:35:34+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064129237854937330"
+      },
+      "metadataPath": "X/VP/2026/06/08/2064129237854937330/README.md",
+      "path": "X/VP/2026/06/08/2064129237854937330/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064129237854937330",
+      "summary": "Repost of @WHFraudTF:",
+      "title": "Repost of @WHFraudTF: Fraudsters steal from hardworking American taxpayers while putting o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:07fdb4776002b139",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T00:00:28.960713+00:00",
+        "datePublished": "2026-06-08T23:29:40+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064126311296106496.mp4",
+            "remotePath": "archive/x/whitehouse/EeRv7MF_B6PLuLnP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064126311296106496/vid/avc1/1080x1920/EeRv7MF_B6PLuLnP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/EeRv7MF_B6PLuLnP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064126311296106496.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/EeRv7MF_B6PLuLnP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064127751812939988"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064127751812939988/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064127751812939988/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064127751812939988",
+      "summary": "NEW YORK, STAND UP \ud83d\uddfd https://t.co/0rv6iN8BPT",
+      "title": "NEW YORK, STAND UP \ud83d\uddfd https://t.co/0rv6iN8BPT"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:09a08c6722376066",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T23:59:29.494526+00:00",
+        "datePublished": "2026-06-08T23:06:00+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064118839193784320.mp4",
+            "remotePath": "archive/x/dhsgov/WKqG0qhO0VsUG-7H.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064118839193784320/vid/avc1/1280x720/WKqG0qhO0VsUG-7H.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/WKqG0qhO0VsUG-7H.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064118839193784320.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/WKqG0qhO0VsUG-7H.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064121795519598839"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064121795519598839/README.md",
+      "path": "X/DHSgov/2026/06/08/2064121795519598839/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064121795519598839",
+      "summary": "70% of criminal illegal aliens arrested by @ICEgov have criminal records in the U.S.",
+      "title": "70% of criminal illegal aliens arrested by @ICEgov have criminal records in the U.S. State..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:7fc0c66653c52498",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T00:00:38.642708+00:00",
+        "datePublished": "2026-06-08T23:00:17.456000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116716969487041954"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116716969487041954/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116716969487041954/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116716969487041954",
+      "summary": "Early Voting is underway in the Great State of Georgia, where Highly Respected, and very popular Lieutenant Governor, Burt Jones, is running to be your next Governor. He is a fantastic person, and truly loves the people of Georgia, as do I! As the first member of the Georgia Stat",
+      "title": "Early Voting is underway in the Great State of Georgia, where Highly Respected, and very p..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:39ce699b7a96fb38",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T00:00:38.643172+00:00",
+        "datePublished": "2026-06-08T22:59:42.981000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116716967227738254"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116716967227738254/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116716967227738254/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116716967227738254",
+      "summary": "Congratulations to the Ohio State Senate for passing Senate Joint Resolution 10, which would require VOTER I.D. in Ohio Elections! Democrats fought hard against this, presumably so they can CHEAT. I am now asking all of my Republican friends in the State House to, also, PASS THIS",
+      "title": "Congratulations to the Ohio State Senate for passing Senate Joint Resolution 10, which wou..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-08",
+      "id": "socials:65364dcb5bd49a7a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T00:00:38.643819+00:00",
+        "datePublished": "2026-06-08T22:59:29.658000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116716966354552583"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/08/116716966354552583/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/08/116716966354552583/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116716966354552583",
+      "summary": "It is my Great Honor to endorse America First Patriot, Wes Climer, who is running to represent the fantastic people of South Carolina\u2019s 5th Congressional District! A very successful Business Owner, Civic Leader, and Highly Respected State Senator, Wes has dedicated his life to se",
+      "title": "It is my Great Honor to endorse America First Patriot, Wes Climer, who is running to repre..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:a61b278d185323e0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T00:00:28.961181+00:00",
+        "datePublished": "2026-06-08T22:57:28+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064103868435234817.jpg",
+            "remotePath": "archive/x/whitehouse/HKUriEGXgAEBSjD.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKUriEGXgAEBSjD.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKUriEGXgAEBSjD.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064103868435234817.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKUriEGXgAEBSjD.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064119647524323571"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/08/2064119647524323571/README.md",
+      "path": "X/WhiteHouse/2026/06/08/2064119647524323571/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064119647524323571",
+      "summary": "Repost of @HHSGov:",
+      "title": "Repost of @HHSGov: \ud83d\udea8 HUGE \ud83d\udea8 73 medical schools have now joined the Trump administration\u2019s ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:b1d1bbb913998a20",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T23:59:29.494876+00:00",
+        "datePublished": "2026-06-08T22:52:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064118348640628736.jpg",
+            "remotePath": "archive/x/dhsgov/HKU4s7EXMAATZ0g.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKU4s7EXMAATZ0g.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKU4s7EXMAATZ0g.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064118348640628736.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKU4s7EXMAATZ0g.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064118393897124141"
+      },
+      "metadataPath": "X/DHSgov/2026/06/08/2064118393897124141/README.md",
+      "path": "X/DHSgov/2026/06/08/2064118393897124141/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064118393897124141",
+      "summary": "\ud83d\udea8Criminal illegal alien PEDOPHILE SENTENCED to 25 years in prison for sexually assaulting an 8-year-old girl.",
+      "title": "\ud83d\udea8Criminal illegal alien PEDOPHILE SENTENCED to 25 years in prison for sexually assaulting ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-08",
+      "id": "socials:6dc2ece99e877302",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-08T23:59:40.609802+00:00",
+        "datePublished": "2026-06-08T22:49:18+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064117595318723005"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/08/2064117595318723005/README.md",
+      "path": "X/FBIDirectorKash/2026/06/08/2064117595318723005/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064117595318723005",
+      "summary": "June 8: Preventing laser strikes during the @FIFAWorldCup",
+      "title": "June 8: Preventing laser strikes during the @FIFAWorldCup Over 11,000 complaints involving..."
+    },
     {
       "category": "X",
       "date": "2026-06-08",

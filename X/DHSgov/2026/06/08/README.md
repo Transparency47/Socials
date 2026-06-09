@@ -1,7 +1,13 @@
 # X / DHSgov / 2026-06-08
 
-- Posts: 12
+- Posts: 14
 
+- [23:06 UTC - 70% of criminal illegal aliens arrested by @ICEgov have criminal records in the U.S. State...](2064121795519598839/)
+  - Source: https://x.com/DHSgov/status/2064121795519598839
+  - 70% of criminal illegal aliens arrested by @ICEgov have criminal records in the U.S. State and local law enforcement partnerships multiply our efforts to remove criminal illegal al...
+- [22:52 UTC - 🚨Criminal illegal alien PEDOPHILE SENTENCED to 25 years in prison for sexually assaulting ...](2064118393897124141/)
+  - Source: https://x.com/DHSgov/status/2064118393897124141
+  - 🚨Criminal illegal alien PEDOPHILE SENTENCED to 25 years in prison for sexually assaulting an 8-year-old girl. Aroldo Santos-Velasques, from Guatemala, was sentenced after he was fo...
 - [22:12 UTC - Repost of @SecMullinDHS: I’m not surprised you would say something like this, @GovSherrill...](2064108363990880628/)
   - Source: https://x.com/DHSgov/status/2064108363990880628
   - Repost of @SecMullinDHS: I’m not surprised you would say something like this, @GovSherrillNJ. On June 8th, I personally granted you access to the facility as an act of good faith—...

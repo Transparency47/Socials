@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-08
 
-- Posts: 24
+- Posts: 26
 
+- [23:29 UTC - NEW YORK, STAND UP 🗽 https://t.co/0rv6iN8BPT](2064127751812939988/)
+  - Source: https://x.com/WhiteHouse/status/2064127751812939988
+  - NEW YORK, STAND UP 🗽 https://t.co/0rv6iN8BPT
+- [22:57 UTC - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s ...](2064119647524323571/)
+  - Source: https://x.com/WhiteHouse/status/2064119647524323571
+  - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s Nutrition Education Pledge after 19 schools signed on today. Nutrition is a powerful tools...
 - [22:18 UTC - Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. https://t.co/JpCodjApVo](2064109715798261833/)
   - Source: https://x.com/WhiteHouse/status/2064109715798261833
   - Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. https://t.co/JpCodjApVo

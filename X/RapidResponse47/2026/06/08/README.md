@@ -1,7 +1,10 @@
 # X / RapidResponse47 / 2026-06-08
 
-- Posts: 28
+- Posts: 29
 
+- [23:42 UTC - President Donald J. Trump's motorcade arrives at Madison Square Garden in New York City ah...](2064130874296188942/)
+  - Source: https://x.com/RapidResponse47/status/2064130874296188942
+  - President Donald J. Trump's motorcade arrives at Madison Square Garden in New York City ahead of tonight's Game 3 of the NBA Finals 🏀🇺🇸 https://t.co/4pPLIQl0rf
 - [22:42 UTC - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s ...](2064115926375522579/)
   - Source: https://x.com/RapidResponse47/status/2064115926375522579
   - Repost of @HHSGov: 🚨 HUGE 🚨 73 medical schools have now joined the Trump administration’s Nutrition Education Pledge after 19 schools signed on today. Nutrition is a powerful tools...

@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-08
 
-- Posts: 27
+- Posts: 30
 
+- [23:00 UTC - Early Voting is underway in the Great State of Georgia, where Highly Respected, and very p...](116716969487041954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116716969487041954
+  - Early Voting is underway in the Great State of Georgia, where Highly Respected, and very popular Lieutenant Governor, Burt Jones, is running to be your next Governor. He is a fanta...
+- [22:59 UTC - Congratulations to the Ohio State Senate for passing Senate Joint Resolution 10, which wou...](116716967227738254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116716967227738254
+  - Congratulations to the Ohio State Senate for passing Senate Joint Resolution 10, which would require VOTER I.D. in Ohio Elections! Democrats fought hard against this, presumably so...
+- [22:59 UTC - It is my Great Honor to endorse America First Patriot, Wes Climer, who is running to repre...](116716966354552583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116716966354552583
+  - It is my Great Honor to endorse America First Patriot, Wes Climer, who is running to represent the fantastic people of South Carolina’s 5th Congressional District! A very successfu...
 - [21:18 UTC - I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Car...](116716568733590358/)
   - Source: https://truthsocial.com/@realDonaldTrump/116716568733590358
   - I will be doing a TeleRally LIVE at 5:30 P.M. EST for Senator Lindsey Graham and South Carolina Gubernatorial Candidate Pamela Evette — Both have my Complete and Total Endorsement....

@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-08
 
-- Posts: 3
+- Posts: 4
 
+- [22:49 UTC - June 8: Preventing laser strikes during the @FIFAWorldCup Over 11,000 complaints involving...](2064117595318723005/)
+  - Source: https://x.com/FBIDirectorKash/status/2064117595318723005
+  - June 8: Preventing laser strikes during the @FIFAWorldCup Over 11,000 complaints involving laser strikes were made in 2025. The FBI takes the threat seriously and has worked closel...
 - [15:21 UTC - Repost of @FBI: Today’s story behind the numbers: This #FBI and the takedown of a prolific...](2064004859104301196/)
   - Source: https://x.com/FBIDirectorKash/status/2064004859104301196
   - Repost of @FBI: Today’s story behind the numbers: This #FBI and the takedown of a prolific predator who used “sextortion” to terrorize children and families across the country. Ram...
