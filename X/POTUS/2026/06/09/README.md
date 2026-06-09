@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-09
 
-- Posts: 11
+- Posts: 13
 
+- [21:22 UTC - Repost of @WhiteHouse: This Homeownership Month, President Trump and @HUDgov are deliverin...](2064458193124647154/)
+  - Source: https://x.com/POTUS/status/2064458193124647154
+  - Repost of @WhiteHouse: This Homeownership Month, President Trump and @HUDgov are delivering REAL solutions to restore affordable homeownership and bring the American Dream back wit...
+- [21:22 UTC - Repost of @WhiteHouse: AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the product...](2064458179988049998/)
+  - Source: https://x.com/POTUS/status/2064458179988049998
+  - Repost of @WhiteHouse: AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the production of certain models BACK to the U.S. More American jobs. More American manufacturing. Mo...
 - [20:20 UTC - Repost of @WhiteHouse: By fighting against the Secure America Act, Democrats have once aga...](2064442525146824786/)
   - Source: https://x.com/POTUS/status/2064442525146824786
   - Repost of @WhiteHouse: By fighting against the Secure America Act, Democrats have once again shown they care more about illegal aliens than American citizens. They push relentlessl...

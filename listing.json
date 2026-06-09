@@ -1,6 +1,444 @@
 {
-  "generatedAt": "2026-06-09T20:32:26.042869+00:00",
+  "generatedAt": "2026-06-09T22:10:27.576813+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:3e85fca21c9a2c8c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:09:22.953981+00:00",
+        "datePublished": "2026-06-09T21:57:16.123000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116722383986616231"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116722383986616231/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116722383986616231/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116722383986616231",
+      "summary": "Record $327.1 Billion Exports Help Shrink U.S. Trade Deficit: [https:// dallasexpress.com/national/rec ord-327-1-billion-exports-help-shrink-u-s-trade-deficit-in-april/](https://dallasexpress.com/national/record-327-1-billion-exports-help-shrink-u-s-trade-deficit-in-april/)",
+      "title": "Record $327.1 Billion Exports Help Shrink U.S. Trade Deficit: [https:// dallasexpress.com/..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5ccd0c2e5f6f6262",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:08:17.758551+00:00",
+        "datePublished": "2026-06-09T21:56:41+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064466738805158177"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064466738805158177/README.md",
+      "path": "X/DHSgov/2026/06/09/2064466738805158177/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064466738805158177",
+      "summary": "American elections belong to the AMERICAN PEOPLE.",
+      "title": "American elections belong to the AMERICAN PEOPLE. Illegal voting by aliens undermines our ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:dc81e3e473efe062",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:09:22.954654+00:00",
+        "datePublished": "2026-06-09T21:56:35.406000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116722381318407443"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116722381318407443/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116722381318407443/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116722381318407443",
+      "summary": "US trade deficit widens by the most in nearly 34 years: [https://www. reuters.com/business/us-trade- deficit-widens-by-most-nearly-34-years-november-2026-01-29/](https://www.reuters.com/business/us-trade-deficit-widens-by-most-nearly-34-years-november-2026-01-29/)",
+      "title": "US trade deficit widens by the most in nearly 34 years: [https://www. reuters.com/business..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:2b0db032cf593914",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:08:53.765341+00:00",
+        "datePublished": "2026-06-09T21:40:21+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064462631629369405"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064462631629369405/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064462631629369405/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064462631629369405",
+      "summary": "Repost of @SecKennedy:",
+      "title": "Repost of @SecKennedy: HHS has requested a review of allegations involving @CAIRNational a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a4a3e5d54175a46d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:08:34.528887+00:00",
+        "datePublished": "2026-06-09T21:33:07+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064460805324541952.jpg",
+            "remotePath": "archive/x/icegov/HKZwKhoWEAA5YNc.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZwKhoWEAA5YNc.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKZwKhoWEAA5YNc.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064460805324541952.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKZwKhoWEAA5YNc.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064460807866368118"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064460807866368118/README.md",
+      "path": "X/ICEgov/2026/06/09/2064460807866368118/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064460807866368118",
+      "summary": "Are you the next caller?",
+      "title": "Are you the next caller? We hope not, but our trained Victims of Immigration Crime Engagem..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f8a8e1ee440d0001",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:09:16.244042+00:00",
+        "datePublished": "2026-06-09T21:27:02+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064459279432601728"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064459279432601728/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064459279432601728/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064459279432601728",
+      "summary": "Repost of @CENTCOM:",
+      "title": "Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense str..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:8f5cd658a477eae5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:08:53.765654+00:00",
+        "datePublished": "2026-06-09T21:23:10+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064458307431997836"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064458307431997836/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064458307431997836/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064458307431997836",
+      "summary": "Repost of @CENTCOM:",
+      "title": "Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense str..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:7e5fd2cd33e8aed8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:08:41.048020+00:00",
+        "datePublished": "2026-06-09T21:22:43+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064446497391833088.jpg",
+            "remotePath": "archive/x/potus/HKZjJsbW8AAGqY5.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZjJsbW8AAGqY5.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZjJsbW8AAGqY5.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064446497391833088.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKZjJsbW8AAGqY5.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064458193124647154"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064458193124647154/README.md",
+      "path": "X/POTUS/2026/06/09/2064458193124647154/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064458193124647154",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: This Homeownership Month, President Trump and @HUDgov are deliverin..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b1f553f811a8b36b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:08:41.048422+00:00",
+        "datePublished": "2026-06-09T21:22:40+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064454384105213952.jpg",
+            "remotePath": "archive/x/potus/HKZqUwuW0AArLcp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZqUwuW0AArLcp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZqUwuW0AArLcp.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064454384105213952.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKZqUwuW0AArLcp.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064458179988049998"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064458179988049998/README.md",
+      "path": "X/POTUS/2026/06/09/2064458179988049998/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064458179988049998",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the product..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5cb4a0b9ecbc7c7a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:09:16.244531+00:00",
+        "datePublished": "2026-06-09T21:08:33+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064454384105213952.jpg",
+            "remotePath": "archive/x/whitehouse/HKZqUwuW0AArLcp.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZqUwuW0AArLcp.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZqUwuW0AArLcp.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064454384105213952.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZqUwuW0AArLcp.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064454628125630768"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064454628125630768/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064454628125630768/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064454628125630768",
+      "summary": "AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the production of certain models BACK to the U.S.",
+      "title": "AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the production of certain models B..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:00540eeea2efb261",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:08:17.758887+00:00",
+        "datePublished": "2026-06-09T20:54:59+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064451211944751308"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064451211944751308/README.md",
+      "path": "X/DHSgov/2026/06/09/2064451211944751308/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064451211944751308",
+      "summary": ".@CBP\u2019s \u201cBeagle Brigade\u201d is hard at work keeping dangerous products OUT of our country.",
+      "title": ".@CBP\u2019s \u201cBeagle Brigade\u201d is hard at work keeping dangerous products OUT of our country. Th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:84f4efe6c873b83c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:08:53.765871+00:00",
+        "datePublished": "2026-06-09T20:41:52+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064447910906089667"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064447910906089667/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064447910906089667/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064447910906089667",
+      "summary": "This successful renovation not only made the Reflecting Pool more beautiful, but it was completed at a fraction of the time and cost of Obama's botched project\u2014AND it finally addressed the leaks that caused millions of gallons of water loss per year.",
+      "title": "This successful renovation not only made the Reflecting Pool more beautiful, but it was co..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9cd5835d68efac3a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:09:16.244889+00:00",
+        "datePublished": "2026-06-09T20:41:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064446497391833088.jpg",
+            "remotePath": "archive/x/whitehouse/HKZjJsbW8AAGqY5.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZjJsbW8AAGqY5.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZjJsbW8AAGqY5.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064446497391833088.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZjJsbW8AAGqY5.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064447885886816413"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064447885886816413/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064447885886816413/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064447885886816413",
+      "summary": "This Homeownership Month, President Trump and @HUDgov are delivering REAL solutions to restore affordable homeownership and bring the American Dream back within reach. \ud83c\uddfa\ud83c\uddf8",
+      "title": "This Homeownership Month, President Trump and @HUDgov are delivering REAL solutions to res..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:ecb9ae928ba4d703",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T22:08:26.028931+00:00",
+        "datePublished": "2026-06-09T20:41:16+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064445004139929600.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKZhyxoXIAAc3T.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZhyxoXIAAc3T_.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZhyxoXIAAc3T.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064445004139929600.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZhyxoXIAAc3T.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064447759390765216"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064447759390765216/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064447759390765216/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064447759390765216",
+      "summary": "Repost of @FBI:",
+      "title": "Repost of @FBI: .@FBIBoston kicks off Summer Heat 2.0 with over two dozen alleged gang mem..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:1269178ea72bd09e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T22:08:26.029361+00:00",
+        "datePublished": "2026-06-09T20:40:29+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064447558521327616.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKZkHdcWEAAmvS.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZkHdcWEAAmvS_.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZkHdcWEAAmvS.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064447558563307520.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKZkHdmWoAAwHiC.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZkHdmWoAAwHiC.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZkHdmWoAAwHiC.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064447558521327616.jpg",
+          "media/02_image_2064447558563307520.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZkHdcWEAAmvS.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZkHdmWoAAwHiC.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064447562879242384"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064447562879242384/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064447562879242384/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064447562879242384",
+      "summary": "In Denver today meeting with some of our regional partners from the Colorado and Wyoming area \u2013 represented by 25 different federal, state, and local agencies. Giving law enforcement across the country a bigger voice in D.C. continues to be a tier 1 mission for this @FBI.",
+      "title": "In Denver today meeting with some of our regional partners from the Colorado and Wyoming a..."
+    },
     {
       "category": "X",
       "date": "2026-06-09",

@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-09
 
-- Posts: 7
+- Posts: 8
 
+- [21:33 UTC - Are you the next caller? We hope not, but our trained Victims of Immigration Crime Engagem...](2064460807866368118/)
+  - Source: https://x.com/ICEgov/status/2064460807866368118
+  - Are you the next caller? We hope not, but our trained Victims of Immigration Crime Engagement Office experts are ready to help should you be the next unfortunate victim of an immig...
 - [19:58 UTC - Great work by @HSINewEngland and its @HSTFNCC partners!](2064437112607232496/)
   - Source: https://x.com/ICEgov/status/2064437112607232496
   - Great work by @HSINewEngland and its @HSTFNCC partners!

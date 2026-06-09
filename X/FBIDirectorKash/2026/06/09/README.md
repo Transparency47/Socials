@@ -1,7 +1,13 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 10
+- Posts: 12
 
+- [20:41 UTC - Repost of @FBI: .@FBIBoston kicks off Summer Heat 2.0 with over two dozen alleged gang mem...](2064447759390765216/)
+  - Source: https://x.com/FBIDirectorKash/status/2064447759390765216
+  - Repost of @FBI: .@FBIBoston kicks off Summer Heat 2.0 with over two dozen alleged gang members charged. https://t.co/QmDPrWOk9a https://t.co/OcGSDSZcLc
+- [20:40 UTC - In Denver today meeting with some of our regional partners from the Colorado and Wyoming a...](2064447562879242384/)
+  - Source: https://x.com/FBIDirectorKash/status/2064447562879242384
+  - In Denver today meeting with some of our regional partners from the Colorado and Wyoming area – represented by 25 different federal, state, and local agencies. Giving law enforceme...
 - [19:36 UTC - Repost of @FBICyberDiv: Today, the FBI is announcing Operation Riptide, an ongoing, coordi...](2064431404620943647/)
   - Source: https://x.com/FBIDirectorKash/status/2064431404620943647
   - Repost of @FBICyberDiv: Today, the FBI is announcing Operation Riptide, an ongoing, coordinated law enforcement campaign targeting cybercriminal actors and the key services they re...

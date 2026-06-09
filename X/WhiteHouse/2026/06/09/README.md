@@ -1,7 +1,16 @@
 # X / WhiteHouse / 2026-06-09
 
-- Posts: 21
+- Posts: 24
 
+- [21:27 UTC - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense str...](2064459279432601728/)
+  - Source: https://x.com/WhiteHouse/status/2064459279432601728
+  - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense strikes against Iran at 5 p.m. ET today at the Commander in Chief’s direction, in response to...
+- [21:08 UTC - AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the production of certain models B...](2064454628125630768/)
+  - Source: https://x.com/WhiteHouse/status/2064454628125630768
+  - AMERICAN MANUFACTURING WIN! @HarleyDavidson is bringing the production of certain models BACK to the U.S. More American jobs. More American manufacturing. More bikes Made in Americ...
+- [20:41 UTC - This Homeownership Month, President Trump and @HUDgov are delivering REAL solutions to res...](2064447885886816413/)
+  - Source: https://x.com/WhiteHouse/status/2064447885886816413
+  - This Homeownership Month, President Trump and @HUDgov are delivering REAL solutions to restore affordable homeownership and bring the American Dream back within reach. 🇺🇸 🏡 Slashin...
 - [19:32 UTC - By fighting against the Secure America Act, Democrats have once again shown they care more...](2064430359970795673/)
   - Source: https://x.com/WhiteHouse/status/2064430359970795673
   - By fighting against the Secure America Act, Democrats have once again shown they care more about illegal aliens than American citizens. They push relentlessly for open borders, shi...

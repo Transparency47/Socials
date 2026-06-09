@@ -1,7 +1,16 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 42
+- Posts: 45
 
+- [21:40 UTC - Repost of @SecKennedy: HHS has requested a review of allegations involving @CAIRNational a...](2064462631629369405/)
+  - Source: https://x.com/RapidResponse47/status/2064462631629369405
+  - Repost of @SecKennedy: HHS has requested a review of allegations involving @CAIRNational and its affiliates @CAIRCalifornia and @CAIRWashington regarding the use of federal grant f...
+- [21:23 UTC - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense str...](2064458307431997836/)
+  - Source: https://x.com/RapidResponse47/status/2064458307431997836
+  - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense strikes against Iran at 5 p.m. ET today at the Commander in Chief’s direction, in response to...
+- [20:41 UTC - This successful renovation not only made the Reflecting Pool more beautiful, but it was co...](2064447910906089667/)
+  - Source: https://x.com/RapidResponse47/status/2064447910906089667
+  - This successful renovation not only made the Reflecting Pool more beautiful, but it was completed at a fraction of the time and cost of Obama's botched project—AND it finally addre...
 - [20:22 UTC - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign cit...](2064443116032024591/)
   - Source: https://x.com/RapidResponse47/status/2064443116032024591
   - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign citizens who illegally vote in our elections are deportable, regardless of their immigration...

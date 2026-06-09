@@ -1,7 +1,13 @@
 # X / DHSgov / 2026-06-09
 
-- Posts: 14
+- Posts: 16
 
+- [21:56 UTC - American elections belong to the AMERICAN PEOPLE. Illegal voting by aliens undermines our ...](2064466738805158177/)
+  - Source: https://x.com/DHSgov/status/2064466738805158177
+  - American elections belong to the AMERICAN PEOPLE. Illegal voting by aliens undermines our democracy — and it MUST have consequences. Under the leadership of @POTUS Trump and @SecMu...
+- [20:54 UTC - .@CBP’s “Beagle Brigade” is hard at work keeping dangerous products OUT of our country. Th...](2064451211944751308/)
+  - Source: https://x.com/DHSgov/status/2064451211944751308
+  - .@CBP’s “Beagle Brigade” is hard at work keeping dangerous products OUT of our country. These dogs have already discovered World Cup travelers attempting to smuggle in prohibited a...
 - [20:07 UTC - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign cit...](2064439355725238696/)
   - Source: https://x.com/DHSgov/status/2064439355725238696
   - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign citizens who illegally vote in our elections are deportable, regardless of their immigration...
