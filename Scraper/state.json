@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 500"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/9Tx53zoEd1U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9Tx53zoEd1U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114041,6 +114041,28 @@
       "title": "Truth Social post 116717401257605983",
       "url": "https://truthsocial.com/@realDonaldTrump/116717401257605983"
     },
+    "truthsocial:realdonaldtrump:116718662947146337": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T07:41:58.906372+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116718662947146337",
+      "platform": "truthsocial",
+      "post_id": "116718662947146337",
+      "published": "2026-06-09T06:10:57.565000+00:00",
+      "title": "Truth Social post 116718662947146337",
+      "url": "https://truthsocial.com/@realDonaldTrump/116718662947146337"
+    },
+    "truthsocial:realdonaldtrump:116718664107165673": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T07:41:58.906028+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116718664107165673",
+      "platform": "truthsocial",
+      "post_id": "116718664107165673",
+      "published": "2026-06-09T06:11:15.270000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116718662947146337",
+      "url": "https://truthsocial.com/@realDonaldTrump/116718664107165673"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -124314,6 +124336,17 @@
       "published": "2026-06-09T03:00:40+00:00",
       "title": "Spent time with our partners the Salt River Pima-Maricopa Indian Community in Arizona outs...",
       "url": "https://x.com/FBIDirectorKash/status/2064180851781374082"
+    },
+    "x:fbidirectorkash:2064196572368478305": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T07:41:09.334497+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064196572368478305",
+      "platform": "x",
+      "post_id": "2064196572368478305",
+      "published": "2026-06-09T04:03:08+00:00",
+      "title": "Repost of @DAGToddBlanche: Chairmen Cotton and Grassley are right.\u00a0 FISA 702 is one of our...",
+      "url": "https://x.com/FBIDirectorKash/status/2064196572368478305"
     },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",

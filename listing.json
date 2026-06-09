@@ -1,6 +1,99 @@
 {
-  "generatedAt": "2026-06-09T03:52:11.078686+00:00",
+  "generatedAt": "2026-06-09T07:44:54.217717+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:5e1faf4e1999905d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T07:41:58.906028+00:00",
+        "datePublished": "2026-06-09T06:11:15.270000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116718663978025708.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/89d5e2620c6133ea.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/718/663/978/025/708/original/89d5e2620c6133ea.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/89d5e2620c6133ea.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116718663978025708.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/89d5e2620c6133ea.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116718664107165673"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116718664107165673/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116718664107165673/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116718664107165673",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116718662947146337",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116718662947146337"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:c21820d05ea1d51c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T07:41:58.906372+00:00",
+        "datePublished": "2026-06-09T06:10:57.565000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116718660730061738.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/05812797144cbf7b.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/718/660/730/061/738/original/05812797144cbf7b.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/05812797144cbf7b.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116718660730061738.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/05812797144cbf7b.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116718662947146337"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116718662947146337/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116718662947146337/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116718662947146337",
+      "summary": null,
+      "title": "Truth Social post 116718662947146337"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f44348f549081e6c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T07:41:09.334497+00:00",
+        "datePublished": "2026-06-09T04:03:08+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064196572368478305"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064196572368478305/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064196572368478305/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064196572368478305",
+      "summary": "Repost of @DAGToddBlanche:",
+      "title": "Repost of @DAGToddBlanche: Chairmen Cotton and Grassley are right.\u00a0 FISA 702 is one of our..."
+    },
     {
       "category": "X",
       "date": "2026-06-09",
