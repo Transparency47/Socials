@@ -1,6 +1,828 @@
 {
-  "generatedAt": "2026-06-09T16:27:24.021574+00:00",
+  "generatedAt": "2026-06-09T18:33:24.869343+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:7e04ede7b5564328",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:31:22.075096+00:00",
+        "datePublished": "2026-06-09T18:26:30+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064413843351093248.jpg",
+            "remotePath": "archive/x/whitehouse/HKZFc-pXQAAbtqx.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZFc-pXQAAbtqx.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZFc-pXQAAbtqx.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064413843367895040.jpg",
+            "remotePath": "archive/x/whitehouse/HKZFc-tXoAA0HLq.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZFc-tXoAA0HLq.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZFc-tXoAA0HLq.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064413843351093248.jpg",
+          "media/02_image_2064413843367895040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZFc-pXQAAbtqx.jpg",
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZFc-tXoAA0HLq.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064413847599915144"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064413847599915144/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064413847599915144/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064413847599915144",
+      "summary": "A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8",
+      "title": "A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8 The renovated Reflecting Pool. https://t.co/pk..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:efc96a69801ab9f5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:03.461202+00:00",
+        "datePublished": "2026-06-09T18:16:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064410958328459264.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKZC1DGXcAA8sQM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZC1DGXcAA8sQM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZC1DGXcAA8sQM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064410958328459264.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKZC1DGXcAA8sQM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064411261136216458"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064411261136216458/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064411261136216458/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064411261136216458",
+      "summary": "Repost of @FBI_Response:",
+      "title": "Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:3ee607f1b7fb7cf0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:31:22.075638+00:00",
+        "datePublished": "2026-06-09T18:09:59+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064402698061914112.mp4",
+            "remotePath": "archive/x/whitehouse/usqZmGJEwzysndmS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064402698061914112/vid/avc1/1920x1080/usqZmGJEwzysndmS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/usqZmGJEwzysndmS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064402698061914112.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/usqZmGJEwzysndmS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064409687563350160"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064409687563350160/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064409687563350160/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064409687563350160",
+      "summary": "Repost of @SecKennedy:",
+      "title": "Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:0a6df593b7ce9d08",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:31:22.076019+00:00",
+        "datePublished": "2026-06-09T18:09:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064409263993131008.mp4",
+            "remotePath": "archive/x/whitehouse/eBvkV552to20L845.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064409263993131008/vid/avc1/1080x1920/eBvkV552to20L845.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/eBvkV552to20L845.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064409263993131008.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/eBvkV552to20L845.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064409617501671740"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064409617501671740/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064409617501671740/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064409617501671740",
+      "summary": "Repost of @FirstLadyOffice:",
+      "title": "Repost of @FirstLadyOffice: \u201cCongratulations to our Presidential AI Challenge winners. It ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b3c8704d8bbcd7f2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:31:22.076376+00:00",
+        "datePublished": "2026-06-09T18:09:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064339143031717889.mp4",
+            "remotePath": "archive/x/whitehouse/HxwD5_HBsMOASGAH.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064339143031717889/vid/avc1/1280x720/HxwD5_HBsMOASGAH.mp4?tag=14",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HxwD5_HBsMOASGAH.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064339143031717889.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HxwD5_HBsMOASGAH.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064409594969911316"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064409594969911316/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064409594969911316/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064409594969911316",
+      "summary": "Repost of @EnergyUnderSec:",
+      "title": "Repost of @EnergyUnderSec: Thanks to President Trump ending the war on coal, DOE is streng..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b3a1495e0ee63638",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:03.461679+00:00",
+        "datePublished": "2026-06-09T18:02:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064407509234794496.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKY_sSOWwAA0k1A.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY_sSOWwAA0k1A.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSOWwAA0k1A.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064407509444476930.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKY_sTAWQAI3NIo.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY_sTAWQAI3NIo.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sTAWQAI3NIo.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064407509343825920.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKY_sSoWcAArs68.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY_sSoWcAArs68.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSoWcAArs68.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064407509264158720.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKY_sSVW0AAxGsN.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY_sSVW0AAxGsN.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSVW0AAxGsN.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064407509234794496.jpg",
+          "media/02_image_2064407509444476930.jpg",
+          "media/03_image_2064407509343825920.jpg",
+          "media/04_image_2064407509264158720.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSOWwAA0k1A.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sTAWQAI3NIo.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSoWcAArs68.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKY_sSVW0AAxGsN.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064407741490184439"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064407741490184439/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064407741490184439/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064407741490184439",
+      "summary": "Repost of @FBIBoston:",
+      "title": "Repost of @FBIBoston: \ud83d\udd25#FBI Boston is kicking off Operation Summer Heat 2.0 with the taked..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a8efe72fa76736c5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.700494+00:00",
+        "datePublished": "2026-06-09T17:45:14+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064402698061914112.mp4",
+            "remotePath": "archive/x/rapidresponse47/usqZmGJEwzysndmS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064402698061914112/vid/avc1/1920x1080/usqZmGJEwzysndmS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/usqZmGJEwzysndmS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064402698061914112.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/usqZmGJEwzysndmS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064403461836357904"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064403461836357904/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064403461836357904/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064403461836357904",
+      "summary": "Repost of @SecKennedy:",
+      "title": "Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:02e31ff212842093",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:29:49.118221+00:00",
+        "datePublished": "2026-06-09T17:42:35+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064402770086522880.jpg",
+            "remotePath": "archive/x/dhsgov/HKY7YbhW8AAU2yi.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY7YbhW8AAU2yi.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY7YbhW8AAU2yi.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064402770115866624.jpg",
+            "remotePath": "archive/x/dhsgov/HKY7YboWsAA-Fm6.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY7YboWsAA-Fm6.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY7YboWsAA-Fm6.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064402770090655744.jpg",
+            "remotePath": "archive/x/dhsgov/HKY7YbiWAAA9DZf.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY7YbiWAAA9DZf.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY7YbiWAAA9DZf.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064402770086522880.jpg",
+          "media/02_image_2064402770115866624.jpg",
+          "media/03_image_2064402770090655744.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY7YbhW8AAU2yi.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY7YboWsAA-Fm6.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY7YbiWAAA9DZf.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064402795973812346"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064402795973812346/README.md",
+      "path": "X/DHSgov/2026/06/09/2064402795973812346/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064402795973812346",
+      "summary": "Today, 26 members of the Trinitarios gang were indicted for violations of RICO \u2013 conspiracy to commit murder. These charges encompass five murders and 19 attempted murders, trafficking of dozens of kilograms of drugs, extortion, kidnapping, and robbery.",
+      "title": "Today, 26 members of the Trinitarios gang were indicted for violations of RICO \u2013 conspirac..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:470eaada6fe1bc80",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:30:36.700813+00:00",
+        "datePublished": "2026-06-09T17:39:15+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064401442610253826.mp4",
+            "remotePath": "archive/x/rapidresponse47/ayxTBSGEvISvOhtZ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064401442610253826/vid/avc1/1280x720/ayxTBSGEvISvOhtZ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ayxTBSGEvISvOhtZ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064401442610253826.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ayxTBSGEvISvOhtZ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064401954315342262"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064401954315342262/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064401954315342262/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064401954315342262",
+      "summary": ".@RealTomHoman: \"I don\u2019t want to meet another angel mom or dad... I want governors, and mayors, and members of the Hill to agree with me: if you\u2019re in the country illegally and you are a public safety threat, this should be a nonpartisan issue.\" https://t.co/qSuWI1bEDF",
+      "title": ".@RealTomHoman: \"I don\u2019t want to meet another angel mom or dad... I want governors, and ma..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a64882091ec4158d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:29:49.118727+00:00",
+        "datePublished": "2026-06-09T16:58:53+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064390197903511552.mp4",
+            "remotePath": "archive/x/dhsgov/1pDP8UVywIalR466.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064390197903511552/vid/avc1/1136x638/1pDP8UVywIalR466.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/1pDP8UVywIalR466.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064390197903511552.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/1pDP8UVywIalR466.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064391794779889727"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064391794779889727/README.md",
+      "path": "X/DHSgov/2026/06/09/2064391794779889727/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064391794779889727",
+      "summary": "\u201cThis is a coordinated effort between federal, state, and local law enforcement under the HSTF. We have dismantled the leadership and fully disrupted the criminal operations of the Trinitarios transnational gang operating in Lawrence, Massachusetts, and the surrounding areas.\u201d \u2014J",
+      "title": "\u201cThis is a coordinated effort between federal, state, and local law enforcement under the ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9a0b15d2eaaf6c90",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:22.782275+00:00",
+        "datePublished": "2026-06-09T16:45:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064387905947156480.jpg",
+            "remotePath": "archive/x/potus/HKYt3OSXwAAGtg3.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYt3OSXwAAGtg3.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKYt3OSXwAAGtg3.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064387905947156480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKYt3OSXwAAGtg3.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064388493912981604"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064388493912981604/README.md",
+      "path": "X/POTUS/2026/06/09/2064388493912981604/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064388493912981604",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"I have just been informed by our Great Military that last night th..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f19defe91fe27c9e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:31:22.076767+00:00",
+        "datePublished": "2026-06-09T16:44:30+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064387905947156480.jpg",
+            "remotePath": "archive/x/whitehouse/HKYt3OSXwAAGtg3.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYt3OSXwAAGtg3.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKYt3OSXwAAGtg3.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064387905947156480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKYt3OSXwAAGtg3.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064388175473115336"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064388175473115336/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064388175473115336/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064388175473115336",
+      "summary": "\"I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling over the Strait of Hormuz. There were two pilots involved, both are safe and uninjured. Nevertheless, the United States must",
+      "title": "\"I have just been informed by our Great Military that last night the Iranians shot down on..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:fb5cebc148c25970",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.701046+00:00",
+        "datePublished": "2026-06-09T16:43:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064387817510187041"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387817510187041/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387817510187041/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387817510187041",
+      "summary": "Repost of @RepFedorchak:",
+      "title": "Repost of @RepFedorchak: REMINDER: Every single Democrat voted NO multiple times on fully ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:0a666b16c2282b7f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.701248+00:00",
+        "datePublished": "2026-06-09T16:42:47+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064092894202314752.mp4",
+            "remotePath": "archive/x/rapidresponse47/KbV66zh2N3rnxrHx.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064092894202314752/vid/avc1/1920x1080/KbV66zh2N3rnxrHx.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/KbV66zh2N3rnxrHx.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064092894202314752.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/KbV66zh2N3rnxrHx.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064387743065485603"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387743065485603/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387743065485603/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387743065485603",
+      "summary": "Repost of @SenTomCotton:",
+      "title": "Repost of @SenTomCotton: For over 100 days, Democrats tried to defund law enforcement. The..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:2b16a370ddc24f43",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.701567+00:00",
+        "datePublished": "2026-06-09T16:42:23+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064387645350760895"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387645350760895/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387645350760895/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387645350760895",
+      "summary": "Repost of @SenateGOP:",
+      "title": "Repost of @SenateGOP: The Secure America Act ensures\u00a0Democrats can no longer hold law enfo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:bb784292691a8e16",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.701906+00:00",
+        "datePublished": "2026-06-09T16:42:18+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064387622319911291"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387622319911291/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387622319911291/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387622319911291",
+      "summary": "Repost of @SenJoniErnst:",
+      "title": "Repost of @SenJoniErnst: I was a proud yes on the Secure America Act. We must fully fund l..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:684d43911cf2aa8b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.702245+00:00",
+        "datePublished": "2026-06-09T16:42:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064387566510444959"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387566510444959/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387566510444959/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387566510444959",
+      "summary": "Repost of @GOPMajorityWhip:",
+      "title": "Repost of @GOPMajorityWhip: At every turn, Democrats have tried to obstruct @POTUS' succes..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f891c6bc1b8d2b8d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:36.702620+00:00",
+        "datePublished": "2026-06-09T16:41:59+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064367873112342528.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKYbpKKXAAAYLCu.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYbpKKXAAAYLCu.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKYbpKKXAAAYLCu.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064367873112342528.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKYbpKKXAAAYLCu.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064387544611979339"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064387544611979339/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064387544611979339/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064387544611979339",
+      "summary": "Repost of @RepJimBaird:",
+      "title": "Repost of @RepJimBaird: It\u2019s time to fully fund border security in our country. It\u2019s time ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:bece8813248662a3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:30:36.702953+00:00",
+        "datePublished": "2026-06-09T16:38:57+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064386776446185472.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKYs1ekWsAA325s.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYs1ekWsAA325s.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKYs1ekWsAA325s.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064386776446185472.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKYs1ekWsAA325s.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064386781802328128"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064386781802328128/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064386781802328128/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064386781802328128",
+      "summary": "https://t.co/MIMe9P9eg2",
+      "title": "https://t.co/MIMe9P9eg2"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:367472f626c256ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:31:50.352791+00:00",
+        "datePublished": "2026-06-09T16:38:07.892000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116721129088347687"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116721129088347687/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116721129088347687/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116721129088347687",
+      "summary": "I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling over the Strait of Hormuz. There were two pilots involved, both are safe and uninjured. Nevertheless, the United States must,",
+      "title": "I have just been informed by our Great Military that last night the Iranians shot down one..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:1804c89cd36c3bc0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:30:22.782769+00:00",
+        "datePublished": "2026-06-09T16:35:41+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064383485708505088.jpg",
+            "remotePath": "archive/x/potus/HKYp17nWkAAb-rw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYp17nWkAAb-rw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKYp17nWkAAb-rw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064383485708505088.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKYp17nWkAAb-rw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064385959857201259"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064385959857201259/README.md",
+      "path": "X/POTUS/2026/06/09/2064385959857201259/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064385959857201259",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Millions of Americans have suffered under radical Democrats' \u201cdefun..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5b1558eb685359a0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T18:31:22.077108+00:00",
+        "datePublished": "2026-06-09T16:31:47+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064384975571427748"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064384975571427748/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064384975571427748/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064384975571427748",
+      "summary": "Repost of @NASA:",
+      "title": "Repost of @NASA: LIVE: Meet the crew of our next Artemis mission. We're sharing the latest..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:140796c0b9771a79",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:31:22.077484+00:00",
+        "datePublished": "2026-06-09T16:27:43+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064383485708505088.jpg",
+            "remotePath": "archive/x/whitehouse/HKYp17nWkAAb-rw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYp17nWkAAb-rw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKYp17nWkAAb-rw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064383485708505088.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKYp17nWkAAb-rw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064383955202097206"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064383955202097206/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064383955202097206/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064383955202097206",
+      "summary": "Millions of Americans have suffered under radical Democrats' \u201cdefund the police\u201d disaster. They have tried to reverse historic wins &amp; put violent illegal aliens ahead of Americans.",
+      "title": "Millions of Americans have suffered under radical Democrats' \u201cdefund the police\u201d disaster...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a2deca7db3e72ab8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T18:30:36.703304+00:00",
+        "datePublished": "2026-06-09T16:26:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064383348013735936.mp4",
+            "remotePath": "archive/x/rapidresponse47/AMJUrbdAedvl-6M2.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064383348013735936/vid/avc1/1280x720/AMJUrbdAedvl-6M2.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/AMJUrbdAedvl-6M2.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064383348013735936.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/AMJUrbdAedvl-6M2.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064383586459910225"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064383586459910225/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064383586459910225/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064383586459910225",
+      "summary": "WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next year, which will demonstrate critical systems needed for future lunar landings. \ud83d\ude80\ud83c\udf15 https://t.co/A0AUo4QkT1",
+      "title": "WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next..."
+    },
     {
       "category": "X",
       "date": "2026-06-09",

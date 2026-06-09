@@ -1,7 +1,37 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 25
+- Posts: 35
 
+- [17:45 UTC - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost...](2064403461836357904/)
+  - Source: https://x.com/RapidResponse47/status/2064403461836357904
+  - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost of care. Families made medical decisions without knowing the price—and too often got hit...
+- [17:39 UTC - .@RealTomHoman: "I don’t want to meet another angel mom or dad... I want governors, and ma...](2064401954315342262/)
+  - Source: https://x.com/RapidResponse47/status/2064401954315342262
+  - .@RealTomHoman: "I don’t want to meet another angel mom or dad... I want governors, and mayors, and members of the Hill to agree with me: if you’re in the country illegally and you...
+- [16:43 UTC - Repost of @RepFedorchak: REMINDER: Every single Democrat voted NO multiple times on fully ...](2064387817510187041/)
+  - Source: https://x.com/RapidResponse47/status/2064387817510187041
+  - Repost of @RepFedorchak: REMINDER: Every single Democrat voted NO multiple times on fully funding @DHSgov. Now @HouseGOP is leading to make sure the men and women who secure our bo...
+- [16:42 UTC - Repost of @SenTomCotton: For over 100 days, Democrats tried to defund law enforcement. The...](2064387743065485603/)
+  - Source: https://x.com/RapidResponse47/status/2064387743065485603
+  - Repost of @SenTomCotton: For over 100 days, Democrats tried to defund law enforcement. They failed. Last week, Republicans superfunded ICE and Border Patrol for years to come. http...
+- [16:42 UTC - Repost of @SenateGOP: The Secure America Act ensures Democrats can no longer hold law enfo...](2064387645350760895/)
+  - Source: https://x.com/RapidResponse47/status/2064387645350760895
+  - Repost of @SenateGOP: The Secure America Act ensures Democrats can no longer hold law enforcement funding hostage. We’re never going back to Biden’s open borders and lawlessness.
+- [16:42 UTC - Repost of @SenJoniErnst: I was a proud yes on the Secure America Act. We must fully fund l...](2064387622319911291/)
+  - Source: https://x.com/RapidResponse47/status/2064387622319911291
+  - Repost of @SenJoniErnst: I was a proud yes on the Secure America Act. We must fully fund law enforcement and keep Iowans safe!
+- [16:42 UTC - Repost of @GOPMajorityWhip: At every turn, Democrats have tried to obstruct @POTUS' succes...](2064387566510444959/)
+  - Source: https://x.com/RapidResponse47/status/2064387566510444959
+  - Repost of @GOPMajorityWhip: At every turn, Democrats have tried to obstruct @POTUS' successful border security agenda. No more. Today, the @HouseGOP will FULLY FUND Immigration and...
+- [16:41 UTC - Repost of @RepJimBaird: It’s time to fully fund border security in our country. It’s time ...](2064387544611979339/)
+  - Source: https://x.com/RapidResponse47/status/2064387544611979339
+  - Repost of @RepJimBaird: It’s time to fully fund border security in our country. It’s time to secure America and fully fund ICE and CBP. https://t.co/UqpNyi1TOT
+- [16:38 UTC - https://t.co/MIMe9P9eg2](2064386781802328128/)
+  - Source: https://x.com/RapidResponse47/status/2064386781802328128
+  - https://t.co/MIMe9P9eg2
+- [16:26 UTC - WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next...](2064383586459910225/)
+  - Source: https://x.com/RapidResponse47/status/2064383586459910225
+  - WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next year, which will demonstrate critical systems needed for future lunar landings. 🚀🌕 https:...
 - [16:21 UTC - .@SecRubio (last week): "We have no problem with the athletes... But what we're not going ...](2064382304861016450/)
   - Source: https://x.com/RapidResponse47/status/2064382304861016450
   - .@SecRubio (last week): "We have no problem with the athletes... But what we're not going to allow is for them to embed in their delegation a bunch of people that we know have noth...

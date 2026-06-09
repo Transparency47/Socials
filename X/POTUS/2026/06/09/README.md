@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-09
 
-- Posts: 6
+- Posts: 8
 
+- [16:45 UTC - Repost of @WhiteHouse: "I have just been informed by our Great Military that last night th...](2064388493912981604/)
+  - Source: https://x.com/POTUS/status/2064388493912981604
+  - Repost of @WhiteHouse: "I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling o...
+- [16:35 UTC - Repost of @WhiteHouse: Millions of Americans have suffered under radical Democrats' “defun...](2064385959857201259/)
+  - Source: https://x.com/POTUS/status/2064385959857201259
+  - Repost of @WhiteHouse: Millions of Americans have suffered under radical Democrats' “defund the police” disaster. They have tried to reverse historic wins &amp; put violent illegal...
 - [16:05 UTC - Repost of @WhiteHouse: FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQi...](2064378446646579617/)
   - Source: https://x.com/POTUS/status/2064378446646579617
   - Repost of @WhiteHouse: FIGHT WEEK. 🇺🇸🔥 History in the making. June 14th. https://t.co/McQie7vpmZ

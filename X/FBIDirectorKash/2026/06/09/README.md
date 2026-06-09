@@ -1,7 +1,13 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 7
+- Posts: 9
 
+- [18:16 UTC - Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ](2064411261136216458/)
+  - Source: https://x.com/FBIDirectorKash/status/2064411261136216458
+  - Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ
+- [18:02 UTC - Repost of @FBIBoston: 🔥#FBI Boston is kicking off Operation Summer Heat 2.0 with the taked...](2064407741490184439/)
+  - Source: https://x.com/FBIDirectorKash/status/2064407741490184439
+  - Repost of @FBIBoston: 🔥#FBI Boston is kicking off Operation Summer Heat 2.0 with the takedown of a Boston Homeland Security Task Force investigation that has resulted in RICO consp...
 - [16:15 UTC - On the ground in Phoenix with our @FBIPhoenix team – a group doing incredible work to crus...](2064380945487077464/)
   - Source: https://x.com/FBIDirectorKash/status/2064380945487077464
   - On the ground in Phoenix with our @FBIPhoenix team – a group doing incredible work to crush violent crime, protect our kids, and support our tribal partners in the region. Recently...

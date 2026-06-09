@@ -1,7 +1,28 @@
 # X / WhiteHouse / 2026-06-09
 
-- Posts: 12
+- Posts: 19
 
+- [18:26 UTC - A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflecting Pool. https://t.co/pk...](2064413847599915144/)
+  - Source: https://x.com/WhiteHouse/status/2064413847599915144
+  - A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflecting Pool. https://t.co/pktHqevXCy
+- [18:09 UTC - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost...](2064409687563350160/)
+  - Source: https://x.com/WhiteHouse/status/2064409687563350160
+  - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost of care. Families made medical decisions without knowing the price—and too often got hit...
+- [18:09 UTC - Repost of @FirstLadyOffice: “Congratulations to our Presidential AI Challenge winners. It ...](2064409617501671740/)
+  - Source: https://x.com/WhiteHouse/status/2064409617501671740
+  - Repost of @FirstLadyOffice: “Congratulations to our Presidential AI Challenge winners. It is wonderful to see this very impressive group of innovators at the White House. I’m proud...
+- [18:09 UTC - Repost of @EnergyUnderSec: Thanks to President Trump ending the war on coal, DOE is streng...](2064409594969911316/)
+  - Source: https://x.com/WhiteHouse/status/2064409594969911316
+  - Repost of @EnergyUnderSec: Thanks to President Trump ending the war on coal, DOE is strengthening American coal power. @ENERGY’s actions are protecting 45 coal plants and 42 coal m...
+- [16:44 UTC - "I have just been informed by our Great Military that last night the Iranians shot down on...](2064388175473115336/)
+  - Source: https://x.com/WhiteHouse/status/2064388175473115336
+  - "I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling over the Strait of Hormu...
+- [16:31 UTC - Repost of @NASA: LIVE: Meet the crew of our next Artemis mission. We're sharing the latest...](2064384975571427748/)
+  - Source: https://x.com/WhiteHouse/status/2064384975571427748
+  - Repost of @NASA: LIVE: Meet the crew of our next Artemis mission. We're sharing the latest updates on Artemis III: https://t.co/UtesXxsNxm
+- [16:27 UTC - Millions of Americans have suffered under radical Democrats' “defund the police” disaster....](2064383955202097206/)
+  - Source: https://x.com/WhiteHouse/status/2064383955202097206
+  - Millions of Americans have suffered under radical Democrats' “defund the police” disaster. They have tried to reverse historic wins &amp; put violent illegal aliens ahead of Americ...
 - [16:19 UTC - "Use this chapter of your life to sail away with your dreams. To continue to build boldly ...](2064381761958604961/)
   - Source: https://x.com/WhiteHouse/status/2064381761958604961
   - "Use this chapter of your life to sail away with your dreams. To continue to build boldly and importantly, to safeguard America's leading position in the world of technology." - @F...

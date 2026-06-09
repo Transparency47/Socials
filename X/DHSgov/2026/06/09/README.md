@@ -1,7 +1,13 @@
 # X / DHSgov / 2026-06-09
 
-- Posts: 6
+- Posts: 8
 
+- [17:42 UTC - Today, 26 members of the Trinitarios gang were indicted for violations of RICO – conspirac...](2064402795973812346/)
+  - Source: https://x.com/DHSgov/status/2064402795973812346
+  - Today, 26 members of the Trinitarios gang were indicted for violations of RICO – conspiracy to commit murder. These charges encompass five murders and 19 attempted murders, traffic...
+- [16:58 UTC - “This is a coordinated effort between federal, state, and local law enforcement under the ...](2064391794779889727/)
+  - Source: https://x.com/DHSgov/status/2064391794779889727
+  - “This is a coordinated effort between federal, state, and local law enforcement under the HSTF. We have dismantled the leadership and fully disrupted the criminal operations of the...
 - [15:27 UTC - Repost of @SecMullinDHS: Last week, I got to pay a visit to our @USCG facility in Birmingh...](2064368687511953639/)
   - Source: https://x.com/DHSgov/status/2064368687511953639
   - Repost of @SecMullinDHS: Last week, I got to pay a visit to our @USCG facility in Birmingham. It was great to meet the men and women who are working hard every day to keep our home...

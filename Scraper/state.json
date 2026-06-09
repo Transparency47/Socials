@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=zjPGuY5IPVo: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zjPGuY5IPVo! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=zjPGuY5IPVo&ei=Gj4oasSmDpSpir4P7dW3oAQ&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781047434&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=ADD4371B5450620762691E70D3F4BFE91ED2A1BB.2EC6C69B01102DFD27BFD1DFB4C8774E1E1D64A6&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=RmkM4yYwVE4: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=RmkM4yYwVE4! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114074,6 +114074,17 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116718662947146337",
       "url": "https://truthsocial.com/@realDonaldTrump/116718664107165673"
     },
+    "truthsocial:realdonaldtrump:116721129088347687": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:31:50.352791+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116721129088347687",
+      "platform": "truthsocial",
+      "post_id": "116721129088347687",
+      "published": "2026-06-09T16:38:07.892000+00:00",
+      "title": "I have just been informed by our Great Military that last night the Iranians shot down one...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116721129088347687"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -121554,6 +121565,28 @@
       "title": "Repost of @SecMullinDHS: Last week, I got to pay a visit to our @USCG facility in Birmingh...",
       "url": "https://x.com/DHSgov/status/2064368687511953639"
     },
+    "x:dhsgov:2064391794779889727": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:29:49.118727+00:00",
+      "path": "X/DHSgov/2026/06/09/2064391794779889727",
+      "platform": "x",
+      "post_id": "2064391794779889727",
+      "published": "2026-06-09T16:58:53+00:00",
+      "title": "\u201cThis is a coordinated effort between federal, state, and local law enforcement under the ...",
+      "url": "https://x.com/DHSgov/status/2064391794779889727"
+    },
+    "x:dhsgov:2064402795973812346": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:29:49.118221+00:00",
+      "path": "X/DHSgov/2026/06/09/2064402795973812346",
+      "platform": "x",
+      "post_id": "2064402795973812346",
+      "published": "2026-06-09T17:42:35+00:00",
+      "title": "Today, 26 members of the Trinitarios gang were indicted for violations of RICO \u2013 conspirac...",
+      "url": "https://x.com/DHSgov/status/2064402795973812346"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -124446,6 +124479,28 @@
       "published": "2026-06-09T16:15:46+00:00",
       "title": "On the ground in Phoenix with our @FBIPhoenix team \u2013 a group doing incredible work to crus...",
       "url": "https://x.com/FBIDirectorKash/status/2064380945487077464"
+    },
+    "x:fbidirectorkash:2064407741490184439": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:03.461679+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064407741490184439",
+      "platform": "x",
+      "post_id": "2064407741490184439",
+      "published": "2026-06-09T18:02:15+00:00",
+      "title": "Repost of @FBIBoston: \ud83d\udd25#FBI Boston is kicking off Operation Summer Heat 2.0 with the taked...",
+      "url": "https://x.com/FBIDirectorKash/status/2064407741490184439"
+    },
+    "x:fbidirectorkash:2064411261136216458": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:03.461202+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064411261136216458",
+      "platform": "x",
+      "post_id": "2064411261136216458",
+      "published": "2026-06-09T18:16:14+00:00",
+      "title": "Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ",
+      "url": "https://x.com/FBIDirectorKash/status/2064411261136216458"
     },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
@@ -127582,6 +127637,28 @@
       "title": "Repost of @WhiteHouse: FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25 History in the making. June 14th. https://t.co/McQi...",
       "url": "https://x.com/POTUS/status/2064378446646579617"
     },
+    "x:potus:2064385959857201259": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:22.782769+00:00",
+      "path": "X/POTUS/2026/06/09/2064385959857201259",
+      "platform": "x",
+      "post_id": "2064385959857201259",
+      "published": "2026-06-09T16:35:41+00:00",
+      "title": "Repost of @WhiteHouse: Millions of Americans have suffered under radical Democrats' \u201cdefun...",
+      "url": "https://x.com/POTUS/status/2064385959857201259"
+    },
+    "x:potus:2064388493912981604": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:22.782275+00:00",
+      "path": "X/POTUS/2026/06/09/2064388493912981604",
+      "platform": "x",
+      "post_id": "2064388493912981604",
+      "published": "2026-06-09T16:45:46+00:00",
+      "title": "Repost of @WhiteHouse: \"I have just been informed by our Great Military that last night th...",
+      "url": "https://x.com/POTUS/status/2064388493912981604"
+    },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
       "content_kind": "repost",
@@ -130474,6 +130551,116 @@
       "published": "2026-06-09T16:21:10+00:00",
       "title": ".@SecRubio (last week): \"We have no problem with the athletes... But what we're not going ...",
       "url": "https://x.com/RapidResponse47/status/2064382304861016450"
+    },
+    "x:rapidresponse47:2064383586459910225": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:30:36.703304+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064383586459910225",
+      "platform": "x",
+      "post_id": "2064383586459910225",
+      "published": "2026-06-09T16:26:16+00:00",
+      "title": "WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next...",
+      "url": "https://x.com/RapidResponse47/status/2064383586459910225"
+    },
+    "x:rapidresponse47:2064386781802328128": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:30:36.702953+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064386781802328128",
+      "platform": "x",
+      "post_id": "2064386781802328128",
+      "published": "2026-06-09T16:38:57+00:00",
+      "title": "https://t.co/MIMe9P9eg2",
+      "url": "https://x.com/RapidResponse47/status/2064386781802328128"
+    },
+    "x:rapidresponse47:2064387544611979339": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.702620+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387544611979339",
+      "platform": "x",
+      "post_id": "2064387544611979339",
+      "published": "2026-06-09T16:41:59+00:00",
+      "title": "Repost of @RepJimBaird: It\u2019s time to fully fund border security in our country. It\u2019s time ...",
+      "url": "https://x.com/RapidResponse47/status/2064387544611979339"
+    },
+    "x:rapidresponse47:2064387566510444959": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.702245+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387566510444959",
+      "platform": "x",
+      "post_id": "2064387566510444959",
+      "published": "2026-06-09T16:42:04+00:00",
+      "title": "Repost of @GOPMajorityWhip: At every turn, Democrats have tried to obstruct @POTUS' succes...",
+      "url": "https://x.com/RapidResponse47/status/2064387566510444959"
+    },
+    "x:rapidresponse47:2064387622319911291": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.701906+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387622319911291",
+      "platform": "x",
+      "post_id": "2064387622319911291",
+      "published": "2026-06-09T16:42:18+00:00",
+      "title": "Repost of @SenJoniErnst: I was a proud yes on the Secure America Act. We must fully fund l...",
+      "url": "https://x.com/RapidResponse47/status/2064387622319911291"
+    },
+    "x:rapidresponse47:2064387645350760895": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.701567+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387645350760895",
+      "platform": "x",
+      "post_id": "2064387645350760895",
+      "published": "2026-06-09T16:42:23+00:00",
+      "title": "Repost of @SenateGOP: The Secure America Act ensures\u00a0Democrats can no longer hold law enfo...",
+      "url": "https://x.com/RapidResponse47/status/2064387645350760895"
+    },
+    "x:rapidresponse47:2064387743065485603": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.701248+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387743065485603",
+      "platform": "x",
+      "post_id": "2064387743065485603",
+      "published": "2026-06-09T16:42:47+00:00",
+      "title": "Repost of @SenTomCotton: For over 100 days, Democrats tried to defund law enforcement. The...",
+      "url": "https://x.com/RapidResponse47/status/2064387743065485603"
+    },
+    "x:rapidresponse47:2064387817510187041": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.701046+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064387817510187041",
+      "platform": "x",
+      "post_id": "2064387817510187041",
+      "published": "2026-06-09T16:43:04+00:00",
+      "title": "Repost of @RepFedorchak: REMINDER: Every single Democrat voted NO multiple times on fully ...",
+      "url": "https://x.com/RapidResponse47/status/2064387817510187041"
+    },
+    "x:rapidresponse47:2064401954315342262": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:30:36.700813+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064401954315342262",
+      "platform": "x",
+      "post_id": "2064401954315342262",
+      "published": "2026-06-09T17:39:15+00:00",
+      "title": ".@RealTomHoman: \"I don\u2019t want to meet another angel mom or dad... I want governors, and ma...",
+      "url": "https://x.com/RapidResponse47/status/2064401954315342262"
+    },
+    "x:rapidresponse47:2064403461836357904": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:30:36.700494+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064403461836357904",
+      "platform": "x",
+      "post_id": "2064403461836357904",
+      "published": "2026-06-09T17:45:14+00:00",
+      "title": "Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost...",
+      "url": "https://x.com/RapidResponse47/status/2064403461836357904"
     },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
@@ -152364,6 +152551,83 @@
       "published": "2026-06-09T16:19:01+00:00",
       "title": "\"Use this chapter of your life\u00a0to sail away with your dreams.\u00a0To continue to build boldly\u00a0...",
       "url": "https://x.com/WhiteHouse/status/2064381761958604961"
+    },
+    "x:whitehouse:2064383955202097206": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:31:22.077484+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064383955202097206",
+      "platform": "x",
+      "post_id": "2064383955202097206",
+      "published": "2026-06-09T16:27:43+00:00",
+      "title": "Millions of Americans have suffered under radical Democrats' \u201cdefund the police\u201d disaster....",
+      "url": "https://x.com/WhiteHouse/status/2064383955202097206"
+    },
+    "x:whitehouse:2064384975571427748": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:31:22.077108+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064384975571427748",
+      "platform": "x",
+      "post_id": "2064384975571427748",
+      "published": "2026-06-09T16:31:47+00:00",
+      "title": "Repost of @NASA: LIVE: Meet the crew of our next Artemis mission. We're sharing the latest...",
+      "url": "https://x.com/WhiteHouse/status/2064384975571427748"
+    },
+    "x:whitehouse:2064388175473115336": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:31:22.076767+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064388175473115336",
+      "platform": "x",
+      "post_id": "2064388175473115336",
+      "published": "2026-06-09T16:44:30+00:00",
+      "title": "\"I have just been informed by our Great Military that last night the Iranians shot down on...",
+      "url": "https://x.com/WhiteHouse/status/2064388175473115336"
+    },
+    "x:whitehouse:2064409594969911316": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:31:22.076376+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064409594969911316",
+      "platform": "x",
+      "post_id": "2064409594969911316",
+      "published": "2026-06-09T18:09:36+00:00",
+      "title": "Repost of @EnergyUnderSec: Thanks to President Trump ending the war on coal, DOE is streng...",
+      "url": "https://x.com/WhiteHouse/status/2064409594969911316"
+    },
+    "x:whitehouse:2064409617501671740": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:31:22.076019+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064409617501671740",
+      "platform": "x",
+      "post_id": "2064409617501671740",
+      "published": "2026-06-09T18:09:42+00:00",
+      "title": "Repost of @FirstLadyOffice: \u201cCongratulations to our Presidential AI Challenge winners. It ...",
+      "url": "https://x.com/WhiteHouse/status/2064409617501671740"
+    },
+    "x:whitehouse:2064409687563350160": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T18:31:22.075638+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064409687563350160",
+      "platform": "x",
+      "post_id": "2064409687563350160",
+      "published": "2026-06-09T18:09:59+00:00",
+      "title": "Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost...",
+      "url": "https://x.com/WhiteHouse/status/2064409687563350160"
+    },
+    "x:whitehouse:2064413847599915144": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T18:31:22.075096+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064413847599915144",
+      "platform": "x",
+      "post_id": "2064413847599915144",
+      "published": "2026-06-09T18:26:30+00:00",
+      "title": "A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8 The renovated Reflecting Pool. https://t.co/pk...",
+      "url": "https://x.com/WhiteHouse/status/2064413847599915144"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
