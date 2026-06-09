@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=TP6eZ_At6ec: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=TP6eZ_At6ec! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 500"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9221,6 +9221,17 @@
       "published": "2026-06-08T22:06:58+00:00",
       "title": "With love from NYC",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7649149518528711966"
+    },
+    "tiktok:whitehouse:7649179929812176141": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:51:37.015195+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/09/7649179929812176141",
+      "platform": "tiktok",
+      "post_id": "7649179929812176141",
+      "published": "2026-06-09T00:04:58+00:00",
+      "title": "NEW YORK, STAND UP \ud83d\uddfd",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7649179929812176141"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -114019,6 +114030,17 @@
       "title": "Early Voting is underway in the Great State of Georgia, where Highly Respected, and very p...",
       "url": "https://truthsocial.com/@realDonaldTrump/116716969487041954"
     },
+    "truthsocial:realdonaldtrump:116717401257605983": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:51:26.946920+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116717401257605983",
+      "platform": "truthsocial",
+      "post_id": "116717401257605983",
+      "published": "2026-06-09T00:50:05.777000+00:00",
+      "title": "Truth Social post 116717401257605983",
+      "url": "https://truthsocial.com/@realDonaldTrump/116717401257605983"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -121433,6 +121455,28 @@
       "title": "70% of criminal illegal aliens arrested by @ICEgov have criminal records in the U.S. State...",
       "url": "https://x.com/DHSgov/status/2064121795519598839"
     },
+    "x:dhsgov:2064142154981675493": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:10.257273+00:00",
+      "path": "X/DHSgov/2026/06/09/2064142154981675493",
+      "platform": "x",
+      "post_id": "2064142154981675493",
+      "published": "2026-06-09T00:26:54+00:00",
+      "title": "AMERICAN HERO. In April, @CBP Port of Detroit officer Sergiu Botezan was walking his dog w...",
+      "url": "https://x.com/DHSgov/status/2064142154981675493"
+    },
+    "x:dhsgov:2064158529020137748": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:10.256892+00:00",
+      "path": "X/DHSgov/2026/06/09/2064158529020137748",
+      "platform": "x",
+      "post_id": "2064158529020137748",
+      "published": "2026-06-09T01:31:58+00:00",
+      "title": "\u201cYou\u2019re not going to tell us where we can and cannot enforce our nation\u2019s laws, because we...",
+      "url": "https://x.com/DHSgov/status/2064158529020137748"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -124249,6 +124293,28 @@
       "title": "June 8: Preventing laser strikes during the @FIFAWorldCup Over 11,000 complaints involving...",
       "url": "https://x.com/FBIDirectorKash/status/2064117595318723005"
     },
+    "x:fbidirectorkash:2064153918939312531": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:21.870886+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064153918939312531",
+      "platform": "x",
+      "post_id": "2064153918939312531",
+      "published": "2026-06-09T01:13:39+00:00",
+      "title": "Great to be in Phoenix today addressing the Association of State Criminal Investigative Ag...",
+      "url": "https://x.com/FBIDirectorKash/status/2064153918939312531"
+    },
+    "x:fbidirectorkash:2064180851781374082": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:21.870465+00:00",
+      "path": "X/FBIDirectorKash/2026/06/09/2064180851781374082",
+      "platform": "x",
+      "post_id": "2064180851781374082",
+      "published": "2026-06-09T03:00:40+00:00",
+      "title": "Spent time with our partners the Salt River Pima-Maricopa Indian Community in Arizona outs...",
+      "url": "https://x.com/FBIDirectorKash/status/2064180851781374082"
+    },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
       "content_kind": "repost",
@@ -125381,6 +125447,17 @@
       "published": "2026-06-08T22:05:01+00:00",
       "title": "As millions gather for the #FIFAWorldCup2026, ICE @HSI_HQ special agents from @HSINewark a...",
       "url": "https://x.com/ICEgov/status/2064106451551875205"
+    },
+    "x:icegov:2064151796730278157": {
+      "account": "ICEgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:30.026949+00:00",
+      "path": "X/ICEgov/2026/06/09/2064151796730278157",
+      "platform": "x",
+      "post_id": "2064151796730278157",
+      "published": "2026-06-09T01:05:13+00:00",
+      "title": "ICE @EROPhiladelphia officers took custody of Armando Ortiz-Hernandez an illegal alien fro...",
+      "url": "https://x.com/ICEgov/status/2064151796730278157"
     },
     "x:potus:2052778674726826060": {
       "account": "POTUS",
@@ -127273,6 +127350,50 @@
       "published": "2026-06-08T21:18:14+00:00",
       "title": "Repost of @WhiteHouse: Decline is a choice. Making D.C. safe &amp; beautiful again is too....",
       "url": "https://x.com/POTUS/status/2064094678299853121"
+    },
+    "x:potus:2064136969253216668": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:50:36.167331+00:00",
+      "path": "X/POTUS/2026/06/09/2064136969253216668",
+      "platform": "x",
+      "post_id": "2064136969253216668",
+      "published": "2026-06-09T00:06:17+00:00",
+      "title": "Repost of @WhiteHouse: NEW YORK, STAND UP \ud83d\uddfd https://t.co/0rv6iN8BPT",
+      "url": "https://x.com/POTUS/status/2064136969253216668"
+    },
+    "x:potus:2064137002816090235": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:50:36.167169+00:00",
+      "path": "X/POTUS/2026/06/09/2064137002816090235",
+      "platform": "x",
+      "post_id": "2064137002816090235",
+      "published": "2026-06-09T00:06:25+00:00",
+      "title": "Repost of @WhiteHouse: President Trump's effective tariff policy has made the United State...",
+      "url": "https://x.com/POTUS/status/2064137002816090235"
+    },
+    "x:potus:2064137041193902211": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:50:36.166980+00:00",
+      "path": "X/POTUS/2026/06/09/2064137041193902211",
+      "platform": "x",
+      "post_id": "2064137041193902211",
+      "published": "2026-06-09T00:06:35+00:00",
+      "title": "Repost of @WhiteHouse: Ok, anyways, we fixed the hat for you. Oh, and @POTUS knows ball. h...",
+      "url": "https://x.com/POTUS/status/2064137041193902211"
+    },
+    "x:potus:2064163221410300085": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:50:36.166695+00:00",
+      "path": "X/POTUS/2026/06/09/2064163221410300085",
+      "platform": "x",
+      "post_id": "2064163221410300085",
+      "published": "2026-06-09T01:50:36+00:00",
+      "title": "Repost of @WhiteHouse: Trust. https://t.co/F5y1CLP4Hi",
+      "url": "https://x.com/POTUS/status/2064163221410300085"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -129892,6 +130013,39 @@
       "title": "President Donald J. Trump's motorcade arrives at Madison Square Garden in New York City ah...",
       "url": "https://x.com/RapidResponse47/status/2064130874296188942"
     },
+    "x:rapidresponse47:2064138139153612809": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:51.813948+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064138139153612809",
+      "platform": "x",
+      "post_id": "2064138139153612809",
+      "published": "2026-06-09T00:10:56+00:00",
+      "title": ".@NBA Commissioner Adam Silver: President Trump was a fixture at Madison Square Garden. He...",
+      "url": "https://x.com/RapidResponse47/status/2064138139153612809"
+    },
+    "x:rapidresponse47:2064158945346752940": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:51.813615+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064158945346752940",
+      "platform": "x",
+      "post_id": "2064158945346752940",
+      "published": "2026-06-09T01:33:37+00:00",
+      "title": "OUR PRESIDENT \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://x.com/RapidResponse47/status/2064158945346752940"
+    },
+    "x:rapidresponse47:2064160374702633197": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:50:51.813325+00:00",
+      "path": "X/RapidResponse47/2026/06/09/2064160374702633197",
+      "platform": "x",
+      "post_id": "2064160374702633197",
+      "published": "2026-06-09T01:39:18+00:00",
+      "title": "\u201cTonight, President Donald Trump becomes the first sitting United States President to atte...",
+      "url": "https://x.com/RapidResponse47/status/2064160374702633197"
+    },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
       "content_kind": "post",
@@ -132289,6 +132443,28 @@
       "published": "2026-06-08T22:11:56+00:00",
       "title": "I\u2019m not surprised you would say something like this, @GovSherrillNJ. On June 8th, I person...",
       "url": "https://x.com/SecMullinDHS/status/2064108190870954241"
+    },
+    "x:secmullindhs:2064163211901812921": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:51:03.660871+00:00",
+      "path": "X/SecMullinDHS/2026/06/09/2064163211901812921",
+      "platform": "x",
+      "post_id": "2064163211901812921",
+      "published": "2026-06-09T01:50:34+00:00",
+      "title": "Repost of @DHSgov: \u201cYou\u2019re not going to tell us where we can and cannot enforce our nation...",
+      "url": "https://x.com/SecMullinDHS/status/2064163211901812921"
+    },
+    "x:secmullindhs:2064163254012608722": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:51:03.660512+00:00",
+      "path": "X/SecMullinDHS/2026/06/09/2064163254012608722",
+      "platform": "x",
+      "post_id": "2064163254012608722",
+      "published": "2026-06-09T01:50:44+00:00",
+      "title": "Repost of @DHSgov: 70% of criminal illegal aliens arrested by @ICEgov have criminal record...",
+      "url": "https://x.com/SecMullinDHS/status/2064163254012608722"
     },
     "x:vp:2000974738076979672": {
       "account": "VP",
@@ -141705,6 +141881,17 @@
       "published": "2026-06-08T23:35:56+00:00",
       "title": "Repost of @SBA_Kelly: Last week in Ohio, SBA announced suspensions for another 27,000 borr...",
       "url": "https://x.com/VP/status/2064129331236904996"
+    },
+    "x:vp:2064146780648829069": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:51:13.316190+00:00",
+      "path": "X/VP/2026/06/09/2064146780648829069",
+      "platform": "x",
+      "post_id": "2064146780648829069",
+      "published": "2026-06-09T00:45:17+00:00",
+      "title": "Repost of @JDVance: I\u2019ve referred these allegations to DOJ\u2019s new Fraud Division for crimin...",
+      "url": "https://x.com/VP/status/2064146780648829069"
     },
     "x:whitehouse:2049578578270912645": {
       "account": "WhiteHouse",
@@ -151594,6 +151781,28 @@
       "published": "2026-06-08T23:29:40+00:00",
       "title": "NEW YORK, STAND UP \ud83d\uddfd https://t.co/0rv6iN8BPT",
       "url": "https://x.com/WhiteHouse/status/2064127751812939988"
+    },
+    "x:whitehouse:2064141130376053044": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-09T03:51:20.393610+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064141130376053044",
+      "platform": "x",
+      "post_id": "2064141130376053044",
+      "published": "2026-06-09T00:22:50+00:00",
+      "title": "Repost of @RapidResponse47: .@NBA Commissioner Adam Silver: President Trump was a fixture ...",
+      "url": "https://x.com/WhiteHouse/status/2064141130376053044"
+    },
+    "x:whitehouse:2064160712025411903": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-09T03:51:20.393307+00:00",
+      "path": "X/WhiteHouse/2026/06/09/2064160712025411903",
+      "platform": "x",
+      "post_id": "2064160712025411903",
+      "published": "2026-06-09T01:40:38+00:00",
+      "title": "Trust. https://t.co/F5y1CLP4Hi",
+      "url": "https://x.com/WhiteHouse/status/2064160712025411903"
     },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
