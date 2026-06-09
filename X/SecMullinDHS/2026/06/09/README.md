@@ -1,7 +1,10 @@
 # X / SecMullinDHS / 2026-06-09
 
-- Posts: 5
+- Posts: 6
 
+- [22:09 UTC - Congratulations to @USCG’s own @Astro_AndreD on his selection for the Artemis III mission....](2064470057481027780/)
+  - Source: https://x.com/SecMullinDHS/status/2064470057481027780
+  - Congratulations to @USCG’s own @Astro_AndreD on his selection for the Artemis III mission. A proud moment for DHS! 🚀🇺🇸
 - [19:49 UTC - The Office of Intelligence and Analysis will be working with local, international, and fed...](2064434631416692995/)
   - Source: https://x.com/SecMullinDHS/status/2064434631416692995
   - The Office of Intelligence and Analysis will be working with local, international, and federal partners to secure the FIFA World Cup. Alongside our other @DHSgov components, they w...

@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-09
 
-- Posts: 6
+- Posts: 7
 
+- [22:10 UTC - William Pulte, who is working closely with Tulsi Gabbard, will be taking over as Acting Di...](116722436233594406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722436233594406
+  - William Pulte, who is working closely with Tulsi Gabbard, will be taking over as Acting Director of National Intelligence on Friday, June 19th. He will remain as Director of the Fe...
 - [21:57 UTC - Record $327.1 Billion Exports Help Shrink U.S. Trade Deficit: [https:// dallasexpress.com/...](116722383986616231/)
   - Source: https://truthsocial.com/@realDonaldTrump/116722383986616231
   - Record $327.1 Billion Exports Help Shrink U.S. Trade Deficit: [https:// dallasexpress.com/national/rec ord-327-1-billion-exports-help-shrink-u-s-trade-deficit-in-april/](https://da...

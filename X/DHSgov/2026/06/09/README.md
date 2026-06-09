@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-09
 
-- Posts: 16
+- Posts: 17
 
+- [22:10 UTC - Repost of @SecMullinDHS: Congratulations to @USCG’s own @Astro_AndreD on his selection for...](2064470169057894455/)
+  - Source: https://x.com/DHSgov/status/2064470169057894455
+  - Repost of @SecMullinDHS: Congratulations to @USCG’s own @Astro_AndreD on his selection for the Artemis III mission. A proud moment for DHS! 🚀🇺🇸
 - [21:56 UTC - American elections belong to the AMERICAN PEOPLE. Illegal voting by aliens undermines our ...](2064466738805158177/)
   - Source: https://x.com/DHSgov/status/2064466738805158177
   - American elections belong to the AMERICAN PEOPLE. Illegal voting by aliens undermines our democracy — and it MUST have consequences. Under the leadership of @POTUS Trump and @SecMu...

@@ -1,7 +1,16 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 45
+- Posts: 48
 
+- [22:57 UTC - "The food supply is completely safe," says @SecRollins on the New World Screwworm, adding ...](2064481949733814503/)
+  - Source: https://x.com/RapidResponse47/status/2064481949733814503
+  - "The food supply is completely safe," says @SecRollins on the New World Screwworm, adding that the calf that marked the first reported case "is now healthy." "We will solve this wi...
+- [22:40 UTC - Repost of @SecVetAffairs: Under President Trump's leadership, Veterans will be able walk i...](2064477827336986729/)
+  - Source: https://x.com/RapidResponse47/status/2064477827336986729
+  - Repost of @SecVetAffairs: Under President Trump's leadership, Veterans will be able walk into any @DeptVetAffairs facility across the country, access their records and receive care...
+- [22:11 UTC - https://t.co/yJQtfVM5Fw](2064470401573363944/)
+  - Source: https://x.com/RapidResponse47/status/2064470401573363944
+  - https://t.co/yJQtfVM5Fw
 - [21:40 UTC - Repost of @SecKennedy: HHS has requested a review of allegations involving @CAIRNational a...](2064462631629369405/)
   - Source: https://x.com/RapidResponse47/status/2064462631629369405
   - Repost of @SecKennedy: HHS has requested a review of allegations involving @CAIRNational and its affiliates @CAIRCalifornia and @CAIRWashington regarding the use of federal grant f...

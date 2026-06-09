@@ -1,6 +1,273 @@
 {
-  "generatedAt": "2026-06-09T22:10:27.576813+00:00",
+  "generatedAt": "2026-06-09T23:46:34.072554+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:7b671f097da62cff",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T23:43:35.643463+00:00",
+        "datePublished": "2026-06-09T23:24:06+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064488738235789785"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064488738235789785/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064488738235789785/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064488738235789785",
+      "summary": "Repost of @SecretaryTurner:",
+      "title": "Repost of @SecretaryTurner: The American Dream is owning the dirt beneath your feet so no ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:59373cafffcc4c0e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T23:43:35.643643+00:00",
+        "datePublished": "2026-06-09T23:23:49+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064435295655784448.jpg",
+            "remotePath": "archive/x/whitehouse/HKZY9qtXcAAq4d3.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZY9qtXcAAq4d3.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZY9qtXcAAq4d3.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064435295655784448.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZY9qtXcAAq4d3.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064488667154956768"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064488667154956768/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064488667154956768/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064488667154956768",
+      "summary": "Repost of @FIFAWorldCup:",
+      "title": "Repost of @FIFAWorldCup: \ud83c\udfc6\u2728 #FIFAWorldCup https://t.co/xNMKrd0h1R"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:1bf0695c1e854998",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T23:43:10.524405+00:00",
+        "datePublished": "2026-06-09T22:57:07+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064480349892096000.mp4",
+            "remotePath": "archive/x/rapidresponse47/KVcTzKN_3F24PK5i.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064480349892096000/vid/avc1/1280x720/KVcTzKN_3F24PK5i.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/KVcTzKN_3F24PK5i.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064480349892096000.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/KVcTzKN_3F24PK5i.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064481949733814503"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064481949733814503/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064481949733814503/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064481949733814503",
+      "summary": "\"The food supply is completely safe,\" says @SecRollins on the New World Screwworm, adding that the calf that marked the first reported case \"is now healthy.\"",
+      "title": "\"The food supply is completely safe,\" says @SecRollins on the New World Screwworm, adding ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:084ed1a2189066d6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T23:43:10.524726+00:00",
+        "datePublished": "2026-06-09T22:40:44+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064457493430902784.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZtJv3XoAAXnZA.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZtJv3XoAAXnZA.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZtJv3XoAAXnZA.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064457493430902784.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZtJv3XoAAXnZA.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064477827336986729"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064477827336986729/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064477827336986729/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064477827336986729",
+      "summary": "Repost of @SecVetAffairs:",
+      "title": "Repost of @SecVetAffairs: Under President Trump's leadership, Veterans will be able walk i..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b6eaa9217e30b6b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T23:42:52.305749+00:00",
+        "datePublished": "2026-06-09T22:35:01+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064475211408236544.mp4",
+            "remotePath": "archive/x/icegov/ON_-4_DOOHHqgp9a.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2064475211408236544/pu/vid/avc1/1280x720/ON_-4_DOOHHqgp9a.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/icegov/ON_-4_DOOHHqgp9a.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064475211408236544.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/ON_-4_DOOHHqgp9a.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064476388237676648"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064476388237676648/README.md",
+      "path": "X/ICEgov/2026/06/09/2064476388237676648/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064476388237676648",
+      "summary": "ICE @ERONewOrleans officers arrested Gabriel Maror Ayuel, a criminal illegal alien from Sudan, in Nashville on May 5.",
+      "title": "ICE @ERONewOrleans officers arrested Gabriel Maror Ayuel, a criminal illegal alien from Su..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:35c95324dcd094fb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T23:43:10.525064+00:00",
+        "datePublished": "2026-06-09T22:11:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064470398477967360.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZ4466WoAAj5dM.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZ4466WoAAj5dM.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZ4466WoAAj5dM.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064470398477967360.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZ4466WoAAj5dM.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064470401573363944"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064470401573363944/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064470401573363944/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064470401573363944",
+      "summary": "https://t.co/yJQtfVM5Fw",
+      "title": "https://t.co/yJQtfVM5Fw"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-09",
+      "id": "socials:b4cd8f5964617fcf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T23:43:41.682358+00:00",
+        "datePublished": "2026-06-09T22:10:33.349000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116722436233594406"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/09/116722436233594406/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/09/116722436233594406/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116722436233594406",
+      "summary": "William Pulte, who is working closely with Tulsi Gabbard, will be taking over as Acting Director of National Intelligence on Friday, June 19th. He will remain as Director of the Federal Housing Finance Agency, and Chairman of Fannie Mae/Freddie Mac. Thank you for your attention t",
+      "title": "William Pulte, who is working closely with Tulsi Gabbard, will be taking over as Acting Di..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:da872c51f6109afc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T23:42:38.181819+00:00",
+        "datePublished": "2026-06-09T22:10:18+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064470169057894455"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064470169057894455/README.md",
+      "path": "X/DHSgov/2026/06/09/2064470169057894455/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064470169057894455",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Congratulations to @USCG\u2019s own @Astro_AndreD on his selection for..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5b3f70f4c5411c7f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T23:43:23.411502+00:00",
+        "datePublished": "2026-06-09T22:09:52+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064470057481027780"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/09/2064470057481027780/README.md",
+      "path": "X/SecMullinDHS/2026/06/09/2064470057481027780/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064470057481027780",
+      "summary": "Congratulations to @USCG\u2019s own @Astro_AndreD on his selection for the Artemis III mission.",
+      "title": "Congratulations to @USCG\u2019s own @Astro_AndreD on his selection for the Artemis III mission...."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-09",

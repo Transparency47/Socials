@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-09
 
-- Posts: 24
+- Posts: 26
 
+- [23:24 UTC - Repost of @SecretaryTurner: The American Dream is owning the dirt beneath your feet so no ...](2064488738235789785/)
+  - Source: https://x.com/WhiteHouse/status/2064488738235789785
+  - Repost of @SecretaryTurner: The American Dream is owning the dirt beneath your feet so no man can take it away from you. The Trump Administration is restoring America as a nation o...
+- [23:23 UTC - Repost of @FIFAWorldCup: 🏆✨ #FIFAWorldCup https://t.co/xNMKrd0h1R](2064488667154956768/)
+  - Source: https://x.com/WhiteHouse/status/2064488667154956768
+  - Repost of @FIFAWorldCup: 🏆✨
 - [21:27 UTC - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense str...](2064459279432601728/)
   - Source: https://x.com/WhiteHouse/status/2064459279432601728
   - Repost of @CENTCOM: U.S. Central Command (CENTCOM) forces began launching self-defense strikes against Iran at 5 p.m. ET today at the Commander in Chief’s direction, in response to...

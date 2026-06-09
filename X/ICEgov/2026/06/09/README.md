@@ -1,7 +1,10 @@
 # X / ICEgov / 2026-06-09
 
-- Posts: 8
+- Posts: 9
 
+- [22:35 UTC - ICE @ERONewOrleans officers arrested Gabriel Maror Ayuel, a criminal illegal alien from Su...](2064476388237676648/)
+  - Source: https://x.com/ICEgov/status/2064476388237676648
+  - ICE @ERONewOrleans officers arrested Gabriel Maror Ayuel, a criminal illegal alien from Sudan, in Nashville on May 5. Ayuel, 55, was convicted of first-degree attempted murder in D...
 - [21:33 UTC - Are you the next caller? We hope not, but our trained Victims of Immigration Crime Engagem...](2064460807866368118/)
   - Source: https://x.com/ICEgov/status/2064460807866368118
   - Are you the next caller? We hope not, but our trained Victims of Immigration Crime Engagement Office experts are ready to help should you be the next unfortunate victim of an immig...
