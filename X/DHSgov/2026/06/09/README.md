@@ -1,7 +1,10 @@
 # X / DHSgov / 2026-06-09
 
-- Posts: 2
+- Posts: 3
 
+- [12:56 UTC - Repost of @SecMullinDHS: Best of the best.](2064330755589734830/)
+  - Source: https://x.com/DHSgov/status/2064330755589734830
+  - Repost of @SecMullinDHS: Best of the best.
 - [01:31 UTC - “You’re not going to tell us where we can and cannot enforce our nation’s laws, because we...](2064158529020137748/)
   - Source: https://x.com/DHSgov/status/2064158529020137748
   - “You’re not going to tell us where we can and cannot enforce our nation’s laws, because we are not picking and choosing which laws we enforce. We enforce the laws that Congress pas...

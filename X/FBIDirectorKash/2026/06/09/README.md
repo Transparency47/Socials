@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 3
+- Posts: 4
 
+- [12:57 UTC - "The FBI is committed to making American cities safe again!" If you wish to bring harm on ...](2064330967712415965/)
+  - Source: https://x.com/FBIDirectorKash/status/2064330967712415965
+  - "The FBI is committed to making American cities safe again!" If you wish to bring harm on Americans we WILL find you, and we WILL bring you to justice! https://t.co/NKPYIlgWAS
 - [04:03 UTC - Repost of @DAGToddBlanche: Chairmen Cotton and Grassley are right.  FISA 702 is one of our...](2064196572368478305/)
   - Source: https://x.com/FBIDirectorKash/status/2064196572368478305
   - Repost of @DAGToddBlanche: Chairmen Cotton and Grassley are right.  FISA 702 is one of our nation’s key tools for finding and stopping foreign terrorists.  Both Republican and Demo...

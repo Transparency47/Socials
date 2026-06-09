@@ -1,0 +1,438 @@
+<!-- source: https://www.youtube.com/watch?v=6ZTM1ZPcXko -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6ZTM1ZPcXko -->
+<!-- date_published: 2026-06-09T12:47:43+00:00 -->
+<!-- date_accessed: 2026-06-09T13:42:57.774902+00:00 -->
+
+# Transcript: President Trump Gaggles with Press Upon Departure from Queens, NY, Jun. 9, 2026
+
+- [00:00.560] Hello everybody.
+- [00:02.800] >> Well, the game was fantastic. Well
+- [00:04.560] played by both teams. We all had a lot
+- [00:07.440] of fun. It was great to watch. Very
+- [00:09.920] talented players. We have uh ongoing
+- [00:13.519] negotiations in Iran and with Iran that
+- [00:17.600] that hasn't stopped
+- [00:19.920] and we could have
+- [00:22.320] at least an idea by one or two days from
+- [00:24.880] now. But I think it's going well.
+- [00:28.160] The blockade continues to hold 100%.
+- [00:31.519] Nothing is getting through our blockade.
+- [00:33.520] No oil, no income, no nothing. Nothing's
+- [00:36.800] getting through the blockade. Uh we have
+- [00:39.200] our great secretary of the interior and
+- [00:41.040] we have Lee Zelda, as you know,
+- [00:43.680] environment. And uh you might give him a
+- [00:46.480] little update on what we're doing with a
+- [00:48.719] few different things as long as we're
+- [00:50.160] here with the news with the media. See,
+- [00:52.800] I'm being very nice tonight. the media
+- [00:55.760] uh
+- [00:57.360] in California. I hear they speeded the
+- [00:59.600] process up a little bit and they had a
+- [01:02.239] good result, one good result out of two.
+- [01:04.960] Uh Doug, would you like to say a couple
+- [01:06.400] of words? Well, I I would just say uh on
+- [01:09.439] the Middle East, uh President Trump has
+- [01:11.520] all the leverage that I'm confident
+- [01:13.040] we're going to come out of this with a
+- [01:14.240] great deal. uh in terms of uh getting
+- [01:17.040] ready for the spectacular celebration of
+- [01:20.240] our amazing country, our 250th with
+- [01:22.799] President Trump's uh safe and beautiful
+- [01:25.119] in DC. Uh what's been accomplished. Uh
+- [01:28.080] want to give a shout out to everybody
+- [01:29.920] that works for the National Park, the US
+- [01:31.680] Park Police. Uh but you know, cleaning
+- [01:34.159] up dozens and dozens of monuments,
+- [01:36.400] dozens of fountains back working again.
+- [01:38.240] The reflecting pool, which you've all
+- [01:39.759] known, is uh near completion. is going
+- [01:42.159] to be ready before the uh uh the UFC
+- [01:44.960] event at the end of this week. So,
+- [01:47.040] everything's going great on that front.
+- [01:48.560] The city's never never looked better.
+- [01:50.880] And uh and President Trump, I think
+- [01:52.560] you've said you've got you called them
+- [01:54.399] love letters. You've got more love
+- [01:55.680] letters on on about the fountains and
+- [01:58.159] the beauty of the city than ever before.
+- [02:00.399] But how fitting as we go into our 250th
+- [02:02.799] that President Trump personally getting
+- [02:04.960] involved in making sure uh that our
+- [02:07.280] capital reflects the greatness of our
+- [02:09.360] country because it's not
+- [02:11.599] Decline is decline is a choice. And
+- [02:13.840] President Trump Trump has shown a
+- [02:16.319] blueprint for every American city, every
+- [02:18.879] mayor in this country that's got a large
+- [02:21.280] metro, that's got a homeless problem,
+- [02:23.200] that's got a graffiti problem, it's got
+- [02:24.640] a crime problem, he's played out a
+- [02:26.560] blueprint of how you solve that. Uh, and
+- [02:28.959] that's the real le that's the real
+- [02:30.480] lesson here.
+- [02:32.400] But and I have to tell you that the main
+- [02:34.959] thing is there's very little crime now
+- [02:37.440] in DC. It was a it was a crime haven a
+- [02:41.280] year and a half ago. Very little crime.
+- [02:43.680] Uh soon I think it'll be almost no crime
+- [02:46.879] whatsoever. So I want to thank really
+- [02:49.599] the National Guard, the DC police. We
+- [02:51.920] work very closely with them and uh we
+- [02:56.080] they do as we ask and they've been
+- [02:58.319] terrific. Really terrific. And we have
+- [03:00.800] very very little crime. Also Memphis and
+- [03:03.680] if you look at New Orleans and
+- [03:05.440] Louisiana, they're down 77%.
+- [03:08.560] Memphis is down 74%.
+- [03:11.360] And I would say DC is down 95%.
+- [03:15.040] DC has become very safe and very
+- [03:17.440] beautiful. The grass is new. Much of the
+- [03:20.000] grass, you know, grass has a life just
+- [03:22.400] like a human being has a life. And it
+- [03:24.239] hadn't been changed in a hundred years.
+- [03:26.560] But you see there's nobody sleeping on
+- [03:28.480] the beautiful parks. the wire and fences
+- [03:32.080] are all taken down and DC is very safe
+- [03:34.879] and it's also become very beautiful the
+- [03:37.519] uh reflective lake as we call it the
+- [03:40.879] reflective beautiful reflective lake I
+- [03:43.280] mean it's like a mirror and that's
+- [03:45.440] filling up now still filling up and the
+- [03:48.480] work and we increased the scope quite a
+- [03:50.480] bit we've taken care of now all of the
+- [03:53.440] sidewalk and everything around the lake
+- [03:55.920] because we have to bring it into the
+- [03:57.360] same shape and a lot of it's granite we
+- [03:59.519] sand blast It looks beautiful. And we
+- [04:01.760] had 22 uh different fountains, all of
+- [04:05.760] which didn't work for 40 or 50 years.
+- [04:08.879] They were loaded up with graffiti and
+- [04:11.200] because of the Department of Interior
+- [04:13.200] working with me and some other people
+- [04:14.720] that are into it. We're just we want to
+- [04:17.199] beautify. We have one of the most
+- [04:19.040] beautiful capitals in the world and uh
+- [04:21.759] doing a really good job. So, of the 22,
+- [04:24.880] not one of them worked for 40 or 50
+- [04:27.040] years. Now, every one of the 22 work and
+- [04:30.320] I think we have a couple of more to go.
+- [04:31.840] No,
+- [04:32.880] >> we're doing ribbon cutings uh almost uh
+- [04:35.440] every other day and uh fabulous to see
+- [04:38.320] all these coming back online. But what's
+- [04:40.080] most exciting is to see how much the
+- [04:42.400] people that live in Washington DC and
+- [04:44.240] visit Washington DC love coming to a
+- [04:46.479] safe and beautiful city. And I think it
+- [04:48.560] really reflects uh uh what we're
+- [04:50.720] celebrating here at our 250 is not just
+- [04:53.280] gratitude for the past uh and and
+- [04:56.720] respect for all that's gone before us,
+- [04:58.320] but it's inspiration for the future.
+- [04:59.919] People come and see what America can be.
+- [05:02.400] You know, it's a little bit just sitting
+- [05:04.080] here talking or standing here and
+- [05:05.680] talking to you. And we have a lot of
+- [05:08.000] respect for a lot of the people before
+- [05:10.320] me. I know some of you very well. But
+- [05:12.720] take a look at that plane. See that
+- [05:14.639] plane? That's in perfect mint condition.
+- [05:18.000] Take a look at that. Look at that. Isn't
+- [05:19.520] that amazing? And everything should look
+- [05:22.800] that way. We work with the military. We
+- [05:24.720] do a real job. But you look at the
+- [05:26.880] polish. Look at the way everything is
+- [05:28.960] beautiful. And that's the way we want
+- [05:31.280] DC. And some people would laugh or smile
+- [05:34.000] at it, but there's nothing to smile at.
+- [05:36.160] So DC's become really safe and really,
+- [05:39.440] really beautiful. And we have some great
+- [05:41.199] things planned like the prominade. We've
+- [05:43.600] got a prominade at the Lincoln Museum at
+- [05:47.039] at Lincoln and and you have to see this.
+- [05:49.680] This will be one of the most beautiful
+- [05:52.479] thing. The Lincoln Memorial
+- [05:54.800] is going to be unbelievable. It was
+- [05:56.479] supposed to front on the PTOAC and they
+- [05:58.479] built two highways behind it and uh
+- [06:01.440] we're taking care of that by bridging
+- [06:03.199] over the highways. It's going to be
+- [06:04.560] beautiful what they're doing there. So,
+- [06:06.319] we have some really and the ark will be
+- [06:08.720] maybe the greatest thing. I think the
+- [06:10.240] ballroom, but a combination of the
+- [06:12.400] ballroom and the ark will be the two
+- [06:14.800] greatest projects of them all. So, it's
+- [06:16.960] we've got a very we've got a lot of
+- [06:18.880] exciting things happening. Uh getting
+- [06:21.440] back to other things like jobs numbers.
+- [06:24.160] We have record jobs. We have more people
+- [06:26.960] working in the United States today than
+- [06:28.800] at any time in the history of our
+- [06:30.400] country. And uh you see the numbers on
+- [06:33.600] the on the stock exchange. We had just
+- [06:36.000] today 73 records. Yeah,
+- [06:39.600] >> we have 73 new highs. Uh so out of my
+- [06:44.319] short one and a half years, we have
+- [06:48.160] we've had 73 brand new highs on the
+- [06:52.000] various stock exchanges. And that's a
+- [06:54.639] record. Nobody's ever had anything like
+- [06:56.319] that. And that's during a military
+- [06:59.599] conflict. So, you know, pretty amazing.
+- [07:03.039] And even the uh oil and gas, it's lower
+- [07:06.960] during a military conflict than it was
+- [07:10.240] during the Biden administration. And
+- [07:12.880] they didn't have that because to them it
+- [07:15.120] was okay that Iran has a nuclear weapon.
+- [07:18.960] And I say it's not okay. So we the B2
+- [07:22.400] bombers did a big job and a great job.
+- [07:24.720] And uh we have got that in very good
+- [07:27.520] control. They will not have a nuclear
+- [07:29.199] weapon. Okay. Uh could I ask Lee? He's
+- [07:31.599] done an incredible job as you know. Uh
+- [07:34.240] the environment is good and he's
+- [07:37.199] approving more plans than any human
+- [07:40.400] being I think has ever approved anywhere
+- [07:42.560] in the world. We have more factories
+- [07:44.800] going up, car plants, AI plants. Uh we
+- [07:48.319] have about $18 trillion being invested
+- [07:51.520] in the United States, which is a record
+- [07:53.440] by far. There's never been anything like
+- [07:55.120] it. Many, many times more than the last
+- [07:58.160] administration. I won't get into the
+- [07:59.759] numbers. The numbers are astronomical.
+- [08:02.960] But in the history of the world, there
+- [08:05.759] has never been a country that's had 18
+- [08:08.800] trillion dollars invested in it. And
+- [08:11.199] that's in 11 months. The last
+- [08:13.280] administration had much less than1
+- [08:15.520] trillion over a period of four years. We
+- [08:19.199] have 18 trillion in 11 months. We
+- [08:21.520] haven't gotten the final numbers on the
+- [08:23.680] 12 months, which will be very good. Uh
+- [08:25.919] Lee, do you want to say something?
+- [08:27.599] >> Sure. Well, you know, the Spurs, uh,
+- [08:29.759] they have some good players. Wbeyama,
+- [08:32.560] uh, Castle did well tonight, but I I'm
+- [08:35.440] still going with the Knicks. I think
+- [08:36.880] that they're going to pull it off. And,
+- [08:38.399] uh, Mr. President, it was awesome to be
+- [08:40.640] able to spend a night with you. The
+- [08:42.080] energy was amazing. Uh, Tim Dolan was a,
+- [08:45.040] uh, was a great host, but this Knicks
+- [08:47.120] team, I mean, OG Anobi was fantastic.
+- [08:49.839] Jaylen Brunson's Mr. Clutch. They have
+- [08:52.000] great heart. So, uh, I'm feeling good
+- [08:54.880] about how that series is going.
+- [08:56.800] How many games?
+- [08:57.360] >> I'm going Knicks in five. I I feel I
+- [09:00.880] feel like it's a resilient, strong team.
+- [09:03.360] >> He knew every play.
+- [09:04.320] >> They're going to come out for game four
+- [09:06.000] and they are going to deliver
+- [09:07.519] >> game in San Antonio.
+- [09:09.200] >> Oh, I I I don't I don't know. We're busy
+- [09:11.920] uh with a lot of important stuff right
+- [09:13.360] now at EPA like a war.
+- [09:16.000] >> There's there's a lot of important stuff
+- [09:18.160] uh going on, but uh I I I I happen to be
+- [09:20.720] in New York. We were just in Bingington
+- [09:22.959] earlier today where uh we we believe
+- [09:26.560] that we should build a new Constitution
+- [09:28.720] pipeline to deliver natural gas from
+- [09:31.680] Pennsylvania to New England. Uh we
+- [09:34.480] believe that New York should reverse its
+- [09:36.399] ban on the extraction of natural gas.
+- [09:38.000] >> We're getting held up by the governor of
+- [09:39.839] New York. She made a deal with us to
+- [09:42.240] allow us to build it and she's holding
+- [09:44.480] it up. and Connecticut is suffering and
+- [09:47.040] all of New England is suffering and
+- [09:48.800] upstate New York is really suffering and
+- [09:52.240] this is a pipeline that goes very
+- [09:53.920] substantially underground that nobody's
+- [09:55.920] going to see and the people of New
+- [09:57.839] England and others are paying among the
+- [10:00.720] highest prices anywhere in the world
+- [10:03.040] frankly if you look at throughout the
+- [10:04.880] world because you can't get because we
+- [10:07.760] have a governor that just doesn't allow
+- [10:09.920] it. This has gone on for a long time.
+- [10:11.519] And we made a deal with her and she
+- [10:14.399] broke the deal. We made a deal. We're
+- [10:16.000] going to give her a couple of windmills
+- [10:17.360] someplace cuz she likes windmills, which
+- [10:19.760] is a big mistake. And we made the deal.
+- [10:22.240] So, I guess we're withdrawing those
+- [10:24.000] windmills. But she gave us two. One
+- [10:26.399] going out to Long Island, which is now
+- [10:28.160] under construction, and one going to New
+- [10:31.120] England. And the big one going to New
+- [10:33.600] England. The people in New England are
+- [10:35.120] paying a fortune for energy because of
+- [10:37.519] the fact that New York for decades has
+- [10:40.640] stopped the pipeline. So, we made a deal
+- [10:43.120] with the governor and she broke the
+- [10:44.480] deal.
+- [10:44.880] >> Speaking of New York, did you see Mayor
+- [10:46.560] Mom Donnie at the game?
+- [10:48.000] >> I did not. No.
+- [10:49.120] >> What did you think of the reception you
+- [10:50.640] got with the next fans tonight?
+- [10:52.000] >> I thought great. I mean, uh, I thought
+- [10:54.240] it was amazing, actually. You mean when
+- [10:56.000] they had the camera on me? I thought it
+- [10:58.240] was very good. Yeah,
+- [11:00.480] >> it was certainly amazing. It was it was
+- [11:03.120] I think mostly cheers. It was it was
+- [11:06.399] loud and it was very enthusiastic.
+- [11:09.200] >> Mr. President, ESPN commentator Stephen
+- [11:11.360] A. Smith, who has talked about running
+- [11:12.800] for president, said he would blame you
+- [11:14.720] if the Knicks lost the game. How do you
+- [11:16.480] respond to that?
+- [11:17.279] >> Uh, I think he's a nice guy,
+- [11:20.079] but you need a certain aptitude to run
+- [11:22.000] for president. You need a high IQ. I'm
+- [11:24.720] not sure that Steven has that.
+- [11:27.040] >> I don't think he does, actually.
+- [11:28.640] >> Mr. President, what did you say to Prime
+- [11:30.320] Minister Netanyahu when you spoke to
+- [11:31.920] him?
+- [11:32.240] >> We had a very good conversation and he
+- [11:35.040] was hit and he hit back and I can't
+- [11:38.320] blame him for that, but he was hit. He
+- [11:40.800] hit back and now they've called it
+- [11:43.200] quits. So, they're going to just leave
+- [11:45.920] each other alone for another week or
+- [11:48.240] something. It's uh it's been going on
+- [11:52.000] for a long time. You could say about
+- [11:55.120] 3,000 years if you really want, but
+- [11:57.279] certainly it's been going on for 47
+- [11:59.279] years. But uh no, he hit back. They were
+- [12:03.519] going back and forth. And now they both
+- [12:05.279] agreed through me to stop and we're in
+- [12:09.120] the final throws of what will be a very
+- [12:11.279] very good deal that will not allow in
+- [12:13.839] any way, shape, or form nuclear weapons,
+- [12:16.000] etc. It's and the straight will open up
+- [12:18.560] right away. It'll open up immediately
+- [12:20.880] upon signing, which could be in two or
+- [12:22.560] three days.
+- [12:23.040] >> Did you ask in the past?
+- [12:26.000] >> No, I said do what's right, but I want
+- [12:28.560] you to stop as quickly as you can
+- [12:31.760] because they have to stop. It's had to
+- [12:33.680] do with Lebanon and it has to stop. We
+- [12:36.959] want to get it finished.
+- [12:38.399] >> There's a report that an army helicopter
+- [12:40.480] went down on the straight. Can you give
+- [12:42.000] us an update on that? Are the soldiers
+- [12:43.760] okay?
+- [12:44.880] >> Uh the the pilots are fine. Yeah. And
+- [12:48.000] what? Nobody injured it down.
+- [12:50.480] >> Uh we are going to issue a report
+- [12:52.399] tomorrow, but the pilots are fine. Yeah.
+- [12:56.720] >> Sir, did you just say two or three days
+- [12:58.639] or two or 3 weeks that you'd be signing?
+- [13:01.120] You'll be signing a peace agreement.
+- [13:03.040] >> No, we have a good chance of doing it.
+- [13:04.720] We should be able to do it in one hour
+- [13:07.279] if you want to know the truth.
+- [13:08.399] >> The biggest sticking point right now.
+- [13:10.000] >> I don't think there are any sticking
+- [13:11.360] points. I think we're very in we're uh
+- [13:16.079] we're very close to having a very very
+- [13:18.079] good strong powerful deal. Uh if we go
+- [13:21.519] and bomb, which we can do very easily if
+- [13:23.600] we want and we spend another two or
+- [13:26.240] three weeks bombing, they'll have
+- [13:27.519] nothing left whatsoever, but you won't
+- [13:30.160] have the straight open for months. Uh if
+- [13:32.959] we do the bombing, you know, a lot of
+- [13:34.639] people are going to be killed. Who wants
+- [13:35.839] to do that? I don't. and we'll get we'll
+- [13:38.560] have a signed document that's actually
+- [13:40.560] stronger than doing the bombing. What
+- [13:43.120] has proven to be a very powerful thing
+- [13:45.519] is the blockade. The blockades turned
+- [13:48.160] out to be much stronger than bombing and
+- [13:50.880] it was really a combination. It was our
+- [13:52.560] initial thrust and then the blockade.
+- [13:56.000] But uh you know their economy is really
+- [13:58.480] suffering and they're going to make a
+- [14:00.079] deal. in your spirit tonight. Did you
+- [14:02.720] talk about Did you and Jim Poland talk
+- [14:04.639] about the Penn State the Penn Station
+- [14:06.480] project at all?
+- [14:07.600] >> They are talking about it. We're trying
+- [14:09.040] to get the Penn Station project approved
+- [14:13.279] and uh I know Lee's involved and Doug is
+- [14:16.720] involved. A lot of people are involved.
+- [14:18.240] It's a very big project. It's the rail
+- [14:21.279] station in New York.
+- [14:23.279] >> But when we were sitting with Mr. Gwin
+- [14:24.800] tonight, did you and him talk about it
+- [14:26.240] at all or
+- [14:26.959] >> We did. We talked about he's a friend of
+- [14:28.560] mine for a long time and he's a great
+- [14:30.800] guy. He's done a fantastic job.
+- [14:32.959] >> What did you and Adam Silver talk about?
+- [14:34.639] >> He's also at the game tonight.
+- [14:35.760] >> Commissioner Silver.
+- [14:36.639] >> He's not He came over to pay his
+- [14:37.920] respects, you know, as president. He
+- [14:39.680] came over and we talked a little bit
+- [14:42.160] about the NBA and about the game and the
+- [14:45.760] games changed. I said, "It's gotten
+- [14:47.360] rougher," which is a good thing, not a
+- [14:49.760] bad thing. It's gotten rougher when you
+- [14:52.000] look at the way they guard people now. I
+- [14:54.160] don't I don't remember them doing that
+- [14:55.920] 10 years ago. And he knows a lot about
+- [14:58.720] basketball, but it's uh it's good. It's
+- [15:02.240] good for the game.
+- [15:03.040] >> You think the NBA has been away from the
+- [15:04.720] leftwing stuff that they were getting
+- [15:06.240] criticized for?
+- [15:07.680] >> Well, it's a little leftwing, I think.
+- [15:09.600] So, it tends to be a little bit
+- [15:10.880] leftwing, but it was it's great
+- [15:12.800] entertainment. Great.
+- [15:14.320] >> Is there an oil or gasoline price, sir,
+- [15:16.320] in this conflict that would uh prompt
+- [15:18.480] you to release more from the strategic
+- [15:20.480] petroleum reserve? But we are and we are
+- [15:22.399] releasing more from a lot of a lot of
+- [15:24.800] oils coming out of the Hormone Straight.
+- [15:27.680] A lot of it is coming out and if you
+- [15:30.160] notice the price is not very high
+- [15:32.720] relatively speaking. I mean it's lower
+- [15:34.959] than during the Biden administration and
+- [15:37.360] he wasn't stopping a country from having
+- [15:39.279] a nuclear weapon. He didn't even know
+- [15:41.040] what we were talking about because they
+- [15:43.920] had a very failed you know the JCPOA was
+- [15:46.800] an absolutely failed agreement. It was a
+- [15:50.000] road to a nuclear weapon. See, we're the
+- [15:52.000] exact opposite. We are a road to
+- [15:54.480] absolutely no nuclear weapon. They were
+- [15:57.360] a road to a nuclear weapon. So, we have
+- [16:00.480] that uh you know, we're very far
+- [16:02.639] advanced.
+- [16:03.680] >> So, a federal judge today struck down
+- [16:06.000] the $100,000 fee for the H1B visas,
+- [16:09.279] saying you need congressional approval.
+- [16:10.880] Are you going to push for Congress to do
+- [16:12.399] this?
+- [16:14.560] >> These federal judges are really giving
+- [16:17.040] us a hard time. It's really crazy what's
+- [16:20.480] going on with the court system. They are
+- [16:22.560] giving us a very, very hard time and
+- [16:25.360] they shouldn't be doing it. They're
+- [16:26.399] hurting our country very badly. Thank
+- [16:28.160] you very much everybody. Thank you.
+- [16:30.880] >> Did you see any players?

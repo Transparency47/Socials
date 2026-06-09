@@ -1,7 +1,40 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 3
+- Posts: 14
 
+- [13:10 UTC - .@POTUS on his call with PM Netanyahu: "I said, 'Do what's right, but I want you to stop a...](2064334306542002357/)
+  - Source: https://x.com/RapidResponse47/status/2064334306542002357
+  - .@POTUS on his call with PM Netanyahu: "I said, 'Do what's right, but I want you to stop as quickly as you can' — because they have to stop. This had to do with Lebanon, and it has...
+- [13:09 UTC - "NASA is describing this as one of the most complex missions ever." An update on Artemis I...](2064333952739918053/)
+  - Source: https://x.com/RapidResponse47/status/2064333952739918053
+  - "NASA is describing this as one of the most complex missions ever." An update on Artemis III coming shortly 👀🚀 https://t.co/kk8GQU1ZCs
+- [13:04 UTC - Repost of @StevenCheung47: It’s 12:35am and President Trump is still going strong, holding...](2064332897092276376/)
+  - Source: https://x.com/RapidResponse47/status/2064332897092276376
+  - Repost of @StevenCheung47: It’s 12:35am and President Trump is still going strong, holding a lengthy press gaggle in front of Air Force One. The energy is unmatched 🔋 https://t.co/...
+- [13:03 UTC - .@epaleezeldin on the Constitution Pipeline: "We believe that New York should reverse its ...](2064332593252749392/)
+  - Source: https://x.com/RapidResponse47/status/2064332593252749392
+  - .@epaleezeldin on the Constitution Pipeline: "We believe that New York should reverse its ban on the extraction of natural gas." @POTUS: "We're getting held up by the Governor of N...
+- [13:00 UTC - .@POTUS on @stephenasmith: "I think he's a nice guy, but you need a certain aptitude to ru...](2064331836075974961/)
+  - Source: https://x.com/RapidResponse47/status/2064331836075974961
+  - .@POTUS on @stephenasmith: "I think he's a nice guy, but you need a certain aptitude to run for president. You need a high IQ. I'm not sure that Stephen has that. I don't think he...
+- [12:58 UTC - .@POTUS: "@epaleezeldin's done an incredible job. The environment is good and he's approvi...](2064331379022705017/)
+  - Source: https://x.com/RapidResponse47/status/2064331379022705017
+  - .@POTUS: "@epaleezeldin's done an incredible job. The environment is good and he's approving more plans than any human being I think has ever approved anywhere in the world. We hav...
+- [12:55 UTC - .@DrOzCMS on requiring able-bodied individuals without dependents to either work or volunt...](2064330431667773804/)
+  - Source: https://x.com/RapidResponse47/status/2064330431667773804
+  - .@DrOzCMS on requiring able-bodied individuals without dependents to either work or volunteer part-time in order to receive Medicaid: "America does best when it works — and its peo...
+- [12:49 UTC - .@POTUS: "We have more people working in the United States today than at any time in the h...](2064329000843948157/)
+  - Source: https://x.com/RapidResponse47/status/2064329000843948157
+  - .@POTUS: "We have more people working in the United States today than at any time in the history of our country... out of my short 1.5 years, we've had 73 brand new highs on the va...
+- [12:43 UTC - .@POTUS: "See that plane? That's in perfect, mint condition... Everything should look that...](2064327530895622633/)
+  - Source: https://x.com/RapidResponse47/status/2064327530895622633
+  - .@POTUS: "See that plane? That's in perfect, mint condition... Everything should look that way. We work with the military; we do a real job. Look at the polish. Look at the way eve...
+- [12:40 UTC - .@SecretaryBurgum: "How fitting, as we go into our 250th, that President Trump is personal...](2064326716361740433/)
+  - Source: https://x.com/RapidResponse47/status/2064326716361740433
+  - .@SecretaryBurgum: "How fitting, as we go into our 250th, that President Trump is personally getting involved and making sure that our capital reflects the greatness of our country...
+- [12:32 UTC - .@USTradeRep Ambassador Greer on proposing new tariffs under Section 301: "We have all of ...](2064324742262178041/)
+  - Source: https://x.com/RapidResponse47/status/2064324742262178041
+  - .@USTradeRep Ambassador Greer on proposing new tariffs under Section 301: "We have all of these countries in the world that allow goods made with forced labor into their countries....
 - [01:39 UTC - “Tonight, President Donald Trump becomes the first sitting United States President to atte...](2064160374702633197/)
   - Source: https://x.com/RapidResponse47/status/2064160374702633197
   - “Tonight, President Donald Trump becomes the first sitting United States President to attend an NBA Finals game.” 🏀 https://t.co/JLbvJ88nnx

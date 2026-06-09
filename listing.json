@@ -1,6 +1,705 @@
 {
-  "generatedAt": "2026-06-09T10:52:14.320612+00:00",
+  "generatedAt": "2026-06-09T13:43:58.132621+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:1f0794383b1d3de7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:42:22.992717+00:00",
+        "datePublished": "2026-06-09T13:22:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064337103979249664.jpg",
+            "remotePath": "archive/x/whitehouse/HKX_qKNXgAAzKvz.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKX_qKNXgAAzKvz.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKX_qKNXgAAzKvz.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064337103979249664.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKX_qKNXgAAzKvz.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064337266114232415"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064337266114232415/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064337266114232415/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064337266114232415",
+      "summary": "FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25",
+      "title": "FIGHT WEEK. \ud83c\uddfa\ud83c\uddf8\ud83d\udd25 History in the making. June 14th. https://t.co/McQie7vpmZ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:268446ec55c3748e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:42:22.993109+00:00",
+        "datePublished": "2026-06-09T13:18:30+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064275546620698624.mp4",
+            "remotePath": "archive/x/whitehouse/ezJ3GRrxLIXbGimL.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064275546620698624/vid/avc1/1920x1080/ezJ3GRrxLIXbGimL.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/ezJ3GRrxLIXbGimL.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064275546620698624.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/ezJ3GRrxLIXbGimL.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064336333900832975"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064336333900832975/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064336333900832975/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064336333900832975",
+      "summary": "Repost of @SecretaryTurner:",
+      "title": "Repost of @SecretaryTurner: Homeownership makes stronger families, stronger communities, a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:fb5037e9cb1b7a04",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:42:22.993495+00:00",
+        "datePublished": "2026-06-09T13:18:14+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064324903860310016.mp4",
+            "remotePath": "archive/x/whitehouse/3myTt2CGM7rq38qi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064324903860310016/vid/avc1/1920x1080/3myTt2CGM7rq38qi.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/3myTt2CGM7rq38qi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064324903860310016.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/3myTt2CGM7rq38qi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064336269996355673"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064336269996355673/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064336269996355673/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064336269996355673",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@SecretaryBurgum: \"How fitting, as we go into our 250th, that..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:e296b57c82610f32",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:42:22.993909+00:00",
+        "datePublished": "2026-06-09T13:17:58+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064331325201367040.jpg",
+            "remotePath": "archive/x/whitehouse/HKX6ZylWwAAwXyI.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKX6ZylWwAAwXyI.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKX6ZylWwAAwXyI.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064331325201367040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKX6ZylWwAAwXyI.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064336200098304410"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064336200098304410/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064336200098304410/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064336200098304410",
+      "summary": "Repost of @CDCgov:",
+      "title": "Repost of @CDCgov: \u26bd Through close collaboration and proactive planning, CDC has helped Se..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:8da59cdf0508cc15",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:42:22.994248+00:00",
+        "datePublished": "2026-06-09T13:17:51+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064335917406367745.mp4",
+            "remotePath": "archive/x/whitehouse/MrIagHN8qOR7NoEf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064335917406367745/vid/avc1/1206x676/MrIagHN8qOR7NoEf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/MrIagHN8qOR7NoEf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064335917406367745.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/MrIagHN8qOR7NoEf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064336170146750911"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064336170146750911/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064336170146750911/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064336170146750911",
+      "summary": "Repost of @USTradeRep:",
+      "title": "Repost of @USTradeRep: The United States cut its trade deficit in goods with China by more..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:d10420bd47eaf3a6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.939855+00:00",
+        "datePublished": "2026-06-09T13:10:26+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064333648728371200.mp4",
+            "remotePath": "archive/x/rapidresponse47/CCVbiuzb-NLvTYq.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064333648728371200/vid/avc1/1920x1080/CCVbiuzb-NLvTYq-.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/CCVbiuzb-NLvTYq.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064333648728371200.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/CCVbiuzb-NLvTYq.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064334306542002357"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064334306542002357/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064334306542002357/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064334306542002357",
+      "summary": ".@POTUS on his call with PM Netanyahu: \"I said, 'Do what's right, but I want you to stop as quickly as you can' \u2014 because they have to stop. This had to do with Lebanon, and it has to stop. We want to get it finished.\" https://t.co/EUwBMidUKN",
+      "title": ".@POTUS on his call with PM Netanyahu: \"I said, 'Do what's right, but I want you to stop a..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f3d5b3e8ccc5d827",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.940234+00:00",
+        "datePublished": "2026-06-09T13:09:02+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064332948132782080.mp4",
+            "remotePath": "archive/x/rapidresponse47/eXYldzYnRRnHym-W.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064332948132782080/vid/avc1/1280x720/eXYldzYnRRnHym-W.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/eXYldzYnRRnHym-W.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064332948132782080.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/eXYldzYnRRnHym-W.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064333952739918053"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064333952739918053/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064333952739918053/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064333952739918053",
+      "summary": "\"NASA is describing this as one of the most complex missions ever.\"",
+      "title": "\"NASA is describing this as one of the most complex missions ever.\" An update on Artemis I..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:f049c80cc4ce5757",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:03.410881+00:00",
+        "datePublished": "2026-06-09T13:05:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064332998099554304.png",
+            "remotePath": "archive/x/icegov/HKX77KnXUAAt9XK.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKX77KnXUAAt9XK.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKX77KnXUAAt9XK.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064332998099554304.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKX77KnXUAAt9XK.png"
+        ],
+        "platform": "X",
+        "postId": "2064333000221847710"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064333000221847710/README.md",
+      "path": "X/ICEgov/2026/06/09/2064333000221847710/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064333000221847710",
+      "summary": "ICE @EROBoston arrested Jose Luis Carmarena-Pena, of Mexico, at the Hillsborough County Department of Corrections in New Hampshire after he was released from custody.",
+      "title": "ICE @EROBoston arrested Jose Luis Carmarena-Pena, of Mexico, at the Hillsborough County De..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:b85d9c6ffb184aa5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:41:26.940593+00:00",
+        "datePublished": "2026-06-09T13:04:50+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064207489009172480.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKWJxk0XwAAyLYh.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKWJxk0XwAAyLYh.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKWJxk0XwAAyLYh.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064207489009172480.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKWJxk0XwAAyLYh.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064332897092276376"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064332897092276376/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064332897092276376/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064332897092276376",
+      "summary": "Repost of @StevenCheung47:",
+      "title": "Repost of @StevenCheung47: It\u2019s 12:35am and President Trump is still going strong, holding..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a136ac0abb511a9a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.940935+00:00",
+        "datePublished": "2026-06-09T13:03:38+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064332525594394624.mp4",
+            "remotePath": "archive/x/rapidresponse47/B15ek9OsU-ZXn9IC.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064332525594394624/vid/avc1/1920x1080/B15ek9OsU-ZXn9IC.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/B15ek9OsU-ZXn9IC.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064332525594394624.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/B15ek9OsU-ZXn9IC.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064332593252749392"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064332593252749392/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064332593252749392/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064332593252749392",
+      "summary": ".@epaleezeldin on the Constitution Pipeline: \"We believe that New York should reverse its ban on the extraction of natural gas.\"",
+      "title": ".@epaleezeldin on the Constitution Pipeline: \"We believe that New York should reverse its ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:99dd0d05a222f486",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.941274+00:00",
+        "datePublished": "2026-06-09T13:00:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064331500502286336.mp4",
+            "remotePath": "archive/x/rapidresponse47/hx-PTqC7HA0VHMHf.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064331500502286336/vid/avc1/1920x1080/hx-PTqC7HA0VHMHf.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/hx-PTqC7HA0VHMHf.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064331500502286336.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/hx-PTqC7HA0VHMHf.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064331836075974961"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064331836075974961/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064331836075974961/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064331836075974961",
+      "summary": ".@POTUS on @stephenasmith: \"I think he's a nice guy, but you need a certain aptitude to run for president. You need a high IQ. I'm not sure that Stephen has that. I don't think he does, actually.\" \ud83e\udd23 https://t.co/VmsjwSsoAf",
+      "title": ".@POTUS on @stephenasmith: \"I think he's a nice guy, but you need a certain aptitude to ru..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:787fcf7707b0a5fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.941631+00:00",
+        "datePublished": "2026-06-09T12:58:48+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064328679421878272.mp4",
+            "remotePath": "archive/x/rapidresponse47/VXLqYLjfnCO-0ZSG.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064328679421878272/vid/avc1/1920x1080/VXLqYLjfnCO-0ZSG.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VXLqYLjfnCO-0ZSG.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064328679421878272.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VXLqYLjfnCO-0ZSG.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064331379022705017"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064331379022705017/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064331379022705017/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064331379022705017",
+      "summary": ".@POTUS: \"@epaleezeldin's done an incredible job. The environment is good and he's approving more plans than any human being I think has ever approved anywhere in the world. We have more factories going up... $18T being invested in the United States, which is a record, by far.\" h",
+      "title": ".@POTUS: \"@epaleezeldin's done an incredible job. The environment is good and he's approvi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:dd179a8f0913ed1d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:40:51.664222+00:00",
+        "datePublished": "2026-06-09T12:57:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064330900356083712.mp4",
+            "remotePath": "archive/x/fbidirectorkash/0NjpTCYV531a8ZNU.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064330900356083712/vid/avc1/1280x720/0NjpTCYV531a8ZNU.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/0NjpTCYV531a8ZNU.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064330900356083712.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/0NjpTCYV531a8ZNU.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064330967712415965"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064330967712415965/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064330967712415965/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064330967712415965",
+      "summary": "\"The FBI is committed to making American cities safe again!\"",
+      "title": "\"The FBI is committed to making American cities safe again!\" If you wish to bring harm on ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:117032bc636bcfda",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T13:40:42.064550+00:00",
+        "datePublished": "2026-06-09T12:56:20+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064330755589734830"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064330755589734830/README.md",
+      "path": "X/DHSgov/2026/06/09/2064330755589734830/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064330755589734830",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Best of the best."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:ba55f407b5b1acba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:42:06.111735+00:00",
+        "datePublished": "2026-06-09T12:55:57+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064330658495807656"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/09/2064330658495807656/README.md",
+      "path": "X/SecMullinDHS/2026/06/09/2064330658495807656/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064330658495807656",
+      "summary": "Best of the best.",
+      "title": "Best of the best."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:13488fbf6af4cb6e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.941962+00:00",
+        "datePublished": "2026-06-09T12:55:02+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064329211947405312.mp4",
+            "remotePath": "archive/x/rapidresponse47/pfl8T28paq1MFfHP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064329211947405312/vid/avc1/1280x720/pfl8T28paq1MFfHP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/pfl8T28paq1MFfHP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064329211947405312.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/pfl8T28paq1MFfHP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064330431667773804"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064330431667773804/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064330431667773804/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064330431667773804",
+      "summary": ".@DrOzCMS on requiring able-bodied individuals without dependents to either work or volunteer part-time in order to receive Medicaid:",
+      "title": ".@DrOzCMS on requiring able-bodied individuals without dependents to either work or volunt..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9995543569aabfb4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.942292+00:00",
+        "datePublished": "2026-06-09T12:49:21+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064328240949231616.mp4",
+            "remotePath": "archive/x/rapidresponse47/yWrMK5dY0eOuLksp.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064328240949231616/vid/avc1/1920x1080/yWrMK5dY0eOuLksp.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/yWrMK5dY0eOuLksp.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064328240949231616.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/yWrMK5dY0eOuLksp.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064329000843948157"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064329000843948157/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064329000843948157/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064329000843948157",
+      "summary": ".@POTUS: \"We have more people working in the United States today than at any time in the history of our country... out of my short 1.5 years, we've had 73 brand new highs on the various stock exchanges, and that's a record... and that's during a military conflict.\" https://t.co/F",
+      "title": ".@POTUS: \"We have more people working in the United States today than at any time in the h..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-09",
+      "id": "socials:3ef961b5ad809825",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-09T13:42:57.774902+00:00",
+        "datePublished": "2026-06-09T12:47:43+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "6ZTM1ZPcXko"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/09/6ZTM1ZPcXko/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/09/6ZTM1ZPcXko/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=6ZTM1ZPcXko",
+      "summary": "- [00:00.560] Hello everybody. - [00:02.800] >> Well, the game was fantastic. Well - [00:04.560] played by both teams. We all had a lot - [00:07.440] of fun. It was great to watch. Very - [00:09.920] talented players. We have uh ongoing - [00:13.519] negotiations in Iran and with",
+      "title": "President Trump Gaggles with Press Upon Departure from Queens, NY, Jun. 9, 2026"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:cf1f4405d9167507",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.942673+00:00",
+        "datePublished": "2026-06-09T12:43:31+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064326874071781377.mp4",
+            "remotePath": "archive/x/rapidresponse47/9LEiNV1SYTW1u_r8.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064326874071781377/vid/avc1/1920x1080/9LEiNV1SYTW1u_r8.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/9LEiNV1SYTW1u_r8.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064326874071781377.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/9LEiNV1SYTW1u_r8.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064327530895622633"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064327530895622633/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064327530895622633/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064327530895622633",
+      "summary": ".@POTUS: \"See that plane? That's in perfect, mint condition... Everything should look that way. We work with the military; we do a real job. Look at the polish. Look at the way everything is beautiful \u2014 and that's the way we want D.C.\"",
+      "title": ".@POTUS: \"See that plane? That's in perfect, mint condition... Everything should look that..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:8cae4141099ee97e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.943008+00:00",
+        "datePublished": "2026-06-09T12:40:17+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064324903860310016.mp4",
+            "remotePath": "archive/x/rapidresponse47/3myTt2CGM7rq38qi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064324903860310016/vid/avc1/1920x1080/3myTt2CGM7rq38qi.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3myTt2CGM7rq38qi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064324903860310016.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3myTt2CGM7rq38qi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064326716361740433"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064326716361740433/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064326716361740433/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064326716361740433",
+      "summary": ".@SecretaryBurgum: \"How fitting, as we go into our 250th, that President Trump is personally getting involved and making sure that our capital reflects the greatness of our country \u2014 because decline is a choice, and President Trump has shown a blueprint for every American city.\" ",
+      "title": ".@SecretaryBurgum: \"How fitting, as we go into our 250th, that President Trump is personal..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:50045f589381bf62",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T13:41:26.943339+00:00",
+        "datePublished": "2026-06-09T12:32:26+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064323653026590720.mp4",
+            "remotePath": "archive/x/rapidresponse47/VUC1MAFEwMFjySSX.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064323653026590720/vid/avc1/1280x720/VUC1MAFEwMFjySSX.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VUC1MAFEwMFjySSX.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064323653026590720.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VUC1MAFEwMFjySSX.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064324742262178041"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064324742262178041/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064324742262178041/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064324742262178041",
+      "summary": ".@USTradeRep Ambassador Greer on proposing new tariffs under Section 301: \"We have all of these countries in the world that allow goods made with forced labor into their countries. America doesn't do that... there's a cost to doing the right thing, and other countries aren't bear",
+      "title": ".@USTradeRep Ambassador Greer on proposing new tariffs under Section 301: \"We have all of ..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-09",
