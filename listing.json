@@ -1,6 +1,834 @@
 {
-  "generatedAt": "2026-06-09T18:33:24.869343+00:00",
+  "generatedAt": "2026-06-09T20:32:26.042869+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:436f5110777ed734",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:32.234260+00:00",
+        "datePublished": "2026-06-09T20:22:49+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064438596929531904.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZb906XMAAEnQw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZb906XMAAEnQw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZb906XMAAEnQw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064438596929531904.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZb906XMAAEnQw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064443116032024591"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064443116032024591/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064443116032024591/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064443116032024591",
+      "summary": "Repost of @DHSGenCounsel:",
+      "title": "Repost of @DHSGenCounsel: Only Americans should be electing America\u2019s leaders. Foreign cit..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a082e23d0f6cbbcc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:32.234699+00:00",
+        "datePublished": "2026-06-09T20:22:40+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064443081978511794"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064443081978511794/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064443081978511794/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064443081978511794",
+      "summary": "DHS directs ICE to deport illegal immigrants who vote in American elections under new directive https://t.co/YOEkowkeVC",
+      "title": "DHS directs ICE to deport illegal immigrants who vote in American elections under new dire..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:a09070970401295e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:16.926654+00:00",
+        "datePublished": "2026-06-09T20:20:28+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064430027316285441.jpg",
+            "remotePath": "archive/x/potus/HKZULAnWUAECqXA.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZULAnWUAECqXA.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZULAnWUAECqXA.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064430027316285441.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKZULAnWUAECqXA.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064442525146824786"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064442525146824786/README.md",
+      "path": "X/POTUS/2026/06/09/2064442525146824786/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064442525146824786",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: By fighting against the Secure America Act, Democrats have once aga..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9b1549be5332045e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:40.249502+00:00",
+        "datePublished": "2026-06-09T20:07:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064438596929531904.jpg",
+            "remotePath": "archive/x/dhsgov/HKZb906XMAAEnQw.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZb906XMAAEnQw.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKZb906XMAAEnQw.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064438596929531904.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKZb906XMAAEnQw.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064439355725238696"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064439355725238696/README.md",
+      "path": "X/DHSgov/2026/06/09/2064439355725238696/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064439355725238696",
+      "summary": "Repost of @DHSGenCounsel:",
+      "title": "Repost of @DHSGenCounsel: Only Americans should be electing America\u2019s leaders. Foreign cit..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:0322863cc6de7c03",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:08.696919+00:00",
+        "datePublished": "2026-06-09T19:58:57+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064437112607232496"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064437112607232496/README.md",
+      "path": "X/ICEgov/2026/06/09/2064437112607232496/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064437112607232496",
+      "summary": "Great work by @HSINewEngland and its @HSTFNCC partners!",
+      "title": "Great work by @HSINewEngland and its @HSTFNCC partners!"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9f699fcdf459186f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:40.249907+00:00",
+        "datePublished": "2026-06-09T19:54:24+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064367124538167296.jpg",
+            "remotePath": "archive/x/dhsgov/HKYa9lgXkAA9Ue6.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYa9lgXkAA9Ue6.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKYa9lgXkAA9Ue6.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064367124550733825.jpg",
+            "remotePath": "archive/x/dhsgov/HKYa9ljXUAE9asC.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKYa9ljXUAE9asC.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKYa9ljXUAE9asC.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064367124538167296.jpg",
+          "media/02_image_2064367124550733825.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKYa9lgXkAA9Ue6.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKYa9ljXUAE9asC.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064435965230260644"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064435965230260644/README.md",
+      "path": "X/DHSgov/2026/06/09/2064435965230260644/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064435965230260644",
+      "summary": "Repost of @HSINewEngland:",
+      "title": "Repost of @HSINewEngland: \ud83d\udea8BREAKING: Mass communities are safer today after the arrests of..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:dfe3031595855c99",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:40.250282+00:00",
+        "datePublished": "2026-06-09T19:54:06+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064394872841236480.jpg",
+            "remotePath": "archive/x/dhsgov/HKY0Mv_W8AAF-1h.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY0Mv_W8AAF-1h.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY0Mv_W8AAF-1h.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064394872086310913.jpg",
+            "remotePath": "archive/x/dhsgov/HKY0MtLXsAEKkEr.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY0MtLXsAEKkEr.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY0MtLXsAEKkEr.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064394871641628672.jpg",
+            "remotePath": "archive/x/dhsgov/HKY0MrhWYAAwA0U.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY0MrhWYAAwA0U.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY0MrhWYAAwA0U.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064394871742300160.jpg",
+            "remotePath": "archive/x/dhsgov/HKY0Mr5WgAA374S.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKY0Mr5WgAA374S.jpg",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/HKY0Mr5WgAA374S.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064394872841236480.jpg",
+          "media/02_image_2064394872086310913.jpg",
+          "media/03_image_2064394871641628672.jpg",
+          "media/04_image_2064394871742300160.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY0Mv_W8AAF-1h.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY0MtLXsAEKkEr.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY0MrhWYAAwA0U.jpg",
+          "https://cdn.comparify.app/archive/x/dhsgov/HKY0Mr5WgAA374S.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064435891460846055"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064435891460846055/README.md",
+      "path": "X/DHSgov/2026/06/09/2064435891460846055/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064435891460846055",
+      "summary": "Repost of @TheJusticeDept:",
+      "title": "Repost of @TheJusticeDept: \ud83d\udea826 Trinitarios Gang Members Charged with RICO Conspiracy Relat..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:792a71eabd1434c4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:32.234944+00:00",
+        "datePublished": "2026-06-09T19:53:50+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064433781285539840.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZXlhPXUAAV_gX.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZXlhPXUAAV_gX.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhPXUAAV_gX.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064433781293948929.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZXlhRXoAEALoV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZXlhRXoAEALoV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhRXoAEALoV.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064433781327417344.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZXlhZWUAAVPCP.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZXlhZWUAAVPCP.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhZWUAAVPCP.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064433781298089984.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZXlhSW0AAf9hC.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZXlhSW0AAf9hC.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhSW0AAf9hC.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064433781285539840.jpg",
+          "media/02_image_2064433781293948929.jpg",
+          "media/03_image_2064433781327417344.jpg",
+          "media/04_image_2064433781298089984.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhPXUAAV_gX.jpg",
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhRXoAEALoV.jpg",
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhZWUAAVPCP.jpg",
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZXlhSW0AAf9hC.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064435823131476233"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064435823131476233/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064435823131476233/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064435823131476233",
+      "summary": "Repost of @FirstLadyOffice:",
+      "title": "Repost of @FirstLadyOffice: This morning, @FLOTUS @MELANIATRUMP awarded America\u2019s six stud..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9bb006b9823c0489",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:40.250645+00:00",
+        "datePublished": "2026-06-09T19:49:27+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064434570120896512.mp4",
+            "remotePath": "archive/x/dhsgov/ikL0Bs9Fqk5RkhU3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064434570120896512/vid/avc1/1080x1920/ikL0Bs9Fqk5RkhU3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/ikL0Bs9Fqk5RkhU3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064434570120896512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/ikL0Bs9Fqk5RkhU3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064434722613211167"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064434722613211167/README.md",
+      "path": "X/DHSgov/2026/06/09/2064434722613211167/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064434722613211167",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: The Office of Intelligence and Analysis will be working with loca..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:3a1936c2efd2a7a4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:49.768982+00:00",
+        "datePublished": "2026-06-09T19:49:06+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064434570120896512.mp4",
+            "remotePath": "archive/x/secmullindhs/ikL0Bs9Fqk5RkhU3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064434570120896512/vid/avc1/1080x1920/ikL0Bs9Fqk5RkhU3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/ikL0Bs9Fqk5RkhU3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064434570120896512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/ikL0Bs9Fqk5RkhU3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064434631416692995"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/09/2064434631416692995/README.md",
+      "path": "X/SecMullinDHS/2026/06/09/2064434631416692995/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064434631416692995",
+      "summary": "The Office of Intelligence and Analysis will be working with local, international, and federal partners to secure the FIFA World Cup.",
+      "title": "The Office of Intelligence and Analysis will be working with local, international, and fed..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:ff6d2d33b6e5fb81",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:32.235137+00:00",
+        "datePublished": "2026-06-09T19:48:16+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064434422179316213"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064434422179316213/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064434422179316213/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064434422179316213",
+      "summary": "US Steel doubles investment to more than $2B for oldest plant https://t.co/G0MhTOgcLm",
+      "title": "US Steel doubles investment to more than $2B for oldest plant https://t.co/G0MhTOgcLm"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:fe66c44958a4b3fd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:08.697388+00:00",
+        "datePublished": "2026-06-09T19:47:51+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064409751643959297.jpg",
+            "remotePath": "archive/x/icegov/HKZBuz2XMAEPt20.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZBuz2XMAEPt20.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKZBuz2XMAEPt20.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064409751643959297.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKZBuz2XMAEPt20.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064434317447536857"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064434317447536857/README.md",
+      "path": "X/ICEgov/2026/06/09/2064434317447536857/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064434317447536857",
+      "summary": "Repost of @DHSBlueCampaign:",
+      "title": "Repost of @DHSBlueCampaign: It\u2019s up to all of us to recognize human trafficking and report..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:da161e69de14a19e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:58.169737+00:00",
+        "datePublished": "2026-06-09T19:36:16+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064402421120446464.mp4",
+            "remotePath": "archive/x/fbidirectorkash/aMukHriBFI2Jbqfi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064402421120446464/vid/avc1/1920x1080/aMukHriBFI2Jbqfi.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/aMukHriBFI2Jbqfi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064402421120446464.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/aMukHriBFI2Jbqfi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064431404620943647"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/09/2064431404620943647/README.md",
+      "path": "X/FBIDirectorKash/2026/06/09/2064431404620943647/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064431404620943647",
+      "summary": "Repost of @FBICyberDiv:",
+      "title": "Repost of @FBICyberDiv: Today, the FBI is announcing Operation Riptide, an ongoing, coordi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:d445f8552b42ca50",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:31:06.772284+00:00",
+        "datePublished": "2026-06-09T19:32:07+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064430027316285441.jpg",
+            "remotePath": "archive/x/whitehouse/HKZULAnWUAECqXA.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZULAnWUAECqXA.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZULAnWUAECqXA.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064430027316285441.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZULAnWUAECqXA.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064430359970795673"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064430359970795673/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064430359970795673/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064430359970795673",
+      "summary": "By fighting against the Secure America Act, Democrats have once again shown they care more about illegal aliens than American citizens. They push relentlessly for open borders, shield dangerous criminal illegal aliens, and push to defund the police. https://t.co/0M5TWb9zte",
+      "title": "By fighting against the Secure America Act, Democrats have once again shown they care more..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:d308c26c7eaff636",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:32.235326+00:00",
+        "datePublished": "2026-06-09T19:24:34+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064428459472892302"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064428459472892302/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064428459472892302/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064428459472892302",
+      "summary": "Repost of @olivia_wales:",
+      "title": "Repost of @olivia_wales: This is fake news. The White House Press Office has credentialed ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:9f6c052d322eba69",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:16.926977+00:00",
+        "datePublished": "2026-06-09T19:20:53+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064416903838236673.jpg",
+            "remotePath": "archive/x/potus/HKZIPH2XAAEMb6b.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZIPH2XAAEMb6b.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZIPH2XAAEMb6b.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064416903838236673.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKZIPH2XAAEMb6b.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064427530182930792"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064427530182930792/README.md",
+      "path": "X/POTUS/2026/06/09/2064427530182930792/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064427530182930792",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III...."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-09",
+      "id": "socials:a5e1ae8026f79d59",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:31:25.439243+00:00",
+        "datePublished": "2026-06-09T19:16:40+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649476667873791246.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649476667873791246.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649476667873791246",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649476667873791246.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649476667873791246.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649476667873791246.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649476667873791246"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/09/7649476667873791246/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/09/7649476667873791246/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649476667873791246",
+      "summary": "ARTEMIS III. 2027\ud83d\ude80",
+      "title": "ARTEMIS III. 2027\ud83d\ude80"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:896f4a78bcae3c9e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:29:40.250984+00:00",
+        "datePublished": "2026-06-09T19:12:12+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064425346850607144"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064425346850607144/README.md",
+      "path": "X/DHSgov/2026/06/09/2064425346850607144/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064425346850607144",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traff..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:12a116a1c8fd79df",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:08.697761+00:00",
+        "datePublished": "2026-06-09T19:05:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064423584043286528.jpg",
+            "remotePath": "archive/x/icegov/HKZOT9jWwAAznM5.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZOT9jWwAAznM5.jpg",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKZOT9jWwAAznM5.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064423584043286528.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKZOT9jWwAAznM5.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064423586480206073"
+      },
+      "metadataPath": "X/ICEgov/2026/06/09/2064423586480206073/README.md",
+      "path": "X/ICEgov/2026/06/09/2064423586480206073/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064423586480206073",
+      "summary": "\u26bdOur officers and special agents combat human trafficking, stop counterfeit merchandise sales and support security efforts.",
+      "title": "\u26bdOur officers and special agents combat human trafficking, stop counterfeit merchandise sa..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:3b0bcfbc1722ccc7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:29:40.251314+00:00",
+        "datePublished": "2026-06-09T18:58:49+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064421978371408032"
+      },
+      "metadataPath": "X/DHSgov/2026/06/09/2064421978371408032/README.md",
+      "path": "X/DHSgov/2026/06/09/2064421978371408032/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064421978371408032",
+      "summary": "Despite the threats, doxing, and harassment from anti-ICE rioters and smears from sanctuary politicians, @ICEgov will NOT slow down its mission to make America safe again.",
+      "title": "Despite the threats, doxing, and harassment from anti-ICE rioters and smears from sanctuar..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:c349850c1687658b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:30:32.235586+00:00",
+        "datePublished": "2026-06-09T18:49:28+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064419625803120842"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064419625803120842/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064419625803120842/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064419625803120842",
+      "summary": "WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traffickers, and Other Violent Criminals https://t.co/mUmyJBYEa8",
+      "title": "WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traffickers, and Other Violent Cr..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:5d5f3c4bb30769a7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:32.235949+00:00",
+        "datePublished": "2026-06-09T18:48:00+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064416161198923776.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKZHj5TWYAAAlmV.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZHj5TWYAAAlmV.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKZHj5TWYAAAlmV.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064416161198923776.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKZHj5TWYAAAlmV.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064419255928459367"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/09/2064419255928459367/README.md",
+      "path": "X/RapidResponse47/2026/06/09/2064419255928459367/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064419255928459367",
+      "summary": "Repost of @SecRollins:",
+      "title": "Repost of @SecRollins: \ud83d\udea8 TUESDAY TAKEDOWN \ud83d\udea8 Steal SNAP. Get Busted. These 8 fraudsters tho..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:c7d186d31e977aa3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-09T20:31:06.772637+00:00",
+        "datePublished": "2026-06-09T18:45:37+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064416903838236673.jpg",
+            "remotePath": "archive/x/whitehouse/HKZIPH2XAAEMb6b.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZIPH2XAAEMb6b.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKZIPH2XAAEMb6b.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064416903838236673.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKZIPH2XAAEMb6b.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064418657069891668"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/09/2064418657069891668/README.md",
+      "path": "X/WhiteHouse/2026/06/09/2064418657069891668/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064418657069891668",
+      "summary": "Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio",
+      "title": "Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III. 2027. \ud83d\ude80\ud83c\udf19 https://t.co/..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-09",
+      "id": "socials:85a8b370e19ef0cd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-09T20:30:16.927212+00:00",
+        "datePublished": "2026-06-09T18:31:08+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064413843351093248.jpg",
+            "remotePath": "archive/x/potus/HKZFc-pXQAAbtqx.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZFc-pXQAAbtqx.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZFc-pXQAAbtqx.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064413843367895040.jpg",
+            "remotePath": "archive/x/potus/HKZFc-tXoAA0HLq.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKZFc-tXoAA0HLq.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKZFc-tXoAA0HLq.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064413843351093248.jpg",
+          "media/02_image_2064413843367895040.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKZFc-pXQAAbtqx.jpg",
+          "https://cdn.comparify.app/archive/x/potus/HKZFc-tXoAA0HLq.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064415013276664078"
+      },
+      "metadataPath": "X/POTUS/2026/06/09/2064415013276664078/README.md",
+      "path": "X/POTUS/2026/06/09/2064415013276664078/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064415013276664078",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8 The renovated Reflectin..."
+    },
     {
       "category": "X",
       "date": "2026-06-09",
@@ -44,6 +872,29 @@
       "sourceUrl": "https://x.com/WhiteHouse/status/2064413847599915144",
       "summary": "A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8",
       "title": "A beautiful day in the nation\u2019s capital. \ud83c\uddfa\ud83c\uddf8 The renovated Reflecting Pool. https://t.co/pk..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-09",
+      "id": "socials:f1a8f3a2651bcf1a",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-09T20:31:30.824120+00:00",
+        "datePublished": "2026-06-09T18:21:42+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "RmkM4yYwVE4"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/09/RmkM4yYwVE4/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/09/RmkM4yYwVE4/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=RmkM4yYwVE4",
+      "summary": "- [00:00.160] Hello everyone and welcome to the White - [00:02.480] House. What a beautiful group. - [00:05.279] Uh congratulations to our presidential - [00:08.720] AI challenge winners. - [00:11.440] It is wonderful to see this very - [00:13.599] impressive group of innovators ",
+      "title": "First Lady's Remarks at the Presidential AI Challenge Champion Awards Ceremony"
     },
     {
       "category": "X",
@@ -824,6 +1675,29 @@
       "title": "WATCH: @NASAAdmin announces the crew of Artemis III, a historic mission set to launch next..."
     },
     {
+      "category": "YouTube",
+      "date": "2026-06-09",
+      "id": "socials:c3f2c7f3ef3af9f7",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-09T20:31:32.170350+00:00",
+        "datePublished": "2026-06-09T16:22:48+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "lNj9noOB7BI"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/09/lNj9noOB7BI/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/09/lNj9noOB7BI/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/shorts/lNj9noOB7BI",
+      "summary": "- [00:00.240] Uh, congratulations - [00:02.159] to our presidential AI challenge - [00:04.880] winners. - [00:06.400] It is wonderful to see this very - [00:08.559] impressive group of innovators at the - [00:11.920] White House today. - [00:14.160] I am proud that you represent ",
+      "title": "First Lady Melania Trump Hosts Presidential AI Challenge Winners at the White House  \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
       "category": "X",
       "date": "2026-06-09",
       "id": "socials:c4a2e357d9ad073c",
@@ -1261,6 +2135,29 @@
       "sourceUrl": "https://x.com/RapidResponse47/status/2064369590054850560",
       "summary": ".@mkratsios47: \"The purpose of this national competition was simple \u2014 to bring young Americans from across the country together in using AI tools to improve the lives of their communities... Our competitors in this historic challenge produced more than 2,500 projects aiming to ov",
       "title": ".@mkratsios47: \"The purpose of this national competition was simple \u2014 to bring young Ameri..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-09",
+      "id": "socials:c7ba63904dfcf6cd",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-09T20:31:33.616143+00:00",
+        "datePublished": "2026-06-09T15:28:32+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "zjPGuY5IPVo"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/09/zjPGuY5IPVo/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/09/zjPGuY5IPVo/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=zjPGuY5IPVo",
+      "summary": "- [00:02.600] Ladies and gentlemen, the first lady of - [00:04.400] the United States, Melania Trump. - [00:09.825] >> [music] - [00:32.750] [applause] - [00:35.440] >> Hello everyone and welcome to the White - [00:37.720] House. What a beautiful group. - [00:40.680] Uh congratul",
+      "title": "First Lady Melania Trump Participates in the Presidential AI Challenge National Awards Ceremony"
     },
     {
       "category": "X",

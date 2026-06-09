@@ -1,0 +1,319 @@
+<!-- source: https://www.youtube.com/watch?v=zjPGuY5IPVo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zjPGuY5IPVo -->
+<!-- date_published: 2026-06-09T15:28:32+00:00 -->
+<!-- date_accessed: 2026-06-09T20:31:33.616143+00:00 -->
+
+# Transcript: First Lady Melania Trump Participates in the Presidential AI Challenge National Awards Ceremony
+
+- [00:02.600] Ladies and gentlemen, the first lady of
+- [00:04.400] the United States, Melania Trump.
+- [00:09.825] >> [music]
+- [00:32.750] [applause]
+- [00:35.440] >> Hello everyone and welcome to the White
+- [00:37.720] House. What a beautiful group.
+- [00:40.680] Uh congratulations
+- [00:42.560] to our presidential AI challenge
+- [00:45.200] winners.
+- [00:46.840] It is wonderful to see this very
+- [00:48.800] impressive group of innovators at the
+- [00:52.160] White House today.
+- [00:54.520] I'm proud that you represent the best of
+- [00:57.440] America.
+- [00:59.160] You are our future.
+- [01:02.240] Thank you to Secretaries Wright and
+- [01:05.400] Rollins
+- [01:06.800] for being here today. Your support of
+- [01:09.480] this program is a key to its ongoing
+- [01:12.920] success.
+- [01:14.960] I also want to recognize everyone who
+- [01:17.680] took part in this first AI contest.
+- [01:20.880] Students,
+- [01:22.520] educators,
+- [01:24.360] parents, and administrators.
+- [01:27.400] Yes, you could applaud.
+- [01:29.080] >> [applause]
+- [01:38.250] [applause]
+- [01:40.200] >> Today is about opening doors.
+- [01:43.840] When the doors open, passions flow,
+- [01:47.480] courage blossoms, and dreams are
+- [01:50.680] realized.
+- [01:52.680] AI inspires.
+- [01:55.440] Use this chapter of your
+- [01:58.000] to sail away with your dreams.
+- [02:01.200] To continue to build boldly and
+- [02:03.920] importantly to safeguard America's
+- [02:07.120] leading position in the world of
+- [02:09.440] technology.
+- [02:11.920] As you know, technology supports every
+- [02:14.160] business sector today.
+- [02:16.120] You saw AI's potential
+- [02:18.880] and created ideas that will shape
+- [02:21.360] America's future in many areas,
+- [02:24.880] including health care, nutrition,
+- [02:27.880] public safety, and beyond.
+- [02:31.520] The first presidential AI challenge was
+- [02:34.120] broadly welcomed across our nation.
+- [02:37.480] More than 20,000 students participated
+- [02:40.440] across all 50 states,
+- [02:43.360] plus the District of Columbia, Puerto
+- [02:45.800] Rico,
+- [02:47.040] and 49 Department of War schools in 10
+- [02:50.800] countries around the world.
+- [02:53.720] And we are just at the beginning.
+- [02:58.320] Artificial intelligence gives our
+- [03:00.600] communities access to the largest amount
+- [03:04.120] of information ever recorded in hu-
+- [03:07.160] humanity's history.
+- [03:09.880] This fundamental democratization of
+- [03:12.440] intellect will profoundly alter society,
+- [03:16.519] our industries, our social safety net,
+- [03:20.360] and even our open-mindedness toward
+- [03:23.320] cultural diversity.
+- [03:26.400] Wisdom is tolerance,
+- [03:28.800] and change will be enhanced at hyper
+- [03:32.160] speed.
+- [03:34.239] AI is transme- transformative nature
+- [03:37.200] opens new possibilities.
+- [03:39.800] AI can help us build a stronger
+- [03:41.920] community, making our publicly founded
+- [03:45.200] social programs more efficient and more
+- [03:48.280] effective.
+- [03:50.200] It allows us to deliver more
+- [03:52.560] personalized education and in return
+- [03:55.920] will unlock growth and in America's
+- [03:59.600] economy.
+- [04:01.560] Keep using artificial intelligence as a
+- [04:04.680] muse to open new pathways and ultimately
+- [04:08.840] to achieve personal growth and success.
+- [04:12.640] Today is about new beginnings.
+- [04:15.920] Don't be reluctant to push that door
+- [04:18.799] open. Be bold with your dreams
+- [04:22.000] and brave with your actions.
+- [04:25.680] And now is my pleasure
+- [04:28.000] to welcome Director Kratsios
+- [04:30.800] whose patronage for technology stands
+- [04:33.440] out and whose commitment to keeping
+- [04:36.800] America children ahead of the AI curve
+- [04:40.400] will leave a lasting impression.
+- [04:43.240] Please, Michael.
+- [04:44.928] >> [applause]
+- [04:49.513] [applause]
+- [04:56.000] >> Thank you so much, Madam First Lady.
+- [04:58.040] It's It's a great honor for the
+- [05:01.080] President's AI education task force to
+- [05:03.280] have your encouragement and your
+- [05:05.280] support. And it is thanks to your
+- [05:08.560] inspirational leadership throughout the
+- [05:10.600] presidential AI challenge that we have
+- [05:12.919] had the success that we're all
+- [05:14.480] celebrating here today.
+- [05:16.919] Together, we are helping to prepare
+- [05:18.720] America's young people to build the
+- [05:20.800] nation of tomorrow with the most
+- [05:22.840] advanced tools available to them today.
+- [05:27.160] The purpose of this national competition
+- [05:29.640] was simple. To bring young Americans
+- [05:32.440] from across the country together in
+- [05:35.040] using AI tools to improve the lives of
+- [05:38.360] their communities.
+- [05:40.520] AI is a magical technology, but it can
+- [05:43.680] and needs to be demystified.
+- [05:46.120] This challenge has empowered every kind
+- [05:48.720] of young American, even the ones focused
+- [05:51.640] who aren't focused on science and
+- [05:53.520] mathematics, to design incredible
+- [05:56.320] technological projects through the
+- [05:58.080] creative use of artificial intelligence.
+- [06:02.160] The road that brought us to today
+- [06:03.800] stretches back more than a year to April
+- [06:06.360] 2025,
+- [06:08.040] when President Trump signed the
+- [06:09.520] Advancing AI Education for America's
+- [06:12.040] Youth Executive Order.
+- [06:14.720] This established the AI Education Task
+- [06:17.200] Force and inaugurated the Presidential
+- [06:19.280] AI Challenge.
+- [06:21.400] With the First Lady's leadership and
+- [06:22.840] support, this competition has had tens
+- [06:25.160] of thousands of participants,
+- [06:27.040] representing every state in the nation
+- [06:28.960] as she mentioned, as well as DC, Puerto
+- [06:30.800] Rico, and so many Department of War
+- [06:32.880] schools all across our planet.
+- [06:36.040] Our competitors in this historic
+- [06:37.560] challenge produced more than 2 and 1/2
+- [06:39.600] thousand projects aiming to overcome
+- [06:42.040] some of their communities' greatest
+- [06:43.880] challenges using AI.
+- [06:46.480] They worked on everything, tools that
+- [06:48.360] help navigate the complexity of school
+- [06:50.280] in the online world, that improve local
+- [06:52.880] government efficiency and effectiveness,
+- [06:55.360] that synthesize real-world information
+- [06:57.760] for crime fighting, that guard their
+- [06:59.800] communities against hazardous chemicals,
+- [07:02.440] and they all succeeded.
+- [07:04.480] I am deeply inspired and I am deeply
+- [07:06.800] encouraged by everyone's work.
+- [07:09.280] To all of our participants here today,
+- [07:11.640] it has truly been an amazing
+- [07:14.400] to see what you have accomplished.
+- [07:15.960] Congratulations,
+- [07:17.560] well done, and thank you.
+- [07:21.440] Please.
+- [07:22.130] >> [applause]
+- [07:26.715] [applause]
+- [07:32.680] >> The projects you have developed are
+- [07:34.520] extraordinary, uncommonly creative
+- [07:37.400] applications of a novel technology. You
+- [07:40.520] are taking the first steps in making
+- [07:42.680] these tools an integral part of everyday
+- [07:44.880] life, transforming our world for the
+- [07:47.480] better.
+- [07:48.680] You are an example to your fellow
+- [07:50.840] Americans as they discover their own
+- [07:52.920] opportunities to extend and amplify
+- [07:55.480] their capacities and their creativity
+- [07:58.480] with AI.
+- [08:00.360] Thank you again to the private sector
+- [08:01.960] supporters of the Presidential AI
+- [08:03.560] Challenge for providing hundreds of
+- [08:05.280] thousands of dollars in educational
+- [08:07.400] support and prizes for our national
+- [08:09.960] regional champions and their respective
+- [08:11.880] schools.
+- [08:14.040] I'd also like to recognize our winners
+- [08:16.240] on the educator track announced
+- [08:17.960] yesterday for their outstanding
+- [08:19.720] achievements.
+- [08:21.440] Carrie Robledo of Star Elementary in
+- [08:24.040] Star, North Carolina put together what
+- [08:26.240] she calls the AI Insect Detectives
+- [08:28.840] Program, which introduces children to
+- [08:31.200] machine learning through the study of
+- [08:32.960] local entomology. Congratulations.
+- [08:36.800] >> [applause]
+- [08:44.839] >> And our second winner from Camden
+- [08:47.000] Catholic High School, team of Ann Wynn,
+- [08:50.080] Bridget Bash, and Regina Nolton of
+- [08:52.880] Cherry Hill, New Jersey developed AI
+- [08:55.000] Augmented Molecular Design, an AI
+- [08:57.680] Durable Module for AP Biology.
+- [09:00.200] Congratulations.
+- [09:01.691] >> [applause]
+- [09:06.276] [applause]
+- [09:08.320] >> You are both blazing trails I hope your
+- [09:10.680] colleagues across the country will soon
+- [09:12.560] follow.
+- [09:13.920] This year, as all of us know very well,
+- [09:16.240] we are celebrating 250 years of US
+- [09:19.160] independence and ingenuity and the
+- [09:21.640] legacy of patriots and pioneers
+- [09:24.120] conquering new frontiers and building
+- [09:26.520] our future. We all have a privilege of
+- [09:29.200] carrying that legacy forward.
+- [09:31.760] Today, we are grateful for this
+- [09:33.080] opportunity to celebrate the next
+- [09:34.960] generation of American exploration and
+- [09:37.560] the readiness of these young people to
+- [09:39.360] master the frontiers of artificial
+- [09:41.560] intelligence.
+- [09:43.080] It is now my privilege to announce the
+- [09:44.960] winning student teams of the
+- [09:46.280] Presidential AI Challenge and I'd like
+- [09:48.480] to invite the First Lady back on the
+- [09:50.080] stage to help present the awards to our
+- [09:52.000] national champions.
+- [09:54.091] >> [applause]
+- [09:58.676] [applause]
+- [10:03.200] >> So, first we have our elementary school
+- [10:05.720] winners from Alcoa Intermediate School
+- [10:08.760] in Alcoa, Tennessee, the Homework Helper
+- [10:11.360] app.
+- [10:12.360] Team members included Ryker Cochran,
+- [10:15.240] Emma Connor, Aaron Gallagher, and Aiden
+- [10:18.840] Taverna.
+- [10:20.947] >> [applause]
+- [10:29.280] >> Let's have the whole team come up
+- [10:31.400] together and take a team shot rather
+- [10:33.160] than one by one.
+- [10:34.680] Yeah, come on over.
+- [11:16.800] Congratulations.
+- [11:17.932] >> [applause]
+- [11:26.040] >> Our
+- [11:27.102] >> [applause]
+- [11:27.560] >> second elementary school winner is from
+- [11:29.640] Aldie, Virginia, the Friend Zone chatbot
+- [11:32.960] bullying prevention app.
+- [11:35.440] Team members included Arna Jaiswal,
+- [11:40.858] >> [applause]
+- [11:47.520] >> Ishani Kutty,
+- [11:50.028] >> [applause]
+- [11:54.613] [applause]
+- [11:59.360] >> Riva Makda,
+- [12:02.473] >> [applause]
+- [12:08.480] >> Sumitha Pinnamaneni,
+- [12:11.643] >> [applause]
+- [12:20.640] >> and Senoli Ruthnayaka.
+- [12:23.433] >> [applause]
+- [12:28.018] [applause]
+- [12:48.323] [applause]
+- [12:54.880] >> Next, I'm happy to announce our middle
+- [12:57.320] school winners from Northstar Middle
+- [12:59.320] School in Sammamish, Washington. Skillup
+- [13:02.839] is an AI tool that assists with
+- [13:04.640] craftsmanship, handywork, and hands-on
+- [13:07.160] creation.
+- [13:08.600] Uh Viha Iyer,
+- [13:11.249] >> [applause]
+- [13:15.834] [applause]
+- [13:20.520] >> Arya Proctap,
+- [13:23.039] >> [applause]
+- [13:30.680] >> And Shrimay Shetty.
+- [13:32.864] >> [applause]
+- [13:37.449] [applause]
+- [13:53.169] [applause]
+- [13:57.720] >> And the second middle school winner from
+- [14:00.000] Julia Landon College Preparatory School
+- [14:02.640] in Jacksonville, Florida. The project
+- [14:05.240] was an AI model to detect urban blight
+- [14:08.240] using street view images. I think we
+- [14:10.560] need this as we're beautifying DC. This
+- [14:12.320] is amazing. Uh Shawn Vance,
+- [14:14.520] congratulations.
+- [14:16.094] >> [applause]
+- [14:25.560] >> So, finally we have our high school
+- [14:27.560] winners from Upper Darby Senior High
+- [14:29.880] School in Drexel Hill, Pennsylvania. The
+- [14:32.600] project was an AI-powered computer
+- [14:35.360] vision tool that assists investigators
+- [14:38.440] with hotel identification from evidence
+- [14:41.720] images. Congratulations Khandaker Mahi.
+- [14:46.225] >> [applause]
+- [14:50.810] [applause]
+- [14:56.640] >> And our final high school winner is from
+- [14:59.120] North Allegheny High School in
+- [15:01.320] Sewickley, Pennsylvania. The project is
+- [15:04.160] Iris, an edge AI navigation assistant
+- [15:07.400] for visually impaired users.
+- [15:10.000] Congratulations Alexander Dew.
+- [15:13.080] >> [applause]
+- [15:23.560] [applause]
+- [15:24.800] >> And So, let's give all of our finalists
+- [15:27.200] winners a big round of applause.
+- [15:29.455] >> [applause]
+- [15:34.040] [applause]
+- [15:43.210] [applause]
+- [15:44.240] >> It uh it truly is amazing.
+- [15:45.960] Congratulations, guys. So, this
+- [15:47.600] concludes our award ceremony.
+- [15:49.680] Congratulations again to all of you, and
+- [15:52.080] thank you for participating in the
+- [15:53.680] Presidential AI Challenge and for all
+- [15:55.680] joining us here in the in the beautiful
+- [15:57.320] White House. Now, please join us in the
+- [15:59.680] Rose Garden for a reception and further
+- [16:01.880] celebration. Congratulations, guys.
+- [16:04.826] >> [applause]

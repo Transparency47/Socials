@@ -1,7 +1,10 @@
 # X / SecMullinDHS / 2026-06-09
 
-- Posts: 4
+- Posts: 5
 
+- [19:49 UTC - The Office of Intelligence and Analysis will be working with local, international, and fed...](2064434631416692995/)
+  - Source: https://x.com/SecMullinDHS/status/2064434631416692995
+  - The Office of Intelligence and Analysis will be working with local, international, and federal partners to secure the FIFA World Cup. Alongside our other @DHSgov components, they w...
 - [15:18 UTC - Last week, I got to pay a visit to our @USCG facility in Birmingham. It was great to meet ...](2064366613541839060/)
   - Source: https://x.com/SecMullinDHS/status/2064366613541839060
   - Last week, I got to pay a visit to our @USCG facility in Birmingham. It was great to meet the men and women who are working hard every day to keep our homeland safe and secure 🇺🇸 h...

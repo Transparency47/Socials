@@ -1,7 +1,16 @@
 # X / ICEgov / 2026-06-09
 
-- Posts: 4
+- Posts: 7
 
+- [19:58 UTC - Great work by @HSINewEngland and its @HSTFNCC partners!](2064437112607232496/)
+  - Source: https://x.com/ICEgov/status/2064437112607232496
+  - Great work by @HSINewEngland and its @HSTFNCC partners!
+- [19:47 UTC - Repost of @DHSBlueCampaign: It’s up to all of us to recognize human trafficking and report...](2064434317447536857/)
+  - Source: https://x.com/ICEgov/status/2064434317447536857
+  - Repost of @DHSBlueCampaign: It’s up to all of us to recognize human trafficking and report it. 📲 Save our indicator card on your phone and always be prepared to save a life. Access...
+- [19:05 UTC - ⚽Our officers and special agents combat human trafficking, stop counterfeit merchandise sa...](2064423586480206073/)
+  - Source: https://x.com/ICEgov/status/2064423586480206073
+  - ⚽Our officers and special agents combat human trafficking, stop counterfeit merchandise sales and support security efforts. ICE is working with local and federal partners to secure...
 - [15:55 UTC - Thanks to a 287(g) partnership, the Mongomery County Sheriff’s Office quickly confirmed th...](2064375783502528561/)
   - Source: https://x.com/ICEgov/status/2064375783502528561
   - Thanks to a 287(g) partnership, the Mongomery County Sheriff’s Office quickly confirmed the immigration status of Juan Ayala Montero, a 60-year-old criminal illegal alien from Mexi...

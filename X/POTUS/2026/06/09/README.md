@@ -1,7 +1,16 @@
 # X / POTUS / 2026-06-09
 
-- Posts: 8
+- Posts: 11
 
+- [20:20 UTC - Repost of @WhiteHouse: By fighting against the Secure America Act, Democrats have once aga...](2064442525146824786/)
+  - Source: https://x.com/POTUS/status/2064442525146824786
+  - Repost of @WhiteHouse: By fighting against the Secure America Act, Democrats have once again shown they care more about illegal aliens than American citizens. They push relentlessl...
+- [19:20 UTC - Repost of @WhiteHouse: Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III....](2064427530182930792/)
+  - Source: https://x.com/POTUS/status/2064427530182930792
+  - Repost of @WhiteHouse: Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III. 2027. 🚀🌙 https://t.co/2TnKCqkpcb
+- [18:31 UTC - Repost of @WhiteHouse: A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflectin...](2064415013276664078/)
+  - Source: https://x.com/POTUS/status/2064415013276664078
+  - Repost of @WhiteHouse: A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflecting Pool. https://t.co/pktHqevXCy
 - [16:45 UTC - Repost of @WhiteHouse: "I have just been informed by our Great Military that last night th...](2064388493912981604/)
   - Source: https://x.com/POTUS/status/2064388493912981604
   - Repost of @WhiteHouse: "I have just been informed by our Great Military that last night the Iranians shot down one of our highly sophisticated Apache Helicopters while patrolling o...

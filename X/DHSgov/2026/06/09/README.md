@@ -1,7 +1,25 @@
 # X / DHSgov / 2026-06-09
 
-- Posts: 8
+- Posts: 14
 
+- [20:07 UTC - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign cit...](2064439355725238696/)
+  - Source: https://x.com/DHSgov/status/2064439355725238696
+  - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign citizens who illegally vote in our elections are deportable, regardless of their immigration...
+- [19:54 UTC - Repost of @HSINewEngland: 🚨BREAKING: Mass communities are safer today after the arrests of...](2064435965230260644/)
+  - Source: https://x.com/DHSgov/status/2064435965230260644
+  - Repost of @HSINewEngland: 🚨BREAKING: Mass communities are safer today after the arrests of 24 alleged members of the Trinitarios. HSI announcing results of early morning searches p...
+- [19:54 UTC - Repost of @TheJusticeDept: 🚨26 Trinitarios Gang Members Charged with RICO Conspiracy Relat...](2064435891460846055/)
+  - Source: https://x.com/DHSgov/status/2064435891460846055
+  - Repost of @TheJusticeDept: 🚨26 Trinitarios Gang Members Charged with RICO Conspiracy Related to Five Murders After Homeland Security Task Force Efforts “Thanks to the tireless effo...
+- [19:49 UTC - Repost of @SecMullinDHS: The Office of Intelligence and Analysis will be working with loca...](2064434722613211167/)
+  - Source: https://x.com/DHSgov/status/2064434722613211167
+  - Repost of @SecMullinDHS: The Office of Intelligence and Analysis will be working with local, international, and federal partners to secure the FIFA World Cup. Alongside our other @...
+- [19:12 UTC - Repost of @RapidResponse47: WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traff...](2064425346850607144/)
+  - Source: https://x.com/DHSgov/status/2064425346850607144
+  - Repost of @RapidResponse47: WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traffickers, and Other Violent Criminals https://t.co/mUmyJBYEa8
+- [18:58 UTC - Despite the threats, doxing, and harassment from anti-ICE rioters and smears from sanctuar...](2064421978371408032/)
+  - Source: https://x.com/DHSgov/status/2064421978371408032
+  - Despite the threats, doxing, and harassment from anti-ICE rioters and smears from sanctuary politicians, @ICEgov will NOT slow down its mission to make America safe again. Yesterda...
 - [17:42 UTC - Today, 26 members of the Trinitarios gang were indicted for violations of RICO – conspirac...](2064402795973812346/)
   - Source: https://x.com/DHSgov/status/2064402795973812346
   - Today, 26 members of the Trinitarios gang were indicted for violations of RICO – conspiracy to commit murder. These charges encompass five murders and 19 attempted murders, traffic...

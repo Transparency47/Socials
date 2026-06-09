@@ -1,7 +1,28 @@
 # X / RapidResponse47 / 2026-06-09
 
-- Posts: 35
+- Posts: 42
 
+- [20:22 UTC - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign cit...](2064443116032024591/)
+  - Source: https://x.com/RapidResponse47/status/2064443116032024591
+  - Repost of @DHSGenCounsel: Only Americans should be electing America’s leaders. Foreign citizens who illegally vote in our elections are deportable, regardless of their immigration...
+- [20:22 UTC - DHS directs ICE to deport illegal immigrants who vote in American elections under new dire...](2064443081978511794/)
+  - Source: https://x.com/RapidResponse47/status/2064443081978511794
+  - DHS directs ICE to deport illegal immigrants who vote in American elections under new directive https://t.co/YOEkowkeVC
+- [19:53 UTC - Repost of @FirstLadyOffice: This morning, @FLOTUS @MELANIATRUMP awarded America’s six stud...](2064435823131476233/)
+  - Source: https://x.com/RapidResponse47/status/2064435823131476233
+  - Repost of @FirstLadyOffice: This morning, @FLOTUS @MELANIATRUMP awarded America’s six student National Champion Teams at the White House today during the first Presidential Artific...
+- [19:48 UTC - US Steel doubles investment to more than $2B for oldest plant https://t.co/G0MhTOgcLm](2064434422179316213/)
+  - Source: https://x.com/RapidResponse47/status/2064434422179316213
+  - US Steel doubles investment to more than $2B for oldest plant https://t.co/G0MhTOgcLm
+- [19:24 UTC - Repost of @olivia_wales: This is fake news. The White House Press Office has credentialed ...](2064428459472892302/)
+  - Source: https://x.com/RapidResponse47/status/2064428459472892302
+  - Repost of @olivia_wales: This is fake news. The White House Press Office has credentialed a press pool of 35 members for this historic event on Sunday – expanded from the normal pr...
+- [18:49 UTC - WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traffickers, and Other Violent Cr...](2064419625803120842/)
+  - Source: https://x.com/RapidResponse47/status/2064419625803120842
+  - WORST OF THE WORST: ICE Arrests Violent Assailants, Drug Traffickers, and Other Violent Criminals https://t.co/mUmyJBYEa8
+- [18:48 UTC - Repost of @SecRollins: 🚨 TUESDAY TAKEDOWN 🚨 Steal SNAP. Get Busted. These 8 fraudsters tho...](2064419255928459367/)
+  - Source: https://x.com/RapidResponse47/status/2064419255928459367
+  - Repost of @SecRollins: 🚨 TUESDAY TAKEDOWN 🚨 Steal SNAP. Get Busted. These 8 fraudsters thought they could steal food assistance money and get away with it. From $1,520 all the way...
 - [17:45 UTC - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost...](2064403461836357904/)
   - Source: https://x.com/RapidResponse47/status/2064403461836357904
   - Repost of @SecKennedy: For years, hospitals kept Americans in the dark about the true cost of care. Families made medical decisions without knowing the price—and too often got hit...

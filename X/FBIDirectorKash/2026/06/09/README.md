@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 9
+- Posts: 10
 
+- [19:36 UTC - Repost of @FBICyberDiv: Today, the FBI is announcing Operation Riptide, an ongoing, coordi...](2064431404620943647/)
+  - Source: https://x.com/FBIDirectorKash/status/2064431404620943647
+  - Repost of @FBICyberDiv: Today, the FBI is announcing Operation Riptide, an ongoing, coordinated law enforcement campaign targeting cybercriminal actors and the key services they re...
 - [18:16 UTC - Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ](2064411261136216458/)
   - Source: https://x.com/FBIDirectorKash/status/2064411261136216458
   - Repost of @FBI_Response: Just another BAD day to be a BAD guy! https://t.co/9eC1oyPrzZ

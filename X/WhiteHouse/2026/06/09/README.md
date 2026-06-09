@@ -1,7 +1,13 @@
 # X / WhiteHouse / 2026-06-09
 
-- Posts: 19
+- Posts: 21
 
+- [19:32 UTC - By fighting against the Secure America Act, Democrats have once again shown they care more...](2064430359970795673/)
+  - Source: https://x.com/WhiteHouse/status/2064430359970795673
+  - By fighting against the Secure America Act, Democrats have once again shown they care more about illegal aliens than American citizens. They push relentlessly for open borders, shi...
+- [18:45 UTC - Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III. 2027. 🚀🌙 https://t.co/...](2064418657069891668/)
+  - Source: https://x.com/WhiteHouse/status/2064418657069891668
+  - Andre Douglas Luca Parmitano Randy Bresnik Frank Rubio ARTEMIS III. 2027. 🚀🌙 https://t.co/2TnKCqkpcb
 - [18:26 UTC - A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflecting Pool. https://t.co/pk...](2064413847599915144/)
   - Source: https://x.com/WhiteHouse/status/2064413847599915144
   - A beautiful day in the nation’s capital. 🇺🇸 The renovated Reflecting Pool. https://t.co/pktHqevXCy
