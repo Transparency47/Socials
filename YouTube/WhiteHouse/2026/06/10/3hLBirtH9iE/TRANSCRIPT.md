@@ -1,0 +1,1337 @@
+<!-- source: https://www.youtube.com/watch?v=3hLBirtH9iE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 3hLBirtH9iE -->
+<!-- date_published: 2026-06-10T18:00:35+00:00 -->
+<!-- date_accessed: 2026-06-10T19:58:57.013555+00:00 -->
+
+# Transcript: President Trump Signs the Secure America Act
+
+- [00:02.159] Well,
+- [00:02.399] >> thank you very much everybody. Thank
+- [00:04.640] you.
+- [00:07.200] >> Anytime. You're ready. Are you ready?
+- [00:09.760] >> They're ready.
+- [00:11.920] >> It's an honor to have these very
+- [00:13.360] distinguished people
+- [00:15.759] alongside of me. Not behind me.
+- [00:17.359] Alongside me. I would never say behind
+- [00:18.960] me because they're not behind anybody.
+- [00:20.480] They're great. This morning, I'm
+- [00:22.160] thrilled to sign the Secure America Act
+- [00:24.240] to immediately and fully fund the
+- [00:26.880] Department of Homeland Security through
+- [00:28.720] the end of my term. So, we won't have
+- [00:31.279] that to be talking about anymore, Lisa.
+- [00:33.680] >> No, we will not, sir.
+- [00:35.280] >> We'll give the heroes of ICE and Border
+- [00:37.760] Patrol, and that's what they are.
+- [00:38.960] They're heroes what they have to go
+- [00:40.480] through to keep us safe, the support and
+- [00:43.200] resources they need to defend our
+- [00:44.879] borders, protect our homeland, and to
+- [00:46.960] keep America safe. I want to thank
+- [00:49.680] Speaker Mike Johnson. He's incredible.
+- [00:51.600] Where is Mike Johnson? Right here.
+- [00:53.039] >> Mike, you're doing an incredible job.
+- [00:56.000] >> Not a big majority.
+- [00:58.239] >> Rather have 40 or 50. I don't think
+- [00:59.680] you'd know what to do. We have
+- [01:02.000] >> He's saying, "What are we doing?"
+- [01:03.199] >> That' be no fun.
+- [01:03.920] >> He's done an amazing job. Acting
+- [01:05.920] Attorney General Todd Blanch. And Todd
+- [01:07.840] is up and I hear he's got tremendous
+- [01:10.080] support in the Senate. And he's got
+- [01:12.479] tremendous support everywhere. Actually,
+- [01:13.920] he's doing a fantastic job. And
+- [01:15.520] Secretary of Homeland Security Mark
+- [01:17.360] Wayne. Where's Mark Wayne? He gave up
+- [01:20.080] his Senate seat. He had a guaranteed
+- [01:22.080] seat for the next 40 to 50 years
+- [01:26.080] and he gave it up to be Homeland
+- [01:27.920] Security because he just wanted to
+- [01:30.159] >> serve.
+- [01:30.640] >> Yep. You're amazing.
+- [01:32.240] >> Amazing.
+- [01:33.439] >> As well as Senate Majority Leader John
+- [01:35.439] Thun and Senate Majority Whip John
+- [01:38.479] Baraso, who's here, I think.
+- [01:40.400] >> Yes, sir. Mr. President.
+- [01:41.280] >> And John is uh you're incredible. From
+- [01:44.159] day one, we got along.
+- [01:45.280] >> Thank you, Mr. President. Absolutely.
+- [01:46.720] >> First day I met him. House Majority
+- [01:49.200] Leader Steve Scaliz, one of the bravest
+- [01:51.280] people. Yeah.
+- [01:52.320] >> And uh what he went through is
+- [01:54.000] incredible. Incredible. And he's I
+- [01:56.880] actually think it looks better now than
+- [01:58.240] he did yesterday.
+- [02:00.079] >> We're going to win the game tonight, Mr.
+- [02:01.439] President.
+- [02:01.840] >> Oh, is it tonight? The baseball we watch
+- [02:05.439] >> and House Majority Whip Tom Emmer who is
+- [02:08.560] uh an unbelievable leader actually just
+- [02:11.920] so highly respected and he's in
+- [02:14.239] Minnesota and he's ripping them because
+- [02:16.239] he knows what's going on. I mean, it's
+- [02:18.160] uh
+- [02:19.760] you have your chance now, Tom, because
+- [02:21.280] people have really found out about it.
+- [02:23.440] >> Thanks.
+- [02:24.080] >> I want to thank you for No, but he's
+- [02:25.840] working with our with our people. They
+- [02:28.239] look like Elliot Ness. It looks like
+- [02:29.760] Elliot Ness and the gang up there,
+- [02:31.440] right? They're finding billions of
+- [02:33.120] dollars of fraud. And Tom Emmer is
+- [02:35.680] really helping us. Thanks, Tom.
+- [02:37.280] >> Thank you.
+- [02:37.840] >> And thanks as well to Senators Lindsey
+- [02:39.920] Graham, who had a big victory last
+- [02:41.440] night. He won by a lot
+- [02:43.440] >> and no runoff, no nothing. had a lot of
+- [02:45.440] very capable people running against him
+- [02:47.200] and he just blew him away. So Lindsey
+- [02:49.040] Graham, congratulations. And Chuck
+- [02:51.360] Grassley, Rand Paul, who's here. Hi
+- [02:53.840] Rand. Boy. Oh boy. It's nice to have
+- [02:55.680] Randy. Good to be here. It's a good
+- [02:57.680] thing to have Randy. He knows what's
+- [02:59.440] important. Eric Schmidt has been an
+- [03:01.840] incredible senator. Wherever you may be,
+- [03:04.319] Eric, he's tall enough. He's usually not
+- [03:06.319] too hard to find.
+- [03:08.000] >> And Bernie Marino. Is Bernie here?
+- [03:10.400] >> Where's Bernie? Hi Bernie.
+- [03:12.159] >> What a job, right?
+- [03:13.360] >> Absolutely. So, how's the race going in
+- [03:15.599] Ohio?
+- [03:16.400] >> Uh, you're very popular there and you'll
+- [03:18.000] drag uh every Republican.
+- [03:20.000] >> I hope so. Well, I love Ohio. We won by
+- [03:21.920] a lot, but you ran a incredible race. It
+- [03:25.599] was
+- [03:26.000] >> a big assist.
+- [03:26.800] >> They weren't giving him a big chance and
+- [03:28.560] he ended up winning quite easily, right?
+- [03:30.560] So, it was it was great.
+- [03:33.040] >> We're also pleased to be joined by
+- [03:34.799] Representatives Lisa Mlan,
+- [03:37.280] >> Jordy Arrington, and uh Jody, where's
+- [03:40.400] Jody? Mr. President,
+- [03:42.239] >> you're doing a great job.
+- [03:43.440] >> Favorite budget chairman.
+- [03:46.080] >> Garino,
+- [03:47.599] Laura Lee, thank you. Riley Moore, a
+- [03:50.720] newcomer who's doing really well. Guy
+- [03:54.080] Rashenthaler,
+- [03:55.680] Derek Vorton, as well as
+- [03:59.120] Angel Sister Chris Story. You know that?
+- [04:02.560] >> Yeah.
+- [04:03.040] >> Fantastic.
+- [04:04.720] And we appreciate it, Chris. We
+- [04:06.879] appreciate it.
+- [04:07.920] >> Thank you
+- [04:08.239] >> for more than Thank you very much.
+- [04:10.080] appreciate it being here. Gone through a
+- [04:12.879] lot. For more than 100 days,
+- [04:15.120] congressional Democrats tried to block
+- [04:17.759] all funding for the Department of
+- [04:19.440] Homeland Security in a reprehensible
+- [04:22.800] attempt to throw open the borders of the
+- [04:24.720] United States of America.
+- [04:27.199] They want to drag straight back to chaos
+- [04:30.000] and crime of the crooked Joe Biden
+- [04:33.600] administration. One of the most corrupt
+- [04:35.520] administrations, probably the most
+- [04:37.360] corrupt ever. Nobody's ever seen
+- [04:39.520] anything like it and we're not going to
+- [04:41.120] let them do that. I have to say that
+- [04:44.000] Washington just had some crime numbers
+- [04:46.479] out and it's the lowest number best
+- [04:49.280] crime numbers we've had they say in 58
+- [04:52.000] years.
+- [04:53.520] Uh so we went from being a crimeridden
+- [04:56.080] city, our capital, being a crimeridden
+- [04:58.960] place to being uh among the safest
+- [05:01.680] cities in the country. I'm so happy and
+- [05:03.600] you're you're big beneficiaries because
+- [05:05.680] most of you live here. you hear all the
+- [05:07.520] time, the press, the media, and even
+- [05:09.440] actually some of the media, a couple of
+- [05:10.960] people that I would not suspect, a
+- [05:13.039] couple of people truly treat me
+- [05:15.520] unfairly, but they came up and they
+- [05:17.120] thanked me because it's so much we have
+- [05:19.520] a safe city now. We also have a
+- [05:21.840] beautiful city. We had 22 fountains. Uh,
+- [05:25.520] every one of them didn't work. One of
+- [05:27.120] them, uh, the the probably the best was
+- [05:30.880] one that hasn't worked for 50 years.
+- [05:32.639] That was about the the best. They've all
+- [05:35.680] been out of commission for 50 years or
+- [05:37.680] more. Can you imagine that? They were
+- [05:40.400] graffiti strewn, grass strewn, grass
+- [05:42.720] growing through the cracks, and they
+- [05:44.800] were in terrible shape. And all 22 have
+- [05:46.800] now been opened and the most magnificent
+- [05:49.520] possibly of all. Although the one in
+- [05:50.960] front of Union Station is beautiful. You
+- [05:52.800] see that? It was all graffiti all over
+- [05:54.560] the place. We uh through a lot of work,
+- [05:58.400] we got it looking maybe better than it
+- [06:00.720] was the day they put it in. But the one
+- [06:02.880] that they're all talking about is the
+- [06:05.759] almost 2,500 foot long. That's taller
+- [06:08.800] than any building in the world.
+- [06:10.479] Actually, there's no building that's
+- [06:12.479] 2,500 ft tall, I don't think. But it's
+- [06:16.479] like twice the height of the Empire
+- [06:17.840] State Building as an example. Much
+- [06:19.759] wider. So, uh, we just got that open
+- [06:23.360] last night. We went to do it before July
+- [06:25.360] 4th, and it is incredible. It's called,
+- [06:28.560] it was originally called 1922 was built.
+- [06:30.880] It was called the reflecting pond or the
+- [06:33.520] reflecting lake some people called it,
+- [06:35.440] but uh it was supposed to be reflection.
+- [06:38.000] It never worked from 1922 because it was
+- [06:41.199] stone on the base and no matter what it
+- [06:43.520] always leaked because you have stone and
+- [06:45.039] you have lots of crevices. We have nice
+- [06:47.039] stone out there. But if you go between
+- [06:48.479] the stone it leaks and uh so it never
+- [06:51.520] really worked very well and it was a bad
+- [06:54.319] color. It was gray. It's concrete and
+- [06:56.800] stone. It was gray and I had the idea
+- [07:00.080] along with uh some great people that
+- [07:02.240] worked for us. Doug Bergam is fantastic,
+- [07:04.880] his group, Greg, everybody. And we
+- [07:07.759] worked very hard, but it was going to
+- [07:09.840] cost $400 million and we did it for
+- [07:12.080] about 10 million. It was going to take
+- [07:15.280] four years to build and we did it in
+- [07:17.759] like a month, month and a half and we
+- [07:21.280] would have had a construction site out
+- [07:22.960] there for years and it wouldn't have
+- [07:25.199] worked when they built it. So when they
+- [07:26.800] told me what they were going to do, I
+- [07:28.080] said, "That's not a good idea." I built
+- [07:29.680] many, many, many swimming pools as a
+- [07:32.800] builder, built hundreds of them, and I
+- [07:35.759] got one of our contractors. I had him
+- [07:37.520] take a look and he said, "Oh, we can do
+- [07:39.759] a great job if you could just give us a
+- [07:41.520] decent surface." The surface was inside.
+- [07:43.360] So we sand blasted the surface. We
+- [07:46.319] fumigated it. We took out 11 uh
+- [07:49.280] dumpsters, big dumpsters full of
+- [07:50.960] garbage. It was all garbage stone. Some
+- [07:53.520] of the garbage was there for years. It
+- [07:55.680] was all disgusting and it was it
+- [07:57.919] smelled.
+- [07:59.440] And anyway, we took 11 dumpsters of
+- [08:01.520] garbage out. It's uh with shovels. We
+- [08:04.479] had a shovel inside of what's called a a
+- [08:07.520] pool or a lake and got it cleaned. We
+- [08:10.639] then fumigated it. We then uh sand
+- [08:14.240] blasted the entire thing. We washed it,
+- [08:16.960] cleaned it, scrubbed it, sand blasted
+- [08:18.879] it. Then we gave it a test. Then we
+- [08:21.840] rinsed it out and we gave him a
+- [08:23.280] beautiful surface. And then they put a
+- [08:25.840] swimming pool topping, but industrial
+- [08:28.240] strength. It's industrial strength. It's
+- [08:30.639] used for tanks and lots of other things
+- [08:33.599] to hold water. And we worked out the
+- [08:37.120] ratios of expansion and contraction
+- [08:39.599] because, you know, believe it or not,
+- [08:41.440] when you have something that's 2,500 ft
+- [08:43.839] long, there's tremendous expansion. And
+- [08:45.839] who would think of this? Only person
+- [08:47.760] that does it like me. And they have a
+- [08:50.399] lot of expansion and contraction. So
+- [08:52.880] when we're putting the surface down
+- [08:54.480] would leave areas that can expand and
+- [08:57.440] contract a little bit because it expands
+- [08:59.279] over a foot and a half. Can you believe
+- [09:00.800] it?
+- [09:01.839] >> So I would have ripped it apart. So we
+- [09:04.240] left areas of expansion and contraction.
+- [09:06.320] This we were testing it for 3 weeks,
+- [09:08.399] four weeks. Works. It works great. And
+- [09:11.360] we just opened it last night and people
+- [09:13.200] are going wild over it. So it was going
+- [09:15.600] to cost 400 million and we did it for 10
+- [09:18.880] probably 10 if you take away a couple of
+- [09:21.040] things. We did a much bigger job than
+- [09:23.040] originally planned because once we put
+- [09:24.399] that in, it looks so good. The sidewalks
+- [09:27.279] outside didn't look good anymore. You
+- [09:29.040] know, they look like they were in good
+- [09:30.160] shape, but when you do something new in
+- [09:32.240] this business, you do something new, the
+- [09:34.160] thing that you thought were good, you'd
+- [09:35.440] save it. So, we ended up uh sand
+- [09:38.640] blasting, steam cleaning, and sand
+- [09:40.320] blasting the sidewalks around it. And we
+- [09:42.800] had a lot of areas that were in bad
+- [09:44.160] shape. We had to fix them. We patched
+- [09:45.519] them. And you can't even see the patch.
+- [09:47.519] We have granite surrounding the pool and
+- [09:49.760] the granite scrape, but it was filthy,
+- [09:51.839] dirty, disgusting, and it was broken in
+- [09:54.800] some cases. We we were able to carve out
+- [09:57.760] pieces from other pieces that were
+- [10:00.320] identical and put them in and you can't
+- [10:02.080] even see the seam. And uh it's like a be
+- [10:05.839] it's it's in better shape than it was
+- [10:07.440] when it was built. I told you from 1922
+- [10:09.680] never worked because it always leaked
+- [10:11.519] because it had a stone base. The water
+- [10:13.680] leaked through the stone. So, we're very
+- [10:16.160] proud of it. It's going to be great.
+- [10:17.440] Now, we're doing a new surface on the
+- [10:19.440] World War II fountain because the
+- [10:21.200] surface is so bad and that'll be done
+- [10:23.519] during the next couple of We're going to
+- [10:25.680] start it in a week or so. Finish it very
+- [10:28.000] quickly. But we've done a great job and
+- [10:30.079] the city is everyone's coming up to me
+- [10:31.760] said the city is so beautiful. So, we
+- [10:33.839] have 22 fountains that none of them
+- [10:35.839] worked. the the earliest I'm telling you
+- [10:38.720] it's 50 years for 50 years. Uh some of
+- [10:42.399] them haven't worked for hundred years,
+- [10:45.200] but we have uh fountains that were not
+- [10:47.920] working and were disgusting and dirty
+- [10:51.279] and uh they're all beautiful now, every
+- [10:53.839] one of them. We also took care of a lot
+- [10:56.320] of the monuments, not fountains, but
+- [10:58.399] monuments and they're all in good shape.
+- [11:00.640] Some of them are being finished up now
+- [11:02.880] and it's incredible. And my goal was to
+- [11:05.120] get it all done along with Interior and
+- [11:07.200] others that worked with us to get it
+- [11:09.120] done before the July 4th date. July 4th
+- [11:12.320] was a very important date. So that was
+- [11:14.320] our that was the date we looked at and
+- [11:17.360] we we did a we did a hell of a job. But
+- [11:20.800] everybody's looking at that reflecting
+- [11:22.480] pool. They can't believe it. Reflects.
+- [11:24.560] We used a dark blue. It's called
+- [11:27.440] American flag blue. I wanted to go
+- [11:29.360] light, but they said, "Sir, light
+- [11:31.360] doesn't reflect." and light shows leaves
+- [11:34.079] and garbage if garbage. One man says,
+- [11:36.720] "Sir, when you leave, it'll be strewn
+- [11:38.640] with garbage again." And you don't want
+- [11:41.200] that. See, when I'm here, it'll be
+- [11:42.720] perfect, but when I leave, I said,
+- [11:44.079] "You're right about that." You're
+- [11:45.279] probably right. Depending on who's
+- [11:47.120] president or who's running it, but it's
+- [11:49.680] really beautiful. It's something for you
+- [11:50.959] to see. It's incredible. It's the
+- [11:52.720] largest It's the longest pool in the
+- [11:54.560] world by three or four times. It's, you
+- [11:57.360] know, it's really pretty amazing. That's
+- [11:59.760] where Martin Luther King made his great
+- [12:01.600] speech. And they say he had a million
+- [12:03.839] people. And I made a speech there for
+- [12:05.440] July 4th a few years ago. And they said,
+- [12:08.399] and I was packed. And they said I had
+- [12:10.160] 25,000 people. They said he had a
+- [12:11.920] million. But when you look at the
+- [12:12.959] picture,
+- [12:14.720] >> I said, "Well, wait, the people are even
+- [12:17.120] tighter at mine. I had more people than
+- [12:18.880] him, but they said I had 25,000 and he
+- [12:20.800] had a million." But I'm not going to
+- [12:22.240] argue with Martin Luther King because I
+- [12:25.279] But the Secure America Act provides $ 38
+- [12:27.760] billion to ICE, $26 billion to border
+- [12:31.200] patrol to ensure these critical law
+- [12:33.519] enforcement agencies of the necessary
+- [12:35.519] resources to do their jobs, protecting
+- [12:38.000] our borders, and getting criminal aliens
+- [12:40.000] out of the country. And starting on day
+- [12:42.800] one of my administration, we took the
+- [12:44.720] most dangerous, unsafe, violent, and
+- [12:47.440] open border people out of this country.
+- [12:50.240] We got them out. U I'll give you an
+- [12:53.440] example. In Washington, over five, I
+- [12:55.839] don't even know if you know this. It's
+- [12:58.079] not just policing. You have criminals.
+- [13:00.959] You have career criminals. There's
+- [13:02.240] nothing you can do to make them nice.
+- [13:04.000] They have tough people. They're bad
+- [13:05.600] people. Some of them had records 22, 23,
+- [13:10.160] one at 28 arrests and rough arrests for
+- [13:14.240] murder. And we got uh we took out almost
+- [13:17.760] 5,000 people out of Washington DC. And
+- [13:21.360] if you remember, so 2% of the people
+- [13:24.639] create 91% of the crime.
+- [13:27.279] >> When you hear that number, it's great. I
+- [13:29.760] love that number because you can handle
+- [13:31.600] 2%.
+- [13:32.880] >> If it's 91 create 91, that's no good.
+- [13:35.519] Too many people. But 2% of the people
+- [13:38.079] and we got we took
+- [13:41.920] 5,000 almost 5,000 people out of
+- [13:45.519] Washington DC. They'll never come back.
+- [13:48.000] In addition, the National Guard and we
+- [13:50.000] worked with the police department, law
+- [13:53.120] enforcement was great. And we have a
+- [13:56.000] very safe city. Everyone's going out to
+- [13:57.680] eat now. Restaurants were all closed.
+- [13:59.279] They were all closing. The few that were
+- [14:00.800] open were closing. And now you can't get
+- [14:03.519] a restaurant in Washington. Everyone
+- [14:05.760] wants to have a restaurant and it's a
+- [14:07.199] whole different so it's very something
+- [14:08.959] we're very proud of. New Orleans the
+- [14:10.880] same thing by the way. It's a little a
+- [14:13.600] little earlier in the process. But if uh
+- [14:16.959] I got a call from your governor, I got a
+- [14:18.639] call from Steve.
+- [14:20.320] >> They called me together actually and
+- [14:21.920] they said uh
+- [14:23.040] >> safest migra.
+- [14:24.240] >> They said we've never had a Marty Gro
+- [14:25.760] like that. They had the lowest crime
+- [14:27.279] they've ever had in the history of the
+- [14:29.199] Marty Gro which has been going on for a
+- [14:30.720] long time. They usually, as Steve said,
+- [14:33.120] they usually have numerous numbers of
+- [14:35.199] murders. They had none. But but beyond
+- [14:38.240] murders, they uh I heard it was the
+- [14:40.160] best, like the best you've ever had.
+- [14:41.839] >> Really was a great Super Bowl, too.
+- [14:44.079] >> And and Memphis and And that's going to
+- [14:45.680] be great for the Super Bowl because
+- [14:47.040] we'll keep it that way. I think you're
+- [14:48.240] you're bidding on the Super Bowl coming
+- [14:50.000] in 2031.
+- [14:51.199] >> Yeah. And it's going to be now you can
+- [14:53.360] you can really say it was a safe a safe
+- [14:55.519] city. And the other one is Memphis. We
+- [14:58.399] uh crime is down 77%. Can you believe
+- [15:01.839] it? People are calling me. Our friends
+- [15:03.600] are leaving Memphis. We're all leaving
+- [15:05.519] and now they're staying. And uh the
+- [15:08.160] governor's everyone's thrilled. It's
+- [15:10.160] amazing. And if they would call me for
+- [15:12.480] Chicago, we'd straighten out Chicago so
+- [15:14.720] fast. Would straighten out New York
+- [15:16.800] fast. We'd straighten out Los Angeles
+- [15:19.360] fast. We do it really well. And part of
+- [15:23.120] it is you have to get the really bad
+- [15:24.480] ones. You have to get the career
+- [15:25.760] criminals out because they will they'll
+- [15:28.480] hit you hard. And they ought to get rid
+- [15:29.839] of, by the way, cashless bail. You ought
+- [15:31.600] to do that as soon as possible. Where
+- [15:33.279] they Mark Wayne.
+- [15:34.560] >> That's right.
+- [15:35.199] >> Where they walk in, they commit a crime,
+- [15:37.040] they go out, they in the afternoon, they
+- [15:39.600] commit another crime. And sometimes
+- [15:41.600] those crimes are murder
+- [15:42.959] >> right back on the street. That's right.
+- [15:44.959] >> Cashless. I'll tell you what, cashless
+- [15:46.639] bail was a tremendous help to criminals.
+- [15:52.160] It's one of the greatest things that
+- [15:53.759] ever happened to a criminal. And they
+- [15:55.519] ought to end it in every city. They
+- [15:57.120] ought to end it. Chicago, New York, LA,
+- [15:59.600] they ought to end it. Starting on day
+- [16:01.920] one of my administration, we took the
+- [16:03.759] most dangerous, unsafe, violent open
+- [16:06.880] border in the world. We had the most
+- [16:09.199] unsafe
+- [16:11.199] border, I believe, anywhere in the
+- [16:12.800] world. And
+- [16:15.680] the numbers came out two days ago that
+- [16:18.320] for 11 months, not one person came into
+- [16:22.079] our country illegally through the
+- [16:23.600] southern border. We had 25 million
+- [16:26.240] people come in over a four-year period.
+- [16:29.519] We have it good and nobody tries to come
+- [16:31.360] in. All the caravans I came up with the
+- [16:33.600] name caravan. It was a you'd have 25
+- [16:35.519] 30,000 people coming up and they pour
+- [16:38.240] through the border. You've seen the
+- [16:39.279] scenes where they're knocking over the
+- [16:41.440] fences. Very, very bad, very dangerous
+- [16:44.480] situation. We don't have them anymore
+- [16:46.639] because they know they can't get
+- [16:47.839] through. So when they know they can't
+- [16:49.120] get through, they don't come. And a lot
+- [16:51.120] of lives are saved. Women were being
+- [16:52.720] raped on the journey up. they were being
+- [16:54.639] raped in numbers. 25 30% were being
+- [16:58.320] raped coming up. You don't have that
+- [17:00.959] anymore because they don't come up in
+- [17:03.360] caravans anymore because they know
+- [17:04.720] they're not going to get through. So,
+- [17:07.120] starting on day one, we took the most
+- [17:10.160] dangerous and unsafe, violent open
+- [17:12.720] border in the world. And we created the
+- [17:14.319] most secure border anywhere in our
+- [17:16.400] country, probably one of the most in the
+- [17:17.919] world. I believe it was the most
+- [17:20.079] insecure and unsecure border anywhere in
+- [17:22.720] the world. Because there's no country,
+- [17:25.120] even a third world country, that has a
+- [17:28.240] situation like that where where you'd
+- [17:31.120] have criminals just walk across totally
+- [17:33.840] unchecked. They had a the Biden wasn't
+- [17:36.559] Biden. He didn't know what the hell was
+- [17:37.840] going on. It was it was people that are
+- [17:41.039] radical left lunatics who were very
+- [17:44.880] smart, very violent, very vicious,
+- [17:46.960] politically vicious. And they allowed
+- [17:49.520] this open border policy where millions
+- [17:52.240] of people came into our country
+- [17:53.840] unchecked, unvetted. People from jails,
+- [17:56.799] people drug dealers, people from mental
+- [17:59.919] institutions, jails and mental
+- [18:02.559] institutions from all over the world
+- [18:04.480] were emptied out into our country and
+- [18:07.520] we've got a lot of them out. We have a
+- [18:09.840] ways to go. It's very tough with the
+- [18:11.200] courts because every these the judges
+- [18:14.799] have been very terrible. They've been
+- [18:16.799] terrible. very sad, but we're doing
+- [18:20.080] we're fighting our way through it. We we
+- [18:21.760] have made this a much in fact we've made
+- [18:24.240] it a a country that, as you saw last
+- [18:26.799] month, they said we had the lowest
+- [18:28.880] murder rate that we've had in 125 years.
+- [18:31.280] Think of that. And that's despite the
+- [18:33.760] fact because we got a lot out, but we do
+- [18:36.640] have more. Uh we we had 11,888
+- [18:42.080] people come into our country who
+- [18:44.960] murdered committed a murder. 50% more
+- [18:48.960] than 50% committed more than one murder.
+- [18:52.559] Think of that. So you had people coming
+- [18:54.799] one I think seven
+- [18:57.039] seven murders we allowed them into the
+- [18:59.120] country. Got most of them out. In the
+- [19:01.919] last 12 months zero illegal aliens have
+- [19:04.000] been admitted into the United States. We
+- [19:05.840] cut the flow of fentinol across our
+- [19:08.240] border by almost 60%.
+- [19:11.280] Think of that. And by the way, coming in
+- [19:13.440] by sea, 97%.
+- [19:15.600] And we're looking for the 3%
+- [19:18.160] because we think they're among the
+- [19:19.520] bravest people.
+- [19:23.600] But we cut him down, right? We cut it
+- [19:25.679] down 97%.
+- [19:28.000] And now I I you know hate to tell this
+- [19:30.240] to Mexico, but we're now focused on
+- [19:33.760] coming in by land because the sea was
+- [19:35.600] tougher. A lot was coming in by sea.
+- [19:38.400] Much bigger percentage than anyone would
+- [19:40.160] know was safer for them. It used to be
+- [19:42.960] not safe anymore. But with 97% down
+- [19:46.480] coming in by sea, by ocean, by by water,
+- [19:50.160] and you see what happens to them, and
+- [19:52.960] they don't do it a second time. They
+- [19:55.360] used to have they were totally
+- [19:56.720] unchecked. When they did capture
+- [19:58.960] somebody, they'd bring them in. They'd
+- [20:00.480] book them and they'd let them go and
+- [20:02.320] they'd go and they'd be back on their
+- [20:04.799] boat the following night. So, we're
+- [20:07.600] doing a great job. In the last
+- [20:10.640] 12 months, the numbers have changed in
+- [20:13.360] this country like nobody's ever seen
+- [20:15.440] before, but zero illegal aliens have
+- [20:17.280] been admitted. And that's made by
+- [20:20.320] largely Democrat people. Those lists are
+- [20:23.120] made. And I find it hard to believe when
+- [20:26.000] I say zero. There must have been some,
+- [20:27.919] but they say zero. And it it's very
+- [20:30.320] close to zero. It's hard to believe. You
+- [20:32.000] look, you know, they used to have that
+- [20:33.919] certain areas on the other side of the
+- [20:36.320] wall. I built over a thousand miles of
+- [20:37.919] wall. Without the wall, you couldn't do,
+- [20:40.159] but I built over a thousand miles of
+- [20:41.919] wall. We're building more now in certain
+- [20:43.440] areas where you need it. But, uh,
+- [20:46.480] nobody's ever seen anything like this.
+- [20:48.240] You had plazas where you have thousands
+- [20:50.799] of people standing in those plazas. They
+- [20:52.720] were bu they actually made them out of
+- [20:54.320] concrete because the land was so
+- [20:56.480] disgusting and dirty and and it was so
+- [20:59.360] it was so muddy and horrible. So they
+- [21:02.000] put massive concrete plazas on the other
+- [21:06.159] side for people to wait getting in.
+- [21:08.320] There's nobody on them. There's nobody.
+- [21:10.880] They took a picture this morning. There
+- [21:13.120] was nobody on any of the plazas. They
+- [21:15.200] have four of them, big ones where they
+- [21:16.880] come and stand by the thousands. There
+- [21:19.280] was nobody on the plaza. So, it's really
+- [21:21.600] amazing. Uh, I want to speak about it in
+- [21:24.559] my speeches. I wanted to I made a speech
+- [21:26.559] last week which is really wonderful.
+- [21:29.840] Wisconsin,
+- [21:30.799] >> that's right.
+- [21:31.200] >> And I wanted to speak about the great
+- [21:32.720] job I've done on the border. And my
+- [21:34.880] people said, "Sir, nobody cares about
+- [21:36.720] that." I said, "What do you mean?" I got
+- [21:38.880] elected on that twice actually because I
+- [21:41.679] got elected the first time 2016
+- [21:44.480] and uh after I left it became horrible,
+- [21:48.720] horrible. second time was far worse the
+- [21:52.559] the what it was in 2024. It was so bad
+- [21:56.400] far worse than 2016. 2016 was like a
+- [22:00.159] pleasure trip by comparison to what it
+- [22:02.000] became. It became worst in the history
+- [22:03.919] of the world. I don't think there's ever
+- [22:05.280] been a border where 25 million people
+- [22:07.679] came across all unchecked and unbed. You
+- [22:10.640] never let that happen. We can never let
+- [22:12.880] that happen. What happened to our
+- [22:14.240] country again because no country can
+- [22:15.760] stand it. No country could have withtood
+- [22:18.240] what what these people we had a borders
+- [22:20.640] are who never saw the border. We had a
+- [22:22.960] borders who never called never once the
+- [22:25.280] people that were giving good paychecks
+- [22:27.679] to they never called up ICE. They never
+- [22:30.240] called up the border patrol who are
+- [22:31.760] phenomenal people by the way. She never
+- [22:34.240] once called them. She was the border
+- [22:35.840] zone for four years almost four years
+- [22:37.840] and she never went to the border and she
+- [22:40.559] never called up. I used to call them all
+- [22:42.960] the time. Paul and Brandon. I used to
+- [22:46.400] call them all the time and say, "Hi, how
+- [22:48.720] we doing on the border?" Sir, we're
+- [22:50.559] doing okay. But they're great people,
+- [22:53.520] amazing people. She never called them.
+- [22:55.280] We had the worst border, I think, of any
+- [22:57.200] country in history. No third world
+- [22:59.280] country would allow people to come into
+- [23:00.880] their country like that. So, the bill
+- [23:03.440] provides crucial funding for domestic
+- [23:06.000] law enforcement investigations and
+- [23:08.240] combating child exploitation. continuing
+- [23:11.360] our work to restore law and order across
+- [23:13.840] our nation and to protect America's
+- [23:16.000] youth. We're so proud. We're so proud of
+- [23:18.240] Washington DC and the National Guard,
+- [23:21.120] the job they've done. And we've worked
+- [23:22.559] with the Washington, the Capitol Police,
+- [23:24.799] they're great people. I've gotten to
+- [23:26.400] know so many of them. Very simply, the
+- [23:29.280] radical F Democrats and and I'm going to
+- [23:32.000] use that term a lot because they're
+- [23:33.600] dumb. I mean, who wants open borders?
+- [23:37.120] Who wants transgender mutilization of
+- [23:40.720] your child? Who wants that? Who wants
+- [23:44.240] men playing in women's sports? They're
+- [23:46.559] dumb. They're Democrats. They have the
+- [23:49.440] worst policy of anybody. I watch that
+- [23:51.440] thug that that's up in Maine. He's a
+- [23:53.760] thug.
+- [23:55.120] >> And they're trying to make excuses for
+- [23:56.880] him. I mean, he's worse than any human
+- [23:59.760] being that's ever run for office,
+- [24:01.440] probably. I don't know him. I don't want
+- [24:03.600] to say bad, but I I just look, I mean,
+- [24:06.400] nobody's ever had a record like that.
+- [24:08.640] And you'll have Schumer, he goes crazy
+- [24:11.120] over this or that or Epstein, Epste and
+- [24:14.240] Epstein. This guy, why aren't they
+- [24:17.440] talking about him? He said, well, we
+- [24:20.240] don't know, but this guy's got a
+- [24:23.279] rapture. I've never seen anything like
+- [24:24.720] it. He's a thug. I know thugs. I had to
+- [24:27.120] deal with thugs. I built a lot of
+- [24:29.120] buildings. I dealt with the toughest
+- [24:30.559] people on Earth. I dealt with worse than
+- [24:33.039] thugs. This guy's a thug. He's a
+- [24:35.279] low-level thug. And he's running for to
+- [24:38.080] be a senator to work with Eric Schmidt.
+- [24:41.279] Great. Eric will handle him. I think
+- [24:45.520] >> to be with Baraso, who the hell do we
+- [24:47.760] have to be with Rand? Now, Rand would be
+- [24:49.520] very interesting, but Rand would figure
+- [24:51.279] it out. He'll put him away. But but this
+- [24:55.039] is a thug. He's a cheap, no good person.
+- [24:59.679] And I watch these senators on the
+- [25:02.400] Democrats and well, we don't really
+- [25:05.200] know. You do know he's as bad. I've
+- [25:08.000] never seen a person like that run for
+- [25:10.720] office.
+- [25:12.799] And the guy from Texas different, but
+- [25:16.400] he's terrible, too. He's terrible. These
+- [25:18.640] are radical left communists.
+- [25:21.679] But I watched this guy this morning and
+- [25:24.400] he was so bad. He was so bad. He's a bad
+- [25:27.360] guy, you know, just a bad guy. He must
+- [25:29.679] be laughing up his sleeve when he looks
+- [25:31.440] at these idiots going like Schumer.
+- [25:33.120] Well, he's okay. He's okay. He's not
+- [25:36.080] okay. Can you imagine if the Republicans
+- [25:37.840] had him?
+- [25:38.480] >> Oh my god.
+- [25:39.440] >> If we had him, John wouldn't let it
+- [25:41.440] happen.
+- [25:42.480] >> Well, I think I really believe it. If it
+- [25:44.559] if it meant losing the Senate, you would
+- [25:46.720] not let that happen.
+- [25:49.039] >> It's just a terrible thing. I mean, I
+- [25:51.039] watch it happening. It's unfolding. It's
+- [25:52.880] it's really history because there's
+- [25:54.400] never been a guy like that that's ever
+- [25:56.000] run for office and at any level. I don't
+- [25:58.559] think at any level. And the excuses they
+- [26:01.279] come up every day somebody comes forward
+- [26:02.960] with really proven stuff.
+- [26:06.559] Even his business, you know, oh, he's a
+- [26:08.400] he's not a businessman at all. His
+- [26:10.559] parents supported him. Guy's a loser.
+- [26:13.600] Other than that, he might be very nice.
+- [26:16.640] But very simply, the radical left
+- [26:18.720] Democrats in and I don't I look forward
+- [26:20.640] to the day when I don't call them
+- [26:22.880] Democrats anymore.
+- [26:25.360] And I won't if they do their job. If
+- [26:28.159] they want to stop crime, if they want to
+- [26:30.080] lower taxes, if they want to do the
+- [26:33.120] common education, the good things,
+- [26:35.120] there's so many things we can do
+- [26:36.480] together. I look forward to the day that
+- [26:39.120] I don't call them Democrats anymore.
+- [26:40.880] There'll be that day, I think. I hope.
+- [26:44.880] But they're in Congress and they voted
+- [26:47.840] with the cartels, the terrorists, the
+- [26:49.760] gang members, the drug dealers, the
+- [26:51.360] human traffickers, the child predators,
+- [26:54.320] and our great Republican majorities
+- [26:56.960] voted to protect law-abiding American
+- [26:58.960] citizens. I mean, they voted to raise
+- [27:01.520] your taxes. They voted for men in
+- [27:03.600] women's sports. They voted in favor of
+- [27:05.679] men participating in women's sports.
+- [27:08.159] It's ridiculous. They voted for the
+- [27:10.720] transgender mutilization of your child.
+- [27:13.600] They voted for all these things. They
+- [27:15.840] voted for open borders so bad. One of
+- [27:18.240] the worst things that's ever happened in
+- [27:19.679] this country. Hardest thing to cure
+- [27:22.000] because we had 25,000 people. Remember
+- [27:25.039] this. When countries because countries
+- [27:26.960] set those people up. When countries put
+- [27:29.440] people into a cartel into a through the
+- [27:33.039] cartels they put them into a whole group
+- [27:36.000] of 10, 15, 20,000
+- [27:38.720] people that come in. They're not giving
+- [27:41.440] you their best people. They're giving
+- [27:43.440] you people that they don't want.
+- [27:45.760] >> Yeah.
+- [27:46.559] >> And they're sending them into or the
+- [27:48.240] Democrats voted in favor of that. Uh
+- [27:51.520] it's it's really it's really a shame and
+- [27:55.679] it's so bad for the country. You'd
+- [27:57.200] almost think they hate the country
+- [27:59.039] because they can't they're not stupid
+- [28:00.480] people. You can't cheat like they did.
+- [28:03.120] And look at the election in California
+- [28:05.520] as an example. After a week, they
+- [28:08.720] determined that the kid who's leading
+- [28:10.399] and had all the mojo, all of a sudden he
+- [28:13.279] doesn't make the runoff. And then I I
+- [28:15.679] hit them hard on that. But I started
+- [28:18.399] talking about Steve Hilton, who's a
+- [28:19.840] fantastic guy. And I saw them say it was
+- [28:23.200] going to be two weeks before they knew.
+- [28:25.120] And I started hitting them. It's going
+- [28:26.559] to happen to Steve Hilton, too. It's
+- [28:28.480] watch. You got to watch. And they
+- [28:30.960] approved Steve Hilton very quickly. They
+- [28:32.559] didn't want anything. There was too much
+- [28:34.320] heat on him. The only reason he got
+- [28:36.000] approved, he had all the votes he needed
+- [28:38.480] probably to be first place, but the only
+- [28:41.200] reason they approved Steve Hill, it was
+- [28:43.039] going to be two weeks. They said it. And
+- [28:46.000] then they approved him that night
+- [28:48.159] because the heat was on them because
+- [28:50.240] they're cheating dogs. And you can't
+- [28:52.880] have a great country when that happens.
+- [28:54.480] That's why Los Angeles, that's why that
+- [28:56.720] state is in such trouble. It's the most
+- [28:58.880] beautiful place, best weather maybe
+- [29:01.120] anywhere in the world, but it's in big
+- [29:03.520] trouble. So, we're going to have a
+- [29:05.760] tremendous uh success. The people
+- [29:09.120] alongside of me are amazing people.
+- [29:11.200] They're amazing. Every one of them. I
+- [29:12.880] know every one of them. They're amazing
+- [29:14.480] people. They love the country. They want
+- [29:16.000] to do right for the country. And uh if
+- [29:19.200] you have any questions, please. Let's
+- [29:20.640] go.
+- [29:22.559] You posted this morning about Iran. You
+- [29:24.159] said that they've taken too long to get
+- [29:25.679] to a deal, and I want to make sure I
+- [29:26.799] quote you correctly. You said that now
+- [29:28.640] they will have to pay the price. What
+- [29:30.640] did you mean by that specifically? Well,
+- [29:32.159] we're going to be attacking them and
+- [29:33.840] attacking them very hard
+- [29:35.039] >> to pursue the bombing.
+- [29:36.640] >> Yeah. Well, we are based on the
+- [29:38.399] helicopter. I guess we have the right to
+- [29:40.000] do that. You know, they shot down a very
+- [29:44.000] uh very incredible actually an
+- [29:46.080] incredible machine. And uh at first they
+- [29:48.880] said they didn't do it, then they
+- [29:50.000] admitted they did it. Sort of easy
+- [29:51.600] because we have the we have the bomb. We
+- [29:54.080] actually have the bomb. Got very lucky
+- [29:56.000] that bomb didn't explode. That bomb was
+- [29:58.399] lodged in the helicopter. It didn't
+- [30:00.159] explode. It was on fire, but it didn't
+- [30:02.080] explode. That's those two guys. They
+- [30:04.960] knew how to fly, but they got very
+- [30:06.320] lucky. And uh then we had the unmanned
+- [30:10.240] boat going very very fast at speeds that
+- [30:13.600] you wouldn't want to go. That's why it's
+- [30:15.840] unmanned, I guess, because nobody can go
+- [30:17.760] in that. But uh they rescued. So the
+- [30:20.240] both both people are fortunately the
+- [30:22.320] pilots are okay. No, no, I've been uh
+- [30:25.520] working with Iran for a number of months
+- [30:30.000] and they should sign their deal. It's a
+- [30:35.120] good deal. It doesn't give them the
+- [30:36.640] right to have a nuclear weapon. In fact,
+- [30:38.960] it totally prohibits them from ever
+- [30:40.960] having a nuclear weapon.
+- [30:43.840] And it was just tap tap tap. I don't
+- [30:46.559] know what they're doing. So, they then
+- [30:50.559] shot out a shot at our helicopter. Very
+- [30:54.960] expensive helicopter, by the way. But
+- [30:56.640] much more importantly, the two men.
+- [30:58.320] Fortunately, they're okay. But uh an
+- [31:01.279] amazing rescue. If you ever get a clip,
+- [31:03.840] you'll you won't believe the rescue. How
+- [31:05.679] cool it was. The equipment we have.
+- [31:07.919] Look, we have the strongest military in
+- [31:09.600] the world. And I gave them a break at
+- [31:12.080] the request of Pakistan. The uh field
+- [31:15.600] marshall and the prime minister of
+- [31:17.440] Pakistan are great. We stopped them from
+- [31:19.760] going to war with India. You would have
+- [31:21.120] had a nuclear war if it wasn't for me.
+- [31:23.760] But they became friendly to me, very
+- [31:25.919] friendly, and they they they're close to
+- [31:28.000] Iran and they work and they still are
+- [31:30.880] working on trying them to do what's
+- [31:32.799] right. But we want a deal that's
+- [31:34.640] meaningful. We want a deal that works.
+- [31:36.159] We don't want to just have a Barack
+- [31:38.159] Hussein Obama deal, JCPOA, the worst
+- [31:41.120] deal. That was a path to a nuclear. It's
+- [31:43.919] the exact opposite. You know, I like on
+- [31:45.360] television. I said, "Oh, they should
+- [31:46.880] have kept that deal." First of all, it
+- [31:48.480] was over. It was a short-term deal, but
+- [31:51.360] that deal was a path to a nuclear
+- [31:54.080] weapon. This is a path against a nucle
+- [31:57.679] You can't have a nuclear weapon. His was
+- [32:00.399] a path to a nuclear weapon. They were
+- [32:02.960] developing during his administration
+- [32:06.080] nuclear weapon. If they had a nuclear
+- [32:08.320] weapon, there'd be no Israel, there'd be
+- [32:11.200] no Middle East, and they would have
+- [32:12.960] absolutely shot at us. So, so we'll see
+- [32:17.039] what happens, but we hit them hard
+- [32:19.360] yesterday and we're going to hit them
+- [32:21.679] again hard today in case you miss it in
+- [32:24.399] case you don't turn on your television
+- [32:26.000] set. And uh we'll see what happens with
+- [32:29.120] the deal. We were we were really close
+- [32:30.960] to a deal, but they keep tapping us
+- [32:32.480] along. They keep playing us for suckers
+- [32:34.320] because you know what? They dealt with
+- [32:36.399] some very stupid presidents. I have to
+- [32:38.240] say that. I'm embarrassed to say some
+- [32:40.480] very stupid people were sitting here.
+- [32:42.240] Yeah,
+- [32:42.960] >> Mr. President, you mentioned the Senate
+- [32:44.880] race in Maine. Are you all in in
+- [32:47.360] supporting Susan Collins? Does she have
+- [32:49.120] your full support and endorsement in her
+- [32:51.519] Senate re-election?
+- [32:52.399] >> Because she's a sane woman. She's not my
+- [32:54.640] best friend at all. These guys are. I
+- [32:57.600] get along well, but I have some. But
+- [32:59.679] she's a sane person. And she's a person
+- [33:02.480] that never missed a vote in many years.
+- [33:05.120] I mean, she's like had 10,000 votes. She
+- [33:08.320] had 10,000 votes. She never missed a
+- [33:10.159] vote, unfortunately, cuz sometimes she
+- [33:12.880] voted against me, but you know, look,
+- [33:16.080] she's a sane woman and she's a respected
+- [33:19.279] person. Um, maybe a little different
+- [33:22.640] ideology than me, but this guy is a
+- [33:25.840] thug. He's a fake He's a fake thug. He's
+- [33:29.279] a phony. I've made a lot of money
+- [33:32.240] picking out phonies. He's a real phony.
+- [33:34.480] He's bad. He's a bad person.
+- [33:36.240] >> Mr. President, are you going to go back
+- [33:37.519] to attack or are you thinking of
+- [33:39.120] attacking Iranian power plants and
+- [33:41.039] bridges as you've threatened? I
+- [33:42.880] >> don't do that to you, but I can do that.
+- [33:44.880] Look, I could knock out. We have the
+- [33:47.200] most powerful. I built the military with
+- [33:49.039] these people approving it. They approved
+- [33:51.519] numbers that nobody would have ever
+- [33:52.880] thought we would have been, but we built
+- [33:55.760] it. We gave a lot to Ukraine through
+- [33:59.200] Biden. He gave a lot of money, a lot.
+- [34:01.519] But we're in great shape. We have a lot
+- [34:03.919] of storage capacity but he gave a lot
+- [34:06.960] and uh if you look at you know what's
+- [34:10.159] happened I when I left our cup our
+- [34:13.679] cupboards were full
+- [34:16.000] he gave he gave it now I sell it to the
+- [34:18.960] European Union and they give it to
+- [34:21.280] Ukraine for the most part but uh we have
+- [34:25.040] the strongest military anywhere in the
+- [34:27.040] world
+- [34:28.960] and sometimes you'll have to use it and
+- [34:32.000] we have to remember and and when people
+- [34:34.480] hear this Iran very simply cannot have a
+- [34:37.200] nuclear weapon and they won't and
+- [34:38.960] they've agreed to that all they have to
+- [34:41.280] do is they have to start signing a paper
+- [34:43.520] it's fully negotiated
+- [34:46.159] we have a fully negotiated but they're
+- [34:48.159] tapping and tapping and I say all right
+- [34:50.399] let's give them a couple of more days
+- [34:51.919] they're tapping
+- [34:53.839] because it's a meaningful paper they
+- [34:55.599] know when they sign that paper it's
+- [34:57.040] meaningful uh the Obama deal JCPOA one
+- [35:01.280] of the worst one of the dumbest
+- [35:02.720] documents I've ever seen. Yeah.
+- [35:05.280] >> Mr. President, when are you meeting with
+- [35:07.200] tech executives about the government
+- [35:09.119] taking stake in AI companies and what
+- [35:11.280] could this partnership look like
+- [35:12.960] >> about AI?
+- [35:14.960] >> Well, I can say this. Uh we're having a
+- [35:17.359] meeting with them. It's an amazing
+- [35:20.400] industry. It's bigger than any industry
+- [35:22.720] anyone's ever seen. We are leading China
+- [35:25.920] by a lot. And you know, whoever leads
+- [35:28.720] that is going to really lead the world
+- [35:30.880] to a large extent. That's how big it is.
+- [35:33.599] Uh and we're I'm going to have meetings
+- [35:35.440] with the top 12 or 15 executives very
+- [35:39.440] shortly. And we're talking about giving
+- [35:42.000] back something to the public. And if we
+- [35:45.119] do that, the public will become very
+- [35:47.760] rich, the people in our country, because
+- [35:49.920] that's the kind of money we're talking
+- [35:51.359] about. And I think they'll do that. And
+- [35:54.560] I think it'll make it very popular.
+- [35:57.680] President, I I have two question. First
+- [35:59.440] of all, Turkey's President Erdogan keeps
+- [36:01.520] threatening Israel. Do you think there's
+- [36:03.119] a chance of a conflict between Israel
+- [36:05.359] and Turkey? And will you sell F35 to
+- [36:08.720] >> Well, as you know, he's a very good
+- [36:09.839] friend of mine and we've worked very
+- [36:12.560] well together. I I like him a lot. I'm
+- [36:14.640] not supposed to say that because the
+- [36:16.000] press will say, "Oh, he likes everyone."
+- [36:18.160] No, he's a he's a hell of a leader and a
+- [36:21.520] strong person. Very strong person. Uh, I
+- [36:26.000] haven't heard that at all. If I did, I'd
+- [36:28.000] call him and I think I'd make sure that
+- [36:29.599] things were fine. I don't think that
+- [36:31.520] will happen with Turkey. Not not as long
+- [36:33.599] as I'm president because he respects me
+- [36:36.240] and I respect him. But beyond that, we
+- [36:38.079] have a good friendship. So, you know,
+- [36:39.520] we'll see.
+- [36:41.040] >> That's my second question. Beside peace
+- [36:42.480] in the Middle East, what do you wish
+- [36:43.839] yourself for your birthday?
+- [36:45.680] >> For my birthday.
+- [36:47.680] >> Well, I I'll go a step bigger. Peace for
+- [36:50.000] the world. Okay. Peace for the world.
+- [36:52.160] Middle East. Yes. Peace for the whole
+- [36:53.599] world. Mr. President, um there is a New
+- [36:56.880] Jersey Democratic congressional nominee
+- [36:59.280] over in the 12th district. Uh his name
+- [37:01.599] is Adam Homaly. He has a connection to
+- [37:05.119] the blind shake and I was wondering if I
+- [37:07.520] can get your thoughts on that.
+- [37:09.760] >> Okay.
+- [37:10.720] >> I think it's terrible. I've seen it. I
+- [37:13.119] mean, he was more, you know, now he's
+- [37:14.480] trying to say, "Yeah, I sort of knew
+- [37:16.000] him." He didn't know him. They were they
+- [37:17.680] were very good friends.
+- [37:19.760] And you look at the you go back and look
+- [37:23.040] at what happened during that period of
+- [37:24.560] time. He was a witness at the trial for
+- [37:26.560] him. He was a positive witness for him.
+- [37:29.200] He said the most loing things. A guy
+- [37:30.880] knocked down the World Trade Center.
+- [37:32.240] Admitted that he knocked down the World
+- [37:34.480] Trade Center.
+- [37:36.400] I I think it's another one. If you look,
+- [37:39.280] I actually think the one in Maine is
+- [37:40.880] worse because he's just an outright pig.
+- [37:44.240] He's like a pig. I watched him a couple
+- [37:47.040] of times. He's like a pig. It's what he
+- [37:49.440] reminds me of. You know, I come up with
+- [37:50.880] good names for people. I don't want to
+- [37:53.520] stick him with that one. Although, I
+- [37:54.960] think pigs would be very upset about it.
+- [37:58.000] Go ahead.
+- [37:58.320] >> Mr. President, July 1st is coming fast.
+- [38:01.119] How confident are you that you'll be
+- [38:03.440] able to renew the USMCA and what more
+- [38:05.920] you expect from Canada at this point?
+- [38:07.599] >> Well, I'm not looking to renew it. I I
+- [38:09.520] don't you know, I mean, I made the deal
+- [38:11.520] and the primary reason I made the deal
+- [38:13.119] is that NAFTA was the worst trade deal
+- [38:14.800] I've ever seen.
+- [38:15.599] >> Yeah. and I made it better, but I had
+- [38:17.599] the right to terminate. And you know,
+- [38:19.760] with NAFTA, we didn't have the right to
+- [38:21.280] terminate. I had to get these senators
+- [38:23.040] to approve that deal. That was a tough
+- [38:25.280] thing, Congressman, too. Uh NAFTA had no
+- [38:29.119] termination. So, I mean, I've never said
+- [38:31.599] this before, but I'll tell you what my
+- [38:33.200] thinking was. NAFTA was a disaster for
+- [38:36.079] our country. The worst trade deal ever
+- [38:38.560] made by far. You know, they had typos
+- [38:41.839] in, okay? and they were supposed to
+- [38:44.320] correct them and they never corrected
+- [38:46.400] them when they were signed. They knew
+- [38:47.599] there were typos and there's a process
+- [38:50.640] for that. You state your claim and you
+- [38:53.359] know you get a change. They have typos
+- [38:55.520] on percentages
+- [38:57.280] or maybe somebody wrote and it was for
+- [39:00.160] years they never ran. They had horrible
+- [39:03.760] all against us. So it probably wasn't
+- [39:06.240] typos. They never NAFTA was the worst
+- [39:08.640] trade deal we ever had. USMCA did one
+- [39:11.920] thing that I loved after six years. It
+- [39:15.839] comes up for renewal.
+- [39:18.640] I don't know that I'm going to renew it
+- [39:20.320] because to be honest with you, the
+- [39:22.960] United States does much better. Hey, we
+- [39:26.720] don't need anything that Canada has. We
+- [39:28.480] don't need anything that Mexico has, but
+- [39:30.160] they need everything that we have. And
+- [39:32.880] they have to treat us better. You know,
+- [39:34.960] with uh Mexico and Canada, we have trade
+- [39:38.000] deficits. we should have surpluses with
+- [39:40.720] them. We don't need their cars. We don't
+- [39:43.200] need their lumber. We don't need their
+- [39:44.720] energy. We don't need anything that they
+- [39:47.119] have. So, the primary thing that I got,
+- [39:50.079] it was a much better deal than NAFTA.
+- [39:52.079] Much much better. It was a it was sort
+- [39:53.760] of a good deal, but it was a great deal
+- [39:56.079] for one reason. It gave the right to
+- [39:58.960] terminate. And who would have thought
+- [40:00.400] that I was, you know, they just didn't
+- [40:02.320] want to have it during the four-year
+- [40:03.680] period when I was president. So now they
+- [40:08.079] made it so that I wouldn't be president
+- [40:10.880] and because they rigged the election,
+- [40:12.400] the second election, as you probably
+- [40:15.680] hear and probably know, most of you know
+- [40:17.599] that happened and now it's been proven
+- [40:20.000] and it will be proven as time goes by
+- [40:21.839] even more so. We have things that you
+- [40:23.200] won't believe when we release the full
+- [40:24.880] files. You're not going to believe how
+- [40:26.480] crooked the second 2020 election was.
+- [40:28.880] But who would have thought that it comes
+- [40:33.119] due in my term? I mean, this was Thank
+- [40:36.160] you very much.
+- [40:38.320] So, uh, it was very important that we be
+- [40:41.200] able to do that. So, we're talking to
+- [40:42.800] them. We'll see if we do something.
+- [40:44.560] >> Mr. Before we came in here, you posted
+- [40:46.800] about Bill Py and that he'd be starting
+- [40:48.720] the job early. You said he's going to be
+- [40:50.079] downsizing the DNI. Can you talk about
+- [40:51.839] your
+- [40:52.560] >> people have wanted that downsized for a
+- [40:54.320] long time and many people don't want it
+- [40:56.079] at all? A lot of people thought it was a
+- [40:58.160] duplication. Yeah. A lot of people
+- [41:00.240] thought it was a duplication. and he's
+- [41:01.760] done a great job at Fanny May and uh you
+- [41:05.440] know you take Freddy Mack Fanny May the
+- [41:08.000] the value of that has increased so much
+- [41:11.920] since I've been in charge you know I had
+- [41:13.440] the right to sell that and in my first
+- [41:15.920] term a group came to see me wanting to
+- [41:19.040] uh buy it and they offered me exactly
+- [41:21.520] 10% of what it's worth today and I
+- [41:24.079] didn't want to do it because I didn't
+- [41:25.760] want to look foolish when they flipped
+- [41:28.079] it a year later for hundreds of billions
+- [41:30.960] millions of dollars more. So, I kept it
+- [41:33.760] and I put him in charge as soon as I got
+- [41:35.760] here and he's done an amazing job. Could
+- [41:37.920] be worth a trillion dollars.
+- [41:39.440] >> A pretty different portfolio, though.
+- [41:40.800] >> Well, it is. I know. But, you know,
+- [41:41.920] smart people are smart people. I always
+- [41:44.400] say I'd rather have smart than
+- [41:46.000] experience, but experience is good, too.
+- [41:48.480] Uh,
+- [41:50.319] I would say this, he's going to be there
+- [41:52.240] for a short while. We pick somebody
+- [41:54.079] else. We're interviewing five different
+- [41:56.160] people. They're all very good, very
+- [41:57.680] different. And we'll put somebody there.
+- [42:00.000] that people want it downsized. The
+- [42:02.720] senators and the congress people, I
+- [42:04.480] think everybody wants it downsized. And
+- [42:06.640] many people, I think, and I won't speak
+- [42:08.240] for Todd, but uh and I'm not sure how
+- [42:10.480] Todd feels. By the way, he's great. I
+- [42:12.400] hope you people have give him an easy
+- [42:14.079] run because he's very busy. He doesn't
+- [42:16.400] need stupid people uh saying, "Why
+- [42:20.800] didn't you get a higher mark at a
+- [42:23.680] certain college?" Because he's highly
+- [42:25.119] educated. He was a great student. He's
+- [42:27.440] great at everything he's done. And how
+- [42:29.520] come he got a B+? See, they'll go after
+- [42:32.319] him for getting a B+ instead of an A.
+- [42:34.240] But the other guy can be a thug and let
+- [42:37.280] him run. He's okay. He's fine. The one
+- [42:39.599] thing about him, it's great because
+- [42:42.240] every time they bring something up, he's
+- [42:44.000] worse than anybody that we've ever seen.
+- [42:46.160] And I hope the Republicans are going to
+- [42:47.920] use him as your as your standard bearer.
+- [42:50.880] When they when they say that, gee,
+- [42:53.839] Eric, we don't like the way you dress
+- [42:56.240] today. It's unacceptable, right? and
+- [42:58.240] then all you have to do is point to this
+- [42:59.760] thug that they're trying to put in. So,
+- [43:02.560] uh, pretty much that's the way it is.
+- [43:04.640] He's going to do a good job. He's going
+- [43:05.760] to be there for a very short period of
+- [43:07.119] time. Uh, he will be superseded and
+- [43:10.560] replaced by somebody that's going to
+- [43:11.920] have the job permanently. Okay.
+- [43:13.359] >> What do you think? What do you think?
+- [43:15.119] Democrats saying they don't hold up the
+- [43:18.319] Democrat. They're not Democrats. They're
+- [43:20.000] Democrats. They're dumb people. Yeah.
+- [43:23.200] >> Uh, then I guess something's going to
+- [43:24.960] happen. No, we can't let them extort us.
+- [43:27.920] I told the guys today, we can't let
+- [43:30.240] them. They did. They've done it on
+- [43:32.079] numerous occasions. They said, "We
+- [43:33.599] can't." Uh, this what we're signing
+- [43:36.560] today has been amazing, but they tried
+- [43:38.480] to extort us and eventually. And they
+- [43:41.040] were losing tremendous support because
+- [43:42.960] they're extorting on law and order, and
+- [43:45.920] they can't win on law and order. People
+- [43:47.680] want law and order. They don't want
+- [43:50.079] crime. And that's essentially what they
+- [43:52.480] were doing. And ultimately they could
+- [43:54.720] not take the heat. But we can't let them
+- [43:56.880] explode.
+- [43:57.440] >> Mr. President, it starts tomorrow. And
+- [43:59.920] >> what? The World Cup.
+- [44:01.200] >> Yeah. Soccer World Cup. The football
+- [44:02.960] world.
+- [44:03.440] >> Most successful World Cup they've ever
+- [44:05.280] had.
+- [44:06.560] >> Exactly.
+- [44:07.040] >> They've never sold tickets at that
+- [44:09.200] level. They've never sold that many
+- [44:11.280] tickets so quickly. It's amazing because
+- [44:13.839] you don't think of soccer, we use the
+- [44:15.440] word football soccer, right? But you
+- [44:18.079] don't think of soccer in this country.
+- [44:19.839] It's the most success. I spoke to Johnny
+- [44:21.920] this morning. He's fantastic and uh he's
+- [44:25.359] the boss. He said uh there's never been
+- [44:28.880] anything close to what's happening.
+- [44:30.240] >> But because of the success, some people
+- [44:31.920] are afraid that it's going to be harder
+- [44:33.520] and harder to get visas to come from out
+- [44:35.520] outside. Can you raise
+- [44:36.480] >> Well, we're going we're working on it
+- [44:37.839] very closely to make sure the right
+- [44:39.599] people come into our country.
+- [44:45.599] I will
+- [44:46.000] >> Are you concerned, Mr. President, about
+- [44:47.599] the latest inflation number which came
+- [44:49.599] out this morning? Could that be a
+- [44:50.960] headwind? The numbers were great. You
+- [44:53.599] know what I really love? I love the
+- [44:55.119] inflation. You know why?
+- [44:56.640] >> Because as soon as this war is over,
+- [44:59.200] >> you know, I can say it now.
+- [45:01.520] >> Something you didn't know. Do you know
+- [45:02.640] we've been taking out millions of
+- [45:05.359] barrels of oil? Nobody knows it. You
+- [45:08.319] know who doesn't know about it? Iran.
+- [45:10.400] Until right now.
+- [45:13.040] We took out the other night 22 ships
+- [45:15.920] late at night with no lights because
+- [45:17.760] they don't have any radar because we
+- [45:19.119] blasted the crap out of it. We took out
+- [45:22.240] that's why oil is $85 a barrel. I mean,
+- [45:25.040] you take a look. Remember when I did
+- [45:27.440] this, I said, "Look, the one bad thing
+- [45:30.079] will be we hit the best economy we've
+- [45:33.200] ever hit." And I said to my people, I
+- [45:35.200] had Scott, I had Howard, I had Pete, I
+- [45:37.520] had all of them. I had Todd in the room.
+- [45:40.560] I said, "The one thing we have to do
+- [45:42.960] now, we had just hit the highest stock
+- [45:45.359] market in history, highest 401ks in
+- [45:49.040] history. Everything was going well." And
+- [45:51.359] I said, "I hate to do this to you guys,
+- [45:53.359] but Iran's going to have a nuclear
+- [45:54.720] weapon very soon. We have to go and
+- [45:57.119] attack." So, we hit him with the B2
+- [45:59.760] bombers, which took a lot of courage. It
+- [46:02.480] was totally successful. We buried it
+- [46:05.280] very hard to get, but now we had to make
+- [46:08.319] the second move. And I said, you know,
+- [46:10.560] the bad part is the stock market will go
+- [46:12.720] down by a lot based on predictions of
+- [46:16.319] experts, like 25%. And it was worth it
+- [46:19.440] to me. It was worth it not to have a
+- [46:21.040] nuclear weapon. And the other thing is
+- [46:22.960] that oil would go to $250 a barrel. It's
+- [46:26.400] at 85.
+- [46:28.400] And
+- [46:30.000] which is pretty amazing. And here's the
+- [46:31.920] key. We just hit today another stock
+- [46:34.480] market. 74 in my short time here. 74
+- [46:38.720] days we had stock market all-time
+- [46:41.040] historical highs. Nobody can believe it.
+- [46:43.520] The Dow, the Dow, the S&P S&P was at
+- [46:47.760] 7,000.
+- [46:49.440] They said in four years, maybe five
+- [46:51.280] years. It will never hit it during the
+- [46:52.880] term. It was too much. I hit it in my
+- [46:54.880] first year. I hit on the Dow. It was
+- [46:59.760] 50,000 was an impossible number. They
+- [47:02.800] said five, six years out you'd hit.
+- [47:04.640] Well, I hit it in my first year. And now
+- [47:07.200] I get everyone in the room. I say,
+- [47:08.480] "Congratulations, but now I'm going to
+- [47:10.640] take it down a little bit because we
+- [47:12.079] cannot let Iran have a nuclear weapon."
+- [47:13.680] And they all agreed with me. Todd, you
+- [47:15.440] remember they everybody agreed and we
+- [47:18.240] took a little journey down to Iran. We
+- [47:20.079] first stopped off at Venezuela, by the
+- [47:21.839] way. And we have paid for that war many,
+- [47:26.319] many times over. And we have great
+- [47:28.560] relationships with the people of
+- [47:30.079] Venezuela. We get along with them great.
+- [47:32.079] It was a great success. It was a one-day
+- [47:34.319] war. It was really a it was really to be
+- [47:36.400] exact 48 minutes of fury and it was over
+- [47:40.640] and Venezuela is doing great
+- [47:43.200] relationships with the people are great.
+- [47:46.480] It's become a happy country, believe it
+- [47:48.240] or not. I mean, it's become a happy
+- [47:49.599] country and we're we're taking out
+- [47:52.160] millions of barrels of oil from
+- [47:53.839] Venezuela. And then we went to Iran and
+- [47:59.040] essentially we've done the same thing.
+- [48:00.400] It doesn't look as pretty, but we've
+- [48:02.480] There's no Navy.
+- [48:04.560] 159 ships at the bottom of the sea.
+- [48:06.960] There's no air force. All of their
+- [48:08.400] planes are blown up. Most of their
+- [48:10.800] drones are gone. Most of their drone
+- [48:12.640] making ability is gone. Most of their
+- [48:14.319] missiles are gone. All of their
+- [48:16.800] leadership is gone, so they replaced it.
+- [48:19.680] All of that leadership is gone, so they
+- [48:22.000] replaced it. And that's the people we're
+- [48:24.160] dealing with now. And uh I think they're
+- [48:27.520] going to want to make a deal, but we're
+- [48:28.960] going to find out.
+- [48:31.839] inflation to come down between now and
+- [48:34.400] >> when the war is over.
+- [48:36.240] >> It's coming down.
+- [48:37.119] >> I I know you can't.
+- [48:37.920] >> It's going to come down like a rock. And
+- [48:40.640] uh again, we're taking out millions,
+- [48:44.000] which I'm just announcing today for the
+- [48:46.079] first time, but we've been taking out
+- [48:49.200] millions of barrels of oil. Millions of
+- [48:53.599] barrels. Every night we took out oil.
+- [48:56.640] But now I'm gonna tell you because they
+- [48:58.960] just figured it out. So now that they
+- [49:01.200] figured it out, I can tell you. It was
+- [49:02.640] very hard for me. I wanted to say it so
+- [49:05.280] badly, but it was I didn't want to ruin
+- [49:07.440] it, but it was very hard. But uh
+- [49:09.680] millions of barrels of oil has come out,
+- [49:12.319] and that's why it's at 85, $90 a barrel
+- [49:14.800] instead of 250. But um we have the
+- [49:20.000] greatest military in the world, the
+- [49:21.760] toughest military in the world, the just
+- [49:24.000] the best in every way. Nobody even
+- [49:25.760] close. There's no military that's even
+- [49:27.760] close. I rebuilt it during my first
+- [49:29.760] term. I'm using it now. When this
+- [49:33.599] conflict is over, Todd said, "Please
+- [49:36.319] call it a conflict, right?" As opposed
+- [49:38.319] to the word. He didn't he didn't like
+- [49:39.920] that word war, but it's sort of a
+- [49:42.720] conflict. It's a military operation.
+- [49:44.880] When it's over, you will see oil drop to
+- [49:48.160] where it was before. We're getting
+- [49:49.520] gasoline. Just before it started, I was
+- [49:51.440] in Iowa and we passed gas stations $185
+- [49:56.880] a gallon and we'll be back at those
+- [49:58.960] levels very soon. Uh, thank you very
+- [50:00.880] much everybody.
+- [50:04.480] Thank you. Thank you.
+- [50:12.400] >> They're the only ones.
+- [50:17.359] >> See, Biden wouldn't do this.
+- [50:18.720] >> No, he will.
+- [50:20.079] machine.
+- [50:20.480] >> That's the real deal right there.
+- [50:23.839] >> OKAY.
+- [50:39.599] >> Thank you very much everybody.
+- [50:40.720] >> Thank you. Rain.

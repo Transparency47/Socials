@@ -1,7 +1,19 @@
 # X / SecMullinDHS / 2026-06-10
 
-- Posts: 5
+- Posts: 9
 
+- [19:38 UTC - Repost of @RapidResponse47: .@SecMullinDHS on securing the World Cup: "It is a huge task, ...](2064794274336551232/)
+  - Source: https://x.com/SecMullinDHS/status/2064794274336551232
+  - Repost of @RapidResponse47: .@SecMullinDHS on securing the World Cup: "It is a huge task, but DHS is up to this... We have 78 Super Bowls, in 38 days, in 11 cities... we're going t...
+- [17:52 UTC - Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @...](2064767752611504356/)
+  - Source: https://x.com/SecMullinDHS/status/2064767752611504356
+  - Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of his term, and giving ICE and Border Patrol the necessary resourc...
+- [17:52 UTC - Repost of @DHSgov: .@SecMullinDHS on the Secure America Act: "Thanks to President Trump an...](2064767707795329473/)
+  - Source: https://x.com/SecMullinDHS/status/2064767707795329473
+  - Repost of @DHSgov: .@SecMullinDHS on the Secure America Act: "Thanks to President Trump and his forward thinking...we won’t have the Democrats threatening to shut down [DHS]...this...
+- [17:52 UTC - Repost of @DHSgov: "We are super excited. We are going to have 5 to 7 million visitors. We...](2064767680851202397/)
+  - Source: https://x.com/SecMullinDHS/status/2064767680851202397
+  - Repost of @DHSgov: "We are super excited. We are going to have 5 to 7 million visitors. We are going to show the best of America. We expect to have safe games." @SecMullinDHS https...
 - [17:16 UTC - Repost of @RapidResponse47: "This is super exciting for all of us," says @SecMullinDHS on ...](2064758593904148823/)
   - Source: https://x.com/SecMullinDHS/status/2064758593904148823
   - Repost of @RapidResponse47: "This is super exciting for all of us," says @SecMullinDHS on Republicans and @POTUS funding DHS through the Secure America Act. "Now, we won't have the...

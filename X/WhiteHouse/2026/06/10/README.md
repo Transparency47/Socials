@@ -1,7 +1,22 @@
 # X / WhiteHouse / 2026-06-10
 
-- Posts: 18
+- Posts: 23
 
+- [19:17 UTC - The UNITED STATES of AMERICA CONTROLS the Strait of Hormuz — NOT Iran. https://t.co/DbPPYK...](2064789019016265823/)
+  - Source: https://x.com/WhiteHouse/status/2064789019016265823
+  - The UNITED STATES of AMERICA CONTROLS the Strait of Hormuz — NOT Iran. https://t.co/DbPPYKy5Ef
+- [19:06 UTC - "Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the ga...](2064786254911140240/)
+  - Source: https://x.com/WhiteHouse/status/2064786254911140240
+  - "Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the gang members, the drug dealers - and our great Republican majorities voted to PROTECT law-ab...
+- [18:17 UTC - After 4 years of Democrat open-border CHAOS, Trump &amp; Republicans delivered the MOST SE...](2064773916485128248/)
+  - Source: https://x.com/WhiteHouse/status/2064773916485128248
+  - After 4 years of Democrat open-border CHAOS, Trump &amp; Republicans delivered the MOST SECURE BORDER in history. Yet Dems still fight harder for criminal illegals than American ci...
+- [17:59 UTC - Repost of @Freedom250: FREE TICKETS: Watch the World Cup right in front of the Capitol bui...](2064769492773658768/)
+  - Source: https://x.com/WhiteHouse/status/2064769492773658768
+  - Repost of @Freedom250: FREE TICKETS: Watch the World Cup right in front of the Capitol building. Freedom 250 is launching the FIFA World Cup 2026™ Fan Zone on the National Mall in...
+- [17:59 UTC - Repost of @StateDept: ⚽ The United States is excited to host international fans for the FI...](2064769476160078302/)
+  - Source: https://x.com/WhiteHouse/status/2064769476160078302
+  - Repost of @StateDept: ⚽ The United States is excited to host international fans for the FIFA World Cup 2026™, which coincides with our nation's 250th anniversary. American greatnes...
 - [17:35 UTC - Thanks to President Trump's effective trade policies and deregulation efforts, America's t...](2064763335896175045/)
   - Source: https://x.com/WhiteHouse/status/2064763335896175045
   - Thanks to President Trump's effective trade policies and deregulation efforts, America's trade deficit is FALLING fast. https://t.co/jzRVIJZZZx

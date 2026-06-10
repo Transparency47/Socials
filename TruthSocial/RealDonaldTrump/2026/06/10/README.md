@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-10
 
-- Posts: 36
+- Posts: 38
 
+- [17:50 UTC - Last month, I directed our Great U.S. Military to execute a secret mission to support Oil ...](116727075577305840/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116727075577305840
+  - Last month, I directed our Great U.S. Military to execute a secret mission to support Oil Tankers and other Commercial Ships through the Strait of Hormuz. Today, I am pleased to an...
+- [17:43 UTC - Congratulations to Colombian Presidential Candidate, “El Tigre (THE TIGER),” Abelardo de l...](116727049222420250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116727049222420250
+  - Congratulations to Colombian Presidential Candidate, “El Tigre (THE TIGER),” Abelardo de la Espriella, a Smart, Strong, and Tough Leader, on his decisive Victory in the first round...
 - [17:28 UTC - Congratulations to Nikol Pashinyan for his decisive victory in Armenia’s National Election...](116726989523401101/)
   - Source: https://truthsocial.com/@realDonaldTrump/116726989523401101
   - Congratulations to Nikol Pashinyan for his decisive victory in Armenia’s National Elections. I was very proud to have Endorsed him for Re-Election, and have no doubt that, with him...

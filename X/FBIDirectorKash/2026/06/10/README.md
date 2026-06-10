@@ -1,7 +1,13 @@
 # X / FBIDirectorKash / 2026-06-10
 
-- Posts: 5
+- Posts: 7
 
+- [17:59 UTC - Repost of @SenatorHagerty: Today, the Memphis Safe Task Force announced that they have mad...](2064769531671716264/)
+  - Source: https://x.com/FBIDirectorKash/status/2064769531671716264
+  - Repost of @SenatorHagerty: Today, the Memphis Safe Task Force announced that they have made more than 10,000 arrests, which includes 1,062 known gang members. The task force has se...
+- [17:59 UTC - Thanks to the great partnership with @ufc we’ve seen about 300 agents come through and lea...](2064769402164171118/)
+  - Source: https://x.com/FBIDirectorKash/status/2064769402164171118
+  - Thanks to the great partnership with @ufc we’ve seen about 300 agents come through and learn amazing tactics so they can safeguard American lives🇺🇸
 - [16:39 UTC - Repost of @FBIDirectorKash: 🚨 Early this morning, @FBI and partners arrested 7 individuals...](2064749226316251245/)
   - Source: https://x.com/FBIDirectorKash/status/2064749226316251245
   - Repost of @FBIDirectorKash: 🚨 Early this morning, @FBI and partners arrested 7 individuals on a 10 count indictment for allegedly targeting University of Michigan leaders and busin...

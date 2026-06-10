@@ -1,6 +1,8 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=F5S0ilDDrw0: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=F5S0ilDDrw0! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=F5S0ilDDrw0&ei=C6EparCeD4SRsfIPr8DfsAI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781138299&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=204DDD77CCF462ADA04F627244AAC9EBEC6FFF78.4DC11926BC53F5D91B784007A5753DCA9DFB82C3&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "X/ICEgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=_tD3I_uDhBQ: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=_tD3I_uDhBQ! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114558,6 +114560,28 @@
       "title": "Congratulations to Nikol Pashinyan for his decisive victory in Armenia\u2019s National Election...",
       "url": "https://truthsocial.com/@realDonaldTrump/116726989523401101"
     },
+    "truthsocial:realdonaldtrump:116727049222420250": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:41.762260+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116727049222420250",
+      "platform": "truthsocial",
+      "post_id": "116727049222420250",
+      "published": "2026-06-10T17:43:41.967000+00:00",
+      "title": "Congratulations to Colombian Presidential Candidate, \u201cEl Tigre (THE TIGER),\u201d Abelardo de l...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116727049222420250"
+    },
+    "truthsocial:realdonaldtrump:116727075577305840": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:41.761625+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116727075577305840",
+      "platform": "truthsocial",
+      "post_id": "116727075577305840",
+      "published": "2026-06-10T17:50:24.111000+00:00",
+      "title": "Last month, I directed our Great U.S. Military to execute a secret mission to support Oil ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116727075577305840"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -122291,6 +122315,39 @@
       "title": "\"We are super excited. We are going to have 5 to 7 million visitors. We are going to show ...",
       "url": "https://x.com/DHSgov/status/2064762663838580833"
     },
+    "x:dhsgov:2064774623057612890": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:57:37.720444+00:00",
+      "path": "X/DHSgov/2026/06/10/2064774623057612890",
+      "platform": "x",
+      "post_id": "2064774623057612890",
+      "published": "2026-06-10T18:20:06+00:00",
+      "title": "Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republican...",
+      "url": "https://x.com/DHSgov/status/2064774623057612890"
+    },
+    "x:dhsgov:2064780728538177708": {
+      "account": "DHSgov",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:57:37.720050+00:00",
+      "path": "X/DHSgov/2026/06/10/2064780728538177708",
+      "platform": "x",
+      "post_id": "2064780728538177708",
+      "published": "2026-06-10T18:44:22+00:00",
+      "title": "Repost of @SecMullinDHS: Thank you, President Trump. \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://x.com/DHSgov/status/2064780728538177708"
+    },
+    "x:dhsgov:2064796159143821441": {
+      "account": "DHSgov",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:57:37.719654+00:00",
+      "path": "X/DHSgov/2026/06/10/2064796159143821441",
+      "platform": "x",
+      "post_id": "2064796159143821441",
+      "published": "2026-06-10T19:45:41+00:00",
+      "title": "Time and time again, Democrats have undermined law and order by trying to block our effort...",
+      "url": "https://x.com/DHSgov/status/2064796159143821441"
+    },
     "x:envoynoem:1883297471507648681": {
       "account": "EnvoyNoem",
       "content_kind": "post",
@@ -125304,6 +125361,28 @@
       "published": "2026-06-10T16:39:11+00:00",
       "title": "Repost of @FBIDirectorKash: \ud83d\udea8 Early this morning, @FBI and partners arrested 7 individuals...",
       "url": "https://x.com/FBIDirectorKash/status/2064749226316251245"
+    },
+    "x:fbidirectorkash:2064769402164171118": {
+      "account": "FBIDirectorKash",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:57:49.055885+00:00",
+      "path": "X/FBIDirectorKash/2026/06/10/2064769402164171118",
+      "platform": "x",
+      "post_id": "2064769402164171118",
+      "published": "2026-06-10T17:59:21+00:00",
+      "title": "Thanks to the great partnership with @ufc we\u2019ve seen about 300 agents come through and lea...",
+      "url": "https://x.com/FBIDirectorKash/status/2064769402164171118"
+    },
+    "x:fbidirectorkash:2064769531671716264": {
+      "account": "FBIDirectorKash",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:57:49.055488+00:00",
+      "path": "X/FBIDirectorKash/2026/06/10/2064769531671716264",
+      "platform": "x",
+      "post_id": "2064769531671716264",
+      "published": "2026-06-10T17:59:52+00:00",
+      "title": "Repost of @SenatorHagerty: Today, the Memphis Safe Task Force announced that they have mad...",
+      "url": "https://x.com/FBIDirectorKash/status/2064769531671716264"
     },
     "x:icegov:2061895625067708683": {
       "account": "ICEgov",
@@ -128714,6 +128793,28 @@
       "published": "2026-06-10T16:00:57+00:00",
       "title": "Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! \"I'm thrilled to sign the S...",
       "url": "https://x.com/POTUS/status/2064739606549926104"
+    },
+    "x:potus:2064777361220944059": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:57:55.291063+00:00",
+      "path": "X/POTUS/2026/06/10/2064777361220944059",
+      "platform": "x",
+      "post_id": "2064777361220944059",
+      "published": "2026-06-10T18:30:59+00:00",
+      "title": "Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republican...",
+      "url": "https://x.com/POTUS/status/2064777361220944059"
+    },
+    "x:potus:2064788556082491429": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:57:55.290676+00:00",
+      "path": "X/POTUS/2026/06/10/2064788556082491429",
+      "platform": "x",
+      "post_id": "2064788556082491429",
+      "published": "2026-06-10T19:15:28+00:00",
+      "title": "Repost of @WhiteHouse: \"Very simply, the Radical Left Dumocrats... voted with the cartels,...",
+      "url": "https://x.com/POTUS/status/2064788556082491429"
     },
     "x:presssec:2049485038836662689": {
       "account": "PressSec",
@@ -132235,6 +132336,17 @@
       "title": "https://t.co/0CT3N1tI90",
       "url": "https://x.com/RapidResponse47/status/2064760571350720521"
     },
+    "x:rapidresponse47:2064767340441428254": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:07.555086+00:00",
+      "path": "X/RapidResponse47/2026/06/10/2064767340441428254",
+      "platform": "x",
+      "post_id": "2064767340441428254",
+      "published": "2026-06-10T17:51:10+00:00",
+      "title": "https://t.co/4MZRTvIHBo",
+      "url": "https://x.com/RapidResponse47/status/2064767340441428254"
+    },
     "x:realdonaldtrump:1881372933710589978": {
       "account": "RealDonaldTrump",
       "content_kind": "post",
@@ -134753,6 +134865,50 @@
       "published": "2026-06-10T17:16:24+00:00",
       "title": "Repost of @RapidResponse47: \"This is super exciting for all of us,\" says @SecMullinDHS on ...",
       "url": "https://x.com/SecMullinDHS/status/2064758593904148823"
+    },
+    "x:secmullindhs:2064767680851202397": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:14.455008+00:00",
+      "path": "X/SecMullinDHS/2026/06/10/2064767680851202397",
+      "platform": "x",
+      "post_id": "2064767680851202397",
+      "published": "2026-06-10T17:52:31+00:00",
+      "title": "Repost of @DHSgov: \"We are super excited. We are going to have 5 to 7 million visitors. We...",
+      "url": "https://x.com/SecMullinDHS/status/2064767680851202397"
+    },
+    "x:secmullindhs:2064767707795329473": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:14.454644+00:00",
+      "path": "X/SecMullinDHS/2026/06/10/2064767707795329473",
+      "platform": "x",
+      "post_id": "2064767707795329473",
+      "published": "2026-06-10T17:52:37+00:00",
+      "title": "Repost of @DHSgov: .@SecMullinDHS on the Secure America Act: \"Thanks to President Trump an...",
+      "url": "https://x.com/SecMullinDHS/status/2064767707795329473"
+    },
+    "x:secmullindhs:2064767752611504356": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:14.454233+00:00",
+      "path": "X/SecMullinDHS/2026/06/10/2064767752611504356",
+      "platform": "x",
+      "post_id": "2064767752611504356",
+      "published": "2026-06-10T17:52:48+00:00",
+      "title": "Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @...",
+      "url": "https://x.com/SecMullinDHS/status/2064767752611504356"
+    },
+    "x:secmullindhs:2064794274336551232": {
+      "account": "SecMullinDHS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:14.453842+00:00",
+      "path": "X/SecMullinDHS/2026/06/10/2064794274336551232",
+      "platform": "x",
+      "post_id": "2064794274336551232",
+      "published": "2026-06-10T19:38:11+00:00",
+      "title": "Repost of @RapidResponse47: .@SecMullinDHS on securing the World Cup: \"It is a huge task, ...",
+      "url": "https://x.com/SecMullinDHS/status/2064794274336551232"
     },
     "x:vp:2000974738076979672": {
       "account": "VP",
@@ -154587,6 +154743,61 @@
       "title": "Thanks to President Trump's effective trade policies and deregulation efforts, America's t...",
       "url": "https://x.com/WhiteHouse/status/2064763335896175045"
     },
+    "x:whitehouse:2064769476160078302": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:32.621349+00:00",
+      "path": "X/WhiteHouse/2026/06/10/2064769476160078302",
+      "platform": "x",
+      "post_id": "2064769476160078302",
+      "published": "2026-06-10T17:59:39+00:00",
+      "title": "Repost of @StateDept: \u26bd The United States is excited to host international fans for the FI...",
+      "url": "https://x.com/WhiteHouse/status/2064769476160078302"
+    },
+    "x:whitehouse:2064769492773658768": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-10T19:58:32.621140+00:00",
+      "path": "X/WhiteHouse/2026/06/10/2064769492773658768",
+      "platform": "x",
+      "post_id": "2064769492773658768",
+      "published": "2026-06-10T17:59:43+00:00",
+      "title": "Repost of @Freedom250: FREE TICKETS: Watch the World Cup right in front of the Capitol bui...",
+      "url": "https://x.com/WhiteHouse/status/2064769492773658768"
+    },
+    "x:whitehouse:2064773916485128248": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:32.620902+00:00",
+      "path": "X/WhiteHouse/2026/06/10/2064773916485128248",
+      "platform": "x",
+      "post_id": "2064773916485128248",
+      "published": "2026-06-10T18:17:17+00:00",
+      "title": "After 4 years of Democrat open-border CHAOS, Trump &amp; Republicans delivered the MOST SE...",
+      "url": "https://x.com/WhiteHouse/status/2064773916485128248"
+    },
+    "x:whitehouse:2064786254911140240": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:32.620496+00:00",
+      "path": "X/WhiteHouse/2026/06/10/2064786254911140240",
+      "platform": "x",
+      "post_id": "2064786254911140240",
+      "published": "2026-06-10T19:06:19+00:00",
+      "title": "\"Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the ga...",
+      "url": "https://x.com/WhiteHouse/status/2064786254911140240"
+    },
+    "x:whitehouse:2064789019016265823": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T19:58:32.620176+00:00",
+      "path": "X/WhiteHouse/2026/06/10/2064789019016265823",
+      "platform": "x",
+      "post_id": "2064789019016265823",
+      "published": "2026-06-10T19:17:18+00:00",
+      "title": "The UNITED STATES of AMERICA CONTROLS the Strait of Hormuz \u2014 NOT Iran. https://t.co/DbPPYK...",
+      "url": "https://x.com/WhiteHouse/status/2064789019016265823"
+    },
     "youtube:whitehouse:--RrhTSk2L8": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -156005,6 +156216,17 @@
       "published": "2026-03-24T16:57:46+00:00",
       "title": "It's not that hard. JUST DO IT. Save America's elections\u2014pass the Save America Act.",
       "url": "https://www.youtube.com/watch?v=3YfZiSOEiCE"
+    },
+    "youtube:whitehouse:3hLBirtH9iE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-10T19:58:57.013555+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/10/3hLBirtH9iE",
+      "platform": "youtube",
+      "post_id": "3hLBirtH9iE",
+      "published": "2026-06-10T18:00:35+00:00",
+      "title": "President Trump Signs the Secure America Act",
+      "url": "https://www.youtube.com/watch?v=3hLBirtH9iE"
     },
     "youtube:whitehouse:3jBdDTv5G20": {
       "account": "WhiteHouse",

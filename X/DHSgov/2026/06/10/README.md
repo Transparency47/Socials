@@ -1,7 +1,16 @@
 # X / DHSgov / 2026-06-10
 
-- Posts: 12
+- Posts: 15
 
+- [19:45 UTC - Time and time again, Democrats have undermined law and order by trying to block our effort...](2064796159143821441/)
+  - Source: https://x.com/DHSgov/status/2064796159143821441
+  - Time and time again, Democrats have undermined law and order by trying to block our efforts to secure our borders, remove heinous criminals from our communities, and keep Americans...
+- [18:44 UTC - Repost of @SecMullinDHS: Thank you, President Trump. 🇺🇸](2064780728538177708/)
+  - Source: https://x.com/DHSgov/status/2064780728538177708
+  - Repost of @SecMullinDHS: Thank you, President Trump. 🇺🇸
+- [18:20 UTC - Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republican...](2064774623057612890/)
+  - Source: https://x.com/DHSgov/status/2064774623057612890
+  - Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republicans delivered the MOST SECURE BORDER in history. Yet Dems still fight harder for criminal il...
 - [17:32 UTC - "We are super excited. We are going to have 5 to 7 million visitors. We are going to show ...](2064762663838580833/)
   - Source: https://x.com/DHSgov/status/2064762663838580833
   - "We are super excited. We are going to have 5 to 7 million visitors. We are going to show the best of America. We expect to have safe games." @SecMullinDHS https://t.co/TKhSEn2rbL

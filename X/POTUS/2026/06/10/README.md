@@ -1,7 +1,13 @@
 # X / POTUS / 2026-06-10
 
-- Posts: 8
+- Posts: 10
 
+- [19:15 UTC - Repost of @WhiteHouse: "Very simply, the Radical Left Dumocrats... voted with the cartels,...](2064788556082491429/)
+  - Source: https://x.com/POTUS/status/2064788556082491429
+  - Repost of @WhiteHouse: "Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the gang members, the drug dealers - and our great Republican majorities...
+- [18:30 UTC - Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republican...](2064777361220944059/)
+  - Source: https://x.com/POTUS/status/2064777361220944059
+  - Repost of @WhiteHouse: After 4 years of Democrat open-border CHAOS, Trump &amp; Republicans delivered the MOST SECURE BORDER in history. Yet Dems still fight harder for criminal il...
 - [16:00 UTC - Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the S...](2064739606549926104/)
   - Source: https://x.com/POTUS/status/2064739606549926104
   - Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the Secure America Act to immediately and fully fund the Department of Homeland Security throug...
