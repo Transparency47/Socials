@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/9Tx53zoEd1U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9Tx53zoEd1U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114337,6 +114337,105 @@
       "published": "2026-06-10T03:23:47.833000+00:00",
       "title": "Key senator presses to term limit parliamentarian, clear possible path for election law: [...",
       "url": "https://truthsocial.com/@realDonaldTrump/116723667949197572"
+    },
+    "truthsocial:realdonaldtrump:116725298433622438": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.059655+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725298433622438",
+      "platform": "truthsocial",
+      "post_id": "116725298433622438",
+      "published": "2026-06-10T10:18:27.121000+00:00",
+      "title": "Truth Social post 116725298433622438",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725298433622438"
+    },
+    "truthsocial:realdonaldtrump:116725299165504636": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.059397+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725299165504636",
+      "platform": "truthsocial",
+      "post_id": "116725299165504636",
+      "published": "2026-06-10T10:18:38.288000+00:00",
+      "title": "Truth Social post 116725299165504636",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725299165504636"
+    },
+    "truthsocial:realdonaldtrump:116725299803864378": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.059135+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725299803864378",
+      "platform": "truthsocial",
+      "post_id": "116725299803864378",
+      "published": "2026-06-10T10:18:48.031000+00:00",
+      "title": "Truth Social post 116725299803864378",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725299803864378"
+    },
+    "truthsocial:realdonaldtrump:116725300592900324": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.058843+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725300592900324",
+      "platform": "truthsocial",
+      "post_id": "116725300592900324",
+      "published": "2026-06-10T10:19:00.069000+00:00",
+      "title": "Truth Social post 116725300592900324",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725300592900324"
+    },
+    "truthsocial:realdonaldtrump:116725301360270879": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.058573+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725301360270879",
+      "platform": "truthsocial",
+      "post_id": "116725301360270879",
+      "published": "2026-06-10T10:19:11.780000+00:00",
+      "title": "Truth Social post 116725301360270879",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725301360270879"
+    },
+    "truthsocial:realdonaldtrump:116725301981290667": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.058287+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725301981290667",
+      "platform": "truthsocial",
+      "post_id": "116725301981290667",
+      "published": "2026-06-10T10:19:21.257000+00:00",
+      "title": "Truth Social post 116725301981290667",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725301981290667"
+    },
+    "truthsocial:realdonaldtrump:116725303830654471": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.057997+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725303830654471",
+      "platform": "truthsocial",
+      "post_id": "116725303830654471",
+      "published": "2026-06-10T10:19:49.473000+00:00",
+      "title": "Truth Social post 116725303830654471",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725303830654471"
+    },
+    "truthsocial:realdonaldtrump:116725304674001742": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.057664+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725304674001742",
+      "platform": "truthsocial",
+      "post_id": "116725304674001742",
+      "published": "2026-06-10T10:20:02.342000+00:00",
+      "title": "Truth Social post 116725304674001742",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725304674001742"
+    },
+    "truthsocial:realdonaldtrump:116725365354632342": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T10:40:47.057308+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725365354632342",
+      "platform": "truthsocial",
+      "post_id": "116725365354632342",
+      "published": "2026-06-10T10:35:28.189000+00:00",
+      "title": "Stephen A. Smith is an arrogant fool, a low IQ individual. In other words, he\u2019s \u201cdumb as a...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116725365354632342"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

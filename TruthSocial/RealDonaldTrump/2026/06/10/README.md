@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-06-10
 
-- Posts: 18
+- Posts: 27
 
+- [10:35 UTC - Stephen A. Smith is an arrogant fool, a low IQ individual. In other words, he’s “dumb as a...](116725365354632342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725365354632342
+  - Stephen A. Smith is an arrogant fool, a low IQ individual. In other words, he’s “dumb as a rock,” and totally unqualified to ever think of running for high political office, or eve...
+- [10:20 UTC - Truth Social post 116725304674001742](116725304674001742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725304674001742
+  - _No text content captured._
+- [10:19 UTC - Truth Social post 116725303830654471](116725303830654471/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725303830654471
+  - _No text content captured._
+- [10:19 UTC - Truth Social post 116725301981290667](116725301981290667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725301981290667
+  - _No text content captured._
+- [10:19 UTC - Truth Social post 116725301360270879](116725301360270879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725301360270879
+  - _No text content captured._
+- [10:19 UTC - Truth Social post 116725300592900324](116725300592900324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725300592900324
+  - _No text content captured._
+- [10:18 UTC - Truth Social post 116725299803864378](116725299803864378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725299803864378
+  - _No text content captured._
+- [10:18 UTC - Truth Social post 116725299165504636](116725299165504636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725299165504636
+  - _No text content captured._
+- [10:18 UTC - Truth Social post 116725298433622438](116725298433622438/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725298433622438
+  - _No text content captured._
 - [03:23 UTC - Key senator presses to term limit parliamentarian, clear possible path for election law: [...](116723667949197572/)
   - Source: https://truthsocial.com/@realDonaldTrump/116723667949197572
   - Key senator presses to term limit parliamentarian, clear possible path for election law: [https:// justthenews.com/government/con gress/key-senator-presses-term-limit-parliamentari...
