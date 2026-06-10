@@ -1,6 +1,6 @@
 {
   "last_errors": [
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/9Tx53zoEd1U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=9Tx53zoEd1U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114282,6 +114282,61 @@
       "published": "2026-06-10T01:50:30.502000+00:00",
       "title": "Congratulations to Senator Lindsey Graham of the Great State of South Carolina on his BIG ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116723301122482300"
+    },
+    "truthsocial:realdonaldtrump:116723479960785181": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T06:18:41.020225+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723479960785181",
+      "platform": "truthsocial",
+      "post_id": "116723479960785181",
+      "published": "2026-06-10T02:35:59.363000+00:00",
+      "title": "Truth Social post 116723479960785181",
+      "url": "https://truthsocial.com/@realDonaldTrump/116723479960785181"
+    },
+    "truthsocial:realdonaldtrump:116723480830148350": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T06:18:41.019919+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723480830148350",
+      "platform": "truthsocial",
+      "post_id": "116723480830148350",
+      "published": "2026-06-10T02:36:12.625000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723479960785181",
+      "url": "https://truthsocial.com/@realDonaldTrump/116723480830148350"
+    },
+    "truthsocial:realdonaldtrump:116723481501831841": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T06:18:41.019507+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723481501831841",
+      "platform": "truthsocial",
+      "post_id": "116723481501831841",
+      "published": "2026-06-10T02:36:22.874000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723480830148350",
+      "url": "https://truthsocial.com/@realDonaldTrump/116723481501831841"
+    },
+    "truthsocial:realdonaldtrump:116723666009941892": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T06:18:41.019049+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723666009941892",
+      "platform": "truthsocial",
+      "post_id": "116723666009941892",
+      "published": "2026-06-10T03:23:18.243000+00:00",
+      "title": "JD Vance refers evidence of Minnesota fraud, Walz inaction to DOJ for criminal inquiry: [h...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116723666009941892"
+    },
+    "truthsocial:realdonaldtrump:116723667949197572": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-10T06:18:41.018401+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723667949197572",
+      "platform": "truthsocial",
+      "post_id": "116723667949197572",
+      "published": "2026-06-10T03:23:47.833000+00:00",
+      "title": "Key senator presses to term limit parliamentarian, clear possible path for election law: [...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116723667949197572"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

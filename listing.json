@@ -1,6 +1,157 @@
 {
-  "generatedAt": "2026-06-10T01:57:42.156374+00:00",
+  "generatedAt": "2026-06-10T06:19:32.662180+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:3c8587f57af3a5c3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T06:18:41.018401+00:00",
+        "datePublished": "2026-06-10T03:23:47.833000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116723667949197572"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116723667949197572/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723667949197572/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116723667949197572",
+      "summary": "Key senator presses to term limit parliamentarian, clear possible path for election law: [https:// justthenews.com/government/con gress/key-senator-presses-term-limit-parliamentarian-clear-possible-path-election-law](https://justthenews.com/government/congress/key-senator-presses",
+      "title": "Key senator presses to term limit parliamentarian, clear possible path for election law: [..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:09f011c12ee37f1b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T06:18:41.019049+00:00",
+        "datePublished": "2026-06-10T03:23:18.243000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116723666009941892"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116723666009941892/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723666009941892/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116723666009941892",
+      "summary": "JD Vance refers evidence of Minnesota fraud, Walz inaction to DOJ for criminal inquiry: [https:// justthenews.com/accountability /waste-fraud-and-abuse/jd-vance-refers-evidence-minnesota-fraud-walz-inaction-doj](https://justthenews.com/accountability/waste-fraud-and-abuse/jd-vanc",
+      "title": "JD Vance refers evidence of Minnesota fraud, Walz inaction to DOJ for criminal inquiry: [h..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:a8aa80c7e5b15c25",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T06:18:41.019507+00:00",
+        "datePublished": "2026-06-10T02:36:22.874000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116723481414545651.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c16d2647f9608d7f.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/723/481/414/545/651/original/c16d2647f9608d7f.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c16d2647f9608d7f.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116723481414545651.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c16d2647f9608d7f.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116723481501831841"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116723481501831841/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723481501831841/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116723481501831841",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723480830148350",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723480830148350"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:1b0cfacf094b64de",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T06:18:41.019919+00:00",
+        "datePublished": "2026-06-10T02:36:12.625000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116723480554702311.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/60ad0feda6ef4cf0.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/723/480/554/702/311/original/60ad0feda6ef4cf0.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/60ad0feda6ef4cf0.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116723480554702311.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/60ad0feda6ef4cf0.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116723480830148350"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116723480830148350/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723480830148350/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116723480830148350",
+      "summary": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723479960785181",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723479960785181"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:dee60c03557494b6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T06:18:41.020225+00:00",
+        "datePublished": "2026-06-10T02:35:59.363000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116723479849131557.png",
+            "remotePath": "archive/truthsocial/realdonaldtrump/d133ad35ffcc8f3f.png",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/723/479/849/131/557/original/d133ad35ffcc8f3f.png",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d133ad35ffcc8f3f.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116723479849131557.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/d133ad35ffcc8f3f.png"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116723479960785181"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116723479960785181/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116723479960785181/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116723479960785181",
+      "summary": null,
+      "title": "Truth Social post 116723479960785181"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-10",

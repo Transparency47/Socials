@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-10
 
-- Posts: 13
+- Posts: 18
 
+- [03:23 UTC - Key senator presses to term limit parliamentarian, clear possible path for election law: [...](116723667949197572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723667949197572
+  - Key senator presses to term limit parliamentarian, clear possible path for election law: [https:// justthenews.com/government/con gress/key-senator-presses-term-limit-parliamentari...
+- [03:23 UTC - JD Vance refers evidence of Minnesota fraud, Walz inaction to DOJ for criminal inquiry: [h...](116723666009941892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723666009941892
+  - JD Vance refers evidence of Minnesota fraud, Walz inaction to DOJ for criminal inquiry: [https:// justthenews.com/accountability /waste-fraud-and-abuse/jd-vance-refers-evidence-min...
+- [02:36 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723480830148350](116723481501831841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723481501831841
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723480830148350
+- [02:36 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723479960785181](116723480830148350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723480830148350
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116723479960785181
+- [02:35 UTC - Truth Social post 116723479960785181](116723479960785181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723479960785181
+  - _No text content captured._
 - [01:50 UTC - Congratulations to Senator Lindsey Graham of the Great State of South Carolina on his BIG ...](116723301122482300/)
   - Source: https://truthsocial.com/@realDonaldTrump/116723301122482300
   - Congratulations to Senator Lindsey Graham of the Great State of South Carolina on his BIG WIN tonight. With almost 60% of the vote against a large field of very capable candidates,...
