@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-06-10
 
-- Posts: 3
+- Posts: 4
 
+- [20:08 UTC - Trump knows ball 🏀](7649861000161807630/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7649861000161807630
+  - Trump knows ball 🏀
 - [15:54 UTC - Goodbye criminal illegals! The Trump admin will keep fighting to keep America Safe 🇺🇸](7649795587851685133/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7649795587851685133
   - Goodbye criminal illegals! The Trump admin will keep fighting to keep America Safe 🇺🇸
