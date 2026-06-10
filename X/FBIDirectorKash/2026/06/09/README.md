@@ -1,7 +1,10 @@
 # X / FBIDirectorKash / 2026-06-09
 
-- Posts: 12
+- Posts: 13
 
+- [23:44 UTC - Repost of @FBIDenver: FBI Denver and SAC Koldjeski were thrilled with the turnout from our...](2064493918180229235/)
+  - Source: https://x.com/FBIDirectorKash/status/2064493918180229235
+  - Repost of @FBIDenver: FBI Denver and SAC Koldjeski were thrilled with the turnout from our law enforcement partners for the visit from @FBIDirectorKash https://t.co/ox2COtkLKn
 - [20:41 UTC - Repost of @FBI: .@FBIBoston kicks off Summer Heat 2.0 with over two dozen alleged gang mem...](2064447759390765216/)
   - Source: https://x.com/FBIDirectorKash/status/2064447759390765216
   - Repost of @FBI: .@FBIBoston kicks off Summer Heat 2.0 with over two dozen alleged gang members charged. https://t.co/QmDPrWOk9a https://t.co/OcGSDSZcLc

@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2026-06-10
+
+- Posts: 13
+
+- [01:50 UTC - Congratulations to Senator Lindsey Graham of the Great State of South Carolina on his BIG ...](116723301122482300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723301122482300
+  - Congratulations to Senator Lindsey Graham of the Great State of South Carolina on his BIG WIN tonight. With almost 60% of the vote against a large field of very capable candidates,...
+- [01:20 UTC - Truth Social post 116723184546484525](116723184546484525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723184546484525
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 116723184179508306](116723184179508306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723184179508306
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 116723183594943266](116723183594943266/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723183594943266
+  - _No text content captured._
+- [00:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116722993359636132](116723001472960111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116723001472960111
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116722993359636132
+- [00:32 UTC - Truth Social post 116722993359636132](116722993359636132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722993359636132
+  - _No text content captured._
+- [00:28 UTC - Truth Social post 116722977048924364](116722977048924364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722977048924364
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 116722976514811476](116722976514811476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722976514811476
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 116722975862665108](116722975862665108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722975862665108
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 116722975379289351](116722975379289351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722975379289351
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 116722974331493970](116722974331493970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722974331493970
+  - _No text content captured._
+- [00:27 UTC - Truth Social post 116722973453210561](116722973453210561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722973453210561
+  - _No text content captured._
+- [00:26 UTC - Truth Social post 116722972392166409](116722972392166409/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116722972392166409
+  - _No text content captured._
