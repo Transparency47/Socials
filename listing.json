@@ -1,6 +1,783 @@
 {
-  "generatedAt": "2026-06-10T10:43:47.834361+00:00",
+  "generatedAt": "2026-06-10T14:07:00.510024+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b64b377132b4daa2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:50.731247+00:00",
+        "datePublished": "2026-06-10T14:00:19+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064709157555429376.jpg",
+            "remotePath": "archive/x/whitehouse/HKdSChyWYAAmgQW.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdSChyWYAAmgQW.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKdSChyWYAAmgQW.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064709157555429376.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKdSChyWYAAmgQW.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064709247661654229"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064709247661654229/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064709247661654229/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064709247661654229",
+      "summary": "SOON: President Trump signs the Secure America Act in the Oval Office, securing funding for our great law enforcement agencies that PROTECT AMERICA. \ud83c\uddfa\ud83c\uddf8 https://t.co/m2LRIJFOTp",
+      "title": "SOON: President Trump signs the Secure America Act in the Oval Office, securing funding\u00a0fo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:2283caa73656e1f7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:01:52.529266+00:00",
+        "datePublished": "2026-06-10T13:44:30+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064702120658411521.mp4",
+            "remotePath": "archive/x/potus/EdCfAZ9zkdF8GW1n.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064702120658411521/vid/avc1/2048x1536/EdCfAZ9zkdF8GW1n.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/EdCfAZ9zkdF8GW1n.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064702120658411521.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/EdCfAZ9zkdF8GW1n.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064705264423415998"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064705264423415998/README.md",
+      "path": "X/POTUS/2026/06/10/2064705264423415998/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064705264423415998",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: The Man in the World\u2019s Most Famous Arena \ud83d\udd25 https://t.co/tt3nL8Wm3E"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:a10b650f064e0f0a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.545876+00:00",
+        "datePublished": "2026-06-10T13:35:54+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064702621840015361.mp4",
+            "remotePath": "archive/x/rapidresponse47/wLuKjV9xGLJy7a6a.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064702621840015361/vid/avc1/1280x720/wLuKjV9xGLJy7a6a.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/wLuKjV9xGLJy7a6a.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064702621840015361.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/wLuKjV9xGLJy7a6a.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064703103488725393"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064703103488725393/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064703103488725393/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064703103488725393",
+      "summary": ".@USAmbNATO: \"President Trump, while he is patient, and he is a dealmaker and he wants peace\u2014at the same time, he knows that Iran cannot have a nuclear weapon. That is the starting point, that is the red line, and unlike other presidents, @POTUS, when he draws a red line, he enfo",
+      "title": ".@USAmbNATO: \"President Trump, while he is patient, and he is a dealmaker and he wants pea..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b5f7b8799b37f8cc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:50.731574+00:00",
+        "datePublished": "2026-06-10T13:32:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064702120658411521.mp4",
+            "remotePath": "archive/x/whitehouse/EdCfAZ9zkdF8GW1n.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064702120658411521/vid/avc1/2048x1536/EdCfAZ9zkdF8GW1n.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/EdCfAZ9zkdF8GW1n.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064702120658411521.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/EdCfAZ9zkdF8GW1n.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064702224035373361"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064702224035373361/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064702224035373361/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064702224035373361",
+      "summary": "The Man in the World\u2019s Most Famous Arena \ud83d\udd25 https://t.co/tt3nL8Wm3E",
+      "title": "The Man in the World\u2019s Most Famous Arena \ud83d\udd25 https://t.co/tt3nL8Wm3E"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:8c599638003a85e6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:02.680552+00:00",
+        "datePublished": "2026-06-10T13:30:58.894000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116726055495215764"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726055495215764/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726055495215764/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726055495215764",
+      "summary": "Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulations to Jane F and ALL of her great people. They\u2019ve worked really hard! BIG comeback for CITI!!! President DONALD J. TRUMP",
+      "title": "Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulatio..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:e9f9a980081d3dd6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:01:42.611307+00:00",
+        "datePublished": "2026-06-10T13:28:20+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064701193381670912.png",
+            "remotePath": "archive/x/icegov/HKdKy87W8AAbq4s.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdKy87W8AAbq4s.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKdKy87W8AAbq4s.png"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064701193318694912.png",
+            "remotePath": "archive/x/icegov/HKdKy8sWAAAutFf.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdKy8sWAAAutFf.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKdKy8sWAAAutFf.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064701193381670912.png",
+          "media/02_image_2064701193318694912.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKdKy87W8AAbq4s.png",
+          "https://cdn.comparify.app/archive/x/icegov/HKdKy8sWAAAutFf.png"
+        ],
+        "platform": "X",
+        "postId": "2064701195806011870"
+      },
+      "metadataPath": "X/ICEgov/2026/06/10/2064701195806011870/README.md",
+      "path": "X/ICEgov/2026/06/10/2064701195806011870/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064701195806011870",
+      "summary": "ICE and @DHSgov released the first VOICE and DHS VINE data reports to showcase the agency\u2019s support for victims of alien crime.",
+      "title": "ICE and @DHSgov released the first VOICE and DHS VINE data reports to showcase the agency\u2019..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:87955bbd0fa493c8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:02.681232+00:00",
+        "datePublished": "2026-06-10T13:19:46.612000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116726011433927314"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726011433927314/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726011433927314/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726011433927314",
+      "summary": "In a reversal, Mar-a-Lago helipad to remain past end of Trump's term: [https://www. palmbeachpost.com/story/news/t rump/2026/06/09/in-a-reversal-mar-a-lago-helipad-to-remain-past-end-of-trumps-term-palm-beach-florida/90455786007/](https://www.palmbeachpost.com/story/news/trump/20",
+      "title": "In a reversal, Mar-a-Lago helipad to remain past end of Trump's term: [https://www. palmbe..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:bc22d756bd9b47cf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:02:09.546247+00:00",
+        "datePublished": "2026-06-10T13:12:37+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064688879593271296.mp4",
+            "remotePath": "archive/x/rapidresponse47/VC9S0ivNUG25p2EM.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064688879593271296/vid/avc1/1280x720/VC9S0ivNUG25p2EM.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/VC9S0ivNUG25p2EM.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064688879593271296.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/VC9S0ivNUG25p2EM.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064697242670268796"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064697242670268796/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064697242670268796/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064697242670268796",
+      "summary": "Repost of @SecretaryTurner:",
+      "title": "Repost of @SecretaryTurner: The Mainstream Media sells headlines and ignores results. @POT..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:cecde0cb0a288274",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:01:42.611615+00:00",
+        "datePublished": "2026-06-10T12:54:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064692773177987072.png",
+            "remotePath": "archive/x/icegov/HKdDI1OXEAACHFo.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdDI1OXEAACHFo.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKdDI1OXEAACHFo.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064692773177987072.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKdDI1OXEAACHFo.png"
+        ],
+        "platform": "X",
+        "postId": "2064692775602282772"
+      },
+      "metadataPath": "X/ICEgov/2026/06/10/2064692775602282772/README.md",
+      "path": "X/ICEgov/2026/06/10/2064692775602282772/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064692775602282772",
+      "summary": "Federal officials already deported this domestic abuser after a prison sentence several years ago, but he returned to the United States and quickly found himself back in prison.",
+      "title": "Federal officials already deported this domestic abuser after a prison sentence several ye..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:fc8a00192968314c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.546597+00:00",
+        "datePublished": "2026-06-10T12:35:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064686508993384448.mp4",
+            "remotePath": "archive/x/rapidresponse47/sSyMN0pzvQ2obRLR.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064686508993384448/vid/avc1/1280x720/sSyMN0pzvQ2obRLR.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/sSyMN0pzvQ2obRLR.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064686508993384448.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/sSyMN0pzvQ2obRLR.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064687875409477949"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064687875409477949/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064687875409477949/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064687875409477949",
+      "summary": ".@SecretaryTurner on the Trump admin's push to cut costly regulation at the city level in homebuilding: \"The median price of a home in America's about $426,000. $100,000 of that is in regulations and regulatory environment. If you take that away, it brings down the cost of a hous",
+      "title": ".@SecretaryTurner on the Trump admin's push to cut costly regulation at the city level in ..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-10",
+      "id": "socials:10ee8e3313ad2bbc",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:15.367263+00:00",
+        "datePublished": "2026-06-10T12:33:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649743954510023950.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649743954510023950.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649743954510023950",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649743954510023950.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649743954510023950.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649743954510023950.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649743954510023950"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/10/7649743954510023950/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/10/7649743954510023950/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649743954510023950",
+      "summary": "The bully of the Middle East is dead.",
+      "title": "The bully of the Middle East is dead."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:87418990a0c8c804",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.546971+00:00",
+        "datePublished": "2026-06-10T12:28:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064683225042112512.mp4",
+            "remotePath": "archive/x/rapidresponse47/9AyqiBg9MV9Zf9eE.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064683225042112512/vid/avc1/1280x720/9AyqiBg9MV9Zf9eE.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/9AyqiBg9MV9Zf9eE.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064683225042112512.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/9AyqiBg9MV9Zf9eE.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064686148962730101"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064686148962730101/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064686148962730101/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064686148962730101",
+      "summary": ".@TreyYingst on his phone call with @POTUS:",
+      "title": ".@TreyYingst on his phone call with @POTUS: \"These two pilots were able to take [the Apach..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:819eb641f430949b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:02:50.731928+00:00",
+        "datePublished": "2026-06-10T12:07:59+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064525892580265984.jpg",
+            "remotePath": "archive/x/whitehouse/HKarXGjX0AAcaDe.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKarXGjX0AAcaDe.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKarXGjX0AAcaDe.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064525892580265984.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKarXGjX0AAcaDe.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064680974982488428"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064680974982488428/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064680974982488428/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064680974982488428",
+      "summary": "Repost of @howardlutnick:",
+      "title": "Repost of @howardlutnick: I stopped by the new Reflecting Pool. It is simply glorious. The..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:bb7dc2b6d64a0494",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:02:50.732264+00:00",
+        "datePublished": "2026-06-10T12:07:49+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064679030440230912.mp4",
+            "remotePath": "archive/x/whitehouse/BGawELzqdWI1gQUl.mp4",
+            "sourceUrl": "https://video.twimg.com/ext_tw_video/2064679030440230912/pu/vid/avc1/720x1280/BGawELzqdWI1gQUl.mp4?tag=12",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/BGawELzqdWI1gQUl.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064679030440230912.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/BGawELzqdWI1gQUl.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064680933660209309"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064680933660209309/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064680933660209309/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064680933660209309",
+      "summary": "Repost of @USNavy:",
+      "title": "Repost of @USNavy: One team. One flight deck. One mission. #FlyNavy #PeaceThroughStrength ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:163073c7143858be",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:01:52.529641+00:00",
+        "datePublished": "2026-06-10T12:07:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064670250189115393.jpg",
+            "remotePath": "archive/x/potus/HKcup0jW0AE6Vtl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKcup0jW0AE6Vtl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKcup0jW0AE6Vtl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064670250189115393.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKcup0jW0AE6Vtl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064680747198284179"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064680747198284179/README.md",
+      "path": "X/POTUS/2026/06/10/2064680747198284179/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064680747198284179",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Iran\u2019s Military is a complete and total mess. Much of it, like thei..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:ba540735c205b821",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.547294+00:00",
+        "datePublished": "2026-06-10T12:04:46+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064680162298331136.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKc3qyCWgAALRic.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKc3qyCWgAALRic.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKc3qyCWgAALRic.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064680162298331136.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKc3qyCWgAALRic.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064680167901933577"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064680167901933577/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064680167901933577/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064680167901933577",
+      "summary": "https://t.co/mb6W9A8RED",
+      "title": "https://t.co/mb6W9A8RED"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:97170025d72bbd17",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.547583+00:00",
+        "datePublished": "2026-06-10T12:03:23+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064679812346572801.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKc3WaXWcAEmUuc.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKc3WaXWcAEmUuc.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKc3WaXWcAEmUuc.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064679812346572801.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKc3WaXWcAEmUuc.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064679817329459555"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064679817329459555/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064679817329459555/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064679817329459555",
+      "summary": "https://t.co/lep91qBllt",
+      "title": "https://t.co/lep91qBllt"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:9abffc3db40dabd2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:02:09.547904+00:00",
+        "datePublished": "2026-06-10T12:01:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064666605297037312.mp4",
+            "remotePath": "archive/x/rapidresponse47/3ko6SK1wQJgc15wU.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064666605297037312/vid/avc1/1080x1920/3ko6SK1wQJgc15wU.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/3ko6SK1wQJgc15wU.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064666605297037312.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/3ko6SK1wQJgc15wU.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064679275345674655"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064679275345674655/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064679275345674655/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064679275345674655",
+      "summary": "Repost of @MargoMartin47:",
+      "title": "Repost of @MargoMartin47: Last night, @POTUS invited the hardworking men who renovated the..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:23a9b0acc1de4925",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T14:01:25.628228+00:00",
+        "datePublished": "2026-06-10T11:33:28+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064672291212935437"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064672291212935437/README.md",
+      "path": "X/DHSgov/2026/06/10/2064672291212935437/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064672291212935437",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: To be clear, this Democrat shutdown of ICE and CBP NEVER should h..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:f85e3a7120fdb98f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:02.681608+00:00",
+        "datePublished": "2026-06-10T11:32:52.931000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116725591109474316"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116725591109474316/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725591109474316/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116725591109474316",
+      "summary": "The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most successful Blockade in the history of Naval Warfare. NOTHING GETS THROUGH unless we want it to. IT IS A STEEL WALL! Iran is doing ZERO business, not paying their military, or any of their bil",
+      "title": "The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most s..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:dc2e3cdd6e106e32",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:50.732614+00:00",
+        "datePublished": "2026-06-10T11:25:22+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064670250189115393.jpg",
+            "remotePath": "archive/x/whitehouse/HKcup0jW0AE6Vtl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKcup0jW0AE6Vtl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKcup0jW0AE6Vtl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064670250189115393.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKcup0jW0AE6Vtl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064670253611635062"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064670253611635062/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064670253611635062/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064670253611635062",
+      "summary": "Iran\u2019s Military is a complete and total mess. Much of it, like their Navy and Air Force, doesn\u2019t even exist anymore - They have been completely defeated. Iran is all talk and no action. The Bully of the Middle East is DEAD!!! They\u2019ve taken too long to negotiate a deal that would ",
+      "title": "Iran\u2019s Military is a complete and total mess. Much of it, like their Navy and Air Force, d..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:59ffd5b79fc16583",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:02:09.548220+00:00",
+        "datePublished": "2026-06-10T11:22:52+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064669620817014784.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKcuFL9WsAAKky.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKcuFL9WsAAKky-.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKcuFL9WsAAKky.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064669620817014784.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKcuFL9WsAAKky.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064669623870517439"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064669623870517439/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064669623870517439/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064669623870517439",
+      "summary": "https://t.co/3wfggfeEo2",
+      "title": "https://t.co/3wfggfeEo2"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:5d5250a3bcf0ef65",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:02.681952+00:00",
+        "datePublished": "2026-06-10T11:03:39.998000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116725476229257491"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116725476229257491/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725476229257491/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116725476229257491",
+      "summary": "Iran\u2019s Military is a complete and total mess. Much of it, like their Navy and Air Force, doesn\u2019t even exist anymore - They have been completely defeated. Iran is all talk and no action. The Bully of the Middle East is DEAD!!! They\u2019ve taken too long to negotiate a deal that would ",
+      "title": "Iran\u2019s Military is a complete and total mess. Much of it, like their Navy and Air Force, d..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:519c891f2fde1726",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T14:03:02.682385+00:00",
+        "datePublished": "2026-06-10T10:55:35.381000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116725444469272742"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116725444469272742/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116725444469272742/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116725444469272742",
+      "summary": "Joe Scarborough\u2019s ever shrinking, low rated show, one of the most inaccurate detailers of truthful facts on television, is being crushed in the ratings. His serious case on Trump Derangement Syndrome, often referred to as TDS, has made him a laughing stock among those who know wh",
+      "title": "Joe Scarborough\u2019s ever shrinking, low rated show, one of the most inaccurate detailers of ..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-10",

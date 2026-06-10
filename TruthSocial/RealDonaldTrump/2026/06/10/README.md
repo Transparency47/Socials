@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-10
 
-- Posts: 27
+- Posts: 32
 
+- [13:30 UTC - Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulatio...](116726055495215764/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726055495215764
+  - Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulations to Jane F and ALL of her great people. They’ve worked really hard! BIG comeback for CIT...
+- [13:19 UTC - In a reversal, Mar-a-Lago helipad to remain past end of Trump's term: [https://www. palmbe...](116726011433927314/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726011433927314
+  - In a reversal, Mar-a-Lago helipad to remain past end of Trump's term: [https://www. palmbeachpost.com/story/news/t rump/2026/06/09/in-a-reversal-mar-a-lago-helipad-to-remain-past-e...
+- [11:32 UTC - The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most s...](116725591109474316/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725591109474316
+  - The Fake News Media refuses to report how EFFECTIVE the U.S. Naval BLOCKADE is, the most successful Blockade in the history of Naval Warfare. NOTHING GETS THROUGH unless we want it...
+- [11:03 UTC - Iran’s Military is a complete and total mess. Much of it, like their Navy and Air Force, d...](116725476229257491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725476229257491
+  - Iran’s Military is a complete and total mess. Much of it, like their Navy and Air Force, doesn’t even exist anymore - They have been completely defeated. Iran is all talk and no ac...
+- [10:55 UTC - Joe Scarborough’s ever shrinking, low rated show, one of the most inaccurate detailers of ...](116725444469272742/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116725444469272742
+  - Joe Scarborough’s ever shrinking, low rated show, one of the most inaccurate detailers of truthful facts on television, is being crushed in the ratings. His serious case on Trump D...
 - [10:35 UTC - Stephen A. Smith is an arrogant fool, a low IQ individual. In other words, he’s “dumb as a...](116725365354632342/)
   - Source: https://truthsocial.com/@realDonaldTrump/116725365354632342
   - Stephen A. Smith is an arrogant fool, a low IQ individual. In other words, he’s “dumb as a rock,” and totally unqualified to ever think of running for high political office, or eve...
