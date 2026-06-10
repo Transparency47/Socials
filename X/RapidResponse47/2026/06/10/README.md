@@ -1,7 +1,82 @@
 # X / RapidResponse47 / 2026-06-10
 
-- Posts: 8
+- Posts: 33
 
+- [17:24 UTC - https://t.co/0CT3N1tI90](2064760571350720521/)
+  - Source: https://x.com/RapidResponse47/status/2064760571350720521
+  - https://t.co/0CT3N1tI90
+- [17:20 UTC - .@SecMullinDHS on securing the World Cup: "It is a huge task, but DHS is up to this... We ...](2064759552927822064/)
+  - Source: https://x.com/RapidResponse47/status/2064759552927822064
+  - .@SecMullinDHS on securing the World Cup: "It is a huge task, but DHS is up to this... We have 78 Super Bowls, in 38 days, in 11 cities... we're going to have 5-7 million visitors....
+- [17:15 UTC - "This is super exciting for all of us," says @SecMullinDHS on Republicans and @POTUS fundi...](2064758372856193259/)
+  - Source: https://x.com/RapidResponse47/status/2064758372856193259
+  - "This is super exciting for all of us," says @SecMullinDHS on Republicans and @POTUS funding DHS through the Secure America Act. "Now, we won't have the Democrats threatening to sh...
+- [16:52 UTC - Repost of @SecMullinDHS: Thank you, President Trump. 🇺🇸](2064752620565062047/)
+  - Source: https://x.com/RapidResponse47/status/2064752620565062047
+  - Repost of @SecMullinDHS: Thank you, President Trump. 🇺🇸
+- [16:14 UTC - .@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of hi...](2064742976568410595/)
+  - Source: https://x.com/RapidResponse47/status/2064742976568410595
+  - .@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of his term, and giving ICE and Border Patrol the necessary resources to continue deporting ill...
+- [16:13 UTC - Repost of @CENTCOM: https://t.co/YgShlznGPQ](2064742749362913725/)
+  - Source: https://x.com/RapidResponse47/status/2064742749362913725
+  - Repost of @CENTCOM: https://t.co/YgShlznGPQ
+- [16:10 UTC - .@POTUS on Iran: "Did you know we've been taking out millions of barrels of oil? Nobody kn...](2064742120494096813/)
+  - Source: https://x.com/RapidResponse47/status/2064742120494096813
+  - .@POTUS on Iran: "Did you know we've been taking out millions of barrels of oil? Nobody knows it. You know who doesn't know about it? Iran — until right now. We took out, the other...
+- [16:08 UTC - .@POTUS on Congressional Dumocrats: "We can't let them extort us." https://t.co/KZuCGoQe0C](2064741580557148487/)
+  - Source: https://x.com/RapidResponse47/status/2064741580557148487
+  - .@POTUS on Congressional Dumocrats: "We can't let them extort us." https://t.co/KZuCGoQe0C
+- [16:07 UTC - .@POTUS on @pulte: "Smart people are smart people... he's going to be there for a short wh...](2064741168722624730/)
+  - Source: https://x.com/RapidResponse47/status/2064741168722624730
+  - .@POTUS on @pulte: "Smart people are smart people... he's going to be there for a short while while we pick somebody else. We're interviewing 5 different people—they're all very go...
+- [16:00 UTC - .@POTUS on Iran: "We hit them hard yesterday and we're going to hit them again hard today....](2064739535385223352/)
+  - Source: https://x.com/RapidResponse47/status/2064739535385223352
+  - .@POTUS on Iran: "We hit them hard yesterday and we're going to hit them again hard today... And we'll see what happens with the deal. We were really close to a deal — but they kee...
+- [15:52 UTC - .@POTUS on signing the Secure America Act to fund DHS: "Very simply, the Radical Left Dumo...](2064737551714279775/)
+  - Source: https://x.com/RapidResponse47/status/2064737551714279775
+  - .@POTUS on signing the Secure America Act to fund DHS: "Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the gang members, the drug dealers... and...
+- [15:47 UTC - .@POTUS: "The bill provides crucial funding for domestic law enforcement investigations an...](2064736209033703808/)
+  - Source: https://x.com/RapidResponse47/status/2064736209033703808
+  - .@POTUS: "The bill provides crucial funding for domestic law enforcement investigations and combatting child exploitation, continuing our work to restore law and order across our n...
+- [15:34 UTC - .@POTUS: "The Secure America Act provides $38B to ICE, $26B to Border Patrol to ensure the...](2064732973665001660/)
+  - Source: https://x.com/RapidResponse47/status/2064732973665001660
+  - .@POTUS: "The Secure America Act provides $38B to ICE, $26B to Border Patrol to ensure these critical law enforcement agencies have the necessary resources to do their jobs protect...
+- [15:28 UTC - .@POTUS: "For more than 100 days, Congressional Dumocrats tried to block all funding for @...](2064731549006716932/)
+  - Source: https://x.com/RapidResponse47/status/2064731549006716932
+  - .@POTUS: "For more than 100 days, Congressional Dumocrats tried to block all funding for @DHSgov in a reprehensible attempt to throw open the borders of the United States of Americ...
+- [15:23 UTC - .@POTUS: "This morning, I'm thrilled to sign the Secure America Act to immediately and ful...](2064730097479811395/)
+  - Source: https://x.com/RapidResponse47/status/2064730097479811395
+  - .@POTUS: "This morning, I'm thrilled to sign the Secure America Act to immediately and fully fund the Department of Homeland Security through the end of my term." 🇺🇸 https://t.co/1...
+- [15:23 UTC - .@USTradeRep: "I understand that the Post's Editorial Board may want to give a pass to for...](2064730061534618087/)
+  - Source: https://x.com/RapidResponse47/status/2064730061534618087
+  - .@USTradeRep: "I understand that the Post's Editorial Board may want to give a pass to foreign countries that choose to turn a blind eye to forced labor abroad, and it might never...
+- [15:12 UTC - Repost of @USAttyEssayli: Mahender Makhijani, 44, a lawful permanent resident from India l...](2064727381617602575/)
+  - Source: https://x.com/RapidResponse47/status/2064727381617602575
+  - Repost of @USAttyEssayli: Mahender Makhijani, 44, a lawful permanent resident from India living in Corona del Mar, was arrested this morning on a federal criminal complaint chargin...
+- [15:09 UTC - "I think it's important to point out that we saw this coming under the previous administra...](2064726577661833567/)
+  - Source: https://x.com/RapidResponse47/status/2064726577661833567
+  - "I think it's important to point out that we saw this coming under the previous administration and they refused to respond. When you let millions of people migrate through Central...
+- [15:07 UTC - https://t.co/oPo0eSH45x](2064726087221792906/)
+  - Source: https://x.com/RapidResponse47/status/2064726087221792906
+  - https://t.co/oPo0eSH45x
+- [15:05 UTC - .@RealPNavarro: "Core CPI — which strips out volatile food and energy — rose just 0.2 perc...](2064725594814685236/)
+  - Source: https://x.com/RapidResponse47/status/2064725594814685236
+  - .@RealPNavarro: "Core CPI — which strips out volatile food and energy — rose just 0.2 percent, below expectations... That is the number the Fed should be watching. And that number...
+- [14:48 UTC - Repost of @SecRollins: We’re fighting the New World Screwworm threat. We pushed NWS out of...](2064721379765719481/)
+  - Source: https://x.com/RapidResponse47/status/2064721379765719481
+  - Repost of @SecRollins: We’re fighting the New World Screwworm threat. We pushed NWS out of the US in 1966 — but for the first time in the modern area we have cases in Texas again....
+- [14:40 UTC - .@SecretaryWright: "We are driving two bold initiatives. First, an incentive-based competi...](2064719269439422585/)
+  - Source: https://x.com/RapidResponse47/status/2064719269439422585
+  - .@SecretaryWright: "We are driving two bold initiatives. First, an incentive-based competition to build and demonstrate the first scientifically-relevant Quantum computer by 2028—o...
+- [14:28 UTC - Repost of @StateDept: Under President Trump, the State Department is defending the integri...](2064716377991135596/)
+  - Source: https://x.com/RapidResponse47/status/2064716377991135596
+  - Repost of @StateDept: Under President Trump, the State Department is defending the integrity of U.S. citizenship by ending illegal birth tourism schemes. No foreigner is permitted...
+- [14:23 UTC - .@VP: "Right now, I feel that we are in a position to get a deal that is good for the Unit...](2064715051974500837/)
+  - Source: https://x.com/RapidResponse47/status/2064715051974500837
+  - .@VP: "Right now, I feel that we are in a position to get a deal that is good for the United States economically and that really does deal with the Iranian nuclear problem — not ju...
+- [14:08 UTC - Congrats, @StephenM, @KatieMiller, and family! 💙](2064711296969232469/)
+  - Source: https://x.com/RapidResponse47/status/2064711296969232469
+  - Congrats, @StephenM, @KatieMiller, and family! 💙
 - [13:35 UTC - .@USAmbNATO: "President Trump, while he is patient, and he is a dealmaker and he wants pea...](2064703103488725393/)
   - Source: https://x.com/RapidResponse47/status/2064703103488725393
   - .@USAmbNATO: "President Trump, while he is patient, and he is a dealmaker and he wants peace—at the same time, he knows that Iran cannot have a nuclear weapon. That is the starting...

@@ -1,7 +1,40 @@
 # X / DHSgov / 2026-06-10
 
-- Posts: 1
+- Posts: 12
 
+- [17:32 UTC - "We are super excited. We are going to have 5 to 7 million visitors. We are going to show ...](2064762663838580833/)
+  - Source: https://x.com/DHSgov/status/2064762663838580833
+  - "We are super excited. We are going to have 5 to 7 million visitors. We are going to show the best of America. We expect to have safe games." @SecMullinDHS https://t.co/TKhSEn2rbL
+- [17:28 UTC - .@SecMullinDHS on the Secure America Act: "Thanks to President Trump and his forward think...](2064761561105715501/)
+  - Source: https://x.com/DHSgov/status/2064761561105715501
+  - .@SecMullinDHS on the Secure America Act: "Thanks to President Trump and his forward thinking...we won’t have the Democrats threatening to shut down [DHS]...this is a major victory...
+- [16:28 UTC - .@GovKathyHochul and @NYCMayor are WELCOMING criminal illegal aliens into NYC — and making...](2064746631338029313/)
+  - Source: https://x.com/DHSgov/status/2064746631338029313
+  - .@GovKathyHochul and @NYCMayor are WELCOMING criminal illegal aliens into NYC — and making New Yorkers less safe. While they fight for illegal aliens over law-abiding New Yorkers,...
+- [16:28 UTC - Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the S...](2064746486366187688/)
+  - Source: https://x.com/DHSgov/status/2064746486366187688
+  - Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the Secure America Act to immediately and fully fund the Department of Homeland Security throug...
+- [16:15 UTC - Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @...](2064743292030390481/)
+  - Source: https://x.com/DHSgov/status/2064743292030390481
+  - Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of his term, and giving ICE and Border Patrol the necessary resourc...
+- [16:11 UTC - "[The Secure America Act] will give the heroes of ICE and Border Patrol - and that's what ...](2064742150256902414/)
+  - Source: https://x.com/DHSgov/status/2064742150256902414
+  - "[The Secure America Act] will give the heroes of ICE and Border Patrol - and that's what they are, heroes...the support and resources they need to defend our borders, protect our...
+- [16:09 UTC - Under @POTUS Trump's leadership, we've had 12 months of ZERO illegal aliens released into ...](2064741652913180807/)
+  - Source: https://x.com/DHSgov/status/2064741652913180807
+  - Under @POTUS Trump's leadership, we've had 12 months of ZERO illegal aliens released into the U.S. and we have STOPPED the flow of fentanyl into our nation. We will continue to car...
+- [16:05 UTC - OUR BORDERS ARE CLOSED. Promises made and kept. 🇺🇸 https://t.co/rdx3gBCH7e](2064740746402443389/)
+  - Source: https://x.com/DHSgov/status/2064740746402443389
+  - OUR BORDERS ARE CLOSED. Promises made and kept. 🇺🇸 https://t.co/rdx3gBCH7e
+- [15:56 UTC - Congressional Democrats kept DHS shut down for more than 100 days in an attempt to stop ou...](2064738420610457997/)
+  - Source: https://x.com/DHSgov/status/2064738420610457997
+  - Congressional Democrats kept DHS shut down for more than 100 days in an attempt to stop our work to secure our border and remove criminals from our communities. Under @POTUS Trump'...
+- [15:30 UTC - Repost of @RapidResponse47: .@POTUS: "For more than 100 days, Congressional Dumocrats trie...](2064731841710399691/)
+  - Source: https://x.com/DHSgov/status/2064731841710399691
+  - Repost of @RapidResponse47: .@POTUS: "For more than 100 days, Congressional Dumocrats tried to block all funding for @DHSgov in a reprehensible attempt to throw open the borders of...
+- [14:46 UTC - Repost of @WhiteHouse: Border security and keeping Americans safe shouldn’t be controversi...](2064720878378573843/)
+  - Source: https://x.com/DHSgov/status/2064720878378573843
+  - Repost of @WhiteHouse: Border security and keeping Americans safe shouldn’t be controversial.
 - [11:33 UTC - Repost of @SecMullinDHS: To be clear, this Democrat shutdown of ICE and CBP NEVER should h...](2064672291212935437/)
   - Source: https://x.com/DHSgov/status/2064672291212935437
   - Repost of @SecMullinDHS: To be clear, this Democrat shutdown of ICE and CBP NEVER should have happened. Congressional Democrats have made it clear that they no longer support the b...

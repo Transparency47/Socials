@@ -1,7 +1,40 @@
 # X / WhiteHouse / 2026-06-10
 
-- Posts: 7
+- Posts: 18
 
+- [17:35 UTC - Thanks to President Trump's effective trade policies and deregulation efforts, America's t...](2064763335896175045/)
+  - Source: https://x.com/WhiteHouse/status/2064763335896175045
+  - Thanks to President Trump's effective trade policies and deregulation efforts, America's trade deficit is FALLING fast. https://t.co/jzRVIJZZZx
+- [17:32 UTC - One more day until the FIFA World Cup 2026 comes to America! 🔥🇺🇸 Let's goooo! https://t.co...](2064762585841295540/)
+  - Source: https://x.com/WhiteHouse/status/2064762585841295540
+  - One more day until the FIFA World Cup 2026 comes to America! 🔥🇺🇸 Let's goooo! https://t.co/movwctGroL
+- [16:06 UTC - Repost of @DOWResponse: .@SECWAR has arrived at Guantánamo Bay. https://t.co/6xAEc5DmJ7](2064740964187406354/)
+  - Source: https://x.com/WhiteHouse/status/2064740964187406354
+  - Repost of @DOWResponse: .@SECWAR has arrived at Guantánamo Bay. https://t.co/6xAEc5DmJ7
+- [16:04 UTC - Repost of @RapidResponse47: .@POTUS on Iran: "We hit them hard yesterday and we're going t...](2064740534409666608/)
+  - Source: https://x.com/WhiteHouse/status/2064740534409666608
+  - Repost of @RapidResponse47: .@POTUS on Iran: "We hit them hard yesterday and we're going to hit them again hard today... And we'll see what happens with the deal. We were really cl...
+- [15:53 UTC - ZERO Democrats voted to pass the Secure America Act, proving yet again they are the party ...](2064737621692096711/)
+  - Source: https://x.com/WhiteHouse/status/2064737621692096711
+  - ZERO Democrats voted to pass the Secure America Act, proving yet again they are the party of open borders, protecting criminal illegal aliens, and defunding the police. https://t.c...
+- [15:50 UTC - FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the Secure America Act to im...](2064736885981733154/)
+  - Source: https://x.com/WhiteHouse/status/2064736885981733154
+  - FIGHTING FOR AMERICA'S LAW ENFORCEMENT! "I'm thrilled to sign the Secure America Act to immediately and fully fund the Department of Homeland Security through the END of my term."...
+- [15:18 UTC - President Trump Signs the Secure America Act https://t.co/7R7Xw6k3LB](2064728808679498131/)
+  - Source: https://x.com/WhiteHouse/status/2064728808679498131
+  - President Trump Signs the Secure America Act https://t.co/7R7Xw6k3LB
+- [15:13 UTC - Repost of @SecRollins: We’re fighting the New World Screwworm threat. We pushed NWS out of...](2064727623318610188/)
+  - Source: https://x.com/WhiteHouse/status/2064727623318610188
+  - Repost of @SecRollins: We’re fighting the New World Screwworm threat. We pushed NWS out of the US in 1966 — but for the first time in the modern area we have cases in Texas again....
+- [14:52 UTC - Repost of @FBIDirectorKash: June 10: Preventing terrorism during the 2026 FIFA World Cup  ...](2064722356765880768/)
+  - Source: https://x.com/WhiteHouse/status/2064722356765880768
+  - Repost of @FBIDirectorKash: June 10: Preventing terrorism during the 2026 FIFA World Cup For the FBI and its partners, preventing terrorist attacks is job #1 during the upcoming 20...
+- [14:27 UTC - Border security and keeping Americans safe shouldn’t be controversial.](2064715976831074769/)
+  - Source: https://x.com/WhiteHouse/status/2064715976831074769
+  - Border security and keeping Americans safe shouldn’t be controversial.
+- [14:21 UTC - Every single Democrat voted against the Secure America Act, proving yet again that they pu...](2064714535680741833/)
+  - Source: https://x.com/WhiteHouse/status/2064714535680741833
+  - Every single Democrat voted against the Secure America Act, proving yet again that they put illegal aliens over the safety and security of Americans. Your reminder ⬇️ https://t.co/...
 - [14:00 UTC - SOON: President Trump signs the Secure America Act in the Oval Office, securing funding fo...](2064709247661654229/)
   - Source: https://x.com/WhiteHouse/status/2064709247661654229
   - SOON: President Trump signs the Secure America Act in the Oval Office, securing funding for our great law enforcement agencies that PROTECT AMERICA. 🇺🇸 https://t.co/m2LRIJFOTp

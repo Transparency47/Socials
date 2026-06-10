@@ -1,6 +1,2351 @@
 {
-  "generatedAt": "2026-06-10T14:07:00.510024+00:00",
+  "generatedAt": "2026-06-10T17:41:50.718583+00:00",
   "records": [
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:96836db05ea5ec87",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.764772+00:00",
+        "datePublished": "2026-06-10T17:35:15+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064761821622321152.jpg",
+            "remotePath": "archive/x/whitehouse/HKeB7-uWQAALmBi.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKeB7-uWQAALmBi.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKeB7-uWQAALmBi.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064761821622321152.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKeB7-uWQAALmBi.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064763335896175045"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064763335896175045/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064763335896175045/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064763335896175045",
+      "summary": "Thanks to President Trump's effective trade policies and deregulation efforts, America's trade deficit is FALLING fast. https://t.co/jzRVIJZZZx",
+      "title": "Thanks to President Trump's effective trade policies and deregulation efforts, America's t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:458d00a669330805",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.439705+00:00",
+        "datePublished": "2026-06-10T17:32:35+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064762578711056384.mp4",
+            "remotePath": "archive/x/dhsgov/sTGxs4zIESvgp0tO.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064762578711056384/vid/avc1/1280x720/sTGxs4zIESvgp0tO.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/sTGxs4zIESvgp0tO.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064762578711056384.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/sTGxs4zIESvgp0tO.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064762663838580833"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064762663838580833/README.md",
+      "path": "X/DHSgov/2026/06/10/2064762663838580833/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064762663838580833",
+      "summary": "\"We are super excited. We are going to have 5 to 7 million visitors. We are going to show the best of America. We expect to have safe games.\" @SecMullinDHS https://t.co/TKhSEn2rbL",
+      "title": "\"We are super excited. We are going to have 5 to 7 million visitors. We are going to show ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:e971e2b56af2b976",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.765078+00:00",
+        "datePublished": "2026-06-10T17:32:16+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064762457738903552.jpg",
+            "remotePath": "archive/x/whitehouse/HKeChAcXAAA0qdg.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKeChAcXAAA0qdg.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKeChAcXAAA0qdg.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064762457738903552.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKeChAcXAAA0qdg.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064762585841295540"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064762585841295540/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064762585841295540/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064762585841295540",
+      "summary": "One more day until the FIFA World Cup 2026 comes to America! \ud83d\udd25\ud83c\uddfa\ud83c\uddf8 Let's goooo! https://t.co/movwctGroL",
+      "title": "One more day until the FIFA World Cup 2026 comes to America! \ud83d\udd25\ud83c\uddfa\ud83c\uddf8 Let's goooo! https://t.co..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:fd59e5a59a11c0b3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:56.028803+00:00",
+        "datePublished": "2026-06-10T17:28:31.038000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116726989523401101"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726989523401101/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726989523401101/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726989523401101",
+      "summary": "Congratulations to Nikol Pashinyan for his decisive victory in Armenia\u2019s National Elections. I was very proud to have Endorsed him for Re-Election, and have no doubt that, with him as the Leader of the beautiful Country of Armenia, it will attain levels of Greatness and Success b",
+      "title": "Congratulations to Nikol Pashinyan for his decisive victory in Armenia\u2019s National Election..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:a802212e32243cc7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.440070+00:00",
+        "datePublished": "2026-06-10T17:28:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064761493271281664.mp4",
+            "remotePath": "archive/x/dhsgov/aEsLEApB6KNU-N5e.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064761493271281664/vid/avc1/1280x720/aEsLEApB6KNU-N5e.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/aEsLEApB6KNU-N5e.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064761493271281664.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/aEsLEApB6KNU-N5e.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064761561105715501"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064761561105715501/README.md",
+      "path": "X/DHSgov/2026/06/10/2064761561105715501/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064761561105715501",
+      "summary": ".@SecMullinDHS on the Secure America Act: \"Thanks to President Trump and his forward thinking...we won\u2019t have the Democrats threatening to shut down [DHS]...this is a major victory for President Trump and DHS.\" https://t.co/89SI14QwQc",
+      "title": ".@SecMullinDHS on the Secure America Act: \"Thanks to President Trump and his forward think..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:264a546481ac7989",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.553903+00:00",
+        "datePublished": "2026-06-10T17:24:16+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064760566124523521.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKeAy5oWMAEeo0A.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKeAy5oWMAEeo0A.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKeAy5oWMAEeo0A.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064760566124523521.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKeAy5oWMAEeo0A.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064760571350720521"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064760571350720521/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064760571350720521/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064760571350720521",
+      "summary": "https://t.co/0CT3N1tI90",
+      "title": "https://t.co/0CT3N1tI90"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:c631ea61f1cdc4a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:56.029170+00:00",
+        "datePublished": "2026-06-10T17:22:51.315000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116726967259692558"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726967259692558/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726967259692558/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726967259692558",
+      "summary": "Congratulations to my friend, Prime Minister Narendra Modi, on becoming India\u2019s longest-serving Prime Minister \u2013 And a Great One he is! He is a strong, healthy, and wise man, and will have many years of Greatness and Success ahead of him! President DONALD J. TRUMP",
+      "title": "Congratulations to my friend, Prime Minister Narendra Modi, on becoming India\u2019s longest-se..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:714b8f89bd863b33",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.554231+00:00",
+        "datePublished": "2026-06-10T17:20:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064759318503628800.mp4",
+            "remotePath": "archive/x/rapidresponse47/ldPV_wDE8llxF6.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064759318503628800/vid/avc1/1280x720/--ldPV_wDE8llxF6.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/ldPV_wDE8llxF6.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064759318503628800.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/ldPV_wDE8llxF6.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064759552927822064"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064759552927822064/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064759552927822064/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064759552927822064",
+      "summary": ".@SecMullinDHS on securing the World Cup: \"It is a huge task, but DHS is up to this... We have 78 Super Bowls, in 38 days, in 11 cities... we're going to have 5-7 million visitors. We're going to show the best of America. We expect to have safe games.\" https://t.co/1ptGW3bu4a",
+      "title": ".@SecMullinDHS on securing the World Cup: \"It is a huge task, but DHS is up to this... We ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b65f6074b1b6c996",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:04.511089+00:00",
+        "datePublished": "2026-06-10T17:16:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064758113228443649.mp4",
+            "remotePath": "archive/x/secmullindhs/apRwcuqwA9tfLpBh.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064758113228443649/vid/avc1/1280x720/apRwcuqwA9tfLpBh.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/apRwcuqwA9tfLpBh.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064758113228443649.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/apRwcuqwA9tfLpBh.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064758593904148823"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/10/2064758593904148823/README.md",
+      "path": "X/SecMullinDHS/2026/06/10/2064758593904148823/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064758593904148823",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: \"This is super exciting for all of us,\" says @SecMullinDHS on ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:751d31ad3a3bcf07",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.554520+00:00",
+        "datePublished": "2026-06-10T17:15:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064758113228443649.mp4",
+            "remotePath": "archive/x/rapidresponse47/apRwcuqwA9tfLpBh.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064758113228443649/vid/avc1/1280x720/apRwcuqwA9tfLpBh.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/apRwcuqwA9tfLpBh.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064758113228443649.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/apRwcuqwA9tfLpBh.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064758372856193259"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064758372856193259/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064758372856193259/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064758372856193259",
+      "summary": "\"This is super exciting for all of us,\" says @SecMullinDHS on Republicans and @POTUS funding DHS through the Secure America Act.",
+      "title": "\"This is super exciting for all of us,\" says @SecMullinDHS on Republicans and @POTUS fundi..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:72b17b637d854c26",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:56.029431+00:00",
+        "datePublished": "2026-06-10T17:13:54.801000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116726931656272411.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/f27c6fd7422ddee0.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/726/931/656/272/411/original/f27c6fd7422ddee0.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f27c6fd7422ddee0.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116726931656272411.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f27c6fd7422ddee0.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116726932098488696"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726932098488696/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726932098488696/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726932098488696",
+      "summary": null,
+      "title": "Truth Social post 116726932098488696"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:7579122e2c6af864",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:35:22.164471+00:00",
+        "datePublished": "2026-06-10T17:05:49+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064755925005615106.png",
+            "remotePath": "archive/x/icegov/HKd8kwHXwAIoCtg.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd8kwHXwAIoCtg.png",
+            "url": "https://cdn.comparify.app/archive/x/icegov/HKd8kwHXwAIoCtg.png"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064755925005615106.png"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/icegov/HKd8kwHXwAIoCtg.png"
+        ],
+        "platform": "X",
+        "postId": "2064755927459225602"
+      },
+      "metadataPath": "X/ICEgov/2026/06/10/2064755927459225602/README.md",
+      "path": "X/ICEgov/2026/06/10/2064755927459225602/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064755927459225602",
+      "summary": "Tony Brown-Arkah, a U.S. citizen and New York resident, illegally prescribed Suboxone, a narcotic designed to treat opioid use disorder knowing drug dealers would buy patients\u2019 prescriptions for cash.",
+      "title": "Tony Brown-Arkah, a U.S. citizen and New York resident, illegally prescribed Suboxone, a n..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b12035a89db26bc2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:04.511536+00:00",
+        "datePublished": "2026-06-10T17:00:12+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064742092505591808.mp4",
+            "remotePath": "archive/x/secmullindhs/S8XJNOMkLMYcQpHN.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064742092505591808/vid/avc1/720x406/S8XJNOMkLMYcQpHN.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/S8XJNOMkLMYcQpHN.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064742092505591808.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/S8XJNOMkLMYcQpHN.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064754516726054918"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/10/2064754516726054918/README.md",
+      "path": "X/SecMullinDHS/2026/06/10/2064754516726054918/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064754516726054918",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: \"[The Secure America Act] will give the heroes of ICE and Border Patrol..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:2c940165eecd5551",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:36:07.554813+00:00",
+        "datePublished": "2026-06-10T16:52:40+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064752620565062047"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064752620565062047/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064752620565062047/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064752620565062047",
+      "summary": "Repost of @SecMullinDHS:",
+      "title": "Repost of @SecMullinDHS: Thank you, President Trump. \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b21da83b6873ab7c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "PressSec",
+        "accountDisplayName": "Karoline Leavitt",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:52.298140+00:00",
+        "datePublished": "2026-06-10T16:42:17+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064748359705866240.jpg",
+            "remotePath": "archive/x/presssec/HKd1sZLWsAAdSfQ.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd1sZLWsAAdSfQ.jpg",
+            "url": "https://cdn.comparify.app/archive/x/presssec/HKd1sZLWsAAdSfQ.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064748359705866240.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/presssec/HKd1sZLWsAAdSfQ.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064750007639568781"
+      },
+      "metadataPath": "X/PressSec/2026/06/10/2064750007639568781/README.md",
+      "path": "X/PressSec/2026/06/10/2064750007639568781/POST.md",
+      "sourceUrl": "https://x.com/PressSec/status/2064750007639568781",
+      "summary": "Repost of @dougmillsnyt:",
+      "title": "Repost of @dougmillsnyt: .@POTUS, with members of congress around him, after signing The S..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:4425fcccaccc8913",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:43.562150+00:00",
+        "datePublished": "2026-06-10T16:39:11+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064749226316251245"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/10/2064749226316251245/README.md",
+      "path": "X/FBIDirectorKash/2026/06/10/2064749226316251245/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064749226316251245",
+      "summary": "Repost of @FBIDirectorKash:",
+      "title": "Repost of @FBIDirectorKash: \ud83d\udea8 Early this morning, @FBI and partners arrested 7 individuals..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:10858a6120f37a2e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:43.562461+00:00",
+        "datePublished": "2026-06-10T16:34:12+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064747969039966208.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKd1Vp1WIAAxhEO.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd1Vp1WIAAxhEO.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp1WIAAxhEO.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064747969077768192.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKd1Vp-W8AA4Tqt.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd1Vp-W8AA4Tqt.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp-W8AA4Tqt.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064747969052549120.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKd1Vp4WIAAAmMg.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd1Vp4WIAAAmMg.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp4WIAAAmMg.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064747969056751616.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKd1Vp5WQAAwe5Y.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKd1Vp5WQAAwe5Y.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp5WQAAwe5Y.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064747969039966208.jpg",
+          "media/02_image_2064747969077768192.jpg",
+          "media/03_image_2064747969052549120.jpg",
+          "media/04_image_2064747969056751616.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp1WIAAxhEO.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp-W8AA4Tqt.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp4WIAAAmMg.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKd1Vp5WQAAwe5Y.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064747974090002894"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/10/2064747974090002894/README.md",
+      "path": "X/FBIDirectorKash/2026/06/10/2064747974090002894/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064747974090002894",
+      "summary": "Great to be with our @FBIDenver team \u2013 one of the best offices in the nation leading the fight to make America safe again.",
+      "title": "Great to be with our @FBIDenver team \u2013 one of the best offices in the nation leading the f..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:1eb2601a041778bf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.440409+00:00",
+        "datePublished": "2026-06-10T16:28:52+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064746631338029313"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064746631338029313/README.md",
+      "path": "X/DHSgov/2026/06/10/2064746631338029313/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064746631338029313",
+      "summary": ".@GovKathyHochul and @NYCMayor are WELCOMING criminal illegal aliens into NYC \u2014 and making New Yorkers less safe.",
+      "title": ".@GovKathyHochul and @NYCMayor are WELCOMING criminal illegal aliens into NYC \u2014 and making..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:833e342bf2f87820",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:22.440741+00:00",
+        "datePublished": "2026-06-10T16:28:18+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064736720134774784.mp4",
+            "remotePath": "archive/x/dhsgov/t3py6Rq9h3SX-c-h.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064736720134774784/vid/avc1/1080x1080/t3py6Rq9h3SX-c-h.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/t3py6Rq9h3SX-c-h.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064736720134774784.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/t3py6Rq9h3SX-c-h.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064746486366187688"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064746486366187688/README.md",
+      "path": "X/DHSgov/2026/06/10/2064746486366187688/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064746486366187688",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! \"I'm thrilled to sign the S..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:8dc7a956367943f6",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:22.441046+00:00",
+        "datePublished": "2026-06-10T16:15:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064742850927988736.mp4",
+            "remotePath": "archive/x/dhsgov/hoE-1cyeGGNXvCu7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064742850927988736/vid/avc1/1280x720/hoE-1cyeGGNXvCu7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/hoE-1cyeGGNXvCu7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064742850927988736.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/hoE-1cyeGGNXvCu7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064743292030390481"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064743292030390481/README.md",
+      "path": "X/DHSgov/2026/06/10/2064743292030390481/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064743292030390481",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS signs the Secure America Act into law, fully funding @..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:c68ef89d56e625e2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.555086+00:00",
+        "datePublished": "2026-06-10T16:14:21+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064742850927988736.mp4",
+            "remotePath": "archive/x/rapidresponse47/hoE-1cyeGGNXvCu7.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064742850927988736/vid/avc1/1280x720/hoE-1cyeGGNXvCu7.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/hoE-1cyeGGNXvCu7.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064742850927988736.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/hoE-1cyeGGNXvCu7.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064742976568410595"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064742976568410595/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064742976568410595/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064742976568410595",
+      "summary": ".@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of his term, and giving ICE and Border Patrol the necessary resources to continue deporting illegal aliens and keeping Americans safe. https://t.co/VHe44f5lAL",
+      "title": ".@POTUS signs the Secure America Act into law, fully funding @DHSgov through the end of hi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:bf7ab4d81d140c84",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:36:07.555350+00:00",
+        "datePublished": "2026-06-10T16:13:27+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064742749362913725"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064742749362913725/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064742749362913725/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064742749362913725",
+      "summary": "Repost of @CENTCOM:",
+      "title": "Repost of @CENTCOM: https://t.co/YgShlznGPQ"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:44bf63539cefee92",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.441324+00:00",
+        "datePublished": "2026-06-10T16:11:04+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064742092505591808.mp4",
+            "remotePath": "archive/x/dhsgov/S8XJNOMkLMYcQpHN.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064742092505591808/vid/avc1/720x406/S8XJNOMkLMYcQpHN.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/S8XJNOMkLMYcQpHN.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064742092505591808.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/S8XJNOMkLMYcQpHN.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064742150256902414"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064742150256902414/README.md",
+      "path": "X/DHSgov/2026/06/10/2064742150256902414/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064742150256902414",
+      "summary": "\"[The Secure America Act] will give the heroes of ICE and Border Patrol - and that's what they are, heroes...the support and resources they need to defend our borders, protect our homeland, and keep America safe.\" -@POTUS Trump https://t.co/8pO1iOGqDB",
+      "title": "\"[The Secure America Act] will give the heroes of ICE and Border Patrol - and that's what ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:cebeccd7142fc8ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.555628+00:00",
+        "datePublished": "2026-06-10T16:10:57+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064741785386012672.mp4",
+            "remotePath": "archive/x/rapidresponse47/yZQClWEX18T3iouQ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064741785386012672/vid/avc1/1280x720/yZQClWEX18T3iouQ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/yZQClWEX18T3iouQ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064741785386012672.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/yZQClWEX18T3iouQ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064742120494096813"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064742120494096813/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064742120494096813/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064742120494096813",
+      "summary": ".@POTUS on Iran: \"Did you know we've been taking out millions of barrels of oil? Nobody knows it. You know who doesn't know about it? Iran \u2014 until right now. We took out, the other night, 22 ships.\" https://t.co/2odiLYXDJ3",
+      "title": ".@POTUS on Iran: \"Did you know we've been taking out millions of barrels of oil? Nobody kn..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:a2b65b71a87f0867",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.441617+00:00",
+        "datePublished": "2026-06-10T16:09:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064741478593650688.mp4",
+            "remotePath": "archive/x/dhsgov/iwgBVYKZAzveLQLP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064741478593650688/vid/avc1/720x406/iwgBVYKZAzveLQLP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/iwgBVYKZAzveLQLP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064741478593650688.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/iwgBVYKZAzveLQLP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064741652913180807"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064741652913180807/README.md",
+      "path": "X/DHSgov/2026/06/10/2064741652913180807/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064741652913180807",
+      "summary": "Under @POTUS Trump's leadership, we've had 12 months of ZERO illegal aliens released into the U.S. and we have STOPPED the flow of fentanyl into our nation.",
+      "title": "Under @POTUS Trump's leadership, we've had 12 months of ZERO illegal aliens released into ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:aaaf014c8cf21e66",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.555891+00:00",
+        "datePublished": "2026-06-10T16:08:48+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064741354157096960.mp4",
+            "remotePath": "archive/x/rapidresponse47/rNRUbBbAD9gW6a-K.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064741354157096960/vid/avc1/1280x720/rNRUbBbAD9gW6a-K.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/rNRUbBbAD9gW6a-K.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064741354157096960.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/rNRUbBbAD9gW6a-K.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064741580557148487"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064741580557148487/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064741580557148487/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064741580557148487",
+      "summary": ".@POTUS on Congressional Dumocrats: \"We can't let them extort us.\" https://t.co/KZuCGoQe0C",
+      "title": ".@POTUS on Congressional Dumocrats: \"We can't let them extort us.\" https://t.co/KZuCGoQe0C"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:be79fe78932b8b40",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.556159+00:00",
+        "datePublished": "2026-06-10T16:07:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064741081833496576.mp4",
+            "remotePath": "archive/x/rapidresponse47/z83HdeAyra1hjsjs.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064741081833496576/vid/avc1/1280x720/z83HdeAyra1hjsjs.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/z83HdeAyra1hjsjs.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064741081833496576.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/z83HdeAyra1hjsjs.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064741168722624730"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064741168722624730/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064741168722624730/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064741168722624730",
+      "summary": ".@POTUS on @pulte: \"Smart people are smart people... he's going to be there for a short while while we pick somebody else. We're interviewing 5 different people\u2014they're all very good...people want [ODNI] downsized.\" https://t.co/AlikbDTtDA",
+      "title": ".@POTUS on @pulte: \"Smart people are smart people... he's going to be there for a short wh..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:efa46a1ddde029bf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:23.765369+00:00",
+        "datePublished": "2026-06-10T16:06:21+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064707654803427328.mp4",
+            "remotePath": "archive/x/whitehouse/kdy2zeAr0ZcfqXWy.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064707654803427328/vid/avc1/1920x1080/kdy2zeAr0ZcfqXWy.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/kdy2zeAr0ZcfqXWy.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064707654803427328.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/kdy2zeAr0ZcfqXWy.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064740964187406354"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064740964187406354/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064740964187406354/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064740964187406354",
+      "summary": "Repost of @DOWResponse:",
+      "title": "Repost of @DOWResponse: .@SECWAR has arrived at Guant\u00e1namo Bay. https://t.co/6xAEc5DmJ7"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:f5538aa3e19c3ab9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.441883+00:00",
+        "datePublished": "2026-06-10T16:05:29+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064740562771587072.mp4",
+            "remotePath": "archive/x/dhsgov/4874oHlDIgMlgTi.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064740562771587072/vid/avc1/720x406/4874oHlDIgMlgTi_.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/4874oHlDIgMlgTi.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064740562771587072.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/4874oHlDIgMlgTi.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064740746402443389"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064740746402443389/README.md",
+      "path": "X/DHSgov/2026/06/10/2064740746402443389/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064740746402443389",
+      "summary": "OUR BORDERS ARE CLOSED.",
+      "title": "OUR BORDERS ARE CLOSED. Promises made and kept. \ud83c\uddfa\ud83c\uddf8 https://t.co/rdx3gBCH7e"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:43ee40e5d57e3b83",
+      "kind": "social_post",
+      "metadata": {
+        "account": "ICEgov",
+        "accountDisplayName": "U.S. Immigration and Customs Enforcement",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:35:22.164844+00:00",
+        "datePublished": "2026-06-10T16:05:15+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064740687225012235"
+      },
+      "metadataPath": "X/ICEgov/2026/06/10/2064740687225012235/README.md",
+      "path": "X/ICEgov/2026/06/10/2064740687225012235/POST.md",
+      "sourceUrl": "https://x.com/ICEgov/status/2064740687225012235",
+      "summary": "48 illegal aliens were detained and two business managers arrested June 3 as part of years-long and ongoing fraudulent identification case in South Carolina.",
+      "title": "48 illegal aliens were detained and two business managers arrested June 3 as part of years..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:f6254c0ecdaa55ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:23.765698+00:00",
+        "datePublished": "2026-06-10T16:04:39+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064738500889448448.mp4",
+            "remotePath": "archive/x/whitehouse/QKupgNYJWCdsqMX3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064738500889448448/vid/avc1/1280x720/QKupgNYJWCdsqMX3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/QKupgNYJWCdsqMX3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064738500889448448.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/QKupgNYJWCdsqMX3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064740534409666608"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064740534409666608/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064740534409666608/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064740534409666608",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS on Iran: \"We hit them hard yesterday and we're going t..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:bf4e01123ee060b1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.213809+00:00",
+        "datePublished": "2026-06-10T16:00:57+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064736720134774784.mp4",
+            "remotePath": "archive/x/potus/t3py6Rq9h3SX-c-h.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064736720134774784/vid/avc1/1080x1080/t3py6Rq9h3SX-c-h.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/t3py6Rq9h3SX-c-h.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064736720134774784.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/t3py6Rq9h3SX-c-h.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064739606549926104"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064739606549926104/README.md",
+      "path": "X/POTUS/2026/06/10/2064739606549926104/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064739606549926104",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: FIGHTING FOR AMERICA'S LAW ENFORCEMENT! \"I'm thrilled to sign the S..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:7ed767c1596b9a70",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.214130+00:00",
+        "datePublished": "2026-06-10T16:00:55+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064737058279522304.jpg",
+            "remotePath": "archive/x/potus/HKdrakFWAAAF2GA.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdrakFWAAAF2GA.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKdrakFWAAAF2GA.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064737058279522304.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKdrakFWAAAF2GA.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064739595640590410"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064739595640590410/README.md",
+      "path": "X/POTUS/2026/06/10/2064739595640590410/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064739595640590410",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: ZERO Democrats voted to pass the Secure America Act, proving yet ag..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:444a411dd32ef6c0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.556435+00:00",
+        "datePublished": "2026-06-10T16:00:40+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064738500889448448.mp4",
+            "remotePath": "archive/x/rapidresponse47/QKupgNYJWCdsqMX3.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064738500889448448/vid/avc1/1280x720/QKupgNYJWCdsqMX3.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/QKupgNYJWCdsqMX3.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064738500889448448.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/QKupgNYJWCdsqMX3.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064739535385223352"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064739535385223352/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064739535385223352/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064739535385223352",
+      "summary": ".@POTUS on Iran: \"We hit them hard yesterday and we're going to hit them again hard today... And we'll see what happens with the deal. We were really close to a deal \u2014 but they keep tapping us along. They keep playing us for suckers because you know what? They dealt with some ver",
+      "title": ".@POTUS on Iran: \"We hit them hard yesterday and we're going to hit them again hard today...."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b52c2e03736810ca",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:04.511795+00:00",
+        "datePublished": "2026-06-10T15:58:14+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064731419159519232.mp4",
+            "remotePath": "archive/x/secmullindhs/OHS0RlseNxYjPW9M.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064731419159519232/vid/avc1/1280x720/OHS0RlseNxYjPW9M.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/OHS0RlseNxYjPW9M.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064731419159519232.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/OHS0RlseNxYjPW9M.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064738919501955113"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/10/2064738919501955113/README.md",
+      "path": "X/SecMullinDHS/2026/06/10/2064738919501955113/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064738919501955113",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS: \"For more than 100 days, Congressional Dumocrats trie..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:f12a68e65b7a36f2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "SecMullinDHS",
+        "accountDisplayName": "Secretary Markwayne Mullin",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:04.511975+00:00",
+        "datePublished": "2026-06-10T15:58:00+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064737984352522240.mp4",
+            "remotePath": "archive/x/secmullindhs/qh_1Gz3p_FzJ1k7X.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064737984352522240/vid/avc1/720x406/qh_1Gz3p_FzJ1k7X.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/secmullindhs/qh_1Gz3p_FzJ1k7X.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064737984352522240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/secmullindhs/qh_1Gz3p_FzJ1k7X.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064738862618874101"
+      },
+      "metadataPath": "X/SecMullinDHS/2026/06/10/2064738862618874101/README.md",
+      "path": "X/SecMullinDHS/2026/06/10/2064738862618874101/POST.md",
+      "sourceUrl": "https://x.com/SecMullinDHS/status/2064738862618874101",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: Congressional Democrats kept DHS shut down for more than 100 days in an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:e25ec40c366216a9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:22.442145+00:00",
+        "datePublished": "2026-06-10T15:56:15+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064737984352522240.mp4",
+            "remotePath": "archive/x/dhsgov/qh_1Gz3p_FzJ1k7X.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064737984352522240/vid/avc1/720x406/qh_1Gz3p_FzJ1k7X.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/qh_1Gz3p_FzJ1k7X.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064737984352522240.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/qh_1Gz3p_FzJ1k7X.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064738420610457997"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064738420610457997/README.md",
+      "path": "X/DHSgov/2026/06/10/2064738420610457997/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064738420610457997",
+      "summary": "Congressional Democrats kept DHS shut down for more than 100 days in an attempt to stop our work to secure our border and remove criminals from our communities.",
+      "title": "Congressional Democrats kept DHS shut down for more than 100 days in an attempt to stop ou..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:ad2718a0e47fc2de",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:43.562795+00:00",
+        "datePublished": "2026-06-10T15:54:35+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064735852790534144.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKdqUZSX0AAJg-A.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdqUZSX0AAJg-A.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZSX0AAJg-A.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_2064735852677169152.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKdqUY3WAAAWi2z.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdqUY3WAAAWi2z.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUY3WAAAWi2z.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_2064735852765286400.png",
+            "remotePath": "archive/x/fbidirectorkash/HKdqUZMWkAAnuyU.png",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdqUZMWkAAnuyU.png",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZMWkAAnuyU.png"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/04_image_2064735852832452608.jpg",
+            "remotePath": "archive/x/fbidirectorkash/HKdqUZcXcAArGyX.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdqUZcXcAArGyX.jpg",
+            "url": "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZcXcAArGyX.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064735852790534144.jpg",
+          "media/02_image_2064735852677169152.jpg",
+          "media/03_image_2064735852765286400.png",
+          "media/04_image_2064735852832452608.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZSX0AAJg-A.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUY3WAAAWi2z.jpg",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZMWkAAnuyU.png",
+          "https://cdn.comparify.app/archive/x/fbidirectorkash/HKdqUZcXcAArGyX.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064738002333483291"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/10/2064738002333483291/README.md",
+      "path": "X/FBIDirectorKash/2026/06/10/2064738002333483291/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064738002333483291",
+      "summary": "Repost of @FBIDetroit:",
+      "title": "Repost of @FBIDetroit: INDICTMENT: Department of Justice indicts eight conspirators who th..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-10",
+      "id": "socials:65d6f541f41c5381",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:38:11.735093+00:00",
+        "datePublished": "2026-06-10T15:54:05+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7649795587851685133.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7649795587851685133.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649795587851685133",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7649795587851685133.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7649795587851685133.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7649795587851685133.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7649795587851685133"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/10/7649795587851685133/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/10/7649795587851685133/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7649795587851685133",
+      "summary": "Goodbye criminal illegals! The Trump admin will keep fighting to keep America Safe \ud83c\uddfa\ud83c\uddf8",
+      "title": "Goodbye criminal illegals! The Trump admin will keep fighting to keep America Safe \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:5a9783d02798ef71",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.765982+00:00",
+        "datePublished": "2026-06-10T15:53:04+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064737058279522304.jpg",
+            "remotePath": "archive/x/whitehouse/HKdrakFWAAAF2GA.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdrakFWAAAF2GA.jpg",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/HKdrakFWAAAF2GA.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064737058279522304.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/HKdrakFWAAAF2GA.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064737621692096711"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064737621692096711/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064737621692096711/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064737621692096711",
+      "summary": "ZERO Democrats voted to pass the Secure America Act, proving yet again they are the party of open borders, protecting criminal illegal aliens, and defunding the police. https://t.co/FSWs0HSFOc",
+      "title": "ZERO Democrats voted to pass the Secure America Act, proving yet again they are the\u00a0party ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:a246a0cc773684ad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.556715+00:00",
+        "datePublished": "2026-06-10T15:52:47+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064737367898853376.mp4",
+            "remotePath": "archive/x/rapidresponse47/qsoykA0MdyvzxZzs.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064737367898853376/vid/avc1/1280x720/qsoykA0MdyvzxZzs.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/qsoykA0MdyvzxZzs.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064737367898853376.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/qsoykA0MdyvzxZzs.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064737551714279775"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064737551714279775/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064737551714279775/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064737551714279775",
+      "summary": ".@POTUS on signing the Secure America Act to fund DHS: \"Very simply, the Radical Left Dumocrats... voted with the cartels, the terrorists, the gang members, the drug dealers... and our great Republican majorities voted to protect law-abiding American citizens.\" https://t.co/XlLw5",
+      "title": ".@POTUS on signing the Secure America Act to fund DHS: \"Very simply, the Radical Left Dumo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b15cb62243a2b6a2",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.766254+00:00",
+        "datePublished": "2026-06-10T15:50:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064736720134774784.mp4",
+            "remotePath": "archive/x/whitehouse/t3py6Rq9h3SX-c-h.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064736720134774784/vid/avc1/1080x1080/t3py6Rq9h3SX-c-h.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/t3py6Rq9h3SX-c-h.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064736720134774784.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/t3py6Rq9h3SX-c-h.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064736885981733154"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064736885981733154/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064736885981733154/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064736885981733154",
+      "summary": "FIGHTING FOR AMERICA'S LAW ENFORCEMENT!",
+      "title": "FIGHTING FOR AMERICA'S LAW ENFORCEMENT! \"I'm thrilled to sign the Secure America Act to im..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:9f69e759861c7d1e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:15.523019+00:00",
+        "datePublished": "2026-06-10T15:50:02+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064736857775059290"
+      },
+      "metadataPath": "X/VP/2026/06/10/2064736857775059290/README.md",
+      "path": "X/VP/2026/06/10/2064736857775059290/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064736857775059290",
+      "summary": "Repost of @JDVance:",
+      "title": "Repost of @JDVance: Usha and I had the opportunity to talk with the Artemis astronauts whi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:ca7cdf0f3fae17bd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.556982+00:00",
+        "datePublished": "2026-06-10T15:47:27+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064736118461825024.mp4",
+            "remotePath": "archive/x/rapidresponse47/lFPeYjB4RTeVskv9.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064736118461825024/vid/avc1/1280x720/lFPeYjB4RTeVskv9.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/lFPeYjB4RTeVskv9.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064736118461825024.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/lFPeYjB4RTeVskv9.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064736209033703808"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064736209033703808/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064736209033703808/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064736209033703808",
+      "summary": ".@POTUS: \"The bill provides crucial funding for domestic law enforcement investigations and combatting child exploitation, continuing our work to restore law and order across our nation and to protect America's youth.\" https://t.co/QoyegrSedt",
+      "title": ".@POTUS: \"The bill provides crucial funding for domestic law enforcement investigations an..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:183c48f7fbddcd27",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.557237+00:00",
+        "datePublished": "2026-06-10T15:34:36+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064732888575209472.mp4",
+            "remotePath": "archive/x/rapidresponse47/Win0CyIVtt6eBYva.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064732888575209472/vid/avc1/1280x720/Win0CyIVtt6eBYva.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/Win0CyIVtt6eBYva.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064732888575209472.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/Win0CyIVtt6eBYva.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064732973665001660"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064732973665001660/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064732973665001660/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064732973665001660",
+      "summary": ".@POTUS: \"The Secure America Act provides $38B to ICE, $26B to Border Patrol to ensure these critical law enforcement agencies have the necessary resources to do their jobs protecting our borders and getting criminal aliens out of the country.\" https://t.co/tQ1Vv84Fzw",
+      "title": ".@POTUS: \"The Secure America Act provides $38B to ICE, $26B to Border Patrol to ensure the..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:35080829fe15de2f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:43.563177+00:00",
+        "datePublished": "2026-06-10T15:33:14+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064732631166509260"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/10/2064732631166509260/README.md",
+      "path": "X/FBIDirectorKash/2026/06/10/2064732631166509260/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064732631166509260",
+      "summary": "\ud83d\udea8 Early this morning, @FBI and partners arrested 7 individuals on a 10 count indictment for allegedly targeting University of Michigan leaders and businesses in the Eastern Michigan region with violent threats and attacks.",
+      "title": "\ud83d\udea8 Early this morning, @FBI and partners arrested 7 individuals on a 10 count indictment fo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:20fe1d442b554f05",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:22.442405+00:00",
+        "datePublished": "2026-06-10T15:30:06+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064731419159519232.mp4",
+            "remotePath": "archive/x/dhsgov/OHS0RlseNxYjPW9M.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064731419159519232/vid/avc1/1280x720/OHS0RlseNxYjPW9M.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/dhsgov/OHS0RlseNxYjPW9M.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064731419159519232.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/dhsgov/OHS0RlseNxYjPW9M.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064731841710399691"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064731841710399691/README.md",
+      "path": "X/DHSgov/2026/06/10/2064731841710399691/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064731841710399691",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@POTUS: \"For more than 100 days, Congressional Dumocrats trie..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:f3edd6829ae09226",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.557496+00:00",
+        "datePublished": "2026-06-10T15:28:56+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064731419159519232.mp4",
+            "remotePath": "archive/x/rapidresponse47/OHS0RlseNxYjPW9M.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064731419159519232/vid/avc1/1280x720/OHS0RlseNxYjPW9M.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/OHS0RlseNxYjPW9M.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064731419159519232.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/OHS0RlseNxYjPW9M.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064731549006716932"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064731549006716932/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064731549006716932/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064731549006716932",
+      "summary": ".@POTUS: \"For more than 100 days, Congressional Dumocrats tried to block all funding for @DHSgov in a reprehensible attempt to throw open the borders of the United States of America. They want to drag us straight back to chaos and crime...and we're not going to let them do that.\"",
+      "title": ".@POTUS: \"For more than 100 days, Congressional Dumocrats tried to block all funding for @..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:92af33df9e74d502",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.557773+00:00",
+        "datePublished": "2026-06-10T15:23:10+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064730000931127296.mp4",
+            "remotePath": "archive/x/rapidresponse47/01un91u-7kwsSwII.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064730000931127296/vid/avc1/1280x720/01un91u-7kwsSwII.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/01un91u-7kwsSwII.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064730000931127296.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/01un91u-7kwsSwII.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064730097479811395"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064730097479811395/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064730097479811395/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064730097479811395",
+      "summary": ".@POTUS: \"This morning, I'm thrilled to sign the Secure America Act to immediately and fully fund the Department of Homeland Security through the end of my term.\" \ud83c\uddfa\ud83c\uddf8 https://t.co/17empPFbpM",
+      "title": ".@POTUS: \"This morning, I'm thrilled to sign the Secure America Act to immediately and ful..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:233496ede6f01317",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.558053+00:00",
+        "datePublished": "2026-06-10T15:23:02+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064730061534618087"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064730061534618087/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064730061534618087/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064730061534618087",
+      "summary": ".@USTradeRep: \"I understand that the Post's Editorial Board may want to give a pass to foreign countries that choose to turn a blind eye to forced labor abroad, and it might never bring itself to publish the headline 'President Trump does more to combat modern slavery than any pr",
+      "title": ".@USTradeRep: \"I understand that the Post's Editorial Board may want to give a pass to for..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:de66962ce14158a3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.214419+00:00",
+        "datePublished": "2026-06-10T15:18:51+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064729011968716914"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064729011968716914/README.md",
+      "path": "X/POTUS/2026/06/10/2064729011968716914/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064729011968716914",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: President Trump Signs the Secure America Act https://t.co/7R7Xw6k3L..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:f0c65b16ea3b73f5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.766489+00:00",
+        "datePublished": "2026-06-10T15:18:03+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064728808679498131"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064728808679498131/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064728808679498131/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064728808679498131",
+      "summary": "President Trump Signs the Secure America Act https://t.co/7R7Xw6k3LB",
+      "title": "President Trump Signs the Secure America Act https://t.co/7R7Xw6k3LB"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:ae8e758bb87a5a8b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:23.766792+00:00",
+        "datePublished": "2026-06-10T15:13:20+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064720330778681344.mp4",
+            "remotePath": "archive/x/whitehouse/jj4S0RQlwbKprL1R.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064720330778681344/vid/avc1/1280x720/jj4S0RQlwbKprL1R.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/jj4S0RQlwbKprL1R.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064720330778681344.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/jj4S0RQlwbKprL1R.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064727623318610188"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064727623318610188/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064727623318610188/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064727623318610188",
+      "summary": "Repost of @SecRollins:",
+      "title": "Repost of @SecRollins: We\u2019re fighting the New World Screwworm threat. We pushed NWS out of..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:0c3825c10d9e4ac1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:36:07.558378+00:00",
+        "datePublished": "2026-06-10T15:12:23+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064706754093686784.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKdP2oMaoAAt86l.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdP2oMaoAAt86l.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKdP2oMaoAAt86l.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064706754093686784.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKdP2oMaoAAt86l.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064727381617602575"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064727381617602575/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064727381617602575/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064727381617602575",
+      "summary": "Repost of @USAttyEssayli:",
+      "title": "Repost of @USAttyEssayli: Mahender Makhijani, 44, a lawful permanent resident from India l..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:010a3577dfc6ee87",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.558660+00:00",
+        "datePublished": "2026-06-10T15:09:11+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064725950722383872.mp4",
+            "remotePath": "archive/x/rapidresponse47/yQfxytuKNGDbWrSP.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064725950722383872/vid/avc1/1280x720/yQfxytuKNGDbWrSP.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/yQfxytuKNGDbWrSP.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064725950722383872.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/yQfxytuKNGDbWrSP.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064726577661833567"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064726577661833567/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064726577661833567/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064726577661833567",
+      "summary": "\"I think it's important to point out that we saw this coming under the previous administration and they refused to respond. When you let millions of people migrate through Central America this way, we saw the screwworm just come with them.\"",
+      "title": "\"I think it's important to point out that we saw this coming under the previous administra..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:bf678ac5f22573d9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.558909+00:00",
+        "datePublished": "2026-06-10T15:07:14+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064726083111395329.jpg",
+            "remotePath": "archive/x/rapidresponse47/HKdhbuZWoAEQ8dl.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdhbuZWoAEQ8dl.jpg",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/HKdhbuZWoAEQ8dl.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064726083111395329.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/HKdhbuZWoAEQ8dl.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064726087221792906"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064726087221792906/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064726087221792906/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064726087221792906",
+      "summary": "https://t.co/oPo0eSH45x",
+      "title": "https://t.co/oPo0eSH45x"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-10",
+      "id": "socials:aee21951f317f5ad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:56.030051+00:00",
+        "datePublished": "2026-06-10T15:06:06.646000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116726429558380513"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/10/116726429558380513/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/10/116726429558380513/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116726429558380513",
+      "summary": "Just like they did on Border Funding, the Radical Left Dumocrats are trying to take our National Security hostage because of unrelated issues. They should stop playing politics with the safety of our Great Country. I have named William Pulte to be Acting Director of National Inte",
+      "title": "Just like they did on Border Funding, the Radical Left Dumocrats are trying to take our Na..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:30f9366ce38f6929",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:07.559166+00:00",
+        "datePublished": "2026-06-10T15:05:17+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064725594814685236"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064725594814685236/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064725594814685236/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064725594814685236",
+      "summary": ".@RealPNavarro: \"Core CPI \u2014 which strips out volatile food and energy \u2014 rose just 0.2 percent, below expectations... That is the number the Fed should be watching. And that number says the underlying inflation trend remains contained.\" https://t.co/QMSgVRHj0u",
+      "title": ".@RealPNavarro: \"Core CPI \u2014 which strips out volatile food and energy \u2014 rose just 0.2 perc..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:b12e83355e3f76a0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:23.767161+00:00",
+        "datePublished": "2026-06-10T14:52:25+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064722356765880768"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064722356765880768/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064722356765880768/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064722356765880768",
+      "summary": "Repost of @FBIDirectorKash:",
+      "title": "Repost of @FBIDirectorKash: June 10: Preventing terrorism during the 2026 FIFA World Cup \u00a0..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:122fc31a2c3e06ae",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:36:08.426676+00:00",
+        "datePublished": "2026-06-10T14:48:32+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064720330778681344.mp4",
+            "remotePath": "archive/x/rapidresponse47/jj4S0RQlwbKprL1R.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064720330778681344/vid/avc1/1280x720/jj4S0RQlwbKprL1R.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/jj4S0RQlwbKprL1R.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064720330778681344.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/jj4S0RQlwbKprL1R.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064721379765719481"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064721379765719481/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064721379765719481/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064721379765719481",
+      "summary": "Repost of @SecRollins:",
+      "title": "Repost of @SecRollins: We\u2019re fighting the New World Screwworm threat. We pushed NWS out of..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:9de4d97e7344ff7e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "DHSgov",
+        "accountDisplayName": "Homeland Security",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:34:22.442693+00:00",
+        "datePublished": "2026-06-10T14:46:32+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064720878378573843"
+      },
+      "metadataPath": "X/DHSgov/2026/06/10/2064720878378573843/README.md",
+      "path": "X/DHSgov/2026/06/10/2064720878378573843/POST.md",
+      "sourceUrl": "https://x.com/DHSgov/status/2064720878378573843",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Border security and keeping Americans safe shouldn\u2019t be controversi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:7e6539b804d18020",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.214714+00:00",
+        "datePublished": "2026-06-10T14:40:26+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064719343594701201"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064719343594701201/README.md",
+      "path": "X/POTUS/2026/06/10/2064719343594701201/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064719343594701201",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Border security and keeping Americans safe shouldn\u2019t be controversi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:45bc5cca94126ab0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:08.427002+00:00",
+        "datePublished": "2026-06-10T14:40:09+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064716552792834048.mp4",
+            "remotePath": "archive/x/rapidresponse47/7fsLfAZWlX-QEQuS.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064716552792834048/vid/avc1/1280x720/7fsLfAZWlX-QEQuS.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/7fsLfAZWlX-QEQuS.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064716552792834048.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/7fsLfAZWlX-QEQuS.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064719269439422585"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064719269439422585/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064719269439422585/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064719269439422585",
+      "summary": ".@SecretaryWright: \"We are driving two bold initiatives. First, an incentive-based competition to build and demonstrate the first scientifically-relevant Quantum computer by 2028\u2014orders of magnitude more powerful than anything that exists today. Second, a national Quantum super c",
+      "title": ".@SecretaryWright: \"We are driving two bold initiatives. First, an incentive-based competi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:232bf53c44d31b8b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.214905+00:00",
+        "datePublished": "2026-06-10T14:39:47+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064713776683692032.mp4",
+            "remotePath": "archive/x/potus/swFLHtrdUuNA8_dK.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064713776683692032/vid/avc1/4096x2160/swFLHtrdUuNA8_dK.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/potus/swFLHtrdUuNA8_dK.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064713776683692032.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/swFLHtrdUuNA8_dK.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064719179291189420"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064719179291189420/README.md",
+      "path": "X/POTUS/2026/06/10/2064719179291189420/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064719179291189420",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Every single Democrat voted against the Secure America Act, proving..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:34b6d28f7f9ec369",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:35:35.215073+00:00",
+        "datePublished": "2026-06-10T14:39:44+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_2064709157555429376.jpg",
+            "remotePath": "archive/x/potus/HKdSChyWYAAmgQW.jpg",
+            "sourceUrl": "https://pbs.twimg.com/media/HKdSChyWYAAmgQW.jpg",
+            "url": "https://cdn.comparify.app/archive/x/potus/HKdSChyWYAAmgQW.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_2064709157555429376.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/potus/HKdSChyWYAAmgQW.jpg"
+        ],
+        "platform": "X",
+        "postId": "2064719167010251255"
+      },
+      "metadataPath": "X/POTUS/2026/06/10/2064719167010251255/README.md",
+      "path": "X/POTUS/2026/06/10/2064719167010251255/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2064719167010251255",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: SOON: President Trump signs the Secure America Act in the Oval Offi..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:87638b528da7635b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:36:08.427297+00:00",
+        "datePublished": "2026-06-10T14:28:39+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064716377991135596"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064716377991135596/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064716377991135596/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064716377991135596",
+      "summary": "Repost of @StateDept:",
+      "title": "Repost of @StateDept: Under President Trump, the State Department is defending the integri..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:48e1175f0ee683a8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.767421+00:00",
+        "datePublished": "2026-06-10T14:27:04+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064715976831074769"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064715976831074769/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064715976831074769/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064715976831074769",
+      "summary": "Border security and keeping Americans safe shouldn\u2019t be controversial.",
+      "title": "Border security and keeping Americans safe shouldn\u2019t be controversial."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:57f800e6667511b7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:15.523327+00:00",
+        "datePublished": "2026-06-10T14:23:54+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064715180173377578"
+      },
+      "metadataPath": "X/VP/2026/06/10/2064715180173377578/README.md",
+      "path": "X/VP/2026/06/10/2064715180173377578/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064715180173377578",
+      "summary": "Repost of @DOJFraudDiv:",
+      "title": "Repost of @DOJFraudDiv: These Florida fraudsters allegedly submitted more than $5 MILLION ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:587dcf7dd9f824f9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-10T17:37:15.523619+00:00",
+        "datePublished": "2026-06-10T14:23:39+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064714780779188224.mp4",
+            "remotePath": "archive/x/vp/OiPXkuVFDgKdDRCZ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064714780779188224/vid/avc1/1920x1080/OiPXkuVFDgKdDRCZ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/vp/OiPXkuVFDgKdDRCZ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064714780779188224.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/vp/OiPXkuVFDgKdDRCZ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064715116994609302"
+      },
+      "metadataPath": "X/VP/2026/06/10/2064715116994609302/README.md",
+      "path": "X/VP/2026/06/10/2064715116994609302/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2064715116994609302",
+      "summary": "Repost of @RapidResponse47:",
+      "title": "Repost of @RapidResponse47: .@VP: \"Right now, I feel that we are in a position to get a de..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:065bb5d991e45872",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:08.427566+00:00",
+        "datePublished": "2026-06-10T14:23:23+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064714780779188224.mp4",
+            "remotePath": "archive/x/rapidresponse47/OiPXkuVFDgKdDRCZ.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064714780779188224/vid/avc1/1920x1080/OiPXkuVFDgKdDRCZ.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/rapidresponse47/OiPXkuVFDgKdDRCZ.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064714780779188224.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/rapidresponse47/OiPXkuVFDgKdDRCZ.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064715051974500837"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064715051974500837/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064715051974500837/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064715051974500837",
+      "summary": ".@VP: \"Right now, I feel that we are in a position to get a deal that is good for the United States economically and that really does deal with the Iranian nuclear problem \u2014 not just now, not just while Donald Trump is President, but for the long term.\" https://t.co/vl89jcOlWg",
+      "title": ".@VP: \"Right now, I feel that we are in a position to get a deal that is good for the Unit..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:d362b8039c94c04d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:37:23.767689+00:00",
+        "datePublished": "2026-06-10T14:21:20+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_2064713776683692032.mp4",
+            "remotePath": "archive/x/whitehouse/swFLHtrdUuNA8_dK.mp4",
+            "sourceUrl": "https://video.twimg.com/amplify_video/2064713776683692032/vid/avc1/4096x2160/swFLHtrdUuNA8_dK.mp4?tag=27",
+            "url": "https://cdn.comparify.app/archive/x/whitehouse/swFLHtrdUuNA8_dK.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_2064713776683692032.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/x/whitehouse/swFLHtrdUuNA8_dK.mp4"
+        ],
+        "platform": "X",
+        "postId": "2064714535680741833"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/10/2064714535680741833/README.md",
+      "path": "X/WhiteHouse/2026/06/10/2064714535680741833/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2064714535680741833",
+      "summary": "Every single Democrat voted against the Secure America Act, proving yet again that they put illegal aliens over the safety and security of Americans.",
+      "title": "Every single Democrat voted against the Secure America Act, proving yet again that they pu..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:13cea5956526d5ca",
+      "kind": "social_post",
+      "metadata": {
+        "account": "FBIDirectorKash",
+        "accountDisplayName": "FBI Director Kash Patel",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:34:43.563620+00:00",
+        "datePublished": "2026-06-10T14:17:05+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064713465323720922"
+      },
+      "metadataPath": "X/FBIDirectorKash/2026/06/10/2064713465323720922/README.md",
+      "path": "X/FBIDirectorKash/2026/06/10/2064713465323720922/POST.md",
+      "sourceUrl": "https://x.com/FBIDirectorKash/status/2064713465323720922",
+      "summary": "June 10: Preventing terrorism during the 2026 FIFA World Cup",
+      "title": "June 10: Preventing terrorism during the 2026 FIFA World Cup \u00a0 For the FBI and its partner..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-10",
+      "id": "socials:83be0a1aa9dcc120",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-10T17:36:08.427864+00:00",
+        "datePublished": "2026-06-10T14:08:28+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "X",
+        "postId": "2064711296969232469"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/10/2064711296969232469/README.md",
+      "path": "X/RapidResponse47/2026/06/10/2064711296969232469/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2064711296969232469",
+      "summary": "Congrats, @StephenM, @KatieMiller, and family! \ud83d\udc99",
+      "title": "Congrats, @StephenM, @KatieMiller, and family! \ud83d\udc99"
+    },
     {
       "category": "X",
       "date": "2026-06-10",

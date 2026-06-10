@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-10
 
-- Posts: 32
+- Posts: 36
 
+- [17:28 UTC - Congratulations to Nikol Pashinyan for his decisive victory in Armenia’s National Election...](116726989523401101/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726989523401101
+  - Congratulations to Nikol Pashinyan for his decisive victory in Armenia’s National Elections. I was very proud to have Endorsed him for Re-Election, and have no doubt that, with him...
+- [17:22 UTC - Congratulations to my friend, Prime Minister Narendra Modi, on becoming India’s longest-se...](116726967259692558/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726967259692558
+  - Congratulations to my friend, Prime Minister Narendra Modi, on becoming India’s longest-serving Prime Minister – And a Great One he is! He is a strong, healthy, and wise man, and w...
+- [17:13 UTC - Truth Social post 116726932098488696](116726932098488696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726932098488696
+  - _No text content captured._
+- [15:06 UTC - Just like they did on Border Funding, the Radical Left Dumocrats are trying to take our Na...](116726429558380513/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116726429558380513
+  - Just like they did on Border Funding, the Radical Left Dumocrats are trying to take our National Security hostage because of unrelated issues. They should stop playing politics wit...
 - [13:30 UTC - Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulatio...](116726055495215764/)
   - Source: https://truthsocial.com/@realDonaldTrump/116726055495215764
   - Wow! CITI was ranked Number 1 in topping M&A Advisory Market by Value in Q1. Congratulations to Jane F and ALL of her great people. They’ve worked really hard! BIG comeback for CIT...
