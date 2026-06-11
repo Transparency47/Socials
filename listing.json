@@ -1,6 +1,29 @@
 {
-  "generatedAt": "2026-06-10T23:40:33.238330+00:00",
+  "generatedAt": "2026-06-11T02:06:20.958964+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:971dbd66e623e5c0",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T02:04:17.656364+00:00",
+        "datePublished": "2026-06-11T01:21:45.697000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116728850395743386"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116728850395743386/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116728850395743386/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116728850395743386",
+      "summary": "No other President has ever been more committed to both REBUILDING our Great Military and SAVING our Great Country \u2014 And NOW is the time to make it happen, for Generations to come. I am hereby calling on Republicans in Congress to IMMEDIATELY advance and pass the forthcoming $350",
+      "title": "No other President has ever been more committed to both REBUILDING our Great Military and ..."
+    },
     {
       "category": "TikTok",
       "date": "2026-06-10",
@@ -450512,6 +450535,38 @@
       "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7375744699140721963",
       "summary": "Launching my TikTok at @UFC 302.",
       "title": "Launching my TikTok at @UFC 302."
+    },
+    {
+      "category": "TikTok",
+      "date": null,
+      "id": "socials:3b580b72ea263f50",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "WhiteHouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T02:04:24.232750+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1.html",
+            "remotePath": null,
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse",
+            "url": null
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1.html"
+        ],
+        "mediaUrls": [],
+        "platform": "TikTok",
+        "postId": "MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/11/MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051j/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/11/MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051j/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse",
+      "summary": "WhiteHouse",
+      "title": "WhiteHouse"
     }
   ],
   "source": "socials",

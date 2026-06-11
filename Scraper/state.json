@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=_tD3I_uDhBQ: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=_tD3I_uDhBQ! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9309,6 +9309,17 @@
       "published": "2026-06-10T20:08:19+00:00",
       "title": "Trump knows ball \ud83c\udfc0",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7649861000161807630"
+    },
+    "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-11T02:04:24.232750+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/11/MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051j",
+      "platform": "tiktok",
+      "post_id": "MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E",
+      "published": null,
+      "title": "WhiteHouse",
+      "url": "https://www.tiktok.com/@WhiteHouse"
     },
     "truthsocial:realdonaldtrump:113858887418016610": {
       "account": "RealDonaldTrump",
@@ -114601,6 +114612,17 @@
       "published": "2026-06-10T17:50:24.111000+00:00",
       "title": "Last month, I directed our Great U.S. Military to execute a secret mission to support Oil ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116727075577305840"
+    },
+    "truthsocial:realdonaldtrump:116728850395743386": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-11T02:04:17.656364+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116728850395743386",
+      "platform": "truthsocial",
+      "post_id": "116728850395743386",
+      "published": "2026-06-11T01:21:45.697000+00:00",
+      "title": "No other President has ever been more committed to both REBUILDING our Great Military and ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116728850395743386"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
