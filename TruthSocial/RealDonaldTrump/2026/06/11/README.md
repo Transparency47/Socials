@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-06-11
 
-- Posts: 1
+- Posts: 7
 
+- [14:55 UTC - The United States of America cannot live with the shackles of Birthright Citizenship. It i...](116732049110199246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732049110199246
+  - The United States of America cannot live with the shackles of Birthright Citizenship. It is not economically, or otherwise, sustainable, and no other Country in the World, of conse...
+- [14:47 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116732020008853128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732020008853128
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [14:47 UTC - Truth Social post 116732016965037190](116732016965037190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732016965037190
+  - _No text content captured._
+- [14:46 UTC - Truth Social post 116732012849757223](116732012849757223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732012849757223
+  - _No text content captured._
+- [13:19 UTC - Truth Social post 116731673106546130](116731673106546130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116731673106546130
+  - _No text content captured._
+- [12:22 UTC - The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and a...](116731447139970106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116731447139970106
+  - The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and all other forms of Defense, together with most of its offensive capability, are GONE!), VER...
 - [01:21 UTC - No other President has ever been more committed to both REBUILDING our Great Military and ...](116728850395743386/)
   - Source: https://truthsocial.com/@realDonaldTrump/116728850395743386
   - No other President has ever been more committed to both REBUILDING our Great Military and SAVING our Great Country — And NOW is the time to make it happen, for Generations to come....

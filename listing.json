@@ -1,6 +1,215 @@
 {
-  "generatedAt": "2026-06-11T11:50:50.186339+00:00",
+  "generatedAt": "2026-06-11T15:45:28.977027+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-11",
+      "id": "socials:ee05e12f5ec1038a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:42:18.609091+00:00",
+        "datePublished": "2026-06-11T14:59:13+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650152538586598670.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650152538586598670.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650152538586598670",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650152538586598670.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650152538586598670.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650152538586598670.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650152538586598670"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/11/7650152538586598670/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/11/7650152538586598670/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650152538586598670",
+      "summary": "FULLY FUNDING ICE & BORDER PATROL \ud83d\udd25\ud83c\uddfa\ud83c\uddf8",
+      "title": "FULLY FUNDING ICE & BORDER PATROL \ud83d\udd25\ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:dbb9c22c9465121c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.954992+00:00",
+        "datePublished": "2026-06-11T14:55:14.206000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116732049110199246"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732049110199246/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732049110199246/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732049110199246",
+      "summary": "The United States of America cannot live with the shackles of Birthright Citizenship. It is not economically, or otherwise, sustainable, and no other Country in the World, of consequence, does it! President DJT",
+      "title": "The United States of America cannot live with the shackles of Birthright Citizenship. It i..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:9358348e8c5cc149",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.955543+00:00",
+        "datePublished": "2026-06-11T14:47:50.150000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116732020008853128"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732020008853128/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732020008853128/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732020008853128",
+      "summary": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:68b32e3336575cfd",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.955784+00:00",
+        "datePublished": "2026-06-11T14:47:03.776000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116732014251892061.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/4d4e69753f63aa3c.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/732/014/251/892/061/original/4d4e69753f63aa3c.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4d4e69753f63aa3c.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116732014251892061.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/4d4e69753f63aa3c.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116732016965037190"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732016965037190/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732016965037190/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732016965037190",
+      "summary": null,
+      "title": "Truth Social post 116732016965037190"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:1b4c5b1bf522fb1e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.956006+00:00",
+        "datePublished": "2026-06-11T14:46:00.913000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116732012087747730.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/b2e572f5e4bb14ee.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/732/012/087/747/730/original/b2e572f5e4bb14ee.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b2e572f5e4bb14ee.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116732012087747730.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b2e572f5e4bb14ee.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116732012849757223"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732012849757223/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732012849757223/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732012849757223",
+      "summary": null,
+      "title": "Truth Social post 116732012849757223"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:1e8981c787f408ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.956202+00:00",
+        "datePublished": "2026-06-11T13:19:36.841000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116731670966261119.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/6ba7c63ede343552.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/731/670/966/261/119/original/6ba7c63ede343552.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/6ba7c63ede343552.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116731670966261119.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/6ba7c63ede343552.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116731673106546130"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116731673106546130/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116731673106546130/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116731673106546130",
+      "summary": null,
+      "title": "Truth Social post 116731673106546130"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:170086a0aa976c45",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T15:41:39.956478+00:00",
+        "datePublished": "2026-06-11T12:22:08.864000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116731447139970106"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116731447139970106/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116731447139970106/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116731447139970106",
+      "summary": "The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and all other forms of Defense, together with most of its offensive capability, are GONE!), VERY HARD TONIGHT. At some point in the not too distant future, we will be taking Kharg Island, and oth",
+      "title": "The United States will be hitting Iran (Whose Navy, Air Force, Radar, Anti Aircraft, and a..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-11",
