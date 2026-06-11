@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-11
 
-- Posts: 7
+- Posts: 9
 
+- [18:00 UTC - I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chair...](116732777898985789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732777898985789
+  - I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chairman of the Securities and Exchange Commission, the former Head of Sullivan & Cromwell, one...
+- [17:28 UTC - Based on the fact that discussions with the Islamic Republic of Iran have been brought to ...](116732652997120164/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116732652997120164
+  - Based on the fact that discussions with the Islamic Republic of Iran have been brought to the highest level of Iranian leadership and approved, I have, as President of the United S...
 - [14:55 UTC - The United States of America cannot live with the shackles of Birthright Citizenship. It i...](116732049110199246/)
   - Source: https://truthsocial.com/@realDonaldTrump/116732049110199246
   - The United States of America cannot live with the shackles of Birthright Citizenship. It is not economically, or otherwise, sustainable, and no other Country in the World, of conse...

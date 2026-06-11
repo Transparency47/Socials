@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=rrS3fzDjwDA: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=rrS3fzDjwDA! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (rrS3fzDjwDA) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=rrS3fzDjwDA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=rrS3fzDjwDA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114700,6 +114700,28 @@
       "published": "2026-06-11T14:55:14.206000+00:00",
       "title": "The United States of America cannot live with the shackles of Birthright Citizenship. It i...",
       "url": "https://truthsocial.com/@realDonaldTrump/116732049110199246"
+    },
+    "truthsocial:realdonaldtrump:116732652997120164": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-11T18:37:29.910821+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732652997120164",
+      "platform": "truthsocial",
+      "post_id": "116732652997120164",
+      "published": "2026-06-11T17:28:48.782000+00:00",
+      "title": "Based on the fact that discussions with the Islamic Republic of Iran have been brought to ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116732652997120164"
+    },
+    "truthsocial:realdonaldtrump:116732777898985789": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-11T18:37:29.910196+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732777898985789",
+      "platform": "truthsocial",
+      "post_id": "116732777898985789",
+      "published": "2026-06-11T18:00:34.633000+00:00",
+      "title": "I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chair...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116732777898985789"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

@@ -1,6 +1,52 @@
 {
-  "generatedAt": "2026-06-11T15:45:28.977027+00:00",
+  "generatedAt": "2026-06-11T18:38:38.900451+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:9e133bef9206315b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T18:37:29.910196+00:00",
+        "datePublished": "2026-06-11T18:00:34.633000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116732777898985789"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732777898985789/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732777898985789/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732777898985789",
+      "summary": "I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chairman of the Securities and Exchange Commission, the former Head of Sullivan & Cromwell, one of the most prominent and successful Law Firms anywhere in the World, and the current United States",
+      "title": "I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chair..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:917e3e09ca4d3c4e",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T18:37:29.910821+00:00",
+        "datePublished": "2026-06-11T17:28:48.782000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116732652997120164"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116732652997120164/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116732652997120164/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116732652997120164",
+      "summary": "Based on the fact that discussions with the Islamic Republic of Iran have been brought to the highest level of Iranian leadership and approved, I have, as President of the United States of America, cancelled the scheduled strikes and bombings against Iran this evening. Discussion",
+      "title": "Based on the fact that discussions with the Islamic Republic of Iran have been brought to ..."
+    },
     {
       "category": "TikTok",
       "date": "2026-06-11",
