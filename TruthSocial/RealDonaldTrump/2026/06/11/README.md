@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-11
 
-- Posts: 9
+- Posts: 10
 
+- [22:01 UTC - These are the weapons we are seizing from Mexican Cartels. They are killing thousands of A...](116733724226062708/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116733724226062708
+  - These are the weapons we are seizing from Mexican Cartels. They are killing thousands of Americans each and every year! President DONALD J. TRUMP
 - [18:00 UTC - I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chair...](116732777898985789/)
   - Source: https://truthsocial.com/@realDonaldTrump/116732777898985789
   - I am pleased to announce the Nomination of very Highly Respected Jay Clayton, former Chairman of the Securities and Exchange Commission, the former Head of Sullivan & Cromwell, one...

@@ -1,10 +1,13 @@
 # TikTok / WhiteHouse / 2026-06-11
 
-- Posts: 3
+- Posts: 4
 
 - [WhiteHouse](MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051j/)
   - Source: https://www.tiktok.com/@WhiteHouse
   - WhiteHouse
+- [22:39 UTC - FIFA WORLD CUP 2026 IS HERE 🔥 LFG](7650271141071768846/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7650271141071768846
+  - FIFA WORLD CUP 2026 IS HERE 🔥 LFG
 - [19:29 UTC - Embarrassing. #vine](7650222287307803917/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7650222287307803917
   - Embarrassing. #vine

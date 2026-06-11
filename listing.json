@@ -1,6 +1,76 @@
 {
-  "generatedAt": "2026-06-11T21:09:59.961743+00:00",
+  "generatedAt": "2026-06-11T23:02:48.008926+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-11",
+      "id": "socials:d8673b4dac290e9f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T22:58:44.315667+00:00",
+        "datePublished": "2026-06-11T22:39:41+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650271141071768846.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650271141071768846.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650271141071768846",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650271141071768846.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650271141071768846.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650271141071768846.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650271141071768846"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/11/7650271141071768846/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/11/7650271141071768846/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650271141071768846",
+      "summary": "FIFA WORLD CUP 2026 IS HERE \ud83d\udd25 LFG",
+      "title": "FIFA WORLD CUP 2026 IS HERE \ud83d\udd25 LFG"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-11",
+      "id": "socials:b560e562212cdade",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T22:58:33.778201+00:00",
+        "datePublished": "2026-06-11T22:01:14.446000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116733718631591312.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/98cb3a46ae92d7c7.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/733/718/631/591/312/original/98cb3a46ae92d7c7.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/98cb3a46ae92d7c7.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116733718631591312.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/98cb3a46ae92d7c7.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116733724226062708"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/11/116733724226062708/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116733724226062708/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116733724226062708",
+      "summary": "These are the weapons we are seizing from Mexican Cartels. They are killing thousands of Americans each and every year! President DONALD J. TRUMP",
+      "title": "These are the weapons we are seizing from Mexican Cartels. They are killing thousands of A..."
+    },
     {
       "category": "TikTok",
       "date": "2026-06-11",
