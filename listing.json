@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-11T18:38:38.900451+00:00",
+  "generatedAt": "2026-06-11T21:09:59.961743+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-11",
+      "id": "socials:92dfc39dbf0a5e96",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-11T21:09:15.004916+00:00",
+        "datePublished": "2026-06-11T19:29:52+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650222287307803917.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650222287307803917.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650222287307803917",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650222287307803917.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650222287307803917.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650222287307803917.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650222287307803917"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/11/7650222287307803917/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/11/7650222287307803917/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650222287307803917",
+      "summary": "Embarrassing. #vine",
+      "title": "Embarrassing. #vine"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-11",

@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=rrS3fzDjwDA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=rrS3fzDjwDA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Kldm14Dno_s: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Kldm14Dno_s! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9320,6 +9320,17 @@
       "published": "2026-06-11T14:59:13+00:00",
       "title": "FULLY FUNDING ICE & BORDER PATROL \ud83d\udd25\ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7650152538586598670"
+    },
+    "tiktok:whitehouse:7650222287307803917": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-11T21:09:15.004916+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/11/7650222287307803917",
+      "platform": "tiktok",
+      "post_id": "7650222287307803917",
+      "published": "2026-06-11T19:29:52+00:00",
+      "title": "Embarrassing. #vine",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7650222287307803917"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
