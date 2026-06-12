@@ -1,6 +1,75 @@
 {
-  "generatedAt": "2026-06-12T00:23:26.665015+00:00",
+  "generatedAt": "2026-06-12T05:17:13.970752+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:00499253aef147f3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T05:13:08.396273+00:00",
+        "datePublished": "2026-06-12T01:49:56.852000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116734623535558014"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116734623535558014/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116734623535558014/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116734623535558014",
+      "summary": "Why Scott Pelley Doesn\u2019t Matter: [https:// lyceumnow.com/why-scott-pelley -doesnt-matter/](https://lyceumnow.com/why-scott-pelley-doesnt-matter/)",
+      "title": "Why Scott Pelley Doesn\u2019t Matter: [https:// lyceumnow.com/why-scott-pelley -doesnt-matter/]..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:2c6487cb6b90e748",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T05:13:08.396972+00:00",
+        "datePublished": "2026-06-12T01:49:39.470000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116734622396281132"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116734622396281132/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116734622396281132/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116734622396281132",
+      "summary": "US attorney in California suspects voter fraud investigation will result in charges: [https:// justthenews.com/government/cou rts-law/us-attorney-california-suspects-voter-fraud-investigation-will-result-charges](https://justthenews.com/government/courts-law/us-attorney-californi",
+      "title": "US attorney in California suspects voter fraud investigation will result in charges: [http..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:9b5d82b367207f57",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T05:13:08.397625+00:00",
+        "datePublished": "2026-06-12T01:49:15.958000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116734620855620327"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116734620855620327/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116734620855620327/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116734620855620327",
+      "summary": "Congress passes immigration funding bill, delivering major win for Trump after Democrat antics: [https:// justthenews.com/politics-polic y/congress-passes-ice-border-patrol-funding-bill](https://justthenews.com/politics-policy/congress-passes-ice-border-patrol-funding-bill)",
+      "title": "Congress passes immigration funding bill, delivering major win for Trump after Democrat an..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-12",
