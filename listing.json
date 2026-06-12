@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-12T20:26:46.053608+00:00",
+  "generatedAt": "2026-06-12T22:07:56.714938+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:52b450a4ccc25b27",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T22:04:44.857319+00:00",
+        "datePublished": "2026-06-12T21:07:47.020000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116739171335436073.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/ac73ca1f327ce678.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/739/171/335/436/073/original/ac73ca1f327ce678.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ac73ca1f327ce678.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116739171335436073.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ac73ca1f327ce678.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116739176330480134"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116739176330480134/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116739176330480134/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116739176330480134",
+      "summary": "This Sunday Night, during the historic Freedom 250 UFC Fight at the White House, The Department of War will debut their first TV Ad, entitled \"Peace Through Strength.\" WATCH IT BELOW. The Warrior Ethos is BACK at the War Department, and we call on our greatest young Americans to ",
+      "title": "This Sunday Night, during the historic Freedom 250 UFC Fight at the White House, The Depar..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-12",

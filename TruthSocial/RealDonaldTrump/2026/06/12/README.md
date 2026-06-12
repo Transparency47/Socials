@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-12
 
-- Posts: 11
+- Posts: 12
 
+- [21:07 UTC - This Sunday Night, during the historic Freedom 250 UFC Fight at the White House, The Depar...](116739176330480134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116739176330480134
+  - This Sunday Night, during the historic Freedom 250 UFC Fight at the White House, The Department of War will debut their first TV Ad, entitled "Peace Through Strength." WATCH IT BEL...
 - [19:09 UTC - Truth Social post 116738709792190047](116738709792190047/)
   - Source: https://truthsocial.com/@realDonaldTrump/116738709792190047
   - _No text content captured._
