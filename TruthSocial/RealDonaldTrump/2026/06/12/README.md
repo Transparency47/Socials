@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-12
 
-- Posts: 4
+- Posts: 7
 
+- [15:33 UTC - Truth Social post 116737863032160311](116737863032160311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116737863032160311
+  - _No text content captured._
+- [13:59 UTC - [https:// truthsocial.com/users/craigcow boy/statuses/116737420081036841zt](https://truths...](116737492068972653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116737492068972653
+  - [https:// truthsocial.com/users/craigcow boy/statuses/116737420081036841zt](https://truthsocial.com/users/craigcowboy/statuses/116737420081036841zt)
+- [13:40 UTC - The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that wer...](116737418354503074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116737418354503074
+  - The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that were agreed to, in writing. What they said, including their weak and pathetic statement on ha...
 - [01:49 UTC - Why Scott Pelley Doesn’t Matter: [https:// lyceumnow.com/why-scott-pelley -doesnt-matter/]...](116734623535558014/)
   - Source: https://truthsocial.com/@realDonaldTrump/116734623535558014
   - Why Scott Pelley Doesn’t Matter: [https:// lyceumnow.com/why-scott-pelley -doesnt-matter/](https://lyceumnow.com/why-scott-pelley-doesnt-matter/)

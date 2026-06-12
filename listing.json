@@ -1,6 +1,110 @@
 {
-  "generatedAt": "2026-06-12T12:34:03.801076+00:00",
+  "generatedAt": "2026-06-12T15:55:20.315895+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:7c10f783d8a63a2f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T15:54:14.234200+00:00",
+        "datePublished": "2026-06-12T15:33:47.681000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116737861589158720.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/16dd085312d86b72.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/861/589/158/720/original/16dd085312d86b72.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/16dd085312d86b72.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116737861589158720.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/16dd085312d86b72.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116737863032160311"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116737863032160311/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116737863032160311/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116737863032160311",
+      "summary": null,
+      "title": "Truth Social post 116737863032160311"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:d8e8ec48c118a878",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T15:54:14.235065+00:00",
+        "datePublished": "2026-06-12T13:59:27.160000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116737492068972653"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116737492068972653/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116737492068972653/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116737492068972653",
+      "summary": "[https:// truthsocial.com/users/craigcow boy/statuses/116737420081036841zt](https://truthsocial.com/users/craigcowboy/statuses/116737420081036841zt)",
+      "title": "[https:// truthsocial.com/users/craigcow boy/statuses/116737420081036841zt](https://truths..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:2595e9b554e30f73",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T15:54:14.235511+00:00",
+        "datePublished": "2026-06-12T13:40:42.372000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116737418354503074"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116737418354503074/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116737418354503074/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116737418354503074",
+      "summary": "The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that were agreed to, in writing. What they said, including their weak and pathetic statement on having a deal, bears no relation to the truth. Very dishonorable people to deal with. With them, there",
+      "title": "The terms that Iran leaked out to the Fake News have NOTHING to do with the terms that wer..."
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-12",
+      "id": "socials:61095b0df6a61add",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-12T15:54:27.149546+00:00",
+        "datePublished": "2026-06-12T13:26:26+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "YouTube",
+        "postId": "DkTMOJOpTKw"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/12/DkTMOJOpTKw/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/12/DkTMOJOpTKw/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/watch?v=DkTMOJOpTKw",
+      "summary": "- [00:00.600] This morning, I'm thrilled to sign - [00:01.964] [music] the Secure America Act to - [00:03.560] immediately and fully fund - [00:05.840] the Department of Homeland Security - [00:07.520] through the end of my term to ensure - [00:09.960] these critical law enforcem",
+      "title": "President Donald J. Trump Signs the Secure America Act"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-12",
