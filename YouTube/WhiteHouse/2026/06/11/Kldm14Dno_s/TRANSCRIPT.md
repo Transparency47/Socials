@@ -1,0 +1,1405 @@
+<!-- source: https://www.youtube.com/watch?v=Kldm14Dno_s -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Kldm14Dno_s -->
+<!-- date_published: 2026-06-11T20:23:58+00:00 -->
+<!-- date_accessed: 2026-06-12T09:13:03.824206+00:00 -->
+
+# Transcript: President Trump Signs a Proclamation, Jun. 11, 2026
+
+- [00:04.319] just had a big day. I know you'll never
+- [00:06.960] be satisfied, but that's okay. That
+- [00:09.360] doesn't bother me at all. We just made a
+- [00:12.000] great settlement of
+- [00:14.559] the war with Iran, and we're going to be
+- [00:17.760] uh subject to finalization of documents,
+- [00:20.800] which should get done over the next few
+- [00:22.800] days. Probably have a signing maybe in
+- [00:25.760] Europe. And uh it's a great thing. Stock
+- [00:29.920] market's up a,000 points. That means
+- [00:32.399] they like the deal. See, that means they
+- [00:34.160] if the market goes down, that means they
+- [00:35.680] don't like the deal. But it's been up.
+- [00:38.000] Oil's dropped. Oil will start coming
+- [00:39.920] down to I think even lower than it was
+- [00:42.399] before. We had I said I was in Iowa. It
+- [00:46.399] was
+- [00:48.000] $185
+- [00:49.600] a gallon. And I don't know if I'm going
+- [00:51.920] to get there, but we're going to get
+- [00:52.960] pretty close. It's going to come down.
+- [00:54.239] And when oil comes down, everything else
+- [00:56.079] comes down. And most importantly, we
+- [00:58.559] have a deal that Iran will never have a
+- [01:00.480] nuclear weapon, which was the whole
+- [01:02.800] purpose of what we had to go through to
+- [01:04.799] get this. So, it's a big very big thing.
+- [01:07.520] But uh
+- [01:09.680] we have a signing soon and uh the
+- [01:14.560] documents are in pretty final shape. So,
+- [01:17.759] we'll see. We'll see. Very good. Should
+- [01:20.720] be done and should be done pretty
+- [01:22.799] quickly. They want it every bit as much
+- [01:25.680] as everybody else wants it. And I think
+- [01:27.759] a lot of good relationships
+- [01:29.920] can ensue from this. I just spoke with
+- [01:32.479] the leaders of many of the countries
+- [01:34.640] that were mentioned in the release. I
+- [01:37.360] just spoke to BB. I spoke to the head of
+- [01:40.240] great heads of nations, Qatar, UAE,
+- [01:45.360] Saudi Arabia, Bahrain, Kuwait, and
+- [01:48.479] others. And uh we're going to be talking
+- [01:51.920] to Turkey.
+- [01:54.079] President Erdogan was great and uh it's
+- [01:57.520] really a wonderful thing with a lot of
+- [01:59.520] spirit. Pakistan was fantastic. The uh
+- [02:04.000] prime minister and the uh I call him the
+- [02:07.759] general. He's a general. He's a great
+- [02:10.239] great general. He's so great that they
+- [02:12.080] that he's actually a field marshal step
+- [02:14.239] above.
+- [02:16.000] And they're all very happy. The whole
+- [02:17.760] Middle East is happy. long beyond the
+- [02:19.599] Middle East. The straight will open as
+- [02:21.200] soon as we have it side.
+- [02:23.680] We've been taking out many ships that
+- [02:25.280] nobody knew. Even the fake news didn't
+- [02:27.520] know it. But over the last month, we've
+- [02:30.640] been uh taking out ships, big ships
+- [02:34.640] quietly at night. You guys didn't know
+- [02:36.319] that. Pretty cool, right? As a captain,
+- [02:38.800] he knows about more more about ships
+- [02:40.720] than I do, but that's pretty cool. They
+- [02:42.239] turned off the lights. We bombed their
+- [02:44.800] radar and everything so they couldn't
+- [02:46.400] see what was going on. We took out uh
+- [02:50.560] some nights 25 ships, some nights 15.
+- [02:54.080] Last four or five nights we did 25, 22,
+- [02:58.319] 21, 26,
+- [03:00.720] 18, and 14. Who else would remember
+- [03:04.879] those numbers? Nobody.
+- [03:08.000] And uh but a lot of ships, a lot of oil
+- [03:10.400] is out. That's why oil even before this
+- [03:13.360] u the market couldn't understand why it
+- [03:16.319] was so free. There was more oil than
+- [03:20.080] they thought what they're trying to we
+- [03:21.840] took them out at night
+- [03:24.080] and uh that was the straight will
+- [03:26.239] officially open as soon as we sign which
+- [03:28.959] could be soon very soon maybe over the
+- [03:31.200] weekend in Europe.
+- [03:34.080] I won't be able to be there, but uh JD
+- [03:37.680] will be there, vice president, and some
+- [03:39.599] of the people.
+- [03:41.440] Steve Woodco did a great job. Jared, so
+- [03:45.200] we'll take some questions, but right now
+- [03:46.799] we're here to talk about fishermanmen
+- [03:49.120] and fisher women. Okay, we have uh
+- [03:53.040] they're great people. And I guess I'm a
+- [03:55.519] little prejudice because they all voted
+- [03:56.879] for me. Would you say I got a 100% or
+- [03:58.879] just
+- [03:59.360] >> 110%.
+- [04:01.680] >> If I didn't, it would have a surprise.
+- [04:03.680] would have a big surprise.
+- [04:06.159] >> So, it's my honor to be taking this
+- [04:10.159] action to lower seafood costs and
+- [04:12.319] generate millions and millions of
+- [04:13.920] dollars in new business for our great
+- [04:16.959] really great fishermanmen, great people
+- [04:19.759] by restoring commercial access to three
+- [04:22.720] areas of the western Pacific Ocean. It's
+- [04:26.160] a large amount of space we're talking
+- [04:28.880] about that they were restricted. Other
+- [04:31.840] countries would use it, but our country
+- [04:33.600] couldn't use the Jimmy or anything so
+- [04:35.360] stupid. I want to thank Secretary of
+- [04:38.160] Commerce Howard Lutnik, Secretary of the
+- [04:40.560] Interior Doug Bergam, Alaska Governor
+- [04:43.520] Mike Dunley, and Congresswoman Kimberly
+- [04:46.400] King Hines for joining us today. We
+- [04:49.360] appreciate it all very much. Thank you
+- [04:51.120] very much. Thanks as well to Captain Sig
+- [04:54.320] Hansen, a superstar. He's a him and Tom
+- [04:56.720] Cruz are the two biggest people in
+- [04:58.320] entertainment.
+- [05:00.080] Thank you very much. Great, great job.
+- [05:03.440] And Pacific Seafood CEO Frank Dulich and
+- [05:07.680] his sons Dominic and Charles and many
+- [05:09.919] more dedicated fishermen and seafood
+- [05:12.560] industry leaders. We have some great
+- [05:14.880] leaders here
+- [05:16.880] and uh your product is amazing. It's
+- [05:19.600] been going along for a long time, right?
+- [05:21.840] seafood. It's amazing under and doing
+- [05:24.720] great. Under the Obama Biden
+- [05:27.919] administration's radical
+- [05:29.199] environmentalists, drastically
+- [05:30.720] restricted access for fishermanmen and
+- [05:33.199] coastal communities and hundreds of
+- [05:35.600] thousands of square miles of ocean was
+- [05:38.320] cut off for them. They can't fish. Other
+- [05:41.280] people could fish. They couldn't. These
+- [05:43.600] people weren't allowed to fish. Can you
+- [05:45.840] imagine that? Did you ever think that
+- [05:47.600] was going to happen as you grew up?
+- [05:49.600] probably as the sons of sons and
+- [05:52.479] daughters of fishermen, right? That
+- [05:54.960] someday they were going to take away the
+- [05:56.479] right for you to go fishing in the
+- [05:57.919] Pacific Ocean. What a bunch of dopes.
+- [06:01.840] Those decisions closed off vast
+- [06:03.680] resources and really the richest fishing
+- [06:07.440] grounds they say anywhere in the world
+- [06:10.160] destroyed livelihoods and made the
+- [06:11.840] United States more dependent on foreign
+- [06:14.240] products. And I did a similar thing for
+- [06:17.120] Maine. Maine is very much in the subject
+- [06:19.919] because I have a pig running for for
+- [06:22.639] Senate. He's a pig. It's not a senator.
+- [06:25.919] He's a joke. He's a con man. But uh so
+- [06:29.600] it's in the and you know I won half of
+- [06:32.000] Maine. I won the They have two. I won
+- [06:35.039] the one by a lot. Fishermen actually
+- [06:37.840] come to think of it. Fisherman and the
+- [06:40.160] lumberjacks.
+- [06:41.759] People that go out there and work. I won
+- [06:43.360] them. So I love Maine. But uh it's
+- [06:48.240] amazing. They had a five I think it was
+- [06:50.560] 500 mile by 500 massive amount of the
+- [06:54.160] Atlantic Ocean. You weren't allowed to
+- [06:56.319] fish, but Canada was. Japan was. They
+- [06:59.120] all came and fished, but our people
+- [07:00.479] weren't allowed to fish there. That was
+- [07:02.800] put in by Barack Hussein Obama. Have you
+- [07:04.800] heard of them? Barack Hussein Obama and
+- [07:07.199] Sleepy Joe Biden.
+- [07:09.440] And uh it's a shame. I mean, a shame.
+- [07:12.880] But I did it a little while ago and
+- [07:14.960] opened it up to them twice. I've done it
+- [07:16.800] now. Peter, right?
+- [07:17.759] >> Sir,
+- [07:18.160] >> Peter Navar, the great Peter Navaro.
+- [07:20.880] >> And uh I did it twice. I did it and then
+- [07:25.360] they had a rigged election and I wasn't
+- [07:27.759] here. Totally rigged election just like
+- [07:30.080] what was happening in California. You
+- [07:31.680] see what they got the kid out and then
+- [07:34.319] they were doing the same thing to Steve
+- [07:35.840] Hilton. Then I started I started
+- [07:37.599] bringing it. They said, "Look," they
+- [07:40.319] said, "It's going to take two more
+- [07:42.080] weeks." It was a week and he was heading
+- [07:45.039] south. And I started saying, "It's a
+- [07:47.120] rigged election."
+- [07:49.039] And then they said it was going to take
+- [07:50.800] two weeks, one week, two weeks. And all
+- [07:53.120] of a sudden, he was approved. You know
+- [07:54.400] why? Cuz the heat was on. He couldn't
+- [07:56.560] get away with it. If I didn't do it, I
+- [07:58.479] guarantee he wouldn't he wouldn't be the
+- [08:00.319] nominee. It's a rigged election. our
+- [08:03.039] country and we have to get by the way
+- [08:05.039] the Save America Act
+- [08:07.919] has to get passed by the Senate. House
+- [08:10.720] has passed it three times.
+- [08:13.599] But with today's action, we're
+- [08:15.440] officially reopening nearly half a
+- [08:17.280] million square miles while of water
+- [08:20.240] around northwestern Hawaiian Islands,
+- [08:23.440] the Northern Marana Islands, and America
+- [08:28.080] American Samoa.
+- [08:30.400] I mean, we'll ask you in a second, but
+- [08:32.719] why the hell did they close it? Why is
+- [08:34.959] there not enough fish here? What's going
+- [08:37.039] on? They closed it, Peter. Do you have
+- [08:39.360] any reasons why they closed it?
+- [08:41.279] >> Obama Barack Hussein Obama environmental
+- [08:45.360] activists tried to shut it down. But
+- [08:47.680] you're right, sir. It's crazy. They let
+- [08:49.200] all
+- [08:49.440] >> ruined the big industry.
+- [08:50.720] >> The foreign boats come in. It's crazy
+- [08:53.440] >> and they leave they leave our captains
+- [08:55.360] out. It's crazy. It's bad bad for uh
+- [08:58.480] fish prices too,
+- [08:59.519] >> but we're making up for it, right?
+- [09:00.959] >> Yes, sir.
+- [09:02.160] >> And this will support millions of
+- [09:03.600] dollars in annual harvest of big big it
+- [09:06.399] tuna, swordfish, reef fish, and many
+- [09:09.839] other types of fish. It will protect
+- [09:12.399] small local fisheries and coastal
+- [09:14.720] communities that depend on their
+- [09:17.120] livelihoods. I mean, they are very
+- [09:18.720] dependent on this. And uh they will
+- [09:21.839] increase domestic seafood production to
+- [09:24.160] help lower costs for American
+- [09:25.839] communities. And you're talking about
+- [09:27.839] millions, tens of millions of dollars of
+- [09:30.560] of income
+- [09:32.880] and we have so much these areas. I mean,
+- [09:36.000] they just like say, "Oh, let's just
+- [09:37.440] close them." The amazing thing is that
+- [09:39.920] other countries there's no restriction.
+- [09:41.440] You know, you can go and do whatever you
+- [09:42.880] want. It's just crazy. America's
+- [09:45.519] fishermen have never had a better ally
+- [09:48.240] in the White House than Donald Trump.
+- [09:49.680] That I will say I shouldn't say that
+- [09:51.040] because I don't want to brag but
+- [09:53.040] >> based on the vote of getting almost
+- [09:54.640] every vote ever.
+- [09:56.080] >> True
+- [09:56.720] >> for but you have never had again in
+- [09:59.760] Maine. I opened it up. You know who was
+- [10:02.399] fishing there? Canada. Canada. Japan.
+- [10:07.040] Who's fishing there? Maine lobster. You
+- [10:10.240] couldn't get a main lobster. You had to
+- [10:11.680] go to Japan to get a main lobster. You
+- [10:13.440] believe? You had to go to Canada to get
+- [10:15.920] a main lobster. They were fishing there.
+- [10:18.480] Not only that, you had to go a day and a
+- [10:21.200] half in a boat and they had you at three
+- [10:24.240] knots. That means like essentially a
+- [10:27.279] little bit different than 3 m an hour,
+- [10:29.200] but it means slow. Three knots until you
+- [10:33.519] got outside of this 500 mile area
+- [10:35.680] because they didn't want you to disturb
+- [10:38.560] the fish that you weren't allowed to
+- [10:39.920] fish for. But think of it, these people
+- [10:42.880] are crazy.
+- [10:44.800] And the new thing they had was you had
+- [10:46.240] to have an electric boat. Even though
+- [10:48.720] they didn't work and even though once
+- [10:50.640] you got out there you had a problem
+- [10:52.640] because you couldn't get back because
+- [10:54.880] they didn't charge long enough. These
+- [10:56.640] are problems that were uh mentioned to
+- [10:59.440] them and they said we don't care you
+- [11:01.120] have to have an electric boat. And the
+- [11:03.519] other problem was the electric battery
+- [11:05.519] is much heavier as you know.
+- [11:07.440] >> So the boat has a tendency to sink.
+- [11:10.640] And uh they were forced, you know, by
+- [11:12.720] 2030 or so, you were forced to have an
+- [11:15.200] electric boat. I don't think you were
+- [11:16.560] too happy with that, right?
+- [11:18.160] >> Not at all.
+- [11:19.120] >> Anyway, but we'll this is going to
+- [11:21.279] support millions and millions of people.
+- [11:24.000] America's fishermen have just uh they're
+- [11:27.920] special people and it's fishermen and
+- [11:30.480] fisher women. So tell me, how do they
+- [11:32.399] define that? Because in most industries
+- [11:34.880] like you have policemen, police women,
+- [11:36.959] do you call them fishermen and fisher
+- [11:38.720] women? I haven't heard of that one
+- [11:39.920] before. They put it are we how are the
+- [11:42.480] women do they want to be designated as
+- [11:44.560] fisher women?
+- [11:46.000] >> Does anybody want to answer that
+- [11:47.440] question?
+- [11:47.839] >> Don't take fish.
+- [11:48.880] >> Yes.
+- [11:50.399] >> Fishermen, fisher women.
+- [11:53.920] >> If you want to be politically correct,
+- [11:55.760] sometimes they use the term fisher but
+- [11:59.360] >> fisher.
+- [12:00.079] >> Yeah. I like fisherman or fisher woman
+- [12:02.399] myself.
+- [12:03.600] >> How about fisher people?
+- [12:07.680] So
+- [12:08.639] >> these people are crazy.
+- [12:10.639] >> So President Trump, I Googled that
+- [12:12.240] because I was at the same dilemma you
+- [12:13.680] did trying to figure out be politically
+- [12:15.680] correct.
+- [12:16.000] >> And what is the answer?
+- [12:16.959] >> So the Google answer said that most
+- [12:18.560] women attribute to fisher men because
+- [12:20.399] they feel like they're strong
+- [12:21.519] individuals and they can do the work of
+- [12:23.040] a man.
+- [12:23.600] >> Well, be careful. That might be the end
+- [12:25.440] of your career.
+- [12:28.240] >> My administration's already rolled back
+- [12:30.480] burdensome regulations to increase gear
+- [12:33.760] flexibility. You know what that means,
+- [12:35.279] right? Do you know what that means? I
+- [12:36.880] heard they made you buy gear that you
+- [12:38.320] didn't want.
+- [12:38.880] >> Yeah.
+- [12:40.160] >> And that didn't work. Other than that,
+- [12:41.600] it was quite good. Expedite. I guarantee
+- [12:44.720] the guy made contributions to by whoever
+- [12:47.200] owns the company that made the bad gear.
+- [12:50.079] Expedite fishing start dates and
+- [12:52.959] significantly raise catch limits based
+- [12:55.680] on the best available science. You know
+- [12:58.000] about that? That's unbelievable. We
+- [13:00.399] expanded access to key fishing grounds
+- [13:02.480] in the Atlantic and the Pacific oceans.
+- [13:04.880] including vast areas off the coast of
+- [13:07.440] New England. I mentioned 500 miles by
+- [13:10.000] 500 miles. That's a lot. That's a lot of
+- [13:13.040] fish. That's a lot of lobster that was
+- [13:14.880] being sold by Japan. I will tell you,
+- [13:17.760] foreign countries are very happy because
+- [13:19.600] they ended up taking over the main
+- [13:21.760] lobster business. Main lobster business
+- [13:23.680] live from Japan, right?
+- [13:25.279] >> But we gave it back to them. These
+- [13:27.680] actions have unlocked billions of
+- [13:29.200] dollars in economic value and protected
+- [13:31.279] thousands and thousands of jobs from
+- [13:34.240] great people that voted for Trump.
+- [13:37.760] They voted for me because of common
+- [13:39.440] sense. That's all it is. Because
+- [13:42.720] anybody can see this stuff is crazy.
+- [13:45.440] This is one industry, but other
+- [13:46.880] industries likewise.
+- [13:49.040] And right now we have $18 trillion
+- [13:51.040] dollars being invested in our country.
+- [13:54.000] And under the last administration was
+- [13:56.079] less than one and 18 this is 18 trillion
+- [13:59.600] by the way in less than a year. It was
+- [14:02.000] four years less than one. Right Howard?
+- [14:04.959] >> That's correct.
+- [14:05.760] >> By restoring fishing access to these
+- [14:07.920] waters in the Western Pacific. We're
+- [14:10.160] reclaiming our maritime heritage,
+- [14:11.920] empowering American fishermen, and
+- [14:14.160] putting American consumers first with
+- [14:16.720] lower prices. You're going to have more
+- [14:18.320] fish, lower prices. So now let's hear
+- [14:21.440] from first Secretary Lenik and then
+- [14:24.079] Secretary Bergam followed by Governor
+- [14:26.639] Dunlevy and Frank Dulstitch and Captain
+- [14:30.880] Sig Hansen and then we'll take some
+- [14:33.600] questions and maybe you want to hear a
+- [14:35.040] little bit about some other subjects but
+- [14:36.880] to me it's really important. I'm going
+- [14:38.880] to sign this now so that we get it done.
+- [14:43.920] No auto pen. I don't want an auto pen.
+- [14:48.959] Can you believe 94% signed by an auto?
+- [14:52.240] Can you believe it? I think it's higher
+- [14:54.240] than 94%.
+- [14:56.240] The only one that was definitely signed
+- [14:58.160] by him that we know of. You know what it
+- [14:59.760] was? It was his son. It was son. His
+- [15:02.639] son. That was the only one. You could
+- [15:04.240] tell. You know why? Cuz his signature
+- [15:06.000] was horrible.
+- [15:09.600] She was a real beauty of that one. Okay.
+- [15:24.560] Do we want to do some questions?
+- [15:28.639] >> Mr. President,
+- [15:29.279] >> do we like to speak? Yeah. Go ahead.
+- [15:31.199] >> So this action 500,000
+- [15:35.680] square miles were closed to American
+- [15:38.399] fishermen. You couldn't go and fish.
+- [15:41.839] 500,000
+- [15:43.360] square miles. I mean, just think of how
+- [15:45.920] big that is. And if you had an American
+- [15:48.399] flag, you weren't allowed there. But of
+- [15:51.279] course, everybody else went. So, they
+- [15:52.880] went in our waters. These are our
+- [15:54.800] waters, right? And so, what did that
+- [15:56.959] result in? That resulted in us instead
+- [15:59.440] of having seafood exports because we
+- [16:02.480] have great fishing opportunity, we were
+- [16:05.519] an importer. We became an importer of
+- [16:08.480] seafood. How crazy is that? So, the
+- [16:11.120] president is finally changing that. This
+- [16:13.680] is a massive win for our fishermen, a
+- [16:15.839] massive win for our waterfront
+- [16:18.000] communities who process it. All these
+- [16:19.839] processors and in the end we are going
+- [16:22.639] to eat fish caught by us. What a shock.
+- [16:27.199] Eating fish caught by us in our waters.
+- [16:30.959] So this is just common sense smart. We
+- [16:34.880] already have the best conservation rules
+- [16:37.759] in the world and this was one on top of
+- [16:40.240] another on top of another. So, thank God
+- [16:43.120] from the fisherman's perspective, and I
+- [16:44.800] get these calls all the time, that
+- [16:46.399] President Donald Trump is in this office
+- [16:48.160] cuz he's finally letting our great
+- [16:50.800] fishermen and fisher women
+- [16:53.040] >> get out there and catch fish and stop
+- [16:55.440] importing fish. Let's eat fish caught by
+- [16:58.399] Americans.
+- [16:59.839] >> Thank you.
+- [17:03.680] So echo echoing that uh with President
+- [17:06.000] Trump's leadership, this is another
+- [17:07.600] promise made, promise kept by President
+- [17:09.919] Trump that he was going to roll back
+- [17:11.439] these job killing, community killing,
+- [17:13.760] industry killing jobs. Uh he's done that
+- [17:16.319] last year with executive orders, doing
+- [17:17.839] it today with his proclamation. So I
+- [17:19.600] want to say thank you to President
+- [17:20.720] Trump. I want to say thank you to my
+- [17:22.959] great friend, Secretary Lutnik in
+- [17:25.039] Commerce. We have dual responsibilities
+- [17:27.280] across commerce and interior related to
+- [17:30.160] fish. Uh and of course with our partners
+- [17:33.200] in the Pacific uh because American
+- [17:35.600] Samoa, Guam, uh the Commonwealth of
+- [17:38.480] Northern Marianas Islands, we've got the
+- [17:40.320] congresswoman here from northern Mariana
+- [17:42.799] Islands. These are all American
+- [17:44.320] citizens. The as Howard said, this is US
+- [17:46.799] territorial waters and they were closed
+- [17:49.520] to us and open to others. And that makes
+- [17:52.320] no sense. Uh we've reversed that around.
+- [17:55.039] And so again, as you see around us, the
+- [17:57.440] jobs that are created in this industry
+- [17:58.720] are often second, third, fourth, and
+- [18:00.799] fifth fifth generation family
+- [18:02.880] businesses. And you, these folks not
+- [18:05.600] only risk their lives, they risk their
+- [18:08.000] own personal capital to help feed
+- [18:09.760] America. They're the farmers of the sea.
+- [18:11.760] Just like President Trump's behind our
+- [18:13.520] farmers and ranchers, he's behind our
+- [18:15.360] fishermen. Uh he's making sure that
+- [18:17.600] America is great. This brings back
+- [18:19.280] healthy food for our schools, our
+- [18:21.679] military, all the things that we're
+- [18:23.600] working on with Secretary Kennedy and
+- [18:25.360] with Pete Hixith. So, this is a
+- [18:27.600] winwinwin across the board. Again, thank
+- [18:29.760] you, President Trump. Thank you, Howard.
+- [18:31.600] Uh, great great day for America.
+- [18:34.160] >> Thank you,
+- [18:36.880] Mr. President. This is another example
+- [18:38.799] of America first. To be honest with you,
+- [18:41.280] um, Alaska provides 60% of the country
+- [18:44.400] seafood. We are the we're the state with
+- [18:46.559] halibit, salmon, uh king crab, you name
+- [18:49.760] it, comes from Alaska. Alaska is one uh
+- [18:52.000] fishing in Alaska is one of the oldest
+- [18:53.360] industries in that entire state. Employs
+- [18:55.200] thousands of individuals. Everyone has
+- [18:56.880] had fish from Alaska. We know that. But
+- [18:58.880] this is an example again putting
+- [19:00.160] America's first, America first, workers
+- [19:02.080] first, and really this country first.
+- [19:04.480] And so, uh on behalf of Alaska, on
+- [19:06.559] behalf of all fishermen and women, I
+- [19:08.720] want to thank you for what you're doing
+- [19:09.840] for this country, for the state of
+- [19:10.880] Alaska as well. Governor, was this shut
+- [19:12.799] down? Uh, I mean, it's just so hard to
+- [19:15.039] believe. So, this was trauma for your
+- [19:17.760] industry, which is a big industry.
+- [19:19.679] >> Well, your deregulation is what really
+- [19:21.280] helps Alaska. It helps the fishermen. We
+- [19:23.200] the country doesn't need more
+- [19:24.320] regulation. We need less regulation, and
+- [19:26.400] that includes for this industry as well.
+- [19:27.919] And so, from that perspective, and it's
+- [19:30.080] across the board. We we could talk about
+- [19:31.440] oil and gas and so forth, but this is
+- [19:32.799] about fish. But your deregulation
+- [19:34.320] approach is really what we need. We
+- [19:36.320] don't need more costs and as you said,
+- [19:38.000] we probably don't need electric boats
+- [19:39.440] either. Um, we need to focus on getting
+- [19:42.160] seafood to Americans, putting people to
+- [19:44.799] work, and this is exactly what this
+- [19:46.320] does. So, I just want to thank you.
+- [19:47.440] >> Thanks, guys. Thanks. Good job,
+- [19:49.600] >> Mr. President.
+- [19:50.160] >> Mr. President, we got to hear from a
+- [19:52.000] couple fish.
+- [19:52.559] >> Mr. President, please,
+- [19:54.160] >> we're I'm third generation. These two
+- [19:56.080] are some of our kids as a full of four.
+- [19:58.559] Pacific Seafood immigrated, my
+- [20:00.559] grandfather immigrated into this country
+- [20:02.799] and started his first fish market in
+- [20:04.320] 1941.
+- [20:05.840] From there, we now are one of the
+- [20:07.440] largest family vertically integrated
+- [20:09.280] seafood companies in North America. It
+- [20:11.679] was American dream and I'm honored to
+- [20:14.000] >> Where are you from?
+- [20:14.799] >> Portland, Oregon and now Arizona.
+- [20:16.799] >> Liberal.
+- [20:19.280] >> I'm just not a liberal.
+- [20:21.120] >> Trust me.
+- [20:22.000] >> Probably more people than you think as
+- [20:24.799] Republicans, conservatives.
+- [20:26.480] >> If we could count the votes.
+- [20:28.240] count the bus properly.
+- [20:31.360] >> But where we are is this the act the
+- [20:34.240] proclamation today and the executive
+- [20:36.320] over the last year in prior to this is
+- [20:39.039] really going to help us. We have 3,000
+- [20:41.840] families that uh work with us and 715
+- [20:45.600] fishing families lower 48 in or
+- [20:48.640] Washington and Alaska that depend on
+- [20:52.320] what we catch, what we process and what
+- [20:54.559] we grow and sell is the healthiest
+- [20:57.039] protein on the planet. And you're giving
+- [20:59.280] us access to these family wage jobs in
+- [21:01.600] these coastal communities where we're
+- [21:03.200] usually the number one or number two
+- [21:05.120] employer in those cities and counties
+- [21:07.200] and uh coastal community. And so I just
+- [21:10.080] wanted to say thank you on behalf of
+- [21:11.440] that 3,000 employees and 715 fishermen.
+- [21:15.200] Thank you, Mr. President, secretaries.
+- [21:17.039] Thank you and everybody that supports
+- [21:18.720] this industry.
+- [21:19.600] >> So did you ever see this happening when
+- [21:21.760] uh they destroyed your whole life and
+- [21:24.080] your family and your business,
+- [21:25.280] everything else? Did you ever think that
+- [21:27.200] somebody would come along and save?
+- [21:29.919] >> Let me just be really clear. There's
+- [21:31.200] never been a president
+- [21:33.280] to do this.
+- [21:34.960] Thank you very much.
+- [21:37.039] >> That's very nice of you.
+- [21:42.640] >> I just want to say, Mr. President, that
+- [21:44.799] uh you know, my father always said,
+- [21:46.720] "Always give credit where credit is
+- [21:48.400] due." And I'm here representing the
+- [21:50.559] working man, the fisherman. I am one
+- [21:52.640] myself, as you know. And uh you know, I
+- [21:56.400] spent a couple of months with you on the
+- [21:58.080] apprentice, and I saw your work ethic
+- [22:00.640] there. And uh I got to tell you, you
+- [22:04.159] know, I I understand that I can't fathom
+- [22:06.960] how you can do all this and how you can
+- [22:10.640] get the time to do what you do and
+- [22:14.240] representing us and helping the
+- [22:15.760] fishermanmen the way you've done it.
+- [22:17.440] It's just it's mindboggling to me
+- [22:20.320] because I know you got your hands full,
+- [22:22.480] but putting us on that pedestal and
+- [22:24.559] backing up our industry the way you have
+- [22:26.880] it, it's just phenomenal. And uh I got
+- [22:30.240] to say I've been fishing since I was 12
+- [22:32.159] years old. I I've never been fired in my
+- [22:34.960] life until I spent a couple of months
+- [22:36.559] with this man than
+- [22:38.960] it was very humbling to say the least.
+- [22:40.640] >> You did a great job.
+- [22:41.360] >> I tell you what, you know, when I think
+- [22:43.039] about it, I was a better captain after
+- [22:45.600] that because I was very nice to my crew.
+- [22:47.840] I was very humbled when I was fired. And
+- [22:51.039] uh anyway, uh I just want to say as for
+- [22:54.480] you, this is a crew members cap. You can
+- [22:56.640] take that. and uh you're one of us now.
+- [22:59.200] Thank you.
+- [22:59.919] >> Thank you very much.
+- [23:02.000] >> Thank you. You've done more. You've done
+- [23:03.760] more for this nation in the fishing
+- [23:05.600] space. We're farmers of the sea. We
+- [23:07.679] produce this great healthy protein. I'm
+- [23:09.600] from North Carolina, but we support you
+- [23:12.000] 100%. You have done more for this nation
+- [23:14.640] in the seafood space than any president
+- [23:16.559] before you in my lifetime. Thank you.
+- [23:22.720] >> Yeah. Um I'm Eric from Hawaii. Um the
+- [23:25.600] United States fishies are the best
+- [23:26.880] managed in the world and this action is
+- [23:29.760] really about balancing you know the
+- [23:31.360] interests in US exclusive economic zone.
+- [23:33.919] You can have both ocean protection under
+- [23:35.919] our laws as well as sustainable fishing
+- [23:38.559] and that's what this is about. And I
+- [23:40.400] think Mr. President, you are the only
+- [23:42.320] president has really stepped up in terms
+- [23:44.720] of supporting fishermen like you're
+- [23:46.240] doing. No other president we've seen
+- [23:48.320] through the administration that's that's
+- [23:50.159] helping us. Um, and there's a lot more
+- [23:52.480] work to do because there's a tremendous
+- [23:53.919] seafood deficit in trade. Imports are
+- [23:57.039] undercutting us left and right. Um, but
+- [23:59.840] seafood is healthy.
+- [24:00.640] >> They're taking it right out of your
+- [24:01.840] water.
+- [24:02.159] >> Yeah. And seafood is a healthy from your
+- [24:04.640] water and selling it in to the United
+- [24:06.559] States. That's right. The whole thing is
+- [24:08.880] just crazy.
+- [24:09.760] >> So, really appreciate it.
+- [24:10.720] >> Thank you very much. I appreciate it.
+- [24:12.159] Yeah. Please.
+- [24:13.200] >> First of all, thank you, Mr. President,
+- [24:14.960] to you and your family for the sacrifice
+- [24:16.880] and the commitment to the country.
+- [24:18.400] >> Thank you. Um, I'm in the sea scolop
+- [24:21.279] business. I don't know who likes sea
+- [24:23.200] scolops, but
+- [24:25.360] New Bedford, Massachusetts is is a port
+- [24:27.919] that uh is recognized as the highest
+- [24:30.559] grossing revenue port in the United
+- [24:32.960] States. Um, I don't know who knows where
+- [24:35.760] New Bedford is, but Sea Scols, there's
+- [24:37.760] roughly 300 vessels or 300 full-time
+- [24:41.279] vessels. They range from 85 feet to 100
+- [24:44.240] feet. Six flight came from New Bedford.
+- [24:47.279] Um, and you talked earlier about some
+- [24:50.640] examples of stupidity or whatever. We
+- [24:53.120] have vessels that can cost anywhere
+- [24:55.360] between $3 to $5 million and those
+- [24:57.760] vessels only work for 35 days a year.
+- [25:01.679] They sit at the rest of the time at the
+- [25:03.600] dock. So, we need certain things that
+- [25:06.320] could help us. And I know that this
+- [25:08.000] because of your executive order and and
+- [25:10.880] it it's it's a gamecher. That order is a
+- [25:13.279] game changer for us. And one more
+- [25:15.279] example, there's an area that, you know,
+- [25:17.360] like Frank mentioned on the Pacific
+- [25:19.840] side, but there's an area off Georgia's
+- [25:21.600] Bank that's 248 square miles.
+- [25:25.440] >> 248 square uh square miles
+- [25:27.760] >> been restricted also
+- [25:29.120] >> restricted. It's the largest.
+- [25:30.559] >> Is it now restricted?
+- [25:31.760] >> It's it's restrict. It's been closed
+- [25:33.520] since 1995.
+- [25:35.440] And here we are ex 29 years later. We
+- [25:38.880] can't even get it. It's the It's the
+- [25:40.559] best sculpt ground. Take a look at it. I
+- [25:44.080] just spoke with a gentleman before him.
+- [25:45.520] We're going to fix this. We'll
+- [25:46.080] >> take a look at it.
+- [25:47.600] >> It's all nonsense.
+- [25:49.520] >> You talked about stupidity. How crazy is
+- [25:51.760] that? We haven't been able to get in
+- [25:53.520] there for 30 years and it's been
+- [25:55.279] environmentalist.
+- [25:56.159] >> Do other people get in?
+- [25:57.919] >> There's lobster guys in there. There's
+- [25:59.679] there's Yeah. And they cut it. Well,
+- [26:02.159] mostly the United States. But it's it's
+- [26:04.960] it's the best scald ground that we have
+- [26:06.799] in the United States.
+- [26:08.000] >> How do they get in if it's if it's
+- [26:09.679] restricted?
+- [26:10.320] >> Well, they can get in. We can't. They
+- [26:11.919] won't allow skull fishing in there.
+- [26:13.760] >> Oh, I see.
+- [26:14.480] >> So, it's prohibited from us.
+- [26:16.240] >> Crazy.
+- [26:16.720] >> But there's I mean, just think of a boat
+- [26:18.400] a boat that we have that sits and we've
+- [26:20.640] asked we we're working and I just
+- [26:22.640] explained it to Secretary Lutnik about
+- [26:24.960] we're right now pretty close to where we
+- [26:27.360] could easily take a permit and put
+- [26:29.120] another permit on it, but why should we
+- [26:30.640] let these boats sit at the dock for 330
+- [26:33.039] days?
+- [26:33.520] >> Yeah,
+- [26:34.080] >> it's crazy. So,
+- [26:35.279] >> we'll look at that.
+- [26:36.000] >> Thank you so much and we appreciate it.
+- [26:37.760] >> Thank you. So, I'm a federal adviser on
+- [26:39.919] the Sea Scot Plan, President Trump, and
+- [26:43.200] uh spent a lot of time helping advise uh
+- [26:45.919] the council how to manage that fishery.
+- [26:48.400] It's the best managed fishery in the
+- [26:49.840] world, bar none, of any fishery we have.
+- [26:52.480] Uh but it's ludicrous to allow those
+- [26:54.960] scallops, they live about 8 to 10 years,
+- [26:58.240] and we've already gone through three
+- [26:59.760] different cycles of those scallops
+- [27:01.440] maturing and dying that we're not
+- [27:02.960] harvesting.
+- [27:04.080] >> There's a way for us to do that. and uh
+- [27:06.480] your your director.
+- [27:07.919] >> It's a positive as opposed to a
+- [27:09.360] negative.
+- [27:10.240] >> It needs to be
+- [27:11.039] >> and they die. They just die. They just
+- [27:12.559] die.
+- [27:14.480] >> So a scallop will die of old age,
+- [27:18.080] but it needs
+- [27:18.799] >> How do they taste when they're dead? And
+- [27:20.559] >> not very good. Not very good.
+- [27:22.720] >> Not good.
+- [27:23.360] >> Not good.
+- [27:24.000] >> And you talked about the maha. I mean,
+- [27:26.480] it's one of the Frank said his fish, the
+- [27:28.880] scolops are one of the best proteins.
+- [27:30.799] >> Yeah. There you go.
+- [27:32.640] >> Wrestle. They can come to UFC. like
+- [27:35.200] that.
+- [27:36.880] >> Anybody else? Are you guys okay?
+- [27:38.400] >> Sure.
+- [27:38.799] >> The other thing too, price of crab has
+- [27:40.720] tripled for us. So
+- [27:42.320] >> we're not getting that competition from
+- [27:43.840] other countries which is from
+- [27:46.320] >> Explain that. Go ahead.
+- [27:47.919] >> Russian product for example. So tariffs
+- [27:51.200] and our price just skyrocketed and it
+- [27:54.559] sells, people buy it. It's all US. you
+- [27:58.480] want to have product coming in from.
+- [27:59.840] >> So I in other words I you know at the
+- [28:01.760] dock we received triple the amount of
+- [28:04.080] what we've seen in the past.
+- [28:05.600] >> So the demand is there and people buy
+- [28:08.399] it.
+- [28:09.279] >> So Trump we have a fisherwoman that
+- [28:11.039] would like to
+- [28:11.840] >> Yeah. Sure.
+- [28:12.720] >> Hi Mr. President. My husband Sterling
+- [28:14.960] here.
+- [28:15.520] >> How are you?
+- [28:16.799] >> I'm doing well.
+- [28:18.559] >> Um he's an Alaska buried sea crab
+- [28:20.480] fisherman and I'm a farmer's daughter
+- [28:21.919] from Iowa.
+- [28:22.640] >> Good
+- [28:24.240] combination.
+- [28:25.039] >> It is harvesters. We're both harvesters.
+- [28:27.120] I just wanted to say thank you for your
+- [28:28.559] leadership and representing not only um
+- [28:31.279] fishing families but the farmers to to
+- [28:34.559] help um make American agriculture and
+- [28:37.360] not only that but um Alaskan seafood
+- [28:40.720] >> very good. Thank you very much. Great
+- [28:42.720] couple. Thank you. It's a good
+- [28:44.320] combination. I like that. Right.
+- [28:46.080] >> Yes.
+- [28:46.480] >> Thank you.
+- [28:49.679] >> Thank you, sir. This is a question that
+- [28:51.440] will directly impact the fishing
+- [28:52.880] industry. Uh fishermanmen cheered and
+- [28:54.799] support you in your fight to stop
+- [28:56.240] offshore wind turbines because experts
+- [28:58.240] say that they destroy the commercial
+- [28:59.600] fishing industry. Not to mention they're
+- [29:01.360] a national security threat as you've
+- [29:03.279] highlighted. Does your administration
+- [29:05.200] plan to continue to fight the judge's
+- [29:06.799] ruling that's allowing for the
+- [29:08.240] continuation of the turbines right by
+- [29:10.399] Jamaica states right where where you
+- [29:11.840] live off of the Atlantic. 154 of them
+- [29:14.799] are going to litter the sea. Uh will you
+- [29:17.679] put a stop to that Mr. President now
+- [29:19.120] that Kathy Hoko broke her deal about the
+- [29:21.039] pipeline
+- [29:21.440] >> and she did break her deal. Doug, would
+- [29:22.799] you want to answer that question because
+- [29:24.000] I'm for I am for it. She broke her deal
+- [29:26.640] by stopping a pipeline. She wanted to
+- [29:28.799] stop a pipeline which was so good for
+- [29:31.360] New England and so good for Connecticut
+- [29:34.000] and she broke her deal. What do you want
+- [29:35.360] to do on that D?
+- [29:36.159] >> Well, I I want to say first of all,
+- [29:38.000] absolutely positively uh the
+- [29:40.399] construction of these wind towers have
+- [29:42.480] an effect on fisheries. Uh we've had
+- [29:44.960] multiple multiple roundts between uh
+- [29:47.600] Noah which is part of Commerce and uh
+- [29:50.000] Interior which manages all of the
+- [29:51.840] offshore leasing. So it we plenty of
+- [29:55.200] evidence that destroys fishery. Number
+- [29:56.799] two is uh marine mammals which Howard
+- [29:59.120] has in in uh in Noah. Uh it's affected
+- [30:02.240] we've had more whales wash up on shore
+- [30:04.080] during the construction of these
+- [30:05.120] offshore things. So it's not it's not
+- [30:06.720] great for marine life, not great for
+- [30:08.080] fisheries. We also have the report from
+- [30:09.919] Secretary Pete Hixith uh which
+- [30:12.000] conclusively this is a national security
+- [30:14.159] threat and we should understand this was
+- [30:16.480] this was thrown out by the Democrats and
+- [30:18.399] said no it's not it can't be a national
+- [30:20.559] security they're just making it up other
+- [30:22.159] countries including Sweden have canceled
+- [30:24.000] offshore wind projects because of
+- [30:25.520] national security issues and all you
+- [30:27.679] have to do is pay attention to the way
+- [30:28.880] the wars are being fought today it's
+- [30:30.640] autonomous on autonomous a lot of at low
+- [30:32.640] altitude these these wind towers that
+- [30:34.880] President Trump has worked to try to
+- [30:37.039] stop uh the towers themselves cells can
+- [30:38.960] be 600 ft. The blaze are 250. On top of
+- [30:41.520] that, you could launch an attack on the
+- [30:43.200] US in the northeast in our most populous
+- [30:45.520] area with a bunch of autonomous drones
+- [30:47.120] coming through a wind tower field which
+- [30:49.440] cover thousands if not tens of thousands
+- [30:51.600] of miles. That level of attack would be
+- [30:53.760] undetectable until it was came through
+- [30:55.760] because the radar interference and then
+- [30:57.440] we know that there's autonomous undersea
+- [30:59.440] activity going on now that's happening
+- [31:01.039] in the Gulf with advances in technology
+- [31:03.360] on all sides. the the the the sonar, the
+- [31:06.880] vibration of running the wind towers
+- [31:08.559] affects the undersea sonar. So, it's a
+- [31:10.640] huge national security threat. Bad for
+- [31:12.159] marine mantels, bad for fish. President
+- [31:14.080] Trump is going to keep fighting for
+- [31:15.279] what's right for this country.
+- [31:16.240] >> If you stop the blades right now,
+- [31:17.279] they're coming over from Asia right now.
+- [31:18.720] They're sending the blades to start
+- [31:19.919] installing them. So, it's sort of
+- [31:22.080] >> Yeah. Well, and then on top of that,
+- [31:23.360] it's the most expensive electricity.
+- [31:24.960] It's weather dependent. Uh it's
+- [31:26.640] intermittent and it's foreign sourced as
+- [31:28.240] you say.
+- [31:28.720] >> Terrible. And they do affect fishing and
+- [31:30.159] it's very bad and everybody's against
+- [31:32.320] it. Yeah. Please,
+- [31:32.960] >> Mr. President on Iran. Go ahead.
+- [31:35.120] >> Mr. President, on Iran, how confident
+- [31:37.279] are you that there will be a signing
+- [31:39.519] this weekend? Because you have come
+- [31:42.080] close to sealing a deal, but at the last
+- [31:44.320] minute it has fallen apart. And
+- [31:46.320] >> it'll be it'll be soon. Maybe this
+- [31:48.640] weekend.
+- [31:49.360] >> And has the Supreme Leader approved this
+- [31:51.519] deal, sir?
+- [31:52.240] >> I understand the answer is yes.
+- [31:54.399] >> And when the um and when this deal is
+- [31:56.880] signed, is the United States going to
+- [31:58.720] immediately lift the blockade?
+- [32:00.399] >> Yes, that's that's part of the deal.
+- [32:03.200] And um just one
+- [32:04.320] >> we'll have oil prices dropping like I
+- [32:06.720] rock
+- [32:07.440] >> and sir have you actually secured an
+- [32:09.840] agreement on the discussions about the
+- [32:12.159] nuclear material and the nuclear
+- [32:14.080] negotiations
+- [32:14.960] >> conceptually on that and nobody's
+- [32:16.960] getting close to it because it's buried
+- [32:18.480] under a mountain basically does B2
+- [32:21.440] bombers
+- [32:25.600] >> but but has Iran committed to not
+- [32:28.080] pursuing a nuclear weapon or will there
+- [32:31.039] be more negotiations? on that down the
+- [32:32.960] road.
+- [32:33.200] >> They will not have a nuclear weapon.
+- [32:34.799] They've agreed to that. There will be no
+- [32:36.640] which is the whole reason which is a big
+- [32:38.799] part of the reason agreement.
+- [32:41.039] >> Uh they will not only not have they will
+- [32:42.799] not purchase develop in any way any
+- [32:45.120] shape in any way, shape or form a
+- [32:47.440] nuclear weapon. They will not have a
+- [32:48.960] nuclear weapon.
+- [32:50.000] >> Mr. President, just to follow up on
+- [32:51.440] that, you have said before that Iran and
+- [32:53.679] the United States were close to a deal.
+- [32:55.200] It has not happened yet. Why are you so
+- [32:57.360] convinced that this time is different?
+- [32:59.279] uh because they've taken a pounding.
+- [33:02.960] They've taken a pounding like very few
+- [33:04.880] people could take and they want to make
+- [33:06.799] the deal a lot more than I do. And uh we
+- [33:10.799] could have had it done the other way, I
+- [33:12.159] guess, but it would have taken longer.
+- [33:14.399] They uh they got hit very hard recently,
+- [33:17.120] as you know, and I don't like to have to
+- [33:19.760] do things that way, but I felt it was
+- [33:21.279] necessary. Uh, it's a great deal for the
+- [33:24.000] United States and for the Middle East
+- [33:25.519] and I think ultimately great for Iran
+- [33:27.279] because they'll be able to build up
+- [33:28.480] their country and other countries. I
+- [33:31.279] really believe it's a regime change
+- [33:32.960] because I find these people to be much
+- [33:34.720] more rational than the people that are
+- [33:38.000] no longer with us. We knocked out the
+- [33:40.240] first team of leadership. The second
+- [33:41.760] team of leadership is a a different
+- [33:44.240] group. is a different level and I think
+- [33:46.000] it's a frankly a smarter level and it's
+- [33:48.000] a level that has reason and uh they've
+- [33:51.679] all approved the deal. Everybody's
+- [33:53.120] approved the deal. Now we'll get it
+- [33:55.919] finished up and hopefully that'll be
+- [33:58.159] done. Uh we will not have Iran having a
+- [34:03.279] nuclear weapon which is very important
+- [34:04.880] to these people behind me. We can talk
+- [34:06.880] about fishing. There won't be anybody to
+- [34:08.480] fish. The fish will still be around. I
+- [34:10.639] guess they're probably going to be
+- [34:11.839] affected too. We're not going to let it
+- [34:13.200] happen. So, uh, Iran will essentially,
+- [34:17.440] most important paragraph to me, Iran
+- [34:19.919] will in no way, shape, or form have a
+- [34:22.800] nuclear weapon or purchase a nuclear
+- [34:24.639] weapon.
+- [34:25.119] >> Is this a concept of that agreement when
+- [34:27.119] it comes to nuclear? You said this was
+- [34:28.560] just a concept of that agreement. So, is
+- [34:30.320] this just essentially setting the stage
+- [34:31.919] for deep talk on nuclear?
+- [34:33.599] >> It's a very strong memorandum of
+- [34:35.599] understanding that is a little
+- [34:37.040] conceptual, but it's something that's
+- [34:39.119] going to get done. And if it doesn't get
+- [34:40.639] done for any reason, which I can't
+- [34:42.639] imagine that not happening, they want to
+- [34:44.399] sign it as much as I do or more, I would
+- [34:46.960] say they want to sign it more, maybe a
+- [34:48.879] lot more, but it's a very detailed
+- [34:51.760] memorandum of understanding, also agreed
+- [34:54.000] to by many other countries that have
+- [34:55.679] great influence over them, and everybody
+- [34:58.480] wants it done. So, it's going to get
+- [35:00.160] done.
+- [35:01.280] >> President suggested yesterday that Iran
+- [35:03.520] may be tapping along the US. Those those
+- [35:05.839] were the words that you used. What makes
+- [35:07.520] you uh believe that they are sincere
+- [35:10.320] this time in wanting to pursue the
+- [35:12.640] >> level of enthusiasm for getting it done?
+- [35:15.119] And uh we were hitting them very hard
+- [35:16.800] for the last 3 days. We're going to hit
+- [35:19.599] them even harder tonight. They knew
+- [35:21.040] that. We told them exactly what we were
+- [35:22.640] going to do. We explained it exactly
+- [35:24.240] because they had no navy. They had no
+- [35:26.880] air force. They had no any weapons of
+- [35:29.839] detection. They had nothing. And so we
+- [35:32.720] could tell them exactly what there
+- [35:34.240] wasn't a thing they could have done
+- [35:35.359] about it. And we won this war militarily
+- [35:39.040] very early on. The only thing we didn't
+- [35:41.359] win was the fake news was, you know, no
+- [35:44.400] matter if they could have raised the
+- [35:46.320] white flag of surrender and the fake
+- [35:48.400] news would say, "Oh, they did
+- [35:49.520] wonderfully. They didn't do
+- [35:50.480] wonderfully." But you know what? Uh
+- [35:53.520] they've got a chance to build a country.
+- [35:55.760] Their country is largely demolished
+- [35:58.079] again. Their navy is gone. Their air
+- [36:00.560] force is gone. Their anti-aircraft is
+- [36:02.640] gone. Everything's gone. Their
+- [36:04.800] leadership is gone many times over. Even
+- [36:08.320] many people from this leadership is
+- [36:10.480] gone. But we found them to be rational
+- [36:13.599] and uh they're going to make a deal. Mr.
+- [36:15.680] President,
+- [36:17.040] >> and I'll tell you what, it's a great
+- [36:19.200] deal. You know why it's a great deal?
+- [36:21.280] Because they will never have a nuclear
+- [36:22.880] weapon.
+- [36:23.440] >> Mr. President, is there a specific
+- [36:25.040] amount of time that has to pass between
+- [36:26.880] this memorandum of understanding and
+- [36:29.040] final deal being done? Well, we hope
+- [36:30.720] it's going to go relatively quickly, but
+- [36:32.400] it's
+- [36:32.720] >> Is there 60 or 90?
+- [36:33.920] >> I mean, the streets are going to open
+- [36:35.119] immediately. It's fun signing. Maybe
+- [36:37.119] it'll be Saturday or Monday.
+- [36:38.800] >> Where's their deadline though to get
+- [36:40.160] from this to a final deal?
+- [36:42.960] >> Uh, we think it's going to go pretty
+- [36:45.520] quickly. I don't want to say a deadline
+- [36:47.040] because if I say a deadline, you'll say,
+- [36:48.960] "Oh, he didn't meet the deadline." You
+- [36:50.800] know, this is like it's not going to
+- [36:52.480] matter much because uh it's going to get
+- [36:55.359] signed and the straight is open. But the
+- [36:58.960] straits have been open for a number of
+- [37:01.839] months already and you just didn't know
+- [37:03.520] about it. You know, you as reporters
+- [37:05.440] were a weren't able to get it. I just
+- [37:07.280] announced yesterday that we're bring
+- [37:08.800] that we brought a lot of ships or nobody
+- [37:10.480] knew about. I guess we did a pretty good
+- [37:11.920] job, Peter, right?
+- [37:13.359] >> But we brought many many ships across
+- [37:15.119] and millions hundreds of millions of
+- [37:18.240] barrels of oil
+- [37:19.920] >> were brought were brought across
+- [37:21.839] >> Mr. and there wasn't a thing that
+- [37:23.760] anybody could have done about that.
+- [37:25.280] Yeah. Is the Car Island operation off
+- [37:27.599] the table? And are you ruling out?
+- [37:29.359] >> Well, now it would be if we signed this
+- [37:30.960] agreement. It would be. They weren't so
+- [37:32.800] thrilled when they heard that that's
+- [37:33.920] what I would have done. And I just don't
+- [37:36.000] think I I like it. Great. Look at
+- [37:37.599] Venezuela. How well that's worked out.
+- [37:39.200] We paid for that war many times over and
+- [37:42.480] uh many many times over. We have
+- [37:44.560] millions of barrels of oil from
+- [37:46.480] Venezuela going to Houston. And we're
+- [37:48.960] working great with the Venezuelan
+- [37:50.480] government. Couldn't be better. It's a
+- [37:52.160] real It's a real uh good relationship.
+- [37:55.599] Really good relationship. Venezuela has
+- [37:58.000] been amazing. This is a larger
+- [38:00.480] situation. U actually less oil.
+- [38:03.920] Venezuela has a lot of oil. But uh we
+- [38:07.200] think of it. We spent X dollars. We paid
+- [38:10.560] for it many many times. When was the
+- [38:12.320] last time you hear that? Many times over
+- [38:14.160] we paid for it. Do you ever think you'd
+- [38:16.000] see that in this country? Right. We go
+- [38:18.240] to wars. We end up with always we end up
+- [38:20.079] with just blasting the hell out of
+- [38:21.760] people and we come home nothing happens.
+- [38:25.520] Uh Venezuela was amazing and this is
+- [38:28.560] amazing. Yeah.
+- [38:29.280] >> Mr. President, are you considering using
+- [38:31.839] or drafting an executive order to extend
+- [38:34.400] visa or to continue using section
+- [38:36.800] >> Congress wants me to do it and let's see
+- [38:38.560] what happens.
+- [38:39.440] >> Republican leadership wants you to do
+- [38:40.640] it.
+- [38:40.800] >> Well, you know, I put out a statement
+- [38:42.240] here. It's very important. It's very
+- [38:43.920] important for our military.
+- [38:45.280] >> Mr. President, on the Safe America Act,
+- [38:47.200] you're now urging Republicans to add
+- [38:48.960] that to this third reconciliation bill.
+- [38:51.520] Um, what's your perspective on why
+- [38:54.800] election in integrity matters so much
+- [38:56.880] for national security from your
+- [38:58.480] perspective?
+- [38:58.960] >> Well, we need it for our elections. We
+- [39:00.960] need to have voter identification, which
+- [39:03.280] you don't have right now on a national
+- [39:06.320] basis. We need it for uh and and the
+- [39:09.599] voter ID is very important. We need it
+- [39:11.119] for proof of citizenship. Do you believe
+- [39:12.800] it? The Democrats are fighting. They
+- [39:15.359] don't want you to prove your citizenship
+- [39:16.960] when you vote. You know why they want
+- [39:18.480] that? Because they cheat. And we also
+- [39:20.960] want it with mail-in voting where you
+- [39:22.960] have people that are sent seven, eight
+- [39:26.640] ballots, two ballots, four ballots, and
+- [39:29.760] a lot of them sign those ballots. Mail
+- [39:31.760] in voting. And we want to be very
+- [39:33.760] judicious if you're in the military and
+- [39:36.640] you're far away or if you're handicapped
+- [39:39.280] or if you're sick or if you're on
+- [39:41.599] vacation that you have a but you're not
+- [39:43.599] going to millions and millions. Look at
+- [39:45.920] California. They send out millions of
+- [39:47.839] ballots. Tens of millions. They have no
+- [39:49.680] idea what's going on. Those elections
+- [39:52.240] are so corrupt. So we have a male and
+- [39:54.640] ballot. Then we have no men and we had
+- [39:56.640] two more. No men in women sports.
+- [39:59.040] Talking about saving America, right? No
+- [40:01.520] men and women sports. Another one very
+- [40:03.760] popular. I think it's 99 to1. They say
+- [40:05.680] it's 8020. I think it's 99 to1. And we
+- [40:08.960] have uh no mutilization of your children
+- [40:12.640] for g trans transgender purposes. So
+- [40:15.680] let's see. Transgender mutilization
+- [40:18.880] of your children. Does that sound good
+- [40:20.560] with you guys? Generally speaking, you
+- [40:22.400] don't get into transgender mutilization.
+- [40:25.359] >> Not at all. Not at all, sir. where your
+- [40:27.359] child leaves your house and they take
+- [40:29.760] your child from you in some think of it
+- [40:31.839] in six states they take the child and do
+- [40:34.320] what they want to do what what they do
+- [40:35.920] is is I don't even want to talk about
+- [40:39.680] >> we had to have no transgender
+- [40:41.680] mutilization of your children
+- [40:43.200] >> DNI Mr. President do you intend to have
+- [40:45.280] Bill Py continue to serve as the acting
+- [40:47.599] director of national intelligence and do
+- [40:50.079] you think it's unreasonable that some
+- [40:51.599] Republicans have concerns that he has no
+- [40:53.520] intelligence experience even if he's
+- [40:55.040] serving in this acting role is
+- [40:56.480] intelligent unlike a lot of other
+- [40:58.400] people.
+- [40:59.280] >> But do you think that's a fair amount of
+- [41:00.720] no intelligence?
+- [41:01.599] >> He's only there for a little while. He's
+- [41:03.040] running it for a short while. Well, we
+- [41:04.480] get a very talented person, Jake
+- [41:06.560] Clayton. As you know, Jay Clayton's an
+- [41:08.560] incredible talent head of Sullivan
+- [41:10.480] Cromwell.
+- [41:12.000] He was head of the SEC and now Southern
+- [41:15.040] District. I mean, nobody has better
+- [41:17.200] credentials.
+- [41:19.280] >> Bill will run it for a short while. He's
+- [41:20.720] done a fantastic job at Fanny May.
+- [41:22.720] Freddy Mack created tremendous. It's
+- [41:25.680] probably worth a trillion dollars now.
+- [41:27.599] Trillion. He's done a great job. He's a
+- [41:30.079] smart guy. President,
+- [41:33.200] today's another example of you bringing
+- [41:34.960] these everyday Americans into the White
+- [41:36.800] House and listening to them. How
+- [41:38.319] important is it for you to listen to
+- [41:40.160] everyday Americans when it comes to
+- [41:41.520] policym
+- [41:42.720] >> These people built the country, not the
+- [41:44.800] complainers. The complainers didn't
+- [41:46.319] build the country. These people built
+- [41:47.839] the country. Whether it's fishermen or
+- [41:50.319] farmers or anything else, me, guys like
+- [41:53.760] me, they built the country. You know, I
+- [41:56.640] watch all these ingrates, they're always
+- [41:58.880] complaining, complaining. They didn't
+- [42:00.640] build anything. They couldn't build
+- [42:01.920] anything.
+- [42:03.440] Look at what's happened in Minnesota.
+- [42:05.680] Somalia. All these people came in from
+- [42:08.319] Somalia. They ripped off our system. You
+- [42:11.200] have the woman who married her brother.
+- [42:14.480] She came in, married her brother. Isn't
+- [42:16.079] that wonderful?
+- [42:17.760] And then she talks about the
+- [42:19.119] constitution of the United States. She
+- [42:21.119] comes from Somalia.
+- [42:23.200] They don't have constitutions in
+- [42:24.720] Somalia. They don't have police. They
+- [42:26.400] don't have it. All they have is people
+- [42:28.079] that run around shooting each other. And
+- [42:29.599] then she comes and tells us how to run
+- [42:31.200] our country. I don't like it. These
+- [42:33.200] people don't like it. I can tell you. I
+- [42:34.640] think I can speak for you.
+- [42:35.920] >> Yeah.
+- [42:36.400] >> She comes in, Ilhan Omar. She comes in.
+- [42:39.760] She tells us how to run the United
+- [42:41.200] States of America. And she comes from a
+- [42:43.040] place with without anything. without
+- [42:45.599] anything. Probably among the worst
+- [42:47.920] countries in the world. And she says the
+- [42:50.000] Constitution of the United States
+- [42:51.760] protects me. She shouldn't be protected.
+- [42:54.640] She she honestly she should be thrown
+- [42:56.880] out of the country. She's corrupt. And
+- [43:00.000] uh most of the people that came in are
+- [43:02.079] corrupt and the whole voting system is
+- [43:04.000] corrupt in Minnesota. I I won Minnesota
+- [43:07.280] three times easily. I won almost every
+- [43:10.240] county, but they didn't give it to me.
+- [43:12.800] It's a corrupt system. very corrupt
+- [43:15.040] state. The governor is terrible. The
+- [43:16.720] attorney general is terri They're all
+- [43:18.480] very corrupt people. Yeah.
+- [43:20.079] >> Sir, on the just supplemental, do you
+- [43:22.319] think there's enough support from
+- [43:23.520] Republicans in Congress?
+- [43:24.800] >> I hope so. I mean, any any Republican
+- [43:27.280] that voted against it would be
+- [43:29.280] >> McConnell and Collins say they don't
+- [43:30.480] think
+- [43:30.720] >> Well, McConnell is an angry man. He, you
+- [43:32.480] know, got thrown out of his position.
+- [43:34.160] He's angry guy. You know, he should be
+- [43:37.200] very thankful to me because if I didn't
+- [43:38.720] win, he wouldn't have gotten to appoint
+- [43:40.079] I appointed the judges. He didn't. He
+- [43:42.240] gets credit for appointing judge. He
+- [43:43.760] didn't appoint anybody. I did. You know
+- [43:45.200] how I did? I won the election and there
+- [43:48.160] then I picked judges and the judges
+- [43:50.960] ended up getting approved and they said,
+- [43:52.560] "Oh, didn't he do a good job?" He didn't
+- [43:54.000] do a good job. What the hell did he do?
+- [43:55.440] I I won the election. He's an angry man
+- [43:58.640] who's very disloyal to John Thoon. John
+- [44:00.640] Thun's a good man. He was a loyal worker
+- [44:04.720] for Mitch McConnell. He worked for Mitch
+- [44:06.480] McConnell. He worked very hard. He was
+- [44:08.160] very loyal to him. I disagreed with him
+- [44:09.839] a lot because Mitch McConnell gave so
+- [44:11.520] much money to Democrats. He gave them
+- [44:14.079] money. I had to go get the wall money
+- [44:15.520] from the milit I just took it out of the
+- [44:17.359] military because that guy wouldn't do
+- [44:18.800] anything. He gave it No, Mitch
+- [44:20.560] McConnell's a bad guy and he's he's and
+- [44:23.200] allow I thought he was lousy at his job.
+- [44:25.599] Lousy at his job. But when they gave him
+- [44:28.480] the only thing they give him a lot of
+- [44:30.000] credit for judges, but I'm the one that
+- [44:31.920] got the judges. You know why? I won the
+- [44:33.760] election. If I didn't win the election,
+- [44:35.119] he wouldn't have had any judges. So, uh,
+- [44:38.880] yeah.
+- [44:39.520] >> So, Mr.
+- [44:42.480] You send a supplemental to send a
+- [44:45.119] supplemental, but you have him. You have
+- [44:46.480] Macski. I've done so much for Macski.
+- [44:50.160] You have the governor. Your governor,
+- [44:51.680] have I done a lot for Alaska? Is there
+- [44:53.200] anybody done more for Alaska than me?
+- [44:55.280] >> You've been the best president for
+- [44:56.240] Alaska in our history, Mr. President.
+- [44:57.599] I've said that many times.
+- [44:59.359] >> And Rowski is terrible. Terrible to us.
+- [45:02.240] Terrible to the country,
+- [45:04.000] >> Mr. President.
+- [45:04.720] >> And you know, I almost feel guilty. I do
+- [45:06.720] more probably done more for Alaska than
+- [45:08.480] any other state. Not because of her
+- [45:10.720] because it's the right thing to do.
+- [45:12.400] She's just an impediment, but uh she's
+- [45:16.319] there. She probably will be a negative
+- [45:18.400] vote. Uh you have a couple of other I
+- [45:20.880] think Rand Paul's come a long way. Let's
+- [45:22.480] see what happens. I think Rand Paul
+- [45:23.920] likes Save America. So because Rand
+- [45:26.240] Paul's usually a negative vote, but I
+- [45:28.400] think he likes Save America. So that's
+- [45:30.240] good. I like Rand Paul, but you know, I
+- [45:32.160] hope he votes for us. Yeah.
+- [45:33.520] >> Thank you, Mr. President. the uh
+- [45:35.040] president of the Kentucky Farm Bureau
+- [45:37.359] testified before the Senate about a
+- [45:38.880] month ago, middle of May. At that point,
+- [45:40.960] he said that the pricing and
+- [45:43.040] availability of fertilizer was a crisis
+- [45:45.839] for farmers. And he said the war was not
+- [45:48.480] helping that. And he said we need the
+- [45:50.640] government to step in and provide
+- [45:52.160] economic health. Even if you do make a
+- [45:54.240] deal in the next couple of days, that
+- [45:55.920] was a month ago that farmers were saying
+- [45:57.440] they were in crisis. Do you think there
+- [45:59.280] needs to be federal aid specifically for
+- [46:01.200] farmers because of the war?
+- [46:02.480] >> No, it's fair. You know, I gave the
+- [46:03.680] farmers $28 billion in my first term
+- [46:06.480] because they were taken advantage of by
+- [46:08.240] China and I charged China for it. I put
+- [46:11.280] tariffs on and China paid us hundreds of
+- [46:13.599] billions of dollars and I took 28
+- [46:15.920] billion out of the tariffs from China
+- [46:18.000] and other countries. I've treated our
+- [46:19.760] farmers very badly. I gave them 28
+- [46:21.440] billion and I'm looking at that
+- [46:23.280] actually. The war is the primary
+- [46:25.040] impediment which is now going to come
+- [46:26.480] down from Ukraine. You know, a lot of it
+- [46:28.000] comes out of Ukraine and other things
+- [46:29.760] but other places. But none of the
+- [46:32.160] farmers have a problem with fertilizer.
+- [46:33.599] But that's all coming down now. And your
+- [46:35.440] fuel is going to be I think it's going
+- [46:36.720] to be lower than it was four or five
+- [46:39.280] months ago. Four or five months ago, we
+- [46:40.880] were doing unbelievable. But remember
+- [46:43.839] this uh if you look at Biden, his oil
+- [46:47.200] prices without saving our country,
+- [46:49.599] saving the world by going out and saying
+- [46:51.920] to Iran, you cannot have a nuclear
+- [46:53.839] weapon. If I ask these people about Iran
+- [46:56.640] having a nuclear weapon, and they're
+- [46:58.079] going to have to go through some pain. I
+- [47:00.880] mean, I don't think I, you know, I hate
+- [47:02.480] to really do it because it's a little
+- [47:04.079] dangerous. Every one of these people are
+- [47:05.920] going to say, "You cannot let Iran have
+- [47:07.680] a nuclear weapon." Is it use it? You
+- [47:10.160] want to see turmoil, you want to see
+- [47:12.000] death and destruction, let Iran have a
+- [47:14.800] nuclear weapon.
+- [47:16.240] >> So, uh, but I am looking at uh doing a
+- [47:19.359] form of help because the fertilizer, but
+- [47:21.359] fertilizer is going to come way down as
+- [47:23.359] soon as this is.
+- [47:24.160] >> And then a political question if I can.
+- [47:25.839] Next week there's a big runoff race in
+- [47:27.520] Georgia for US Senate. You notably
+- [47:29.920] endorsed a candidate for governor there.
+- [47:31.680] You haven't endorsed for US Senate
+- [47:33.440] between the two Republicans. Why not?
+- [47:34.960] >> I may do that, but you know, every time
+- [47:36.800] I endorse, they win. It's been a pretty
+- [47:38.800] amazing track record. I was 18 and0 this
+- [47:41.359] last week
+- [47:42.720] >> and a lot of them are instro.
+- [47:45.280] >> What
+- [47:45.680] >> do you regret endorsing Randy in Iowa?
+- [47:48.720] >> Uh I the man running against him was all
+- [47:50.960] Trump and uh the only one out of
+- [47:54.160] hundreds of races. Hundreds. I'm glad
+- [47:56.240] she brought it up. No, got to bring it
+- [47:58.720] up. There's a gentleman in Georgia that
+- [48:01.839] uh I endorsed who was much less Trump
+- [48:04.560] than the other man that won as you know
+- [48:07.119] and uh had I been given the proper
+- [48:09.119] information which I don't think I was I
+- [48:11.359] probably would have endorsed the other
+- [48:12.720] person but or not endorsed at all but I
+- [48:15.040] would have endorsed the other person.
+- [48:16.720] The other person was much more Trump as
+- [48:19.520] you know than Randy.
+- [48:20.960] >> Mr. President Mr. President, here in
+- [48:23.760] Washington DC, there's a Democratic
+- [48:25.680] primary for mayor. One of the two
+- [48:27.760] leading candidates, Janice Lewis George,
+- [48:30.640] is running a Zoran Mandami campaign.
+- [48:33.200] It's focused on socialist policies. How
+- [48:36.480] would you feel if she emerges victorious
+- [48:38.960] in next Tuesday's
+- [48:40.319] >> Well, I would like it and maybe we take
+- [48:41.680] back Washington, run it on the federal
+- [48:43.599] basis. We won't put up with it. We're
+- [48:46.800] not going to lose our businesses. By the
+- [48:48.319] way, Washington now is a safe, beautiful
+- [48:50.880] place. We had 22 fountains dug that are
+- [48:54.319] all working. Not one of them worked for
+- [48:56.319] years. 25 years, 40 years, 58 years.
+- [49:01.599] Uh the actually the the pool didn't work
+- [49:04.480] from 19 it was 1928 it was built. It
+- [49:07.520] always leaked because it was done in
+- [49:08.720] stone. Now it's done properly. It's not
+- [49:10.400] going to leak at all. But um this is a
+- [49:13.280] beautiful place now. People are coming.
+- [49:15.280] Restaurants are thriving. The
+- [49:16.559] restaurants are all closing. Closed.
+- [49:19.119] Nobody wanted now. You can't get
+- [49:20.559] restaurant space. you can't get into it.
+- [49:22.160] We have a thriving community. We got rid
+- [49:24.079] of the crime. We're 92% down on crime.
+- [49:28.000] Think of it. And we're going to be close
+- [49:29.520] to 100% pretty soon. You always have
+- [49:31.359] some whack job someplace, but we're
+- [49:33.200] going to be close to 100%. So,
+- [49:35.680] Washington is thriving. Memphis is the
+- [49:39.359] people came in from Memphis. 74%
+- [49:42.079] reduction in crime. Uh New Orleans,
+- [49:45.920] think of that. 78% reduction in crime.
+- [49:49.119] had the safest Marty Grod that they've
+- [49:50.960] ever had. You know why? Because we sent
+- [49:53.280] in people that are that take care of
+- [49:55.119] crime. Chicago should do it. New York
+- [49:58.000] should do it. Los Angeles should do it.
+- [50:00.319] We'll make them safe places.
+- [50:03.680] Thank you very much.
+- [50:06.319] Thank you, press. Thank you, press.
+- [50:07.839] Thank you, press. Thank you, press.
+- [50:09.520] Thank you, press. Thank you, press.
+- [50:11.280] Thank you, guys. You can head that way.
+- [50:13.040] Thank you, guys. Thank you, guys. Thank
+- [50:15.280] you, guys. Thank you. Thank you, guys.

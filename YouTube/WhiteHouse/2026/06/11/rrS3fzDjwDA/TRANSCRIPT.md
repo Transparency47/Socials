@@ -1,0 +1,301 @@
+<!-- source: https://www.youtube.com/watch?v=rrS3fzDjwDA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: rrS3fzDjwDA -->
+<!-- date_published: 2026-06-11T15:33:27+00:00 -->
+<!-- date_accessed: 2026-06-12T09:13:06.307518+00:00 -->
+
+# Transcript: Fostering the Future Financial Initiative Announcement
+
+- [00:03.320] Please welcome to the stage the 79th
+- [00:06.080] Secretary of the Treasury, Scott
+- [00:08.440] Garrett.
+- [00:09.825] >> [applause]
+- [00:14.410] [applause]
+- [00:21.360] >> Good morning.
+- [00:22.680] Thank you [clears throat] all for
+- [00:23.240] joining us on this historic occasion.
+- [00:25.520] And of course, let me extend a warm
+- [00:27.120] welcome to the First Lady of the United
+- [00:29.360] States, Melania Trump.
+- [00:32.750] >> [applause]
+- [00:37.990] [applause]
+- [00:45.850] [applause]
+- [00:50.435] [applause]
+- [00:57.640] [applause]
+- [01:00.400] >> Thank you.
+- [01:03.480] Good afternoon.
+- [01:05.160] Thank you for welcoming me this
+- [01:06.800] afternoon, Secretary Garrett.
+- [01:10.320] Since the earliest days of our Republic,
+- [01:13.760] the Treasury has stood for America's
+- [01:16.520] financial credibility and stability.
+- [01:20.520] This very building is a monument of our
+- [01:23.520] confidence in the American experiment.
+- [01:27.640] Today,
+- [01:28.960] we are adding another very important
+- [01:30.720] layer to the Treasury Department's
+- [01:32.920] foundation,
+- [01:34.320] economic stewardship.
+- [01:37.400] For the first time, children in foster
+- [01:40.040] care will have access
+- [01:42.680] to a dedicated savings and investment
+- [01:45.680] vehicle,
+- [01:46.840] Fostering the Future Accounts.
+- [01:50.920] Fostering the Future Accounts give
+- [01:53.040] foster children the same chance
+- [01:55.720] for asset ownership and long-term wealth
+- [01:59.000] building as every other American child.
+- [02:03.840] By investing
+- [02:05.106] >> [applause]
+- [02:09.691] [applause]
+- [02:14.480] >> By investing in our foster youth now,
+- [02:17.760] we help strengthen America's workforce,
+- [02:20.680] communities, and economic future.
+- [02:24.840] Ownership turns the principle of
+- [02:27.360] individual liberty
+- [02:29.160] into sustainable reality.
+- [02:32.400] For children in foster care,
+- [02:34.640] this is specially important.
+- [02:37.400] America can offer services, help, and
+- [02:40.920] protection,
+- [02:42.360] but real freedom means being able to
+- [02:45.080] make independent choices
+- [02:47.600] about your own future.
+- [02:50.560] Property ownership helps make that
+- [02:53.160] possible.
+- [02:55.560] When they turn 18, foster youth will be
+- [02:58.440] able to access the assets they own
+- [03:01.640] through Fostering the Future Accounts.
+- [03:05.040] This will give them a foundation for
+- [03:07.360] independence and opportunity.
+- [03:11.560] For Fostering the Future Youth,
+- [03:13.720] empowerment comes through ownership.
+- [03:17.320] This includes ownership of knowledge
+- [03:19.880] through education
+- [03:21.600] and now ownership through savings and
+- [03:24.280] investment accounts.
+- [03:27.080] Education and savings accounts are the
+- [03:29.640] first steps toward personal
+- [03:32.280] independence.
+- [03:35.160] Fostering the Future Accounts help
+- [03:37.400] create the conditions where liberty can
+- [03:40.080] flourish.
+- [03:41.560] Success is not about how many benefits a
+- [03:45.280] person receives,
+- [03:47.239] but rather about how much independence
+- [03:50.239] they achieve.
+- [03:52.320] Starting today,
+- [03:54.280] the Treasury will let state child
+- [03:56.920] welfare agencies
+- [03:58.960] and foster youth representatives
+- [04:01.640] set up Fostering the Future Accounts for
+- [04:03.920] children in foster care.
+- [04:07.592] >> [applause]
+- [04:13.487] [applause]
+- [04:16.720] >> We already have measurable results. 23
+- [04:20.040] governors have pledged to set up
+- [04:22.200] Fostering the Future Accounts in their
+- [04:24.880] states,
+- [04:26.320] including Governor Little from Idaho,
+- [04:29.320] who is here with us today. Thank you,
+- [04:31.919] Governor.
+- [04:33.138] >> [applause]
+- [04:33.160] >> Thank you.
+- [04:39.033] >> [applause]
+- [04:41.080] >> Now is the time for everyone to act.
+- [04:44.640] All 50 states should pledge to protect
+- [04:47.320] America's foster youth.
+- [04:49.760] Let's elevate America's children above
+- [04:52.720] politics.
+- [04:55.200] I urge every governor and business
+- [04:57.680] leader in America to help fund these
+- [05:00.120] accounts.
+- [05:01.640] Together, we can make sure foster youth
+- [05:05.400] enter adulthood with assets,
+- [05:08.000] opportunity, and a stronger path to
+- [05:10.720] independence.
+- [05:13.440] This is a historic moment for our
+- [05:16.200] nation.
+- [05:18.988] >> [applause]
+- [05:23.573] [applause]
+- [05:26.840] >> We should aspire to raise a generation
+- [05:29.400] of builders, creators, entrepreneurs,
+- [05:33.080] and leaders whose futures
+- [05:35.560] are shaped by their ambition, not their
+- [05:38.640] circumstances.
+- [05:40.720] A strong education and financial assets
+- [05:44.280] will give them tools for a lifetime.
+- [05:47.600] Thank you.
+- [05:49.118] >> [applause]
+- [05:58.288] [applause]
+- [06:06.440] >> Please join me one more time in thanking
+- [06:08.240] the First Lady for those thoughtful
+- [06:09.840] remarks.
+- [06:11.389] >> [applause]
+- [06:15.974] [applause]
+- [06:26.080] >> Fostering the Future is the latest
+- [06:28.400] expression of her long-standing work on
+- [06:31.360] behalf of America's children. And we at
+- [06:34.000] Treasury are grateful that Mrs. Trump
+- [06:36.800] has given generously of her leadership
+- [06:39.000] to the most important benefit for young
+- [06:41.360] people since the GI bill.
+- [06:44.600] Through the leadership of First Lady
+- [06:46.280] Melania Trump and her Fostering the
+- [06:48.560] Future initiative, children and youth in
+- [06:51.280] foster care now have a pathway to
+- [06:53.480] benefit from Trump accounts.
+- [06:56.000] Within the foster care community, these
+- [06:58.640] Fostering the Future accounts, powered
+- [07:01.080] by Trump accounts, would advance Mrs.
+- [07:03.480] Trump's commitment to helping youth in
+- [07:05.840] foster care build a stronger future.
+- [07:09.684] >> [applause]
+- [07:16.889] [applause]
+- [07:19.040] >> Of course, Trump accounts are historic
+- [07:21.520] new savings tool to democratize the
+- [07:24.040] benefits of private ownership and
+- [07:26.120] compound growth.
+- [07:27.720] Every American child born between
+- [07:29.680] January 2025 and December 2028 is
+- [07:33.680] eligible to receive a 10,000 a $1,000
+- [07:38.400] the uh seed contribution from Treasury.
+- [07:42.435] >> [laughter]
+- [07:44.160] >> Assuming historical growth rates
+- [07:46.160] continue, that single deposit in an
+- [07:48.680] index fund should grow to at least half
+- [07:51.360] a million dollars by the age of
+- [07:52.960] retirement, demonstrating that assets of
+- [07:55.840] life-changing scale can begin with small
+- [07:58.560] steps.
+- [07:59.720] But as we began to develop Trump
+- [08:01.880] accounts, the First Lady emphasized that
+- [08:04.720] foster youth face difficulties that few
+- [08:07.600] others do.
+- [08:08.840] She noted that it is not enough for this
+- [08:11.160] program to function seamlessly for some.
+- [08:14.600] That the children who stand to benefit
+- [08:16.440] most from the Trump accounts must not
+- [08:18.560] encounter any barriers in accessing
+- [08:21.040] them.
+- [08:22.160] So today, because of the First Lady's
+- [08:24.600] leadership, we are embedding foster
+- [08:27.240] youth into the fabric of this program
+- [08:29.640] from the outset.
+- [08:32.215] >> [applause]
+- [08:36.800] [applause]
+- [08:40.320] >> When Trump accounts launch on July 4th,
+- [08:43.320] every every eligible child in America
+- [08:45.960] will be able to participate, including
+- [08:48.240] those for whom the state serves as a
+- [08:50.320] legal guardian.
+- [08:51.960] States can also help foster youth to
+- [08:54.400] accelerate their gains by directing
+- [08:56.880] survivor and SSI benefits into their
+- [08:59.880] Trump accounts. And at every step every
+- [09:02.640] step, Treasury will provide expert
+- [09:04.839] guidance to child welfare agencies
+- [09:07.280] through a dedicated support line.
+- [09:09.640] Now as we begin to enroll foster youth
+- [09:12.640] across the country, I especially want to
+- [09:15.280] recognize Governor Jeff Landry for his
+- [09:17.560] leadership.
+- [09:19.280] Our goal is to work toward full
+- [09:21.000] participation from all 50 states. And I
+- [09:24.440] encourage every local welfare agency to
+- [09:27.400] follow Louisiana's example by looking
+- [09:30.200] beyond a child's present circumstances
+- [09:33.120] to invest in their potential.
+- [09:35.800] By affirming that the born into
+- [09:38.320] adversity possesses equal worth as a
+- [09:41.120] child born into abundance.
+- [09:43.560] Of course, those convictions have long
+- [09:45.720] animated the First Lady's Be Best
+- [09:48.800] Fostering the Future campaign.
+- [09:51.320] Now, I'm delighted to see Mrs. Trump
+- [09:53.920] bring that same focus to the more than
+- [09:56.240] 300 and
+- [09:58.280] 330,000 [clears throat]
+- [09:59.920] young people who live in foster care,
+- [10:02.680] one in five of whom will become homeless
+- [10:04.800] after aging out of the system, while
+- [10:07.040] only half will obtain gainful employment
+- [10:09.400] by the time they turn 24.
+- [10:11.720] This will be a game changer.
+- [10:13.680] Those outcomes are unsettling, but today
+- [10:16.200] we refuse to accept them as inevitable.
+- [10:19.920] Trump accounts will build long-term
+- [10:22.160] financial security for millions of
+- [10:24.160] children, and for foster youth in
+- [10:26.400] particular, the program will ensure that
+- [10:29.240] their futures are shaped more by the
+- [10:31.360] possibilities rather than by the
+- [10:34.080] circumstances behind them.
+- [10:36.360] Now, there is a fitting historical
+- [10:38.080] symmetry in making today's announcement
+- [10:40.640] here at the Treasury building. Of
+- [10:42.680] course, before he became America's first
+- [10:45.160] and most iconic Treasury Secretary,
+- [10:47.920] Alexander Hamilton was an orphan,
+- [10:50.560] sustained by little more than a belief
+- [10:52.640] that his origins need not define his
+- [10:55.480] fate.
+- [10:56.600] An indigent boy from the Caribbean could
+- [10:59.200] in fact become the man who made modern
+- [11:01.680] America.
+- [11:02.920] And along the way, Hamilton knew what it
+- [11:04.920] was like to come of age without the
+- [11:07.440] anchor of a stable home. Yet it was his
+- [11:10.000] wife who committed herself to the cause
+- [11:12.480] of foster children. Eliza Hamilton
+- [11:15.360] married one orphan, raised another, and
+- [11:18.280] then established New York's first
+- [11:20.080] private orphanage. I believe she did so
+- [11:22.920] because of an idea that remains as
+- [11:24.800] relevant in our time as it was two
+- [11:27.360] centuries ago in hers, that we cannot
+- [11:29.800] measure a person's value by the
+- [11:32.000] conditions of their birth or their
+- [11:33.760] upbringing. America was founded on that
+- [11:36.680] premise.
+- [11:37.760] No other nation dared stake its identity
+- [11:40.720] on the distance a citizen could travel
+- [11:43.120] from the place where they started. In
+- [11:45.560] fact, over the sweep of human
+- [11:47.400] civilization, the arc of a life was
+- [11:49.920] largely fixed before it even began.
+- [11:53.040] In the old world, outcomes were
+- [11:54.760] predetermined and mobility foreclosed.
+- [11:58.560] But today, we meet a remarkable moment
+- [12:01.000] in the life of a nation that has never
+- [12:03.080] attached greatness to the ease of
+- [12:05.200] beginnings.
+- [12:06.520] On the eve of America's 250th
+- [12:08.840] anniversary, we are demonstrating to
+- [12:11.160] foster youth that one's birth is not
+- [12:13.960] binding and where they begin need bear
+- [12:17.240] no resemblance to what they can become.
+- [12:20.960] Today, in the place where Hamilton's
+- [12:23.360] legacy surrounds us, we are extending
+- [12:26.080] the reach of this institution to the
+- [12:28.320] young people his wife devoted herself to
+- [12:30.760] defending. We are firming that the
+- [12:32.880] American dream belongs to every child
+- [12:35.520] and because of the President and Mrs.
+- [12:37.480] Trump, through her Fostering the Future
+- [12:39.640] initiative, we are equipping more
+- [12:42.120] children to claim their rightful share
+- [12:44.360] of it. So, thank you all once again for
+- [12:46.839] joining us and being part of this
+- [12:48.880] historic occasion. I look forward to the
+- [12:51.160] launch of the next chapter of Fostering
+- [12:53.680] the Future and Trump accounts in the
+- [12:55.280] coming weeks and to the futures that
+- [12:57.400] will take shape alongside them in coming
+- [13:00.240] years ahead. Thank you very much.
+- [13:03.388] >> [applause]
+- [13:07.973] [applause]
+- [13:12.558] [applause]
+- [13:21.728] [applause]
+- [13:21.800] >> Ladies and gentlemen,
