@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-12
 
-- Posts: 7
+- Posts: 10
 
+- [16:30 UTC - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Loui...](116738087808561603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116738087808561603
+  - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, has been from the very beginning, and only gets better! Julia is r...
+- [16:08 UTC - Truth Social post 116738000047043758](116738000047043758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116738000047043758
+  - _No text content captured._
+- [16:08 UTC - Re-gilding of the massive Arts of War sculptures, located between The Lincoln Memorial and...](116737999128241599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116737999128241599
+  - Re-gilding of the massive Arts of War sculptures, located between The Lincoln Memorial and site of The Triumphal Arch, rapidly continues. The sculptures will be fully regilded by J...
 - [15:33 UTC - Truth Social post 116737863032160311](116737863032160311/)
   - Source: https://truthsocial.com/@realDonaldTrump/116737863032160311
   - _No text content captured._

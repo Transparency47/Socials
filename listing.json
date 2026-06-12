@@ -1,6 +1,170 @@
 {
-  "generatedAt": "2026-06-12T15:55:20.315895+00:00",
+  "generatedAt": "2026-06-12T18:02:36.725268+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-12",
+      "id": "socials:2877cf49dcc5fbd4",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T18:01:40.292930+00:00",
+        "datePublished": "2026-06-12T16:35:46+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650548406372355342.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650548406372355342.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650548406372355342",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650548406372355342.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650548406372355342.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650548406372355342.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650548406372355342"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/12/7650548406372355342/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/12/7650548406372355342/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650548406372355342",
+      "summary": "NEW DROP \ud83d\udc40\ud83d\udef8 WAR.GOV/UFO",
+      "title": "NEW DROP \ud83d\udc40\ud83d\udef8 WAR.GOV/UFO"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:3fa2e87cda9e66ea",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T18:01:26.589449+00:00",
+        "datePublished": "2026-06-12T16:30:57.466000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116738087808561603"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116738087808561603/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116738087808561603/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116738087808561603",
+      "summary": "Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, has been from the very beginning, and only gets better! Julia is running for the United States Senate in Louisiana, a place I love and WON BIG, six times, including P",
+      "title": "Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Loui..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:cd058e7451ae0b01",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T18:01:26.589811+00:00",
+        "datePublished": "2026-06-12T16:08:38.420000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116737999701075625.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/a75d2208d634c177.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/999/701/075/625/original/a75d2208d634c177.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a75d2208d634c177.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116737999704899764.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/f59d8b1b40912993.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/999/704/899/764/original/f59d8b1b40912993.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f59d8b1b40912993.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_116737999704760188.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/24253cbde5d712bb.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/999/704/760/188/original/24253cbde5d712bb.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/24253cbde5d712bb.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116737999701075625.jpg",
+          "media/02_image_116737999704899764.jpg",
+          "media/03_image_116737999704760188.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/a75d2208d634c177.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f59d8b1b40912993.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/24253cbde5d712bb.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116738000047043758"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116738000047043758/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116738000047043758/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116738000047043758",
+      "summary": null,
+      "title": "Truth Social post 116738000047043758"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:21f9b0295daff38d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T18:01:26.590239+00:00",
+        "datePublished": "2026-06-12T16:08:24.397000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116737995912373791.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/bf343e5e2b0d2c47.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/995/912/373/791/original/bf343e5e2b0d2c47.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/bf343e5e2b0d2c47.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116737995949972137.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/ac1cd2a5f2acdf7e.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/995/949/972/137/original/ac1cd2a5f2acdf7e.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ac1cd2a5f2acdf7e.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_116737995926976431.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/1197ae14a5bc2bca.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/737/995/926/976/431/original/1197ae14a5bc2bca.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1197ae14a5bc2bca.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116737995912373791.jpg",
+          "media/02_image_116737995949972137.jpg",
+          "media/03_image_116737995926976431.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/bf343e5e2b0d2c47.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/ac1cd2a5f2acdf7e.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/1197ae14a5bc2bca.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116737999128241599"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116737999128241599/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116737999128241599/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116737999128241599",
+      "summary": "Re-gilding of the massive Arts of War sculptures, located between The Lincoln Memorial and site of The Triumphal Arch, rapidly continues. The sculptures will be fully regilded by July 3rd. The photos below were taken yesterday. The Gilders\u2019 Studio has flown in Gilders from around",
+      "title": "Re-gilding of the massive Arts of War sculptures, located between The Lincoln Memorial and..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-12",
