@@ -1,6 +1,94 @@
 {
-  "generatedAt": "2026-06-12T18:02:36.725268+00:00",
+  "generatedAt": "2026-06-12T20:26:46.053608+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-12",
+      "id": "socials:360a182adaf870b9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T20:25:48.614001+00:00",
+        "datePublished": "2026-06-12T19:09:08.272000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116738709221975030.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/92b1652c23850678.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/738/709/221/975/030/original/92b1652c23850678.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/92b1652c23850678.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/02_image_116738709217438332.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/91901c1b3846e3fc.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/738/709/217/438/332/original/91901c1b3846e3fc.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/91901c1b3846e3fc.jpg"
+          },
+          {
+            "kind": "image",
+            "localFile": "media/03_image_116738709217438331.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/19a0c54865313f40.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/738/709/217/438/331/original/19a0c54865313f40.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/19a0c54865313f40.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116738709221975030.jpg",
+          "media/02_image_116738709217438332.jpg",
+          "media/03_image_116738709217438331.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/92b1652c23850678.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/91901c1b3846e3fc.jpg",
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/19a0c54865313f40.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116738709792190047"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/12/116738709792190047/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116738709792190047/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116738709792190047",
+      "summary": null,
+      "title": "Truth Social post 116738709792190047"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-12",
+      "id": "socials:9ff03335e9bfc5f9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-12T20:26:00.854042+00:00",
+        "datePublished": "2026-06-12T18:59:25+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650585470354722061.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650585470354722061.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650585470354722061",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650585470354722061.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650585470354722061.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650585470354722061.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650585470354722061"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/12/7650585470354722061/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/12/7650585470354722061/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650585470354722061",
+      "summary": "LET\u2019S GO USA \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8",
+      "title": "LET\u2019S GO USA \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8"
+    },
     {
       "category": "TikTok",
       "date": "2026-06-12",
