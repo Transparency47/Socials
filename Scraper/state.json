@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Kldm14Dno_s: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Kldm14Dno_s! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Kldm14Dno_s&ei=qD0ras7AOrrYkucPt-rBoQI&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781243928&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=C75A3E529B083E7DEFBA186D415557168CD13B46.9BDAD97A5EBA6EA81D6C8377420F8F0A0344D0BE&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Kldm14Dno_s: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Kldm14Dno_s! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Kldm14Dno_s&ei=yFArapDYJMmvlu8Po7POuQQ&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781248824&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=50E158A93E879B49B31DE0BEDD7C708DE178E217.985C2CFDC228AF20D293153C38029F1658F9174C&key=yt8&kind=asr&lang=en&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -114755,6 +114755,28 @@
       "published": "2026-06-11T22:01:14.446000+00:00",
       "title": "These are the weapons we are seizing from Mexican Cartels. They are killing thousands of A...",
       "url": "https://truthsocial.com/@realDonaldTrump/116733724226062708"
+    },
+    "truthsocial:realdonaldtrump:116734152330542415": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-12T00:20:08.396684+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/11/116734152330542415",
+      "platform": "truthsocial",
+      "post_id": "116734152330542415",
+      "published": "2026-06-11T23:50:06.796000+00:00",
+      "title": "Jamie Raskin, a Loser in Life, who worked endlessly during my First Term to impeach me, an...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116734152330542415"
+    },
+    "truthsocial:realdonaldtrump:116734237249042208": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-12T00:20:08.396122+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/12/116734237249042208",
+      "platform": "truthsocial",
+      "post_id": "116734237249042208",
+      "published": "2026-06-12T00:11:42.548000+00:00",
+      "title": "Sara Baxter is a fantastic person, and highly qualified for many top political jobs but, o...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116734237249042208"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

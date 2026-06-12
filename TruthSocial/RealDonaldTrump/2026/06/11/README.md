@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-11
 
-- Posts: 10
+- Posts: 11
 
+- [23:50 UTC - Jamie Raskin, a Loser in Life, who worked endlessly during my First Term to impeach me, an...](116734152330542415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116734152330542415
+  - Jamie Raskin, a Loser in Life, who worked endlessly during my First Term to impeach me, and failed miserably, wasting the Country’s money, time, and effort, will guaranteed be tryi...
 - [22:01 UTC - These are the weapons we are seizing from Mexican Cartels. They are killing thousands of A...](116733724226062708/)
   - Source: https://truthsocial.com/@realDonaldTrump/116733724226062708
   - These are the weapons we are seizing from Mexican Cartels. They are killing thousands of Americans each and every year! President DONALD J. TRUMP
