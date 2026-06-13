@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-13T21:10:39.015243+00:00",
+  "generatedAt": "2026-06-13T22:21:31.250717+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-13",
+      "id": "socials:2bed4b701a012a58",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T22:18:36.878169+00:00",
+        "datePublished": "2026-06-13T22:01:59+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651003610813238541.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651003610813238541.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651003610813238541",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651003610813238541.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651003610813238541.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651003610813238541.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651003610813238541"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/13/7651003610813238541/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/13/7651003610813238541/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651003610813238541",
+      "summary": "A patriot summer for America\u2019s 250th \ud83c\uddfa\ud83c\uddf8",
+      "title": "A patriot summer for America\u2019s 250th \ud83c\uddfa\ud83c\uddf8"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-13",
