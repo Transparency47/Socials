@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-13
 
-- Posts: 6
+- Posts: 9
 
+- [17:53 UTC - Truth Social post 116744074319790689](116744074319790689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116744074319790689
+  - _No text content captured._
+- [17:53 UTC - Truth Social post 116744073690451959](116744073690451959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116744073690451959
+  - _No text content captured._
+- [17:53 UTC - Truth Social post 116744072996755992](116744072996755992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116744072996755992
+  - _No text content captured._
 - [16:47 UTC - The Obama Library ten years from now will be a “Mecca” for those who hate America! Preside...](116743815454221461/)
   - Source: https://truthsocial.com/@realDonaldTrump/116743815454221461
   - The Obama Library ten years from now will be a “Mecca” for those who hate America! President DJT
