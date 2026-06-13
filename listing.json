@@ -1,6 +1,99 @@
 {
-  "generatedAt": "2026-06-13T13:48:14.203627+00:00",
+  "generatedAt": "2026-06-13T15:26:28.447023+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:a47102118768a44b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T15:22:20.087963+00:00",
+        "datePublished": "2026-06-13T14:50:01.313000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116743353225555838"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116743353225555838/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116743353225555838/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116743353225555838",
+      "summary": "Congratulations to Team USA on their Big Win, 4-1, over a very good Paraguay team. Keep it going! President DJT",
+      "title": "Congratulations to Team USA on their Big Win, 4-1, over a very good Paraguay team. Keep it..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-13",
+      "id": "socials:ebe7d9af733da04d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T15:22:32.759590+00:00",
+        "datePublished": "2026-06-13T14:24:26+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7650885670176705805.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7650885670176705805.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650885670176705805",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7650885670176705805.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7650885670176705805.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7650885670176705805.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7650885670176705805"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/13/7650885670176705805/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/13/7650885670176705805/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7650885670176705805",
+      "summary": "ONE MORE DAY. UFC x White House \ud83d\udd25",
+      "title": "ONE MORE DAY. UFC x White House \ud83d\udd25"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:76e74afdfba8f02d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T15:22:20.088319+00:00",
+        "datePublished": "2026-06-13T13:48:46.709000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116743111690729812.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/012ba4efd6eb20ee.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/743/111/690/729/812/original/012ba4efd6eb20ee.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/012ba4efd6eb20ee.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116743111690729812.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/012ba4efd6eb20ee.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116743112402160988"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116743112402160988/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116743112402160988/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116743112402160988",
+      "summary": null,
+      "title": "Truth Social post 116743112402160988"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-13",
