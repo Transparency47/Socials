@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-13
 
-- Posts: 9
+- Posts: 10
 
+- [18:58 UTC - I am pleased to announce my intent to appoint James M. McDonald as the United States Attor...](116744329783387013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116744329783387013
+  - I am pleased to announce my intent to appoint James M. McDonald as the United States Attorney for the Southern District of New York. A native of the Great State of Oklahoma, Jamie...
 - [17:53 UTC - Truth Social post 116744074319790689](116744074319790689/)
   - Source: https://truthsocial.com/@realDonaldTrump/116744074319790689
   - _No text content captured._

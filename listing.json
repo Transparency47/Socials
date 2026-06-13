@@ -1,6 +1,29 @@
 {
-  "generatedAt": "2026-06-13T18:05:30.942589+00:00",
+  "generatedAt": "2026-06-13T19:54:34.225700+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:d7e57dee33ba8240",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T19:53:27.961515+00:00",
+        "datePublished": "2026-06-13T18:58:22.407000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116744329783387013"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116744329783387013/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116744329783387013/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116744329783387013",
+      "summary": "I am pleased to announce my intent to appoint James M. McDonald as the United States Attorney for the Southern District of New York. A native of the Great State of Oklahoma, Jamie is a former Assistant U.S. Attorney in the Southern District of New York, and served as Director of ",
+      "title": "I am pleased to announce my intent to appoint James M. McDonald as the United States Attor..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-13",
