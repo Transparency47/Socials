@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-13
 
-- Posts: 4
+- Posts: 6
 
+- [16:47 UTC - The Obama Library ten years from now will be a “Mecca” for those who hate America! Preside...](116743815454221461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116743815454221461
+  - The Obama Library ten years from now will be a “Mecca” for those who hate America! President DJT
+- [16:45 UTC - Barack Hussein Obama’s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a...](116743808155352167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116743808155352167
+  - Barack Hussein Obama’s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a Nuclear Weapon, which Iran would have had six years ago, and would have used long before...
 - [14:50 UTC - Congratulations to Team USA on their Big Win, 4-1, over a very good Paraguay team. Keep it...](116743353225555838/)
   - Source: https://truthsocial.com/@realDonaldTrump/116743353225555838
   - Congratulations to Team USA on their Big Win, 4-1, over a very good Paraguay team. Keep it going! President DJT

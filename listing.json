@@ -1,6 +1,64 @@
 {
-  "generatedAt": "2026-06-13T15:26:28.447023+00:00",
+  "generatedAt": "2026-06-13T16:56:12.977093+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:7a6f4ef4c37288e5",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T16:54:54.859589+00:00",
+        "datePublished": "2026-06-13T16:47:34.430000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116743815116917537.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/c72bdca963ca8c69.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/743/815/116/917/537/original/c72bdca963ca8c69.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c72bdca963ca8c69.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116743815116917537.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c72bdca963ca8c69.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116743815454221461"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116743815454221461/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116743815454221461/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116743815454221461",
+      "summary": "The Obama Library ten years from now will be a \u201cMecca\u201d for those who hate America! President DJT",
+      "title": "The Obama Library ten years from now will be a \u201cMecca\u201d for those who hate America! Preside..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:d7fce22046a62824",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T16:54:54.860283+00:00",
+        "datePublished": "2026-06-13T16:45:43.030000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116743808155352167"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116743808155352167/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116743808155352167/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116743808155352167",
+      "summary": "Barack Hussein Obama\u2019s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a Nuclear Weapon, which Iran would have had six years ago, and would have used long before now. My Agreement with Iran is the exact opposite, A WALL TO NO NUCLEAR WEAPON! In fact, they no lon",
+      "title": "Barack Hussein Obama\u2019s Deal with Iran, the JCPOA, was an easy, beautiful, smooth road to a..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-13",
