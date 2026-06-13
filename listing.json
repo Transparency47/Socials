@@ -1,6 +1,111 @@
 {
-  "generatedAt": "2026-06-13T22:21:31.250717+00:00",
+  "generatedAt": "2026-06-13T23:39:46.423469+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:2ce0413d36bd115d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T23:38:44.601210+00:00",
+        "datePublished": "2026-06-13T22:42:06.306000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116745208483060352.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/96ec85b61fbe42a6.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/745/208/483/060/352/original/96ec85b61fbe42a6.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/96ec85b61fbe42a6.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116745208483060352.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/96ec85b61fbe42a6.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116745209532202669"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116745209532202669/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116745209532202669/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116745209532202669",
+      "summary": "Years ago after saving the Wollman Skating Rink in Central Park \u2013 Long before I fixed The Reflecting Pool, and everything else in Washington, D.C. including, most importantly, CRIME! President DONALD J. TRUMP",
+      "title": "Years ago after saving the Wollman Skating Rink in Central Park \u2013 Long before I fixed The ..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:839fb00fa7dea368",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T23:38:44.601588+00:00",
+        "datePublished": "2026-06-13T22:41:44.147000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116745207850743148.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/f2e17a1a5c665cef.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/745/207/850/743/148/original/f2e17a1a5c665cef.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f2e17a1a5c665cef.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116745207850743148.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/f2e17a1a5c665cef.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116745208079773969"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116745208079773969/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116745208079773969/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116745208079773969",
+      "summary": null,
+      "title": "Truth Social post 116745208079773969"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:bbee77a3439d5486",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T23:38:44.601903+00:00",
+        "datePublished": "2026-06-13T22:41:34.095000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116745207266906129.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/440c6990d3b7f79b.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/745/207/266/906/129/original/440c6990d3b7f79b.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/440c6990d3b7f79b.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116745207266906129.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/440c6990d3b7f79b.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116745207421210648"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116745207421210648/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116745207421210648/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116745207421210648",
+      "summary": null,
+      "title": "Truth Social post 116745207421210648"
+    },
     {
       "category": "TikTok",
       "date": "2026-06-13",

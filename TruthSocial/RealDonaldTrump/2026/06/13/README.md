@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-13
 
-- Posts: 10
+- Posts: 13
 
+- [22:42 UTC - Years ago after saving the Wollman Skating Rink in Central Park – Long before I fixed The ...](116745209532202669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116745209532202669
+  - Years ago after saving the Wollman Skating Rink in Central Park – Long before I fixed The Reflecting Pool, and everything else in Washington, D.C. including, most importantly, CRIM...
+- [22:41 UTC - Truth Social post 116745208079773969](116745208079773969/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116745208079773969
+  - _No text content captured._
+- [22:41 UTC - Truth Social post 116745207421210648](116745207421210648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116745207421210648
+  - _No text content captured._
 - [18:58 UTC - I am pleased to announce my intent to appoint James M. McDonald as the United States Attor...](116744329783387013/)
   - Source: https://truthsocial.com/@realDonaldTrump/116744329783387013
   - I am pleased to announce my intent to appoint James M. McDonald as the United States Attorney for the Southern District of New York. A native of the Great State of Oklahoma, Jamie...
