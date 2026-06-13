@@ -1,6 +1,41 @@
 {
-  "generatedAt": "2026-06-12T23:48:40.266471+00:00",
+  "generatedAt": "2026-06-13T02:45:24.486898+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-13",
+      "id": "socials:52f9dcd8dc8ea0ab",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-13T02:42:07.707423+00:00",
+        "datePublished": "2026-06-13T01:03:58.666000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116740104179377836.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/39bd1c7f41487180.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/740/104/179/377/836/original/39bd1c7f41487180.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/39bd1c7f41487180.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116740104179377836.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/39bd1c7f41487180.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116740105083348004"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/13/116740105083348004/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/13/116740105083348004/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116740105083348004",
+      "summary": "At my direction, the United States Southern Command delivered a swift and lethal kinetic strike to successfully execute Ni\u00f1o Guerrero, the infamous leader of Tren De Aragua, one of the most bloodthirsty Terrorist Organizations on Planet Earth. Before I returned to office, Joe Bid",
+      "title": "At my direction, the United States Southern Command delivered a swift and lethal kinetic s..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-12",
