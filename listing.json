@@ -1,6 +1,76 @@
 {
-  "generatedAt": "2026-06-14T12:22:20.585405+00:00",
+  "generatedAt": "2026-06-14T14:41:42.977390+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:1d7d04bf702d1b98",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T14:38:17.062765+00:00",
+        "datePublished": "2026-06-14T13:40:29.729000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116748400377105310.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/5b7851ebd7a70ff4.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/748/400/377/105/310/original/5b7851ebd7a70ff4.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5b7851ebd7a70ff4.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116748400377105310.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/5b7851ebd7a70ff4.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116748742142548222"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116748742142548222/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116748742142548222/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116748742142548222",
+      "summary": null,
+      "title": "Truth Social post 116748742142548222"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-14",
+      "id": "socials:1816cd273a96b77c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T14:38:28.392452+00:00",
+        "datePublished": "2026-06-14T13:22:29+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651240759554805022.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651240759554805022.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651240759554805022",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651240759554805022.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651240759554805022.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651240759554805022.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651240759554805022"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/14/7651240759554805022/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/14/7651240759554805022/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651240759554805022",
+      "summary": "Happy Birthday, Mr. President \ud83c\uddfa\ud83c\uddf8",
+      "title": "Happy Birthday, Mr. President \ud83c\uddfa\ud83c\uddf8"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-14",
