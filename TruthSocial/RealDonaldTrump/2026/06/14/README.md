@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-14
 
-- Posts: 13
+- Posts: 14
 
+- [22:27 UTC - This Great Deal will bring Peace and Security to the whole Region. Many presidents have tr...](116750814874397998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116750814874397998
+  - This Great Deal will bring Peace and Security to the whole Region. Many presidents have tried to make Peace with Iran, and all have failed before me. The Leaders of the Region have...
 - [21:29 UTC - The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I here...](116750587569914985/)
   - Source: https://truthsocial.com/@realDonaldTrump/116750587569914985
   - The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I hereby fully authorize the toll free opening of the Strait of Hormuz, and, simultaneously here...

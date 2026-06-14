@@ -1,6 +1,29 @@
 {
-  "generatedAt": "2026-06-14T22:00:32.569455+00:00",
+  "generatedAt": "2026-06-14T23:07:14.616044+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:0e5cdd2ed2e12267",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T23:06:04.206570+00:00",
+        "datePublished": "2026-06-14T22:27:37.038000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116750814874397998"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116750814874397998/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116750814874397998/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116750814874397998",
+      "summary": "This Great Deal will bring Peace and Security to the whole Region. Many presidents have tried to make Peace with Iran, and all have failed before me. The Leaders of the Region have, for the first time, found a President who can help them achieve real Peace. With the opening of th",
+      "title": "This Great Deal will bring Peace and Security to the whole Region. Many presidents have tr..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-14",
