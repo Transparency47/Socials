@@ -1,6 +1,87 @@
 {
-  "generatedAt": "2026-06-14T17:51:46.141128+00:00",
+  "generatedAt": "2026-06-14T19:15:49.792398+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:4ac8997eb917499f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T19:14:41.217755+00:00",
+        "datePublished": "2026-06-14T18:41:07.044000+00:00",
+        "media": [
+          {
+            "kind": "image",
+            "localFile": "media/01_image_116749743183798251.jpg",
+            "remotePath": "archive/truthsocial/realdonaldtrump/8b7748ca2e064338.jpg",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/749/743/183/798/251/original/8b7748ca2e064338.jpg",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8b7748ca2e064338.jpg"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_image_116749743183798251.jpg"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/8b7748ca2e064338.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116749924240483636"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116749924240483636/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116749924240483636/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116749924240483636",
+      "summary": "What do they have to be afraid of. Republicans are moving too fast on nominations!!!",
+      "title": "What do they have to be afraid of. Republicans are moving too fast on nominations!!!"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:ce63f1ca36b35ab7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T19:14:41.218193+00:00",
+        "datePublished": "2026-06-14T18:27:19.871000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116749870028302766"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116749870028302766/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116749870028302766/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116749870028302766",
+      "summary": "Why are the Dumocrats so afraid of Bill Pulte at DNI??? He would only be Acting! What do they have to be afraid of, what are they hiding? There must be something BIG, mustn\u2019t there??? President DJT",
+      "title": "Why are the Dumocrats so afraid of Bill Pulte at DNI??? He would only be Acting! What do t..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:51eae9b52ade79eb",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T19:14:41.218572+00:00",
+        "datePublished": "2026-06-14T18:20:06.204000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116749841607391318"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116749841607391318/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116749841607391318/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116749841607391318",
+      "summary": "A few Dumocrats are against FISA, with or without Bill Pulte going to DNI, as Acting. What kind of a deal is that. Besides, I\u2019m against FISA if it doesn\u2019t come with The Save America Act (Full version!) firmly attached to it. MAKE AMERICA GREAT AGAIN! Thank you for your attention ",
+      "title": "A few Dumocrats are against FISA, with or without Bill Pulte going to DNI, as Acting. What..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-14",

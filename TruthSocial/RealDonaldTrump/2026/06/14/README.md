@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-14
 
-- Posts: 7
+- Posts: 10
 
+- [18:41 UTC - What do they have to be afraid of. Republicans are moving too fast on nominations!!!](116749924240483636/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116749924240483636
+  - What do they have to be afraid of. Republicans are moving too fast on nominations!!!
+- [18:27 UTC - Why are the Dumocrats so afraid of Bill Pulte at DNI??? He would only be Acting! What do t...](116749870028302766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116749870028302766
+  - Why are the Dumocrats so afraid of Bill Pulte at DNI??? He would only be Acting! What do they have to be afraid of, what are they hiding? There must be something BIG, mustn’t there...
+- [18:20 UTC - A few Dumocrats are against FISA, with or without Bill Pulte going to DNI, as Acting. What...](116749841607391318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116749841607391318
+  - A few Dumocrats are against FISA, with or without Bill Pulte going to DNI, as Acting. What kind of a deal is that. Besides, I’m against FISA if it doesn’t come with The Save Americ...
 - [16:43 UTC - Truth Social post 116749461889797645](116749461889797645/)
   - Source: https://truthsocial.com/@realDonaldTrump/116749461889797645
   - _No text content captured._
