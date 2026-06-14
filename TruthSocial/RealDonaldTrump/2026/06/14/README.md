@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-14
 
-- Posts: 5
+- Posts: 7
 
+- [16:43 UTC - Truth Social post 116749461889797645](116749461889797645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116749461889797645
+  - _No text content captured._
+- [16:30 UTC - John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieuten...](116749412213359330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116749412213359330
+  - John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieutenant Governor of Alabama. John has been with us from the very beginning, and has been key t...
 - [15:26 UTC - Thank you Michael. The Dumocrats Weaponized Government at levels never seen before, and yo...](116749159132559454/)
   - Source: https://truthsocial.com/@realDonaldTrump/116749159132559454
   - Thank you Michael. The Dumocrats Weaponized Government at levels never seen before, and you survived it all. They should pay the ultimate price for what they have done!!! President...

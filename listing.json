@@ -1,6 +1,99 @@
 {
-  "generatedAt": "2026-06-14T16:12:41.972479+00:00",
+  "generatedAt": "2026-06-14T17:51:46.141128+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:b676eeb0fa64cb06",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T17:47:06.810481+00:00",
+        "datePublished": "2026-06-14T16:43:32.199000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116749461273642982.mov",
+            "remotePath": "archive/truthsocial/realdonaldtrump/93915e53bd50960a.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/749/461/273/642/982/original/93915e53bd50960a.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/93915e53bd50960a.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116749461273642982.mov"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/93915e53bd50960a.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116749461889797645"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116749461889797645/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116749461889797645/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116749461889797645",
+      "summary": null,
+      "title": "Truth Social post 116749461889797645"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:af60370f13711d54",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T17:47:06.811517+00:00",
+        "datePublished": "2026-06-14T16:30:54.170000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116749412213359330"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116749412213359330/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116749412213359330/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116749412213359330",
+      "summary": "John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieutenant Governor of Alabama. John has been with us from the very beginning, and has been key to our many Republican Victories in the Great State of Alabama, which I won with the Highest Vote in ",
+      "title": "John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieuten..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-14",
+      "id": "socials:6ab76c2c72a95103",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T17:47:24.774688+00:00",
+        "datePublished": "2026-06-14T16:11:42+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651284365456051470.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651284365456051470.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651284365456051470",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651284365456051470.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651284365456051470.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651284365456051470.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651284365456051470"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/14/7651284365456051470/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/14/7651284365456051470/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651284365456051470",
+      "summary": "Flag day \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8",
+      "title": "Flag day \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-14",
