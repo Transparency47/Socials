@@ -1,6 +1,52 @@
 {
-  "generatedAt": "2026-06-14T02:01:21.281683+00:00",
+  "generatedAt": "2026-06-14T06:51:46.321381+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:3401f6257695f601",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T06:47:23.652395+00:00",
+        "datePublished": "2026-06-14T04:56:58.359000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116746683568766400"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116746683568766400/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116746683568766400/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116746683568766400",
+      "summary": "It is my Great Honor to endorse \u201cMAGA\u201d Mike Collins, a Highly Respected Congressman who has been with me from the very beginning, and is running for the United States Senate in Georgia, a very special place to me, and where we just had a BIG Presidential Election Win with the Mos",
+      "title": "It is my Great Honor to endorse \u201cMAGA\u201d Mike Collins, a Highly Respected Congressman who ha..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:0d38418a30e1bdad",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T06:47:23.652827+00:00",
+        "datePublished": "2026-06-14T04:29:33.591000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116746575777210117"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116746575777210117/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116746575777210117/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116746575777210117",
+      "summary": "Congratulations to Jim Dolan and the New York Knicks!!! What a year it has been but, even more so, what incredible playoff wins we have all witnessed, especially the last four - Maybe the greatest in the history of basketball. Also, tonight, a superstar was born. His name is Jale",
+      "title": "Congratulations to Jim Dolan and the New York Knicks!!! What a year it has been but, even ..."
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-13",
