@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-14
 
-- Posts: 12
+- Posts: 13
 
+- [21:29 UTC - The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I here...](116750587569914985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116750587569914985
+  - The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I hereby fully authorize the toll free opening of the Strait of Hormuz, and, simultaneously here...
 - [20:35 UTC - Victoria Coates of the Heritage Foundation is absolutely fantastic! She gets it like few o...](116750372942466677/)
   - Source: https://truthsocial.com/@realDonaldTrump/116750372942466677
   - Victoria Coates of the Heritage Foundation is absolutely fantastic! She gets it like few other do. Thank you Victoria. Iran will never have a Nuclear weapon, and the Strait of Horm...

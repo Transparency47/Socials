@@ -1,6 +1,64 @@
 {
-  "generatedAt": "2026-06-14T20:45:30.853086+00:00",
+  "generatedAt": "2026-06-14T22:00:32.569455+00:00",
   "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-14",
+      "id": "socials:43af0e5a990a7c1a",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T21:57:05.881704+00:00",
+        "datePublished": "2026-06-14T21:29:48.647000+00:00",
+        "media": [],
+        "mediaFiles": [],
+        "mediaUrls": [],
+        "platform": "TruthSocial",
+        "postId": "116750587569914985"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/14/116750587569914985/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/14/116750587569914985/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116750587569914985",
+      "summary": "The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I hereby fully authorize the toll free opening of the Strait of Hormuz, and, simultaneously herewith, authorize the immediate removal of the United States Naval blockade. Ships of the World, start",
+      "title": "The Deal with the Islamic Republic of Iran is now complete. Congratulations to all! I here..."
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-14",
+      "id": "socials:f4b792ab0ae8ee51",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-14T21:57:16.905732+00:00",
+        "datePublished": "2026-06-14T20:42:24+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651354173715369229.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651354173715369229.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651354173715369229",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651354173715369229.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651354173715369229.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651354173715369229.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651354173715369229"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/14/7651354173715369229/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/14/7651354173715369229/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651354173715369229",
+      "summary": "UFC TONIGHT AT THE WHITE HOUSE \ud83d\udd25 LFG",
+      "title": "UFC TONIGHT AT THE WHITE HOUSE \ud83d\udd25 LFG"
+    },
     {
       "category": "TruthSocial",
       "date": "2026-06-14",
