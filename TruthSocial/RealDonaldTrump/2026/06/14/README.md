@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-14
 
-- Posts: 10
+- Posts: 12
 
+- [20:35 UTC - Victoria Coates of the Heritage Foundation is absolutely fantastic! She gets it like few o...](116750372942466677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116750372942466677
+  - Victoria Coates of the Heritage Foundation is absolutely fantastic! She gets it like few other do. Thank you Victoria. Iran will never have a Nuclear weapon, and the Strait of Horm...
+- [20:22 UTC - Senator Jack Reed, a Dumocrat from R.I., lied when stating the the Deal we just made is no...](116750323241294561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116750323241294561
+  - Senator Jack Reed, a Dumocrat from R.I., lied when stating the the Deal we just made is not as good as the Obama disaster known as the JCPOA. Reed is either an outright fraud, or i...
 - [18:41 UTC - What do they have to be afraid of. Republicans are moving too fast on nominations!!!](116749924240483636/)
   - Source: https://truthsocial.com/@realDonaldTrump/116749924240483636
   - What do they have to be afraid of. Republicans are moving too fast on nominations!!!
