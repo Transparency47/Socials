@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/rZbbe8ylrKM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=rZbbe8ylrKM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/E42bC7_2ddU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=E42bC7_2ddU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9441,6 +9441,28 @@
       "published": "2026-06-15T01:05:39+00:00",
       "title": "And so it begins\u2026 \ud83c\uddfa\ud83c\uddf8\ud83e\udd85",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7651422028456611086"
+    },
+    "tiktok:whitehouse:7651436763486932237": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-15T07:01:00.798241+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/15/7651436763486932237",
+      "platform": "tiktok",
+      "post_id": "7651436763486932237",
+      "published": "2026-06-15T02:02:50+00:00",
+      "title": "Auramaxxing\ud83d\udd25",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7651436763486932237"
+    },
+    "tiktok:whitehouse:7651510597695048973": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-15T07:01:00.798196+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/15/7651510597695048973",
+      "platform": "tiktok",
+      "post_id": "7651510597695048973",
+      "published": "2026-06-15T06:49:41+00:00",
+      "title": "Year of the Patriot fr \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7651510597695048973"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -115294,6 +115316,17 @@
       "published": "2026-06-14T22:27:37.038000+00:00",
       "title": "This Great Deal will bring Peace and Security to the whole Region. Many presidents have tr...",
       "url": "https://truthsocial.com/@realDonaldTrump/116750814874397998"
+    },
+    "truthsocial:realdonaldtrump:116751695843977621": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-15T07:00:46.956383+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/15/116751695843977621",
+      "platform": "truthsocial",
+      "post_id": "116751695843977621",
+      "published": "2026-06-15T02:11:39.568000+00:00",
+      "title": "Truth Social post 116751695843977621",
+      "url": "https://truthsocial.com/@realDonaldTrump/116751695843977621"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

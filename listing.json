@@ -1,6 +1,111 @@
 {
-  "generatedAt": "2026-06-15T01:43:42.313499+00:00",
+  "generatedAt": "2026-06-15T07:04:55.664070+00:00",
   "records": [
+    {
+      "category": "TikTok",
+      "date": "2026-06-15",
+      "id": "socials:cabf24df8c00a2cf",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-15T07:01:00.798196+00:00",
+        "datePublished": "2026-06-15T06:49:41+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651510597695048973.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651510597695048973.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651510597695048973",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651510597695048973.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651510597695048973.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651510597695048973.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651510597695048973"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/15/7651510597695048973/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/15/7651510597695048973/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651510597695048973",
+      "summary": "Year of the Patriot fr \ud83c\uddfa\ud83c\uddf8",
+      "title": "Year of the Patriot fr \ud83c\uddfa\ud83c\uddf8"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-15",
+      "id": "socials:5e9e45230d50f6e9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-15T07:00:46.956383+00:00",
+        "datePublished": "2026-06-15T02:11:39.568000+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_116751695471461428.mp4",
+            "remotePath": "archive/truthsocial/realdonaldtrump/b4da98efad900c75.mp4",
+            "sourceUrl": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/751/695/471/461/428/original/b4da98efad900c75.mp4",
+            "url": "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b4da98efad900c75.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_116751695471461428.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/b4da98efad900c75.mp4"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116751695843977621"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/15/116751695843977621/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/15/116751695843977621/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116751695843977621",
+      "summary": null,
+      "title": "Truth Social post 116751695843977621"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-15",
+      "id": "socials:2ad50e83aa835bf7",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-15T07:01:00.798241+00:00",
+        "datePublished": "2026-06-15T02:02:50+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7651436763486932237.mp4",
+            "remotePath": "archive/tiktok/whitehouse/7651436763486932237.mp4",
+            "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651436763486932237",
+            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7651436763486932237.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7651436763486932237.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7651436763486932237.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7651436763486932237"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/15/7651436763486932237/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/15/7651436763486932237/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7651436763486932237",
+      "summary": "Auramaxxing\ud83d\udd25",
+      "title": "Auramaxxing\ud83d\udd25"
+    },
     {
       "category": "TikTok",
       "date": "2026-06-15",
