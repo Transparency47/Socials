@@ -1,7 +1,106 @@
 # TruthSocial / RealDonaldTrump / 2026-06-15
 
-- Posts: 1
+- Posts: 34
 
+- [13:11 UTC - Sadly, if you import people from Third World Countries, you quickly become a Third World C...](116754288530173924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754288530173924
+  - Sadly, if you import people from Third World Countries, you quickly become a Third World Country — And there’s not a thing you can do about it. MAKE AMERICA GREAT AGAIN! President...
+- [13:10 UTC - ‘Thank You, President Trump’: Reflecting Pool in D.C. Wows After Trump Renovations: [https...](116754287044319129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754287044319129
+  - ‘Thank You, President Trump’: Reflecting Pool in D.C. Wows After Trump Renovations: [https://www. breitbart.com/politics/2026/06 /08/thank-you-president-trump-reflecting-pool-d-c-w...
+- [13:10 UTC - Trump makes a splash with Oval Office chart comparing reflecting pool to skyscrapers: [htt...](116754286017145061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754286017145061
+  - Trump makes a splash with Oval Office chart comparing reflecting pool to skyscrapers: [https://www. washingtonexaminer.com/news/wh ite-house/4594088/trump-makes-splash-oval-office-...
+- [13:10 UTC - U.S. Counts Far More Hormuz Ship Transits Than Commercial Tracking Data Shows: [https:// g...](116754285003421395/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754285003421395
+  - U.S. Counts Far More Hormuz Ship Transits Than Commercial Tracking Data Shows: [https:// gcaptain.com/u-s-counts-far-mo re-hormuz-ship-transits-than-commercial-tracking-data-shows/...
+- [13:09 UTC - Dems replace ‘mother’ with ‘gestating parent’ in latest woke rewrite of NY law: [https:// ...](116754283174782714/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754283174782714
+  - Dems replace ‘mother’ with ‘gestating parent’ in latest woke rewrite of NY law: [https:// nypost.com/2026/06/03/us-news/ dems-replace-mother-with-gestating-parent-in-latest-woke-re...
+- [13:06 UTC - Ships are starting to move, many loaded up with Oil, out of the Strait of Hormuz. They are...](116754269577470122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754269577470122
+  - Ships are starting to move, many loaded up with Oil, out of the Strait of Hormuz. They are going along the Southern “Highway,” which is totally safe, secure, and pristine. There ar...
+- [12:46 UTC - Truth Social post 116754192088267946](116754192088267946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754192088267946
+  - _No text content captured._
+- [12:46 UTC - Truth Social post 116754191159188049](116754191159188049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754191159188049
+  - _No text content captured._
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Trump scores once-elusive...](116754024963336496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754024963336496
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Trump scores once-elusive peace deal with Iran, easing oil prices ahead of elections: [https:// justthenews.com/gov...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Under the disastrous Open...](116754024740902171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754024740902171
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Under the disastrous Open Border Policy of Crooked Joe Biden and his traitorous DHS Secretary Alejandro Mayorkas, T...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) On July 4th, at The Linco...](116754024513118460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754024513118460
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) On July 4th, at The Lincoln Memorial and Washington Monument, in beautiful and safe Washington D.C., we are going t...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Wednesday, June 24th, wil...](116754024347896013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754024347896013
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Wednesday, June 24th, will be the “kick off” of our summer long Celebration of 250 Years of American Independence!...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The UFC at the White Hous...](116754024094818608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754024094818608
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The UFC at the White House last night was incredible. The weather was scheduled to be horrendous, and it turned out...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Eric Metaxas, a great guy...](116754023813635526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754023813635526
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Eric Metaxas, a great guy, has written an incredible new book, “Revolution: The Birth of the Greatest Nation in the...
+- [12:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Dumocrats want FISA b...](116754023501669536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754023501669536
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Dumocrats want FISA because that’s what they used to go after me for three years during my First Term! I’m agai...
+- [12:02 UTC - Congressman Barry Moore, an America First Patriot who has been with me from the very begin...](116754020702467123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754020702467123
+  - Congressman Barry Moore, an America First Patriot who has been with me from the very beginning (He was the first Elected Official in the Country to Endorse me!), is running for the...
+- [12:02 UTC - It is my Great Honor to endorse “MAGA” Mike Collins, a Highly Respected Congressman who ha...](116754019906128212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754019906128212
+  - It is my Great Honor to endorse “MAGA” Mike Collins, a Highly Respected Congressman who has been with me from the very beginning, and is running for the United States Senate in Geo...
+- [12:02 UTC - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the ne...](116754018976262039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754018976262039
+  - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the next Governor of the Great State of Georgia, a very special place to me in that we had a BIG...
+- [12:01 UTC - It is my Great Honor to endorse MAGA Warrior, Mike Mazzei, who is running for Governor of ...](116754016895261150/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754016895261150
+  - It is my Great Honor to endorse MAGA Warrior, Mike Mazzei, who is running for Governor of Oklahoma, a State which I love, and WON BIG — All 77 out of 77 Counties in 2016, 2020, and...
+- [12:01 UTC - It is my Great Honor to endorse T.W. Shannon, an America First Patriot who is running for ...](116754015025026424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754015025026424
+  - It is my Great Honor to endorse T.W. Shannon, an America First Patriot who is running for Lieutenant Governor of Oklahoma, a place I love and WON BIG, winning all 77 out of 77 Coun...
+- [12:01 UTC - Kevin Hern, from the Wonderful State of Oklahoma (where I won all 77 out of 77 Counties, i...](116754014230774302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754014230774302
+  - Kevin Hern, from the Wonderful State of Oklahoma (where I won all 77 out of 77 Counties, in 2016, 2020, and 2024!), is a Great Patriot, and FANTASTIC Congressman. A true friend of...
+- [12:01 UTC - It is my Great Honor to endorse MAGA Warrior, Jackson Lahmeyer, who is running to represen...](116754013631896603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754013631896603
+  - It is my Great Honor to endorse MAGA Warrior, Jackson Lahmeyer, who is running to represent the fantastic people of Oklahoma’s 1st Congressional District, and has been with me from...
+- [12:00 UTC - Congressman Josh Brecheen is doing a fantastic job representing the wonderful people of Ok...](116754012612389383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754012612389383
+  - Congressman Josh Brecheen is doing a fantastic job representing the wonderful people of Oklahoma’s 2nd Congressional District! Josh is a Conservative Warrior who has strong support...
+- [12:00 UTC - Congressman Frank Lucas is an incredible Representative for the wonderful people of Oklaho...](116754011972787542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754011972787542
+  - Congressman Frank Lucas is an incredible Representative for the wonderful people of Oklahoma’s 3rd Congressional District! A Fifth Generation Oklahoman, and lifelong Farmer and Ran...
+- [12:00 UTC - Congressman Tom Cole is a Tremendous Champion for Oklahoma’s 4th Congressional District! A...](116754011009785366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754011009785366
+  - Congressman Tom Cole is a Tremendous Champion for Oklahoma’s 4th Congressional District! As the Chairman of the POWERFUL House Appropriations Committee, Tom knows the America First...
+- [12:00 UTC - Congresswoman Stephanie Bice is doing a truly fantastic job representing the incredible pe...](116754009812784672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116754009812784672
+  - Congresswoman Stephanie Bice is doing a truly fantastic job representing the incredible people of Oklahoma’s 5th Congressional District! Stephanie has a strong Record of Success, a...
+- [11:50 UTC - Trump scores once-elusive peace deal with Iran, easing oil prices ahead of elections: [htt...](116753971776687226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753971776687226
+  - Trump scores once-elusive peace deal with Iran, easing oil prices ahead of elections: [https:// justthenews.com/government/sec urity/montrump-etches-iran-peace-deal-after-months-fa...
+- [10:38 UTC - Under the disastrous Open Border Policy of Crooked Joe Biden and his traitorous DHS Secret...](116753690331106553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753690331106553
+  - Under the disastrous Open Border Policy of Crooked Joe Biden and his traitorous DHS Secretary Alejandro Mayorkas, TENS OF MILLIONS of criminals, including over 13,000 STONE-COLD MU...
+- [10:34 UTC - On July 4th, at The Lincoln Memorial and Washington Monument, in beautiful and safe Washin...](116753672230328052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753672230328052
+  - On July 4th, at The Lincoln Memorial and Washington Monument, in beautiful and safe Washington D.C., we are going to host the most spectacular TRUMP RALLY of them all, a “TRIBUTE T...
+- [10:32 UTC - Wednesday, June 24th, will be the “kick off” of our summer long Celebration of 250 Years o...](116753666622772186/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753666622772186
+  - Wednesday, June 24th, will be the “kick off” of our summer long Celebration of 250 Years of American Independence! Come and enjoy a night filled with beautiful music from our talen...
+- [10:14 UTC - The UFC at the White House last night was incredible. The weather was scheduled to be horr...](116753595710726312/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753595710726312
+  - The UFC at the White House last night was incredible. The weather was scheduled to be horrendous, and it turned out to be PERFECT! So much for weather predicting. The Fighters were...
+- [10:14 UTC - Eric Metaxas, a great guy, has written an incredible new book, “Revolution: The Birth of t...](116753593805396252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753593805396252
+  - Eric Metaxas, a great guy, has written an incredible new book, “Revolution: The Birth of the Greatest Nation in the History of the World.” As we celebrate our Nation’s 250th Birthd...
+- [07:57 UTC - The Dumocrats want FISA because that’s what they used to go after me for three years durin...](116753053952043436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116753053952043436
+  - The Dumocrats want FISA because that’s what they used to go after me for three years during my First Term! I’m against FISA if it doesn’t come with The Save America Act (Full versi...
 - [02:11 UTC - Truth Social post 116751695843977621](116751695843977621/)
   - Source: https://truthsocial.com/@realDonaldTrump/116751695843977621
   - _No text content captured._
