@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=ubHnI9U_yqM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=ubHnI9U_yqM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/yMfnKm7Rj2k: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=yMfnKm7Rj2k! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -115723,6 +115723,50 @@
       "published": "2026-06-15T23:17:52.376000+00:00",
       "title": "Iran has agreed to never have a Nuclear Weapon! Also, the story that the U.S. is paying Ir...",
       "url": "https://truthsocial.com/@realDonaldTrump/116756674797972374"
+    },
+    "truthsocial:realdonaldtrump:116760641102604510": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T17:30:14.769232+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/16/116760641102604510",
+      "platform": "truthsocial",
+      "post_id": "116760641102604510",
+      "published": "2026-06-16T16:06:33.381000+00:00",
+      "title": "US attorney in California suspects voter fraud investigation will result in charges: [http...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116760641102604510"
+    },
+    "truthsocial:realdonaldtrump:116760642672400305": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T17:30:14.768596+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/16/116760642672400305",
+      "platform": "truthsocial",
+      "post_id": "116760642672400305",
+      "published": "2026-06-16T16:06:57.335000+00:00",
+      "title": "Former Trump economist says Iran deal means big economic boom for US: [https:// justthenew...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116760642672400305"
+    },
+    "truthsocial:realdonaldtrump:116760662558632411": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T17:30:14.767905+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/16/116760662558632411",
+      "platform": "truthsocial",
+      "post_id": "116760662558632411",
+      "published": "2026-06-16T16:12:00.779000+00:00",
+      "title": "FBI stopped alleged terror plot to attack UFC 250 event with drones and snipers, officials...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116760662558632411"
+    },
+    "truthsocial:realdonaldtrump:116760664101169055": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T17:30:14.767358+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/16/116760664101169055",
+      "platform": "truthsocial",
+      "post_id": "116760664101169055",
+      "published": "2026-06-16T16:12:24.312000+00:00",
+      "title": "Biden DOJ targeted parents at school board meetings despite FBI, sheriffs' objections, mem...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116760664101169055"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
