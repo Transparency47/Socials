@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/yMfnKm7Rj2k: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=yMfnKm7Rj2k! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/E42bC7_2ddU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=E42bC7_2ddU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -173188,6 +173188,17 @@
       "title": "President Trump Celebrates Passage of the One Big Beautiful Bill at Iowa State Fairgrounds",
       "url": "https://www.youtube.com/watch?v=uYe_fvFzLRg"
     },
+    "youtube:whitehouse:ubHnI9U_yqM": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T20:26:12.909718+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/16/ubHnI9U_yqM",
+      "platform": "youtube",
+      "post_id": "ubHnI9U_yqM",
+      "published": "2026-06-16T12:45:13+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of the United Arab Emirates",
+      "url": "https://www.youtube.com/watch?v=ubHnI9U_yqM"
+    },
     "youtube:whitehouse:ucF9WtV76dc": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -173947,6 +173958,17 @@
       "title": "\u201cNo Tax on Tips Is Genius.\u201d Pass the One Big Beautiful Bill!",
       "url": "https://www.youtube.com/watch?v=xTDGuN5sgUo"
     },
+    "youtube:whitehouse:xTIJJ_GAPvQ": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T20:26:14.373835+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/16/xTIJJ_GAPvQ",
+      "platform": "youtube",
+      "post_id": "xTIJJ_GAPvQ",
+      "published": "2026-06-16T10:06:55+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the Emir of the State of Qatar",
+      "url": "https://www.youtube.com/watch?v=xTIJJ_GAPvQ"
+    },
     "youtube:whitehouse:xUPpe-An4Y4": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -174243,6 +174265,17 @@
       "published": "2026-02-25T03:54:08+00:00",
       "title": "Dems stay seated at SOTU in front of angel families & those injured due to illegal alien crime",
       "url": "https://www.youtube.com/watch?v=yHgUewFZsnI"
+    },
+    "youtube:whitehouse:yMfnKm7Rj2k": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T20:26:11.304423+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/16/yMfnKm7Rj2k",
+      "platform": "youtube",
+      "post_id": "yMfnKm7Rj2k",
+      "published": "2026-06-16T15:11:55+00:00",
+      "title": "\"Not a SINGLE CENT of American money goes to Iran\" -  VP JD Vance",
+      "url": "https://www.youtube.com/shorts/yMfnKm7Rj2k"
     },
     "youtube:whitehouse:yNqHRvLUwQw": {
       "account": "WhiteHouse",

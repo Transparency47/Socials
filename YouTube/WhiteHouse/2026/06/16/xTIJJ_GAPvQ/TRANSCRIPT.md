@@ -1,0 +1,589 @@
+<!-- source: https://www.youtube.com/watch?v=xTIJJ_GAPvQ -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: xTIJJ_GAPvQ -->
+<!-- date_published: 2026-06-16T10:06:55+00:00 -->
+<!-- date_accessed: 2026-06-16T20:26:14.373835+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the Emir of the State of Qatar
+
+- [00:10.240] Thank you very much everybody.
+- [00:12.719] We appreciate you being here. We've had
+- [00:15.360] a great meeting. We have a great
+- [00:16.640] relationship. The Amir is a fantastic
+- [00:19.920] man respected all over the world. Prime
+- [00:23.039] Minister likewise
+- [00:25.119] and but we have to go the Amir first. Do
+- [00:26.880] you agree Mr.
+- [00:29.760] people
+- [00:32.095] [clears throat]
+- [00:32.800] but highly respected people, great
+- [00:34.719] people and we work very well together.
+- [00:38.800] We have our deal done with Iran and uh
+- [00:43.040] it should be successful. It goes to a
+- [00:46.480] second stage which I think will be
+- [00:47.920] actually easier.
+- [00:50.399] I didn't want to attack them last week
+- [00:52.160] but we had no choice
+- [00:54.480] and we did it twice actually. We're
+- [00:56.239] doing it a third time and uh we're able
+- [00:59.120] to not have to do that, but we have a
+- [01:01.760] deal that's a fair deal. It's a good
+- [01:03.280] deal. Um we are not investing any money
+- [01:06.400] in Iran. By the way, that rumor got out
+- [01:09.520] there yesterday was ridiculous. Uh we
+- [01:12.000] have the right to go in someday and do
+- [01:14.080] if I want to do something or somebody
+- [01:15.840] wants to do something, but uh we are not
+- [01:18.320] investing any money. We have no
+- [01:19.759] obligation to invest any money in Iran.
+- [01:24.159] uh working with Qar and the people of
+- [01:26.640] Qar uh was really a pleasure. They are
+- [01:30.320] they were tough, they were strong, you
+- [01:31.840] know, they are the closest to Iran
+- [01:34.000] physically. So with other countries, I
+- [01:36.479] noticed I had to travel about 45 minutes
+- [01:38.479] to get there. With you, you could walk
+- [01:40.640] right across the border. So you were in
+- [01:42.880] a more dangerous position. But I just I
+- [01:46.320] do have to say you fought and you helped
+- [01:49.280] us and with great bravery. So, I just
+- [01:52.479] want to compliment you on that and uh
+- [01:55.200] you'll always be my friend.
+- [01:57.200] >> Well, thank you very much, Mr.
+- [01:58.560] President. It's always a pleasure uh
+- [02:00.320] seeing you. I want to thank you for your
+- [02:02.640] leadership in this very very important
+- [02:04.880] critical time in the Middle East. And I
+- [02:07.439] think as you mentioned, Mr. President,
+- [02:09.520] this is a very important deal. There's
+- [02:12.640] still a lot of work to be done, but I
+- [02:14.560] think, you know, uh with this momentum,
+- [02:16.800] if we continue like that, Mr. president,
+- [02:18.879] I think we can achieve and do great in
+- [02:20.720] the in the in the region. So, it's going
+- [02:22.239] to be very important for the region,
+- [02:23.840] very important also for Iran as well.
+- [02:26.560] So, we are here to help whenever you
+- [02:29.440] know friends ask us to help. We're
+- [02:32.080] always here uh to help. Of course, also
+- [02:34.640] our bilateral relationship, Mr.
+- [02:36.319] President, since your historic visit in
+- [02:38.800] DHA last year, our trade partnership is
+- [02:42.879] going to reach $1.2 2 trillion dollars
+- [02:45.200] and this is huge and we have a lot of
+- [02:47.440] great investments that we're very proud
+- [02:49.120] of as well in the US and also American
+- [02:51.599] companies investing in PA. So overall
+- [02:54.879] you know um we are very very proud and
+- [02:57.360] very uh happy about this relationship
+- [03:00.560] and you know I also I once again thank
+- [03:03.280] you very much for your leadership. I
+- [03:04.720] think it was a very critical time but I
+- [03:06.640] think you did you took the right
+- [03:07.840] decision. Thank you.
+- [03:08.800] >> Thank you.
+- [03:09.599] >> Thank you. Uh Qatar is going to be
+- [03:11.760] investing much more than a trillion
+- [03:14.159] dollars in the United States. We have
+- [03:16.879] over 18. It's going to be 19.4
+- [03:20.239] or so when it figures out. But you know,
+- [03:23.599] we set a record. There's never been
+- [03:25.040] anything like it. No country in history
+- [03:26.720] has had that kind of investment. We'll
+- [03:29.120] be having uh almost 19.1 19.2 trillion
+- [03:34.159] dollars invested in the United States.
+- [03:36.000] The record was three 10 years ago from
+- [03:38.879] another country. when it was hot, but we
+- [03:41.519] have the hottest country in the world
+- [03:42.799] right now. But Qar's been a a great
+- [03:46.319] investor. We we really rekindled
+- [03:48.959] ourselves when I met with you last year,
+- [03:51.599] a year ago. Probably 13 13 14 months.
+- [03:55.120] That was a good trip. And uh
+- [03:58.400] >> so many lost me I think. I mean,
+- [04:02.319] >> that was uh that was a great trip. And
+- [04:05.680] we had we established we we've been
+- [04:08.080] friends for a long time. We've known
+- [04:09.439] each other for a long time, but Qatar is
+- [04:11.760] investing tremendous amounts of money in
+- [04:13.680] our country and we appreciate that. Our
+- [04:16.560] country is doing we're building more
+- [04:18.560] factories, AI. We're leading AI by a
+- [04:21.519] lot. We're building automobile
+- [04:23.280] factories. We're building more than
+- [04:24.479] we've ever built in the history of our
+- [04:26.479] country. Never. No country is ever doing
+- [04:28.800] what we're doing right now. No country
+- [04:30.400] has ever been able to do. And those
+- [04:33.680] factories will be opening over the next
+- [04:35.440] year, year and a half. Some are already
+- [04:38.400] open very soon. The pharmaceutical
+- [04:41.840] companies come companies are coming
+- [04:43.440] back. The car companies are coming back
+- [04:46.000] from Germany, from Japan, from so many
+- [04:48.400] other places. Mexico and Canada. They're
+- [04:51.840] all coming back. We lost them foolishly
+- [04:54.800] years ago because we had presidents that
+- [04:56.560] didn't really know what they were doing.
+- [04:57.840] They should have never lost. But they're
+- [04:59.680] all coming back in beautiful, brand new,
+- [05:01.600] gleaming factories. In fact, there are a
+- [05:03.919] couple of big old plants. And I said,
+- [05:06.560] "Are you going to use that plant?" And
+- [05:08.080] they said, "No, we're building brand
+- [05:09.280] new. They're knocking it down.
+- [05:11.039] Everything's built brand new, beautiful.
+- [05:12.720] It's jobs." And uh the auto business,
+- [05:16.240] we're going to bring back probably, you
+- [05:18.800] know, we lost 57% of our automobile
+- [05:21.199] business. I think we're going to bring
+- [05:23.039] bring it mostly back. And for chips, uh
+- [05:27.280] we were the king of chips and then it
+- [05:29.759] got stolen from us. We were we went from
+- [05:32.960] being the king to having basically no
+- [05:34.639] chip business. The chips act that was
+- [05:37.120] done by uh Biden was a disaster. Just a
+- [05:43.440] stupid thing to do. You handed billions
+- [05:46.000] and billions of dollars to people and
+- [05:47.440] then they didn't build the factory. But
+- [05:49.360] we have a different system. We have a
+- [05:50.880] system that if they don't build, they
+- [05:52.800] get paid tariffs. They have to pay
+- [05:54.560] tariffs of upwards of 200%.
+- [05:58.080] They don't have to pay anything for a
+- [05:59.440] little while, but if they don't get
+- [06:00.560] their plant built, then we going to we
+- [06:03.120] would have I think 50% of the chip
+- [06:06.400] industry by the time I leave office. So
+- [06:08.960] maybe more. Uh they're building mostly
+- [06:11.840] coming out of Taiwan, but they're
+- [06:14.160] building and a lot of them for whatever
+- [06:15.919] reason in Arizona, Arizona, Texas. But
+- [06:19.039] we'll have 50% maybe more than that of
+- [06:21.120] the chip industry. We're going to have
+- [06:23.440] we'll be making almost all of our
+- [06:25.199] pharmaceuticals and likewise that uh if
+- [06:28.720] they don't build they'll have 150 to
+- [06:31.440] 200% tariff to pay. If they do build
+- [06:34.639] they have no tariff to pay. So our
+- [06:38.400] country has never done anything like
+- [06:40.000] this. And just I want to mention Iran.
+- [06:42.960] Uh we appreciate the relationship we've
+- [06:45.280] had over the short period of time with
+- [06:46.960] Iran.
+- [06:48.400] The primary thing it's, you know, we can
+- [06:50.240] talk about the Iran deal all day long.
+- [06:52.800] We're not investing any money. We have
+- [06:54.639] the right to if we want, but we're not
+- [06:56.240] investing any money. We didn't pay for
+- [06:59.039] it like Obama did. He paid billions of
+- [07:02.080] dollars. He paid 1.7 billion from an
+- [07:05.280] airplane, all green cash. It was crazy.
+- [07:07.759] I watched that. I I couldn't believe it.
+- [07:10.319] But the one thing that's happening
+- [07:12.560] that's of note, frankly, the only thing
+- [07:15.039] that really matters to me is Iran will
+- [07:17.919] never have a nuclear weapon. And it says
+- [07:20.880] it loud and clear. They're not going to
+- [07:23.039] develop it. They're not going to buy it.
+- [07:25.840] They're not going to do anything with
+- [07:27.120] it. And if they do, they suffer
+- [07:29.280] unbelievable consequences.
+- [07:32.240] uh not just a little bit like
+- [07:36.639] uh I won't even tell you the
+- [07:38.160] consequences but the consequences are
+- [07:40.639] the ultimate consequences and with that
+- [07:42.560] being said I hope we have a very good
+- [07:44.000] relationship but the biggest thing is
+- [07:46.560] they will not have a nuclear weapon and
+- [07:49.919] that's the reason I got in and that's
+- [07:52.560] the reason I agreed to sign and we
+- [07:55.599] originally had Marco was uh with me and
+- [07:58.639] they originally wrote that we will not
+- [08:00.400] develop a nuclear a weapon. I said, "No,
+- [08:02.960] no, you're not going to develop it.
+- [08:04.800] You're not going to buy either." So, we
+- [08:07.199] have uh that took another couple of days
+- [08:09.199] of time. Everything was it's ridiculous.
+- [08:13.280] But so, we have they will not develop,
+- [08:16.879] purchase, buy or any other thing.
+- [08:18.639] They're not going to acquire a nuclear
+- [08:21.120] weapon. If they do, all hell will rain
+- [08:24.639] down on them. And they're not going to
+- [08:26.639] do that. You know, now you talk about
+- [08:29.680] regime change. I never cared about
+- [08:31.280] regime change. Was never a part. But I
+- [08:33.279] guess you have regime change because you
+- [08:35.519] know better than anybody. The first
+- [08:36.880] group, they're all dead. The second
+- [08:39.760] group, they're dead. A part of the third
+- [08:42.399] group is gone. And we're dealing with
+- [08:45.200] people that I think are very rational
+- [08:46.880] people. They were nice to deal with.
+- [08:50.000] They were strong people, smart people. I
+- [08:52.240] think actually they're smarter than the
+- [08:53.680] first and second group, but they're not
+- [08:57.200] radicalized and they're, you know,
+- [09:00.080] looking to help their country. So, uh,
+- [09:05.200] again, I I don't believe the regime
+- [09:07.839] change. You know, I've watched regime
+- [09:09.600] changes for years that they never work.
+- [09:12.320] It has to just happen. I can tell you
+- [09:15.040] this is a country where the amir is so
+- [09:17.920] respected and the prime minister is so
+- [09:19.760] respected by the people and that's the
+- [09:21.920] way a country should run should run out
+- [09:23.680] of respect not of fear. Uh as you know
+- [09:27.360] at least 42,000 protesters were killed
+- [09:30.720] in Iran. Killed that were protested. the
+- [09:34.000] wrestler. They had the big event at the
+- [09:36.720] White House the other day in the UFC and
+- [09:38.880] they were all talking about he was a
+- [09:40.320] great fighter and he was hung with his
+- [09:43.200] two friends because he spoke something
+- [09:46.399] about their regime.
+- [09:49.200] It's tough stuff. So, uh we're very
+- [09:52.240] happy that we were involved. We're very
+- [09:55.279] very impressed with Qar and the way
+- [09:57.839] they've handled things because they were
+- [10:00.399] really on the line. They were in the
+- [10:01.600] front line. They were being shot at just
+- [10:04.160] about as much as anybody, but you were a
+- [10:05.920] lot closer. You were right there.
+- [10:08.000] Literally, I could walk in a minute.
+- [10:11.440] Every every other place I have to take a
+- [10:13.600] plane, but I can walk. So, they were
+- [10:15.839] really on the line. And I just want to
+- [10:17.920] comment that uh and you should be I just
+- [10:20.880] want to really congratulate you on
+- [10:22.800] bravery. I don't know if you get
+- [10:24.000] congratulated for bravery because
+- [10:26.000] bravery is something you either have or
+- [10:28.240] you don't and you never know until
+- [10:29.680] you're tested. But you were tested and
+- [10:31.680] you had great bravery. Thank you very
+- [10:34.000] much.
+- [10:35.120] >> Thank you. Really appreciate it.
+- [10:36.480] >> Are you going to have a separate meeting
+- [10:38.000] with President Zinski? And what would
+- [10:40.079] >> I had one
+- [10:40.720] >> what would a Ukraine deal look like?
+- [10:43.040] >> Well, we have one, but uh we had a good
+- [10:45.440] meeting. I'm meeting him later on. We
+- [10:47.920] had a very good meeting. Look, Russia
+- [10:49.839] should make a deal. Russia's lost
+- [10:51.920] tremendous amounts of people and so is
+- [10:53.680] Ukraine.
+- [10:55.680] Last month they lost 35,000 soldiers
+- [10:59.760] between the two of them. Think of this
+- [11:02.480] on a monthly basis they averaged 25,000
+- [11:05.279] people. Mostly soldiers, young
+- [11:09.279] >> young beautiful people
+- [11:11.839] and it's crazy what's going on there.
+- [11:13.600] But uh we had a meeting and we'll see. I
+- [11:16.959] spoke with President Putin on Sunday
+- [11:20.720] and it's sort of the same thing. I mean,
+- [11:22.480] they just keep going, fighting, losing
+- [11:24.320] soldiers. They lose so many soldiers.
+- [11:28.000] This is not since World War II has
+- [11:30.320] anything like this happened. I settled
+- [11:32.000] eight wars. This was the one I thought
+- [11:34.399] was going to be the easiest settle. They
+- [11:36.480] just there's a a lot of dislike between
+- [11:41.040] the two leaders. But yeah, I'm meeting
+- [11:44.240] with him again later on today.
+- [11:47.040] >> And are you going to have a special
+- [11:48.720] focus on Ukraine?
+- [11:49.920] >> I won't. We're going to look now. We
+- [11:51.279] focused on We were focused on Iran.
+- [11:54.160] That's going to be in the back in the
+- [11:56.800] rear view mirror. But we'll be I just
+- [11:59.839] look we have nothing to do with it. We
+- [12:01.760] sell weapons to them. We don't even give
+- [12:03.600] them. Obama gave them $350 billion worth
+- [12:07.040] of gave which was crazy. The European
+- [12:10.880] Union pays us full price for weapons.
+- [12:14.720] But it's not that. It's a this it has no
+- [12:17.680] impact on us other than we sell weapons.
+- [12:20.320] We're thousands of miles away. But the
+- [12:23.680] only reason I'm I don't like to see
+- [12:25.680] 25,000 young people die every month.
+- [12:28.880] Every month 25,000 people die. Young
+- [12:32.079] people, they're just starting their
+- [12:33.519] life. They go to this front and they get
+- [12:35.839] blown up. And Ukraine is losing a lot of
+- [12:38.959] people, too. I mean, the whole thing is
+- [12:40.480] ridiculous. So, uh yeah, I I'm going to
+- [12:43.680] do whatever I can. Mr. President, Mr.
+- [12:46.480] President, um, if the Iranian regime
+- [12:48.560] continues to kill their own people, will
+- [12:50.399] you still move ahead with this deal
+- [12:52.240] >> if they refuse to walk with their
+- [12:53.360] people?
+- [12:53.839] >> If they continue to kill their own
+- [12:55.600] people, the Iranian
+- [12:56.639] >> Well, we're talking we talked to them
+- [12:58.079] about it and we see I will say the
+- [13:01.680] majority of that took place during the
+- [13:04.079] first and second regimes,
+- [13:06.560] much more so than now.
+- [13:09.200] >> It was it was it was much it was much
+- [13:11.519] more severe, but it's a terrible thing.
+- [13:14.079] Yeah. Do you have a question?
+- [13:15.279] >> Yes, Mr. President. Um, what are the
+- [13:17.040] This is for both you and here. What are
+- [13:18.959] the economic opportunities?
+- [13:24.320] >> Well, I think they'd be good. I mean, I
+- [13:26.079] can tell you from our standpoint, we
+- [13:27.920] have a lot of opportunities all over the
+- [13:29.519] world, but the Amir lives right next
+- [13:31.760] door, and I think, you know, they have a
+- [13:33.279] lot of oil.
+- [13:35.120] I I think they'll be good. First,
+- [13:36.639] they're going to have to prove
+- [13:37.519] themselves, I think, before any of us go
+- [13:39.360] in there. But uh I could I hope they do
+- [13:43.519] well. I hope they do well. Look, one
+- [13:46.240] thing. Whether they do well or poorly,
+- [13:49.360] they can't have a nuclear weapon. That's
+- [13:51.360] a big thing. If they had a nuclear
+- [13:53.920] weapon, if they would have blown up
+- [13:55.440] Israel, they would have blown up the
+- [13:57.279] Middle East and they probably would have
+- [13:59.839] taken a shot at us. We would have gotten
+- [14:01.920] them first, I think. But they would have
+- [14:05.199] done tremendous damage. Had we not
+- [14:08.000] cancelled the Obama Obama
+- [14:11.920] nuclear deal, the JCPOA,
+- [14:15.199] you would have had them having a nuclear
+- [14:17.279] weapon 5 years ago. You know, that
+- [14:18.880] expired. That was a road to a nuclear
+- [14:21.199] weapon. It was the dumbest deal I've
+- [14:22.639] ever seen other than NAFTA. NAFTA maybe
+- [14:24.880] was even dumber. But just in terms of a
+- [14:27.360] bad deal for us, paid them billions and
+- [14:30.399] billions of dollars. We pay nothing.
+- [14:32.639] They paid him billions of dollars and it
+- [14:35.920] was it was a disaster. I terminated that
+- [14:38.880] in my first term. Had I not terminated
+- [14:40.959] and and we hit them hard, we terminated
+- [14:43.680] it. My second term, we sent in the B2
+- [14:46.399] bombers and we terminated their I call
+- [14:48.959] it the nuclear dust, their enriched
+- [14:50.720] material, right? Uh and totally
+- [14:54.320] effectively. And I remember when CNN,
+- [14:56.240] which is fake news, I know you probably
+- [14:58.880] CNN said, "Well, maybe it wasn't that
+- [15:00.720] effective." So the Atomic Energy just
+- [15:03.360] reported that it was one of the most
+- [15:05.519] devastating bombies that they've ever
+- [15:07.199] seen. The whole mountain collapsed on
+- [15:08.959] top of and frankly to go get it, we
+- [15:11.600] we're going to go get it. But to go get
+- [15:13.920] it is a big deal because they say only
+- [15:17.920] China and us have the equipment where
+- [15:19.519] you can even get the whole mountain is
+- [15:21.040] collapsed on top. We have cameras on it.
+- [15:24.240] You could make the case why you even
+- [15:26.399] bothering because it's not really
+- [15:27.680] valuable. It's, you know, it's probably
+- [15:30.160] half a million dollars worth. It's not
+- [15:32.240] very valuable stuff, but I think
+- [15:34.880] psychologically we want to get it.
+- [15:36.880] >> Can I just Can I just uh can I just
+- [15:38.800] answer you asked that. I think in the
+- [15:41.680] last couple of months or weeks, I think
+- [15:43.680] that wasn't our
+- [15:45.839] >> we were not interested in you know what
+- [15:47.839] are the opportunities economical
+- [15:49.279] opportunities in Iran. Our interest both
+- [15:51.120] of us was to first of all to find a deal
+- [15:53.519] to stop this war. This is our main uh
+- [15:56.480] target. But looking at the economy and
+- [15:58.560] the opportunity, I'm sure they're going
+- [15:59.759] to be huge opportunities and you know as
+- [16:02.399] long as I said this is a very important
+- [16:04.320] momentum to keep uh working like that to
+- [16:07.040] reach let's say the final deal after
+- [16:08.959] that Iran will be you know of course
+- [16:11.519] open for uh any kind of investments and
+- [16:14.000] I'm sure they're going to be huge
+- [16:15.360] opportunities but to be honest you know
+- [16:17.680] we never thought of it you know our
+- [16:20.160] target you know is to try to find a
+- [16:22.800] deal. Well, they're going to need
+- [16:24.880] something because we blew them up. And
+- [16:28.160] you know, you could make the case, I
+- [16:30.240] used to make the case that like a week
+- [16:32.800] ago, I said, and now it's different. We
+- [16:34.320] have an agreement. But if you if we
+- [16:36.800] left, we did a great job. If we just
+- [16:39.279] left, we did a great job because it
+- [16:41.680] would take them 15, 20 years maybe to
+- [16:44.560] rebuild.
+- [16:46.160] And we were going to do a much bigger
+- [16:48.079] job if the agreement wasn't signed. We
+- [16:50.959] would have taken it to a level. But and
+- [16:53.759] if we did that, they would never ever, I
+- [16:57.440] believe, be able to rebuild too much.
+- [17:00.399] >> Mr. President, what are the expectations
+- [17:02.399] for Israel? Can this deal survive if
+- [17:05.600] Israel attacks?
+- [17:07.520] >> It can. And you know, I consider that
+- [17:10.240] the minor war, Iran's the big one, but
+- [17:13.360] we have that little pin prick out there
+- [17:16.319] that constantly rears its head, and
+- [17:19.679] that's Hezbollah.
+- [17:21.679] And you know, I was very responsible for
+- [17:24.319] Syria. And the man that's running Syria
+- [17:26.880] now is a person that I put there along
+- [17:29.520] with President Erdogan and some others.
+- [17:32.080] He's done an amazing job of pulling it
+- [17:34.000] together. He's not a boy scout, but he's
+- [17:36.480] done an amazing job of p pulling it
+- [17:38.400] together.
+- [17:39.919] And he is very good with Hezbollah. Does
+- [17:43.520] not like them. And I'll tell you what,
+- [17:46.640] Israel's fighting Hezbollah too long.
+- [17:49.200] And too many people are being killed.
+- [17:51.520] And you don't have to knock down an
+- [17:53.120] apartment house every time you're
+- [17:54.400] looking for somebody because there are a
+- [17:56.400] lot of people in those apartment houses
+- [17:57.919] and they're not all Hezbollah. That I
+- [17:59.600] can tell you. And I suggested to Israel
+- [18:02.960] to let Syria take care of Hezbollah
+- [18:06.720] because to be honest with you, I think
+- [18:08.080] they do a better job of doing it.
+- [18:12.480] >> And I didn't like Syria. I didn't like
+- [18:15.039] where
+- [18:17.280] two hours before we're signing the
+- [18:18.799] agreement that there was an attack
+- [18:23.360] in Lebanon in Beirut. It was right. It
+- [18:25.919] wasn't like in the southern side and you
+- [18:28.080] know it was in Beirut. I did not like
+- [18:30.320] that. I let them know that. I didn't
+- [18:32.960] like it. Not at all. But I think that
+- [18:35.520] Syria, you know, he's he's pulled that
+- [18:37.120] country together amazingly quickly. He's
+- [18:39.280] very capable
+- [18:41.039] and he's been very good for me. He's
+- [18:42.799] protected everything that I've asked
+- [18:44.400] for, he's done.
+- [18:46.559] And
+- [18:48.080] if Israel can't do the job without
+- [18:50.720] killing everyone else, he'll do the job.
+- [18:53.760] Syria will do the job.
+- [18:55.440] >> Are you frustrated with Netanyahu?
+- [18:57.840] >> No. We had a great relationship.
+- [19:01.200] We're talking about uh some end details.
+- [19:05.039] I didn't like that he did an attack
+- [19:07.679] based on a, you know, there was a very
+- [19:10.240] minor
+- [19:12.960] little thing with some drones that were
+- [19:14.480] released and he ends up doing a very I
+- [19:16.960] saw that attack. I saw where that bomb
+- [19:19.200] went. Did you see what happened? That
+- [19:20.960] was not that was a vicious that was too
+- [19:23.840] much. You know, you can do too much
+- [19:26.400] also. But we've had a very effective
+- [19:30.000] relationship.
+- [19:31.600] Without us, without the United States,
+- [19:34.320] there would be no Israel.
+- [19:36.880] Without me, there would be no Israel
+- [19:38.400] because no other president was willing
+- [19:39.840] to do what I did.
+- [19:42.480] I've had a great relationship with BB.
+- [19:44.640] But now BB has to uh be more responsible
+- [19:48.880] with respect to Lebanon. Lebanon used to
+- [19:51.919] be a great country. It was a country
+- [19:53.440] where you had professors, doctors,
+- [19:55.520] lawyers.
+- [19:57.200] The great intellect was in Lebanon. Now
+- [20:00.240] it's just it's terrible. I would say of
+- [20:02.799] all countries they've been treated the
+- [20:04.240] worst
+- [20:06.000] and they can't defend themselves and
+- [20:07.760] they have Hezbollah which is a problem
+- [20:10.480] for them. So u no I'm not happy with the
+- [20:14.400] way
+- [20:15.919] Israel has handled themselves with
+- [20:18.240] Lebanon and with Hezbollah. They should
+- [20:21.440] have been able to do this job faster. It
+- [20:23.520] it just goes on forever. And when that
+- [20:26.400] happens, it throws a negative light on
+- [20:30.000] the big deal and that's a deal with
+- [20:31.520] Iran. So, so, uh, when you ask me about
+- [20:35.919] BB, an unbelievable relationship,
+- [20:40.320] but Israel would have been blown up a
+- [20:42.000] long time ago had I not gotten involved.
+- [20:44.000] Two things I did. I terminated the Iran
+- [20:48.400] nuclear deal. Barack Hussein Obama sold
+- [20:51.280] out Israel for Iran. He went to Iran. He
+- [20:54.720] sold him out. How anybody can vote for
+- [20:57.120] this guy or the party, the Democrats, I
+- [20:59.679] call them because they're dumb. They're
+- [21:01.280] dumb people.
+- [21:03.120] That's number one. How anybody can vote
+- [21:05.360] for them. And the second was the B2
+- [21:07.679] bombers just totally destroyed. So they
+- [21:10.960] had the right there. The JCPI. I watch
+- [21:13.760] these politicians. I watch a Senator
+- [21:15.840] Reid that nobody ever heard of the other
+- [21:17.360] day. Well, this deal is the same as the
+- [21:20.480] deal Barack Obama. No, this deal is a
+- [21:23.679] wall to a nuclear weapon. His deal was a
+- [21:28.080] road to a nuclear weapon. My deal, they
+- [21:31.679] can't have a nuclear they get blown up.
+- [21:33.280] If they have a nuclear weapon, they get
+- [21:35.360] blown up. In his deal, they were allowed
+- [21:38.640] to have a nuclear weapon. Uh if and in
+- [21:42.640] all fairness to BB BB I remember very
+- [21:45.520] well BB came to Washington and begged he
+- [21:48.720] begged Obama not to make that deal and
+- [21:51.840] Obama was on the side of Iran not Israel
+- [21:54.720] and he made the deal. That deal was a
+- [21:56.720] disaster. I terminated that deal and if
+- [21:59.840] I didn't terminate and and was very
+- [22:01.440] tough after the termination and if I
+- [22:03.840] didn't do that Howard knows better than
+- [22:05.360] anybody if I didn't terminate that deal
+- [22:07.760] I believe that uh they would have Israel
+- [22:10.880] wouldn't be here right now and the
+- [22:12.880] second one was what we did with respect
+- [22:14.799] to the uh nuclear dust as I call it
+- [22:18.559] right we blew it up the mountain
+- [22:20.960] collapsed on top it was you can't get to
+- [22:23.440] it and had they were two weeks away from
+- [22:26.880] having a nuclear weapon. And if they had
+- [22:29.120] a nuclear weapon, they would have used
+- [22:30.640] it on Israel and I hate to say it and
+- [22:33.280] probably the rest of the Middle East
+- [22:34.799] because they had all those missiles
+- [22:37.679] aimed at the Amir, at Saudi Arabia, at
+- [22:41.120] UAE, at Kuwait,
+- [22:44.080] at Bahrain. I mean the biggest surprise
+- [22:47.679] in this whole thing I didn't think you
+- [22:49.120] guys would I thought he would aim at
+- [22:51.760] Israel
+- [22:53.360] but he didn't aim at Israel much less he
+- [22:55.840] aimed at your countries and actually
+- [22:58.240] that was a mistake for them because it
+- [23:00.799] brought us these countries in particular
+- [23:04.080] the five countries it brought us I mean
+- [23:06.240] he even hit Turkey once
+- [23:09.360] >> I never understood it I ne nobody's
+- [23:11.760] going to understand it that's the
+- [23:13.600] problem they're totally irrational
+- [23:16.159] people and those people are now gone and
+- [23:19.360] I think Iran has rational leadership
+- [23:22.320] now.
+- [23:23.760] >> But you wouldn't have if it weren't for
+- [23:26.080] the United States of America with me
+- [23:28.640] because Obama was the opposite. Uh
+- [23:31.919] Israel would not exist right now. Israel
+- [23:34.080] would have been blown off the face of
+- [23:35.520] the earth 100%. And every smart person
+- [23:38.799] in Israel knows that. Okay. Thank you
+- [23:41.120] very much everybody. Thank you.

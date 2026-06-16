@@ -1,0 +1,381 @@
+<!-- source: https://www.youtube.com/watch?v=ubHnI9U_yqM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ubHnI9U_yqM -->
+<!-- date_published: 2026-06-16T12:45:13+00:00 -->
+<!-- date_accessed: 2026-06-16T20:26:12.909718+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the United Arab Emirates
+
+- [00:03.040] writer.
+- [00:12.240] >> Well, thank you very much everybody. I
+- [00:14.160] just want to say his highness is a
+- [00:16.480] warrior. He was in there fighting and he
+- [00:19.439] does what has to be done and he's known
+- [00:21.840] for it. He's a courageous man. He's got
+- [00:24.480] a great country. It's a fantastic
+- [00:28.080] country and they've been with the United
+- [00:31.199] States for a long time, but I would say
+- [00:33.440] much uh much more so since I came on
+- [00:36.880] board. I will say they've invested
+- [00:39.840] trillions of dollars in the United
+- [00:42.559] States and uh I was telling them before
+- [00:45.360] another meeting that we have over 19
+- [00:48.239] trillion dollars being invested in the
+- [00:50.000] United States, which is a record. and
+- [00:52.640] that's building factories, car plants,
+- [00:54.559] everything. We're we're doing things
+- [00:55.920] that have never been done. The record
+- [00:58.160] was three billion many years ago with a
+- [01:01.199] different country. Then we're going to
+- [01:03.199] be over 19. I think we'll head to 19.3
+- [01:06.560] trillion dollars. So there's probably
+- [01:09.200] not going to be anything. Maybe we'll do
+- [01:10.560] better next year. I don't know if it can
+- [01:13.200] I don't know if you can do better. But I
+- [01:15.600] just want to say that the relationship
+- [01:17.600] has been outstanding. He's a man of
+- [01:20.640] great respect. Everybody respects him
+- [01:22.479] and they respect your country and it's
+- [01:24.880] an honor to be with you and we just
+- [01:27.600] signed a deal with Iran and
+- [01:31.040] this country was very very a very
+- [01:33.920] powerful ally
+- [01:35.920] and good things are happening. The U
+- [01:39.200] ships are starting to move now. We're
+- [01:40.799] going to have it fully open by Friday.
+- [01:43.600] The ships are starting to move nicely.
+- [01:46.159] The oil is starting to go and the uh
+- [01:49.119] prices are coming down rapidly. Stock
+- [01:52.000] market is going up rapidly. A lot of
+- [01:53.840] good things are happening and most
+- [01:55.520] importantly Iran will not have a nuclear
+- [01:57.680] weapon. That was how I got involved in
+- [01:59.759] this. We can't let that happen. So they
+- [02:03.520] will not have a nuclear weapon. And
+- [02:06.079] other than that I'd like to ask to say a
+- [02:08.720] few words and if you want we can take a
+- [02:11.440] couple of questions please.
+- [02:13.520] >> Well it's really my pleasure. Mr.
+- [02:15.120] pleasure to be with you here
+- [02:17.599] and uh I want to say that we are so
+- [02:19.680] grateful to have you here and
+- [02:23.840] as a president of the United States and
+- [02:26.800] thank you for your support
+- [02:29.280] your commitment
+- [02:31.120] to your friend to your allies
+- [02:34.319] and special thank for your support
+- [02:36.879] during the six war six week war.
+- [02:40.160] >> Mhm. It mean a lot to us and uh you show
+- [02:44.239] us who is really alive
+- [02:46.720] and uh without your support your
+- [02:48.879] commitment to Mr. President not my
+- [02:51.599] country only but
+- [02:53.920] the Middle East will be in a different
+- [02:55.599] part different situation today. So uh
+- [03:00.560] really my pleasure to see you in today's
+- [03:02.400] Mr. And thank you for give us the time
+- [03:05.360] and there is a lot of things we can talk
+- [03:07.200] about for going forward between uh our
+- [03:11.120] two country how we can make our
+- [03:12.959] relationship even better.
+- [03:15.840] Well, thank you my friend.
+- [03:18.640] See when you're that rich you can speak
+- [03:21.920] that low. [laughter]
+- [03:25.040] I was just wondering can anybody hear
+- [03:26.720] that? But when you're so rich, you have
+- [03:29.200] such confidence that you don't have to
+- [03:31.840] do any strain to the voice. He's great.
+- [03:35.680] So, uh, do you have any questions for
+- [03:37.200] us?
+- [03:37.440] >> What should we expect from the second
+- [03:39.360] stage of the negotiation from this?
+- [03:42.000] >> I don't know. It's a 60-day period or
+- [03:43.599] so. I think it's going to happen fairly
+- [03:47.040] on time. We've been both involved. I
+- [03:49.760] think they're going to want to get it
+- [03:50.799] done. Iran wants to get it done. and
+- [03:52.959] they have to get back to business
+- [03:56.319] and the relationship is now normalized.
+- [04:00.720] So, I think it's going to go pretty
+- [04:02.159] quickly. Could go faster. Could take
+- [04:05.200] longer, too, but it could go faster.
+- [04:07.040] >> There's so much interest in the text of
+- [04:08.799] the document. Why not? Why not release
+- [04:10.720] the
+- [04:11.040] >> Oh, I will.
+- [04:11.840] >> Why not release?
+- [04:12.720] >> Well, because I I'd like to get a formal
+- [04:15.120] setting first before we do that. But I
+- [04:17.440] have no problem with that. It's grid
+- [04:19.280] document. Here's what it says. Iran will
+- [04:22.079] never have a nuclear weapon. That's what
+- [04:23.600] it says. It won't have one to buy, to
+- [04:26.800] develop. They will not have a nuclear
+- [04:29.199] weapon. And I would say that's about
+- [04:31.360] 99.9% of what I wanted because we
+- [04:34.720] couldn't let that happen. You couldn't
+- [04:36.479] let that happen. Uh and they won't have
+- [04:39.360] a nuclear weapon. Now, in addition to
+- [04:40.960] that, the straight is going to be open
+- [04:42.560] toll-free.
+- [04:44.160] And it's toll free beyond the 60 days.
+- [04:46.080] It's not Somebody said, "Oh, it's toll
+- [04:47.600] free for s." No, no, it's toll-free.
+- [04:50.240] Period. When it opens permanently, it'll
+- [04:53.040] be toll-free.
+- [04:54.720] Uh, I want to congratulate our Navy
+- [04:57.600] because the naval blockade was
+- [04:59.680] unbelievable.
+- [05:01.840] But I will actually I'll not only
+- [05:04.240] release it, I'll probably have a press
+- [05:06.479] conference and read it to you word by
+- [05:08.960] word so that the press covers it
+- [05:11.199] accurately
+- [05:13.039] because it's a it's a very important
+- [05:15.840] document and uh unlike Obama who could
+- [05:20.000] have destroyed the Middle East with a
+- [05:21.680] horrible JCPOA,
+- [05:25.680] it is the worst agreement that was a
+- [05:28.000] road to a nuclear weapon. mine is a wall
+- [05:30.400] against a nuclear weapon. I mean, I see
+- [05:33.039] these people say, "But we already had
+- [05:34.479] one." That was words. He paid a fortune
+- [05:36.560] for it. We paid nothing. We don't pay.
+- [05:38.479] There was some statement, "We're going
+- [05:40.320] to spend $300 billion." No, we're not.
+- [05:43.039] We're allowed to go and invest if we
+- [05:44.800] wanted to someday in the future. We have
+- [05:47.199] no obligation whatsoever. It could be
+- [05:49.600] that Iran will turn out to be successful
+- [05:52.160] when they have oil. But uh if we left
+- [05:58.400] a week ago, just left before the last
+- [06:01.280] two attacks, it would have taken them 20
+- [06:03.680] years to rebuild Iran. So, but I'll go
+- [06:06.960] over the document with the media in a
+- [06:10.880] couple of days.
+- [06:12.639] >> Mr. President, a few weeks back you said
+- [06:14.479] you'd like to see other nations join the
+- [06:16.560] Abraham Accords, much like the UAE has.
+- [06:19.120] Um have there been any discussions with
+- [06:20.960] Arab leaders about that?
+- [06:22.160] >> About what? joining the Abraham Accords
+- [06:24.160] like he does.
+- [06:25.280] >> Well, I'd love to have them. This is a
+- [06:27.120] man who's very advanced. He was early in
+- [06:30.160] and he's done very well with them. The
+- [06:32.880] whole the Abraham Accords. Uh no, it's
+- [06:36.880] uh I think I think they should happen.
+- [06:39.440] The big the big impediment to the
+- [06:41.919] Abraham Accords, we have our original
+- [06:44.080] countries, very smart countries, every
+- [06:46.880] one of them. Do you notice that even
+- [06:48.479] during that period of conflict, nobody
+- [06:51.039] dropped out? Nobody said, "Oh, gee, I'm
+- [06:52.639] going to drop out." Nobody. Um, I think
+- [06:55.759] they're all going to come in, you know,
+- [06:57.440] into the Abraham because the only
+- [07:01.039] conflict was a place called Iran. And I
+- [07:05.520] understand that, you know, it's a little
+- [07:07.039] bit tough when people were afraid of
+- [07:09.360] Iran. Uh, so, but I think they're going
+- [07:12.639] to all start coming in. Good question.
+- [07:15.199] Actually,
+- [07:15.919] >> Mr. President, what do you say to
+- [07:18.240] Republicans like Senator Lindsey Graham
+- [07:20.960] who is skeptical of theou
+- [07:24.080] um to
+- [07:25.759] >> Lindsay is skeptical?
+- [07:27.039] >> Yes.
+- [07:27.360] >> I'll have to talk to Lindsay. He'll be
+- [07:29.039] in big trouble.
+- [07:31.599] >> Lindsay's good. Lindsay is fine. He's
+- [07:33.599] not skeptical. He's just fine.
+- [07:35.759] >> Look, this agreement covers something
+- [07:38.240] very nicely. We're not paying for
+- [07:40.639] anything. We're not doing anything. The
+- [07:42.880] markets now are higher than they were
+- [07:44.639] when we started. Remember that the stock
+- [07:47.440] market now is 2500, maybe even more than
+- [07:51.199] that, points higher than it was when we
+- [07:53.199] said it's pretty amazing. Um,
+- [07:56.800] disagreements about one thing that Iran
+- [07:59.520] will never have a nuclear weapon. Never,
+- [08:01.759] ever, ever.
+- [08:03.840] The rest of it's irrelevant, frankly.
+- [08:06.639] Senator Graham also said that an
+- [08:08.400] eventual agreement with Iran should be
+- [08:10.720] uh sent to Congress for review. Would
+- [08:13.039] you do that?
+- [08:14.080] >> I never thought of it, but I would.
+- [08:16.639] >> I wouldn't mind. I mean, you know, the
+- [08:18.319] Democrats, you know, we call them
+- [08:19.759] Democrats because they're dumb people.
+- [08:21.919] The Democrats are
+- [08:25.280] Well, what I'd like to do is send it to
+- [08:27.360] Congress saying you shouldn't approve it
+- [08:29.919] and I'll get it approved. [laughter]
+- [08:32.000] They do whatever they whatever I say,
+- [08:34.000] they want to do the opposite. Uh, it's
+- [08:36.560] not working too well for him, by the
+- [08:38.080] way. But yeah, I I never thought about
+- [08:40.800] sending it. Never even thought about it.
+- [08:42.320] But I will I will send it to Congress. I
+- [08:44.240] like the idea.
+- [08:46.399] >> I mean, who wouldn't approve it? Let's
+- [08:48.320] Let's let them have a nuclear weapon.
+- [08:50.560] The Democrats will say, "Oh, they should
+- [08:52.240] have a nuclear weapon. They'll go
+- [08:54.000] crazy." I like the idea. Send it to
+- [08:56.080] Congress, please. All right.
+- [08:57.600] >> Mr. President, were you briefed on the
+- [09:00.320] attack
+- [09:01.839] plans for the UFC event at the White
+- [09:03.839] House? There was the FBI worded an
+- [09:07.600] attack.
+- [09:08.000] >> I haven't heard about it. No, but I
+- [09:09.839] watched the attack that I watched were
+- [09:11.760] the fighters [laughter]
+- [09:13.839] and he saw it too, by the way. He was
+- [09:15.600] sitting back home in his beautiful
+- [09:17.120] palace and he was watching that and they
+- [09:19.760] were as good a fights as I've ever seen.
+- [09:21.519] Right.
+- [09:21.839] >> The best fight.
+- [09:22.480] >> The best. They were That last fight was
+- [09:24.880] brutal.
+- [09:25.680] >> Wow.
+- [09:26.160] >> And uh the two last all of the fights
+- [09:28.800] two fights.
+- [09:29.680] >> It was all good. It was a great evening.
+- [09:31.440] It was uh very different for the White
+- [09:33.200] House, but uh I wish you could have been
+- [09:35.600] there. They uh we built an incredible
+- [09:37.440] arena.
+- [09:38.959] Dana did a great job.
+- [09:40.000] >> Is there going to be another fight next
+- [09:41.600] year?
+- [09:42.320] >> Well, I don't know.
+- [09:44.880] I got away with it because 250 years in
+- [09:48.480] maybe in another 50, maybe in 300.
+- [09:51.471] [laughter]
+- [09:52.480] >> Are you considering an increase on
+- [09:54.560] sanctions on Russia and whether to be
+- [09:57.040] >> Well, soon we'll be able to do that
+- [09:58.560] because the oil is now flowing. So we we
+- [10:01.680] put we took sanctions off because
+- [10:04.080] obviously we're not looking to impede
+- [10:05.519] the oil. So we're in a position to do
+- [10:07.600] that soon.
+- [10:09.600] >> Yeah.
+- [10:10.240] >> At some point.
+- [10:11.200] >> Mr. President, I have a question.
+- [10:13.360] >> Yes.
+- [10:14.959] >> What a nice looking person. Is he from
+- [10:16.640] your country?
+- [10:17.600] >> Is he from your country?
+- [10:18.640] >> Absolutely.
+- [10:19.120] >> No, he's got such a nice way about him.
+- [10:20.800] My people are so they're so mean.
+- [10:22.912] [laughter]
+- [10:23.760] >> Look at him. He has some I could put him
+- [10:25.760] be careful about.
+- [10:26.480] >> No, I can put him I could put him in a
+- [10:28.160] movie right now. Go ahead. How can we
+- [10:31.440] make sure that straight to foremost is
+- [10:34.079] um lasting for open for lasting a
+- [10:36.640] navigation in the future?
+- [10:38.800] >> Have a United States with a strong
+- [10:40.720] president.
+- [10:42.240] >> It's the only way you could do it. I
+- [10:43.680] guess would you think we have all the
+- [10:45.040] agreements you want? Agreements for bad
+- [10:47.519] people don't mean anything.
+- [10:49.920] Um look, we were the ones that blockaded
+- [10:52.640] this. He they blockaded it and we then
+- [10:55.279] said, well, we blockaded it for them so
+- [10:57.440] they didn't get any oil.
+- [11:00.240] You're going to need to have, and this
+- [11:01.760] is true with a lot of things, if you
+- [11:04.160] have a strong president of the United
+- [11:06.560] States, a lot of good things going to
+- [11:08.240] happen. You know,
+- [11:11.360] you know that better than anybody,
+- [11:12.800] right? Absolutely.
+- [11:14.000] >> You know it better than anybody.
+- [11:16.640] >> Can you talk a little bit more about the
+- [11:18.000] plan for the enriched uranium that is in
+- [11:20.560] the mountains?
+- [11:21.040] >> Yeah, we do. We'll take it.
+- [11:21.839] >> Has Iran said they would welcome the US
+- [11:24.959] coming in? What how specific?
+- [11:27.120] >> Iran will be just fine. What's happening
+- [11:29.519] is that at an appropriate time, there's
+- [11:31.360] no rush at all. We have cameras from
+- [11:34.640] space on it. We know everybody that goes
+- [11:37.040] there, which is like nobody. Uh the B2
+- [11:40.320] bombers hit it. The entire mountain
+- [11:42.480] collapsed inside it. It's a very tough
+- [11:45.760] excavation. Nobody else can do it but us
+- [11:47.760] and probably China. They have the
+- [11:49.760] equipment. We have the equipment. Uh
+- [11:52.000] we're in no rush, but we get it. And
+- [11:54.160] when we get it, we'll destroy it.
+- [11:56.560] >> Is that
+- [11:57.120] >> We're not looking to take it. We're
+- [11:58.160] looking to destroy it. We have plenty of
+- [11:59.920] it.
+- [12:01.120] >> Tell it the Versailles dinner tomorrow
+- [12:03.200] night. What prompted you to go to that
+- [12:05.519] dinner tomorrow night?
+- [12:07.040] >> So, well, I'm a fan of beautiful places
+- [12:12.000] and I was leaving in the afternoon and
+- [12:14.880] then the French president who happens to
+- [12:16.880] be a very nice man invited me to dinner
+- [12:21.279] at Versailles.
+- [12:23.519] And Versailles is not a gold leaf. for
+- [12:27.040] is the real deal.
+- [12:28.720] >> And I said, I'd like to do it. I mean,
+- [12:30.720] you know, all it means is that I get
+- [12:33.200] home later in the evening, meaning early
+- [12:35.760] in the morning,
+- [12:37.600] and I'm not a big sleeper anyway. I'll
+- [12:39.440] be in the Oval Office very I won't I
+- [12:42.320] won't lose any time in the Oval Office.
+- [12:44.079] So, I have to say this, our country is
+- [12:46.639] doing really well. We're doing better
+- [12:48.639] than we've ever done as a country. Stock
+- [12:50.639] markets the highest. Everything's the
+- [12:52.240] highest. 401ks
+- [12:54.639] are the highest they've ever been by
+- [12:56.880] 25%.
+- [12:58.639] And we're doing really well. And now
+- [13:00.079] you're going to see prices coming down.
+- [13:01.680] You know, when I took over, prices were
+- [13:04.560] very high. We had the worst inflation in
+- [13:06.800] the history of our country. Prices were
+- [13:09.200] high, eggs were high, bacon was high,
+- [13:11.600] everything was high. And the first
+- [13:13.839] question I got asked, what about
+- [13:15.760] affordability? I did a news conference
+- [13:17.920] one day after I took over and these
+- [13:20.639] people said, "What about affordability?"
+- [13:22.560] I said, "I didn't cause it, but I'm
+- [13:24.639] bringing it down." And now with the fuel
+- [13:27.440] going way down, you saw it yesterday. It
+- [13:29.040] went down $67. With fuel going down, as
+- [13:33.040] goes fuel, so goes everything. I've
+- [13:36.079] always seen that, right? Fuel, you're in
+- [13:38.079] a very good business because as goes
+- [13:40.959] fuel, so goes everything. Fuel is
+- [13:42.800] dropping. It's now in the 70s per barrel
+- [13:47.519] and I think we'll get it down. When I I
+- [13:49.360] say I I was in Iowa and we had great
+- [13:52.800] victories in Iowa and when I left I
+- [13:55.200] noticed in a gas station $185 a gallon.
+- [13:59.600] That's where we were. It's a little bit
+- [14:01.279] higher generally, but I saw two stations
+- [14:04.000] $185. One had $1.91
+- [14:08.000] and you know we're going to get around
+- [14:09.519] those levels. So very honored. Thank you
+- [14:12.320] very much everybody.
