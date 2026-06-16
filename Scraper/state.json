@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=coRix2BQ2UA: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=coRix2BQ2UA! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/E42bC7_2ddU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=E42bC7_2ddU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9474,6 +9474,17 @@
       "published": "2026-06-15T15:42:11+00:00",
       "title": "America on top \ud83c\uddfa\ud83c\uddf8\ud83d\udd25",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7651647880003849485"
+    },
+    "tiktok:whitehouse:7651794857698118925": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T01:48:57.304803+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/16/7651794857698118925",
+      "platform": "tiktok",
+      "post_id": "7651794857698118925",
+      "published": "2026-06-16T01:12:24+00:00",
+      "title": "It\u2019s a patriot summer \ud83c\uddfa\ud83c\uddf8\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7651794857698118925"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -115702,6 +115713,17 @@
       "title": "Sadly, if you import people from Third World Countries, you quickly become a Third World C...",
       "url": "https://truthsocial.com/@realDonaldTrump/116754288530173924"
     },
+    "truthsocial:realdonaldtrump:116756674797972374": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-16T01:48:45.894328+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/15/116756674797972374",
+      "platform": "truthsocial",
+      "post_id": "116756674797972374",
+      "published": "2026-06-15T23:17:52.376000+00:00",
+      "title": "Iran has agreed to never have a Nuclear Weapon! Also, the story that the U.S. is paying Ir...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116756674797972374"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -158272,6 +158294,17 @@
       "title": "President Trump Gaggles with Press Upon Departure from Queens, NY, Jun. 9, 2026",
       "url": "https://www.youtube.com/watch?v=6ZTM1ZPcXko"
     },
+    "youtube:whitehouse:6_mSnCtK01g": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:02.499273+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/6_mSnCtK01g",
+      "platform": "youtube",
+      "post_id": "6_mSnCtK01g",
+      "published": "2026-06-15T20:06:49+00:00",
+      "title": "First Lady Melania Trump Unveils Savings Account for Foster Kids - Fox Business",
+      "url": "https://www.youtube.com/watch?v=6_mSnCtK01g"
+    },
     "youtube:whitehouse:6cW91j2DSNU": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -161153,6 +161186,17 @@
       "published": "2025-06-04T23:25:17+00:00",
       "title": "President Trump Participates in a Summer Soir\u00e9e",
       "url": "https://www.youtube.com/watch?v=Gfj21UDSpCI"
+    },
+    "youtube:whitehouse:GgkGE5XqQNs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:03.413144+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/GgkGE5XqQNs",
+      "platform": "youtube",
+      "post_id": "GgkGE5XqQNs",
+      "published": "2026-06-15T18:27:36+00:00",
+      "title": "President Trump Participates in an Official Greeting with G7 Leaders",
+      "url": "https://www.youtube.com/watch?v=GgkGE5XqQNs"
     },
     "youtube:whitehouse:GiVjW9oAYiA": {
       "account": "WhiteHouse",
@@ -165125,6 +165169,17 @@
       "title": "Cabinet Members Remember Charlie Kirk",
       "url": "https://www.youtube.com/watch?v=UEdSH6rku2g"
     },
+    "youtube:whitehouse:ULI1MDCJHI8": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:05.332364+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/ULI1MDCJHI8",
+      "platform": "youtube",
+      "post_id": "ULI1MDCJHI8",
+      "published": "2026-06-15T16:20:46+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of the French Republic",
+      "url": "https://www.youtube.com/watch?v=ULI1MDCJHI8"
+    },
     "youtube:whitehouse:UMNk8oVuDLU": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -167698,6 +167753,17 @@
       "published": "2025-04-26T00:09:24+00:00",
       "title": "MAGA Minute, April 25, 2025",
       "url": "https://www.youtube.com/watch?v=co1nUJzqTOg"
+    },
+    "youtube:whitehouse:coRix2BQ2UA": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:00.618068+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/coRix2BQ2UA",
+      "platform": "youtube",
+      "post_id": "coRix2BQ2UA",
+      "published": "2026-06-15T20:10:51+00:00",
+      "title": "First Lady Melania Trump Launches \"Fostering the Future Accounts\" - NEWSMAX",
+      "url": "https://www.youtube.com/watch?v=coRix2BQ2UA"
     },
     "youtube:whitehouse:cq8btMQd4PY": {
       "account": "WhiteHouse",
@@ -171560,6 +171626,17 @@
       "title": "Press Sec: \u2018There Have Been 330 Illegal Aliens That Have Been Arrested as Part of These Riots in LA\"",
       "url": "https://www.youtube.com/watch?v=pS_OPPMzqho"
     },
+    "youtube:whitehouse:pSjfF3Jbovs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:01.520963+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/pSjfF3Jbovs",
+      "platform": "youtube",
+      "post_id": "pSjfF3Jbovs",
+      "published": "2026-06-15T20:07:56+00:00",
+      "title": "First Lady Melania Trump Launches Fostering the Future Accounts - Fox & Friends",
+      "url": "https://www.youtube.com/watch?v=pSjfF3Jbovs"
+    },
     "youtube:whitehouse:pVWIVe_mZ5w": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -174496,6 +174573,17 @@
       "published": "2025-07-28T11:58:01+00:00",
       "title": "President Trump Greets the Prime Minister of the United Kingdom",
       "url": "https://www.youtube.com/watch?v=zfSxzDhqlqI"
+    },
+    "youtube:whitehouse:zgW8TqxMZrI": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-16T01:49:04.300895+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/15/zgW8TqxMZrI",
+      "platform": "youtube",
+      "post_id": "zgW8TqxMZrI",
+      "published": "2026-06-15T16:48:32+00:00",
+      "title": "President Trump meets with President of France Emmanuel Macron ahead of the G7 Summit in France.",
+      "url": "https://www.youtube.com/shorts/zgW8TqxMZrI"
     },
     "youtube:whitehouse:zjPGuY5IPVo": {
       "account": "WhiteHouse",

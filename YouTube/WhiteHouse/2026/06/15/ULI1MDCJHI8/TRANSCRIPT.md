@@ -1,0 +1,352 @@
+<!-- source: https://www.youtube.com/watch?v=ULI1MDCJHI8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: ULI1MDCJHI8 -->
+<!-- date_published: 2026-06-15T16:20:46+00:00 -->
+<!-- date_accessed: 2026-06-16T01:49:05.332364+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the French Republic
+
+- [00:36.320] Cyril is from France. Did you watch the
+- [00:39.120] fight?
+- [00:39.480] >> Yeah. That is not right. But I saw it
+- [00:42.640] this morning.
+- [00:43.240] >> That was a great fight. It was a great
+- [00:44.760] evening at the White House.
+- [00:46.200] >> fight. Thank you.
+- [00:47.480] >> Thank you.
+- [00:48.600] >> Thank you.
+- [00:49.600] Bienvenue au président.
+- [00:51.480] I will say a few words in
+- [00:53.200] French to you.
+- [00:55.880] Je souhaitais d'abord
+- [00:58.560] accueillir et souhaiter la bienvenue au
+- [01:00.440] président Trump et merci d'être là
+- [01:03.120] un lendemain de d'anniversaire et de
+- [01:05.120] célébration et je remercie son équipe
+- [01:07.560] les ministres, l'ambassadeur et équipe
+- [01:09.280] les plus proches d'être d'être là à ses
+- [01:10.680] côtés. C'est important qu'on puisse
+- [01:12.480] d'abord avoir ce G7
+- [01:14.320] au lendemain d'un d'un accord essentiel
+- [01:17.400] qui a été scellé avec l'Iran
+- [01:19.920] pour parler évidemment de nos grandes
+- [01:21.120] crises, l'Iran
+- [01:23.120] l'Ukraine, le guerre, leur règlement,
+- [01:25.720] construire la paix et restaurer la
+- [01:27.080] prospérité mais aussi voir les les voies
+- [01:29.120] et moyens de coopérer entre nos
+- [01:30.640] économies et c'est le but du G7
+- [01:33.160] pour améliorer la prospérité, les
+- [01:35.040] éléments de coopération dans les
+- [01:36.520] différents domaines.
+- [01:37.960] Puis nous aurons l'occasion aussi de
+- [01:39.320] célébrer à la française les
+- [01:41.320] les 250 ans de
+- [01:43.400] d'indépendance. La France ayant été aux
+- [01:45.200] côtés des États-Unis d'Amérique à
+- [01:47.120] Versailles dans deux jours.
+- [01:49.000] >> I I I wanted to say I mean
+- [01:52.320] to commend President Trump for for
+- [01:53.840] celebration yesterday and to welcome
+- [01:56.120] President Trump and the
+- [01:57.840] ministers and his team for for being
+- [01:59.720] here in Evian for the G7.
+- [02:02.040] I think yesterday was signed
+- [02:03.920] a very important agreement, peace deal
+- [02:07.160] with Iran.
+- [02:08.360] And it's a very important one because
+- [02:09.960] first it will
+- [02:11.520] fix the nuclear issue.
+- [02:14.200] First it will
+- [02:15.720] fix the nuclear issue.
+- [02:18.280] And and it's a very important matter for
+- [02:20.120] for peace
+- [02:21.880] for the whole world and
+- [02:23.880] and it will help enormous.
+- [02:26.280] It would provide peace in Lebanon and so
+- [02:28.560] we are ready to uh
+- [02:30.280] take our fair share of the burden and be
+- [02:32.120] part of the the commitment of the
+- [02:34.320] international community in order to
+- [02:35.959] support this deal.
+- [02:37.560] And we will discuss about that together
+- [02:39.480] and his colleagues later on.
+- [02:41.520] But it's a very important step towards
+- [02:43.720] peace but as well for global economy. We
+- [02:46.840] will have the occasion to discuss about
+- [02:48.760] um
+- [02:49.640] the war in Ukraine
+- [02:51.320] in order to re-engage together and and
+- [02:53.440] negotiate a good and solid peace, a
+- [02:55.000] sustainable peace. And President
+- [02:56.280] Zelenskyy will be with us as well
+- [02:58.200] tomorrow.
+- [02:59.480] And obviously we will have the occasion
+- [03:01.160] to bring this G7 to to speak about a
+- [03:03.239] series of issues from rare earth,
+- [03:05.519] critical minerals, trade, etc. Where we
+- [03:08.400] have to build convergence among the G7
+- [03:10.480] members.
+- [03:11.800] And it will be the occasion for us
+- [03:14.640] to celebrate the 250th
+- [03:17.840] years of independence
+- [03:20.040] for for the US and
+- [03:22.120] Versailles is a good place because this
+- [03:23.519] is where the King Louis is minister of
+- [03:25.959] foreign affairs at the time
+- [03:28.239] did support the US during years but as
+- [03:31.800] well prepared what we called the the
+- [03:33.760] Paris Treaty in 1783
+- [03:37.080] which was um the final point
+- [03:39.680] of this war. So it's
+- [03:41.280] it's a great honor and a great pleasure
+- [03:42.720] to have you, Mr. President
+- [03:44.440] in Evian. Thank you.
+- [03:46.000] >> Thank you. Thank you.
+- [03:48.000] So uh
+- [03:49.360] Emmanuel has been a special friend of
+- [03:52.080] mine.
+- [03:53.120] We've had a fantastic relationship.
+- [03:55.960] We've worked on many deals together. I'm
+- [03:57.720] very happy to
+- [04:00.160] say
+- [04:01.280] very
+- [04:02.400] signed the deal is all signed.
+- [04:04.960] And the strait is already partially
+- [04:06.680] opened as you know they're doing a
+- [04:08.680] little hunting for a couple of mines
+- [04:11.880] that
+- [04:12.880] they've already found.
+- [04:14.720] Uh but it's essentially ships are
+- [04:16.519] starting to go out
+- [04:18.359] now on Friday it'll be completely
+- [04:20.120] opened.
+- [04:21.320] We got along very well with Iran. It's a
+- [04:23.960] different set of leaders.
+- [04:25.760] As you know the first set is gone, the
+- [04:27.480] second set is gone.
+- [04:29.400] And we found the third set to be very
+- [04:31.080] smart,
+- [04:32.480] strong, very smart but
+- [04:34.800] uh we ended up making a deal.
+- [04:37.640] Uh I felt badly that we had to go back
+- [04:39.480] on the attack for two nights and I
+- [04:41.640] thought a third but
+- [04:43.280] we made it before that happened.
+- [04:45.680] But I think a lot of great things are
+- [04:47.480] going to happen in the Middle East right
+- [04:48.840] now and
+- [04:50.000] very importantly the oil is plummeting
+- [04:52.080] down
+- [04:53.440] and the stock market is
+- [04:55.720] shooting up like a rocket today. Like
+- [04:58.919] record kind of numbers.
+- [05:01.040] And the oil has taken its biggest plunge
+- [05:03.400] and we're
+- [05:04.400] into the
+- [05:06.120] low numbers. Not quite
+- [05:08.480] back yet Kevin to the extent but we're
+- [05:11.160] getting close to the numbers we were
+- [05:13.840] before it all started and the main thing
+- [05:15.480] is that Iran will not have a nuclear
+- [05:16.919] weapon.
+- [05:18.040] They fully agreed to that.
+- [05:20.160] With strong policing powers and they
+- [05:22.680] won't have a nuclear weapon which is
+- [05:24.840] what it was all about because
+- [05:27.000] they probably would have used it if they
+- [05:28.800] had it.
+- [05:30.040] So we had two big moments when I
+- [05:31.600] terminated the JCPOA. That was the Obama
+- [05:35.480] deal. The Barack Hussein Obama deal.
+- [05:38.840] And when I terminated that it was very
+- [05:40.480] important because it was a road to a
+- [05:42.520] nuclear weapon.
+- [05:44.120] It was a horrible deal for the United
+- [05:45.760] States. It was a deal where
+- [05:47.960] billions of dollars was given to Iran.
+- [05:51.480] It was a deal where 1.7 billion in cash
+- [05:54.000] was put on a
+- [05:55.400] Boeing 7
+- [05:57.640] Well, not a 7 757, I guess, right?
+- [06:00.960] But it was put on a big, beautiful
+- [06:02.720] Boeing 757.
+- [06:04.960] They needed a Boeing 747 to be honest
+- [06:07.440] with you because it was a lot of cash.
+- [06:09.280] 1.7 billion
+- [06:11.440] was taken out of the banks and given to
+- [06:13.240] Iran.
+- [06:14.320] And on top of that, tens of billions of
+- [06:16.600] dollars was spent.
+- [06:18.160] So, they tried to bribe them to make a
+- [06:20.840] deal and that didn't work. It never
+- [06:22.200] works.
+- [06:23.640] And we
+- [06:25.600] we've done a great job.
+- [06:27.520] And hopefully it's going to be a good
+- [06:29.000] relationship and we're going to get
+- [06:30.440] along.
+- [06:31.880] And if we don't, we go back to where we
+- [06:34.120] started, but I don't think that's going
+- [06:35.480] to be necessary.
+- [06:37.120] The uh
+- [06:39.040] the Iran deal that we made is going to
+- [06:40.680] bring
+- [06:41.840] a lot of uh a lot of success to the
+- [06:44.640] world because the oil was really clogged
+- [06:47.160] up there for a while. He would call me
+- [06:48.560] on occasion say, "Come on, please. Let's
+- [06:51.080] go the oil prices."
+- [06:52.960] But the oil is coming way down. So, I'm
+- [06:54.600] very honored by it.
+- [06:56.280] Uh I want to thank you for your help.
+- [06:58.320] You've always been a help.
+- [07:00.040] And it's an honor to be with you. We had
+- [07:02.320] uh a very good conversation yesterday
+- [07:05.120] with President Zelenskyy
+- [07:07.600] and President Putin.
+- [07:10.200] And I see maybe we can do something
+- [07:12.919] there. I really do. I think
+- [07:14.840] they're both open to it. So, I'm going
+- [07:16.440] to Now that this is finished,
+- [07:18.600] we're going to be focusing on that. See
+- [07:20.440] if we can
+- [07:21.480] get that one done. 25,000 people a month
+- [07:23.720] are dying. Mostly mostly soldiers and
+- [07:27.240] that shouldn't happen, but I had two
+- [07:29.120] very good conversations yesterday. We'll
+- [07:31.320] be talking about it.
+- [07:33.320] And we had a really exciting, I think
+- [07:35.320] maybe one of the most
+- [07:37.240] incredible evenings in the history of
+- [07:38.880] the White House. We had an evening
+- [07:41.280] last night with the fighters and
+- [07:43.600] I was very happy. I called last night,
+- [07:45.640] very late last night to congratulate you
+- [07:48.480] because in the heavyweight division, a
+- [07:50.400] French
+- [07:51.600] fighter won. I I don't know, is that
+- [07:53.600] maybe more important than the World Cup?
+- [07:55.200] To some people, it might be.
+- [07:57.600] Yes, to some people, it might be. You
+- [07:59.160] have a good team in the world.
+- [08:01.040] Very good team, but you have good
+- [08:02.600] fighters, too.
+- [08:04.040] And you're a great country,
+- [08:06.360] and it's an honor to be with you. Thank
+- [08:08.000] you very much.
+- [08:09.200] >> Hey, sir, are you going to try to attend
+- [08:10.840] the signing ceremony on Friday?
+- [08:14.200] >> Well, it depends. JD's coming in for it.
+- [08:16.440] He was originally going to do it. I I'll
+- [08:18.240] probably be gone by then. We're having
+- [08:20.880] dinner in
+- [08:22.919] a day and a half for it. We're going to
+- [08:24.440] be staying quite late. So, I I may be
+- [08:28.040] involved, I may not.
+- [08:29.880] But JD was coming in for that
+- [08:31.520] specifically.
+- [08:32.400] >> Thank you.
+- [08:33.080] >> Mr. President, when will the text of the
+- [08:35.080] MOU be released?
+- [08:37.455] >> [snorts]
+- [08:37.800] >> I think pretty soon. I would say I mean,
+- [08:40.800] I want it to be released cuz it's a very
+- [08:42.400] powerful document.
+- [08:44.280] It's not like the
+- [08:46.320] Obama document, which was just a
+- [08:48.440] terrible document. This is a very
+- [08:50.520] powerful document, and I want it to be
+- [08:52.480] released. So, probably pretty soon. I
+- [08:55.200] would say after sometime after Friday.
+- [08:58.360] Because the strait opens completely It's
+- [09:00.920] open now,
+- [09:02.280] but it opens completely. We'll have all
+- [09:04.040] the mines knocked out of for the most
+- [09:06.720] part. We have a lot of lanes right now
+- [09:08.480] already.
+- [09:09.360] >> Mr. President,
+- [09:10.040] >> So, I think I think sometime
+- [09:12.680] I I think sometime in the very near
+- [09:14.520] future, yeah.
+- [09:15.520] >> Mr. President, does this does the deal
+- [09:17.800] involve any sanctions relief for Iran?
+- [09:20.000] When would that go into effect?
+- [09:21.080] >> No, it doesn't. Well, they have to It's
+- [09:23.080] really a behavioral thing. If they
+- [09:26.400] do what they're supposed to do, that
+- [09:28.160] starts taking
+- [09:29.640] effect.
+- [09:37.320] >> Mr. President, what do you expect France
+- [09:40.640] and
+- [09:41.320] >> Well, I would have them to do that.
+- [09:43.520] I don't think we're going to need much
+- [09:45.080] help because we have an agreement where
+- [09:46.640] it's going to be open.
+- [09:48.360] And it's toll-free. We We had a little
+- [09:50.520] argument over that. It's toll-free.
+- [09:52.760] So, I don't think we're going to need
+- [09:53.800] much help.
+- [09:55.120] But, I don't think it's a bad idea to
+- [09:56.720] have a ship or two up here from
+- [09:58.880] a few countries. You'd be a great
+- [10:00.160] country to do it.
+- [10:01.840] Cuz you never know what happens. But, I
+- [10:03.240] think it's going to be open and
+- [10:05.160] I think it's going to be
+- [10:06.720] free sailing.
+- [10:08.120] We do want to see if we can straighten
+- [10:09.520] out the Lebanon Lebanon thing
+- [10:12.680] cuz it just seems to just never end.
+- [10:15.920] And that's a mini version of what we
+- [10:18.120] were doing. But, and it should not be
+- [10:20.040] tough.
+- [10:21.080] It should not be tough. So,
+- [10:23.000] Hezbollah, we have to
+- [10:25.040] we have to have a little talk with them.
+- [10:27.040] >> What would you ask him?
+- [10:27.840] >> Thank you very much.
+- [10:28.400] >> Thank you, Mr. President.
+- [10:29.280] >> Can you speak in French, please?
+- [10:32.320] >> Attendez.
+- [10:33.240] >> Sur
+- [10:34.680] la re- distribution, nous sommes prêts à
+- [10:36.400] avoir
+- [10:37.720] dès demain des des chasseurs qui sont
+- [10:39.800] sur place et qui peuvent aider aux
+- [10:41.680] missions d'observation et sous 48 heures
+- [10:43.960] des des frégates qui peuvent évidemment
+- [10:45.640] se déployer et sous deux à trois jours
+- [10:48.240] le porte-avions avec les frégates qui
+- [10:50.080] l'accompagnent et l'ensemble du groupe.
+- [10:52.240] Évidemment, tout ça suppose
+- [10:54.280] d'être souhaité et demandé par les
+- [10:56.320] États-Unis d'Amérique et l'Iran et Oman,
+- [10:59.839] c'est-à-dire les parties prenantes du de
+- [11:01.480] l'accord et et les deux parties
+- [11:03.839] euh
+- [11:04.800] du autour du du détroit.
+- [11:07.360] Et nous avons agrégé avec les
+- [11:09.560] Britanniques
+- [11:10.880] une mission ad-hoc où d'ores et déjà une
+- [11:12.560] vingtaine de pays ont euh
+- [11:14.800] ont donné leur contribution concrète à
+- [11:16.280] ce qu'ils étaient prêts à faire et nous
+- [11:17.720] sommes quatre à être présents dans la
+- [11:18.920] région. Donc voilà, c'est euh une offre,
+- [11:21.040] nous sommes à disposition, ça montre le
+- [11:22.480] soutien de la communauté internationale,
+- [11:24.760] notre volonté de réouvrir ce ce détroit
+- [11:27.400] et comme l'a dit le président, peut-être
+- [11:28.560] que ça ne sera pas souhaité
+- [11:30.600] et peut-être que ce ne sera pas
+- [11:31.560] nécessaire, mais en tout cas, c'est euh
+- [11:33.760] une disposition
+- [11:50.480] Thank you very
+- [11:51.160] >> Thank you.
+- [11:52.320] >> Thank you.
+- [11:53.440] >> Thank you.
+- [11:54.240] >> Thank you.
+- [11:54.920] >> Thank you. You're very welcome.
+- [11:56.600] >> Thank you.

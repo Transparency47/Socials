@@ -1,0 +1,112 @@
+<!-- source: https://www.youtube.com/watch?v=6_mSnCtK01g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 6_mSnCtK01g -->
+<!-- date_published: 2026-06-15T20:06:49+00:00 -->
+<!-- date_accessed: 2026-06-16T01:49:02.499273+00:00 -->
+
+# Transcript: First Lady Melania Trump Unveils Savings Account for Foster Kids - Fox Business
+
+- [00:00.000] And so now the first lady has her own
+- [00:01.840] financial initiative. Melania Trump is
+- [00:04.000] launching her fostering the future
+- [00:05.640] accounts. This is a new investment and
+- [00:07.480] savings vehicle designated for America's
+- [00:10.320] foster children.
+- [00:12.800] >> Fostering the future accounts give
+- [00:14.880] foster children the same chance for
+- [00:17.760] asset ownership and long-term wealth
+- [00:20.800] building as every other American child.
+- [00:24.920] They turn 18, foster youth will be able
+- [00:28.000] to access the assets they own through
+- [00:31.080] fostering the future accounts.
+- [00:34.200] This will give them a foundation for
+- [00:36.520] independence and opportunity.
+- [00:39.400] >> So this announcement was made earlier
+- [00:41.120] today alongside Treasury Secretary Scott
+- [00:43.200] Bessent.
+- [00:44.480] Um there's been some controversy around
+- [00:46.640] the Trump baby accounts because um you
+- [00:49.120] have to be you know they're going to be
+- [00:51.400] um certain time window which you would
+- [00:53.920] be eligible for that. And I'm imagining
+- [00:56.400] that the first lady is focusing on the
+- [00:58.680] foster children because they are of
+- [01:01.200] different ages, not necessarily babies,
+- [01:04.040] uh and wanting to give them some
+- [01:05.199] opportunity too. This is part of her Be
+- [01:07.360] Best initiative. on expanding programs
+- [01:11.280] like these. Um we've said on the table
+- [01:13.360] you know panel here that some of us feel
+- [01:15.520] like it's just another handout as you
+- [01:17.320] said handouts that are created then
+- [01:18.760] don't go away. So that people won't take
+- [01:21.360] advantage of it if they don't have the
+- [01:22.840] literacy tools to be able to do it.
+- [01:24.560] There there are some issues. On the flip
+- [01:26.240] side, it gives people an opportunity to
+- [01:28.360] participate in wealth making.
+- [01:30.240] >> Yeah, no I think the more children we
+- [01:31.680] can teach financial literacy to the
+- [01:33.400] better. But to your point you know the
+- [01:34.720] Trump savings account to my knowledge
+- [01:36.880] was partially funded by the Dell grants
+- [01:39.040] from that family. So it wasn't like
+- [01:41.120] >> Partially?
+- [01:41.640] >> Partially. The taxpayer wasn't
+- [01:43.000] necessarily footing the entire bill. I'm
+- [01:44.960] not sure who's underwriting these foster
+- [01:47.160] care accounts.
+- [01:48.000] >> The government.
+- [01:48.640] >> I think it's the government. So you know
+- [01:50.680] I'm a little worried about that. But I
+- [01:52.120] will say the foster care community is
+- [01:53.960] very underserved and I think it's nice
+- [01:56.760] that she's trying to find a way but
+- [01:58.800] frankly like what but no one wants to
+- [02:00.360] talk about it's uncomfortable. Charity,
+- [02:02.280] private charity, is always going to be
+- [02:04.640] better than a government program.
+- [02:06.160] Always. So, if there's a way we can
+- [02:07.800] somehow leverage that instead of going
+- [02:10.119] straight to let's just add a new
+- [02:11.880] program, I would prefer that.
+- [02:13.760] >> are these are just accounts.
+- [02:15.880] Right? Are they seated by the government
+- [02:17.840] or they just
+- [02:18.240] >> Yeah, I thought it was a thousand
+- [02:19.160] dollars.
+- [02:19.440] >> Okay, so they're seated by the
+- [02:20.280] government. They're vehicles for these
+- [02:21.840] guys to serve. I just think like foster
+- [02:24.840] parents are the most unsung heroes in
+- [02:27.880] America. And and you you sacrifice so
+- [02:30.480] much and that is such a tough life. And
+- [02:33.000] if we're talk there like foster kids are
+- [02:34.880] the least of these in the in the
+- [02:36.160] country. I mean, if you talk about one
+- [02:37.400] space where I think something like this
+- [02:39.400] really is worth it. I would vote for
+- [02:41.240] this over a heck of a lot of other
+- [02:42.880] things.
+- [02:45.560] >> You go Dagan. I know you're itching.
+- [02:49.240] >> Today is not the day I'm going to say
+- [02:51.680] anything negative about the children.
+- [02:56.400] >> Why not?
+- [02:57.506] >> [laughter]
+- [02:58.280] >> Why not?
+- [02:59.440] >> I just can't.
+- [03:01.160] >> Well, you know what though? I will say
+- [03:02.400] >> I have been branding Raven like
+- [03:04.640] something stuck up
+- [03:06.840] all show.
+- [03:08.320] >> Look.
+- [03:08.840] >> And I'm just not. I'm
+- [03:11.440] the foster community is foster children
+- [03:14.040] are wildly underserved.
+- [03:15.360] >> Yes. And the people who commit their
+- [03:16.880] lives to doing that um are there's a
+- [03:20.000] special place on high
+- [03:22.239] for those um parents.
+- [03:23.880] >> That's a big amen.
+- [03:25.000] >> All right.

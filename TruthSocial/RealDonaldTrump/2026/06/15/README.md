@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-15
 
-- Posts: 34
+- Posts: 35
 
+- [23:17 UTC - Iran has agreed to never have a Nuclear Weapon! Also, the story that the U.S. is paying Ir...](116756674797972374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116756674797972374
+  - Iran has agreed to never have a Nuclear Weapon! Also, the story that the U.S. is paying Iran 300 million Dollars is Fake News, put out by the Dumocrats!!! President DJT
 - [13:11 UTC - Sadly, if you import people from Third World Countries, you quickly become a Third World C...](116754288530173924/)
   - Source: https://truthsocial.com/@realDonaldTrump/116754288530173924
   - Sadly, if you import people from Third World Countries, you quickly become a Third World Country — And there’s not a thing you can do about it. MAKE AMERICA GREAT AGAIN! President...

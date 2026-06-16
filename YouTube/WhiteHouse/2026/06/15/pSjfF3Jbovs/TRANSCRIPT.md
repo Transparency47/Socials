@@ -1,0 +1,126 @@
+<!-- source: https://www.youtube.com/watch?v=pSjfF3Jbovs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pSjfF3Jbovs -->
+<!-- date_published: 2026-06-15T20:07:56+00:00 -->
+<!-- date_accessed: 2026-06-16T01:49:01.520963+00:00 -->
+
+# Transcript: First Lady Melania Trump Launches Fostering the Future Accounts - Fox & Friends
+
+- [00:03.360] In 2021, I launched Fostering the
+- [00:06.240] Future, a nationwide initiative to
+- [00:09.000] provide individuals from foster care
+- [00:11.320] community with access to education and
+- [00:14.480] then at the university level.
+- [00:17.080] My goal is to prepare these individuals
+- [00:19.840] to secure entry-level jobs,
+- [00:22.600] become financially independent, and
+- [00:25.040] eventually innovate, create new
+- [00:27.800] businesses, and generate employment
+- [00:30.800] opportunities.
+- [00:32.640] >> What a great program. It's one of her,
+- [00:34.920] I'm talking about the First Lady's major
+- [00:36.400] initiative. The First Lady, she's
+- [00:38.080] improving the lives of foster care kids
+- [00:40.120] who have been left out of almost society
+- [00:42.320] entirely. Melania Trump taking it a step
+- [00:45.120] further now with Fostering the Future
+- [00:47.320] accounts, real money giving them
+- [00:49.280] stronger stronger financial future or a
+- [00:52.080] financial future period. With the Trump
+- [00:54.040] accounts, every foster child born
+- [00:55.520] between 20 and 2025 and 2028 is eligible
+- [00:59.080] for a $1,000 investment from the US
+- [01:00.880] Treasury available when they turn 18.
+- [01:03.080] Taylor Riggs, co-host of the Big Money
+- [01:04.720] Show on Fox Business joins us now.
+- [01:06.880] Taylor, you look at the money you look
+- [01:08.840] at the stats and it's staggering. Foster
+- [01:10.800] kids are always behind as they become
+- [01:13.200] adults and often times they're twisting
+- [01:15.240] in the wind after the age of 16. What
+- [01:17.760] does this do, these Trump accounts for
+- [01:19.640] foster kids?
+- [01:20.440] >> What I like about this is we're teaching
+- [01:22.240] about financial freedom and financial
+- [01:24.080] independence. So, if you do that $1,000
+- [01:26.560] and no one else on your behalf even
+- [01:28.160] contributes, that money compounded
+- [01:30.720] through the S&P 500 on average at 8% a
+- [01:33.800] year, which I would argue is also low,
+- [01:35.800] can be multiple thousands of dollars by
+- [01:38.120] the time you're 18. Does that help you
+- [01:40.200] go to a trade school? Does that help you
+- [01:41.760] think about college? Does that help you
+- [01:43.120] think about getting a car if you need to
+- [01:45.000] drive to work? All of those things. This
+- [01:47.480] is very similar to the Trump counts.
+- [01:49.360] It's sort of Trump account-esque in a
+- [01:51.640] way.
+- [01:52.760] So, things that maybe some people won't
+- [01:55.160] like, seeded money funded by you the
+- [01:57.760] taxpayer another sort of big government
+- [01:59.960] program that I think people don't want
+- [02:02.480] but again how this is different than
+- [02:04.040] other big government socialism programs
+- [02:06.720] is we're investing on your behalf and
+- [02:08.880] then the money is yours and then again
+- [02:10.600] it's all about financial independence.
+- [02:12.760] The more that we can get these people
+- [02:14.360] off the government's payroll and think
+- [02:16.760] about their own financial security then
+- [02:18.720] the less dependent they are on
+- [02:20.080] government big government socialism and
+- [02:22.000] eventually Democrats who want the big
+- [02:24.280] government program.
+- [02:25.240] >> So what you're saying is hey you're 18
+- [02:26.640] here's $1,000 or when you're younger let
+- [02:29.440] you invest that watch it grow and then
+- [02:31.920] it it's it's lays the foundation.
+- [02:33.440] >> Bingo.
+- [02:33.880] >> So for example look at how life is
+- [02:36.080] against the foster kid through no fault
+- [02:37.880] of their own. 50% have lower earnings
+- [02:40.800] than the average. 20% lower employment
+- [02:43.640] rates. This according to the Journal of
+- [02:45.560] Economic Perspectives. So they need a
+- [02:47.720] break. The first lady is trying to help
+- [02:49.920] them out.
+- [02:50.840] >> I love that. So again it's all about and
+- [02:52.840] this is I think a a good first step. I
+- [02:55.400] would like to see more. I think it's not
+- [02:57.360] just here's $1,000 we're investing on
+- [02:59.480] your behalf for the next 16 to 18 years
+- [03:02.040] but hopefully throughout this these
+- [03:03.680] programs sort of awaken kids and awaken
+- [03:07.040] families to understanding about
+- [03:09.640] financial the way money works the way
+- [03:11.640] compound interest works. That is the
+- [03:13.440] most miraculous thing is a thousands
+- [03:16.080] today won't be $1,000 18 years from now
+- [03:18.640] with that compound growth and I should
+- [03:20.720] argue also invested in the S&P 500 which
+- [03:23.840] making a big bet on the top American
+- [03:26.519] companies.
+- [03:27.480] >> Right.
+- [03:27.880] >> You have a stake in capitalism a stake
+- [03:29.800] in our companies then you're invested in
+- [03:32.400] the success of this nation through
+- [03:34.000] capitalism.
+- [03:34.760] >> Maximum contributions are made by the
+- [03:36.880] age 18 you'll have $303,000
+- [03:39.519] plus and then if you can do maximum
+- [03:41.440] contributions by the age of 28 it's over
+- [03:43.040] a million. Now if you're still making a
+- [03:44.680] contributions cuz sadly nobody's helping
+- [03:46.840] you out
+- [03:47.880] no by age 18 you get $5,800
+- [03:51.400] by age 28 $18,100.
+- [03:53.960] >> again, these are in my opinion sort of
+- [03:55.920] conservative estimates. You're assuming
+- [03:57.560] about an 8% compound annual return. The
+- [04:00.360] market was up 30% last year.
+- [04:01.960] >> It just shows how much you care for the
+- [04:03.280] pri- but she doesn't want to just
+- [04:04.360] cheerlead. She wants a program. That's I
+- [04:06.560] give her so much credit for it.
