@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-17
 
-- Posts: 19
+- Posts: 20
 
+- [18:23 UTC - I greatly appreciate Jackson Lahmeyer’s hard work under difficult circumstances — He has a...](116766840824918491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116766840824918491
+  - I greatly appreciate Jackson Lahmeyer’s hard work under difficult circumstances — He has always been with me, and I will always be with him. But, when it comes to the current Congr...
 - [14:01 UTC - I will be doing a Press Conference in 45 minutes from France. I’ll then be heading to Vers...](116765811260304660/)
   - Source: https://truthsocial.com/@realDonaldTrump/116765811260304660
   - I will be doing a Press Conference in 45 minutes from France. I’ll then be heading to Versailles for Dinner with French and other European Leaders, and then back home tonight! The...

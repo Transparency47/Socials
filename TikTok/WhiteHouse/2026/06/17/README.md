@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-06-17
 
-- Posts: 2
+- Posts: 3
 
+- [17:37 UTC - President Trump following G7 on the Iran deal and PEACE](7652419754212281613/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7652419754212281613
+  - President Trump following G7 on the Iran deal and PEACE
 - [14:47 UTC - Boss man](7652375981046435085/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7652375981046435085
   - Boss man
