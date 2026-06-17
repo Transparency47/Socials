@@ -1,0 +1,326 @@
+<!-- source: https://www.youtube.com/watch?v=Spcmn-TZrw0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Spcmn-TZrw0 -->
+<!-- date_published: 2026-06-17T11:30:20+00:00 -->
+<!-- date_accessed: 2026-06-17T12:48:25.846959+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Arab Republic of Egypt
+
+- [00:05.920] Thank you very much.
+- [00:14.960] >> Well, it's a great pleasure to be with
+- [00:17.119] my friend, the president of Egypt. He's
+- [00:20.080] respected all over the world, including
+- [00:22.080] by me. and uh our relationship has been
+- [00:25.279] very strong personally for a long time
+- [00:28.240] and we're working together. We're
+- [00:30.880] helping him with a little damn project
+- [00:32.960] that uh I think was very I think you
+- [00:35.840] were very unfairly treated if you want
+- [00:37.440] to know that in Ethiopia
+- [00:39.920] but we'll discuss many things including
+- [00:42.079] trade and we do a lot of business with
+- [00:44.640] Egypt and we'll be discussing that.
+- [00:46.480] We'll be discussing the Nile because the
+- [00:49.039] Nile is getting a little emptier than it
+- [00:50.719] should be and that's what we're here to
+- [00:52.320] talk about. Right. A dam was built in
+- [00:56.559] Ethiopia and it's causing tremendous
+- [00:59.520] problems for Egypt and I'm very aware. I
+- [01:03.520] had that deal settled and then we had a
+- [01:06.560] rigged election and somebody came in and
+- [01:08.560] they didn't know too much about that.
+- [01:10.479] They were not going to settle anything.
+- [01:12.880] But we'll get back into it. We'll see if
+- [01:14.479] we can settle it up. Okay. Could you
+- [01:17.360] have say that please?
+- [01:29.119] and give them
+- [01:31.360] please.
+- [01:32.000] >> Uh first of all, let me express my
+- [01:34.320] highest appreciation and respect of your
+- [01:36.560] kind person and thank you very much for
+- [01:38.960] allowing this opportunity despite uh all
+- [01:42.240] of the hard work and the very busy
+- [01:45.200] schedule that you have.
+- [01:55.360] Well, let me start by expressing big
+- [01:58.320] congratulations for the breakthrough
+- [02:00.640] that you have achieved, Mr. President,
+- [02:02.799] of restoring peace to the Middle East.
+- [02:32.640] Once uh once the deal was announced,
+- [02:35.840] there has been great appreciation but
+- [02:38.400] the admiration
+- [02:40.080] has increased in this marvelous
+- [02:43.360] management of such crisis at the highest
+- [02:46.080] level. Thank you. Uh we're we are
+- [02:49.280] waiting for the deal to be declared as a
+- [02:52.640] final as a final deal so that we can
+- [02:56.319] react appropriately and uh uh state our
+- [03:01.280] positive uh views and perspective of
+- [03:05.200] that uh great deal from uh the
+- [03:08.720] presidency and on behalf of the Egyptian
+- [03:11.040] people.
+- [03:22.800] I'd like also to express highest
+- [03:24.640] appreciation and respect of your comp
+- [03:26.400] person for the productive and excellent
+- [03:29.840] relations
+- [03:31.360] uh between Egypt and the United States
+- [03:33.200] and all the support that the United
+- [03:35.040] States is providing for Egypt.
+- [03:43.680] For the record again, Mr. President, I
+- [03:46.239] cannot overemphasize how much respect I
+- [03:49.519] have for you, for your understanding of
+- [03:52.480] the challenging issue of the dam to
+- [03:54.879] Egypt.
+- [04:11.120] I don't know if I'm going to say is
+- [04:12.959] appropriate or not, but I observed
+- [04:15.200] during the dinner of last night that you
+- [04:17.600] were surrounded, Mr. President, by all
+- [04:19.840] world leaders. They didn't leave you a
+- [04:22.479] moment to enjoy your dinner.
+- [04:26.720] That was a lot of surrounding this.
+- [04:29.440] Well, we had a great time, but it was it
+- [04:31.199] was a lot.
+- [04:32.880] >> It was a lot of work last night. You saw
+- [04:35.199] that?
+- [04:35.520] >> Yes.
+- [04:36.240] >> Thank you.
+- [04:37.120] >> Thank you very much. It's great articul.
+- [04:40.240] So, I'll be doing a news conference at
+- [04:43.120] about 4:00 today before we leave. We're
+- [04:45.440] going to Paris and then we'll be going
+- [04:48.479] home tonight, I guess, if you really
+- [04:52.400] figure it. So, we'll be heading to Paris
+- [04:55.199] where we have a a big dinner meeting
+- [04:57.680] with a lot of the same people and then
+- [05:00.479] we're going home and it's been a very
+- [05:03.120] successful trip. A lot of things have
+- [05:04.720] happened that have been very good. We'll
+- [05:07.120] be discussing a little bit about the
+- [05:08.560] deal with Iran at the 4:00 news
+- [05:11.199] conference. It's a great deal uh for a
+- [05:13.520] lot of reasons, but number one by far
+- [05:15.440] 99.9% is they will never have a nuclear
+- [05:18.800] weapon and you can't give Iran a nuclear
+- [05:21.680] weapon and they will never have a
+- [05:23.840] nuclear weapon. So that's very very
+- [05:25.680] strong. It's a very strong deal. Nobody
+- [05:28.880] knows what it is, but it's very strong
+- [05:30.800] and uh most people seem to be very
+- [05:33.600] happy. uh who's really happy is the
+- [05:36.320] market because the market's gone up
+- [05:38.560] thousands of points over the last four
+- [05:40.160] or five days since hearing about it and
+- [05:42.800] the straight is going to be opening.
+- [05:44.160] It's already partially opened. It's
+- [05:45.680] going to be opening up soon in full over
+- [05:48.639] the next day or two. Uh and the market
+- [05:51.600] has gone wild and oil has come tumbling
+- [05:55.520] down. Oil is at 73 or 74
+- [05:59.039] and it's getting to very close to where
+- [06:01.039] it was before the crisis. The difference
+- [06:03.440] is now we have Iran without a nuclear
+- [06:05.440] weapon. So, we'll see how that all plays
+- [06:08.639] out. I think people are going to be very
+- [06:10.400] happy, but there's nothing so smart as
+- [06:13.360] the market and the market loves it
+- [06:16.080] beyond anything that I've actually seen.
+- [06:19.440] Uh, again, the stock market has gone
+- [06:22.560] through the roof and oil has come
+- [06:24.880] tumbling down. I guess it's in the low
+- [06:26.800] 70s now, right?
+- [06:27.680] >> That's right.
+- [06:28.720] >> That's amazing. So that's what speaks
+- [06:31.039] that speaks louder than words. The
+- [06:33.039] alternative would be a worldwide
+- [06:35.280] depression. You know, the stupid people
+- [06:37.759] want to have a worldwide depression. And
+- [06:40.880] the stupid people, so you can only go so
+- [06:44.240] far.
+- [06:45.840] Drive somebody into the ground and a lot
+- [06:48.400] of bad things happen. Number one, the
+- [06:50.000] straight would never open because uh
+- [06:52.560] they don't like floating billion dollar
+- [06:54.400] ships up and down a straight when their
+- [06:56.560] rockets flying over them and mines all
+- [06:58.560] over the place. So the straight would
+- [07:00.400] never be open. It wouldn't be open for a
+- [07:02.000] long time. So we have uh we have a very
+- [07:05.840] hot stock market and we have a very
+- [07:08.080] starting to be a very low oil price and
+- [07:09.919] that's going to have a huge impact on
+- [07:11.919] affordability caused by the Democrats.
+- [07:14.960] The Democrats have caused so many
+- [07:16.880] problems you have no idea. But I'll
+- [07:19.280] never forget, I took over and I'm in the
+- [07:22.000] office for one day and I had my first
+- [07:24.319] news conference and they said,
+- [07:27.039] "Affordability, sir. Affordability. What
+- [07:29.599] are you doing about it?" I said, "I I've
+- [07:31.680] just been here one day to tell me about
+- [07:34.080] afford." They're the ones that caused
+- [07:35.680] affordability. It's just another con
+- [07:37.919] job. They made up the word
+- [07:39.039] affordability, but we're bringing prices
+- [07:41.520] down a lot and they're coming down fast.
+- [07:43.919] And with the settlement so worthwhile
+- [07:47.599] with the settlement where you're not
+- [07:48.960] going to have a nuclear weapon and then
+- [07:50.400] we bring them down on top of that and I
+- [07:53.199] think oil prices might get lower than
+- [07:54.879] where they were before the war. So uh
+- [07:57.919] I'm going to see you at 4:00 and we'll
+- [08:00.800] discuss that a little bit and we'll
+- [08:02.400] discuss other things. But we've had a
+- [08:04.479] great meeting. It's been a great summit
+- [08:06.960] and uh France has done a fantastic job.
+- [08:10.639] President Mcronone has been uh really
+- [08:13.360] he's really done a great job. It's been
+- [08:15.039] very wellreceived. Everybody here has
+- [08:17.680] has been I don't know if they've been
+- [08:19.280] happy. Some are not doing so well but
+- [08:21.199] some are doing very well but they've
+- [08:23.520] done a beautiful job. Thank you very
+- [08:25.120] much everybody.
+- [08:25.759] >> Thank you President
+- [08:29.919] >> Have I read it?
+- [08:30.800] >> Well it's been reported that it includes
+- [08:32.479] it 300 billion fund funded by Gulf
+- [08:36.159] allies. That's false. False. False.
+- [08:38.159] People People, you can invest if you
+- [08:40.240] want. I mean, what am I going to do? Say
+- [08:41.519] nobody's ever allowed to invest. No,
+- [08:43.519] we're not investing. We're not putting
+- [08:44.880] up 10 cents. And uh people can decide to
+- [08:48.160] do that, but that's up to them. I mean,
+- [08:50.160] do you want me to say nobody's ever
+- [08:51.600] allowed to invest in in a country? I'll
+- [08:54.160] say it with Egypt. Nobody's allowed to
+- [08:56.080] invest in Egypt. Am I supposed to say
+- [08:57.839] that?
+- [08:58.399] >> I'm asking whether
+- [08:59.440] >> we are not investing in it and we do not
+- [09:01.600] have a fund.
+- [09:02.320] >> Are you asking countries?
+- [09:03.760] >> No, I'm not. I'm not. If they do it,
+- [09:05.839] fine. But I would say they won't be
+- [09:07.839] doing it for a while until she they find
+- [09:09.519] out the behavior. It's a behavior thing.
+- [09:12.480] But we are not in that's a false story
+- [09:15.519] that got picked up incorrectly from a
+- [09:18.399] statement that was pretty well made. I
+- [09:21.360] think maybe a little bit could have been
+- [09:23.680] a little more accurate, frankly. But
+- [09:26.240] it's a story. We are not investing 10
+- [09:28.640] cents.
+- [09:30.480] Uh don't forget there's never been
+- [09:32.880] anybody that's been so tough on Iran.
+- [09:35.200] This should have been done by Clinton
+- [09:36.800] and Barack Hussein, Obama. It should
+- [09:38.640] have been done by Biden. It should have
+- [09:40.240] been done by Bush. It could have been
+- [09:42.320] done by a lot of people. This has been
+- [09:44.480] going on for 47 years.
+- [09:47.600] They've ripped you off for 47 years. And
+- [09:50.000] I'm the only one that did anything of
+- [09:51.360] it. They'd never shot missiles at
+- [09:53.040] anybody. We We wiped out their navy. We
+- [09:55.680] wiped out their military. We wiped out
+- [09:58.160] their air force. They have no
+- [10:00.480] anti-aircraft. They have no radar.
+- [10:03.519] You know, the reason oil stayed low is
+- [10:05.200] because we were taking ships out every
+- [10:06.800] night that you didn't even know about.
+- [10:09.519] Two days ago, three days ago, a month
+- [10:11.519] ago, we took out 22 ships. We averaged
+- [10:15.279] from 15 to 25 ships a night. Nobody know
+- [10:17.920] that. Our Navy did a great job. Nobody
+- [10:20.399] knew what was happening. That's why oil
+- [10:23.440] didn't go to $300 a barrel. It went to
+- [10:26.560] 125, 115. Now it's at 7273. I heard it's
+- [10:31.120] lower than that now. I haven't seen it
+- [10:32.640] in the last couple of hours. No, we were
+- [10:35.600] very tough. And we took out a man named
+- [10:37.440] Salamani. Remember that? You know, you
+- [10:39.519] think this would have happened if you
+- [10:40.640] were alive. The evil genius. He was an
+- [10:42.880] evil genius. Uh people forget that. I
+- [10:46.399] took out Salamani in my first term.
+- [10:48.800] Without that, you don't have probably
+- [10:50.320] you don't have the situation that we're
+- [10:52.399] in today where we dominated. We
+- [10:54.000] dominated. We wiped out their military.
+- [10:57.360] And because we did that and then we put
+- [10:59.200] up the blockade which was totally
+- [11:01.519] effective. Not one chip got by. Stephen,
+- [11:04.240] >> is the facts to the agreement now final
+- [11:06.720] or are you still
+- [11:07.839] >> No, it's not final. It's a memorandum of
+- [11:09.760] understanding. And if I don't like it,
+- [11:12.079] we'll go back to shooting at them,
+- [11:15.120] dropping bombs on their head.
+- [11:16.399] >> What do you expect?
+- [11:17.760] >> If I don't like it, if they don't
+- [11:19.600] behave, we'll go right back to dropping
+- [11:22.320] bombs right smack in the middle of their
+- [11:24.320] head. Okay? because they've misbehaved
+- [11:27.040] for 47 years.
+- [11:29.920] >> All right.
+- [11:30.640] >> Doesn't include
+- [11:31.440] >> but nobody could have made this deal.
+- [11:33.519] >> I mean the JCPOA done by Obama, he
+- [11:37.760] handed him a billion7 in cash. Gave him
+- [11:40.240] hundreds of millions of dollars.
+- [11:42.320] hundreds of gave them billions and
+- [11:44.240] billions of dollars, but he gave them
+- [11:46.399] $1.7 billion dollars in cash, green cash
+- [11:50.320] from banks into a Boeing 757 and flew it
+- [11:54.720] into Iran. And they stood at the plane.
+- [11:57.920] I have pictures of it like, "Oh my, look
+- [12:00.240] at this money he's giving us." He tried
+- [12:02.320] to bribe his way out. I didn't do that.
+- [12:04.880] Nobody mentions that. 1.7 billion and
+- [12:08.160] hundreds of millions of dollars. They
+- [12:10.480] tried to bribe their way out of it. And
+- [12:12.880] you know what the Iranians did? They
+- [12:15.680] laughed at Obama and they said, "He's a
+- [12:17.600] stupid son of a bitch." Okay, thank you
+- [12:20.639] very much.
+- [12:24.320] >> Thank you.
+- [12:34.880] I'd like your
+- [12:37.680] first
+- [12:41.120] question
+- [12:46.399] today.
+- [12:49.839] Will you support Egypt
+- [12:53.360] rights,
+- [12:55.200] water security?
+- [12:56.720] >> Well, that's what we're going to be
+- [12:57.760] talking about. You know, listen,
+- [12:59.360] >> how and who?
+- [13:00.560] >> That's what we're talking about. Of
+- [13:01.760] course, I support Egypt. He's a friend
+- [13:03.279] of mine from day one. You know, I met
+- [13:05.760] him early in the campaign when crooked
+- [13:08.959] Hillary and I were running against each
+- [13:10.639] other, right? And I was told that the
+- [13:13.600] president of Egypt is here. It was a big
+- [13:15.760] deal. It's still a big deal for me to be
+- [13:17.360] with the great president of Egypt, but
+- [13:19.360] not as big as it used to be before I
+- [13:21.680] ran. So, he was in a hotel and I met him
+- [13:27.120] and we fell in love, deeply in love.
+- [13:30.560] And he didn't even want to see Hillary.
+- [13:32.480] He said, "You're going to win. I don't
+- [13:34.240] want to meet her." He said, "You're
+- [13:35.600] going to win." He didn't want to see
+- [13:37.200] her. Remember that?
+- [13:38.399] >> So, we had a good relationship right
+- [13:40.079] from the No, we met. We didn't know each
+- [13:42.160] other before that. We had great
+- [13:43.440] chemistry
+- [13:45.200] and was I stayed twice as long as I was
+- [13:48.000] supposed to. Took up her time. And then
+- [13:50.240] when it was her time, he didn't want to
+- [13:52.240] meet with her, but he did because he's a
+- [13:54.480] gentleman. But it lasted about one
+- [13:55.920] minute. Thank you everybody.
+- [14:00.399] Get out of the way.
