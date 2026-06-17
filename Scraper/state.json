@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/E42bC7_2ddU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=E42bC7_2ddU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -115778,6 +115778,204 @@
       "published": "2026-06-16T16:12:24.312000+00:00",
       "title": "Biden DOJ targeted parents at school board meetings despite FBI, sheriffs' objections, mem...",
       "url": "https://truthsocial.com/@realDonaldTrump/116760664101169055"
+    },
+    "truthsocial:realdonaldtrump:116763477734116382": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.720941+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763477734116382",
+      "platform": "truthsocial",
+      "post_id": "116763477734116382",
+      "published": "2026-06-17T04:07:56.945000+00:00",
+      "title": "Truth Social post 116763477734116382",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763477734116382"
+    },
+    "truthsocial:realdonaldtrump:116763478365639550": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.720682+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763478365639550",
+      "platform": "truthsocial",
+      "post_id": "116763478365639550",
+      "published": "2026-06-17T04:08:06.580000+00:00",
+      "title": "Truth Social post 116763478365639550",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763478365639550"
+    },
+    "truthsocial:realdonaldtrump:116763479144593174": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.720347+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763479144593174",
+      "platform": "truthsocial",
+      "post_id": "116763479144593174",
+      "published": "2026-06-17T04:08:18.471000+00:00",
+      "title": "Truth Social post 116763479144593174",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763479144593174"
+    },
+    "truthsocial:realdonaldtrump:116763480203183309": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.720166+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763480203183309",
+      "platform": "truthsocial",
+      "post_id": "116763480203183309",
+      "published": "2026-06-17T04:08:34.624000+00:00",
+      "title": "Truth Social post 116763480203183309",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763480203183309"
+    },
+    "truthsocial:realdonaldtrump:116763480909156179": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.719918+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763480909156179",
+      "platform": "truthsocial",
+      "post_id": "116763480909156179",
+      "published": "2026-06-17T04:08:45.397000+00:00",
+      "title": "Truth Social post 116763480909156179",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763480909156179"
+    },
+    "truthsocial:realdonaldtrump:116763481768244058": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.719659+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763481768244058",
+      "platform": "truthsocial",
+      "post_id": "116763481768244058",
+      "published": "2026-06-17T04:08:58.505000+00:00",
+      "title": "Truth Social post 116763481768244058",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763481768244058"
+    },
+    "truthsocial:realdonaldtrump:116763482300489516": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.719381+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763482300489516",
+      "platform": "truthsocial",
+      "post_id": "116763482300489516",
+      "published": "2026-06-17T04:09:06.627000+00:00",
+      "title": "Truth Social post 116763482300489516",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763482300489516"
+    },
+    "truthsocial:realdonaldtrump:116763483006366937": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.719064+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763483006366937",
+      "platform": "truthsocial",
+      "post_id": "116763483006366937",
+      "published": "2026-06-17T04:09:17.397000+00:00",
+      "title": "Truth Social post 116763483006366937",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763483006366937"
+    },
+    "truthsocial:realdonaldtrump:116763483835179194": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.718782+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763483835179194",
+      "platform": "truthsocial",
+      "post_id": "116763483835179194",
+      "published": "2026-06-17T04:09:30.040000+00:00",
+      "title": "Truth Social post 116763483835179194",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763483835179194"
+    },
+    "truthsocial:realdonaldtrump:116763484468215021": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.718506+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763484468215021",
+      "platform": "truthsocial",
+      "post_id": "116763484468215021",
+      "published": "2026-06-17T04:09:39.698000+00:00",
+      "title": "Truth Social post 116763484468215021",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763484468215021"
+    },
+    "truthsocial:realdonaldtrump:116763485060058769": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.718219+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763485060058769",
+      "platform": "truthsocial",
+      "post_id": "116763485060058769",
+      "published": "2026-06-17T04:09:48.729000+00:00",
+      "title": "Truth Social post 116763485060058769",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763485060058769"
+    },
+    "truthsocial:realdonaldtrump:116763612893094366": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.717963+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763612893094366",
+      "platform": "truthsocial",
+      "post_id": "116763612893094366",
+      "published": "2026-06-17T04:42:19.311000+00:00",
+      "title": "I HAD A LOT OF BIG ELECTION WINS LAST NIGHT. THANK YOU TO ALL!!! President DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763612893094366"
+    },
+    "truthsocial:realdonaldtrump:116763691297203565": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.717667+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763691297203565",
+      "platform": "truthsocial",
+      "post_id": "116763691297203565",
+      "published": "2026-06-17T05:02:15.657000+00:00",
+      "title": "Congratulations to Rick Jackson, who very successfully campaigned on being \u201cTRUMP,\u201d and wo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763691297203565"
+    },
+    "truthsocial:realdonaldtrump:116763999742755145": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.717285+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116763999742755145",
+      "platform": "truthsocial",
+      "post_id": "116763999742755145",
+      "published": "2026-06-17T06:20:42.169000+00:00",
+      "title": "Rick Jackson ran a great TRUMP Campaign. Very smart! Was with me on Saturday Night making ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116763999742755145"
+    },
+    "truthsocial:realdonaldtrump:116764115535577197": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.716925+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116764115535577197",
+      "platform": "truthsocial",
+      "post_id": "116764115535577197",
+      "published": "2026-06-17T06:50:09.022000+00:00",
+      "title": "So happy for highly respected Congressman Mike Collins. He will win his Senate Race in Geo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116764115535577197"
+    },
+    "truthsocial:realdonaldtrump:116764118671718350": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.716535+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116764118671718350",
+      "platform": "truthsocial",
+      "post_id": "116764118671718350",
+      "published": "2026-06-17T06:50:56.880000+00:00",
+      "title": "Jesse Watters: Trump knows when you run the room, you set the volume: [https://www. foxnew...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116764118671718350"
+    },
+    "truthsocial:realdonaldtrump:116764370070279119": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.715892+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116764370070279119",
+      "platform": "truthsocial",
+      "post_id": "116764370070279119",
+      "published": "2026-06-17T07:54:52.919000+00:00",
+      "title": "The Republicans agreed with Dumocrats to remove very fair, and talented, William Pulte, fr...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116764370070279119"
+    },
+    "truthsocial:realdonaldtrump:116764521224175623": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T08:50:43.695209+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116764521224175623",
+      "platform": "truthsocial",
+      "post_id": "116764521224175623",
+      "published": "2026-06-17T08:33:19.345000+00:00",
+      "title": "Thank you Greg and group. No wonder you\u2019re Number One \u2014 By far!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116764521224175623"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

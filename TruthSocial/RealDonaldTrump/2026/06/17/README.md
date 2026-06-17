@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-06-17
+
+- Posts: 18
+
+- [08:33 UTC - Thank you Greg and group. No wonder you’re Number One — By far!](116764521224175623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116764521224175623
+  - Thank you Greg and group. No wonder you’re Number One — By far!
+- [07:54 UTC - The Republicans agreed with Dumocrats to remove very fair, and talented, William Pulte, fr...](116764370070279119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116764370070279119
+  - The Republicans agreed with Dumocrats to remove very fair, and talented, William Pulte, from serving as Acting DNI in return for getting FISA approved by the Dumocrats. However, th...
+- [06:50 UTC - Jesse Watters: Trump knows when you run the room, you set the volume: [https://www. foxnew...](116764118671718350/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116764118671718350
+  - Jesse Watters: Trump knows when you run the room, you set the volume: [https://www. foxnews.com/video/639860257411 2](https://www.foxnews.com/video/6398602574112)
+- [06:50 UTC - So happy for highly respected Congressman Mike Collins. He will win his Senate Race in Geo...](116764115535577197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116764115535577197
+  - So happy for highly respected Congressman Mike Collins. He will win his Senate Race in Georgia against a pathetic failed Dumocrat Senator, Os(jerk!)off, who is a joke in D.C. Nobod...
+- [06:20 UTC - Rick Jackson ran a great TRUMP Campaign. Very smart! Was with me on Saturday Night making ...](116763999742755145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763999742755145
+  - Rick Jackson ran a great TRUMP Campaign. Very smart! Was with me on Saturday Night making a pitch. Amazing!!! He won against a great guy, Burt Jones, who has a fantastic future!!!...
+- [05:02 UTC - Congratulations to Rick Jackson, who very successfully campaigned on being “TRUMP,” and wo...](116763691297203565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763691297203565
+  - Congratulations to Rick Jackson, who very successfully campaigned on being “TRUMP,” and won. He will be your next Governor of Georgia. Can’t wait! President DJT
+- [04:42 UTC - I HAD A LOT OF BIG ELECTION WINS LAST NIGHT. THANK YOU TO ALL!!! President DJT](116763612893094366/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763612893094366
+  - I HAD A LOT OF BIG ELECTION WINS LAST NIGHT. THANK YOU TO ALL!!! President DJT
+- [04:09 UTC - Truth Social post 116763485060058769](116763485060058769/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763485060058769
+  - _No text content captured._
+- [04:09 UTC - Truth Social post 116763484468215021](116763484468215021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763484468215021
+  - _No text content captured._
+- [04:09 UTC - Truth Social post 116763483835179194](116763483835179194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763483835179194
+  - _No text content captured._
+- [04:09 UTC - Truth Social post 116763483006366937](116763483006366937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763483006366937
+  - _No text content captured._
+- [04:09 UTC - Truth Social post 116763482300489516](116763482300489516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763482300489516
+  - _No text content captured._
+- [04:08 UTC - Truth Social post 116763481768244058](116763481768244058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763481768244058
+  - _No text content captured._
+- [04:08 UTC - Truth Social post 116763480909156179](116763480909156179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763480909156179
+  - _No text content captured._
+- [04:08 UTC - Truth Social post 116763480203183309](116763480203183309/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763480203183309
+  - _No text content captured._
+- [04:08 UTC - Truth Social post 116763479144593174](116763479144593174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763479144593174
+  - _No text content captured._
+- [04:08 UTC - Truth Social post 116763478365639550](116763478365639550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763478365639550
+  - _No text content captured._
+- [04:07 UTC - Truth Social post 116763477734116382](116763477734116382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116763477734116382
+  - _No text content captured._
