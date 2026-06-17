@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-17
 
-- Posts: 18
+- Posts: 19
 
+- [14:01 UTC - I will be doing a Press Conference in 45 minutes from France. I’ll then be heading to Vers...](116765811260304660/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116765811260304660
+  - I will be doing a Press Conference in 45 minutes from France. I’ll then be heading to Versailles for Dinner with French and other European Leaders, and then back home tonight! The...
 - [08:33 UTC - Thank you Greg and group. No wonder you’re Number One — By far!](116764521224175623/)
   - Source: https://truthsocial.com/@realDonaldTrump/116764521224175623
   - Thank you Greg and group. No wonder you’re Number One — By far!

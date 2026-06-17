@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/E42bC7_2ddU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=E42bC7_2ddU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=90D179dxdCM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=90D179dxdCM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9496,6 +9496,17 @@
       "published": "2026-06-17T01:30:06+00:00",
       "title": "11 years ago history changed when Donald Trump came down the golden escalators \ud83e\udd79",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7652170489640520974"
+    },
+    "tiktok:whitehouse:7652375981046435085": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T16:35:01.821231+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/17/7652375981046435085",
+      "platform": "tiktok",
+      "post_id": "7652375981046435085",
+      "published": "2026-06-17T14:47:45+00:00",
+      "title": "Boss man",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7652375981046435085"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -115976,6 +115987,17 @@
       "published": "2026-06-17T08:33:19.345000+00:00",
       "title": "Thank you Greg and group. No wonder you\u2019re Number One \u2014 By far!",
       "url": "https://truthsocial.com/@realDonaldTrump/116764521224175623"
+    },
+    "truthsocial:realdonaldtrump:116765811260304660": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-17T16:34:48.919308+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/17/116765811260304660",
+      "platform": "truthsocial",
+      "post_id": "116765811260304660",
+      "published": "2026-06-17T14:01:23.728000+00:00",
+      "title": "I will be doing a Press Conference in 45 minutes from France. I\u2019ll then be heading to Vers...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116765811260304660"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
