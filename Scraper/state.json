@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/2htsUuz72gU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=2htsUuz72gU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=8CUzvoCv51U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=8CUzvoCv51U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -116317,6 +116317,39 @@
       "published": "2026-06-18T08:32:31.915000+00:00",
       "title": "These fools, who think I haven\u2019t been tough enough on Iran, when the Stock Market Just Hit...",
       "url": "https://truthsocial.com/@realDonaldTrump/116770180426363226"
+    },
+    "truthsocial:realdonaldtrump:116771222226594566": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T16:07:11.855985+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116771222226594566",
+      "platform": "truthsocial",
+      "post_id": "116771222226594566",
+      "published": "2026-06-18T12:57:28.559000+00:00",
+      "title": "Pope Leo commends US-Iran peace deal: [https:// justthenews.com/nation/religio n/pope-leo-...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116771222226594566"
+    },
+    "truthsocial:realdonaldtrump:116771224859937865": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T16:07:11.855464+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116771224859937865",
+      "platform": "truthsocial",
+      "post_id": "116771224859937865",
+      "published": "2026-06-18T12:58:08.743000+00:00",
+      "title": "While claiming to fight corruption, Newsom solicited $340M from special interests for alli...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116771224859937865"
+    },
+    "truthsocial:realdonaldtrump:116771467656011073": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T16:07:11.854800+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116771467656011073",
+      "platform": "truthsocial",
+      "post_id": "116771467656011073",
+      "published": "2026-06-18T13:59:53.481000+00:00",
+      "title": "OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116771467656011073"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

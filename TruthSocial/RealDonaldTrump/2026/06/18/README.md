@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-18
 
-- Posts: 25
+- Posts: 28
 
+- [13:59 UTC - OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK ...](116771467656011073/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116771467656011073
+  - OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK MARKETS ARE ROARING, JOBS ARE AT RECORDS, AND PRICES ARE DROPPING (AFFORDABILITY!). OUR CO...
+- [12:58 UTC - While claiming to fight corruption, Newsom solicited $340M from special interests for alli...](116771224859937865/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116771224859937865
+  - While claiming to fight corruption, Newsom solicited $340M from special interests for allies: [https:// justthenews.com/accountability /political-ethics/newsom-alleges-trump-corrup...
+- [12:57 UTC - Pope Leo commends US-Iran peace deal: [https:// justthenews.com/nation/religio n/pope-leo-...](116771222226594566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116771222226594566
+  - Pope Leo commends US-Iran peace deal: [https:// justthenews.com/nation/religio n/pope-leo-commends-us-iran-peace-deal-ahead-friday-signing](https://justthenews.com/nation/religion/...
 - [08:32 UTC - These fools, who think I haven’t been tough enough on Iran, when the Stock Market Just Hit...](116770180426363226/)
   - Source: https://truthsocial.com/@realDonaldTrump/116770180426363226
   - These fools, who think I haven’t been tough enough on Iran, when the Stock Market Just Hit A RECORD HIGH, and Oil prices are “tumbling” down, are either jealous, bad people, or stu...
