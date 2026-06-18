@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-06-18
 
-- Posts: 15
+- Posts: 25
 
+- [08:32 UTC - These fools, who think I haven’t been tough enough on Iran, when the Stock Market Just Hit...](116770180426363226/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770180426363226
+  - These fools, who think I haven’t been tough enough on Iran, when the Stock Market Just Hit A RECORD HIGH, and Oil prices are “tumbling” down, are either jealous, bad people, or stu...
+- [08:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ...](116770165395319673/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770165395319673
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZE...
+- [08:28 UTC - Trump Says He Welcomes China, India Investment in Venezuela Oil: [https://www. bloomberg.c...](116770163996850294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770163996850294
+  - Trump Says He Welcomes China, India Investment in Venezuela Oil: [https://www. bloomberg.com/news/articles/20 26-02-01/trump-says-he-welcomes-china-india-investment-in-venezuela-oi...
+- [08:28 UTC - Truth Social post 116770162723287735](116770162723287735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770162723287735
+  - _No text content captured._
+- [08:27 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116770160614131644](116770161935260082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770161935260082
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116770160614131644
+- [08:27 UTC - Truth Social post 116770160614131644](116770160614131644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770160614131644
+  - _No text content captured._
+- [08:27 UTC - Truth Social post 116770159731133948](116770159731133948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116770159731133948
+  - _No text content captured._
+- [07:17 UTC - The statue “Valor,” one of the Arts of War statues, is almost completely regilded by our G...](116769886136736615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769886136736615
+  - The statue “Valor,” one of the Arts of War statues, is almost completely regilded by our Great Department of the Interior.
+- [06:51 UTC - The Ballroom is coming along fantastically well. It's on time, and under budget (Unlike th...](116769781426549874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769781426549874
+  - The Ballroom is coming along fantastically well. It's on time, and under budget (Unlike the Federal Reserve Building, where "Too Late" has done a terrible job of Cost and Time Cont...
+- [06:44 UTC - State Representative Don Chapman is doing a terrific job representing the wonderful people...](116769756817692963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769756817692963
+  - State Representative Don Chapman is doing a terrific job representing the wonderful people of South Carolina's 8th State House District! A Successful Architect and Businessman, bef...
 - [04:31 UTC - Freed U.S. Hostage: “President Trump is the greatest Commander-in-Chief ever.”](116769231931716794/)
   - Source: https://truthsocial.com/@realDonaldTrump/116769231931716794
   - Freed U.S. Hostage: “President Trump is the greatest Commander-in-Chief ever.”

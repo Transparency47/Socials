@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 500"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/2htsUuz72gU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=2htsUuz72gU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -116207,6 +116207,116 @@
       "published": "2026-06-18T04:31:19.072000+00:00",
       "title": "Freed U.S. Hostage: \u201cPresident Trump is the greatest Commander-in-Chief ever.\u201d",
       "url": "https://truthsocial.com/@realDonaldTrump/116769231931716794"
+    },
+    "truthsocial:realdonaldtrump:116769756817692963": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.234874+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769756817692963",
+      "platform": "truthsocial",
+      "post_id": "116769756817692963",
+      "published": "2026-06-18T06:44:48.197000+00:00",
+      "title": "State Representative Don Chapman is doing a terrific job representing the wonderful people...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769756817692963"
+    },
+    "truthsocial:realdonaldtrump:116769781426549874": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.234272+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769781426549874",
+      "platform": "truthsocial",
+      "post_id": "116769781426549874",
+      "published": "2026-06-18T06:51:03.696000+00:00",
+      "title": "The Ballroom is coming along fantastically well. It's on time, and under budget (Unlike th...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769781426549874"
+    },
+    "truthsocial:realdonaldtrump:116769886136736615": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.233735+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769886136736615",
+      "platform": "truthsocial",
+      "post_id": "116769886136736615",
+      "published": "2026-06-18T07:17:41.566000+00:00",
+      "title": "The statue \u201cValor,\u201d one of the Arts of War statues, is almost completely regilded by our G...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769886136736615"
+    },
+    "truthsocial:realdonaldtrump:116770159731133948": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.233416+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770159731133948",
+      "platform": "truthsocial",
+      "post_id": "116770159731133948",
+      "published": "2026-06-18T08:27:16.284000+00:00",
+      "title": "Truth Social post 116770159731133948",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770159731133948"
+    },
+    "truthsocial:realdonaldtrump:116770160614131644": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.233151+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770160614131644",
+      "platform": "truthsocial",
+      "post_id": "116770160614131644",
+      "published": "2026-06-18T08:27:29.671000+00:00",
+      "title": "Truth Social post 116770160614131644",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770160614131644"
+    },
+    "truthsocial:realdonaldtrump:116770161935260082": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.232878+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770161935260082",
+      "platform": "truthsocial",
+      "post_id": "116770161935260082",
+      "published": "2026-06-18T08:27:49.858000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116770160614131644",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770161935260082"
+    },
+    "truthsocial:realdonaldtrump:116770162723287735": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.232476+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770162723287735",
+      "platform": "truthsocial",
+      "post_id": "116770162723287735",
+      "published": "2026-06-18T08:28:01.854000+00:00",
+      "title": "Truth Social post 116770162723287735",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770162723287735"
+    },
+    "truthsocial:realdonaldtrump:116770163996850294": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.232165+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770163996850294",
+      "platform": "truthsocial",
+      "post_id": "116770163996850294",
+      "published": "2026-06-18T08:28:21.257000+00:00",
+      "title": "Trump Says He Welcomes China, India Investment in Venezuela Oil: [https://www. bloomberg.c...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770163996850294"
+    },
+    "truthsocial:realdonaldtrump:116770165395319673": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.231585+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770165395319673",
+      "platform": "truthsocial",
+      "post_id": "116770165395319673",
+      "published": "2026-06-18T08:28:42.562000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) THE SAVE AMERICA ACT! 1. ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770165395319673"
+    },
+    "truthsocial:realdonaldtrump:116770180426363226": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T09:44:19.230727+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116770180426363226",
+      "platform": "truthsocial",
+      "post_id": "116770180426363226",
+      "published": "2026-06-18T08:32:31.915000+00:00",
+      "title": "These fools, who think I haven\u2019t been tough enough on Iran, when the Stock Market Just Hit...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116770180426363226"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
