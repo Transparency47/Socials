@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2026-06-18
+
+- Posts: 15
+
+- [04:31 UTC - Freed U.S. Hostage: “President Trump is the greatest Commander-in-Chief ever.”](116769231931716794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769231931716794
+  - Freed U.S. Hostage: “President Trump is the greatest Commander-in-Chief ever.”
+- [04:29 UTC - The Technology the World relies on was invented in America. We all remember “Intel Inside....](116769225357410422/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769225357410422
+  - The Technology the World relies on was invented in America. We all remember “Intel Inside.” Stupid Presidents took our Economy for granted, and let Taiwan and others steal our Semi...
+- [04:08 UTC - Presidential Historian Dave King — Sounds good to me!](116769142648175922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769142648175922
+  - Presidential Historian Dave King — Sounds good to me!
+- [04:05 UTC - Tyrus became famous for saying, long before November 5th, 2024, “Why we are talking about ...](116769129718272146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769129718272146
+  - Tyrus became famous for saying, long before November 5th, 2024, “Why we are talking about the 2024 Presidential Election? It’s OVER. TRUMP is going to win, and everyone knows it. I...
+- [04:03 UTC - Ed Gallrein shows Northern Kentucky what he is made of: [https://www. washingtonexaminer.c...](116769123459644540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116769123459644540
+  - Ed Gallrein shows Northern Kentucky what he is made of: [https://www. washingtonexaminer.com/opinion /columnists/4551998/ed-gallrein-shows-northern-kentucky-what-he-is-made-of/](ht...
+- [03:05 UTC - Truth Social post 116768894897805802](116768894897805802/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768894897805802
+  - _No text content captured._
+- [02:15 UTC - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS ...](116768696093434401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768696093434401
+  - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS, DISABILITY, MIL...
+- [02:13 UTC - Colombian Presidential Candidate, “El Tigre (THE TIGER),” Abelardo de la Espriella, is a S...](116768689781682400/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768689781682400
+  - Colombian Presidential Candidate, “El Tigre (THE TIGER),” Abelardo de la Espriella, is a Smart, Strong, and Tough Leader, who fights tirelessly for, and loves, his Great Country an...
+- [02:12 UTC - It is my Great Honor to endorse Congressman Mike Kennedy, M.D., to represent the wonderful...](116768684458318874/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768684458318874
+  - It is my Great Honor to endorse Congressman Mike Kennedy, M.D., to represent the wonderful people of Utah’s 4th Congressional District! A Proven Leader, Mike has served his Communi...
+- [02:11 UTC - It is my Great Honor to endorse Congresswoman Celeste Maloy to represent the tremendous pe...](116768683883291622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768683883291622
+  - It is my Great Honor to endorse Congresswoman Celeste Maloy to represent the tremendous people of Utah’s 3rd Congressional District! Celeste has a strong Record of Success, and res...
+- [02:07 UTC - It is my Great Honor to endorse Congressman Blake Moore to represent the fantastic people ...](116768665410839599/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768665410839599
+  - It is my Great Honor to endorse Congressman Blake Moore to represent the fantastic people of Utah’s 2nd Congressional District! As the Vice Chairman of the House Republican Confere...
+- [01:51 UTC - Thank you to Great Republican Senator, Eric Schmitt!](116768604766339426/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768604766339426
+  - Thank you to Great Republican Senator, Eric Schmitt!
+- [01:51 UTC - Truth Social post 116768603925563453](116768603925563453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768603925563453
+  - _No text content captured._
+- [01:28 UTC - Congratulations to Commissioner Brian Rolapp, the PGA Tour, and the Governing Bodies, and ...](116768514151266766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768514151266766
+  - Congratulations to Commissioner Brian Rolapp, the PGA Tour, and the Governing Bodies, and also, the Great U.S. Attorney for the Southern District of New York, Jay Clayton, for a BI...
+- [00:52 UTC - Truth Social post 116768373188854516](116768373188854516/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116768373188854516
+  - _No text content captured._

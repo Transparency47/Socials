@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/2htsUuz72gU: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=2htsUuz72gU! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 500"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9529,6 +9529,17 @@
       "published": "2026-06-17T20:54:37+00:00",
       "title": "We\u2019re going to get you back \ud83d\udd25",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7652470583040462093"
+    },
+    "tiktok:whitehouse:7652523266271087885": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:38.117100+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/18/7652523266271087885",
+      "platform": "tiktok",
+      "post_id": "7652523266271087885",
+      "published": "2026-06-18T00:19:02+00:00",
+      "title": "\ud83d\udea8 Breaking: POTUS signs Iran Memorandum of Understanding",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7652523266271087885"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -116031,6 +116042,171 @@
       "published": "2026-06-17T18:23:13.677000+00:00",
       "title": "I greatly appreciate Jackson Lahmeyer\u2019s hard work under difficult circumstances \u2014 He has a...",
       "url": "https://truthsocial.com/@realDonaldTrump/116766840824918491"
+    },
+    "truthsocial:realdonaldtrump:116768373188854516": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.173695+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768373188854516",
+      "platform": "truthsocial",
+      "post_id": "116768373188854516",
+      "published": "2026-06-18T00:52:55.727000+00:00",
+      "title": "Truth Social post 116768373188854516",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768373188854516"
+    },
+    "truthsocial:realdonaldtrump:116768514151266766": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.173428+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768514151266766",
+      "platform": "truthsocial",
+      "post_id": "116768514151266766",
+      "published": "2026-06-18T01:28:46.612000+00:00",
+      "title": "Congratulations to Commissioner Brian Rolapp, the PGA Tour, and the Governing Bodies, and ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768514151266766"
+    },
+    "truthsocial:realdonaldtrump:116768603925563453": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.172942+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768603925563453",
+      "platform": "truthsocial",
+      "post_id": "116768603925563453",
+      "published": "2026-06-18T01:51:36.487000+00:00",
+      "title": "Truth Social post 116768603925563453",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768603925563453"
+    },
+    "truthsocial:realdonaldtrump:116768604766339426": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.172675+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768604766339426",
+      "platform": "truthsocial",
+      "post_id": "116768604766339426",
+      "published": "2026-06-18T01:51:49.319000+00:00",
+      "title": "Thank you to Great Republican Senator, Eric Schmitt!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768604766339426"
+    },
+    "truthsocial:realdonaldtrump:116768665410839599": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.172371+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768665410839599",
+      "platform": "truthsocial",
+      "post_id": "116768665410839599",
+      "published": "2026-06-18T02:07:14.651000+00:00",
+      "title": "It is my Great Honor to endorse Congressman Blake Moore to represent the fantastic people ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768665410839599"
+    },
+    "truthsocial:realdonaldtrump:116768683883291622": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.171849+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768683883291622",
+      "platform": "truthsocial",
+      "post_id": "116768683883291622",
+      "published": "2026-06-18T02:11:56.516000+00:00",
+      "title": "It is my Great Honor to endorse Congresswoman Celeste Maloy to represent the tremendous pe...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768683883291622"
+    },
+    "truthsocial:realdonaldtrump:116768684458318874": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.171235+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768684458318874",
+      "platform": "truthsocial",
+      "post_id": "116768684458318874",
+      "published": "2026-06-18T02:12:05.293000+00:00",
+      "title": "It is my Great Honor to endorse Congressman Mike Kennedy, M.D., to represent the wonderful...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768684458318874"
+    },
+    "truthsocial:realdonaldtrump:116768689781682400": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.170606+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768689781682400",
+      "platform": "truthsocial",
+      "post_id": "116768689781682400",
+      "published": "2026-06-18T02:13:26.519000+00:00",
+      "title": "Colombian Presidential Candidate, \u201cEl Tigre (THE TIGER),\u201d Abelardo de la Espriella, is a S...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768689781682400"
+    },
+    "truthsocial:realdonaldtrump:116768696093434401": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.170087+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768696093434401",
+      "platform": "truthsocial",
+      "post_id": "116768696093434401",
+      "published": "2026-06-18T02:15:02.828000+00:00",
+      "title": "THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW PHOTO I.D. (IDENTIFICATION!). 2. ALL VOTERS ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768696093434401"
+    },
+    "truthsocial:realdonaldtrump:116768894897805802": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.169493+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116768894897805802",
+      "platform": "truthsocial",
+      "post_id": "116768894897805802",
+      "published": "2026-06-18T03:05:36.401000+00:00",
+      "title": "Truth Social post 116768894897805802",
+      "url": "https://truthsocial.com/@realDonaldTrump/116768894897805802"
+    },
+    "truthsocial:realdonaldtrump:116769123459644540": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.169178+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769123459644540",
+      "platform": "truthsocial",
+      "post_id": "116769123459644540",
+      "published": "2026-06-18T04:03:43.920000+00:00",
+      "title": "Ed Gallrein shows Northern Kentucky what he is made of: [https://www. washingtonexaminer.c...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769123459644540"
+    },
+    "truthsocial:realdonaldtrump:116769129718272146": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.168568+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769129718272146",
+      "platform": "truthsocial",
+      "post_id": "116769129718272146",
+      "published": "2026-06-18T04:05:19.448000+00:00",
+      "title": "Tyrus became famous for saying, long before November 5th, 2024, \u201cWhy we are talking about ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769129718272146"
+    },
+    "truthsocial:realdonaldtrump:116769142648175922": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.148265+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769142648175922",
+      "platform": "truthsocial",
+      "post_id": "116769142648175922",
+      "published": "2026-06-18T04:08:36.772000+00:00",
+      "title": "Presidential Historian Dave King \u2014 Sounds good to me!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769142648175922"
+    },
+    "truthsocial:realdonaldtrump:116769225357410422": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.147910+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769225357410422",
+      "platform": "truthsocial",
+      "post_id": "116769225357410422",
+      "published": "2026-06-18T04:29:38.755000+00:00",
+      "title": "The Technology the World relies on was invented in America. We all remember \u201cIntel Inside....",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769225357410422"
+    },
+    "truthsocial:realdonaldtrump:116769231931716794": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-18T05:03:01.147293+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116769231931716794",
+      "platform": "truthsocial",
+      "post_id": "116769231931716794",
+      "published": "2026-06-18T04:31:19.072000+00:00",
+      "title": "Freed U.S. Hostage: \u201cPresident Trump is the greatest Commander-in-Chief ever.\u201d",
+      "url": "https://truthsocial.com/@realDonaldTrump/116769231931716794"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
