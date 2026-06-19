@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-19
 
-- Posts: 21
+- Posts: 23
 
+- [15:10 UTC - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ...](116777408397415858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777408397415858
+  - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, a State I love and WON BIG in 2016, 2020, and 2024! Lindsey has been a wonderful friend, a...
+- [15:10 UTC - Truth Social post 116777406264382674](116777406264382674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777406264382674
+  - _No text content captured._
 - [14:19 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We didn’t meet out of des...](116777207736809151/)
   - Source: https://truthsocial.com/@realDonaldTrump/116777207736809151
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We didn’t meet out of desperation, Iran did. They are FINISHED! We’ll play out the 60 days. They get no money, not...
