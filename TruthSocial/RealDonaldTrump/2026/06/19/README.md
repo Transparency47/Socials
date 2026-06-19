@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-06-19
 
-- Posts: 15
+- Posts: 21
 
+- [14:19 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We didn’t meet out of des...](116777207736809151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777207736809151
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) We didn’t meet out of desperation, Iran did. They are FINISHED! We’ll play out the 60 days. They get no money, not...
+- [14:19 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The War has diminished Ir...](116777207460249864/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777207460249864
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The War has diminished Iran! It doesn’t, any longer, have an Air Force, a Navy, Antiaircraft Equipment, Radar, or p...
+- [14:15 UTC - Truth Social post 116777193172851405](116777193172851405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777193172851405
+  - _No text content captured._
+- [13:44 UTC - Truth Social post 116777070139200578](116777070139200578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116777070139200578
+  - _No text content captured._
+- [12:37 UTC - We didn’t meet out of desperation, Iran did. They are FINISHED! We’ll play out the 60 days...](116776806511904791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776806511904791
+  - We didn’t meet out of desperation, Iran did. They are FINISHED! We’ll play out the 60 days. They get no money, not ten cents!
+- [12:33 UTC - The War has diminished Iran! It doesn’t, any longer, have an Air Force, a Navy, Antiaircra...](116776790136289354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776790136289354
+  - The War has diminished Iran! It doesn’t, any longer, have an Air Force, a Navy, Antiaircraft Equipment, Radar, or practically anything else, and yet the Dumocrats say that Iran is...
 - [11:11 UTC - Truth Social post 116776466591299912](116776466591299912/)
   - Source: https://truthsocial.com/@realDonaldTrump/116776466591299912
   - _No text content captured._
