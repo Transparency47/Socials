@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-19
 
-- Posts: 24
+- Posts: 25
 
+- [21:15 UTC - I love the Wonderful State of South Carolina for every reason in the book, including the f...](116778841965906179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116778841965906179
+  - I love the Wonderful State of South Carolina for every reason in the book, including the fact that it is “loaded up” with truly GREAT people and Political Leaders. There are two Hi...
 - [18:24 UTC - Very popular agreement, except for the Fake News and their partner, the Dumocrats!](116778171813570099/)
   - Source: https://truthsocial.com/@realDonaldTrump/116778171813570099
   - Very popular agreement, except for the Fake News and their partner, the Dumocrats!
