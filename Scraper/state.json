@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=1TZslcVXaJ4: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=1TZslcVXaJ4! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=1TZslcVXaJ4&ei=CaE0arnCJOKFkucP7Y7TuAw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1781859193&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=D10FE49686B56A4A45BDF1B35E053B0C862DBED2.5FBD49F34639A65213235969385E3156D86D7479&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=1TZslcVXaJ4: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=1TZslcVXaJ4! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -116482,6 +116482,50 @@
       "published": "2026-06-19T01:26:55.762000+00:00",
       "title": "The Dumocrats are better at one thing than the Republicans \u2014 CHEATING. MAKE AMERICA GREAT ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116774169197004942"
+    },
+    "truthsocial:realdonaldtrump:116774618857147202": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T06:59:52.835098+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/19/116774618857147202",
+      "platform": "truthsocial",
+      "post_id": "116774618857147202",
+      "published": "2026-06-19T03:21:17.030000+00:00",
+      "title": "Iranian resistance leader, former national security aide praise Trump\u2019s deal with Tehran: ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116774618857147202"
+    },
+    "truthsocial:realdonaldtrump:116775026340821501": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T06:59:52.834276+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/19/116775026340821501",
+      "platform": "truthsocial",
+      "post_id": "116775026340821501",
+      "published": "2026-06-19T05:04:54.704000+00:00",
+      "title": "Truth Social post 116775026340821501",
+      "url": "https://truthsocial.com/@realDonaldTrump/116775026340821501"
+    },
+    "truthsocial:realdonaldtrump:116775029614743328": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T06:59:52.833944+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/19/116775029614743328",
+      "platform": "truthsocial",
+      "post_id": "116775029614743328",
+      "published": "2026-06-19T05:05:44.658000+00:00",
+      "title": "Truth Social post 116775029614743328",
+      "url": "https://truthsocial.com/@realDonaldTrump/116775029614743328"
+    },
+    "truthsocial:realdonaldtrump:116775035111874680": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T06:59:52.833508+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/19/116775035111874680",
+      "platform": "truthsocial",
+      "post_id": "116775035111874680",
+      "published": "2026-06-19T05:07:08.539000+00:00",
+      "title": "UFC FREEDOM 250! \ud83c\uddfa\ud83c\uddf8\ud83e\udd85",
+      "url": "https://truthsocial.com/@realDonaldTrump/116775035111874680"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
