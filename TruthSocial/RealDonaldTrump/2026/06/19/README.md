@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-19
 
-- Posts: 23
+- Posts: 24
 
+- [18:24 UTC - Very popular agreement, except for the Fake News and their partner, the Dumocrats!](116778171813570099/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116778171813570099
+  - Very popular agreement, except for the Fake News and their partner, the Dumocrats!
 - [15:10 UTC - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, ...](116777408397415858/)
   - Source: https://truthsocial.com/@realDonaldTrump/116777408397415858
   - Senator Lindsey Graham is working incredibly hard for the Great People of South Carolina, a State I love and WON BIG in 2016, 2020, and 2024! Lindsey has been a wonderful friend, a...
