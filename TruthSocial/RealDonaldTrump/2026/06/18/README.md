@@ -1,7 +1,31 @@
 # TruthSocial / RealDonaldTrump / 2026-06-18
 
-- Posts: 28
+- Posts: 36
 
+- [23:02 UTC - Truth Social post 116773601993335103](116773601993335103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116773601993335103
+  - _No text content captured._
+- [23:01 UTC - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY Preside...](116773596380247574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116773596380247574
+  - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY President to win ALL 77 Counties in three straight Elections. Additionally, I won more votes than...
+- [18:24 UTC - Anybody who doesn’t want to Terminate the Filibuster is a FOOL, a very stupid one, at that...](116772506497851104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772506497851104
+  - Anybody who doesn’t want to Terminate the Filibuster is a FOOL, a very stupid one, at that! The Dumocrats will end it within minutes of taking office, and then rapidly proceed to d...
+- [18:09 UTC - It seems as though the Great State of Utah, which I won each time, and handily, is going t...](116772448531484273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772448531484273
+  - It seems as though the Great State of Utah, which I won each time, and handily, is going to the All Mail In Ballot format of Colorado, and the rest, that always head LEFT, as soon...
+- [18:01 UTC - The United States is committed to PEACE, and we encourage everyone in the Middle East Regi...](116772416131420569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772416131420569
+  - The United States is committed to PEACE, and we encourage everyone in the Middle East Region to maintain their commitment to allowing our negotiations to beautifully unfold. The Ma...
+- [16:49 UTC - There is no 300 Billion Dollar payment to Iran by the U.S. That’s Fake News! All there is ...](116772135215188960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772135215188960
+  - There is no 300 Billion Dollar payment to Iran by the U.S. That’s Fake News! All there is for the U.S. is Success, Lower Oil Prices, and Victory. Check out the Stock Market. Dumocr...
+- [16:45 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Former Trump economist sa...](116772117261615722/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772117261615722
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Former Trump economist says Iran deal means big economic boom for US: [https:// justthenews.com/nation/free-sp eech...
+- [16:44 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) US attorney in California...](116772115745401759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116772115745401759
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) US attorney in California suspects voter fraud investigation will result in charges: [https:// justthenews.com/gove...
 - [13:59 UTC - OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK ...](116771467656011073/)
   - Source: https://truthsocial.com/@realDonaldTrump/116771467656011073
   - OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK MARKETS ARE ROARING, JOBS ARE AT RECORDS, AND PRICES ARE DROPPING (AFFORDABILITY!). OUR CO...

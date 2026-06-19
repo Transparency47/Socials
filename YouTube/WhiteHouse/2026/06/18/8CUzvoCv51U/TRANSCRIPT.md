@@ -1,0 +1,1442 @@
+<!-- source: https://www.youtube.com/watch?v=8CUzvoCv51U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8CUzvoCv51U -->
+<!-- date_published: 2026-06-18T16:18:06+00:00 -->
+<!-- date_accessed: 2026-06-19T00:36:31.455789+00:00 -->
+
+# Transcript: Vice President JD Vance Briefs Members of the Media, Jun. 18, 2026
+
+- [00:06.960] All right, good morning everybody.
+- [00:09.760] >> Nothing to talk about. Slow news day
+- [00:11.679] here in Washington DC. So, let me just
+- [00:14.000] say a couple of things off the bat.
+- [00:15.599] First of all, I think the president's
+- [00:17.359] peace plan in Iran is already bearing
+- [00:19.439] real fruits for the American people.
+- [00:21.520] Last night, 12.5 million barrels of oil
+- [00:24.720] went through the straight of Hormuz.
+- [00:26.000] That is a high since the beginning of
+- [00:27.439] the conflict. Oil prices are down nearly
+- [00:30.400] at their level from the pre-war
+- [00:31.760] conflict. Gas prices dropped below $4 a
+- [00:34.480] gallon today for the first time since
+- [00:36.640] the conflict. And importantly, they're
+- [00:38.320] going to keep falling further given how
+- [00:39.680] low price low oil prices are. Um on the
+- [00:43.840] uh military side, the Iranians for the
+- [00:45.840] second night in a row did not shoot at
+- [00:47.600] any ships in the straight of Hormuz. So,
+- [00:49.440] so far they are honoring their end of
+- [00:51.440] the commitment. And on the blockade,
+- [00:53.280] Sentcom has allowed north of a dozen
+- [00:55.039] ships to go through our naval blockade.
+- [00:57.199] And so we're also honoring our end of
+- [00:59.120] the early part of the agreement. On the
+- [01:01.760] military side, uh, a couple of things
+- [01:03.760] that are still true and will be true
+- [01:05.600] whether the Iranians comply with the
+- [01:07.119] rest of the deal or not. Number one,
+- [01:08.720] their nuclear program has been
+- [01:10.240] completely destroyed. Their capacity for
+- [01:12.000] enrichment, the facilities at which they
+- [01:13.920] were using to develop enrichment and
+- [01:15.760] develop a potential nuclear weapon,
+- [01:18.000] those facilities are still destroyed.
+- [01:19.920] Their conventional military is still
+- [01:21.600] destroyed. Their capacity to threaten
+- [01:23.439] their neighbors is still largely gone.
+- [01:25.920] And now we see whether they are willing
+- [01:28.000] to comply with the next step of the
+- [01:30.240] president's peace plan. As you all know,
+- [01:33.280] the part of the peace plan, the part of
+- [01:35.600] this that I think have been most
+- [01:37.119] misrepresented by certain parts of the
+- [01:39.360] media is the idea that the Iranians get
+- [01:40.960] all these benefits. You will hear things
+- [01:42.400] about $300 billion or $24 billion or
+- [01:45.280] this or that number of money or amount
+- [01:46.880] of money. And the simple fact is that
+- [01:48.880] the only way the Iranians get any of
+- [01:51.520] those resources, not a single penny by
+- [01:53.920] the way, from the United States of
+- [01:55.200] America under any circumstances, but the
+- [01:57.759] only way that they would ever get any
+- [01:59.280] benefit of the bargain is if they comply
+- [02:02.079] fully and change their behavior. And so
+- [02:04.719] you really have a win-win situation for
+- [02:06.719] the United States of America. If the
+- [02:08.640] Iranians don't change their behavior,
+- [02:11.120] their military and their nuclear program
+- [02:13.120] is still destroyed. If they do change
+- [02:15.440] their behavior, then they are going to
+- [02:17.440] have a transformative relationship with
+- [02:19.840] the Middle East, and the Middle East
+- [02:21.440] will have a transformative relationship
+- [02:23.120] with the people of Iran. That's a win
+- [02:25.360] for the American people and for the
+- [02:26.959] president of the United States,
+- [02:28.480] regardless of which option the Iranians
+- [02:30.800] ultimately choose. We obviously want
+- [02:32.160] them to choose the right option. The
+- [02:34.319] interesting thing about their system,
+- [02:35.440] and I think it's it's important for the
+- [02:36.959] American people to appreciate this point
+- [02:39.120] in particular, is that there are real
+- [02:41.200] divisions within their country about how
+- [02:43.840] exactly to proceed. And what we've seen
+- [02:45.920] over the last couple of months is that
+- [02:48.080] the pragmatists within the Iranian
+- [02:50.160] system, the people who really do want to
+- [02:51.920] transform their relationship with the
+- [02:53.760] Middle East and with the within with the
+- [02:55.519] world, those people are winning the
+- [02:57.760] argument. The United States wants those
+- [02:59.680] people to win the argument. The United
+- [03:01.120] States wants to have a better
+- [03:03.040] relationship, but in order for that to
+- [03:04.879] happen, the Iranians have to perform.
+- [03:06.959] And if they don't perform, as we've said
+- [03:09.120] before, they don't get any of the
+- [03:11.040] benefits of the bargain. So, what I'd
+- [03:12.480] ask all of you is just to report
+- [03:13.840] honestly that the United States isn't
+- [03:16.560] giving up a cent of money to Iran. And
+- [03:19.360] even the economic benefits, the
+- [03:20.879] sanctions, relief, and so forth that
+- [03:22.400] comes along with this bargain only
+- [03:24.879] happens if the Iranians perform. Uh, so
+- [03:27.760] with that, I want to say thanks to all
+- [03:29.360] of you. It's good to be with you this
+- [03:30.879] morning and I'll kick it over to
+- [03:32.480] questions. Let's start right over here
+- [03:33.920] to the right.
+- [03:34.799] >> Thank you, Mr. Vice President. I wanted
+- [03:36.400] to ask a followup on something you just
+- [03:38.319] mentioned. You talked about the
+- [03:39.920] possibility of the current Iranian
+- [03:41.519] leadership fundamentally changing their
+- [03:43.360] behavior. Do you think that the current
+- [03:45.920] Iranian leadership recognizes the
+- [03:47.840] leverage that the US holds over itself
+- [03:50.000] economically and militarily enough to
+- [03:52.480] actually go forth with fundamentally
+- [03:54.720] changing their behavior over the long
+- [03:56.319] term and going about things differently?
+- [03:58.159] So, I certainly think they recognize the
+- [03:59.760] leverage that the United States has over
+- [04:01.439] them. We've seen that in a number of our
+- [04:02.959] conversations. We've seen that just in
+- [04:04.560] their behavior over the last couple of
+- [04:05.840] days. They certainly recognize that the
+- [04:07.519] United States has great leverage. Will
+- [04:09.760] that ultimately lead to a change in
+- [04:11.120] behavior? I don't know. Uh, you know,
+- [04:12.799] I've seen skeptics of the deal. People
+- [04:14.400] say the Iranians will never change their
+- [04:17.199] behavior. Well, maybe that's true. And
+- [04:18.880] if so, they don't get any of the
+- [04:20.079] benefits of the bargain. But isn't it
+- [04:21.919] worth trying? Isn't it worth seeing
+- [04:24.240] whether this incredibly weakened
+- [04:25.919] position that the president of the
+- [04:27.520] United States has put the Iranians
+- [04:29.600] under, whether that motivates them to
+- [04:32.160] change their behavior, not just vis the
+- [04:34.160] West, but visv the Middle East? And one
+- [04:36.800] of the the interesting things about this
+- [04:38.479] is, you know, the technical details of
+- [04:40.639] this we can of course get into. There
+- [04:42.960] are any gonna be any number of opinions
+- [04:44.479] about the negotiation, about where it's
+- [04:46.320] ultimately going to go. But I tend to
+- [04:48.240] think that you should trust the people
+- [04:49.520] who know the Iranians the best and who
+- [04:51.600] have the most to lose. What are the Gulf
+- [04:54.240] Arab states saying about this deal? What
+- [04:57.120] are they saying about this deal compared
+- [04:58.720] to the JCPOA in 2015? This is the Obama
+- [05:02.000] nuclear deal. Well, back then they hated
+- [05:04.880] that deal. They felt like it empowered
+- [05:06.800] the Iranians to be bad actors across the
+- [05:09.039] region. And of course, that's exactly
+- [05:10.479] what happened. and they were right about
+- [05:11.759] that. What are they saying about the
+- [05:13.680] president's peace deal? They're saying
+- [05:15.600] this is an amazingly transformative
+- [05:17.600] thing for the region because either way,
+- [05:20.320] we and the broader region win. Iran is
+- [05:23.440] weakened, their nuclear program
+- [05:25.120] destroyed, their economy in desperate
+- [05:27.600] straits. And if they change their
+- [05:29.840] behavior, big things are going to happen
+- [05:31.840] for Iran and for the world. If they
+- [05:33.280] don't, no skin off our backs. Either
+- [05:35.759] way, we win. And that's the way the
+- [05:38.000] president has set up this deal and this
+- [05:39.759] negotiation.
+- [05:41.120] >> Thank you, Mr. President. Just a quick
+- [05:43.919] question which I think you answered
+- [05:45.188] [clears throat] in your topper, but did
+- [05:46.240] the 60-day period officially begin
+- [05:49.280] yesterday?
+- [05:50.560] >> I would say the 60-day period officially
+- [05:52.560] started today. It was signed late and it
+- [05:54.720] may have even been signed technically,
+- [05:57.039] you know, because of the time shift. I
+- [05:58.720] think it signed technically today Iran
+- [06:01.039] time. So, yes, the the the deal started
+- [06:04.319] yesterday. We're going to start the 60
+- [06:06.479] the clock today.
+- [06:08.720] Go ahead.
+- [06:09.120] >> Can you help us understand President
+- [06:10.960] Trump's shift on his stance for Iran's
+- [06:14.080] ballistic missile program? Initially, it
+- [06:16.800] was a key objective to dismantle it.
+- [06:19.199] Yesterday, he said it would only be fair
+- [06:21.360] if they had some if the countries around
+- [06:24.080] Iran also had some. So, when and why did
+- [06:27.280] that change and will the final agreement
+- [06:29.680] have any restrictions on these missiles?
+- [06:31.759] So, we destroyed a substantial number of
+- [06:33.919] their ballistic missiles and their
+- [06:36.080] excuse me, ballistic missile launchers
+- [06:37.680] themselves. It's not just the bullets,
+- [06:39.120] but it's the actual gun. And that's what
+- [06:40.800] we were extremely effective at in
+- [06:42.560] destroying during the last 3 months of
+- [06:44.479] the campaign. All the president said
+- [06:46.400] yesterday is that of course region
+- [06:49.600] countries don't give up the right of
+- [06:50.960] self-defense. Israel doesn't give up the
+- [06:53.120] right of self-defense if Hezbollah fires
+- [06:55.039] rockets or drones at Israel. The
+- [06:57.520] Iranians don't give up the right of
+- [06:58.960] self-defense in their country. But we do
+- [07:01.680] expect that as part of the final deal,
+- [07:03.759] they are not going to be able to build
+- [07:05.120] the kind of missiles that can broadly
+- [07:07.360] threaten the entire world. And that's
+- [07:09.280] what the president of the United States
+- [07:10.400] said yesterday. And and look, I mean,
+- [07:12.080] it's it's very simple. You can't tell a
+- [07:14.319] country whether Israel or Iran they're
+- [07:16.080] not allowed to have any self-defense.
+- [07:18.160] That's not what the president has asked.
+- [07:19.680] That's not what the president has
+- [07:20.720] requested. But as part of the final
+- [07:22.400] deal, what we want to see is Iran not
+- [07:25.440] funding regional instability, funding
+- [07:27.599] regional terrorism, and of course trying
+- [07:29.039] to rebuild their nuclear weapons
+- [07:30.400] program. That's the main thing. The
+- [07:32.720] nuclear weapons program is destroyed. It
+- [07:35.199] is gone. If the Iranians decided
+- [07:37.360] tomorrow to build a nuclear weapon, they
+- [07:39.280] simply don't have the capacity in order
+- [07:40.960] to do that. What we're trying to ensure
+- [07:43.199] is they don't rebuild that capacity, not
+- [07:45.440] just a year from now, two years from
+- [07:46.960] now, but many, many years from now, so
+- [07:48.880] that our children never have to worry
+- [07:50.319] about a state sponsor of terrorism
+- [07:52.560] having a nuclear weapon.
+- [07:55.440] >> Thank you, Mr. Vice President. you were
+- [07:56.639] just [clears throat] saying that um
+- [07:58.160] you're hoping this deal would prevent
+- [08:00.160] Iran in the future from getting a
+- [08:02.160] nuclear weapon, but from what's been put
+- [08:04.160] out there of theou um I'm I'm curious
+- [08:07.520] how does theou reflect that in the
+- [08:09.599] future Iran will not in fact get a
+- [08:11.039] nuclear weapon? What's stopping them
+- [08:12.720] from down the road to your point
+- [08:14.560] rebuilding and restarting from where we
+- [08:16.879] were pre the war?
+- [08:17.919] >> Well, number one, they would have to get
+- [08:19.199] a lot of money in order to rebuild their
+- [08:20.960] nuclear program. You're talking about
+- [08:22.240] billions and billions of nuclear
+- [08:23.919] infrastructure that the United States
+- [08:25.360] destroyed. In order for them to rebuild
+- [08:27.280] that program, they would have to get a
+- [08:28.639] lot of money. And we have them in an
+- [08:30.240] economic chokeold right now that we're
+- [08:31.759] not going to release until they
+- [08:32.880] fundamentally change their behavior.
+- [08:34.240] What would that look like? That would
+- [08:35.760] mean a real inspections regime. That
+- [08:38.080] would mean a real enforcement regime. As
+- [08:39.839] theou contemplates, that would mean the
+- [08:41.839] destruction of their enriched stockpile.
+- [08:43.919] All of these things are the sorts of
+- [08:45.600] steps you're going to take if you're
+- [08:47.279] serious about ending your nuclear
+- [08:48.480] weapons program. And that again is why I
+- [08:50.399] I go back to this this fundamental trade
+- [08:52.480] that's built into the deal. They need
+- [08:54.880] money to do anything. Their economy is
+- [08:57.680] in absolute dire straits. But in order
+- [09:00.560] for them to get any integration into the
+- [09:02.880] world economy, they're going to have to
+- [09:04.399] show us and verify for us that they are
+- [09:07.279] changing their behavior. And that's why
+- [09:08.560] the deal is set up in the way that it
+- [09:10.240] is. Go ahead.
+- [09:11.839] >> Um you um President Trump said yesterday
+- [09:14.240] that he was going to blame you if the
+- [09:16.000] talks of Iran go sideways. Are you
+- [09:18.399] worried that he's going to make you the
+- [09:19.600] full guy?
+- [09:20.240] >> Uh, no, not at all. I mean, I think the
+- [09:21.680] president was joking. Uh, but as as he
+- [09:24.160] often does, but no, I I think look, the
+- [09:26.080] entire team has worked very well on this
+- [09:27.600] and we've got this thing to a very good
+- [09:29.440] place for the American people. Now, I
+- [09:30.959] have seen some progressive criticisms of
+- [09:33.360] me personally saying, "What experience
+- [09:36.000] does the vice president of the United
+- [09:37.600] States have with hostile, highstakes
+- [09:40.080] negotiations?" And I would point those
+- [09:42.240] progressive critics to the fact that
+- [09:43.920] just two days ago, I spent over an hour
+- [09:45.600] on the view. So, I actually have great
+- [09:48.399] experience in very hostile negotiations
+- [09:51.040] and I've used that. I mean, look, Joy
+- [09:52.640] Behar is way tougher than the Iranians
+- [09:54.959] and she and I are best friends now. So,
+- [09:57.040] we're going to get to a good place here.
+- [09:58.640] We're going to get to a good place.
+- [10:00.240] We're already at a good place. It's just
+- [10:02.000] a question of whether we can really get
+- [10:03.360] the icing on the top of fundamentally
+- [10:05.360] transforming Iran's relationship with
+- [10:07.360] the world. Go ahead.
+- [10:08.640] >> Thank you. A couple of just timing
+- [10:10.160] questions. how soon uh as
+- [10:12.431] [clears throat] theou lays out can Iran
+- [10:14.399] start selling any of its oil that has
+- [10:16.720] sort of been impounded right with the
+- [10:18.079] blockade and two um can you sort of
+- [10:21.680] explain the Lebanon component to theou
+- [10:24.720] and how that front works in the
+- [10:26.399] enforcibility of it
+- [10:28.240] >> yeah so so the Lebanon component this is
+- [10:30.000] about regional peace right this is about
+- [10:32.000] regional peace and what that means is we
+- [10:34.320] expect Hezbollah is not going to be
+- [10:35.839] firing rockets and firing drones at the
+- [10:37.839] Israelis and we also expect that the
+- [10:39.680] Israelis are not going to be going wild
+- [10:41.360] in Lebanon, right? Both sides have to
+- [10:43.279] honor their end of the deal. Now, as you
+- [10:45.200] guys know, sometimes these ceasefires
+- [10:47.279] are a little messy. The president,
+- [10:48.959] United States said this a couple of
+- [10:50.240] weeks ago that a ceasefire in that
+- [10:52.240] region of the world just means they're
+- [10:53.600] shooting a little bit less at each other
+- [10:55.040] than they were before. What you've seen
+- [10:56.959] is radical progress in Lebanon, less
+- [11:00.160] shooting, less firing, but you're still
+- [11:02.720] going to have these little flare-ups
+- [11:03.920] from time to time, and that's just the
+- [11:05.120] sort of thing that we're going to have
+- [11:06.079] to manage through the diplomatic
+- [11:07.680] process. Secretary Rubio's been sort of
+- [11:10.000] the person on point. It it's actually
+- [11:12.399] worked out extraordinarily well because
+- [11:14.640] we do have substantially less shooting,
+- [11:16.480] but it's going to be something we have
+- [11:17.519] to manage. And eventually what we want
+- [11:19.440] to see is the Lebanese government, the
+- [11:21.360] elected representatives of the people of
+- [11:23.040] Lebanon who are able to police southern
+- [11:25.279] Lebanon so that Hezbollah has not taken
+- [11:27.680] over the country, the Israelis are not
+- [11:29.600] threatened, and then consequently the
+- [11:31.360] Israelis are not attacking uh southern
+- [11:33.600] Lebanon or Beirut either. That's the
+- [11:35.360] plan there. You asked about the Iranian
+- [11:36.880] oil. Look, um, one of the interesting
+- [11:38.880] things that that you've seen is that the
+- [11:42.000] Iranians have been completely unable to
+- [11:44.560] sell oil, not because of sanctions, but
+- [11:47.120] because of the blockade. Fundamentally,
+- [11:49.200] the thing that we have done here, the
+- [11:51.040] original, you know, what we give what
+- [11:53.040] they give is that we said we're going to
+- [11:54.880] lift the blockade. We're going to allow
+- [11:56.720] you to sell some of your oil and they're
+- [11:58.640] going to open the straight of Hormuz. We
+- [12:00.399] see that process starting to work
+- [12:01.920] already. It's going to take a little
+- [12:03.440] time before it picks up fully, but
+- [12:05.120] that's where we are today.
+- [12:06.160] >> Mr. Vice President,
+- [12:07.440] >> go ahead.
+- [12:07.839] >> Thank you, Mr. Vice President. Theou
+- [12:09.519] just on the straight, the MOU guarantees
+- [12:11.279] the 60 days of toll-free passage, but
+- [12:13.519] after that, it is of course led to a
+- [12:15.440] regional dialogue with a monitor on
+- [12:17.040] deciding the future governance of the
+- [12:18.560] straight. A senior US official told us
+- [12:20.560] yesterday that they expect Iran to push
+- [12:22.320] aggressively on this, but also that Gulf
+- [12:24.399] states won't allow any kind of tolls.
+- [12:26.480] How strenuously will the US fight to
+- [12:28.639] keep tolls out of the straight and keep
+- [12:30.639] any fees away from the future straight
+- [12:32.560] commercial traffic? and are you going to
+- [12:34.399] leave it to the Gulf States to kind of
+- [12:36.399] fight this battle?
+- [12:37.120] >> Well, first of all, we believe
+- [12:38.000] international waterways should be free
+- [12:39.680] of tolls and that's been our position.
+- [12:41.360] That's what you see of course in the 60
+- [12:42.880] days of theou and when you say it leaves
+- [12:45.600] it open, it doesn't really leave it open
+- [12:47.680] except in the sense that of course the
+- [12:49.839] final negotiation is going to set the
+- [12:51.360] terms of what comes afterwards, right?
+- [12:53.920] uh you said I I think that the it's the
+- [12:56.160] G it's the Omanis and the Iranians but
+- [12:58.480] it's actually theouou contemplates that
+- [13:00.240] the Omanis the Iranians and the Gulf
+- [13:02.480] Coast coalition together will figure out
+- [13:05.279] a proper security framework for the
+- [13:07.279] straits in the future and what I mean by
+- [13:08.959] that is that we don't ever want this to
+- [13:10.399] happen again that's not about tolling
+- [13:12.560] that's about ensuring that the straits
+- [13:14.560] are never used as a choke point for the
+- [13:16.800] global economy ever again it's frankly
+- [13:18.880] not what the Iranians want the Omanis
+- [13:21.360] want it's not what the GCC wants either
+- [13:23.279] So what we're going to do, of course,
+- [13:24.720] working with our allies in the region,
+- [13:26.480] is to ensure that that is reflected in
+- [13:28.320] the final deal. And if that's not
+- [13:30.160] reflected in the final deal, there's not
+- [13:31.839] going to be a final deal. And that that
+- [13:33.040] that is I I keep coming back to this
+- [13:34.880] fundamental structural point of this
+- [13:36.800] negotiation, which is that we have all
+- [13:38.639] the cards. If the Iranians want the
+- [13:40.560] benefits of the bargain, they have to
+- [13:42.399] give us the things that are necessary to
+- [13:44.560] get those benefits.
+- [13:46.399] >> Go ahead.
+- [13:48.639] >> Thank you, Mr. Vice President.
+- [13:49.920] >> We'll do Okay,
+- [13:51.920] >> both you guys. There's one in the white
+- [13:53.360] and then one in, you know, orange, I
+- [13:55.120] think.
+- [13:55.519] >> What about the pink?
+- [13:57.199] >> I'm sorry. [laughter]
+- [13:58.800] >> Okay. Maybe I'm maybe I'm color blind.
+- [14:01.040] It looks more orange to me. I don't want
+- [14:02.639] to have a debate about that. Orange,
+- [14:04.320] pinkish, you go first and then in front
+- [14:07.279] of you, you can go second.
+- [14:08.399] >> President, thank you, M.
+- [14:10.854] >> [laughter]
+- [14:11.440] >> How does the points about um granting
+- [14:14.720] some immediate waiverss on sanctions,
+- [14:17.440] especially from the Treasury Department,
+- [14:19.120] how does that square with the Iran
+- [14:20.800] Nuclear Agreement Review Act? And are
+- [14:23.680] you planning on briefing Congress on
+- [14:25.440] this portion?
+- [14:26.560] >> Yeah, so I talked to James Brad, our
+- [14:28.000] head of OA. We do plan to brief Congress
+- [14:30.000] very soon. I believe that they got the
+- [14:31.519] formal copy of the signed document this
+- [14:33.440] morning, and if not, they're going to
+- [14:34.880] get it some point later today. Uh we are
+- [14:37.120] planning a briefing. I believe right now
+- [14:38.639] the House is out of session. the Senate
+- [14:40.639] is in session, though maybe I've
+- [14:42.000] reversed that, but we're we're going to
+- [14:44.000] ensure that the team briefs Congress and
+- [14:46.560] of course answers their questions. We've
+- [14:48.240] been doing that informally, of course,
+- [14:49.839] talking to a number of of people in
+- [14:51.760] Congress just over the last week. We'll
+- [14:53.680] keep on doing that and we'll have a
+- [14:54.959] formal briefing. I won't say exactly
+- [14:56.399] when that will be because it depends a
+- [14:58.160] little bit about session schedule. Uh
+- [15:00.480] your point about the sanctions is is
+- [15:02.320] I'll go back to what I said earlier,
+- [15:03.519] which is really the choke point on
+- [15:04.880] Iranian oil was never the sanctions. We
+- [15:07.839] didn't see that as a major concession to
+- [15:09.760] the Iranians. Frankly, the Iranians
+- [15:11.199] didn't see that as a concession to them
+- [15:12.800] because the what prevented them from
+- [15:14.160] selling oil was not the sanctions. They
+- [15:16.320] were selling plenty of oil without any
+- [15:18.959] discount because the sanctions were just
+- [15:20.880] fundamentally ineffective at that point.
+- [15:23.120] What the sanctions did do is move the
+- [15:25.360] Iranian financial system to sort of the
+- [15:27.120] shadow banking system. So, by lifting
+- [15:29.120] the blockade, that's the significant
+- [15:31.440] thing that has changed. And by lifting
+- [15:33.279] the sanctions, we're actually going to
+- [15:34.399] be able to see a little bit where their
+- [15:36.160] financial system actually sends money
+- [15:38.000] and receives money. That's a real
+- [15:39.760] benefit to the American people. And
+- [15:41.360] that's really the only thing that is
+- [15:42.800] changed by the the change in sanctions.
+- [15:45.199] >> Does that require Congress from
+- [15:46.959] >> Oh, sorry. Sorry. Yeah, sorry. I forgot
+- [15:48.560] that part of the question. No, we don't
+- [15:49.920] think so. We actually have an opinion
+- [15:51.040] from OLC. We feel quite confident about
+- [15:53.279] that. You know, Congress does there are
+- [15:55.040] certain things that require
+- [15:56.399] congressional approval. There are
+- [15:58.160] certain things that don't require
+- [15:59.279] congressional approval. We feel quite
+- [16:00.959] confident that we can temporarily lift
+- [16:02.399] those sanctions without going to
+- [16:03.600] Congress and seeking their approval on
+- [16:05.360] that.
+- [16:06.639] >> Apparently, there's been reports coming
+- [16:08.160] out of Israel that Iran is already
+- [16:10.000] funneling um oil money to Hezbollah even
+- [16:12.800] before this particular was signed. And
+- [16:16.320] how exactly uh is uh is the US looking
+- [16:20.720] at this? If we're talking about behavior
+- [16:23.519] on part of Iran, I mean, October 7th
+- [16:25.920] happened. Um, and if there's concern
+- [16:27.920] that perhaps Hezbollah could end up
+- [16:30.560] doing some sort of attack on that scale,
+- [16:33.440] then, you know, how exactly are we
+- [16:36.160] talking about the reaction from the
+- [16:38.560] United States? If you're talking
+- [16:39.541] [clears throat] about perhaps a
+- [16:41.120] humongous scaled attack that that
+- [16:43.360] actually could happen, are we waiting
+- [16:45.040] for that type of attack? I mean, what
+- [16:47.120] exactly is is a scale here?
+- [16:51.360] Sorry. You said what exactly is a scale?
+- [16:53.519] >> Yeah. Well, I mean like what type of
+- [16:55.120] attack would it take to actually re get
+- [16:57.600] a reaction from the United States to
+- [17:00.000] say, "Okay, now we're actually going to
+- [17:01.519] start dropping bombs on on on Iran for
+- [17:05.039] having bad behavior."
+- [17:06.160] >> Well, we don't want any a scale of any
+- [17:07.839] attack. Any attack, whatever it scale is
+- [17:10.319] unacceptable under this agreement. Now
+- [17:12.400] you asked the question saying that oil
+- [17:14.079] money was flowing to Hezbollah before
+- [17:17.120] theou was signed and it's one of the
+- [17:19.679] reasons why we are actually engaged in
+- [17:21.760] this process is to ensure that no money
+- [17:23.600] is flowing to Hezbollah. So it's
+- [17:25.600] interesting where people will say that
+- [17:28.160] theou is bad because theou produces
+- [17:31.760] consequences that were actually
+- [17:33.120] happening well before theou was signed.
+- [17:35.440] That's not a reflection on theou. That's
+- [17:37.679] a reflection of why we need theou to
+- [17:40.720] ensure that we have the regional peace
+- [17:42.320] and stability that we need. Now, what I
+- [17:44.480] would say to, you know, some of the the
+- [17:46.480] the critics of the deal that I've heard
+- [17:49.039] that will say, well, Iran's going to get
+- [17:50.960] all this benefit, I'll repeat what I've
+- [17:53.039] said, and I'm probably going to have to
+- [17:54.080] repeat it a number of times, is what is
+- [17:55.840] the benefit that the Iranians get that
+- [17:58.799] they didn't have before? [clears throat]
+- [18:00.640] And the answer is nothing. They don't
+- [18:03.440] get anything unless they change their
+- [18:05.280] behavior. If they change their behavior,
+- [18:07.520] that is a thing to celebrate. That's
+- [18:09.200] going to transform the Middle East for a
+- [18:10.720] generation. If they don't change their
+- [18:12.320] behavior, they don't get the benefit of
+- [18:14.080] the bargain. And I think I got to be
+- [18:15.600] honest, I think fundamentally
+- [18:17.280] fundamentally this idea that,
+- [18:20.640] and it's a misrepresentation of theou,
+- [18:23.360] this idea that the Iranians get all
+- [18:25.039] these benefits before the deal is
+- [18:28.480] actually consummated. The idea that they
+- [18:30.320] get benefits before they change their
+- [18:33.039] behavior is fundamentally a talking
+- [18:35.120] point that is issued by people who want
+- [18:37.919] the conflict to continue indefinitely
+- [18:40.240] despite the fact that that's not good
+- [18:41.760] for the American people and it's not
+- [18:43.280] good for the region
+- [18:45.280] in the back
+- [18:48.160] >> all the way back in the red.
+- [18:49.280] >> Thank you so much. Um
+- [18:52.880] >> red here you mean are you
+- [18:54.720] >> we'll do Okay. Sorry.
+- [18:55.760] >> Thank you. I'm wearing bright red.
+- [18:56.960] >> So many people are wearing red. You can
+- [18:58.799] go first, Cara. Right. Thank you, Cara.
+- [19:00.640] Okay. And then next after that.
+- [19:01.760] >> Okay. Great. Uh could you highlight the
+- [19:03.520] major differences between this deal and
+- [19:06.080] President Obama's deal in 2015 and why
+- [19:08.559] the administration believes that this
+- [19:10.000] deal is superior? And second, uh Mr.
+- [19:12.480] Vice President, President Trump has been
+- [19:14.080] vocal lately about uh his disapproval
+- [19:16.480] for BB Netanyahu's attacks on Lebanon.
+- [19:19.360] Has the administration spoken to BB
+- [19:21.520] Netanyahu directly about the president's
+- [19:23.520] concerns recently? And what is the
+- [19:25.039] feedback from Israel? Yeah. So, we we we
+- [19:28.000] speak to BB or speak to some body in the
+- [19:30.320] Israeli government just as we speak to
+- [19:31.919] the Gulf Coast Coalition, our regional
+- [19:33.520] partners pretty much every day, at least
+- [19:35.520] at some high level of our government.
+- [19:37.520] Look, the president has been very clear.
+- [19:39.039] He he does not withdraw from Israel. No
+- [19:41.600] one could withdraw from another country
+- [19:43.760] the right of self-defense. Israel has
+- [19:45.679] the right to defend itself. But
+- [19:47.280] fundamentally the the Israelis just like
+- [19:49.840] everybody else have to respect this
+- [19:51.600] peace process that is fundamentally good
+- [19:53.760] for them and good for the entire region.
+- [19:56.080] What the president has grown frustrated
+- [19:57.760] sometimes is that we seem to be right on
+- [19:59.440] the cusp of a major breakthrough in the
+- [20:01.039] agreement and then all of a sudden
+- [20:02.880] there's a major explosion that goes off
+- [20:04.640] in a civilian population center in
+- [20:06.320] Beirut and a lot of people who have
+- [20:08.000] nothing to do with Hezbollah lose their
+- [20:09.440] lives. That's not acceptable. That's the
+- [20:11.440] sort of thing that we've asked for
+- [20:13.280] closer coordination so that we ensure it
+- [20:15.120] doesn't happen. And our message to the
+- [20:16.640] Israelis, just as our message to
+- [20:18.080] everybody else, is fundamentally we want
+- [20:20.160] this peace process to be good for you.
+- [20:22.400] We do not want Hezbollah attacking
+- [20:24.240] Israel. But in order to ensure that that
+- [20:26.880] happens, we have got to actually build
+- [20:29.280] the kind of regional framework that can
+- [20:31.600] cut off the money to Hezbollah, cut off
+- [20:33.679] Iranian support for Hezbollah, and also
+- [20:35.919] ensure that Lebanon's terrible
+- [20:37.679] territorial sovereignty is respected by
+- [20:40.159] by all parties. And the the difference
+- [20:42.320] between the two agreements.
+- [20:43.859] [clears throat] So, first of all, the
+- [20:45.440] two big differences
+- [20:47.600] are not even in the substance of the
+- [20:49.120] deal itself, but something I said
+- [20:51.120] earlier are number one, the Gulf Coast
+- [20:55.200] coalition loves this deal because they
+- [20:57.440] think that it makes Iran weaker. They
+- [20:59.520] hated the Obama deal because they
+- [21:01.039] thought that it made Iran stronger. They
+- [21:02.880] know more about this and they have more
+- [21:04.240] to lose than anybody, including the
+- [21:06.080] United States of America. So, I trust
+- [21:07.919] their judgment. The second thing is
+- [21:09.919] where the deal came from. You have to
+- [21:12.480] remember in 2015, Iran had built a
+- [21:14.799] sophisticated nuclear weapons program
+- [21:17.200] with a nuclear weapons stockpile. So the
+- [21:19.600] perspective that we came at as the
+- [21:21.440] United States was you already have a
+- [21:23.360] really nice nuclear program. We're going
+- [21:25.120] to bribe you with American money in
+- [21:27.360] order to stop it. Our perspective and
+- [21:29.679] where we're coming at it is we already
+- [21:31.600] destroyed your nuclear program. And so
+- [21:34.799] if you promise and show verifiable
+- [21:38.000] uh pathways to not rebuild it, then
+- [21:41.440] we're willing to give you some sanctions
+- [21:43.120] relief and things like that. So it's a
+- [21:44.640] fundamentally different perspective. Now
+- [21:46.159] there all these substantive differences
+- [21:47.520] as well. The Obama nuclear deal allowed
+- [21:50.000] enrichment. Ours will not. The Obama
+- [21:52.240] deal allowed the accumulation of
+- [21:54.000] stockpiled weaponsgrade material. Ours
+- [21:56.640] is actually leading to the destruction
+- [21:58.480] of that stockpile of enriched material.
+- [22:00.400] So there are many differences. The Obama
+- [22:01.919] deal gave them over a billion dollars of
+- [22:03.919] American money. The this deal gives them
+- [22:06.880] zero dollars of American money. So, a
+- [22:09.120] lot of substantive differences, but I
+- [22:10.880] think the most important differences are
+- [22:12.240] where we're coming at it from a position
+- [22:14.000] of strength and the fact that our GF
+- [22:15.600] Coast partners love this deal.
+- [22:19.520] >> No, no, sorry. I I said the other all
+- [22:21.760] the way in the back. Thank you.
+- [22:23.200] >> Margaret with the Daily Wire. Uh the
+- [22:24.960] president has said that if Iran
+- [22:26.040] [clears throat] doesn't behave
+- [22:26.880] themselves, we're going to resume
+- [22:27.919] military action. So what is the red line
+- [22:30.720] for uh what Iran can do before they
+- [22:33.600] cross that red line and we do resume
+- [22:35.280] military action?
+- [22:36.400] >> Well, it's just it's going to be a
+- [22:38.080] holistic approach where we look at their
+- [22:39.520] behavior. Are they funding terrorism?
+- [22:41.679] Are they leading to attacks of other
+- [22:43.520] people? Are they trying to get
+- [22:44.559] centrifuges to redevelop their nuclear
+- [22:46.480] weapons program? There are all these
+- [22:48.080] questions that we're going to ask about
+- [22:49.120] whether they've actually changed their
+- [22:50.320] behavior. Do they allow the inspectors
+- [22:52.159] in as they have promised that they would
+- [22:53.840] do or do they refuse to allow those
+- [22:55.679] inspectors in? A whole host of things
+- [22:58.080] we're going to see. We're working
+- [22:59.679] towards a very successful resolution of
+- [23:01.360] this process. But again, it takes two to
+- [23:03.120] tango. And what the president is just
+- [23:04.400] saying is that we maintain economic,
+- [23:07.600] diplomatic, and military leverage that
+- [23:10.000] nobody else in the world has. So if the
+- [23:11.919] Iranians want to change, great. We're
+- [23:14.240] going to help them. If they don't
+- [23:15.679] change, we still got all the cards.
+- [23:18.559] >> Thank you. Yeah.
+- [23:20.320] >> Oh, sorry. In the in the blue jacket
+- [23:22.799] right here.
+- [23:24.080] >> This one right here. Mr. question.
+- [23:25.679] >> That's a navy jacket. [laughter]
+- [23:27.840] >> Should we have should we have a debate
+- [23:29.280] about the difference between blue and
+- [23:30.480] navy? Not that guy because you give a
+- [23:32.320] speech whenever you ask a question. I'm
+- [23:33.840] going to give her an opportunity.
+- [23:35.471] [laughter]
+- [23:36.080] >> Have you seen the pope's reaction to
+- [23:37.760] this? Have you seen a lot of frustration
+- [23:40.159] guys? You're speaking over the person
+- [23:42.159] who's asking the question.
+- [23:43.200] >> There's been a lot of frustrations with
+- [23:44.559] Americans particularly about the gas
+- [23:46.159] prices. You touted the fact that they're
+- [23:47.440] coming back. The [clears throat]
+- [23:48.000] president has on a true social ting
+- [23:49.760] this. But when should they expect to see
+- [23:52.080] gas reach that $3 threshold? Well, I'm
+- [23:55.360] I'm not an economist and I think even
+- [23:56.880] the economist would get this wrong, but
+- [23:58.400] the fact that you've seen gas come down
+- [24:00.080] about 65 cents a gallon on the national
+- [24:02.080] average and the fact that you see oil
+- [24:03.760] prices that are basically
+- [24:07.280] close to where they were at the very
+- [24:08.720] beginning of the conflict. I think
+- [24:10.000] you're going to see a substantial
+- [24:10.960] reduction in gas prices. I'm not going
+- [24:12.720] to predict the exact price. If I was
+- [24:14.960] able to do that, I might be in a
+- [24:16.240] different business than politics. But we
+- [24:18.000] do think you're going to see significant
+- [24:20.080] relief at the pump on top of what we've
+- [24:22.159] already seen. Thank you, Mr. Vice
+- [24:23.840] President. Uh, you keep saying that Iran
+- [24:25.679] will only reap economic rewards if they
+- [24:28.000] comply and change their behavior, but
+- [24:30.400] under this deal, they are being allowed
+- [24:32.080] now to sell their oil freely. Again, how
+- [24:34.320] is that not a financial benefit? And
+- [24:36.000] they're being allowed to do that without
+- [24:37.840] making any new concrete nuclear
+- [24:39.679] commitments. So, can you explain how is
+- [24:41.840] that not lopsided?
+- [24:43.120] >> Well, first of all, they've made very
+- [24:44.640] concrete nuclear commitments. They have
+- [24:46.159] committed to the destruction of the
+- [24:48.080] highlyenriched stockpile that they have
+- [24:49.760] in their possession. But number two, all
+- [24:52.320] we've done is lift the blockade and the
+- [24:54.400] straits of for we basically returned it
+- [24:55.840] to where it was before the conflict. The
+- [24:57.919] blockade is off. We put that in after
+- [24:59.760] the conflict started. The straits are
+- [25:01.679] now open. That's not a new benefit to
+- [25:03.600] the Iranians. They were selling oil for
+- [25:05.679] many, many years, well before we ever
+- [25:07.840] put the blockade. We opposed that
+- [25:10.080] blockade. They stopped selling oil and
+- [25:12.480] now we've lifted the blockade in order
+- [25:14.080] to promote the free flow of energy
+- [25:15.600] across across the world. Go ahead.
+- [25:18.880] A US official described having secured
+- [25:21.279] some of these quote unquote gentleman's
+- [25:23.039] agreements with Iran on certain aspects
+- [25:25.120] of the negotiation. So when it comes to
+- [25:27.360] highlyenriched uranium, can you walk us
+- [25:29.360] through what's been secured even in
+- [25:30.960] these kind of gentleman's agreements on
+- [25:33.120] how exactly they're going to get rid of
+- [25:34.720] the stockpile? Are there agreements on
+- [25:36.320] lowgrade enrichment? How long is the
+- [25:38.799] moratorum on enriching uh uranium for
+- [25:42.000] Iran? And are any of these gentleman's
+- [25:43.840] agreements written down anywhere? So
+- [25:46.559] some of them are written down, but
+- [25:48.080] fundamentally whether they're written
+- [25:49.279] down or spoken, this is why we
+- [25:50.799] structured the deal that we did because
+- [25:52.400] we don't trust words. We trust action
+- [25:54.240] and we trust conduct. And so we're going
+- [25:56.320] to reward conduct and we're not going to
+- [25:58.159] reward any words whether they're written
+- [25:59.760] on a sheet of paper or not. There's a
+- [26:01.520] lot of discussion theou the gentleman's
+- [26:04.000] agreement the final deal. Words don't
+- [26:06.720] matter, ladies and gentlemen. We're
+- [26:08.159] about verification. And so what we're
+- [26:10.080] going to do is to say if they do the
+- [26:12.080] things that they have promised to do,
+- [26:13.360] they have promised not to enrich. They
+- [26:15.919] have promised that they would allow
+- [26:17.120] inspectors in to destroy that
+- [26:18.640] highlyenriched stockpile and then of
+- [26:20.559] course it's not usable anymore. You take
+- [26:22.240] it somewhere else. They promised a
+- [26:23.600] number of things and that's why the deal
+- [26:25.679] contemplates a number of benefits if
+- [26:27.760] they do those things. But it doesn't do
+- [26:30.159] anything if they don't actually meet
+- [26:32.080] those promises.
+- [26:34.240] >> Go ahead. Just follow up on that, sir.
+- [26:36.640] If they don't follow through with their
+- [26:38.400] commitment, will the US go back to
+- [26:40.320] imposing sanctions and the blockade or
+- [26:42.640] or does Iran get to keep some of the
+- [26:44.720] concessions that it has already secured?
+- [26:46.480] >> Well, first of all, the sanctions are
+- [26:48.400] still on with the exception of the oil
+- [26:50.960] sanctions which I talked about were no
+- [26:52.559] longer effective. The purpose of the oil
+- [26:54.559] sanctions is to drive down how much Iran
+- [26:57.840] is charging for a price for a barrel of
+- [26:59.919] oil. Those sanctions had stopped being
+- [27:02.159] effective. The blockade is what's
+- [27:03.600] effective. And again, that's the thing
+- [27:05.279] that has changed in accordance with them
+- [27:07.279] opening the straight of H for Hormuse.
+- [27:09.039] No sanctions will come off unless they
+- [27:11.200] perform the benefit of the bargain and
+- [27:13.039] every sanction will come back on. Let me
+- [27:15.200] like hypothetically, let's say two years
+- [27:17.919] down the road, they've done what we need
+- [27:19.600] to see on the nuclear program and we
+- [27:21.440] release the sanctions as the deal
+- [27:23.039] contemplates. Then they decide they're
+- [27:25.200] going to start rebuilding the nuclear
+- [27:26.480] program. Then of course those sanctions
+- [27:28.080] are going to come back on. And that's
+- [27:29.279] why it's really kind of like a dial. as
+- [27:31.279] they dial up their good behavior, we can
+- [27:33.200] dial up the economic relief. If they
+- [27:35.120] dial down their good behavior, we can
+- [27:36.960] turn it off. It's the good thing about
+- [27:38.480] having the leverage, and it's a good
+- [27:39.919] thing about being the United States of
+- [27:41.279] America, where we just fundamentally
+- [27:43.039] have so much influence in the world
+- [27:44.559] financial system. Go ahead,
+- [27:47.600] >> President. Thank you, Mr. Vice
+- [27:48.640] President. Leader Thun said it's
+- [27:50.159] unrealistic to get the Save America Act
+- [27:52.080] passed by attaching it to FISA, which is
+- [27:54.720] what the president's looking for. Do you
+- [27:56.240] believe this is possible?
+- [27:57.360] >> Well, I Why don't we try? Why don't we
+- [27:59.520] try and at least for force people to
+- [28:01.120] vote against it? One of the things that,
+- [28:02.640] you know, sometimes frustrates me about
+- [28:04.080] the legislative process is that people
+- [28:06.399] will go into it saying this isn't
+- [28:08.480] possible, therefore we're not even going
+- [28:09.919] to try. Well, let's actually see. Let's
+- [28:12.320] try it. And if it's not possible, then
+- [28:14.559] let the the people put their name on it.
+- [28:16.159] This is also good for the American
+- [28:17.360] people. How many American senators know
+- [28:21.840] that the American people love the Save
+- [28:24.080] America Act because they believe in
+- [28:25.520] voter ID? But how many of those same
+- [28:27.600] senators don't want to vote for it
+- [28:29.760] because they know that the radical
+- [28:31.360] elements within their own party would
+- [28:32.720] punish them for it? Let people go on the
+- [28:35.039] record and actually answers to the
+- [28:36.480] American people, which is why I think we
+- [28:38.320] should do exactly as the president said.
+- [28:40.960] >> Rob,
+- [28:47.039] thank you very much. Um, on on Monday,
+- [28:49.520] we were told theou will be published
+- [28:51.919] within 48 hours. The president then said
+- [28:55.200] uh after Friday, you I think then said
+- [28:57.760] by Friday and then it ended up being
+- [28:59.919] read out on a on a briefing call
+- [29:01.520] yesterday. We were told theou had been
+- [29:03.919] signed electronically on Sunday. There
+- [29:06.720] was an axis report that it hadn't been.
+- [29:08.480] There's going to be a signing ceremony
+- [29:09.679] on Friday and then it signed at
+- [29:11.200] Versailles yesterday last night.
+- [29:14.720] Um is is what's going on behind the
+- [29:17.120] scenes as chaotic as your public
+- [29:19.120] messaging? [laughter]
+- [29:20.880] Well, I don't think our public messaging
+- [29:23.279] has been chaotic. I think dealing with a
+- [29:24.960] fractured Iranian system where
+- [29:27.200] communication isn't great is just
+- [29:29.120] sometimes something that we don't fully
+- [29:31.679] appreciate or we don't fully understand.
+- [29:34.000] What what really happened here is that
+- [29:35.440] we we did sign theou on Sunday. Uh that
+- [29:38.880] locked into the terms of the deal. What
+- [29:41.120] the Iranians came to us and said is we'd
+- [29:42.799] like not to release the text until
+- [29:44.399] Friday in order we don't I didn't really
+- [29:46.240] understand that. I want to get the text
+- [29:47.520] out immediately, but in order to be
+- [29:49.200] accommodating to them, we said, "Sure,
+- [29:50.559] okay, we'll wait until Friday." And then
+- [29:52.640] what happened over Monday, Tuesday, the
+- [29:54.880] president was in G7, maybe foreign
+- [29:56.559] leaders were talking to the Iranians and
+- [29:58.399] encouraging them to do that. We were
+- [30:00.399] definitely saying to them, we understand
+- [30:02.000] your desire not to have the text out
+- [30:04.080] until Friday, but you know, we we live
+- [30:05.840] in a democratic system. The American
+- [30:07.520] people want to see the text of this
+- [30:08.720] deal. We would certainly like to get it
+- [30:10.399] out as soon as possible. And so they
+- [30:12.399] came up with having their president sign
+- [30:14.480] it, our president sign it, and then just
+- [30:16.640] releasing the text as a signed document
+- [30:18.799] immediately at that point. I I do
+- [30:21.039] wonder, Rob, just this is pure
+- [30:23.279] conjecture. I'm just guessing at this. I
+- [30:25.520] wonder if part of it is that they wanted
+- [30:27.360] to have a Persian translation, a Farsy
+- [30:30.480] translation that they felt good about.
+- [30:32.159] And then of course once they translated
+- [30:33.760] into Farsy, our State Department has to
+- [30:35.919] confirm that the Farsy translation
+- [30:38.000] matches the meaning of the English. I
+- [30:39.919] think that is part of what was going on
+- [30:41.520] here, but the text is out there now. We
+- [30:43.600] said that we would be transparent about
+- [30:44.960] it, but the reason why it went back and
+- [30:47.600] forth a little bit about when exactly
+- [30:49.039] the text would be released is just we
+- [30:51.039] were trying to show good faith to the
+- [30:52.240] Iranians who, for reasons I have no
+- [30:54.159] idea, cared a lot about how the text
+- [30:56.880] itself was rolled out. Blue tie there.
+- [31:01.840] >> Thank you very much.
+- [31:02.960] >> Thank you very much, Mr. Vice President.
+- [31:04.880] As you know, because you are involved in
+- [31:06.640] this process, theou allows for Iran to
+- [31:10.399] sell its oil right away, which means
+- [31:12.240] that Iran can take in on a monthly basis
+- [31:16.080] tens of millions of dollars. Iran's
+- [31:19.200] economy was in tatters. How is that this
+- [31:22.240] not essentially giving a lifeline to
+- [31:25.440] Iran economically? And what's to prevent
+- [31:28.080] Iran [clears throat] from using all of
+- [31:30.080] that money, all of those millions of
+- [31:31.760] dollars to prop up its proxies in the
+- [31:34.399] region?
+- [31:35.039] >> Well, the number one thing is that we
+- [31:36.880] actually see where the money moves now
+- [31:38.640] because of what we've done with the
+- [31:40.799] financial sanctions. We actually know
+- [31:42.320] where the money is going to move. And
+- [31:43.919] so, we have great confidence that we're
+- [31:45.279] going to be able to see if they try to
+- [31:46.399] fund terrorist organizations, we're
+- [31:48.159] going to be able to see that. But you
+- [31:49.360] said that millions of dollars is a
+- [31:52.000] lifeline. Right now, the Iranian nation
+- [31:54.080] is a nation of 94 million people. Their
+- [31:57.200] economy is in a freefall. They have
+- [31:59.519] sky-high inflation and fundamentally
+- [32:02.640] about a trillion dollars of damage to
+- [32:04.880] their industrial base was caused over
+- [32:07.440] the last 3 months. The idea that selling
+- [32:10.720] a few million dollars worth of barrel
+- [32:12.880] barrels of a few million dollars worth
+- [32:14.720] of oil is going to fundamentally
+- [32:16.240] transform the Iranian economy, that's
+- [32:18.080] just not true. We thought that it would
+- [32:19.760] be good in order to lift the blockade
+- [32:21.519] and open the straits of Hormuz to allow
+- [32:24.159] the free flow of energy. We felt that it
+- [32:26.399] was reasonable that if we're going to
+- [32:27.440] allow everybody else to sell their
+- [32:28.640] energy during this period of
+- [32:30.000] negotiation, we would allow everyone to
+- [32:32.159] sell their energy. That's all we're
+- [32:33.919] doing. We can slap everything right back
+- [32:35.919] on if the Iranians don't make the deal
+- [32:37.919] that we expect.
+- [32:39.519] >> Yeah.
+- [32:44.399] >> Either one. Either one.
+- [32:47.440] >> Yeah. No. No. Yeah. Guys, how about how
+- [32:49.360] about both of you?
+- [32:50.240] >> Okay, thank you, Mr. Vice President. So,
+- [32:52.159] President Trump said we'll finish one
+- [32:53.840] talking about Iran and he said then Cuba
+- [32:56.320] is next. Is Cuba next? And also on
+- [32:59.039] Colombia, Mr. Mr. Vice President, he has
+- [33:01.200] mentioned Colombia three times this
+- [33:02.640] week. Why is it so important the
+- [33:04.720] election day in Colombia for President
+- [33:06.399] Trump?
+- [33:06.880] >> You guys have to ask Marco about Cuba.
+- [33:08.320] That's not
+- [33:11.222] [laughter]
+- [33:11.919] >> Look, our our our our view our our our
+- [33:15.519] go ahead in a second, but let me let me
+- [33:16.799] just actually answer this guy's
+- [33:17.840] question. Fundamentally, in Cuba, it is
+- [33:20.240] a system that hasn't worked. They can't
+- [33:22.799] make any money. Their economy is frankly
+- [33:25.039] probably in worse shape than the Iranian
+- [33:26.559] economy. It's 90 miles from our shore.
+- [33:28.960] So, every time that there's a crisis,
+- [33:30.399] you end up having desperate refugees or
+- [33:32.880] desperate, you know, people who can't
+- [33:34.720] feed their families trying to flood into
+- [33:36.159] our country. We want the people of Cuba
+- [33:38.559] to be happy and successful. We're
+- [33:40.240] actually talking to the Iranian or
+- [33:42.080] excuse me, the Cuban government right
+- [33:43.360] now about how they could change their
+- [33:44.960] ways to change that. We're going to see
+- [33:46.640] what they do. And obviously, if if they
+- [33:48.960] do one thing, we're going to do
+- [33:50.320] something. If they make smart decisions,
+- [33:52.320] we're going to have a much better
+- [33:53.279] relationship with that island. Go ahead,
+- [33:55.760] >> Mr. Vice President. Mr. M Vice
+- [33:57.600] President, thank you so much. Um, I know
+- [33:59.840] that you are still not sure if you are
+- [34:02.480] going to run for president in 2028, but
+- [34:04.799] if you do not, is there anyone in
+- [34:06.960] particular that you would want um to see
+- [34:10.639] run?
+- [34:11.599] >> What's your name?
+- [34:12.480] >> Uh, Steven Kapusa. Sorry.
+- [34:14.079] >> I want Steen Kapuska to run [laughter]
+- [34:15.440] for president.
+- [34:19.760] >> Go ahead.
+- [34:21.919] >> Go ahead.
+- [34:22.639] >> Thank you, Vice President. I've got two
+- [34:25.040] questions. Uh could you describe the
+- [34:26.720] status of your Switzerland trip? Are you
+- [34:29.119] definitely still going? What are your
+- [34:30.720] plans? And also, if we could drill down
+- [34:32.879] on frozen funds, there's been a lot of
+- [34:35.040] focus on uh oil sanctions, but on frozen
+- [34:37.359] funds, uh what's your understanding of
+- [34:39.760] how much money is frozen, how much of
+- [34:42.159] that is in the US, and a senior
+- [34:44.560] administration official briefed uh some
+- [34:46.399] of us reporters earlier this week that
+- [34:48.159] there might be small anties is what he
+- [34:50.480] said, like small releases of money to
+- [34:52.560] build trust with the Iranians early on.
+- [34:54.560] Could you describe that whole situation?
+- [34:57.760] >> So on the frozen funds, the the amount
+- [34:59.760] of money I honestly don't know. I've
+- [35:01.680] heard numbers north of hundred billion.
+- [35:03.599] I've actually heard numbers north of
+- [35:04.800] $200 billion. Most of it is not in
+- [35:07.359] United States accounts. Most of it's
+- [35:08.960] either in the Gulf or in Europe or
+- [35:10.800] somewhere else, but I don't know the
+- [35:12.480] exact amount of money. It's a lot. It's
+- [35:14.400] one of the reasons why we've had such a
+- [35:16.320] successful chokeold on the Iranian
+- [35:18.640] economy, though by not not even close to
+- [35:21.359] the main reason. uh we're not releasing
+- [35:23.760] a single dollar of that money until the
+- [35:25.280] Iranians perform. And there are a number
+- [35:27.520] of ways they could perform. For example,
+- [35:29.359] let's say they actually take meaningful
+- [35:31.359] steps and this could happen very quickly
+- [35:33.280] to destroy that stockpile of enriched
+- [35:35.119] material. Then we're going to have a
+- [35:36.400] conversation about it. But they have to
+- [35:38.320] perform. I've seen some reports, I don't
+- [35:41.200] know where this came from, that the
+- [35:42.400] Qataris had released billions of dollars
+- [35:44.560] in Iranian assets. That's just not true.
+- [35:46.880] It would be impossible for the Qataris
+- [35:48.400] to do that without our buy in and
+- [35:50.240] certainly without us seeing it. So a lot
+- [35:52.000] of these this reporting is just
+- [35:53.359] fundamentally wrong. They don't get a
+- [35:55.440] dollar of unfrozen assets. Their money,
+- [35:57.599] not our money, but they don't get a
+- [35:58.960] dollar of unfrozen assets until they
+- [36:01.040] actually perform under the deal. You
+- [36:02.560] asked about you asked about Switzerland.
+- [36:04.400] Our our plan is to go to Switzerland. I
+- [36:06.560] don't know exactly when. The way that
+- [36:08.480] we're setting up this technical
+- [36:09.760] negotiation is that obviously you you're
+- [36:11.920] going to have the political leadership
+- [36:13.119] involved. Excuse me. [clears throat]
+- [36:14.800] We're going to have people on the ground
+- [36:16.560] actually driving the technical talks,
+- [36:18.800] the nuclear talks. How do you destroy
+- [36:20.560] this highlyenriched uranium? All that
+- [36:22.240] stuff uh that you really just have to
+- [36:24.079] get into the nitty nitty-gritty on. So,
+- [36:26.320] you know, I plan to go to Switzerland
+- [36:28.400] exactly when, you know, we thought we
+- [36:30.560] think these technical negotiations are
+- [36:32.160] going to start sometime this weekend.
+- [36:33.839] That's still the plan, but that could
+- [36:35.680] change because it's not an easy country,
+- [36:37.839] Iran, to get out of. And so, we're
+- [36:39.520] trying to figure out exactly when that's
+- [36:40.720] going to happen. I I I I suspect this
+- [36:43.280] weekend, but I'm not sure.
+- [36:45.359] >> You're not going tomorrow to
+- [36:46.560] Switzerland?
+- [36:47.839] >> I I I may. It just depends on exactly
+- [36:49.839] when the Iranians can get there. We're
+- [36:51.359] trying to figure that out as we speak,
+- [36:53.040] but again, I suspect it will happen this
+- [36:54.800] weekend. We're going to find out exactly
+- [36:56.000] whenever the the coming days. Go ahead,
+- [36:59.440] >> thank you so much, Mr. Vice President.
+- [37:00.800] Um, just two questions for you. Uh, to
+- [37:02.640] follow up on an earlier question,
+- [37:03.920] Secretary Rubio said in March that the
+- [37:06.720] goal of this war was to quote to
+- [37:09.440] eliminate the threat of Iran's
+- [37:10.800] short-range ballistic missiles. You just
+- [37:13.040] said earlier that the military program
+- [37:14.800] is destroyed. US intelligence estimates
+- [37:17.280] that Iran still retains roughly 70% of
+- [37:20.240] its pre-war ballistic and cruise missile
+- [37:22.320] stockpile. So when did the
+- [37:23.839] administration decide to abandon that
+- [37:25.599] part of the original mission? And then
+- [37:27.599] just second as well moving forward are
+- [37:29.839] you leading the US team moving forward
+- [37:31.760] in terms of the negotiations? How
+- [37:33.280] involved will you be?
+- [37:34.400] >> Yeah, so I'm certainly planning to lead
+- [37:35.920] uh the US negotiating team. But on the
+- [37:37.760] first question, you know, you talked
+- [37:38.880] about an intelligence report that was
+- [37:40.800] anonymously leaked to a reporter that
+- [37:43.599] was not with context and that frankly is
+- [37:47.040] not accurate. What has changed about
+- [37:49.920] Iranians about the Iranian ballistics
+- [37:51.920] missile program is it matters much less
+- [37:55.680] the number of missiles they have, the
+- [37:57.520] number of bullets. What matters much
+- [37:59.040] more is the number of launchers they
+- [38:00.960] have and importantly the teams on the
+- [38:02.640] ground that have the capacity to launch
+- [38:04.400] those missiles. their ability to launch
+- [38:06.560] missiles has been substantially
+- [38:08.240] degraded. Is it zero? No. But it's
+- [38:10.640] substantially degraded. And in that
+- [38:12.079] sense, we haven't abandoned the mission.
+- [38:14.160] We've accomplished that particular part
+- [38:15.839] of the mission. If you look at the Gulf
+- [38:17.119] Arab allies and obviously the Israelis
+- [38:19.599] who faced a lot, the two of them
+- [38:21.839] together faced a brunt of these missile
+- [38:24.000] attacks. Each of them feels
+- [38:26.160] substantially safer today from the
+- [38:28.400] Iranian missile threat than they did
+- [38:29.839] before. Obviously, that is something
+- [38:31.760] that we would like to continue. All the
+- [38:33.839] president said yesterday is that you
+- [38:35.920] can't expect any country to give up its
+- [38:38.560] right of self-defense. You have to have
+- [38:40.400] parody and that's what the president of
+- [38:42.079] the United States was talking about. Go
+- [38:44.640] ahead.
+- [38:48.720] >> No, no, guys, guys. Guys, yeah
+- [38:51.680] reaction to theou the memorandum of
+- [38:53.920] understanding. He had what did he say?
+- [38:56.160] All right. Okay. I'll give you the short
+- [38:58.640] sir.
+- [38:59.200] >> Yeah. Sorry.
+- [38:59.760] >> Okay. He said
+- [39:00.640] >> go after you.
+- [39:01.760] >> I'll give the short version. All right.
+- [39:02.640] He gives he says he uh welcomes the
+- [39:04.640] agreement between the US and Iran. He
+- [39:06.720] says he hopes it will help strengthen
+- [39:08.640] mutual trust, [clears throat]
+- [39:10.160] security, and stability in the Middle
+- [39:12.320] East. And he also hopes that it's truly
+- [39:14.160] a solution to the war and that the war
+- [39:16.320] is really over. What do you say to the
+- [39:17.760] Pope's here?
+- [39:18.400] >> My response to that is praise Jesus. I'm
+- [39:20.480] glad that the Pope has positive things
+- [39:22.079] to say about her. I think that the Pope
+- [39:24.320] is fundamentally accurate and it's going
+- [39:26.320] to be good for the entire world, but we
+- [39:28.240] got to keep working at it to make sure
+- [39:29.680] that the Iranians honor the commitments
+- [39:31.280] that they've made. And then yes, you in
+- [39:32.720] front. Go ahead.
+- [39:35.119] >> How's your book with
+- [39:38.160] >> with with the the thing is there's so
+- [39:39.920] many people in here. I could say the red
+- [39:41.440] tie and then nine of you start shouting
+- [39:42.960] at us. The the
+- [39:44.720] >> the burgundy tie
+- [39:47.680] calls for
+- [39:48.240] >> There we go. That guy.
+- [39:49.200] >> Yeah. Sorry. [laughter]
+- [39:50.160] Thank you. Then you call for a US troop
+- [39:52.960] withdrawal from the Gulf region tied to
+- [39:55.599] the final deal. Can you say whether the
+- [39:58.240] draw down will affect US forces pass
+- [40:00.079] through Iraq and Syria where Americans
+- [40:02.720] troops currently help protect Kurdish
+- [40:05.040] held areas from the Iranianbacked
+- [40:06.480] militias.
+- [40:07.200] >> Okay. So, so the draw down contemplated
+- [40:09.200] again this is the final deal. This is
+- [40:10.960] assuming that the Iranians comply that
+- [40:12.800] they give us verification that they take
+- [40:15.040] real substantial conduct towards this
+- [40:17.760] peace agreement. What we're saying is
+- [40:19.440] that we will withdraw troops to the
+- [40:21.680] preconlict level, meaning we're not
+- [40:24.079] going to keep a couple of extra aircraft
+- [40:25.520] carrier groups over there. The Iranians
+- [40:26.960] don't want that. Frankly, we don't want
+- [40:28.400] that either. Go ahead. Yeah.
+- [40:31.200] >> You said the US is not going to be
+- [40:32.880] funding that $300 billion fund. Who
+- [40:35.200] exactly is funding that? Is that private
+- [40:36.960] companies? And I also noticed that your
+- [40:38.800] voice is horse. Are you sick? Um, have
+- [40:40.960] you been using your voice a lot?
+- [40:42.523] [laughter]
+- [40:43.520] Well, I've been on a bit of a book tour
+- [40:45.280] the past couple of days, but I can't
+- [40:46.640] promote my book here in the White House
+- [40:48.079] press briefing room. Uh, I had a cold
+- [40:50.160] about a week ago. That and talking a lot
+- [40:52.000] about this deal and talking a lot about
+- [40:53.280] the book, I'm definitely a little bit
+- [40:55.040] horsearo. But you asked your first
+- [40:57.200] question was about
+- [40:58.319] >> who exactly is funding that $300
+- [41:00.160] billion.
+- [41:00.560] >> Oh, I I see. So, so what's interesting
+- [41:02.720] about this is there is a great desire
+- [41:07.040] from the Arab world and from outside the
+- [41:09.280] Arab world to actually get involved in
+- [41:12.720] Iran if they behave properly. So, for
+- [41:15.200] example, let's say the United Arab
+- [41:16.560] Emirates who've been a great ally over
+- [41:18.400] the last not just few months but over
+- [41:19.920] the last many years, let's say that they
+- [41:21.680] would like to invest in building a power
+- [41:23.119] plant. That actually is impossible right
+- [41:25.119] now because of the way that US sanctions
+- [41:27.359] work. And so what we're saying is that
+- [41:29.520] if you behave and if the Emiratis
+- [41:31.760] themselves want to build a power plant,
+- [41:34.160] then we will do the sanctions relief
+- [41:36.160] necessary to make that possible. The
+- [41:38.079] good thing about that is that it
+- [41:39.839] actually creates integration, which is
+- [41:42.240] leverage. A world where the Gulf Coast
+- [41:45.119] coalition has greater leverage into the
+- [41:47.760] Iranian economy is a world where the
+- [41:49.920] Iranians are going to be heavily
+- [41:51.680] prevented from misbehaving. So it's a
+- [41:54.079] lot of the Gulf Coast coalition again,
+- [41:55.599] they see that Iran is weakened. They see
+- [41:57.680] there's an opportunity to build a new
+- [41:59.280] relationship there and they're saying if
+- [42:01.200] they behave and if the United States is
+- [42:03.359] willing to allow this to happen then
+- [42:05.119] absolutely we want to change our
+- [42:06.560] relationship with Iran.
+- [42:10.079] >> No. Well, I mean I I assume that in the
+- [42:11.920] United Arab Emirates there would be
+- [42:13.200] private money and so forth that would
+- [42:14.560] that would be part of this. But again,
+- [42:15.920] this is so far in advance because it
+- [42:18.000] assumes a transformation in Iranian
+- [42:20.880] behavior. Sir,
+- [42:22.400] >> thank you so much Mr. Vice President. As
+- [42:23.920] you know the Iranianbacked groups in the
+- [42:25.760] region were involved in this war and
+- [42:27.520] they damaged US facilities and your
+- [42:30.079] allies as well. How this agreement
+- [42:31.839] affect Iranbacked groups across the
+- [42:33.599] region especially the Iranianbacked
+- [42:35.119] groups in Iraq. And my second question
+- [42:37.760] this this agreement requires Iran to
+- [42:40.079] stop attacking the Kurdish opposition in
+- [42:42.319] Kurdistan region which they did two days
+- [42:44.160] ago. So what this agreement does
+- [42:46.560] fundamentally is it requires Iran to
+- [42:48.400] behave like a normal country. And if it
+- [42:50.319] doesn't, as so many people think that it
+- [42:52.000] never will, then it doesn't get any of
+- [42:54.000] the economic benefits. And if they do,
+- [42:56.000] then that's a great thing for everybody.
+- [42:57.680] It's a great thing for the Kurds. It's a
+- [42:59.200] great thing for anybody who has been
+- [43:01.440] under the brunt or under the threat of
+- [43:04.000] Iranianfunded terrorist organizations.
+- [43:06.079] The expectation is that Iran will stop
+- [43:08.800] that and if they don't, they don't get
+- [43:10.400] the benefits of the bargain. John,
+- [43:12.319] >> thank you, Mr. Vice President. Many of
+- [43:14.160] the colleagues that you served with in
+- [43:15.920] the US Senate and Republican conference
+- [43:18.400] have criticized this deal over the last
+- [43:21.200] 24 hours. What is your message, Mr. Vice
+- [43:24.720] President back to them?
+- [43:26.240] >> So, I guess I would say to anybody, any
+- [43:28.240] of the critics is number one, have a
+- [43:30.800] little bit of faith in the president of
+- [43:32.000] the United States. The idea that he is
+- [43:34.480] going to strike a deal that's been bad
+- [43:35.839] for the American people, it's
+- [43:37.359] preposterous. He is the person who has
+- [43:39.440] had the courage to fundamentally
+- [43:40.880] transform our relationship with Iran and
+- [43:42.880] with a lot of other countries over the
+- [43:44.400] last year and a half. He he believes in
+- [43:46.800] this deal. He is going to see it to
+- [43:48.960] completion. And if the Iranians don't
+- [43:50.640] comply, we still have every single tool
+- [43:53.520] and point of leverage that we have
+- [43:54.720] today. That'd be message number one is
+- [43:56.480] have a little faith in the president's
+- [43:57.839] ability given that he's got us this far
+- [44:00.000] to take us the final step. The second
+- [44:02.079] thing that I would say is so many of
+- [44:04.319] what I've read or heard that people
+- [44:06.400] believe about this deal is just
+- [44:08.160] fundamentally untrue. It is a memorandum
+- [44:10.720] of understanding. It is fundamentally a
+- [44:12.640] principle that yes, the Straits of
+- [44:14.319] Hormuz are going to be open immediately
+- [44:15.680] and they already are are. Yes, they're
+- [44:18.160] going to give up their highlyenriched
+- [44:19.440] material, but they've got to actually do
+- [44:21.760] it. It's about conduct. It's about
+- [44:24.000] rewarding good conduct and punishing bad
+- [44:26.720] conduct which in some ways is what we've
+- [44:28.560] been doing for the last three months
+- [44:30.160] visv that country anyway. So so many of
+- [44:32.720] the criticisms I saw Lindsey Graham came
+- [44:34.560] out with a a positive statement after
+- [44:36.800] expressing some concerns. I think that
+- [44:38.800] when people get to understand not just
+- [44:40.480] the agreement but our negotiating
+- [44:42.400] posture as a country they will realize
+- [44:44.560] this is an excellent thing for the
+- [44:46.480] American people. But that's part of our
+- [44:48.160] job. We've got to tell the story about
+- [44:49.920] what this means for Americans, how it's
+- [44:51.680] going to make all of us safer and more
+- [44:53.119] prosperous. That's why I'm here talking
+- [44:54.720] to everybody, and we're going to keep on
+- [44:56.240] telling that story in the in in the days
+- [44:58.480] and weeks to come. Go ahead.
+- [45:00.640] >> Thank you, sir. Jordan Conrad with the
+- [45:02.240] Gateway P. I want to talk um back to the
+- [45:04.400] Lebanon.
+- [45:06.319] >> Um there's a report [clears throat] in
+- [45:08.000] Axios that Netanyahu is fuming over
+- [45:10.319] this. Uh he doesn't Israel doesn't feel
+- [45:13.440] uh bound to theou as it relates to
+- [45:15.280] Lebanon. If as you mentioned your
+- [45:17.359] frustration with Israel stri Israel
+- [45:19.599] striking in Beirut hitting apartment
+- [45:21.599] buildings if that continues could it
+- [45:23.599] torpedo the deal and what would the US's
+- [45:26.319] response be to a broader war in Lebanon
+- [45:29.440] involving
+- [45:30.960] >> yeah well I don't want to get into
+- [45:32.240] hypotheticals that could torpedo the
+- [45:34.160] deal because I think the president's
+- [45:35.520] expectation is that all of our friends
+- [45:38.000] the Israelis the Arabs in the region
+- [45:40.480] we're going to work together and
+- [45:41.680] actually see this deal to completion.
+- [45:43.359] Now, I saw the Axios report uh you know
+- [45:45.920] that that that Netanyahu is fuming.
+- [45:48.880] That's not reflective of the
+- [45:50.160] conversations that I've had with him,
+- [45:51.440] but maybe he's saying something to
+- [45:52.560] somebody else that he's not saying to
+- [45:53.839] me. What I will say, and this does
+- [45:56.079] bother me, is that you've seen people
+- [45:58.000] within BB's cabinet who have come out
+- [46:00.720] and attacked the deal and in some ways
+- [46:03.200] very personally attacked the president
+- [46:04.960] of the United States. And I guess my
+- [46:07.119] message to them would be twofold. Number
+- [46:09.599] one, Donald J. Trump is the only head of
+- [46:13.200] state in the entire world who is
+- [46:16.079] sympathetic to the nation of Israel at
+- [46:18.720] this moment in time and he happens to be
+- [46:20.800] the head of state of the world's
+- [46:22.400] superpower. If I was in the cabinet of
+- [46:24.720] the Israeli government, I might not be
+- [46:27.040] attacking the only powerful ally that I
+- [46:30.240] have anywhere left in the entire world.
+- [46:32.640] And the second message I would give to
+- [46:34.480] some of those cabinet members, BB to his
+- [46:36.560] credit has not gone down this path, but
+- [46:38.880] to some of these cabinet members in
+- [46:40.240] Israel who are attacking the president
+- [46:41.440] of United States. The other thing that I
+- [46:43.280] would say is that over the last 3
+- [46:45.119] months, [clears throat] 2thirds of the
+- [46:47.839] defensive weapons that have protected
+- [46:50.319] your homeland have been built by
+- [46:52.720] American hands and paid for by American
+- [46:55.359] tax dollars. The problem for Israel is
+- [46:58.240] not Donald J. Trump. And anybody in
+- [47:00.960] Israel who thinks their biggest problem
+- [47:02.720] is the president of the United States
+- [47:04.720] needs to wake up and smell the reality
+- [47:07.599] of the situation that country is in.
+- [47:10.000] Thank you all.

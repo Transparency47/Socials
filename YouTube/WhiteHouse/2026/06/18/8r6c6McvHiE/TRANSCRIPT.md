@@ -1,0 +1,479 @@
+<!-- source: https://www.youtube.com/watch?v=8r6c6McvHiE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8r6c6McvHiE -->
+<!-- date_published: 2026-06-18T21:22:21+00:00 -->
+<!-- date_accessed: 2026-06-19T00:36:29.506336+00:00 -->
+
+# Transcript: President Trump Participates in a Medal of Honor Ceremony
+
+- [00:03.929] [music]
+- [00:09.170] [music]
+- [00:10.960] >> Ladies and gentlemen, the president of
+- [00:12.720] the United States, Donald J. Trump.
+- [00:17.685] >> [music]
+- [00:27.510] [music]
+- [00:37.335] [music]
+- [00:43.230] [music]
+- [00:46.440] >> Ladies and gentlemen, I invite you to
+- [00:47.680] pray with me.
+- [00:49.280] Almighty God, you are our rock, our
+- [00:51.840] fortress, and the sustainer of this
+- [00:54.040] nation.
+- [00:55.440] Every perfect gift comes from your hand,
+- [00:58.040] and we give you glory for the courage
+- [01:00.200] you have woven into the soul of our
+- [01:02.480] armed forces.
+- [01:04.080] You teach us that true devotion is
+- [01:05.960] proven in sacrifice, and today we honor
+- [01:09.400] these three patriots who on the field of
+- [01:12.280] battle proved their devotion to their
+- [01:14.880] comrades and their nation.
+- [01:17.800] Father, we thank you for Major Dockery
+- [01:20.640] who braved a ferocious ambush and at
+- [01:22.960] times shielded his men.
+- [01:25.880] For Major Capers who despite grievous
+- [01:27.920] wounds refu- refused to yield.
+- [01:30.840] And for the enduring legacy of Colonel
+- [01:33.080] Ripley
+- [01:34.400] who through a hail of gunfire halted a
+- [01:36.680] massive advance by the enemy.
+- [01:39.800] In their heroic actions, we see the
+- [01:41.480] living truth of your word, "Greater love
+- [01:43.720] has no one than this, that they lay down
+- [01:45.920] their life for their friends."
+- [01:48.400] Their profound sacrifice in moments of
+- [01:50.960] extreme peril blesses us still today.
+- [01:53.880] Now, Lord, we ask you to move in our
+- [01:56.040] hearts. Pour your abundant strength
+- [01:59.400] into our service members and their
+- [02:00.920] families. Guide our commander-in-chief
+- [02:03.680] and military leaders and bless the
+- [02:05.800] United States of America. Unify us in
+- [02:08.479] spirit and keep us forever grounded in
+- [02:11.840] your grace. In your name I pray. Amen.
+- [02:20.760] >> Well, thank you very much everybody and
+- [02:23.320] will be seated. We have
+- [02:25.560] some very important business to take
+- [02:27.160] care of. I just do want to say though
+- [02:29.240] the stock market just hit a new all-time
+- [02:31.640] high.
+- [02:32.840] The 401 K's just hit a new all-time high
+- [02:36.760] and oil is dropping like a rock.
+- [02:39.440] Other than that, it's another day in
+- [02:41.080] paradise.
+- [02:43.640] Well, thank you very much Chaplain and I
+- [02:45.240] have no higher privilege than serving as
+- [02:48.760] the commander-in-chief of the US Armed
+- [02:50.880] Forces. I'm so proud of them.
+- [02:53.480] A 250-year tradition of the bravest and
+- [02:57.360] greatest heroes ever to walk the earth.
+- [03:00.920] But only a few have received our highest
+- [03:03.959] military distinction, the Congressional
+- [03:06.880] Medal of Honor. I wanted to give it to
+- [03:08.480] myself
+- [03:09.800] but I was informed I couldn't do it
+- [03:12.280] and I couldn't find anything where I was
+- [03:14.080] actually worthy. So, here we are. You
+- [03:16.440] understand that.
+- [03:18.360] But today we present this award. It's
+- [03:20.280] the
+- [03:21.200] greatest of awards to three new
+- [03:23.880] recipients.
+- [03:25.360] Marine Corps Major James Capers,
+- [03:30.080] Marine Corps Colonel
+- [03:32.040] John W. Ripley deceased,
+- [03:35.560] and Army Major Nicholas Dockery.
+- [03:39.880] Thank you.
+- [03:42.040] We're pleased to be joined on this
+- [03:43.320] occasion by the Secretary of War Pete
+- [03:45.959] Hegseth and he's had some good victories
+- [03:48.160] lately. I will tell you he's going to
+- [03:49.680] have a lot more.
+- [03:51.519] Ambassador to the United Nations, Mike
+- [03:54.600] Waltz. Mike, thank you.
+- [03:57.440] Chairman of the Joint Chiefs of Staff,
+- [04:00.480] Dan Kaine.
+- [04:03.200] Acting Secretary of the Navy,
+- [04:06.280] Hung Cao, and Commandant of the Marine
+- [04:09.320] Corps, Eric Smith. Thank you very much.
+- [04:13.240] With us as well are Senators Lindsey
+- [04:15.520] Graham,
+- [04:16.720] Todd Young, and Jim Banks.
+- [04:19.880] And members of Congress, Morgan
+- [04:22.600] Griffith, Ralph Norman, Jim Baird,
+- [04:26.800] Victoria Spartz. All great people, all
+- [04:29.400] great
+- [04:30.600] fighters, every one of them. Know them
+- [04:32.240] all.
+- [04:33.440] I also want to salute
+- [04:35.480] 11 former Medal of Honor recipients.
+- [04:39.640] Barney Barnum,
+- [04:41.880] Kyle Carpenter,
+- [04:44.560] James Livingston,
+- [04:47.520] Joe Marm,
+- [04:50.320] Jim McCloughan,
+- [04:53.320] Dakota Meyer,
+- [04:55.800] Patrick Payne,
+- [04:58.040] Earl Plumlee,
+- [05:00.560] Ed Byers,
+- [05:02.760] Will Swenson,
+- [05:05.360] and Brian
+- [05:06.880] Thacker. Thank you all. It's great to be
+- [05:09.440] with you again. Thank you.
+- [05:21.200] They're great people.
+- [05:23.440] The first hero we pay tribute to today
+- [05:25.919] is one of the finest warriors to ever
+- [05:28.400] wear the uniform of the United States
+- [05:31.800] Marines, Major James Capers Jr., sitting
+- [05:35.560] right here.
+- [05:37.040] Thank you, James.
+- [05:39.000] In Vietnam, the Corps promoted him from
+- [05:42.120] Staff Sergeant directly to second
+- [05:44.040] lieutenant, unusual,
+- [05:45.919] making Jim the first black Marine in
+- [05:48.480] history
+- [05:49.640] to receive a battlefield commission in
+- [05:51.560] the middle of a war.
+- [05:53.680] In 1967,
+- [05:55.400] deep in the jungles of Vietnam
+- [05:58.480] Jim and his nine-man force recon team
+- [06:01.200] known as team
+- [06:03.040] Broadminded
+- [06:04.600] attempted to locate a suspected enemy
+- [06:06.800] base camp near the village of
+- [06:09.640] Flu Lock.
+- [06:11.960] Over the course of 4 days, under Jim's
+- [06:14.280] leadership
+- [06:15.560] team Broadminded repulsed brutal
+- [06:17.919] attacks, as brutal as they've ever seen
+- [06:21.000] cleared trails of bloody traps, and
+- [06:23.160] killed more than 200
+- [06:25.560] of the enemy. The enemy was
+- [06:28.480] going down quickly. They never really
+- [06:30.880] knew what the exact number was.
+- [06:33.440] On the fourth day of battle, a
+- [06:35.280] numerically superior force of Viet Cong
+- [06:37.960] soldiers launched a truly devastating
+- [06:40.760] ambush.
+- [06:42.040] Explosions shredded the air sending Jim
+- [06:45.080] into a tree
+- [06:46.520] ripping open his abdomen and breaking
+- [06:49.320] his leg, badly badly broken leg.
+- [06:52.440] Shrapnel peppered his body in 17 places.
+- [06:55.520] I hope
+- [06:56.800] this isn't giving you some bad memories,
+- [06:58.960] Jim, but I'll tell you everybody admires
+- [07:01.600] you, what you went through, believe me.
+- [07:04.080] Every one of his fellow Marines went
+- [07:05.800] down wounded, but Jim rose pushing
+- [07:08.200] forward on a leg that shouldn't have
+- [07:10.440] been able to carry any of his weight.
+- [07:13.320] After a shot of morphine, Jim asserted
+- [07:16.800] command of the firefight. He took over
+- [07:19.480] like nobody's ever seen before.
+- [07:22.560] Barely clinging to consciousness, he
+- [07:24.840] called in close air support for an
+- [07:27.800] entire hour.
+- [07:29.760] Very dangerous. It was sometimes a
+- [07:32.200] little bit too close.
+- [07:34.040] And it was the only force strong enough
+- [07:35.919] to repel the onslaught of
+- [07:38.640] a lot of very tough soldiers on the
+- [07:41.320] other side.
+- [07:42.840] Once an extraction helicopter reaches
+- [07:45.200] team, Jim loaded his wounded men first
+- [07:49.120] before finally loading himself.
+- [07:52.080] When the helicopter groaned under the
+- [07:54.200] weight of his entire team, too many
+- [07:56.120] people,
+- [07:57.360] he attempted to deplane,
+- [07:59.920] but his team physically held him back,
+- [08:01.680] refusing to leave their leader behind.
+- [08:05.040] For his
+- [08:06.200] incredible valor, Jim was recommended
+- [08:08.440] for the Medal of Honor in 1967,
+- [08:11.520] and everybody knew he should get it,
+- [08:14.040] but
+- [08:15.520] life is life. His commanding officer,
+- [08:18.440] who was
+- [08:19.640] his biggest fan, was tragically killed
+- [08:21.800] before the paperwork was signed.
+- [08:25.200] That's a bad break, but now you don't
+- [08:27.280] know this is Maybe this is better.
+- [08:29.640] You'd have waited a little while, didn't
+- [08:30.840] you, huh?
+- [08:32.719] Jim, the nation kept you waiting far too
+- [08:36.120] long.
+- [08:37.360] So, I say to you, congratulations. You
+- [08:39.880] made it. Thank you.
+- [08:51.211] >> [applause]
+- [08:56.451] [applause]
+- [09:03.656] [applause]
+- [09:09.551] [applause]
+- [09:14.791] [applause]
+- [09:18.440] >> Thank you, Jim.
+- [09:20.080] And thanks as well to your niece, Renee,
+- [09:22.560] and
+- [09:23.480] her son, Eric, who I just met. What
+- [09:25.560] great people, and
+- [09:27.480] brother-in-arms, Joe Rodriguez, a big
+- [09:30.520] fan of yours.
+- [09:32.480] Thank you very much. Congratulations.
+- [09:36.200] Next, we honor another legend of the
+- [09:38.200] United States Marines who was sadly no
+- [09:40.560] longer with us, Colonel John W. Ripley.
+- [09:44.480] In the spring of 1972,
+- [09:47.120] the North Vietnamese
+- [09:49.520] prepared their Easter offensive,
+- [09:52.320] the largest ground invasion since the
+- [09:54.680] Korean War. It was a big, big invasion.
+- [09:57.880] Over 30,000
+- [09:59.920] North Vietnamese soldiers and 200 tanks
+- [10:03.600] and lots of other equipment high-level
+- [10:06.960] plan to penetrate deep into South
+- [10:09.240] Vietnam and collapse the embattled
+- [10:12.000] republic.
+- [10:13.360] The only thing standing in their way was
+- [10:15.680] a bridge across the Chu Viet River
+- [10:19.320] and the extraordinary courage of then
+- [10:21.800] Captain John Ripley. Everybody knew he
+- [10:24.920] had that.
+- [10:26.440] As North Vietnamese forces surged to the
+- [10:30.160] North River bank, it became clear that
+- [10:32.280] the assault could only be stopped by
+- [10:34.640] destroying the bridge.
+- [10:36.840] Vietnamese army engineers had stockpiled
+- [10:39.680] over 500 lb of explosives that needed to
+- [10:42.480] be personally placed under the bridge.
+- [10:45.800] As the only soldier with sufficient
+- [10:47.520] demolition experience, John
+- [10:50.240] reached for the first load of
+- [10:52.040] explosives. Everyone said, "Don't do it,
+- [10:54.080] John. Don't do it." He grabbed the steel
+- [10:56.760] girders above his head and
+- [10:59.000] hand over hand he climbed, dangling
+- [11:01.600] beneath the bridge and over the rushing
+- [11:03.760] water.
+- [11:05.000] There was a lot of very angry people
+- [11:07.240] watching him.
+- [11:08.920] Completely exposed to withering enemy
+- [11:12.080] gunfire, John
+- [11:13.960] completed not one,
+- [11:16.600] not two, but five such trips.
+- [11:19.960] He was a strong guy, a very strong guy.
+- [11:23.280] At one point, John remembers a tank
+- [11:26.040] round blasting into the bridge and
+- [11:27.960] knocking him
+- [11:29.480] temporarily unconscious. For five
+- [11:31.920] straight hours, He hauled explosives,
+- [11:33.960] placed charges,
+- [11:35.520] and ran a
+- [11:36.920] primer cord to each one of them.
+- [11:39.640] He later recalled reciting a simple
+- [11:41.480] prayer, "Jesus, Mary,
+- [11:44.720] get me there. Just get me there." When
+- [11:47.120] John detonated the explosives, the
+- [11:49.240] bridge collapsed into the river,
+- [11:51.200] crushing the advance and saved the hope
+- [11:53.880] of a free Vietnam for
+- [11:56.200] Easter morning.
+- [11:57.840] For his heroic deeds, John Ripley was
+- [12:00.520] given the Navy Cross, and today we
+- [12:03.800] posthumously award him the
+- [12:06.680] highest of all awards, the Congressional
+- [12:08.560] Medal of Honor.
+- [12:10.560] And we're grateful to be joined by his
+- [12:12.200] sons Tom, John, and Steve, grandsons
+- [12:14.840] Stephen Lewis and Francis, and his
+- [12:17.720] beautiful daughter-in-law, Alexandra.
+- [12:21.240] And so, I want to thank you all for
+- [12:22.680] being here, and congratulations. You
+- [12:24.560] have extremely good genetics.
+- [12:27.160] So, congratulations.
+- [12:29.983] >> [applause]
+- [12:35.223] [applause]
+- [12:42.428] [applause]
+- [12:48.978] [applause]
+- [12:55.720] >> Thank you very much. Congratulations.
+- [12:59.320] He's looking down on you. You know that,
+- [13:01.080] right?
+- [13:02.400] Finally, we honor a hero of the war on
+- [13:05.120] terror,
+- [13:06.320] Major Nicholas Dockery.
+- [13:09.480] On October 2nd, 2012, Nick's platoon was
+- [13:12.760] guarding the compound of the governor of
+- [13:16.240] eastern Afghanistan
+- [13:18.839] when they were ambushed by 150 Taliban
+- [13:22.200] fighters swarming in from multiple
+- [13:24.880] directions. They came from all over the
+- [13:26.640] place. The enemy unleashed overwhelming
+- [13:29.760] torrents of fire from machine guns and
+- [13:32.280] rocket-propelled grenades.
+- [13:35.080] Without concern for his own life at all,
+- [13:38.520] Nick raced across the open ground to
+- [13:41.240] rally his scattered team.
+- [13:44.000] They were all very concerned, very
+- [13:46.640] nervous. There was not a lot of hope.
+- [13:49.800] When word came that Sergeant Eric
+- [13:51.880] Mitchell was wounded and
+- [13:53.960] pinned down inside the compound, Nick
+- [13:55.840] went after him without even hesitating.
+- [13:59.160] He personally spearheaded the rescue,
+- [14:01.240] kicking down doors and clearing room
+- [14:03.520] after room. He was looking for him. He
+- [14:05.160] was going to find him.
+- [14:06.880] At one point, he killed a Taliban
+- [14:08.480] fighter and detained two others.
+- [14:11.240] As he reached Sergeant Mitchell, a
+- [14:13.720] grenade came raining down. Without
+- [14:16.440] thinking,
+- [14:17.880] Nick tackled Sergeant Mitchell, likely
+- [14:20.680] saving his life.
+- [14:23.040] When the smoke cleared, every man was
+- [14:25.200] wounded, but
+- [14:26.960] none were dead.
+- [14:28.600] Nick did a quick head count and realized
+- [14:31.200] one of his team members was still
+- [14:32.720] missing, Sergeant Jack Hansbrough.
+- [14:36.280] Nick rushed through the compound until
+- [14:38.520] he found the sergeant being dragged
+- [14:40.400] unconscious through an alleyway by two
+- [14:43.920] Taliban fighters with very bad
+- [14:45.800] intentions.
+- [14:47.480] Nick eliminated both terrorists in close
+- [14:49.680] quarters, then pulled Sergeant
+- [14:51.120] Hansbrough back to cover, but found he
+- [14:53.600] was not breathing. So, urgently,
+- [14:56.440] Nick administered CPR until the
+- [14:59.520] sergeant's heart kicked back in.
+- [15:03.360] As mortar fire thundered down all around
+- [15:05.600] them, Nick covered his incapacitated
+- [15:08.480] teammate with his own body, shielding
+- [15:10.320] him from further injury.
+- [15:12.560] In his final act of unbelievable valor
+- [15:14.800] that day, Nick climbed his way
+- [15:17.480] to the open roof, where he was again
+- [15:19.640] vulnerable to Taliban gunfire at highest
+- [15:23.480] levels.
+- [15:24.720] He signaled enemy positions with smoke
+- [15:26.840] grenades allowing American gunships to
+- [15:30.200] come to the platoon's rescue.
+- [15:32.880] Major Dockery, you were the last man to
+- [15:35.040] depart the battlefield that day
+- [15:37.240] and you left it a legend and a hero.
+- [15:40.400] We proudly award you the Congressional
+- [15:43.320] Medal of Honor.
+- [15:46.080] Fantastic, ladies.
+- [15:49.760] >> [applause]
+- [15:57.621] [applause]
+- [16:04.826] [applause]
+- [16:12.031] [applause]
+- [16:17.160] >> Thank you very much.
+- [16:19.400] Joining Major Dockery today are his
+- [16:22.120] younger brother, Blake,
+- [16:24.320] his partner, Jennifer, grandmother,
+- [16:26.360] Mary. Oh, Mary is something. I'd like
+- [16:28.320] Mary. Where is Mary? Where are you,
+- [16:30.000] Mary?
+- [16:31.400] Where are you, Mary?
+- [16:34.320] I love Mary. She said, "I'm a big fan of
+- [16:36.760] yours." You know, I like people that are
+- [16:38.360] fans of mine.
+- [16:40.800] Thank you, Doris. Great to be with you,
+- [16:42.360] too.
+- [16:44.280] A friend and colleague, Chris, and five
+- [16:46.560] members of his unit on the day of the
+- [16:48.680] attack, John, Morgan, Will, Joey,
+- [16:51.839] and Roshan. Would you guys stand up,
+- [16:54.120] please? Wouldn't you do that?
+- [16:56.120] Wow.
+- [17:01.811] >> [applause]
+- [17:07.706] [applause]
+- [17:14.256] [applause]
+- [17:14.800] >> And we're going to get them some of
+- [17:15.959] those coins, Nick, okay? We're going to
+- [17:17.720] get them some of those.
+- [17:19.079] It's not the Congressional Medal of
+- [17:20.560] Honor, but it's pretty good.
+- [17:22.280] So, you have to remember that. They'll
+- [17:23.680] take care of that.
+- [17:25.319] As we approach the 250th anniversary of
+- [17:28.439] our founding, we remember that we owe
+- [17:30.760] everything to heroes like those we
+- [17:33.040] celebrate today.
+- [17:34.800] Men who went willingly to the darkest
+- [17:37.640] and most dangerous corners
+- [17:40.080] on Earth to defeat evil so we could live
+- [17:43.200] free.
+- [17:44.280] That's exactly what happened.
+- [17:46.440] These are great men, great people.
+- [17:49.200] We thank you, and we will never, ever
+- [17:51.640] forget you.
+- [17:53.360] And now, I'd like to ask the military
+- [17:55.560] aide to come forward and read the
+- [17:57.480] citations, please.
+- [18:06.160] >> Major James Capers, Jr.
+- [18:42.080] The President of the United States, in
+- [18:44.080] the name of the Congress, takes pleasure
+- [18:46.040] in presenting the Medal of Honor to
+- [18:48.040] Second Lieutenant James Capers, Jr.,
+- [18:50.560] United States Marine Corps.
+- [19:24.603] >> [applause]
+- [19:29.188] [applause]
+- [19:38.358] [applause]
+- [19:48.183] [applause]
+- [20:11.480] >> Tom Ripley accepting on behalf of his
+- [20:13.560] father Colonel John Ripley.
+- [20:21.200] The President of the United States in
+- [20:22.920] the name of the Congress takes pride in
+- [20:24.680] presenting the Medal of Honor
+- [20:25.840] posthumously to Captain John W. Ripley,
+- [20:29.640] United States Marine Corps.
+- [20:41.894] >> [applause]
+- [20:49.754] [applause]
+- [20:58.924] [applause]
+- [21:04.360] >> Major Nicholas Dockery.
+- [21:10.080] The President of the United States of
+- [21:11.440] America, authorized by act of Congress,
+- [21:13.840] March 3rd, 1863,
+- [21:16.120] has awarded in the name of Congress the
+- [21:17.640] Medal of Honor to Second Lieutenant
+- [21:19.680] Nicholas Dockery, United States Army.
+- [22:23.420] >> [applause]
+- [22:32.590] [applause]
+- [22:37.175] [applause]
+- [22:45.035] [applause]
+- [22:49.620] [applause]
+- [22:55.800] >> And I invite you to pray with me.
+- [22:57.880] Eternal God, you are the giver of every
+- [23:00.200] good gift, and all that we have comes
+- [23:02.440] from your gracious hand.
+- [23:04.200] Father, as we leave this place of honor,
+- [23:06.720] let the fierce courage of Major Dockery,
+- [23:09.360] Major Capers, and Colonel Ripley be
+- [23:11.520] permanently etched into our hearts. Let
+- [23:14.200] their lives be a lasting reminder that
+- [23:16.600] the truest measure of our character is
+- [23:18.840] not found in what we gain, but in what
+- [23:21.400] we are willing to sacrifice for one
+- [23:23.280] another.
+- [23:24.320] Lord, we ask you to move powerfully
+- [23:26.160] across our ranks.
+- [23:27.960] Place a hedge of divine protection
+- [23:30.200] around our armed forces standing watch
+- [23:32.280] in all corners of the world, and pour
+- [23:34.840] your sustaining grace over the families
+- [23:37.480] who hold the line at home.
+- [23:39.760] Grant wisdom to our commander-in-chief
+- [23:42.000] and to our leaders. And Father, as we
+- [23:44.640] mark two and a half centuries of freedom
+- [23:47.040] as a nation, we ask that you keep the
+- [23:49.520] United States of America strong,
+- [23:52.200] resolute, and forever a beacon of
+- [23:55.040] liberty
+- [23:56.160] to the world. In your name, I pray.
+- [23:59.000] Amen.
+- [24:12.806] >> [applause]
+- [24:16.736] [music]
+- [24:22.631] [music]

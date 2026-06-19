@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=8CUzvoCv51U: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=8CUzvoCv51U! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=MroKLvmjrZE: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=MroKLvmjrZE! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9540,6 +9540,28 @@
       "published": "2026-06-18T00:19:02+00:00",
       "title": "\ud83d\udea8 Breaking: POTUS signs Iran Memorandum of Understanding",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7652523266271087885"
+    },
+    "tiktok:whitehouse:7652812486252481805": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:22.625345+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/18/7652812486252481805",
+      "platform": "tiktok",
+      "post_id": "7652812486252481805",
+      "published": "2026-06-18T19:01:10+00:00",
+      "title": "TRUST IN TRUMP \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7652812486252481805"
+    },
+    "tiktok:whitehouse:7652861978205064461": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:22.625320+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/18/7652861978205064461",
+      "platform": "tiktok",
+      "post_id": "7652861978205064461",
+      "published": "2026-06-18T22:13:13+00:00",
+      "title": "Congratulations Major James Capers Jr, Major Nicholas Dockery, and Colonel John Ripley \ud83c\uddfa\ud83c\uddf8\u2764...",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7652861978205064461"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -116351,6 +116373,94 @@
       "title": "OIL IS FLOWING, IRAN CAN NEVER HAVE A NUCLEAR WEAPON (THE WORLD WILL BE SAFE!), THE STOCK ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116771467656011073"
     },
+    "truthsocial:realdonaldtrump:116772115745401759": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.802630+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772115745401759",
+      "platform": "truthsocial",
+      "post_id": "116772115745401759",
+      "published": "2026-06-18T16:44:42.536000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) US attorney in California...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772115745401759"
+    },
+    "truthsocial:realdonaldtrump:116772117261615722": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.802082+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772117261615722",
+      "platform": "truthsocial",
+      "post_id": "116772117261615722",
+      "published": "2026-06-18T16:45:05.677000+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Former Trump economist sa...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772117261615722"
+    },
+    "truthsocial:realdonaldtrump:116772135215188960": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.801479+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772135215188960",
+      "platform": "truthsocial",
+      "post_id": "116772135215188960",
+      "published": "2026-06-18T16:49:39.626000+00:00",
+      "title": "There is no 300 Billion Dollar payment to Iran by the U.S. That\u2019s Fake News! All there is ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772135215188960"
+    },
+    "truthsocial:realdonaldtrump:116772416131420569": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.801178+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772416131420569",
+      "platform": "truthsocial",
+      "post_id": "116772416131420569",
+      "published": "2026-06-18T18:01:06.103000+00:00",
+      "title": "The United States is committed to PEACE, and we encourage everyone in the Middle East Regi...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772416131420569"
+    },
+    "truthsocial:realdonaldtrump:116772448531484273": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.800855+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772448531484273",
+      "platform": "truthsocial",
+      "post_id": "116772448531484273",
+      "published": "2026-06-18T18:09:20.489000+00:00",
+      "title": "It seems as though the Great State of Utah, which I won each time, and handily, is going t...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772448531484273"
+    },
+    "truthsocial:realdonaldtrump:116772506497851104": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.800494+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116772506497851104",
+      "platform": "truthsocial",
+      "post_id": "116772506497851104",
+      "published": "2026-06-18T18:24:04.987000+00:00",
+      "title": "Anybody who doesn\u2019t want to Terminate the Filibuster is a FOOL, a very stupid one, at that...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116772506497851104"
+    },
+    "truthsocial:realdonaldtrump:116773596380247574": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.800123+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116773596380247574",
+      "platform": "truthsocial",
+      "post_id": "116773596380247574",
+      "published": "2026-06-18T23:01:15.272000+00:00",
+      "title": "MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY Preside...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116773596380247574"
+    },
+    "truthsocial:realdonaldtrump:116773601993335103": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-19T00:36:08.799137+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/18/116773601993335103",
+      "platform": "truthsocial",
+      "post_id": "116773601993335103",
+      "published": "2026-06-18T23:02:40.948000+00:00",
+      "title": "Truth Social post 116773601993335103",
+      "url": "https://truthsocial.com/@realDonaldTrump/116773601993335103"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -159350,6 +159460,17 @@
       "title": "President Trump delivers remarks at the inaugural Board of Peace meeting \ud83d\udd4a\ufe0f\ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.youtube.com/watch?v=8AcCpS8xnHU"
     },
+    "youtube:whitehouse:8CUzvoCv51U": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-19T00:36:31.455789+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/18/8CUzvoCv51U",
+      "platform": "youtube",
+      "post_id": "8CUzvoCv51U",
+      "published": "2026-06-18T16:18:06+00:00",
+      "title": "Vice President JD Vance Briefs Members of the Media, Jun. 18, 2026",
+      "url": "https://www.youtube.com/watch?v=8CUzvoCv51U"
+    },
     "youtube:whitehouse:8C_C5J-2jU0": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -159492,6 +159613,17 @@
       "published": "2025-04-15T23:52:54+00:00",
       "title": "President Trump Presents Commander-in-Chief's Trophy to Navy Football",
       "url": "https://www.youtube.com/watch?v=8mpBEWQhz5g"
+    },
+    "youtube:whitehouse:8r6c6McvHiE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-19T00:36:29.506336+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/18/8r6c6McvHiE",
+      "platform": "youtube",
+      "post_id": "8r6c6McvHiE",
+      "published": "2026-06-18T21:22:21+00:00",
+      "title": "President Trump Participates in a Medal of Honor Ceremony",
+      "url": "https://www.youtube.com/watch?v=8r6c6McvHiE"
     },
     "youtube:whitehouse:8t421g2Q9dw": {
       "account": "WhiteHouse",
@@ -160691,6 +160823,17 @@
       "published": "2025-08-18T19:20:19+00:00",
       "title": "President Trump Participates in a Multilateral Meeting with European Leaders",
       "url": "https://www.youtube.com/watch?v=CpsG75j-0hY"
+    },
+    "youtube:whitehouse:CpsgbX1ZaM4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-19T00:36:30.660368+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/18/CpsgbX1ZaM4",
+      "platform": "youtube",
+      "post_id": "CpsgbX1ZaM4",
+      "published": "2026-06-18T20:06:22+00:00",
+      "title": "President Trump Attends G7 in Evian, France",
+      "url": "https://www.youtube.com/watch?v=CpsgbX1ZaM4"
     },
     "youtube:whitehouse:CrC_TYnt_VM": {
       "account": "WhiteHouse",
@@ -164893,6 +165036,17 @@
       "published": "2025-02-24T14:52:29+00:00",
       "title": "Swearing-In Ceremony of Kash Patel as Director of the Federal Bureau of Investigation",
       "url": "https://www.youtube.com/watch?v=R5me4nm6oTw"
+    },
+    "youtube:whitehouse:R6vaWMO3718": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-19T00:36:32.417027+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/18/R6vaWMO3718",
+      "platform": "youtube",
+      "post_id": "R6vaWMO3718",
+      "published": "2026-06-18T16:13:38+00:00",
+      "title": "VP: \u201cThe President\u2019s Peace Plan in Iran is Already Bearing Real Fruits For The American People\u201d",
+      "url": "https://www.youtube.com/shorts/R6vaWMO3718"
     },
     "youtube:whitehouse:RBNao6zC8Ws": {
       "account": "WhiteHouse",
@@ -169183,6 +169337,17 @@
       "published": "2025-05-06T19:53:58+00:00",
       "title": "President Trump Participates in a Bilateral Meeting with the Prime Minister of Canada, May 6, 2025",
       "url": "https://www.youtube.com/watch?v=f_ggYP-VO2s"
+    },
+    "youtube:whitehouse:fbjcCYjdZS4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-19T00:36:28.562821+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/18/fbjcCYjdZS4",
+      "platform": "youtube",
+      "post_id": "fbjcCYjdZS4",
+      "published": "2026-06-18T21:40:50+00:00",
+      "title": "President Trump is awarding three outstanding heroes the Medal of Honor. \u2764\ufe0f",
+      "url": "https://www.youtube.com/shorts/fbjcCYjdZS4"
     },
     "youtube:whitehouse:fe-rbewIBK4": {
       "account": "WhiteHouse",
