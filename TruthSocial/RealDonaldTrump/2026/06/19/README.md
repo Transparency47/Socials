@@ -1,7 +1,37 @@
 # TruthSocial / RealDonaldTrump / 2026-06-19
 
-- Posts: 5
+- Posts: 15
 
+- [11:11 UTC - Truth Social post 116776466591299912](116776466591299912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776466591299912
+  - _No text content captured._
+- [11:10 UTC - Truth Social post 116776463738628664](116776463738628664/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776463738628664
+  - _No text content captured._
+- [11:10 UTC - Truth Social post 116776463048440484](116776463048440484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776463048440484
+  - _No text content captured._
+- [11:10 UTC - Truth Social post 116776462147910911](116776462147910911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776462147910911
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 116776461214503929](116776461214503929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776461214503929
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 116776460526714868](116776460526714868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776460526714868
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 116776459244843259](116776459244843259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776459244843259
+  - _No text content captured._
+- [11:09 UTC - Truth Social post 116776458575592063](116776458575592063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776458575592063
+  - _No text content captured._
+- [11:08 UTC - Truth Social post 116776457842104914](116776457842104914/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776457842104914
+  - _No text content captured._
+- [11:08 UTC - Truth Social post 116776456544210565](116776456544210565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116776456544210565
+  - _No text content captured._
 - [05:07 UTC - UFC FREEDOM 250! 🇺🇸🦅](116775035111874680/)
   - Source: https://truthsocial.com/@realDonaldTrump/116775035111874680
   - UFC FREEDOM 250! 🇺🇸🦅
