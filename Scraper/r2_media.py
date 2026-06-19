@@ -12,7 +12,7 @@ from pathlib import Path
 from urllib.parse import quote, unquote, urlparse
 
 
-DEFAULT_PUBLIC_BASE_URL = "https://cdn.comparify.app/"
+DEFAULT_PUBLIC_BASE_URL = "https://cdn.transparency47.org/"
 DEFAULT_KEY_PREFIX = "archive"
 DEFAULT_CACHE_CONTROL = "public, max-age=31536000, immutable"
 
