@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 3
+- Posts: 6
 
+- [11:55 UTC - Funny how the Dumocrats like to say that Iran is in a stronger position today than they we...](116782304422351399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782304422351399
+  - Funny how the Dumocrats like to say that Iran is in a stronger position today than they were three months ago, despite the fact that they have been defeated militarily, with no Nav...
+- [11:49 UTC - Italian Prime Minister Gigiorgia Meloni asked, over and over, for a picture with me during...](116782277725628816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782277725628816
+  - Italian Prime Minister Gigiorgia Meloni asked, over and over, for a picture with me during the G-7 meeting in France. She is doing poorly in Italy with her level of popularity, pos...
+- [11:00 UTC - Radical Left fools and Dumocrats realize how well we have done in our War against Iran, wi...](116782087277472431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782087277472431
+  - Radical Left fools and Dumocrats realize how well we have done in our War against Iran, with their Country being completely defeated militarily. Obuma just kept giving them $Billio...
 - [04:09 UTC - Truth Social post 116780470965426392](116780470965426392/)
   - Source: https://truthsocial.com/@realDonaldTrump/116780470965426392
   - _No text content captured._
