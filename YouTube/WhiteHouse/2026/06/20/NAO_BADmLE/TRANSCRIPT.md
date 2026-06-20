@@ -1,0 +1,684 @@
+<!-- source: https://www.youtube.com/watch?v=_NAO-BADmLE -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: _NAO-BADmLE -->
+<!-- date_published: 2026-06-20T00:05:16+00:00 -->
+<!-- date_accessed: 2026-06-20T02:41:15.476379+00:00 -->
+
+# Transcript: President Trump Greets U.S. Air Force Service Members
+
+- [00:09.760] Ladies and gentlemen, the 45th and 47th
+- [00:12.639] president of the United States, Donald
+- [00:14.960] J. Trump. And I'm proud to be an
+- [00:18.560] American where at least I know I'm free.
+- [00:23.359] And I won't forget the men who died, who
+- [00:27.039] gave that fight to me. And I gladly
+- [00:30.320] stand up next to you. And it may hurt
+- [00:34.719] still today.
+- [00:36.559] Cuz there ain't no doubt I love this
+- [00:39.360] land.
+- [00:41.680] God bless the USA.
+- [00:56.640] from the lakes of Minnesota
+- [00:59.920] to the hills of Tennessee.
+- [01:03.680] Across the plains of Texas, from sea to
+- [01:07.760] shining sea,
+- [01:10.159] from Detroit down to Houston and New
+- [01:14.080] York to LA, where there's pride in every
+- [01:18.640] American heart. And it's time we stand
+- [01:21.680] and say
+- [01:27.040] proud to be an American where at least I
+- [01:31.280] know I'm free and I won't forget the men
+- [01:35.759] who died who gave that right to me. And
+- [01:39.360] I gladly stand up next to you and live
+- [01:44.079] her still today.
+- [01:46.560] cuz there ain't no doubt I love this.
+- [01:52.640] the USA
+- [02:10.720] who gave that to me and I stand
+- [02:16.959] next to you and still day.
+- [02:21.680] But there ain't no doubt I got this
+- [02:28.239] for you.
+- [02:42.400] And I'm proud to be an American where at
+- [02:46.000] least I know I'm free. And I won't
+- [02:50.160] forget the men who died, who gave that
+- [02:53.680] life to me. And I gladly stand up next
+- [02:58.160] to you
+- [03:00.480] still today.
+- [03:02.400] Cuz there ain't no doubt I love this
+- [03:05.200] land.
+- [03:07.519] God bless the USA.
+- [03:22.480] from the lakes of Minnesota
+- [03:25.760] to the hills of Tennessee.
+- [03:29.519] Across the plains of Texas, from sea to
+- [03:33.599] shining sea,
+- [03:35.920] from Detroit down to Houston and New
+- [03:39.840] York to LA, where there's pride in every
+- [03:44.480] American heart. And it's time we stand
+- [03:47.440] and say
+- [03:52.640] I'm proud to be an American where it is
+- [03:56.640] now I know I'm free and I won't forget
+- [04:00.879] the men who died who gave that life to
+- [04:04.480] me and I had to stand up next to you and
+- [04:09.280] defend her still today.
+- [04:12.400] cuz there ain't no doubt I love this.
+- [04:18.400] The USA
+- [04:35.680] died
+- [04:38.080] to me and I stand
+- [04:42.800] next to you and remember still day.
+- [04:47.520] But you ain't no doubt. I love this.
+- [04:52.720] God for you.
+- [05:07.759] Well, thank you very much. And uh before
+- [05:09.840] we begin on the plane, this is a brand
+- [05:12.479] new hanger because as you probably have
+- [05:15.120] learned uh these planes are much bigger.
+- [05:18.320] The other plane was about 35 years old
+- [05:21.520] and it was time and president of the
+- [05:24.320] United States. Numerous of them would
+- [05:26.960] land and they'd be standing next to one
+- [05:29.840] of the new 747s. And the biggest
+- [05:33.280] difference is the difference in size.
+- [05:34.960] It's like virtually double the size. And
+- [05:38.080] it actually on a runway it looks even
+- [05:39.919] more so. And I said to myself, you know,
+- [05:42.560] these countries, they have a lot of
+- [05:45.039] respect for us, a lot. And yet they have
+- [05:47.759] a a plane that's much better and much
+- [05:50.240] newer. It's a little ridiculous out
+- [05:51.919] there. And we have our signal and we
+- [05:55.600] have our beautiful American flag and we
+- [05:57.680] put the wave in it. As you know, we've
+- [05:59.280] always gone with a straight little
+- [06:00.560] noodle and I never love that. Now we
+- [06:03.120] have a wavy beautiful flag. We're waving
+- [06:05.199] it proudly because our country is doing
+- [06:06.800] so well. Our country is doing so well.
+- [06:09.840] Those ships are flowing out of the Harmu
+- [06:13.199] Strait like nobody's ever seen before.
+- [06:15.440] Actually, there were a lot of them,
+- [06:16.560] about 700 of them, and they're pouring
+- [06:18.400] out. The oil is all over the place.
+- [06:20.800] You're going to see oil drop so low. I
+- [06:22.560] hope the companies are happy about it.
+- [06:24.800] But we have uh a lot of victories. We
+- [06:27.440] had a great victory in Venezuela where
+- [06:29.919] we're now uh doing really well with the
+- [06:32.560] government. The big companies are all in
+- [06:35.120] there. The oil companies, they're
+- [06:36.560] building rigs and we've paid for that
+- [06:38.960] war many, many times over. We're running
+- [06:41.680] it. And again, we have a fantastic
+- [06:44.319] relationship with the people of
+- [06:46.479] Venezuela. Venezuela has become a happy
+- [06:48.720] country because they have never made the
+- [06:51.280] money that they're making. Now, we take
+- [06:52.880] some and they take some, but I just want
+- [06:55.680] to thank the general for the job. Raisin
+- [06:57.840] Kane. I liked his name right away. I had
+- [06:59.759] him raising Kane and he does. He raises
+- [07:02.080] Kane and he's very quiet about it. But,
+- [07:04.960] uh, he knows how to win. I knew that a
+- [07:06.960] long time ago. I said, "If I ever get
+- [07:09.520] back here, I know the guy I'm going to
+- [07:11.440] put in charge of the Joint Chiefs of
+- [07:13.199] Staff." And I got my man. So, thank you,
+- [07:16.080] General. Great job. We're proud of you.
+- [07:18.479] And, uh, all of the people. I mean uh we
+- [07:21.280] have the greatest military anywhere in
+- [07:23.919] the world and you saw that
+- [07:27.759] in Iran where in one week virtually we
+- [07:31.520] knocked out their entire navy, their
+- [07:33.440] entire air force,
+- [07:35.840] their anti-missile weapons, their radar.
+- [07:39.520] We knocked out everything. Now some of
+- [07:42.080] the fake news would say, "Oh, we didn't
+- [07:43.599] do it fast enough or so. We took about a
+- [07:45.520] week." We're a little spoiled by
+- [07:48.479] Venezuela.
+- [07:49.840] equal. I would say equal. And now we
+- [07:52.960] have an agreement that was signed last
+- [07:55.280] night and it's 60 days. They have to
+- [07:58.800] make a deal otherwise we we will do
+- [08:01.840] things that won't make them happy. But I
+- [08:03.680] don't think it's going to get to that. I
+- [08:05.039] think it's going to be very good.
+- [08:06.319] Remember, if we do that, then all of a
+- [08:08.639] sudden you're not going to have the oil
+- [08:10.639] flowing out of the straight too quickly
+- [08:12.560] because people that own billion-dollar
+- [08:15.039] ships don't love missiles flying over
+- [08:17.039] them. don't love mines all over the
+- [08:18.879] water. And uh this is going to be
+- [08:21.440] amazing what's happening now because we
+- [08:23.120] have the greatest economy that we've
+- [08:24.560] ever had. We have 19.2 trillion dollars
+- [08:29.520] coming into our country from other
+- [08:32.640] countries and people, but a lot of other
+- [08:35.599] countries they're coming in, including
+- [08:38.240] uh Qar who was so nice and providing.
+- [08:41.839] You know, we were we were uh at a little
+- [08:45.120] bit of a log jam. were waiting for the I
+- [08:48.320] call them the normal 747s
+- [08:51.279] and I asked the Amir if we could use
+- [08:55.600] the brand new 747 that he got with had
+- [08:59.760] when we first uh heard about 800 hours.
+- [09:02.880] 800 hours for an airplane is essentially
+- [09:04.959] I think Troy you could say that's a
+- [09:06.959] brand new plane and I said would like to
+- [09:10.080] use it for a little while because the
+- [09:11.440] planes are pretty old. Our planes are
+- [09:13.279] old. See a normal president wouldn't do
+- [09:15.279] this. The normal president wants to stay
+- [09:16.959] away from aircraft. We don't want to
+- [09:19.360] order any aircraft so that everybody
+- [09:21.120] thinks but our country has to be
+- [09:22.480] represented properly. That includes with
+- [09:26.000] we have the greatest military in the
+- [09:27.839] world. We have the greatest aircraft
+- [09:29.440] anywhere in the world. Military fighters
+- [09:31.279] and bombers and the B2 bomber. You saw
+- [09:33.360] what that did. And uh we should have a
+- [09:36.080] plane and we're going to have as you
+- [09:38.320] know we ordered two for long time ago.
+- [09:40.720] They ordered and they're coming in. And
+- [09:42.800] the hanger was built for the large
+- [09:45.680] plane. The other plane is such a
+- [09:47.519] difference in size. But uh there will
+- [09:49.600] never be one like this. This is a very
+- [09:51.680] unique. This is uh considered the
+- [09:54.320] world's most luxurious plane when it was
+- [09:56.240] built. It was built at a level that will
+- [09:59.600] probably never be seen again. And if the
+- [10:01.920] press would like, I don't know if it's
+- [10:04.320] going to help me with stories. I don't
+- [10:05.920] think they'll be any different. But what
+- [10:08.080] we're going to do is we're going to take
+- [10:09.040] you for just a quick tour. Uh, the press
+- [10:11.760] is actually gonna Oh, look at them.
+- [10:13.440] They're actually smiling. Are you smile?
+- [10:16.079] The first time I've seen them smile in
+- [10:17.680] years. They don't smile at Republicans.
+- [10:20.240] They should smile at Republicans because
+- [10:22.240] we're the ones that make America great.
+- [10:25.200] Anyway, but that's good. You're happy
+- [10:26.800] about that? We'll do it. All right. So,
+- [10:29.200] when I leave, they're going to take you
+- [10:30.560] for a little tour. You'll see something
+- [10:32.160] you won't even believe. And you'll be
+- [10:34.320] spending a lot of time. We're going to
+- [10:35.760] do We're doing a lot of trips. We'll be
+- [10:37.440] going to Turkey. will be going uh at
+- [10:40.399] some point during the year back to
+- [10:41.760] China. President Xi's coming here in
+- [10:43.839] September, but we're going back for a
+- [10:45.920] big conference that's uh in China. I
+- [10:48.880] said I'd do that. And uh I want to thank
+- [10:51.760] China because to be honest, I asked
+- [10:54.000] President Xi not to get involved with
+- [10:56.880] Iran and they get 50% of their oil from
+- [11:01.279] the strait. But I asked him not to get
+- [11:03.760] involved
+- [11:05.279] and he said he wouldn't and he didn't. I
+- [11:07.040] mean very nice actually very nice so I
+- [11:10.160] appreciate that but we'll be doing a lot
+- [11:12.240] of traveling together uh the workmanship
+- [11:15.279] of this plane is when you see it you
+- [11:19.680] won't believe it actually the quality of
+- [11:22.560] of uh woods the quality of the materials
+- [11:26.320] the quality of the engines these engines
+- [11:28.320] are the finest and the best in the world
+- [11:30.800] nothing like it so it's really an honor
+- [11:33.519] and I want to thank
+- [11:35.760] the amir of
+- [11:38.000] Qatar. He's a fantastic guy. He went
+- [11:41.360] through a lot over the last few months.
+- [11:43.200] He's very brave. As were Saudi Arabia,
+- [11:47.600] the crown prince and the king of Saudi
+- [11:51.040] Arabia, who's in good health. He's a
+- [11:53.600] little older.
+- [11:55.200] Got a little bit I knew him when he was
+- [11:56.720] a little bit younger. I've known him all
+- [11:58.240] for a long time. But the crown prince is
+- [12:00.720] a fantastic person. and UAE Muhammad
+- [12:04.160] from UAE, incredible. He's an incredible
+- [12:07.680] fighter. They're all incredible fighters
+- [12:09.920] and they fought with us and they've been
+- [12:11.519] loyal to us and I appreciate it. Also
+- [12:14.639] Kuwait, Bahrain and some others and uh
+- [12:18.480] obviously we fought very well with
+- [12:20.480] Israel and we've had a great
+- [12:23.279] relationship with Israel. were very
+- [12:25.120] formidable and BB Netanyahu he's a
+- [12:28.240] warrior prime minister and he should be
+- [12:31.440] acknowledged as that he should they
+- [12:33.360] should give him credit because he really
+- [12:35.760] did he we had a a very good relationship
+- [12:38.880] general with all of them but we really
+- [12:40.560] fought hard with Israel and frankly I
+- [12:43.600] feel that if we weren't around let's say
+- [12:46.160] if it wasn't this presidency we rebuilt
+- [12:48.800] our military during my first term some
+- [12:52.639] of it was foolishly given given away by
+- [12:56.000] the Biden administration. Nobody can
+- [12:58.880] even understand that. But not much
+- [13:00.959] compared, a lot but not much compared to
+- [13:03.360] what we built. And then a lot was given
+- [13:06.160] away. A lot was given away by
+- [13:10.480] Biden to Ukraine
+- [13:13.279] and they should pay for it. Meaning the
+- [13:15.760] Europeans should pay for it. But that
+- [13:17.279] wasn't in the cards for them. They
+- [13:18.880] didn't uh nobody asked them to pay. All
+- [13:21.839] you have to do is say, "Take our
+- [13:24.000] military. You we just pay us. Just pay
+- [13:27.200] us." Nobody asked. They said, "Why
+- [13:30.240] didn't you pay?" Nobody asked us to,
+- [13:31.839] sir. I was with the European leaders
+- [13:34.800] over the weekend. I said, "You know, we
+- [13:36.160] gave you 350,
+- [13:39.120] think of it, $350 billion worth of
+- [13:42.639] planes, 300 of of weapons of all kinds
+- [13:45.760] and other things." And they said, "Why?"
+- [13:49.120] I said, "Why didn't you?" and he said,
+- [13:50.639] "Well, nobody ever asked us." So, we're
+- [13:53.600] going to uh now they do pay. Europe
+- [13:55.760] pays. And we're trying to get that war
+- [13:58.320] ended. Ukraine and Russia. I'd like to
+- [14:00.399] see it end. A lot of people. Last week,
+- [14:02.720] it was reported 34,000 people died.
+- [14:06.800] Soldiers, mostly soldiers.
+- [14:09.760] I've ended eight wars. I'm very proud of
+- [14:11.839] it. But, uh, this was the one I thought
+- [14:14.639] might be the easiest of all, and it's
+- [14:16.079] turned out to be a little more
+- [14:17.120] difficult, but we're going to get it
+- [14:18.480] done. I want to thank the Secretary of
+- [14:21.680] the Air Force who's a friend of mine.
+- [14:23.440] He's highly respected. He's a great guy.
+- [14:26.079] He's doing a wonderful job out here.
+- [14:27.839] Troy, thank you very much. Troy Mink.
+- [14:30.480] Thank you very much, Troy.
+- [14:34.240] Great job. And he loves it. Don't you
+- [14:36.720] love? He loves He likes beautiful
+- [14:38.560] aircraft. And we have beautiful
+- [14:40.880] aircraft. We have a thing called the
+- [14:42.560] F47. I'm sure you haven't heard of it,
+- [14:45.440] but they say it's stage six. It's the
+- [14:48.480] They say it's the greatest fighting
+- [14:50.000] machine ever developed and we'll find
+- [14:51.760] out. The F47
+- [14:55.120] and it's under construction now and they
+- [14:57.120] have the assembly line already working
+- [14:58.880] and it's going to do great. Under
+- [15:01.279] Secretary of War, Michael Duffy. Thank
+- [15:03.360] you, Michael. Thank you very much. Great
+- [15:05.600] job. Thank you.
+- [15:09.680] And again, the chairman of the Joint
+- [15:11.440] Chiefs of Staff, Daniel Kaine, who's
+- [15:15.760] fantastic.
+- [15:20.720] Air Force Chief of Staff, General
+- [15:23.199] Kenneth Wilsbach. Thank you. Thank you,
+- [15:26.399] Kenneth.
+- [15:30.560] The CEO of L3 Harris, Chris Kubasic.
+- [15:35.279] Thank you. Great job, Chris.
+- [15:39.040] He said this they do a lot of the great
+- [15:41.760] planes in the world and he said we never
+- [15:43.680] did one like this. This is something
+- [15:46.000] special. Thank you. I heard you were
+- [15:47.519] fantastic. Thank you very much. And I
+- [15:50.160] also want to thank
+- [15:52.240] I think a naturalb born warrior. His
+- [15:55.279] name is Pete Hegsth and he has done
+- [15:59.120] working with the generals and everybody
+- [16:00.959] else. He's he's a natural I believe.
+- [16:03.839] Well, so far we've been winning all the
+- [16:05.680] time. We're not going to lose. He
+- [16:08.079] doesn't know how to lose. And he's a
+- [16:09.839] tough cookie. And he he loved the first
+- [16:12.079] day I met him, I said, "This guy really
+- [16:13.680] loves the military. Very successful,
+- [16:16.079] great colleges, went to the best
+- [16:18.000] schools, great student, but he loved he
+- [16:21.040] loved the military." And I said, I'm
+- [16:24.160] going to give him a chance. And he more
+- [16:25.600] than lived up to the reputation. So he's
+- [16:27.920] great. He's doing a fantastic job. Pete
+- [16:30.320] Hexith
+- [16:35.920] and I also want to thank especially the
+- [16:38.880] 250 people that's a lot who worked 247
+- [16:43.279] to prepare this plane for service
+- [16:45.440] including many airmen here at Joint Base
+- [16:48.399] Andrews. And I want to thank you all. I
+- [16:50.800] want to thank you all and uh your
+- [16:54.240] generals and Troy and everybody. We
+- [16:56.639] we're doing you a little favor. You have
+- [16:59.199] two and a half really bad golf courses
+- [17:02.720] here.
+- [17:04.400] Really bad. They have no water. They're
+- [17:07.439] dying. And everybody wants to play, but
+- [17:10.240] they're really not representative of
+- [17:12.079] quality. So Jack Nicholas, who's a
+- [17:14.400] friend of mine, is doing I told him he's
+- [17:17.199] a great designer, too. He was the
+- [17:18.640] greatest player. Tiger and Jack. Jack
+- [17:21.199] and Tiger. Gary player was right there,
+- [17:23.520] too. Gary Gary won 168 tournaments. We
+- [17:26.799] got to say that's pretty good, too. But
+- [17:29.120] Jack Nicholas, a great great legendary
+- [17:32.080] golfer. He won 18 majors and close to a
+- [17:35.760] hundred tournaments. And uh known also,
+- [17:39.760] very, very rarely does this happen.
+- [17:41.520] Known also, he's really become a
+- [17:43.360] fantastic
+- [17:44.880] golf course designer. He's done
+- [17:47.280] tremendous golf course. And he said,
+- [17:48.799] "Jack, and he loves the military." I
+- [17:51.760] said, "Jack, would you do me a favor?
+- [17:53.200] take the these this beautiful piece of
+- [17:56.000] land with terrible courses that don't
+- [17:58.960] have water, they don't have anything.
+- [18:00.720] They have grass that's 400 years old. I
+- [18:04.240] said, "Well, you right. You know what I
+- [18:06.160] they know what I mean. Give them a
+- [18:08.000] really good give them a world
+- [18:09.919] championship course because the land is
+- [18:11.679] phenomenal. Uh the outer fairways, in
+- [18:14.559] other words, the area the trees between
+- [18:16.640] fairways are the most beautiful I think
+- [18:18.320] I've ever seen because nobody's touched
+- [18:20.480] them in many, many years. And uh they've
+- [18:23.039] just about started construction. You're
+- [18:25.360] going to have it very quickly and you're
+- [18:27.919] going to have uh I think the finest
+- [18:30.720] military courses anywhere in the world,
+- [18:32.559] but they'll be among the best. You know,
+- [18:34.640] it doesn't cost much more to make them
+- [18:37.200] top top tier for a couple of bucks more.
+- [18:39.919] And I said, we're going to spend it. So
+- [18:42.080] that's our gift. The general, myself,
+- [18:44.480] Troy, that's our gift to this to great
+- [18:47.440] place, Andrews. I've gotten to know it.
+- [18:49.039] You know, I've been coming here a lot of
+- [18:50.400] years now. It seems strange, but we've
+- [18:52.720] been coming here a lot of years and
+- [18:54.880] everybody involved with Andrews is a
+- [18:57.679] winner. They run this so well and so
+- [19:00.160] important. So, you're going to have two
+- [19:02.799] and a half. We're doing two courses and
+- [19:04.960] a half for young people, very young
+- [19:08.640] people and disabled. If there's anybody
+- [19:12.240] that needs a little help, it's so
+- [19:15.200] amazing what they do. And so we're doing
+- [19:17.039] nine holes and that'll be for
+- [19:20.799] uh disabled young people. Very, very
+- [19:24.160] special. Hasn't been done before. I
+- [19:25.840] thought it would be a great idea. But
+- [19:28.080] with the extraordinary devotion of many
+- [19:29.840] of you here today, this plane was
+- [19:32.799] transformed into a flying White House at
+- [19:35.840] a level of luxury that nobody's ever
+- [19:38.799] seen before.
+- [19:41.039] Probably even almost outside of an
+- [19:42.799] airplane. It's nobody's ever seen
+- [19:44.720] anything like this.
+- [19:46.320] And in only 10 months, a time frame no
+- [19:48.960] one thought possible. And you know, they
+- [19:51.120] put a lot of things on here that
+- [19:52.320] normally you wouldn't do. Great
+- [19:54.559] protective mechanisms, very very uh the
+- [19:58.400] latest and the greatest in every aspect.
+- [20:00.320] But it took us about 10 months and they
+- [20:03.919] did it really professionally. These
+- [20:05.919] generals were what they do. And this was
+- [20:08.480] a this was love, right? This was not
+- [20:11.600] your normal general. This was not your
+- [20:13.520] normal situation. Come here. I want to
+- [20:16.080] shake your hand. You work so hard. Come
+- [20:17.679] here. This guy.
+- [20:31.039] He worked so hard with such love and
+- [20:34.000] it's basically is a love for the country
+- [20:36.799] and a love for the air force. But his
+- [20:39.200] whole group was just unbelievable. And
+- [20:41.280] you thank them all. Okay, thank you,
+- [20:42.880] General. Appreciate it. Great job.
+- [20:50.159] And it was all of the generals. They
+- [20:52.000] wanted to do something special. They
+- [20:53.679] wanted to get it done for the 250th
+- [20:57.120] year, the anniversary. We have America's
+- [20:59.840] 250th. And that's coming up in a little
+- [21:02.799] while. And I think I can say that we're
+- [21:05.600] going to do a flyover like no flyover.
+- [21:07.600] This is going to lead a group of many,
+- [21:10.799] many planes. I do love the F-22. I have
+- [21:13.520] to tell, does anybody like the F-22? I
+- [21:15.679] love the F-22.
+- [21:18.559] I say, "Why aren't you putting F-22s?"
+- [21:20.720] They're putting F-22s. They're going to
+- [21:22.320] have the 35s. They're going to have the
+- [21:23.840] 16. They're going to have everything.
+- [21:25.840] But this will be a flyover in July 4th.
+- [21:29.120] I think I can say the likes of which
+- [21:31.039] we've never seen before, General. Right.
+- [21:32.960] Spending a couple of bucks extra for a
+- [21:34.720] little fuel. We own the plane, so all we
+- [21:37.200] need is a little extra fuel, right? And
+- [21:39.440] we have every pilot wants to do it.
+- [21:41.039] Those pilots are all fighting to do it.
+- [21:43.120] So, we're going to have a lot of planes
+- [21:45.200] flying over the Capitol and over the
+- [21:47.440] White House. And and maybe I could ask
+- [21:49.840] you to do a return trip, too, because
+- [21:52.159] you know, they fly over and they go
+- [21:53.760] fast. When they're going slow, they're
+- [21:55.520] going fast, right? And as I understand
+- [21:58.240] it, this is going to lead the brigade
+- [22:01.039] and the generals doing that means he
+- [22:03.679] because sometimes you see them and you
+- [22:05.760] like for instance the other night, did
+- [22:07.360] anybody see the fight the other night by
+- [22:09.200] any chance?
+- [22:11.520] because it I figured because it was one
+- [22:14.159] of the highest rated shows they've ever
+- [22:16.000] had ever. I think everybody was watching
+- [22:18.880] that. That was rather gruesome. Does it
+- [22:21.440] would anybody like to be a fighter? I
+- [22:23.039] don't think so. Not that was uh one of
+- [22:25.919] the greatest events, but they flew over
+- [22:28.720] the Blue Angels and the Thunderbirds. I
+- [22:30.640] don't know. Have they ever worked
+- [22:31.600] together before? You know, I think they
+- [22:33.200] probably hate each other, right? you
+- [22:34.799] know, but they're two groups that uh
+- [22:37.360] they got together and they put on a
+- [22:39.440] performance and I think we're going to
+- [22:40.720] get some of that, too. And it's really
+- [22:43.120] these are fantastic people. So, we had
+- [22:45.919] it all painted up and these are the new
+- [22:47.679] colors, red, white, and blue. And we
+- [22:50.000] like the baby blue, but it was time for
+- [22:52.480] a change. And this is the sleekst line.
+- [22:56.320] Everything was designed good. It was my
+- [22:58.640] taste. I will say I like He said, "What
+- [23:00.960] color do you like?" I said, "I like the
+- [23:02.480] co color of the American flag." Right?
+- [23:05.440] That makes sense. So, we have that. And
+- [23:08.240] all of the planes in the fleet are being
+- [23:11.039] changed into this look, which is a much
+- [23:13.840] better look and a more appropriate look.
+- [23:16.240] But this plane is the first successful
+- [23:18.240] example of a real transformation of of
+- [23:22.480] something that was built at the highest
+- [23:24.559] level and now had to be changed a little
+- [23:27.360] bit. We have communication equipment up
+- [23:29.520] there that's nobody's ever seen before.
+- [23:31.760] It's the highest level and uh including
+- [23:35.760] Starlink. My friend Leon, my friend Elon
+- [23:38.799] is going to be very happy. But uh
+- [23:41.600] Starlink and we have four or five
+- [23:44.320] different sets of double and triple
+- [23:46.720] communications like people haven't seen.
+- [23:49.360] And it represents what can happen with
+- [23:51.600] hard work, innovation, and aggressive
+- [23:54.080] timelines because we did this quickly.
+- [23:56.000] And yet it's uh there's never been
+- [23:58.000] communication like is on this plane. Our
+- [24:00.559] pilots are incredible. You know, when
+- [24:03.520] you fly the president, not me, just the
+- [24:05.520] president, but they say there's a rumor
+- [24:08.400] that when you fly the president, you
+- [24:10.400] have to be the best pilot. So my pilot's
+- [24:13.600] very good. Where's Raise your hand
+- [24:15.600] pilots that he get?
+- [24:22.640] He took me in the other plane over what
+- [24:27.520] it was at the national collegiate game,
+- [24:29.919] the championship game. I said, "Do me a
+- [24:32.720] favor. Buzz the stadium."
+- [24:35.600] As we arrived at the stadium, people
+- [24:37.600] going crazy. I said, "Cap, I didn't mean
+- [24:41.120] you had to go that low, C." He seriously
+- [24:44.080] buzzed. He even did a little dip right
+- [24:46.320] in the middle. I said, "What the hell is
+- [24:48.159] going?" But no, we have our best best.
+- [24:51.760] That's the way it should be. Marine one,
+- [24:53.440] the helicopters and the plane. When you
+- [24:56.080] get to pilot for a president, that's
+- [24:58.799] your best. So, thank you very much.
+- [25:00.880] Great. We're going to have a lot of fun
+- [25:02.080] together.
+- [25:03.679] But our pilots, designers, and engineers
+- [25:06.080] prepared an aircraft that is the largest
+- [25:09.039] Air Force One ever built. It flies
+- [25:13.200] further and faster than any Air Force
+- [25:16.320] One. Those are the giant engines. Those
+- [25:19.039] are incredible engines.
+- [25:21.279] far. It's the fastest, flies further.
+- [25:24.640] You don't have to stop for fuel every
+- [25:27.039] few hours. You You maybe will never have
+- [25:29.760] to stop for fuel. It's got they call it
+- [25:32.320] unlimited. Well, it's pretty close to
+- [25:33.919] unlimited. And which is among the most
+- [25:36.159] beautiful aircrafts the Air Force will
+- [25:38.640] ever see or operate. You'll never have
+- [25:40.320] this opportunity again. And I want to
+- [25:42.080] thank everybody involved, including
+- [25:44.240] Tamim.
+- [25:46.000] But every man and woman here today
+- [25:47.760] should be incredibly proud of what we've
+- [25:49.840] all achieved because this is
+- [25:51.360] representative of our country. Now when
+- [25:53.039] we land at airports in London and in
+- [25:56.320] Germany and different places,
+- [25:59.360] nobody tops this one and that's the way
+- [26:01.600] we have to have it for our country.
+- [26:03.120] Nobody even comes close. So my return
+- [26:08.320] from the G7 summit was the last planned
+- [26:11.440] trip aboard the VC
+- [26:13.919] 25A. Let's see.
+- [26:16.880] 747. We'll probably do the museum thing.
+- [26:20.159] We'll get them fixed up a little bit.
+- [26:21.600] Not like this one. And we'll do museums,
+- [26:24.960] but uh they're great planes. They have
+- [26:27.919] great history. It's a plane that was
+- [26:30.720] authorized by President Ronald Reagan so
+- [26:33.279] many years ago. I think they had a 707
+- [26:36.080] before that. And it's in his museum. And
+- [26:39.840] that was flown by every president since
+- [26:42.559] George H. W. Bush
+- [26:45.679] and it was a great plane. We had very
+- [26:47.760] little trouble with it and Boeing has
+- [26:50.000] done a fantastic job. Boeing does a
+- [26:52.000] great job. They charge us too much, but
+- [26:54.080] other than that said, you got to get the
+- [26:56.880] prices down. But over its lifetime, that
+- [26:59.760] aircraft traveled to 96 countries on 223
+- [27:04.320] international trips and flew over six
+- [27:07.039] million miles. It became the most
+- [27:10.400] famous. And as you know, it's actually
+- [27:12.159] two planes because Air Force One is
+- [27:14.720] actually two planes. They're totally
+- [27:16.799] identical. The other ones I can't The
+- [27:18.720] only way I can tell is on the desk. The
+- [27:21.440] wood grain is slightly different.
+- [27:23.840] They're literally interchangeable. You
+- [27:26.320] can hardly tell. It became the most
+- [27:28.799] famous airplane the entire world. And I
+- [27:32.480] want to thank Presidential Airlift
+- [27:35.360] Group. The Presidential Airlift Group is
+- [27:37.600] unbelievable. the job they've done and
+- [27:39.840] the 89th Airlift Wing who have lovingly
+- [27:42.960] cared for that plane and we just very
+- [27:45.760] rarely had any problems which if you
+- [27:47.600] know something about airplanes you do
+- [27:49.520] have some difficulty. We really had very
+- [27:52.480] little difficulty but but age was
+- [27:54.880] finally catching up to it no matter what
+- [27:56.960] we did but along with the two men who
+- [27:59.679] have piloted it during my presidency.
+- [28:01.840] So, I'd get to introduce because that
+- [28:05.520] very important when you're up there at
+- [28:07.039] 42,000 ft going at 600 700 miles an
+- [28:10.080] hour, you want to be very, very nice and
+- [28:12.799] appreciative to your pilot.
+- [28:15.520] So, as far as I'm concerned, it's a bad
+- [28:19.360] time. You ever hear when pilots go and
+- [28:20.880] they ask for a raise in the middle of
+- [28:22.159] the flight? They always ask for a raise.
+- [28:24.640] They're working for some rich guy and
+- [28:26.320] they ask for the raise in the middle of
+- [28:27.679] the flight and he always says, "Okay."
+- [28:31.039] But Air Force Colonel Pete Donley and
+- [28:34.320] Lieutenant Colonel Tyler Sandborn.
+- [28:45.440] That's pretty good. I guess they know
+- [28:48.480] you. That's the best hand. You got a
+- [28:51.279] bigger hand than I did. That's the end
+- [28:52.720] of your job. I don't like that. I'm not
+- [28:55.360] happy about this. No, these are great
+- [28:57.600] pilots. These are great, very talented
+- [28:59.600] people.
+- [29:00.880] The Air Force One team and the entire
+- [29:03.279] Presidential Airlift Group is amazing,
+- [29:06.480] brilliant people, and they love our
+- [29:08.880] country. We are tremendously grateful
+- [29:11.520] for everything that you do each and
+- [29:13.440] every day. And all of the people that
+- [29:15.279] work here, look at the condition of of
+- [29:17.679] this and how beautiful everything is.
+- [29:19.440] It's always tippy top. It's tippy top
+- [29:22.159] and we appreciate it. So, we're going to
+- [29:24.880] have a big July 4th at the Capitol,
+- [29:28.880] flying over the Capitol. The generals
+- [29:31.279] promised to do a lot of stuff, not just
+- [29:34.159] We never seen Where are they? Tell them
+- [29:35.760] to come back. They were so good at the
+- [29:38.159] fight. It did that one. And I've never
+- [29:39.919] seen that many. And they were right. It
+- [29:42.559] looked like they were a foot away from
+- [29:43.760] each other going fast. I kept saying,
+- [29:46.080] "When are they coming back?" That was
+- [29:47.840] it. So, we'll have them do a little bit
+- [29:50.080] of maneuvers back and forth. But again,
+- [29:53.120] you are very very special people and
+- [29:55.039] we're very very lucky to have you.
+- [29:56.799] You're you're incredibly talent talented
+- [30:00.799] and brilliant in every way. And it's an
+- [30:04.159] honor to be with you. And again, uh this
+- [30:08.080] really deserved a sendoff because
+- [30:09.760] there's never been a plane like this
+- [30:11.840] ever built. And it there will never be a
+- [30:13.919] plane like this built again. And this
+- [30:15.679] has things that no other plane can ever
+- [30:17.840] have, including the ones that are being
+- [30:19.360] built, the more standard, as they call
+- [30:21.360] it, 747s. There will never be anything
+- [30:24.080] like what you're seeing behind me. So
+- [30:26.640] again, the press, you get ready. They're
+- [30:28.159] going to take you for a little tour
+- [30:29.360] quickie. I think they don't want you to
+- [30:31.279] have cameras, so we'll get you pictures,
+- [30:33.520] but you'll see something like you've
+- [30:35.200] never seen before. And you also spend a
+- [30:36.880] lot of time there as we fly to different
+- [30:39.760] uh places to put out fires and other
+- [30:42.080] things. Thank you very much. I'm a a
+- [30:44.640] great fan of everybody in this
+- [30:46.799] incredible brand new hanger. And uh God
+- [30:50.159] bless America. Thank you very much
+- [30:51.760] everybody.
