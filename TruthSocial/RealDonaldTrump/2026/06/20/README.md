@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 15
+- Posts: 16
 
+- [15:58 UTC - POLL: ICE has been abused by the Fake News Media at levels never seen before. They are Gre...](116783258942981812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116783258942981812
+  - POLL: ICE has been abused by the Fake News Media at levels never seen before. They are Great Patriots who work hard, and do a fantastic job in a very hostile environment. Much of t...
 - [14:52 UTC - POLL: Which do you prefer, Dumocrat or Dumbocrat? In one case, you simply exchange the “e”...](116782997575708953/)
   - Source: https://truthsocial.com/@realDonaldTrump/116782997575708953
   - POLL: Which do you prefer, Dumocrat or Dumbocrat? In one case, you simply exchange the “e” for “u,” so simple and precise (Many people don’t know, or assume, that DUMB ends in “b”)...
