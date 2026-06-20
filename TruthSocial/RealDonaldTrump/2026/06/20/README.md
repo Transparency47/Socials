@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 17
+- Posts: 19
 
+- [21:01 UTC - The United States Park Police have arrested multiple individuals for vandalizing our Natio...](116784450971912162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116784450971912162
+  - The United States Park Police have arrested multiple individuals for vandalizing our Nations magnificent Reflecting Poll. Who would do such a thing? These are very serious crimes h...
+- [20:14 UTC - Former Olympian is arrested for allegedly vandalizing Reflecting Pool: [https://www. daily...](116784267172845354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116784267172845354
+  - Former Olympian is arrested for allegedly vandalizing Reflecting Pool: [https://www. dailymail.com/news/article-159 16401/amp/olympian-lincoln-memorial-reflecting-pool-vandalism.ht...
 - [19:15 UTC - There will be NO TOLLS in the Hormuz Strait for 60 days during the Cease Fire Period, and ...](116784032456610294/)
   - Source: https://truthsocial.com/@realDonaldTrump/116784032456610294
   - There will be NO TOLLS in the Hormuz Strait for 60 days during the Cease Fire Period, and there will be NO TOLLS after the 60 day period has expired, unless they are imposed by and...
