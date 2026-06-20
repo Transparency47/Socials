@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 13
+- Posts: 15
 
+- [14:52 UTC - POLL: Which do you prefer, Dumocrat or Dumbocrat? In one case, you simply exchange the “e”...](116782997575708953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782997575708953
+  - POLL: Which do you prefer, Dumocrat or Dumbocrat? In one case, you simply exchange the “e” for “u,” so simple and precise (Many people don’t know, or assume, that DUMB ends in “b”)...
+- [14:12 UTC - Truth Social post 116782842221152440](116782842221152440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782842221152440
+  - _No text content captured._
 - [12:26 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Italian Prime Minister Gi...](116782426822856930/)
   - Source: https://truthsocial.com/@realDonaldTrump/116782426822856930
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Italian Prime Minister Giorgia Meloni asked, over and over, for a picture with me during the G-7 meeting in France....
