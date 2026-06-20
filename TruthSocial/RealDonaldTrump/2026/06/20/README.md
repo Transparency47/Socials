@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 16
+- Posts: 17
 
+- [19:15 UTC - There will be NO TOLLS in the Hormuz Strait for 60 days during the Cease Fire Period, and ...](116784032456610294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116784032456610294
+  - There will be NO TOLLS in the Hormuz Strait for 60 days during the Cease Fire Period, and there will be NO TOLLS after the 60 day period has expired, unless they are imposed by and...
 - [15:58 UTC - POLL: ICE has been abused by the Fake News Media at levels never seen before. They are Gre...](116783258942981812/)
   - Source: https://truthsocial.com/@realDonaldTrump/116783258942981812
   - POLL: ICE has been abused by the Fake News Media at levels never seen before. They are Great Patriots who work hard, and do a fantastic job in a very hostile environment. Much of t...
