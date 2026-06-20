@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 6
+- Posts: 13
 
+- [12:26 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Italian Prime Minister Gi...](116782426822856930/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782426822856930
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Italian Prime Minister Giorgia Meloni asked, over and over, for a picture with me during the G-7 meeting in France....
+- [12:26 UTC - While claiming to fight corruption, Newsom solicited $340M from special interests for alli...](116782425705942065/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782425705942065
+  - While claiming to fight corruption, Newsom solicited $340M from special interests for allies: [https:// justthenews.com/accountability /political-ethics/newsom-alleges-trump-corrup...
+- [12:26 UTC - Years after Pulitzer prize, New York Times gets Russia collusion story wrong once again: [...](116782424333689013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782424333689013
+  - Years after Pulitzer prize, New York Times gets Russia collusion story wrong once again: [https:// justthenews.com/accountability /media/pulitzer-prize-aside-new-york-times-keeps-g...
+- [12:25 UTC - Trump holds the cards in Netanyahu’s shaky reelection chances: [https:// justthenews.com/g...](116782422961737533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782422961737533
+  - Trump holds the cards in Netanyahu’s shaky reelection chances: [https:// justthenews.com/government/whi te-house/softer-touch-or-no-endorsement-trump-holds-back-firm-blessing-israe...
+- [12:25 UTC - Iranian resistance leader, former national security aide praise Trump’s deal with Tehran: ...](116782421610429815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782421610429815
+  - Iranian resistance leader, former national security aide praise Trump’s deal with Tehran: [https:// justthenews.com/government/sec urity/iranian-resistance-leader-former-national-s...
+- [12:25 UTC - Biden administration buried whistleblower complaint alleging Fauci lied to Congress during...](116782419844270788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782419844270788
+  - Biden administration buried whistleblower complaint alleging Fauci lied to Congress during pandemic: [https:// justthenews.com/accountability /whistleblowers/biden-administration-b...
+- [12:24 UTC - Italian Prime Minister Giorgia Meloni asked, over and over, for a picture with me during t...](116782416835973120/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116782416835973120
+  - Italian Prime Minister Giorgia Meloni asked, over and over, for a picture with me during the G-7 meeting in France. She is doing poorly in Italy with her level of popularity, possi...
 - [11:55 UTC - Funny how the Dumocrats like to say that Iran is in a stronger position today than they we...](116782304422351399/)
   - Source: https://truthsocial.com/@realDonaldTrump/116782304422351399
   - Funny how the Dumocrats like to say that Iran is in a stronger position today than they were three months ago, despite the fact that they have been defeated militarily, with no Nav...
