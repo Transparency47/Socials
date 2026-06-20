@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-20
 
-- Posts: 19
+- Posts: 21
 
+- [22:18 UTC - The United States Park Police have arrested multiple individuals for vandalizing our Natio...](116784751146148991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116784751146148991
+  - The United States Park Police have arrested multiple individuals for vandalizing our Nations magnificent Reflecting Pool. Who would do such a thing? These are very serious crimes h...
+- [21:54 UTC - Truth Social post 116784659866622954](116784659866622954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116784659866622954
+  - _No text content captured._
 - [21:01 UTC - The United States Park Police have arrested multiple individuals for vandalizing our Natio...](116784450971912162/)
   - Source: https://truthsocial.com/@realDonaldTrump/116784450971912162
   - The United States Park Police have arrested multiple individuals for vandalizing our Nations magnificent Reflecting Poll. Who would do such a thing? These are very serious crimes h...
