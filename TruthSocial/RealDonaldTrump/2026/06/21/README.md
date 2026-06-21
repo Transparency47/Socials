@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-21
 
-- Posts: 11
+- Posts: 13
 
+- [20:57 UTC - The headline in the Corrupt and Failing New York Times: “What Changed After Almost 4 Month...](116790096457517049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116790096457517049
+  - The headline in the Corrupt and Failing New York Times: “What Changed After Almost 4 Months of War? Analysts Say Not Much.” REALLY? Their Military is DONE, their Navy is GONE, thei...
+- [20:37 UTC - Work will begin immediately on fixing the seriously vandalized Reflecting Pool. I just ins...](116790016615762850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116790016615762850
+  - Work will begin immediately on fixing the seriously vandalized Reflecting Pool. I just inspected it, and could only say to myself, and those gathered around me, WOW, who would do s...
 - [20:02 UTC - Truth Social post 116789878650248678](116789878650248678/)
   - Source: https://truthsocial.com/@realDonaldTrump/116789878650248678
   - _No text content captured._
