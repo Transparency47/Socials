@@ -1,0 +1,258 @@
+<!-- source: https://www.youtube.com/watch?v=uOHRukUHMlM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: uOHRukUHMlM -->
+<!-- date_published: 2026-06-21T12:58:04+00:00 -->
+<!-- date_accessed: 2026-06-21T13:53:10.287172+00:00 -->
+
+# Transcript: Vice President JD Vance Participates in Quadrilateral Meeting with Pakistan, Qatar, and Iran
+
+- [00:32.000] created uh
+- [00:33.800] humongous challenges, but this will have
+- [00:37.400] global peace. And I must at this point
+- [00:40.520] in time,
+- [00:41.800] with the fullest sincerity at my domain,
+- [00:46.200] thank President Donald Trump for his
+- [00:49.400] visionary and very dynamic leadership,
+- [00:53.680] which has uh
+- [00:55.360] resulted in this
+- [00:57.680] meeting here today in beautiful city of
+- [01:00.600] Burgenstock.
+- [01:02.080] And I think uh here we are going to have
+- [01:04.920] wonderful discussions, which will lead
+- [01:07.280] to, hopefully, very productive results
+- [01:09.880] in times to come. I'd like to thank Vice
+- [01:12.960] President J.D. Vance for his uh very
+- [01:15.520] able leadership leading United States
+- [01:18.560] team, and my very dear brother, Prime
+- [01:22.000] Minister of Qatar, he's like a
+- [01:25.120] very
+- [01:26.040] and dear brother. And of course,
+- [01:29.080] Field Marshal Asim Munir,
+- [01:31.200] his outstanding role,
+- [01:33.360] very consistent,
+- [01:35.240] and he showed
+- [01:37.080] huge amount of perseverance
+- [01:39.400] and patience.
+- [01:41.040] And I think together, all these efforts
+- [01:44.320] have culminated here in this wonderful
+- [01:48.040] Bürgenstock,
+- [01:49.800] and it's really
+- [01:51.400] very wonderful to be here. And
+- [01:54.040] hopefully, when we go back to our homes,
+- [01:57.240] we'll have some wonderful paper in our
+- [02:00.160] hand which will both promote peace,
+- [02:03.080] progress, and prosperity around the
+- [02:05.960] globe. Thank you very much.
+- [02:07.760] >> Thank you.
+- [02:08.160] >> Vice President, would like to say a few
+- [02:09.800] words?
+- [02:10.320] >> Thank you, Prime Minister.
+- [02:11.240] >> Wonderful.
+- [02:12.080] >> Well, I'll I'll say a few just a few
+- [02:14.000] words here. And first of all, I have
+- [02:16.320] some notes of appreciation. First of
+- [02:17.760] all, I want to thank the President of
+- [02:18.760] the United States who sends his best to
+- [02:20.800] all the great leaders assembled here
+- [02:22.640] because he's empowered us to find a
+- [02:25.440] diplomatic resolution to a host of
+- [02:27.880] issues that matter to the American
+- [02:29.160] people, but I think the world. The
+- [02:30.959] opening of the Strait of Hormuz, the
+- [02:32.760] ending of the Iranian nuclear program,
+- [02:34.920] all of these things have already been
+- [02:36.480] accomplished. The question before us now
+- [02:38.120] is how much more can we accomplish
+- [02:39.680] together? Can we turn over a new leaf?
+- [02:41.600] Can we change relations in the Middle
+- [02:43.520] East permanently? Or do we go back to
+- [02:46.959] doing things the old way, which is not
+- [02:48.480] our preference, but is certainly a very
+- [02:50.520] much something that can't happen.
+- [02:52.280] I I have a few other notes of
+- [02:54.120] appreciation. First of all, the Prime
+- [02:55.400] Minister of Pakistan. A dear friend of
+- [02:57.560] the President, a dear friend of mine, a
+- [02:59.040] guy who has been with his leadership and
+- [03:01.959] his very careful and skilled negotiation
+- [03:04.200] has gotten us this to to this point. Uh
+- [03:06.560] to his Field Marshal in Pakistan, Asim
+- [03:10.200] Munir.
+- [03:11.320] I will say that since Field Marshal
+- [03:13.680] Munir welcomed us with the Prime
+- [03:15.000] Minister in Islamabad, I have joked that
+- [03:17.640] I have two very, very important people
+- [03:19.400] in my life, an Indian and a Pakistani.
+- [03:21.680] The Indian is my wife, and the Pakistani
+- [03:23.720] is Field Marshal Munir. And I've
+- [03:25.360] probably talked to Field Marshal Munir
+- [03:26.840] more than I've talked to anybody else
+- [03:28.200] over the last 3 months. Would not be
+- [03:30.200] here without his statesmanship. He is,
+- [03:32.480] of course, a great military leader, but
+- [03:33.959] I think he showed himself to be a great
+- [03:35.239] diplomat. And of course,
+- [03:38.040] who's an amazing friend of the United
+- [03:39.880] States of America, but has been also an
+- [03:42.560] important part of getting us to this
+- [03:44.040] point. I I think it's it's important for
+- [03:46.200] the American people, but people all over
+- [03:47.920] the world do appreciate
+- [03:49.600] that what's brought us to this moment is
+- [03:51.680] the President's leadership and the
+- [03:53.200] president's vision to see a Middle East
+- [03:55.200] that is much different 10 years from now
+- [03:57.240] than it was 10 years ago. And what we're
+- [03:59.520] trying to accomplish here is very
+- [04:01.320] simple. Through diplomacy, through
+- [04:04.120] working together to transform the Middle
+- [04:07.080] East where Iran and the Gulf have been
+- [04:10.360] at war with each other or at least have
+- [04:12.120] had very unfriendly relations,
+- [04:14.480] Iran has been a driver of regional
+- [04:17.160] instability. Now, we see a future where
+- [04:20.640] everybody can work together to promote
+- [04:23.080] peace and prosperity for everyone. What
+- [04:26.440] we have already seen back home in the
+- [04:28.280] United States is lower gas prices. We've
+- [04:31.360] seen the free flow of oil and gas. We've
+- [04:34.040] seen peace. And now we're trying to
+- [04:36.560] build on that to see if we can build
+- [04:38.120] something even better and more
+- [04:39.840] sustainable for the future. This is a
+- [04:42.160] historic meeting.
+- [04:44.000] Never before, outside of Islamabad and
+- [04:46.840] here, so outside of the last few months,
+- [04:49.080] never before has the Iranian and
+- [04:52.000] American leadership met at such a high
+- [04:54.160] level.
+- [04:55.160] What the president has asked us to do is
+- [04:57.520] turn over a new leaf, to transform our
+- [04:59.880] relationship with the people of Iran,
+- [05:02.080] and to extend an outstretched hand that
+- [05:04.400] says to the people of Iran that if your
+- [05:06.240] leadership is willing to give up being a
+- [05:08.800] driver of regional instability, if they
+- [05:11.240] are willing to give up nuclear weapons
+- [05:13.240] ambitions for the long term, then the
+- [05:15.200] United States is willing to
+- [05:16.520] fundamentally transform our relationship
+- [05:18.560] with that country. That is certainly our
+- [05:20.360] goal. We've already made great progress
+- [05:22.840] over just the last few hours, and I
+- [05:24.720] expect that we'll make additional
+- [05:26.040] progress in the hours to
+- [05:27.919] go.
+- [05:32.120] >> What what
+- [05:32.960] >> Sheikh Mohammed, speak, please.
+- [05:34.160] >> Um first of all, I would like to welcome
+- [05:37.240] you here, Mr. Vice President, Mr. Prime
+- [05:39.800] Minister. Your leadership and Field
+- [05:42.840] Marshal leadership actually initiating
+- [05:45.320] that process, that's what brought us
+- [05:47.080] here today. I think that everyone of you
+- [05:49.880] has
+- [05:50.960] uh
+- [05:51.600] highlighted how important is this
+- [05:53.640] meeting, how historic is that event, and
+- [05:55.880] how significant is that agreement not
+- [05:58.480] only on the security of the region, but
+- [06:01.200] also for the security of the world and
+- [06:03.760] for the global economy. What we have
+- [06:06.280] done and what we have achieved, we
+- [06:08.520] wouldn't achieve it without the
+- [06:09.880] dedication and the hard work that was
+- [06:12.440] done by you, Mr. Vice President, and Mr.
+- [06:16.280] Steve Witkoff and Jared Kushner, Prime
+- [06:18.880] Minister and Field Marshal, and
+- [06:23.240] also on the Iranian side, Dr. Ali
+- [06:26.000] Effendi Araqchi. I would like to thank
+- [06:27.760] all of you for your leadership and
+- [06:29.720] determination that put us in this room,
+- [06:31.720] and this is
+- [06:32.960] not really the main celebration. Our
+- [06:36.040] celebration when we reach the ultimate
+- [06:38.240] agreement. Hopefully, this is just the
+- [06:39.800] beginning, and I wish everyone all the
+- [06:42.440] best. Qatar will stay dedicated to this
+- [06:45.320] partnership to support these mediations
+- [06:47.880] until the end, until we reach a
+- [06:49.880] solution. We will always be a partner in
+- [06:52.160] bringing more peace, prosperity, and
+- [06:55.000] hopefully better future for our region.
+- [06:57.200] Thank you very much.
+- [06:58.240] >> Thanks, Sheikh.
+- [06:59.600] So, guys, we'll take just a couple of
+- [07:00.720] questions, and then we're going to have
+- [07:02.480] to kick out the media and get started
+- [07:04.000] with the hard work. Go ahead.
+- [07:05.919] >> Thank you.
+- [07:07.000] Do you have a message for Prime Minister
+- [07:08.680] Netanyahu with regards to Israel's
+- [07:10.440] military operations in Lebanon?
+- [07:12.400] >> Well, first of all, we've seen great
+- [07:13.360] progress over the last just couple of
+- [07:14.840] days in ensuring that the ceasefire
+- [07:16.760] holds in Lebanon. These things are
+- [07:18.600] always a little bit messy. If you go
+- [07:20.400] back to how much was happening 3 months
+- [07:22.360] ago and compare it to 3 weeks ago, great
+- [07:24.640] progress has been made. If you go back
+- [07:26.360] to 3 weeks ago to 3 days ago, additional
+- [07:29.320] progress has been made. The President
+- [07:30.720] has committed us to to see a full
+- [07:33.640] regional ceasefire. We found great
+- [07:35.880] partners in working with the Qataris,
+- [07:38.160] the Pakistanis, our friends in Israel.
+- [07:41.040] We're all working towards regional
+- [07:42.680] peace. There of course there going to be
+- [07:43.800] sometimes disagreements about precisely
+- [07:45.640] how to get there, but I actually feel
+- [07:47.240] great about where we are in Lebanon.
+- [07:48.960] There's still some additional wood to
+- [07:50.200] chop, but we're going to keep on working
+- [07:51.440] at it. Do you have any questions over
+- [07:52.760] here?
+- [07:53.600] >> I have a question to ask about genocide
+- [07:55.400] in Lebanon.
+- [07:57.320] As you know, your alignment, Israel, has
+- [08:00.880] something like genocide in Lebanon.
+- [08:03.440] The main issue is a stopping this.
+- [08:06.680] >> Well ma'am, I I think that the President
+- [08:07.960] of the United States and the United
+- [08:09.000] States of America have done more to stop
+- [08:11.600] the conflict in Lebanon than any
+- [08:13.800] government anywhere in the world over
+- [08:15.480] the last few months. So we're going to
+- [08:16.560] keep on working towards it. As I think a
+- [08:18.480] lot of you appreciate, peace is never
+- [08:20.440] easy. Peace always requires a little bit
+- [08:23.080] of work. It always requires a little bit
+- [08:24.760] of give and take, but the President of
+- [08:26.160] the United States is committed not just
+- [08:27.919] to peace between the United States and
+- [08:29.680] Iran. The President is committed to a
+- [08:31.640] regional peace, which is why we're here
+- [08:33.880] working so hard to settle our issues.
+- [08:35.880] The one last comment I want to make is
+- [08:37.960] what today really represents is the
+- [08:39.880] beginning of a technical negotiation
+- [08:42.919] that's not going to solve every
+- [08:44.320] disagreement, but it's going to allow us
+- [08:46.080] to sit together as teams for the first
+- [08:48.200] time really in history to figure out
+- [08:50.720] what matters most to the respective
+- [08:52.480] parties, to settle those issues, to
+- [08:54.440] solve those issues, and get to a better
+- [08:56.400] tomorrow. The reason why the political
+- [08:57.960] leadership of the respective countries
+- [08:59.440] is here is because we wanted to first of
+- [09:01.560] all set up the structure for these
+- [09:03.560] technical negotiations, and second of
+- [09:05.680] all make sure that our teams have our
+- [09:07.839] full support and know they can always
+- [09:09.760] call on us to break through any
+- [09:11.320] barriers. We got a lot of work to do.
+- [09:13.440] We're excited to do it. Thank you all
+- [09:15.000] for being here.
