@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-21
 
-- Posts: 3
+- Posts: 4
 
+- [11:41 UTC - Happy Father’s Day! Our Country is doing GREAT. Record Jobs Numbers and Stock Market, BEST...](116787911354917242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116787911354917242
+  - Happy Father’s Day! Our Country is doing GREAT. Record Jobs Numbers and Stock Market, BEST ECONOMY EVER! Greatest Military in the World, by far. We are WINNING on all fronts, WINNI...
 - [01:55 UTC - Great daughter. My Honor!!! President DJT](116785607752936424/)
   - Source: https://truthsocial.com/@realDonaldTrump/116785607752936424
   - Great daughter. My Honor!!! President DJT
