@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-21
 
-- Posts: 8
+- Posts: 11
 
+- [20:02 UTC - Truth Social post 116789878650248678](116789878650248678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116789878650248678
+  - _No text content captured._
+- [20:00 UTC - Truth Social post 116789873952011156](116789873952011156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116789873952011156
+  - _No text content captured._
+- [19:39 UTC - After spending Trillions of Dollars on NATO, Italy, and its Prime Minister, wouldn’t even ...](116789789595899412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116789789595899412
+  - After spending Trillions of Dollars on NATO, Italy, and its Prime Minister, wouldn’t even think of becoming involved with the Islamic Republic of Iran and their very serious Nuclea...
 - [13:59 UTC - Keir Starmer will resign as Prime Minister of The United Kingdom. He failed badly on two v...](116788451975276121/)
   - Source: https://truthsocial.com/@realDonaldTrump/116788451975276121
   - Keir Starmer will resign as Prime Minister of The United Kingdom. He failed badly on two very important subjects- IMMIGRATION AND ENERGY (OPEN NORTH SEA OIL!). I wish him well! Pre...
