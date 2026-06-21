@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-21
 
-- Posts: 7
+- Posts: 8
 
+- [13:59 UTC - Keir Starmer will resign as Prime Minister of The United Kingdom. He failed badly on two v...](116788451975276121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116788451975276121
+  - Keir Starmer will resign as Prime Minister of The United Kingdom. He failed badly on two very important subjects- IMMIGRATION AND ENERGY (OPEN NORTH SEA OIL!). I wish him well! Pre...
 - [13:30 UTC - Iran must immediately stop their highly paid PROXIES in Lebanon from causing trouble. If t...](116788337995785578/)
   - Source: https://truthsocial.com/@realDonaldTrump/116788337995785578
   - Iran must immediately stop their highly paid PROXIES in Lebanon from causing trouble. If they don’t, we’ll hit Iran very hard again, just like we did last week, only harder!!! Pres...
