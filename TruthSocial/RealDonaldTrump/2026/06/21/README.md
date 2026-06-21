@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-21
 
-- Posts: 13
+- Posts: 14
 
+- [22:28 UTC - The way the Corrupt and Failing New York Times is covering stories on a very battered and ...](116790453299036730/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116790453299036730
+  - The way the Corrupt and Failing New York Times is covering stories on a very battered and beat up Iran, through FAKE & MADE UP “FACTS” is, in my opinion, “TREASONOUS.” I will be ad...
 - [20:57 UTC - The headline in the Corrupt and Failing New York Times: “What Changed After Almost 4 Month...](116790096457517049/)
   - Source: https://truthsocial.com/@realDonaldTrump/116790096457517049
   - The headline in the Corrupt and Failing New York Times: “What Changed After Almost 4 Months of War? Analysts Say Not Much.” REALLY? Their Military is DONE, their Navy is GONE, thei...
