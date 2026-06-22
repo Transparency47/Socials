@@ -1,0 +1,14 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116794880201730909 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116794880201730909 -->
+<!-- date_published: 2026-06-22T17:14:00.614000+00:00 -->
+<!-- date_accessed: 2026-06-22T19:46:23.399218+00:00 -->
+
+# Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job repr...
+
+Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job representing New York’s 23rd Congressional District!
+Nick served as the powerful Chairman of the New York Republican State Committee, prior to becoming a very distinguished and respected U.S. Congressman. A MAGA Warrior, who has been with us from the very beginning, Nick is working hard to Grow our Economy, Cut Taxes and Regulations, Promote MADE IN THE U.S.A., Advance American Energy DOMINANCE, Keep our Border SECURE, Support our Brave Military/Veterans, and Defend our always under siege Second Amendment.
+Nick Langworthy has my Complete and Total Endorsement for Re-Election — HE WILL NEVER LET YOU DOWN!
+Find your Voting Location here:
+[https:// swampthevoteusa.com/new-york/](https://swampthevoteusa.com/new-york/)

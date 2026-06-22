@@ -1,7 +1,76 @@
 # TruthSocial / RealDonaldTrump / 2026-06-22
 
-- Posts: 3
+- Posts: 26
 
+- [19:21 UTC - Congratulations to “El Tigre” (THE TIGER!) Abelardo de la Espriella, the new President of ...](116795382583929582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795382583929582
+  - Congratulations to “El Tigre” (THE TIGER!) Abelardo de la Espriella, the new President of Colombia! It was my Great Honor to endorse him, and I look forward to working together to...
+- [19:16 UTC - It is my Great Honor to endorse America First Patriot, Anthony Constantino, who is running...](116795360506087876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795360506087876
+  - It is my Great Honor to endorse America First Patriot, Anthony Constantino, who is running to represent the wonderful people of New York’s 21st Congressional District. The Republic...
+- [19:15 UTC - It is my Great Honor to endorse America First Congressman, John James, who is running to b...](116795357855328809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795357855328809
+  - It is my Great Honor to endorse America First Congressman, John James, who is running to become the next Governor of the Beautiful State of Michigan! A West Point Graduate, Combat...
+- [19:09 UTC - It is my Great Honor to endorse America First Patriot, “Captain” Mike Bouchard, who is run...](116795335297956967/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795335297956967
+  - It is my Great Honor to endorse America First Patriot, “Captain” Mike Bouchard, who is running to represent the wonderful people of Michigan’s 10th Congressional District! A Third...
+- [19:07 UTC - It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic peo...](116795325176339371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795325176339371
+  - It is my Great Honor to endorse Amir Hassan, who is running to represent the fantastic people of Michigan’s 8th Congressional District! From bravely fighting for our incredible U.S...
+- [18:52 UTC - Congressman Andy Harris is a Great Champion for Maryland’s 1st Congressional District! As ...](116795268678109473/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795268678109473
+  - Congressman Andy Harris is a Great Champion for Maryland’s 1st Congressional District! As the Highly Respected Chairman of the House Freedom Caucus, Andy is doing a fantastic job a...
+- [18:50 UTC - It is my Great Honor to endorse America First Patriot, Tom Sell, who is running to represe...](116795259766011755/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795259766011755
+  - It is my Great Honor to endorse America First Patriot, Tom Sell, who is running to represent the fantastic people of Texas’ 19th Congressional District. A Fifth Generation West Tex...
+- [18:45 UTC - It is my Great Honor to endorse America First Patriot, Jerry Carl, who is running to repre...](116795239595013935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795239595013935
+  - It is my Great Honor to endorse America First Patriot, Jerry Carl, who is running to represent the wonderful people of Alabama’s 1st Congressional District! A Highly Respected Legi...
+- [18:45 UTC - It is my Great Honor to endorse America First Patriot, Rhett Marques, who is running to re...](116795238055514720/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795238055514720
+  - It is my Great Honor to endorse America First Patriot, Rhett Marques, who is running to represent the wonderful people of Alabama’s 2nd Congressional District. Rhett is strongly su...
+- [18:14 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Everybody is fully aware ...](116795118341648617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795118341648617
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Everybody is fully aware that Iran will agree to have Major Weapons Inspections in order to ensure “Nuclear Honesty...
+- [18:14 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Of the MANY Statues and F...](116795118149261319/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795118149261319
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Of the MANY Statues and Fountains that we rebuilt, renovated, cleaned, and fixed, the only one that was Vandalized...
+- [17:16 UTC - It is my Great Honor to endorse Congressman Mike Kennedy, M.D., to represent the wonderful...](116794888797757311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794888797757311
+  - It is my Great Honor to endorse Congressman Mike Kennedy, M.D., to represent the wonderful people of Utah’s 4th Congressional District! A Proven Leader, Mike has served his Communi...
+- [17:15 UTC - It is my Great Honor to endorse Congresswoman Celeste Maloy to represent the tremendous pe...](116794887661719912/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794887661719912
+  - It is my Great Honor to endorse Congresswoman Celeste Maloy to represent the tremendous people of Utah’s 3rd Congressional District! Celeste has a strong Record of Success, and res...
+- [17:15 UTC - It is my Great Honor to endorse Congressman Blake Moore to represent the fantastic people ...](116794886373734252/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794886373734252
+  - It is my Great Honor to endorse Congressman Blake Moore to represent the fantastic people of Utah’s 2nd Congressional District! As the Vice Chairman of the House Republican Confere...
+- [17:15 UTC - Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in...](116794885116775237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794885116775237
+  - Highly Respected MAGA Warrior, Cody Simpson, is running for Commissioner of Agriculture in the wonderful State of South Carolina, which I won in 2016, 2020, and 2024, with the High...
+- [17:14 UTC - I love the Wonderful State of South Carolina for every reason in the book, including the f...](116794883968681896/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794883968681896
+  - I love the Wonderful State of South Carolina for every reason in the book, including the fact that it is “loaded up” with truly GREAT people and Political Leaders. There are two Hi...
+- [17:14 UTC - Congresswoman Claudia Tenney is a Fantastic Advocate for the wonderful people of New York’...](116794882810036308/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794882810036308
+  - Congresswoman Claudia Tenney is a Fantastic Advocate for the wonderful people of New York’s 24th Congressional District! As the Chairwoman of the House Election Integrity Caucus, C...
+- [17:14 UTC - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job repr...](116794880201730909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794880201730909
+  - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job representing New York’s 23rd Congressional District! Nick served as the powerful Chairman of t...
+- [17:13 UTC - It is my Great Honor to endorse Peter Oberacker, an incredible Candidate who is running to...](116794878683037090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794878683037090
+  - It is my Great Honor to endorse Peter Oberacker, an incredible Candidate who is running to represent the fantastic people of New York’s 19th Congressional District. He is running a...
+- [17:13 UTC - Congressman Mike Lawler is a Strong Champion, and Highly Effective Representative, for the...](116794876797632455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794876797632455
+  - Congressman Mike Lawler is a Strong Champion, and Highly Effective Representative, for the Great People of New York’s 17th Congressional District! A true America First Patriot, Mik...
+- [17:12 UTC - Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressiona...](116794874431459937/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794874431459937
+  - Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressional District! As a Member of the POWERFUL Ways & Means Committee, Nicole knows the America F...
+- [17:11 UTC - Highly Respected and very popular Nassau County Executive, Bruce Blakeman, is running to b...](116794870476217923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794870476217923
+  - Highly Respected and very popular Nassau County Executive, Bruce Blakeman, is running to be the next Governor of New York. Bruce is MAGA all the way, and has been with me from the...
+- [16:58 UTC - Everybody is fully aware that Iran will agree to have Major Weapons Inspections in order t...](116794817775547048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116794817775547048
+  - Everybody is fully aware that Iran will agree to have Major Weapons Inspections in order to ensure “Nuclear Honesty” long into the future. President DONALD J. TRUMP
 - [13:28 UTC - Of the MANY Statues and Fountains that we rebuilt, renovated, cleaned, and fixed, the only...](116793994014541387/)
   - Source: https://truthsocial.com/@realDonaldTrump/116793994014541387
   - Of the MANY Statues and Fountains that we rebuilt, renovated, cleaned, and fixed, the only one that was Vandalized was the Reflecting Pool, which is being taken care of, ASAP! It h...

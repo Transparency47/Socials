@@ -1,0 +1,14 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116794874431459937 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116794874431459937 -->
+<!-- date_published: 2026-06-22T17:12:32.566000+00:00 -->
+<!-- date_accessed: 2026-06-22T19:46:23.816131+00:00 -->
+
+# Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressiona...
+
+Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressional District!
+As a Member of the POWERFUL Ways & Means Committee, Nicole knows the America First Policies required to Create GREAT Jobs, Cut Taxes and Regulations, and Champion our Nation’s Golden Age. She is working hard to Advance American Energy DOMINANCE, Promote MADE IN THE U.S.A., Keep our Border SECURE, Strengthen our Brave Military/Veterans, Champion the Incredible NYPD and NYFD, and Protect our always under siege Second Amendment.
+Nicole Malliotakis has my Complete and Total Endorsement for Re-Election — SHE WILL NEVER LET YOU DOWN!
+Find your Voting Location here:
+[https:// swampthevoteusa.com/new-york/](https://swampthevoteusa.com/new-york/)

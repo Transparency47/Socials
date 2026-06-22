@@ -1,0 +1,299 @@
+<!-- source: https://www.youtube.com/watch?v=GTUAIZn-ASc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: GTUAIZn-ASc -->
+<!-- date_published: 2026-06-22T16:55:04+00:00 -->
+<!-- date_accessed: 2026-06-22T19:46:47.044281+00:00 -->
+
+# Transcript: The Story of America: The Battle of Brooklyn
+
+- [00:06.550] [music]
+- [00:36.680] [music]
+- [00:38.480] >> There is no year in American history
+- [00:41.200] more [music] fabled than 1776.
+- [00:45.520] But what happened in the second half of
+- [00:47.080] that year is probably the most dramatic
+- [00:49.640] roller coaster of historical events of
+- [00:52.080] the whole revolution.
+- [00:55.675] >> [music]
+- [00:55.800] >> It's almost impossible to exaggerate the
+- [00:57.880] depths to which the fate of Washington
+- [01:00.800] and the Continental Army sank that
+- [01:02.880] August.
+- [01:04.199] Or to overstate the triumphant reversal
+- [01:07.480] that followed the crossing of the
+- [01:08.680] Delaware and the stunning victory at
+- [01:11.280] Trenton.
+- [01:12.640] But first, we need to know what led up
+- [01:14.680] to these events.
+- [01:16.400] Of course, the war broke out at
+- [01:17.800] Lexington and Concord in April of 1775,
+- [01:21.000] and 2 months later came the Battle of
+- [01:23.280] Bunker Hill in Boston.
+- [01:25.960] The British technically won that battle,
+- [01:28.840] but the terrible price they paid in
+- [01:30.480] blood and lives was one they never would
+- [01:34.320] forget.
+- [01:35.760] And it was their memory of this that
+- [01:37.120] accounts for much that followed and that
+- [01:39.760] would cause them to hesitate when they
+- [01:41.640] ought to have pushed forward with
+- [01:43.560] everything they had, as we shall see.
+- [01:46.800] In March of 1776, Washington and his
+- [01:49.920] Continental Army finally chased the
+- [01:51.800] British out of Boston,
+- [01:53.316] >> [music]
+- [01:53.520] >> but Washington knew they would regroup
+- [01:55.640] and eventually come to New York. And
+- [01:58.080] that's exactly what they did.
+- [02:00.480] But Washington got there many months
+- [02:02.480] before to create the defenses, the
+- [02:05.080] fortifications and batteries and
+- [02:06.760] breastworks that would be necessary
+- [02:09.399] whenever the British did show up.
+- [02:12.760] But there was one major problem.
+- [02:15.280] New York was a city surrounded by water.
+- [02:19.280] It still is.
+- [02:20.760] By its vast harbor [music] and by the
+- [02:22.959] East River and by the Hudson River and
+- [02:24.880] Long Island Sound and the British
+- [02:26.740] [music]
+- [02:27.680] had the greatest navy in the world.
+- [02:32.560] Giving them an insurmountable
+- [02:34.800] advantage.
+- [02:40.800] The British ships finally appeared over
+- [02:42.959] the Atlantic horizon at the end of June.
+- [02:45.959] And there seemed to be no end to them.
+- [02:49.760] Their sheer numbers were astonishing.
+- [02:53.080] Meant to strike fear into the hearts of
+- [02:55.520] the Americans. Which they did.
+- [02:58.560] The British knew they could take no
+- [03:00.680] chances and must so overwhelm the
+- [03:03.720] Americans with the number and force of
+- [03:05.959] their warships and troops that the
+- [03:08.120] Americans would quickly see
+- [03:09.952] >> [music]
+- [03:10.160] >> they couldn't win.
+- [03:11.920] And would wisely agree to peace terms as
+- [03:14.920] soon as possible.
+- [03:16.880] Then it could all be treated as a family
+- [03:18.480] quarrel and the bitter rift between the
+- [03:20.760] mother country and her disobedient
+- [03:22.680] children
+- [03:23.840] could soon be healed.
+- [03:25.880] This at any rate was the idea of General
+- [03:27.959] William Howe and his brother Admiral
+- [03:30.400] Richard Howe who'd been deputized by
+- [03:32.800] King George not only to win the war but
+- [03:35.840] to bring about peace as soon as
+- [03:38.480] possible.
+- [03:39.920] Suddenly it was not a disagreement
+- [03:41.360] between King George's British subjects
+- [03:44.080] but between two independent nations.
+- [03:49.160] But the Howes still believed they could
+- [03:50.519] convince the Americans to [music] give
+- [03:52.200] up their silly idea of independence.
+- [03:56.600] And so their ships kept coming over the
+- [03:58.920] horizon, anchoring in outer New York
+- [04:01.520] Harbor off Sandy Hook and Staten Island
+- [04:04.080] until by the end of August there were
+- [04:06.320] 400 of them.
+- [04:09.160] And the number of troops was 32,000,
+- [04:12.760] far more than the roughly [music] 20,000
+- [04:15.160] that Washington had.
+- [04:17.200] There were even 8,000 mercenary troops
+- [04:19.720] from Germany known as Hessians.
+- [04:23.960] Washington knew the British would
+- [04:26.000] eventually make their move.
+- [04:28.280] But he had no idea where they would
+- [04:31.520] strike.
+- [04:32.840] Would it be on Long Island and Brooklyn?
+- [04:35.680] Or would they strike at the southern end
+- [04:37.280] of Manhattan where the city of New York
+- [04:38.880] itself was located?
+- [04:41.320] Since he had no idea, he hedged his bets
+- [04:44.040] by doing what everyone said you should
+- [04:45.760] never do,
+- [04:47.840] and he split his army between the two
+- [04:50.800] places.
+- [04:58.440] As it happened, the British struck first
+- [05:00.440] on Long Island in southern Brooklyn.
+- [05:03.000] Washington thought this might just be a
+- [05:05.000] faint to lure his troops there while
+- [05:07.840] most of Howe's forces would then attack
+- [05:10.160] Manhattan.
+- [05:12.400] But Washington was quite mistaken.
+- [05:15.040] General Howe landed 22,000
+- [05:18.120] troops on Long Island.
+- [05:20.720] In planning their defense, Washington
+- [05:22.600] and his generals decided to defend
+- [05:24.160] Brooklyn from what was called the Guan
+- [05:26.560] Heights, a ridgeline of several miles
+- [05:29.160] running east to west.
+- [05:31.680] There were four passes through the Guan
+- [05:34.440] Heights.
+- [05:36.440] The Americans posted troops defending
+- [05:38.800] three of them.
+- [05:40.720] But the fourth pass, called the Jamaica
+- [05:42.440] Pass, which was many miles to the east,
+- [05:44.919] they left to the patrol of five men on
+- [05:48.920] horseback.
+- [05:50.160] It was precisely there
+- [05:52.280] that General Howe chose to strike.
+- [05:54.359] [music]
+- [05:55.760] Howe and his men then did exactly what
+- [05:58.120] they'd hoped to do, marching westward
+- [06:00.480] undetected until they were behind
+- [06:03.840] Washington's [music]
+- [06:04.880] troops.
+- [06:06.520] The Americans suddenly found themselves
+- [06:08.520] fighting one British force in front and
+- [06:11.160] this larger British force
+- [06:13.320] from behind.
+- [06:15.680] Because the Americans' backs were
+- [06:17.000] against the East River, there was no
+- [06:18.840] possibility of escaping. But for some
+- [06:21.360] reason, Howe ordered his generals
+- [06:24.800] to stop.
+- [06:26.520] But why?
+- [06:28.200] If they'd only kept going, they would
+- [06:29.960] have defeated the largest part of
+- [06:32.520] Washington's army that day and would
+- [06:35.280] have been able to end the rebellion, the
+- [06:38.320] entire [music] rebellion, once and for
+- [06:40.800] all.
+- [06:42.640] There was no need to throw the best of
+- [06:44.680] his British troops into a second buzzsaw
+- [06:47.160] of destruction and death as at Bunker
+- [06:49.720] Hill.
+- [06:50.760] No, the British would tighten the noose
+- [06:52.720] bit by bit until Washington realized it
+- [06:56.120] was over
+- [06:57.720] and surrendered.
+- [06:59.919] The results would be the same and
+- [07:01.440] dramatically fewer British lives would
+- [07:03.520] be lost.
+- [07:05.280] And the next morning, a nor'easter blew
+- [07:07.480] in with torrential rains.
+- [07:11.000] The storm's powerful winds made it
+- [07:13.280] impossible for the British ships to sail
+- [07:16.120] up the East River to completely trap the
+- [07:18.720] Americans as they had expected to do.
+- [07:21.919] But the winds also made it impossible
+- [07:24.200] for the Americans to get across the East
+- [07:25.960] River if they had wished to do so.
+- [07:29.080] But they didn't.
+- [07:30.440] They chose to stay where they were
+- [07:33.320] and to continue to fight.
+- [07:37.480] In fact, Washington summoned another
+- [07:39.640] thousand troops from Manhattan to join
+- [07:42.120] him in the fighting in Brooklyn. Among
+- [07:44.280] them a was General Thomas Mifflin, who
+- [07:47.560] once he'd come over to Brooklyn decided
+- [07:49.240] to inspect the perimeter of the American
+- [07:51.560] encampment.
+- [07:52.960] When he did so, he observed that the
+- [07:55.280] British [music] siege works had advanced
+- [07:57.600] considerably.
+- [07:59.120] They were only 600 yards away.
+- [08:02.920] Washington sent an express rider to
+- [08:05.000] order his officers to seize every single
+- [08:07.640] boat available up the East River [music]
+- [08:10.240] toward the Long Island Sound and up the
+- [08:12.000] Harlem River toward the Hudson and to
+- [08:14.480] bring them to the ferry landing in
+- [08:16.640] Brooklyn with the utmost urgency.
+- [08:20.600] But no one must know
+- [08:23.400] about the retreat. The troops would be
+- [08:25.760] told to prepare for a night attack.
+- [08:28.285] [music] They were told nothing of the
+- [08:30.080] retreat.
+- [08:31.560] Because if the British caught wind of
+- [08:34.200] what was actually happening somehow,
+- [08:37.000] they would strike immediately with
+- [08:39.039] everything they had
+- [08:40.919] and it would all be over.
+- [08:43.599] So that night of August 29th, as soon as
+- [08:46.280] it was dark enough, the American
+- [08:48.120] officers began moving their regiments
+- [08:50.640] one by one toward the ferry landing.
+- [08:55.160] It would take many hours to move 9,000
+- [08:58.600] men
+- [08:59.680] across a mile-wide churning body of
+- [09:02.560] water in the dark.
+- [09:05.960] But the northeastern wind that had been
+- [09:07.880] blowing for 2 days was still blowing and
+- [09:10.120] it was impossible to cross. [music]
+- [09:12.960] 2 hours later, as if on cue,
+- [09:15.920] the wind changed.
+- [09:18.440] And at 11:00 p.m. on the night of the
+- [09:20.880] 29th,
+- [09:22.200] the retreat began.
+- [09:24.480] And in perfect darkness and silence, the
+- [09:27.400] troops got [music] into the boats and
+- [09:29.120] were rowed across the channel.
+- [09:33.520] The Massachusetts Marblehead regiment of
+- [09:36.040] Captain Glover, most of whom were
+- [09:38.040] professional fishermen and sailors, were
+- [09:40.280] indispensable in this. In fact, without
+- [09:42.520] them, it would have been [music]
+- [09:43.800] perfectly impossible.
+- [09:46.040] But as dawn was approaching,
+- [09:47.920] Washington saw
+- [09:49.680] that everything was moving far too
+- [09:51.680] slowly for them to succeed.
+- [09:54.920] Many regiments had not even left their
+- [09:56.920] lines yet to begin the march to the
+- [09:59.720] ferry.
+- [10:01.160] And once the sun began to rise, the
+- [10:04.080] British would see what they had been
+- [10:06.000] blind to all night and would instantly
+- [10:09.400] send in their troops.
+- [10:12.440] Even worse, they would finally send
+- [10:13.800] their ships up the East River now that
+- [10:15.960] the winds [music] were again favorable.
+- [10:17.640] They would attack the Americans like
+- [10:19.880] sitting ducks.
+- [10:21.720] But before sunrise, just as the light
+- [10:23.580] [music] of dawn began to make things
+- [10:25.760] visible, something extraordinary
+- [10:28.560] happened.
+- [10:30.320] A strange fog settled over the British
+- [10:34.040] and American lines. [music]
+- [10:35.760] It was so thick that it was absolutely
+- [10:38.080] opaque.
+- [10:39.760] Benjamin Tallmadge, a 22-year-old from
+- [10:42.400] Connecticut, remembered it. I could
+- [10:44.400] scarcely discern a man at six [music]
+- [10:46.680] yards distance.
+- [10:49.000] The fog so veiled everything that even
+- [10:51.839] now that the sun rose, the actions of
+- [10:53.800] the Americans continued to be perfectly
+- [10:57.000] hidden from the British.
+- [10:59.360] When all of them had finally arrived
+- [11:02.080] safely in Manhattan,
+- [11:04.400] the fog lifted.
+- [11:06.120] The moment that it did, the British, of
+- [11:08.000] course, saw everything and were
+- [11:10.160] astonished. The army they knew to be
+- [11:13.480] inescapably trapped had escaped after
+- [11:17.200] all.
+- [11:19.120] The British hustled to the ferry landing
+- [11:21.080] and fired their musketry and cannon
+- [11:22.960] across the East River.
+- [11:25.120] But it was all in vain.
+- [11:27.600] The Americans had succeeded in pulling
+- [11:29.800] off a spectacular retreat, one that no
+- [11:33.400] one on the British side had even
+- [11:35.800] imagined. And because of their success
+- [11:38.120] in doing so, Washington's army was
+- [11:40.880] intact, and the war that should have
+- [11:43.760] been over was not over.
+- [11:47.080] And the noble cause of independence and
+- [11:49.640] liberty was still alive, so that somehow
+- [11:54.280] George Washington [music] and the
+- [11:55.560] Continental Army would continue to
+- [11:58.280] fight.
+- [12:15.573] >> [music]
+- [12:26.708] [music]
+- [12:37.188] [music]
