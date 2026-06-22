@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=HNipoXNANAs: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=HNipoXNANAs! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=HNipoXNANAs&ei=Sa45atmBIKeLkucPmvrDoQw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782190265&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=DAE8071B7C818CAF26AAAF3A97DD74BA2ED27047.22FD00F324F95BDE944D667D5380093C30382FBE&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=HNipoXNANAs: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=HNipoXNANAs! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=HNipoXNANAs&ei=B8I5aqODLOSLsfIPgf__qAw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782195319&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=725AB3BB2C8DDC571A89C84BDABD46A8352627B7.67BB654090F65F14CC8EBB5AA4ACFE7A7DD2D220&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -117593,6 +117593,50 @@
       "published": "2026-06-22T21:50:35.985000+00:00",
       "title": "Truth Social post 116795967794104702",
       "url": "https://truthsocial.com/@realDonaldTrump/116795967794104702"
+    },
+    "truthsocial:realdonaldtrump:116795968663783077": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T23:14:56.761337+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116795968663783077",
+      "platform": "truthsocial",
+      "post_id": "116795968663783077",
+      "published": "2026-06-22T21:50:49.256000+00:00",
+      "title": "Truth Social post 116795968663783077",
+      "url": "https://truthsocial.com/@realDonaldTrump/116795968663783077"
+    },
+    "truthsocial:realdonaldtrump:116796021113054934": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T23:14:56.761090+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116796021113054934",
+      "platform": "truthsocial",
+      "post_id": "116796021113054934",
+      "published": "2026-06-22T22:04:09.504000+00:00",
+      "title": "Here is another example of a crazy pro-algae (likely paid) protestor. The sign says, \u201cFirs...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796021113054934"
+    },
+    "truthsocial:realdonaldtrump:116796204866042899": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T23:14:56.760681+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116796204866042899",
+      "platform": "truthsocial",
+      "post_id": "116796204866042899",
+      "published": "2026-06-22T22:50:53.387000+00:00",
+      "title": "It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent th...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796204866042899"
+    },
+    "truthsocial:realdonaldtrump:116796211476024344": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T23:14:56.759664+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116796211476024344",
+      "platform": "truthsocial",
+      "post_id": "116796211476024344",
+      "published": "2026-06-22T22:52:34.277000+00:00",
+      "title": "Just like James Talarico reminds me of Alfred E. Neuman, Jon Osoff reminds me of Pee-wee H...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796211476024344"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

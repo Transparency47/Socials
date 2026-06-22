@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-22
 
-- Posts: 33
+- Posts: 37
 
+- [22:52 UTC - Just like James Talarico reminds me of Alfred E. Neuman, Jon Osoff reminds me of Pee-wee H...](116796211476024344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116796211476024344
+  - Just like James Talarico reminds me of Alfred E. Neuman, Jon Osoff reminds me of Pee-wee Herman!
+- [22:50 UTC - It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent th...](116796204866042899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116796204866042899
+  - It is my Great Honor to endorse MAGA Warrior, Mike LiPetri, who is running to represent the fantastic people of New York’s 3rd Congressional District against a Congressman who has...
+- [22:04 UTC - Here is another example of a crazy pro-algae (likely paid) protestor. The sign says, “Firs...](116796021113054934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116796021113054934
+  - Here is another example of a crazy pro-algae (likely paid) protestor. The sign says, “First they came for the algae…” which is in reference to a famous post-WW2 statement about Ger...
+- [21:50 UTC - Truth Social post 116795968663783077](116795968663783077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795968663783077
+  - _No text content captured._
 - [21:50 UTC - Truth Social post 116795967794104702](116795967794104702/)
   - Source: https://truthsocial.com/@realDonaldTrump/116795967794104702
   - _No text content captured._
