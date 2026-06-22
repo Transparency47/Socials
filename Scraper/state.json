@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=UoeGvzK-zOw: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=UoeGvzK-zOw! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=UoeGvzK-zOw&ei=KoA4aqj5BpWhlu8PzLPDoQ0&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782112922&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=F04ACF191493CEF8E9C40BD6CFDEF99B3D251F83.92417B2659731879458443D7D6D0B84A76D5BC50&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9617,6 +9617,17 @@
       "published": "2026-06-21T17:19:56+00:00",
       "title": "Happy Father\u2019s Day to all the incredible fathers and grandfathers, including POTUS & VP \ud83d\udc99",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7653899611328744717"
+    },
+    "tiktok:whitehouse:7654026873873173774": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T05:40:06.240753+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/22/7654026873873173774",
+      "platform": "tiktok",
+      "post_id": "7654026873873173774",
+      "published": "2026-06-22T01:33:37+00:00",
+      "title": "\ud83d\ude24\ud83d\ude24\ud83d\ude24",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7654026873873173774"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -117186,6 +117197,28 @@
       "published": "2026-06-21T22:28:11.398000+00:00",
       "title": "The way the Corrupt and Failing New York Times is covering stories on a very battered and ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116790453299036730"
+    },
+    "truthsocial:realdonaldtrump:116790956768105397": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T05:39:51.444048+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116790956768105397",
+      "platform": "truthsocial",
+      "post_id": "116790956768105397",
+      "published": "2026-06-22T00:36:13.799000+00:00",
+      "title": "The Failing New York Times is CORRUPT!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116790956768105397"
+    },
+    "truthsocial:realdonaldtrump:116791057884875243": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-22T05:39:51.443661+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/22/116791057884875243",
+      "platform": "truthsocial",
+      "post_id": "116791057884875243",
+      "published": "2026-06-22T01:01:56.688000+00:00",
+      "title": "He Won, BIG! [https:// justthenews.com/world/latin-am erica/trump-backed-candidate-colombi...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116791057884875243"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
