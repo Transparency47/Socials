@@ -1,0 +1,350 @@
+<!-- source: https://www.youtube.com/watch?v=342SNEZp01M -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 342SNEZp01M -->
+<!-- date_published: 2026-06-22T11:18:12+00:00 -->
+<!-- date_accessed: 2026-06-22T16:10:11.057376+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks in Lucerne, Switzerland
+
+- [00:01.240] Well, hello everybody, and good morning
+- [00:02.760] to everybody back in the United States.
+- [00:04.520] I guess good afternoon to the the folks
+- [00:06.480] assembled. So, look, yesterday was a
+- [00:08.800] very very good day. We made a lot of
+- [00:11.040] good progress. We did exactly what we
+- [00:13.040] wanted to do, which is accomplish four
+- [00:15.680] things for the American people. First,
+- [00:18.400] we wanted to build a mechanism for
+- [00:21.000] keeping the Strait of Hormuz open. It is
+- [00:23.320] open. We've seen, of course, gas prices
+- [00:25.360] and oil prices come down. Millions and
+- [00:27.720] millions of barrels of crude and natural
+- [00:29.920] gas flowing through the through the
+- [00:31.080] Strait of Hormuz that weren't flow
+- [00:32.560] flowing before. But, we also wanted to
+- [00:34.680] make sure that we actually set up the
+- [00:36.160] coordination mechanism so that we could
+- [00:38.520] de-mine the Straits of Hormuz so that
+- [00:40.280] when there are the conflicts that
+- [00:41.760] inevitably come up, we can make sure we
+- [00:43.480] work through them rather than that
+- [00:45.520] leading to escalation, and that is
+- [00:47.280] exactly what we did yesterday.
+- [00:49.320] Number two, we also wanted to build a
+- [00:51.400] mechanism, a similar mechanism, for
+- [00:53.360] de-confliction for the regional
+- [00:55.080] ceasefire. As the President of the
+- [00:57.080] United States has himself said,
+- [00:58.560] sometimes these ceasefires just mean
+- [01:00.640] you're shooting a little bit less, but
+- [01:02.160] we wanted to make sure that we had the
+- [01:03.440] proper coordination set up so that if
+- [01:05.760] there is shooting, if Hezbollah fires at
+- [01:08.400] Israel, or if Israel responds, if there
+- [01:10.880] are other conflicts that arise in the
+- [01:12.560] region, we're actually talking to each
+- [01:14.800] other and figuring out how to stop the
+- [01:17.040] shooting, how to make the region safer,
+- [01:19.880] our allies and everybody else. We set
+- [01:22.400] that up as a well.
+- [01:23.680] Number three,
+- [01:24.920] we, and this is probably what we're most
+- [01:26.640] excited about as Americans, the Iranians
+- [01:29.080] have agreed to invite IAEA inspectors
+- [01:31.880] back into their country. That is a major
+- [01:34.160] milestone for the American people and
+- [01:35.880] the first step in permanently
+- [01:38.840] de-nuclearizing or or permanently ending
+- [01:42.240] a nuclear weapons program in Iran. And
+- [01:45.080] that's exactly what we wanted to do.
+- [01:46.560] That's exactly what we asked to happen.
+- [01:48.120] We made a lot of great progress on other
+- [01:50.320] nuclear talks, and that leads me to the
+- [01:52.880] final thing that we wanted to
+- [01:53.840] accomplish, which is actually set up the
+- [01:55.760] process for the technical negotiations
+- [01:58.600] that will follow. Our teams with the
+- [02:00.800] working with the Iranians, the Qataris,
+- [02:02.280] and the Pakistanis made great progress
+- [02:04.280] yesterday. They will continue to work at
+- [02:06.440] the technical level with the teams here
+- [02:09.320] in Burgenstock. And then those technical
+- [02:11.240] negotiations are going to continue over
+- [02:13.600] the weeks and days to come. We wanted to
+- [02:15.920] set up a structure for that so that you
+- [02:17.240] could have proper political oversight,
+- [02:18.959] but obviously, as much as this place is
+- [02:21.400] very beautiful, I can't stay here for
+- [02:23.200] the next 60 days. I'm about to go back
+- [02:24.760] home to the United States, but the
+- [02:26.320] technical teams are going to be working
+- [02:27.880] with proper oversight to make sure that
+- [02:29.480] we're accomplishing the objectives that
+- [02:30.800] matter for everybody. So, those are the
+- [02:32.760] things that we wanted to accomplish. We
+- [02:34.480] came here, we did exactly that. The way
+- [02:36.680] that I think about it is very simple. We
+- [02:38.959] laid a very good foundation for a
+- [02:41.000] successful final deal. The final deal is
+- [02:44.400] the house. We we set the foundation. We
+- [02:46.520] haven't built the house, but we've laid
+- [02:48.560] a successful foundation to get to a good
+- [02:50.920] place for the American people. I think
+- [02:52.720] it's important for all of us to
+- [02:54.080] appreciate how much was done, but
+- [02:56.240] honestly, there is still a lot to do as
+- [02:59.120] we continue to make progress on the
+- [03:00.959] nuclear talks, on the economic talks, as
+- [03:03.360] we continue to de-mine the straits and
+- [03:05.160] ensure that that flow of traffic
+- [03:06.640] continues to pick back up. A lot of
+- [03:08.480] progress, but still some work to do, and
+- [03:11.040] we're very committed to doing exactly
+- [03:12.560] that. So, with that, I'm happy to take a
+- [03:14.640] few questions from guys in the audience.
+- [03:16.480] I appreciate you guys being here. Start
+- [03:18.200] with you.
+- [03:19.320] >> Thank you, Mr. Vice President. Did the
+- [03:20.840] President's threats yesterday really
+- [03:22.560] throw a wrench in the negotiations?
+- [03:24.280] There were reports that the Iranians
+- [03:25.640] walked out at one point. Can you just
+- [03:27.200] clarify and tell us what happened?
+- [03:29.040] >> No, they didn't throw a wrench in the
+- [03:30.360] system. The thing with the Iranians,
+- [03:32.080] yes, they they did threaten to walk out,
+- [03:34.480] or at least there were social media
+- [03:35.959] threats that they would walk out, but we
+- [03:37.720] were negotiating well past 1:00 in the
+- [03:39.640] morning yesterday, so they didn't walk
+- [03:41.480] out, and their technical team is still
+- [03:43.480] here in Burgenstock working with our
+- [03:44.920] technical team actually as we speak.
+- [03:47.239] Though I imagine maybe some of them are
+- [03:48.360] taking a break to watch this news
+- [03:49.720] conference. But look, um
+- [03:52.400] what what what we told the Iranians
+- [03:53.880] yesterday is when you guys engage in
+- [03:56.560] what us Millennials might call trash
+- [03:58.560] talk, you can't expect the President of
+- [04:00.600] the United States not to respond and not
+- [04:02.520] to correct the record. So when they say
+- [04:04.720] things that aren't true, the President
+- [04:06.760] is going to respond to it. I'm going to
+- [04:08.440] respond to it. Americans are going to
+- [04:10.240] respond to it. When they make threats
+- [04:12.280] that aren't rooted in reality, they have
+- [04:14.200] to accept that the President of the
+- [04:15.600] United States is actually going to set
+- [04:17.320] the record straight. That's all that
+- [04:19.000] happened. So yes, there was a little bit
+- [04:20.920] of threatening, there was a little bit
+- [04:22.080] of whining, but at the end of the day
+- [04:23.440] the talks continued and we made great
+- [04:25.200] progress.
+- [04:26.080] >> Um when do you expect
+- [04:28.040] when do you expect them to be welcome
+- [04:30.720] into Iran? Is there a time frame that
+- [04:32.160] you guys are looking at? And also in
+- [04:34.120] terms of when we could see this entire
+- [04:35.760] conflict end, do you think this can end
+- [04:37.760] by the midterm elections?
+- [04:40.080] >> Well look, right now the conflict is in
+- [04:42.600] a ceasefire and our certainly our hope
+- [04:44.640] is that we get to the final deal and a
+- [04:46.280] permanent permanent settlement. But
+- [04:47.760] right now I think we've made great
+- [04:49.000] progress and we should all celebrate
+- [04:50.520] that. In terms of when the nuclear
+- [04:52.400] inspectors are going to start, it's
+- [04:54.000] funny we were trying to call some of the
+- [04:55.680] inspectors last night around 2:00 in the
+- [04:57.480] morning. As you can expect, not many
+- [04:59.800] people are answering their phone at 2:00
+- [05:01.040] in the morning. I expect that will
+- [05:02.560] happen at the minimum this week. But we
+- [05:05.040] we think even some of those
+- [05:06.000] conversations and with the inspectors
+- [05:08.400] and with the IAEA could happen as soon
+- [05:10.320] as today. But I I haven't checked in
+- [05:13.360] with our team since we made that 2:00
+- [05:15.080] a.m. phone call to some of those
+- [05:16.200] inspectors.
+- [05:18.240] >> Sorry. Mr. Vice President. Um thank you
+- [05:20.600] Mr. Vice President. Uh
+- [05:22.360] did you going in expect the Iranians to
+- [05:24.880] make Lebanon as much of a linchpin as
+- [05:27.120] they ended up doing? And how would you
+- [05:29.160] describe the progress on Lebanon? I know
+- [05:30.919] Mr. Araghchi said it was very good
+- [05:32.640] progress, but what's your
+- [05:34.320] characterization of it?
+- [05:35.520] >> Yeah, I would describe it as very good
+- [05:36.760] progress too. I mean look, we want a
+- [05:38.200] regional ceasefire, right? We want
+- [05:39.960] Hezbollah to stop firing at our friends
+- [05:41.520] in Israel. We want Israelis to be able
+- [05:43.040] to live in peace. We also want to make
+- [05:44.880] sure that, you know, when when things
+- [05:46.840] happen, they don't spiral into a broader
+- [05:49.320] escalation. And so, we've been I think
+- [05:52.000] very good at setting up what we're
+- [05:53.760] calling a deconfliction mechanism, but
+- [05:55.640] what it really is is is to say that when
+- [05:58.000] things happen, the sides are actually
+- [06:00.440] talking to one another. Sometimes, you
+- [06:02.480] know, you got a bit of a chicken and egg
+- [06:04.000] problem that you've got a junior guy who
+- [06:06.840] fires a drone that didn't have approval
+- [06:09.040] from the high command. Okay, of course,
+- [06:11.440] Israel has to respond to that. But then
+- [06:13.720] sometimes, that response, we could
+- [06:16.160] actually have a better and more peaceful
+- [06:18.480] situation if Israel responds in the
+- [06:21.440] context of a conversation that's ongoing
+- [06:23.640] between Hezbollah, Lebanon, Israel, and
+- [06:26.440] other partners in the region. There
+- [06:28.120] really hasn't been a mechanism to have
+- [06:30.320] those discussions until basically around
+- [06:32.680] 4:00 p.m. yesterday, Bergenstock time,
+- [06:35.000] when we set that up. So, what we're
+- [06:36.600] trying to do is to say, first of all,
+- [06:38.600] Israel and every other nation in the
+- [06:40.120] region has the right of self-defense,
+- [06:42.000] but we want to make sure that everybody
+- [06:44.040] has that right of self-defense in the
+- [06:46.080] background where we're talking about how
+- [06:48.320] to de-escalate these conflicts rather
+- [06:50.480] than spiraling out of control.
+- [06:52.000] Sometimes, what will happen is that is
+- [06:54.440] that if if a conflict spirals out of
+- [06:56.760] control, that's worse for everybody's
+- [06:58.880] self-defense and worse for everybody's
+- [07:00.680] security. So, we've actually got the
+- [07:02.280] process in place to ensure that that
+- [07:04.440] doesn't that escalation doesn't happen.
+- [07:06.080] Now, I will say, you already see the
+- [07:08.200] fruits of that. Over the past 24 hours,
+- [07:10.200] it's probably been the most peaceful
+- [07:11.640] that we've seen
+- [07:13.000] the situation in Lebanon. The previous
+- [07:15.200] 24 hours were pretty good. Obviously,
+- [07:17.520] there were some shooting about 72 hours
+- [07:19.160] ago. So, this is a work in progress, but
+- [07:21.760] what we've done is actually set up the
+- [07:23.800] operation so that we can ensure it
+- [07:25.600] doesn't spiral out of control in the
+- [07:27.040] future.
+- [07:29.680] >> Does the US want Israel to withdraw
+- [07:31.680] forces from southern Lebanon?
+- [07:33.800] >> Well, we want Israel's security to be
+- [07:35.880] protected, and we also want Lebanon's
+- [07:37.800] sovereignty to be protected, and this is
+- [07:39.840] going to be an ongoing conversation. The
+- [07:41.600] Israelis have been very clear they do
+- [07:43.200] not have territorial intentions on South
+- [07:45.360] Lebanon. The reason they feel they have
+- [07:47.280] to be there is because they're worried
+- [07:49.080] about Hezbollah fighters in South
+- [07:50.720] Lebanon firing into Israel. We do
+- [07:52.960] believe, of course, it's going to
+- [07:54.120] require a lot of hard work that we can
+- [07:55.880] get to a place where Lebanon's
+- [07:57.960] territorial integrity and sovereignty is
+- [07:59.880] protected, Israel's security is
+- [08:01.920] protected, and that's going to require
+- [08:03.560] some coordination with the Lebanese
+- [08:05.040] armed forces. And also, it's going to
+- [08:06.800] require the Iranians to rein in
+- [08:08.240] Hezbollah. That's all the sort of things
+- [08:09.920] that we were talking about yesterday.
+- [08:11.640] And again, I think that we got much
+- [08:13.520] further compared to where we were just
+- [08:15.680] 24 hours ago.
+- [08:17.240] >> Have you spoken with Prime Minister
+- [08:18.800] Netanyahu during any of this process at
+- [08:21.320] all in the recent days?
+- [08:22.960] >> Yeah, we were in constant
+- [08:25.010] >> [clears throat]
+- [08:25.480] >> We were in constant contact with the
+- [08:26.680] Israelis yesterday, but also, of course,
+- [08:28.520] with the Saudis and the Emiratis and and
+- [08:30.960] others in the region. Uh we talked to
+- [08:32.760] the Lebanese yesterday, as well. So,
+- [08:34.240] we're constantly trying to keep our
+- [08:35.599] regional friends updated about this. Uh
+- [08:37.880] this is not a deal
+- [08:40.000] that the United States is imposing on
+- [08:42.280] the region. This is a deal that the
+- [08:44.520] region has desperately asked the United
+- [08:46.720] States to put in place. Obviously, the
+- [08:48.920] headlines have been very focused about
+- [08:50.400] what's been going on between the United
+- [08:52.040] States and Iran, but this region has
+- [08:54.080] been a basket case for a very long time.
+- [08:56.680] And what the president has set us to do,
+- [08:58.440] again, lay the foundation, see if we can
+- [09:01.080] get to a permanent peace. If we can't,
+- [09:03.520] the president of the United States still
+- [09:04.560] has a lot of options to accomplish
+- [09:06.240] America's security objectives, but he
+- [09:08.040] has certainly committed us to this
+- [09:09.920] pathway for now, and we're going to keep
+- [09:12.120] on working and seeing what we can
+- [09:13.600] accomplish. And then, I I want to just
+- [09:15.440] be- before we before we
+- [09:17.400] depart here, I want to say one one last
+- [09:19.080] thing. I I've seen some misreporting
+- [09:21.680] about frozen or unfrozen Iranian assets.
+- [09:25.320] One of the other things that we wanted
+- [09:26.680] to do, and you know, wasn't as high of a
+- [09:28.440] priority for us for obvious reasons, but
+- [09:30.640] we wanted to make sure that we set up a
+- [09:32.360] process where if
+- [09:34.800] if we ever unfreeze Iranian assets, we
+- [09:37.560] can ensure that those that that money,
+- [09:40.240] that Iranian money, goes to help the
+- [09:42.680] people of Iran and not to fund
+- [09:44.280] terrorism. So, Jared Kushner actually
+- [09:46.600] came up with a with a very interesting
+- [09:48.560] solution with the Qataris where
+- [09:50.640] basically, again, if there is any frozen
+- [09:54.720] Iranian assets that are unfrozen, then
+- [09:57.880] we have approval over that process, the
+- [10:00.360] Qataris have approval over that process,
+- [10:02.840] and then the money would actually go to
+- [10:05.760] buy American soy, American corn, and
+- [10:08.640] American wheat for the benefit of the
+- [10:10.720] Iranian people. And as much as I see
+- [10:12.920] some of the press misreporting on this,
+- [10:14.800] and of course, you know, buttressed by
+- [10:16.440] what the Iranians are saying, or not all
+- [10:18.560] Iranians, I want to be clear. There are
+- [10:20.160] a lot of Iranians who are telling the
+- [10:21.680] truth about what happened yesterday, but
+- [10:23.520] you see some social media reporting that
+- [10:25.080] gets this wrong. But fundamentally, what
+- [10:28.120] Jared and the Qataris and the entire
+- [10:29.880] team here in Berkenstock accomplished
+- [10:32.000] is, to me, a classic Trump deal. Where
+- [10:35.120] if Iranian assets are ever unfrozen,
+- [10:38.320] they're going to go to make American
+- [10:40.560] farmers richer and to feed the Iranian
+- [10:43.440] people. That's a very, very good and
+- [10:45.720] very classic Trump deal that's great for
+- [10:47.800] our people, great for the people of
+- [10:49.600] Iran, and fundamentally, again, will
+- [10:51.760] contribute to this regional security
+- [10:53.800] architecture that we've built and that
+- [10:56.040] we're going to work very hard to ensure
+- [10:58.240] that it endures. So, from Switzerland,
+- [11:01.480] thank you all for being here. I
+- [11:02.720] appreciate the questions and I
+- [11:04.040] appreciate the engagement. I'm looking
+- [11:06.040] forward to going back home and uh we'll
+- [11:08.560] certainly keep everybody updated on what
+- [11:10.080] happens in the days and weeks to come.
+- [11:11.880] Thank you all.
+- [11:12.760] >> Mr. Secretary, just very quickly on this
+- [11:14.160] point.
