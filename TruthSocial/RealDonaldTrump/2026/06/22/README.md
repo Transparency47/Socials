@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-06-22
 
-- Posts: 26
+- Posts: 33
 
+- [21:50 UTC - Truth Social post 116795967794104702](116795967794104702/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795967794104702
+  - _No text content captured._
+- [21:50 UTC - Truth Social post 116795966871339477](116795966871339477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795966871339477
+  - _No text content captured._
+- [21:50 UTC - Truth Social post 116795966081758153](116795966081758153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795966081758153
+  - _No text content captured._
+- [21:49 UTC - Truth Social post 116795964890843230](116795964890843230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795964890843230
+  - _No text content captured._
+- [21:49 UTC - Truth Social post 116795964145418552](116795964145418552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795964145418552
+  - _No text content captured._
+- [21:49 UTC - Truth Social post 116795963292033713](116795963292033713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795963292033713
+  - _No text content captured._
+- [21:49 UTC - Truth Social post 116795962254631530](116795962254631530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116795962254631530
+  - _No text content captured._
 - [19:21 UTC - Congratulations to “El Tigre” (THE TIGER!) Abelardo de la Espriella, the new President of ...](116795382583929582/)
   - Source: https://truthsocial.com/@realDonaldTrump/116795382583929582
   - Congratulations to “El Tigre” (THE TIGER!) Abelardo de la Espriella, the new President of Colombia! It was my Great Honor to endorse him, and I look forward to working together to...
