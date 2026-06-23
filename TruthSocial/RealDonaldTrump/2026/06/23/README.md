@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 17
+- Posts: 21
 
+- [20:37 UTC - Truth Social post 116801341532326093](116801341532326093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116801341532326093
+  - _No text content captured._
+- [20:36 UTC - Truth Social post 116801338500657462](116801338500657462/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116801338500657462
+  - _No text content captured._
+- [20:35 UTC - Thank you, Scotland!!! President DJT](116801336239023557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116801336239023557
+  - Thank you, Scotland!!! President DJT
+- [20:30 UTC - [https:// wabcradio.com/player/](https://wabcradio.com/player/)](116801315279395561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116801315279395561
+  - [https:// wabcradio.com/player/](https://wabcradio.com/player/)
 - [18:26 UTC - [https://www. dailymail.com/news/article-159 21233/trump-approval-bounces-iran-deal.html](...](116800828536496774/)
   - Source: https://truthsocial.com/@realDonaldTrump/116800828536496774
   - [https://www. dailymail.com/news/article-159 21233/trump-approval-bounces-iran-deal.html](https://www.dailymail.com/news/article-15921233/trump-approval-bounces-iran-deal.html)
