@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 5
+- Posts: 8
 
+- [04:14 UTC - At least 39 people injured, 4 dead, in Chicago weekend shootings. Governor Pritzker, I, as...](116797477878659134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116797477878659134
+  - At least 39 people injured, 4 dead, in Chicago weekend shootings. Governor Pritzker, I, as President, can fix this, FAST and Permanently. D.C., Memphis, New Orleans, all down to re...
+- [03:58 UTC - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gi...](116797415517828450/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116797415517828450
+  - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gizzi/donald- trump-latin-america-elections/2026/06/22/id/1260532/](https://www.newsmax.com/...
+- [03:40 UTC - Fast and Furious 2.0?’ Biden DEA let 1M fentanyl pills flow to streets, whistleblower lawy...](116797344912017182/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116797344912017182
+  - Fast and Furious 2.0?’ Biden DEA let 1M fentanyl pills flow to streets, whistleblower lawyer says: [https:// justthenews.com/government/fed eral-agencies/cover-dea-whistleblowers-l...
 - [00:51 UTC - Biden administration buried whistleblower complaint alleging Fauci lied to Congress during...](116796681069385730/)
   - Source: https://truthsocial.com/@realDonaldTrump/116796681069385730
   - Biden administration buried whistleblower complaint alleging Fauci lied to Congress during pandemic: [https:// justthenews.com/accountability /whistleblowers/biden-administration-b...
