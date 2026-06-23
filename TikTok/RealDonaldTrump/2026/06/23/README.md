@@ -1,0 +1,7 @@
+# TikTok / RealDonaldTrump / 2026-06-23
+
+- Posts: 1
+
+- [22:07 UTC - WE ARE MAKING DC SAFE AND BEAUTIFUL AGAIN](7654715871323032863/)
+  - Source: https://www.tiktok.com/@RealDonaldTrump/video/7654715871323032863
+  - WE ARE MAKING DC SAFE AND BEAUTIFUL AGAIN
