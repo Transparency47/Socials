@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 22
+- Posts: 23
 
+- [23:35 UTC - Truth Social post 116802041821708814](116802041821708814/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802041821708814
+  - _No text content captured._
 - [21:41 UTC - Isn’t it strange, the Dumocrats are running a man in Texas who looks virtually identical t...](116801594265056664/)
   - Source: https://truthsocial.com/@realDonaldTrump/116801594265056664
   - Isn’t it strange, the Dumocrats are running a man in Texas who looks virtually identical to Alfred E. Neuman, of MAD Magazine fame and, in Georgia, they’re running someone who look...
