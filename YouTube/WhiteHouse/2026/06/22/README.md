@@ -1,7 +1,10 @@
 # YouTube / WhiteHouse / 2026-06-22
 
-- Posts: 3
+- Posts: 4
 
+- [20:31 UTC - President Trump Signs Executive Orders, Jun. 22, 2026](HNipoXNANAs/)
+  - Source: https://www.youtube.com/watch?v=HNipoXNANAs
+  - [00:10.280] Hello. Hello everybody. - [00:12.160] Thank you very much and today I'm - [00:14.520] signing two very important executive - [00:17.040] orders on quantum technologie...
 - [17:04 UTC - The Story of America: The Second Continental Congress](fj66fdQnyWs/)
   - Source: https://www.youtube.com/watch?v=fj66fdQnyWs
   - [00:02.240] All - [00:03.840] heaven - [00:05.520] people in order to form a more community - [00:22.800] to each other our lives, our fortunes, - [00:26.560] and our sacred hono...

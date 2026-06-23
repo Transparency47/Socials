@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=HNipoXNANAs: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=HNipoXNANAs! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=HNipoXNANAs&ei=B8I5aqODLOSLsfIPgf__qAw&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782195319&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=725AB3BB2C8DDC571A89C84BDABD46A8352627B7.67BB654090F65F14CC8EBB5AA4ACFE7A7DD2D220&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -117638,6 +117637,61 @@
       "title": "Just like James Talarico reminds me of Alfred E. Neuman, Jon Osoff reminds me of Pee-wee H...",
       "url": "https://truthsocial.com/@realDonaldTrump/116796211476024344"
     },
+    "truthsocial:realdonaldtrump:116796512818935902": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T01:24:35.053455+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116796512818935902",
+      "platform": "truthsocial",
+      "post_id": "116796512818935902",
+      "published": "2026-06-23T00:09:12.334000+00:00",
+      "title": "In describing the Vandalism that took place at the Reflecting Pool in Washington, D.C., AB...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796512818935902"
+    },
+    "truthsocial:realdonaldtrump:116796667784429554": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T01:24:35.053075+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116796667784429554",
+      "platform": "truthsocial",
+      "post_id": "116796667784429554",
+      "published": "2026-06-23T00:48:36.961000+00:00",
+      "title": "Latin America continues to shift right as Trump-backed candidate declares victory in Colom...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796667784429554"
+    },
+    "truthsocial:realdonaldtrump:116796678044750462": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T01:24:35.052671+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116796678044750462",
+      "platform": "truthsocial",
+      "post_id": "116796678044750462",
+      "published": "2026-06-23T00:51:13.521000+00:00",
+      "title": "Years after Pulitzer prize, New York Times gets Russia collusion story wrong once again: [...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796678044750462"
+    },
+    "truthsocial:realdonaldtrump:116796679527851962": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T01:24:35.052223+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116796679527851962",
+      "platform": "truthsocial",
+      "post_id": "116796679527851962",
+      "published": "2026-06-23T00:51:36.152000+00:00",
+      "title": "Iranian resistance leader, former national security aide praise Trump\u2019s deal with Tehran: ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796679527851962"
+    },
+    "truthsocial:realdonaldtrump:116796681069385730": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T01:24:35.051695+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116796681069385730",
+      "platform": "truthsocial",
+      "post_id": "116796681069385730",
+      "published": "2026-06-23T00:51:59.676000+00:00",
+      "title": "Biden administration buried whistleblower complaint alleging Fauci lied to Congress during...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116796681069385730"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -163397,6 +163451,17 @@
       "published": "2026-03-03T21:41:57+00:00",
       "title": "First Lady Melania Trump Presides Over the UN Security Council",
       "url": "https://www.youtube.com/watch?v=HM9B_cYIFvQ"
+    },
+    "youtube:whitehouse:HNipoXNANAs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-23T01:24:49.552422+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/22/HNipoXNANAs",
+      "platform": "youtube",
+      "post_id": "HNipoXNANAs",
+      "published": "2026-06-22T20:31:48+00:00",
+      "title": "President Trump Signs Executive Orders, Jun. 22, 2026",
+      "url": "https://www.youtube.com/watch?v=HNipoXNANAs"
     },
     "youtube:whitehouse:HNjJfFQb0RU": {
       "account": "WhiteHouse",

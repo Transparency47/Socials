@@ -1,0 +1,1199 @@
+<!-- source: https://www.youtube.com/watch?v=HNipoXNANAs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HNipoXNANAs -->
+<!-- date_published: 2026-06-22T20:31:48+00:00 -->
+<!-- date_accessed: 2026-06-23T01:24:49.552422+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Jun. 22, 2026
+
+- [00:10.280] Hello. Hello everybody.
+- [00:12.160] Thank you very much and today I'm
+- [00:14.520] signing two very important executive
+- [00:17.040] orders on quantum technologies that will
+- [00:20.080] strengthen America's place as the world
+- [00:22.160] leader in
+- [00:23.720] this very important emerging field.
+- [00:26.960] I want to thank Secretary of War Pete
+- [00:28.560] Hoekstra who's with us, Secretary of
+- [00:30.560] Commerce Howard Lutnick,
+- [00:33.000] Secretary of Energy Chris Wright,
+- [00:34.920] Director of the Office of Science and
+- [00:37.800] Technology Policy
+- [00:39.760] Michael Kratsios. Thank you, Michael.
+- [00:42.440] Director of OMB Russ Vought who's
+- [00:45.480] cutting the budget by probably 40 to 50%
+- [00:48.400] this year. We're going to end up with a
+- [00:49.560] balanced budget.
+- [00:51.160] And National Cyber Director Shawn
+- [00:54.080] Carncross and I appreciate all of you
+- [00:56.320] being here. Thanks as well to Chief
+- [00:58.160] Technology Officer of the United States
+- [01:00.360] Dr. Ethan Klein. Ethan, thank you very
+- [01:03.080] much.
+- [01:05.040] Director of the National Quantum
+- [01:07.280] Coordination Office Dr. Brad Botts dead
+- [01:10.840] and Chief Information Officer of the
+- [01:12.480] Federal Government Greg Barabasia for
+- [01:15.560] joining us today. Thank you very much,
+- [01:17.200] fellas. It's great.
+- [01:19.360] We're also
+- [01:20.720] honored to be joined by Google President
+- [01:23.360] Ruth Porat.
+- [01:25.440] That's a big position. Okay, Google.
+- [01:28.400] Google President, that's as big as being
+- [01:30.480] president of the country, I think. Well,
+- [01:31.880] maybe
+- [01:32.880] That's [laughter] a big one.
+- [01:34.280] There aren't too many. IBM CEO Arvind
+- [01:37.320] Krishna who's a great man. He's done a
+- [01:39.360] really great job. What a job you've
+- [01:41.080] done.
+- [01:42.160] I used to have that stock when it was
+- [01:43.440] much, much lower.
+- [01:45.360] I brilliantly sold it when I became
+- [01:47.120] president.
+- [01:48.400] That was not a good move.
+- [01:50.680] And Inflection CEO Matthew Kinsella as
+- [01:54.920] well as Nobel Prize winning quantum
+- [01:57.120] physicist John Martinez.
+- [02:00.040] Thank you, John.
+- [02:01.840] Should you tell them how many years ago
+- [02:03.240] it was?
+- [02:04.560] >> Well, about 40 years ago.
+- [02:05.640] >> That's pretty good. And you still look
+- [02:07.560] good.
+- [02:08.080] >> Thank you.
+- [02:08.960] >> Great job. I've been waiting for one of
+- [02:11.040] them, too.
+- [02:11.656] >> [laughter]
+- [02:12.520] >> They They don't think eight wars is
+- [02:13.920] enough, you know.
+- [02:15.480] I have to do 12 or 13, I think.
+- [02:18.080] Even though nobody's ever done one.
+- [02:20.760] Quantum technology represents the next
+- [02:23.160] generation of innovation across
+- [02:24.760] computing, sensing, and networking with
+- [02:27.240] enormous significance for our country's
+- [02:29.120] economic growth, scientific research,
+- [02:31.680] and cyber
+- [02:33.040] security. It's really a big deal that
+- [02:35.320] we're doing today, and
+- [02:37.640] country is doing really well, as you
+- [02:39.160] know.
+- [02:40.240] In 2018, I signed the National Quantum
+- [02:42.720] Initiative Act into law, which led to
+- [02:45.880] doubling the federal government
+- [02:47.280] investment in quantum research and
+- [02:49.080] development. I think you all know about
+- [02:50.800] that. That helped unleash billions of
+- [02:53.040] dollars of private investment in
+- [02:54.720] America's quantum industrial base.
+- [02:57.600] Promoting significant scientific and
+- [02:59.800] technological progress like progress
+- [03:02.560] like we've never seen before, actually.
+- [03:04.320] We want to keep that positive momentum
+- [03:06.840] going in America with the orders that
+- [03:09.519] I'm signing today, and these will really
+- [03:11.440] have a I think place in a big step
+- [03:13.519] forward. We're already the leader by a
+- [03:15.640] lot.
+- [03:16.840] And we're going to be now the leader by
+- [03:18.239] a lot more.
+- [03:19.880] The first executive order launches a
+- [03:21.840] national effort to produce a quantum
+- [03:24.080] computer capable of performing important
+- [03:26.920] scientific calculations and to develop
+- [03:29.160] quantum-enabled sensors and networks in
+- [03:32.080] the next 5 years. And we're going to be
+- [03:33.840] investing in American quantum leadership
+- [03:36.560] like never before to stay ahead of the
+- [03:38.959] pack. We're way ahead right now. We'll
+- [03:40.560] keep it that way.
+- [03:42.080] The second order I'm signing directs
+- [03:43.640] federal agencies to transition to what
+- [03:46.239] is called quantum
+- [03:48.800] cryptography.
+- [03:50.640] Did everybody know what that is?
+- [03:52.760] You're going to hear very soon, so
+- [03:54.560] you're going to find it
+- [03:56.080] interesting. Cryptography for their
+- [03:58.480] computer systems by 2031 and to lead the
+- [04:02.080] way for wider adoption of these
+- [04:03.840] extremely strong security standards.
+- [04:07.360] America is celebrating 250 years of
+- [04:09.800] ingenuity, innovation, and invention
+- [04:12.440] this year, and today's commitments to
+- [04:14.640] quantum leadership will help secure that
+- [04:16.680] legacy for decades to come.
+- [04:19.280] Uh I just want to say before we uh
+- [04:21.359] introduce a couple of the people, we're
+- [04:22.880] doing very well with respect to the
+- [04:25.880] Hormuz Strait. We took in more oil
+- [04:28.080] yesterday than we've ever than has ever
+- [04:30.000] gone through the Strait. You'll probably
+- [04:32.360] see that. We have an We have an oil
+- [04:33.919] gusher.
+- [04:35.160] Uh the Strait is totally open. You know
+- [04:37.160] that.
+- [04:38.200] And uh we're negotiating. We'll see how
+- [04:40.400] that all goes, but
+- [04:42.200] uh we have two things. We have an open
+- [04:43.919] Strait, and we have a country that will
+- [04:45.680] never have a nuclear weapon. Will never
+- [04:48.200] ever have a nuclear weapon.
+- [04:50.280] So, now I'd like to invite Michael
+- [04:51.960] Kratsios, director of the Office of
+- [04:53.600] Science and Technology Policy, to say a
+- [04:55.960] few words, followed by National Cyber
+- [04:58.919] Cyber Director Shawn
+- [05:01.160] Karen Cross, and uh Secretary Wright,
+- [05:03.840] who's doing a fantastic job over in
+- [05:05.600] Venezuela and every place else he
+- [05:07.520] touches. Venezuela, by the way, has been
+- [05:09.280] amazing.
+- [05:10.480] Uh we are
+- [05:12.320] really having a great relationship with
+- [05:14.560] that country, taking out tremendous
+- [05:16.120] amounts of oil,
+- [05:18.440] far, far more than that particular war
+- [05:20.560] cost, many, many times.
+- [05:22.840] Uh sending it to Houston, sending it to
+- [05:25.160] Louisiana, sending it to lots of places.
+- [05:27.960] And uh Venezuela is also doing well.
+- [05:30.080] Venezuela is doing better than it's done
+- [05:31.880] in maybe ever.
+- [05:33.600] So, it's been an amazing uh it's been an
+- [05:35.680] amazing situation.
+- [05:38.200] Where did you ever hear of getting money
+- [05:40.080] back from the war by 42 times over, Red
+- [05:42.560] Peak?
+- [05:43.560] Nobody Nobody does that.
+- [05:46.480] And I think Iran, I can say on a sort of
+- [05:48.840] a different scale, is in its own way
+- [05:50.800] working out very well. Maybe it's hard
+- [05:53.320] to say just as well, but maybe almost
+- [05:55.360] just as well.
+- [05:56.840] And uh we're doing very well in terms of
+- [06:00.400] uh negotiating a fair and reasonable
+- [06:02.160] deal. One of the things that we are
+- [06:03.440] doing also, and it came up last night,
+- [06:06.120] is uh money that's being unfrozen is
+- [06:09.200] going to be used to buy food, and the
+- [06:10.600] food's going to be bought exclusively
+- [06:13.040] through the United States from our
+- [06:14.920] farmers.
+- [06:16.280] And corn, soybeans, all of the things
+- [06:18.560] they need are going to be bought from
+- [06:20.640] our farmers. So, our farmers are very
+- [06:23.000] happy. I've had a lot of calls say we're
+- [06:24.560] very happy about that. So,
+- [06:26.640] now I'd like to ask Michael to say a few
+- [06:28.480] words, and uh we'll follow up by the
+- [06:31.280] other two gentlemen, the three
+- [06:32.600] gentlemen, and then if anybody has
+- [06:34.280] anything to say, and we'll take some
+- [06:35.800] questions at the end. So, Michael, go
+- [06:37.840] ahead.
+- [06:38.960] >> So, Mr. President, as you mentioned in
+- [06:40.360] your remarks, you were the first
+- [06:41.440] president in history to prioritize
+- [06:43.000] quantum as a scientific priority in the
+- [06:45.160] United States government in your first
+- [06:46.760] administration. And since then, there's
+- [06:48.600] been a big leap in the investment the
+- [06:50.480] private sector has made in in this
+- [06:52.000] particular domain. And we're now at the
+- [06:53.880] moment where a lot of that research is
+- [06:55.320] starting to pay off into commercial
+- [06:56.760] applications. And what this executive
+- [06:58.680] order will do is turbocharge that. First
+- [07:01.200] and foremost, it's going to task the
+- [07:03.120] Department of Energy to create a
+- [07:04.640] scientifically relevant uh quantum
+- [07:06.919] computer, which is going to help pave
+- [07:08.840] the way for even larger computers for
+- [07:11.040] the private sector. Secondly, we're
+- [07:13.080] going to be focusing on sensors and
+- [07:15.000] networking. So, agencies like the
+- [07:16.560] Department of War, along with the
+- [07:17.720] Department of Energy, are going to be
+- [07:18.919] doing a wide variety of sensing and
+- [07:20.240] networking work. So, this is a big step
+- [07:22.120] forward, and as one of our two top uh
+- [07:24.400] science technology priorities, we're
+- [07:26.040] excited to to kick things off today.
+- [07:28.120] >> Good. Thank you very much. Good job,
+- [07:30.960] Michael. Sean, please.
+- [07:32.360] >> Yeah, thank you, sir. Uh you continue to
+- [07:34.960] be the most forward-leaning president in
+- [07:37.840] innovation in American history.
+- [07:39.960] >> Is that all?
+- [07:40.720] >> Uh that's that's
+- [07:41.780] >> [laughter]
+- [07:42.200] >> that's it, sir.
+- [07:43.400] Uh but no,
+- [07:45.120] >> Uh, and while you recognize
+- [07:47.920] the tremendous potential quantum has to
+- [07:51.120] advance medical research and
+- [07:53.280] cryptography and improve the lives of
+- [07:55.840] American people, you also recognize the
+- [07:58.480] security implications. As quantum rolls
+- [08:01.080] forward, it will challenge public key
+- [08:04.000] cryptography, which is what secures
+- [08:06.560] everything. It secures our financial
+- [08:08.440] transactions, our civilian critical
+- [08:10.800] infrastructure, and it secures the
+- [08:13.000] digital systems that Americans rely on
+- [08:14.919] for their daily life. And these two
+- [08:16.919] executive orders, which pair innovation
+- [08:19.919] and security, will will address those
+- [08:23.280] issues.
+- [08:24.520] As we move forward, innovation and
+- [08:27.480] security have to be balanced.
+- [08:29.760] You recognize that. The actions that you
+- [08:32.400] take today will make sure that American
+- [08:34.680] systems are trusted and secure and safe
+- [08:38.520] moving forward. I just want to thank our
+- [08:41.039] tremendous American companies with whom
+- [08:43.159] we've been working so closely. I think
+- [08:44.360] it's fair to say we have an
+- [08:45.720] unprecedented relationship in this. I
+- [08:48.080] want to thank our colleagues in the
+- [08:49.520] interagency who have been tremendously
+- [08:51.960] such a mission-focused group of people.
+- [08:54.920] And obviously none of this happens, sir,
+- [08:56.560] without your leadership. So, you're
+- [08:59.200] securing our systems for generations to
+- [09:01.160] come. Thank you.
+- [09:02.160] >> And you've done a great job. All of you
+- [09:04.040] have, actually. Chris Wright, please.
+- [09:06.320] >> Yes, thank you, Mr. President. So, 100
+- [09:09.200] 120
+- [09:10.720] 141 years ago, Albert Einstein 121 years
+- [09:15.160] ago, Albert Einstein published a paper
+- [09:17.200] on the photo
+- [09:17.440] >> Nobody cares.
+- [09:18.721] >> [laughter]
+- [09:20.400] >> Good point. Good point.
+- [09:23.120] >> And usually they won't catch you, but
+- [09:24.520] they do.
+- [09:25.160] >> Good.
+- [09:25.360] >> Published a paper on the photoelectric
+- [09:26.960] effect, recognizing the quantum behavior
+- [09:29.800] of light that it came in quanta.
+- [09:33.080] 40 years after that, President Trump's
+- [09:35.920] uncle, John Trump, was a pioneer in
+- [09:38.960] applying light radiation and the
+- [09:41.640] reflections of it to develop radar at
+- [09:43.920] the MIT Radiation Lab, critical in
+- [09:46.800] D-Day, critical in the end in winning
+- [09:49.040] World War II. That's
+- [09:51.160] the parallel of quantum innovation. 40
+- [09:53.200] years after that, John Martinez, down
+- [09:56.120] there, pioneered taking quantum effects
+- [09:59.520] and building them into a device to
+- [10:01.520] capture that behavior. He was awarded
+- [10:04.240] the Nobel Prize in physics just last
+- [10:06.440] year for that discovery, that
+- [10:08.280] breakthrough. But 40 years, quantum
+- [10:10.920] phenomena are tough to harvest and tough
+- [10:13.040] to work with. But here we are, thanks to
+- [10:15.120] President Trump's leadership in the
+- [10:16.440] first term with with Director Kratsios,
+- [10:18.800] to launch a major national effort on
+- [10:21.120] quantum. This is taking it to the next
+- [10:23.440] level. The future of computing is going
+- [10:25.960] to be a three-legged stool. Law and
+- [10:28.160] semiconductor
+- [10:31.400] manufacturing. It's artificial
+- [10:33.440] intelligence that everyone's seeing and
+- [10:35.040] hearing about that's supercharging it.
+- [10:36.920] The third leg of that computing stool is
+- [10:39.880] going to be scientifically relevant
+- [10:41.880] quantum computing. This is tricky. We're
+- [10:44.560] not there yet. We're close, but with
+- [10:46.720] this executive order and this
+- [10:48.920] coordinated effort, we will have
+- [10:51.080] scientifically relevant, meaning
+- [10:53.120] error-corrected, quantum computing
+- [10:55.400] during this administration. The impacts
+- [10:57.880] of it will be tremendous.
+- [11:00.400] >> Just if I might. So, with respect to the
+- [11:03.240] Strait
+- [11:04.360] of Hormuz, they
+- [11:06.440] a lot of oil pouring out, right?
+- [11:08.400] >> A lot of oil pouring out. Despite Iran's
+- [11:10.480] efforts or or pushback, we are flowing
+- [11:13.040] uh oil through the Strait of Hormuz and
+- [11:14.720] natural gas at pre-crisis levels. We
+- [11:17.480] could get to above that, we will get to
+- [11:19.120] above that, but things today are going
+- [11:20.839] very well. Thanks to the US military and
+- [11:23.520] as Pete Hoekstra said down down the line
+- [11:25.320] here.
+- [11:26.320] >> And 2 days ago we set a record, most
+- [11:28.880] ever taken out of the Strait. It's pent
+- [11:30.880] up, but it's it's a record. Did you know
+- [11:33.400] of my uncle at all?
+- [11:35.920] >> No.
+- [11:36.760] >> You didn't?
+- [11:37.360] >> No.
+- [11:38.720] Sorry.
+- [11:40.203] >> [laughter]
+- [11:40.720] >> You must have been a good man.
+- [11:41.480] >> I was working at MIT.
+- [11:43.600] >> Oh, but MIT's quite interesting.
+- [11:45.443] >> [laughter]
+- [11:46.600] >> Uh Howard, do you want to say something?
+- [11:48.960] Yeah.
+- [11:49.480] >> So you're you're accelerating quantum
+- [11:52.120] with the CEO pushing continuing to push
+- [11:54.800] America
+- [11:56.120] forward. Now, I have the honor that uh
+- [11:59.600] John Martinez was a member of the
+- [12:01.960] Commerce Department at NIST and is a
+- [12:05.120] Nobel Prize winning alum. So which is if
+- [12:08.080] if you don't think the people in the
+- [12:09.920] Commerce Department and in NIST do the
+- [12:11.560] best, I mean here's an example. Nobel
+- [12:13.800] Prize winner was part of our team.
+- [12:17.120] You all know that the government
+- [12:18.560] invested $2 billion
+- [12:20.720] just a couple of weeks ago in quantum to
+- [12:22.680] drive it forward. And besides investing
+- [12:25.400] in the companies, we've also invested in
+- [12:27.360] fabs to build quantum for others so we
+- [12:30.600] can manufacture these quantum in
+- [12:34.160] America. Now you have Ruth Porat from uh
+- [12:37.360] from Alphabet. They are doing amazing
+- [12:39.480] investing and building quantum. And you
+- [12:41.920] have Arvind right next from IBM. We
+- [12:44.200] invested in his fab. He's got a leading
+- [12:46.440] fab. So he's going to be building those
+- [12:48.440] chips, right? So that's that idea. And
+- [12:51.200] then lastly,
+- [12:52.839] post quantum cryptography, right? Once
+- [12:55.040] you have quantum chips, we've got to
+- [12:56.960] protect everyone in this government post
+- [13:00.000] quantum cryptography. So NIST and the
+- [13:02.880] Department of Commerce is going to lead
+- [13:04.400] the charge to make sure all of us are
+- [13:06.839] protected and defended so we know how to
+- [13:09.760] deal with quantum when it comes. We're
+- [13:11.760] going to lead in quantum and we're going
+- [13:13.520] to make sure we stay safe. And these are
+- [13:15.320] both the things you're signing today.
+- [13:17.400] And that's why you have such an amazing
+- [13:19.240] team behind you because you are leading
+- [13:21.360] the charge in quantum for America.
+- [13:23.680] >> And Ruth, would you like to say
+- [13:24.839] something?
+- [13:25.360] >> Well, thank you. First, thank you so
+- [13:26.880] much for us for this important meeting
+- [13:29.080] in these two executive orders. We
+- [13:30.840] completely agree quantum is a
+- [13:33.160] breakthrough critical technology. The US
+- [13:35.080] is in the lead. We will stay in the
+- [13:36.280] lead. At Google, we're really proud of
+- [13:38.280] our innovations and thank you, Secretary
+- [13:39.840] Letnick.
+- [13:41.040] Uh we've been investing for more than a
+- [13:42.440] decade in quantum. And back in 2019, we
+- [13:46.280] were the first company actually to
+- [13:47.760] achieve quantum supremacy. Didn't stop
+- [13:50.160] there. [clears throat] About a year and
+- [13:51.080] a half ago, we unveiled a new chip, the
+- [13:54.880] Willow chip, which is a great example of
+- [13:57.600] American innovation, manufactured here
+- [14:00.200] in the United States. And what the
+- [14:02.200] Willow chip does, it is it enabled us to
+- [14:04.960] do a computation in less than 5 minutes
+- [14:07.800] that previously, on the best
+- [14:09.040] supercomputer, would have taken 10
+- [14:11.160] septillion years, which
+- [14:13.160] one with 25 zeros. So,
+- [14:14.600] >> That's pretty good.
+- [14:16.360] >> And what's exciting about this is what
+- [14:18.000] it means for our children,
+- [14:18.760] grandchildren. It's about medical
+- [14:20.680] breakthroughs, nuclear fusion,
+- [14:22.920] >> Yeah.
+- [14:23.240] >> material science. So, we're really
+- [14:25.320] excited about the opportunity. And then
+- [14:27.560] also around post-quantum
+- [14:30.520] post-quantum cryptography and the work
+- [14:32.160] that we're doing there. Absolutely
+- [14:33.960] critical that we also keep America safe,
+- [14:36.280] everyone safe. So, we have been
+- [14:37.680] deploying that across our products and
+- [14:39.280] services. And it's a critical
+- [14:40.960] opportunity. I think with these two EOs,
+- [14:43.560] it it lays the foundation for one,
+- [14:45.600] protecting America, as well as
+- [14:48.080] continuing to benefit on the upside.
+- [14:50.120] It's great to be here.
+- [14:50.880] >> Thank you. Say hello to everybody. Thank
+- [14:52.839] you. Arvind, please. IBM.
+- [14:55.280] >> Uh so, first I'd like to thank the
+- [14:56.600] president for both of these EOs. The
+- [14:59.200] role of the government is often
+- [15:01.160] underestimated.
+- [15:03.000] The role of the government in pushing
+- [15:04.320] innovation and technology forward is
+- [15:06.360] what both of these will achieve.
+- [15:08.360] Asking for the investment in quantum
+- [15:10.360] computing, asking that the departments
+- [15:12.480] all work together, will actually
+- [15:14.520] accelerate what industry does, because
+- [15:17.000] that gives us the confidence to invest
+- [15:18.800] even more. And that is what we commit to
+- [15:20.960] do to get these systems out and to get
+- [15:24.440] what both
+- [15:26.360] the secretary has asked for to get the
+- [15:28.320] systems out during your current term.
+- [15:31.760] So, we will go and invest in doing that.
+- [15:34.200] And I'd also like to thank Commerce for
+- [15:35.680] the investment they made in accelerating
+- [15:38.320] the ability to build fabs so that we can
+- [15:40.840] actually make these in America.
+- [15:43.120] >> Good. Thank you very much.
+- [15:45.040] Uh would you like to say something or
+- [15:46.360] something about how well we're doing on
+- [15:47.880] the budget and things?
+- [15:49.040] >> Well, we're ready to talk about the
+- [15:50.240] progress. I think last year you had the
+- [15:52.520] most fiscally consequential year in
+- [15:54.600] history.
+- [15:55.760] Uh a story that's largely been
+- [15:57.040] unwritten, but today this is about
+- [15:59.240] >> want to write it.
+- [16:00.200] >> They don't want to
+- [16:01.640] It's true.
+- [16:02.320] >> Go ahead.
+- [16:02.800] >> More savings
+- [16:03.320] >> You might as well say it cuz they won't.
+- [16:04.880] >> More savings than than ever before in
+- [16:06.680] history.
+- [16:07.880] Today's about the investments that we're
+- [16:09.400] going to prioritize. So, we'll save in
+- [16:10.960] places, but we're going to do what's
+- [16:12.640] necessary to invest in the future and
+- [16:14.360] industries of the future. That's what
+- [16:16.120] today's about. Quantum is one of those
+- [16:18.120] areas in the first term and now in the
+- [16:20.080] second term.
+- [16:21.560] >> Okay, thank you. Thank you, everybody.
+- [16:23.840] Uh any questions?
+- [16:24.760] >> Mr. President
+- [16:25.320] >> I think we're going to go with the
+- [16:26.360] Treasury
+- [16:26.720] >> Mr. President, did the Treasury lift
+- [16:27.960] sanctions on Iranian oil today, sir?
+- [16:29.760] Did the Treasury lift sanctions on
+- [16:31.120] Iranian oil today, sir?
+- [16:32.080] >> Well, I'm going to have to find out
+- [16:33.160] exactly the status, but
+- [16:35.760] if these sanctions go out,
+- [16:38.000] money's going to be put into this
+- [16:39.280] country. All that money's coming back
+- [16:41.800] in the form of purchases of food which
+- [16:43.839] they desperately need. They have 91
+- [16:46.040] million people. They can't feed them.
+- [16:48.200] So, the money that
+- [16:50.560] that we lift is going to go to our
+- [16:52.120] farmers, largely to our farmers.
+- [16:53.880] >> Can you assure that the Iranians won't
+- [16:55.280] use profits from oil sales to rebuild
+- [16:57.600] their military and destroy things?
+- [16:58.720] >> not supposed to be doing that, sir.
+- [17:00.320] We'll see, but they're supposed to use
+- [17:02.120] money to buy food for their people cuz
+- [17:03.960] right now their people are
+- [17:05.600] very hungry.
+- [17:07.120] And they're buying it exclusively from
+- [17:09.040] us. Corn, soybeans.
+- [17:11.400] And it should be a lot of money. I hope
+- [17:13.439] it's a lot of money.
+- [17:14.079] >> If a war with Iran could cause a
+- [17:16.760] worldwide depression, as you noted Mr.
+- [17:18.680] President. Are you willing to risk
+- [17:20.600] economic catastrophe and strike Iran
+- [17:22.640] again?
+- [17:23.000] >> the way I'm doing it. That way it's not
+- [17:24.360] going to cause depression.
+- [17:25.391] [clears throat]
+- [17:25.760] >> Yes, but if they don't abide by the
+- [17:27.920] memorandum of understanding.
+- [17:29.360] >> supersedes depression.
+- [17:31.560] Depression is real bad. Nuclear weapon
+- [17:34.280] will cause depression much more quickly.
+- [17:37.520] The way we're doing it, we have the
+- [17:39.000] opposite of a depression. We're doing
+- [17:41.520] really well.
+- [17:42.920] Uh
+- [17:44.400] the numbers are incredible. The oil is
+- [17:47.280] at a level that nobody's ever seen
+- [17:49.040] before. Oil prices are way down. I think
+- [17:51.640] they're very comparable to what they
+- [17:53.240] were. Chris, I don't know. Pretty
+- [17:54.400] comparable
+- [17:55.800] to what they were before we started.
+- [17:57.400] Right?
+- [17:57.880] >> They returned most of the way back down.
+- [17:59.680] >> Yeah.
+- [18:00.360] >> So, if Iran does not abide by the MOU,
+- [18:04.640] are you still willing to strike?
+- [18:07.600] >> I didn't say it could cause a
+- [18:08.600] depression. I said it could cause a
+- [18:10.520] depression. Right? And I said that I
+- [18:13.480] don't want to be Herbert Hoover.
+- [18:15.480] That's the president I don't want to be
+- [18:16.960] cuz he, you know, he was
+- [18:19.680] in charge during the Great Depression.
+- [18:22.920] And certainly a lot of bad things could
+- [18:25.320] happen. That would be one of the things.
+- [18:26.760] I don't think it would, but if it did,
+- [18:28.840] but no, if if Iran doesn't uh
+- [18:32.800] live up to their agreement or if they're
+- [18:34.480] not behaving,
+- [18:35.960] I will I will do what I have to do.
+- [18:38.080] >> Does that give them leverage over you,
+- [18:39.480] Mr. President? Does that give them
+- [18:41.120] leverage, the Iranians leverage over
+- [18:42.600] you?
+- [18:42.960] >> Oh, you're so leverage. Yeah.
+- [18:47.480] Their navy is gone.
+- [18:49.240] Their air force is gone.
+- [18:51.240] Their leaders are all dead.
+- [18:53.640] Their whole country is a mess. Their
+- [18:55.480] economy is shot.
+- [18:57.640] The, you know, the Times, the fake New
+- [18:59.480] York Times said, "Oh, it's about the
+- [19:01.120] same as it was 4 months ago." No. 4
+- [19:03.400] months ago they had a navy, 159 ships to
+- [19:06.000] be exact. It's gone. The whole navy is
+- [19:08.680] gone. Their 250 airplanes, all gone.
+- [19:12.280] Their every their anti-aircraft is gone.
+- [19:16.360] Their radar is gone. These guys love
+- [19:18.240] radar. Their radar is gone. Everything's
+- [19:21.280] gone. Their leaders are gone.
+- [19:23.840] Their whole country is gone. And the
+- [19:25.760] time said, "Oh, they're about the same
+- [19:27.280] as they were 4 months ago."
+- [19:30.000] The reason the news is doing so badly,
+- [19:32.920] or let's put it another way, the reason
+- [19:35.600] that I won in a landslide, even though I
+- [19:37.400] got 92%
+- [19:39.320] negative press, all fake press,
+- [19:42.040] is because nobody believes the press
+- [19:43.720] anymore.
+- [19:45.000] And they have to start believing. You
+- [19:46.560] know, when when the times and couple of
+- [19:49.520] others, they just they're grasping for
+- [19:51.720] straws. When they say that Iran is about
+- [19:54.040] the same as it was 4 months 4 months ago
+- [19:56.160] they had a powerful navy, they had a
+- [19:57.560] powerful air force.
+- [19:59.600] You know, most of their missiles are
+- [20:00.880] gone. Most of their launching pads are
+- [20:02.960] gone. Most of their manufacturing
+- [20:05.400] capacity for drones and missiles is
+- [20:07.440] gone.
+- [20:08.680] About 87% gone.
+- [20:11.600] And then I hear, "Oh,
+- [20:13.640] they're in such great shape."
+- [20:15.880] No, they're gone. And
+- [20:17.960] their first level of leaders, gone.
+- [20:21.040] Their second level of leaders, gone.
+- [20:24.000] Their third level of leaders, you have
+- [20:25.480] to hear the conversations.
+- [20:27.680] "Who wants to be president? Well, I
+- [20:29.640] don't want it. Nobody wants to be
+- [20:31.480] president." And then we have to read
+- [20:33.680] that
+- [20:34.600] they're doing well. They're doing so
+- [20:35.720] badly. In the meantime, we're setting
+- [20:38.440] records. We have the strongest economy
+- [20:40.400] we've ever had. We have 18 to 19
+- [20:43.360] trillion dollars being poured into our
+- [20:45.160] country. We're building factories all
+- [20:47.040] over the place. We have more people
+- [20:49.120] working today than at any time in the
+- [20:52.000] history of our country at higher
+- [20:53.400] salaries.
+- [20:55.080] So, when you ask a question like that,
+- [20:57.320] it's so stupid.
+- [21:01.000] Is it another beauty? What's this what
+- [21:02.880] Is it a real beauty?
+- [21:03.560] >> Earlier today, the Israeli Prime
+- [21:04.760] Minister, Benjamin Netanyahu, said his
+- [21:06.440] forces are not leaving Lebanon. That is
+- [21:09.080] a sticking point in this conversation.
+- [21:11.480] He's He's said it publicly in Israel.
+- [21:13.320] >> Well, we'll then take a look at it.
+- [21:14.520] >> Well, what would you do to make sure
+- [21:15.640] that he doesn't sabotage the deal?
+- [21:17.040] >> do, but
+- [21:18.280] it gets solved. I'm a problem solver. I
+- [21:20.000] get problems solved real fast, including
+- [21:21.840] with Bibi. Go ahead.
+- [21:23.320] >> Thank you, Mr. President. Thank you.
+- [21:25.400] What's the latest you've heard from the
+- [21:26.520] Vice President? Are you happy with his
+- [21:27.920] negotiations? And can you share a little
+- [21:29.960] bit about what Secretary Rubio will be
+- [21:31.520] doing in the Middle East this week?
+- [21:33.360] >> I think that they're doing a fantastic
+- [21:35.200] job. Our secretary is fantastic. I think
+- [21:37.480] he's maybe going to go down as the best
+- [21:38.960] ever.
+- [21:39.920] And I thought J.D. Vance this morning
+- [21:41.480] was fantastic. I watched his
+- [21:43.640] news conference and from Switzerland.
+- [21:47.160] He's a very smart guy. Did a great job.
+- [21:49.480] You know, when I look at the Democrats,
+- [21:52.280] I call them the Democrats. They're dumb.
+- [21:54.080] The Democrats. When I watch that
+- [21:56.320] where
+- [21:57.480] one of them thought it was World War XI.
+- [22:00.040] She said World War XI. She meant World
+- [22:01.840] War II. You know about that, right? This
+- [22:03.440] is one of their potential leaders,
+- [22:05.600] Ilhan Omar, who married her brother to
+- [22:08.120] get into the country, by the way,
+- [22:09.520] illegally.
+- [22:10.720] But when I watch AOC, have no idea
+- [22:16.160] what a simple question. What happened
+- [22:18.440] when she was over in Switzerland, which
+- [22:20.600] probably never went there before, but
+- [22:22.200] she was
+- [22:23.360] And then I watch somebody like J.D. or
+- [22:24.960] Marco.
+- [22:26.280] What a I said, "What a difference.
+- [22:28.920] What a difference. What a difference a
+- [22:30.520] brain makes."
+- [22:31.320] >> Mr. President, the candidate that you
+- [22:32.640] endorsed in Florida, Mr. Rubio
+- [22:34.080] >> Sir, you've been quite
+- [22:35.000] >> critical of Prime Minister Starmer, and
+- [22:36.280] he's now resigned. Your thoughts, and
+- [22:37.800] who would you like to see as the next
+- [22:39.560] Prime Minister of the UK?
+- [22:41.160] >> only from the standpoint cuz I think
+- [22:42.400] he's a lovely man, but I I said, "You're
+- [22:44.080] do You're really messing up energy. You
+- [22:45.800] have windmills all over the place, and
+- [22:47.120] in the meantime, you have the North Sea
+- [22:48.440] oil,
+- [22:49.800] and they won't let anybody drill.
+- [22:52.080] It's one of the great fields in the
+- [22:53.200] world, and they have They haven't even
+- [22:55.240] found it.
+- [22:56.080] You know that
+- [22:57.400] the UK buys much of its energy.
+- [23:00.720] You know where? Norway. You know where
+- [23:02.600] get their oil? The North Sea.
+- [23:05.040] The UK has a much better portion of the
+- [23:07.080] North Sea. They don't want to do it for
+- [23:08.240] environmental purposes, okay?
+- [23:10.600] And I told him, he's a very nice man. I
+- [23:12.480] mean, sort of a friend of mine. I mean,
+- [23:13.800] he was not good to us with NATO, Pete,
+- [23:15.640] right?
+- [23:16.640] He said we can't use the island to land.
+- [23:18.960] That was the first. Um for a couple of
+- [23:21.120] weeks, he said, "Well, but ultimately I
+- [23:22.640] gave it to you." You know, that was a
+- [23:24.120] bad move. That hurt him badly. But But
+- [23:27.640] I mean, I wish him well, but he's got
+- [23:29.440] two problems. Energy
+- [23:31.760] and immigration. And crime. But energy
+- [23:34.920] and immigration. I mean
+- [23:36.160] >> Mr. President, do you have a preference
+- [23:37.120] on the next
+- [23:38.040] >> And he's, you know, he's really hurt
+- [23:39.480] himself very, very badly. Please, go.
+- [23:41.480] >> Mr. President, can you tell us about
+- [23:42.680] your meeting with the defense
+- [23:43.680] contractors on Wednesday and what you
+- [23:45.280] plan to tell them?
+- [23:46.280] >> The The meeting coming up? Cuz I've met
+- [23:47.960] with them before.
+- [23:49.320] Uh
+- [23:50.640] we're building plants all over the
+- [23:52.320] country. They are not allowed to take
+- [23:54.560] any more stock buybacks. Do you do stock
+- [23:57.560] buybacks? Financial? Not too much,
+- [23:59.400] right? Cuz you want to invest in
+- [24:01.320] product.
+- [24:02.240] It's just an artificial way of raising a
+- [24:03.920] price if you're running a bad company.
+- [24:06.720] So, they spent $51 billion on stock, you
+- [24:10.320] know, on on stock buybacks instead of
+- [24:12.160] spending them on plants. Now they're
+- [24:14.200] spending They can't do that anymore. Now
+- [24:16.440] they are spending a lot of money. We're
+- [24:17.800] building many plants throughout the
+- [24:20.520] country. Uh they're dealing with General
+- [24:22.680] Motors. They're dealing with Ford. But I
+- [24:24.880] know General Motors is all excited about
+- [24:27.360] building weapons now. They have some
+- [24:29.520] plants which they're going to switch
+- [24:30.800] over. We're going to build weapons.
+- [24:32.960] Uh including the Patriot, including the
+- [24:34.960] Tomahawk, and lots of other things.
+- [24:37.680] And uh we're in a big
+- [24:40.160] We're really in a big strong economic
+- [24:43.080] push to do the weapons. And some of the
+- [24:45.520] car companies, if they have any excess
+- [24:47.360] capacity,
+- [24:48.760] they're making a deal to buy build
+- [24:50.880] missiles and uh
+- [24:53.440] the Patriot in particular. We We
+- [24:55.880] We have quite a few of them, but we want
+- [24:57.360] to make sure we have always a lot of
+- [24:59.160] them.
+- [24:59.400] >> Mr. President, on Colombia, the
+- [25:00.760] candidate the candidate that you
+- [25:02.280] endorsed is
+- [25:02.800] >> Thank you, Mr. President.
+- [25:03.520] Congratulations on the quantum physics
+- [25:05.400] deal to all of you.
+- [25:07.480] Vice President Pence said that there are
+- [25:08.720] mechanisms in place to make sure that
+- [25:10.640] there's not escalations with the Strait
+- [25:12.280] of Hormuz and with Israel and Lebanon.
+- [25:14.680] Can you talk about what those mechanisms
+- [25:16.280] are and are you in direct talks with the
+- [25:18.120] supreme leader of Iran?
+- [25:19.640] >> look, here's the thing.
+- [25:21.480] As long as they respect us, I don't want
+- [25:23.560] to use the word fear,
+- [25:25.120] cuz that's an inappropriate word. But as
+- [25:26.960] long as they respect us, we're not going
+- [25:28.400] to have any trouble.
+- [25:30.360] We have total control of the strait.
+- [25:32.840] >> So, the mechanism is
+- [25:33.600] >> You know, we have a a navy that had a
+- [25:35.560] blockade. I think the blockade was more
+- [25:38.200] impactful than dropping bombs, if you
+- [25:39.960] want to know the truth. It was like I
+- [25:41.080] said, they call it the steel wall.
+- [25:42.800] Nobody got through. Not one ship got
+- [25:44.440] through able to go to Iran.
+- [25:47.160] They got through if we wanted them to go
+- [25:48.480] through. And
+- [25:50.560] we could set that up again in about 15
+- [25:52.640] minutes. I would say, Pete, one phone
+- [25:54.000] call would tell them What exactly, maybe
+- [25:56.200] half hour?
+- [25:56.840] >> They're ready to go right now, if you
+- [25:57.800] need to.
+- [25:58.080] >> Yeah, it'll be It'll be before we finish
+- [25:59.920] the meeting.
+- [26:01.200] Uh
+- [26:01.760] now, we have uh
+- [26:04.320] As long as they respect us, we're going
+- [26:05.800] to be fine. They don't respect us,
+- [26:08.440] things wouldn't be good. But they have a
+- [26:09.560] lot of respect. Don't forget, we had
+- [26:11.440] presidents that should have done this
+- [26:12.760] for 47 years. Nobody did it. Obama Obama
+- [26:16.240] gave them a road to a nuclear weapon. I
+- [26:18.120] gave them a wall against a nuclear
+- [26:20.440] They'll They can never, under this
+- [26:22.320] agreement, they'll never even think
+- [26:24.320] about building a nuclear weapon.
+- [26:25.640] >> Mr. President, on Colombia, the
+- [26:26.920] candidate
+- [26:27.680] >> Yeah.
+- [26:28.360] >> Yeah, I think I have a lot of respect.
+- [26:29.960] Yeah, we know that you had a phone call
+- [26:31.720] >> him. He was in 10th place. I endorsed
+- [26:33.400] him, and he won the election.
+- [26:34.760] >> Yeah, we know that you had a you had a
+- [26:36.600] >> No different than this country.
+- [26:38.400] >> You had a phone conversation with
+- [26:39.920] Abelardo de la Espriella in the last
+- [26:41.240] hours. What can you tell us about that
+- [26:43.000] phone conversation? And what do you see
+- [26:44.600] what do you anticipate in terms
+- [26:45.880] >> Colombia.
+- [26:46.520] >> Yes, sir. I'm from Colombia, Cartagena,
+- [26:48.040] great city.
+- [26:48.720] >> He called me last night, and And thanked
+- [26:50.440] me for the endorsement. He won. He won
+- [26:52.040] the election. It wasn't He wasn't
+- [26:53.520] anticipated to win.
+- [26:55.480] But he won and he won handily.
+- [26:58.720] It's just an honor. He was just a
+- [27:01.160] good man. I'd watch him
+- [27:03.200] a little bit speak. And he always speak
+- [27:05.560] You know, when people like me, I like
+- [27:07.000] them. It's very simple. It's a very
+- [27:08.800] simple formula and I liked him.
+- [27:11.000] He said really nice things about me and
+- [27:12.840] the job we've done in the United States
+- [27:14.960] and uh
+- [27:16.720] very very powerful.
+- [27:18.600] And he won an election in Colombia that
+- [27:21.920] I don't know. Some people were surprised
+- [27:23.520] cuz he was a little bit further down the
+- [27:25.720] pack, but he won easily last night. He
+- [27:28.280] won by He called me at 8:30 in the
+- [27:30.040] evening
+- [27:31.280] just to thank me very much. And I I said
+- [27:34.280] you ran a great campaign. He said, "I'll
+- [27:36.200] take it right?"
+- [27:36.960] >> Yeah, yeah, he did.
+- [27:38.000] And what do you anticipate for the
+- [27:39.280] relation with Colombia? Colombia is a
+- [27:40.880] >> It's much better. It'll be better. He's
+- [27:42.840] going to be a great president.
+- [27:46.600] >> Are the contractors who did the initial
+- [27:48.640] work with the reflecting pool are they
+- [27:50.560] to blame for the current condition or is
+- [27:51.960] it the vandals that you mentioned
+- [27:54.040] >> Vandals. You know, you know, we have a
+- [27:55.840] hundred and we have a
+- [27:58.120] I think 293 hundred foot slip right
+- [28:01.760] through it probably a box cutter or a
+- [28:03.760] knife of some kind. But we had people
+- [28:06.120] lifting up the basic some of the
+- [28:08.960] It's not a lot of damage, but it's We'll
+- [28:11.680] probably have to let the water out and
+- [28:13.800] refix it. They went in there with with a
+- [28:15.960] knife. Uh
+- [28:17.760] I was just told by the uh
+- [28:20.200] by the people over at parks, they have
+- [28:22.280] five people are arrested and five people
+- [28:25.000] are under investigation right now.
+- [28:27.560] And it's a sad thing. In addition to
+- [28:29.560] that, they
+- [28:30.920] you know, we put brand new beautiful
+- [28:32.400] grass all around. They put these massive
+- [28:34.800] letters on the grass. Uh you probably
+- [28:37.400] know about that, right?
+- [28:39.080] And uh they said 86 47. They probably
+- [28:42.960] got that from the dirty cop. Tell me.
+- [28:45.360] You know, he's a dirty cop, don't you?
+- [28:47.440] Dirty cop. He's a crooked guy.
+- [28:49.520] Uh they destroyed the grass. So, uh
+- [28:52.000] that's a big thing, but we're going to
+- [28:53.600] get it back very soon.
+- [28:55.520] >> National Guard and police have been all
+- [28:57.400] over the mall. How would these vandals
+- [28:59.200] have gotten so close to do something
+- [29:01.000] like that?
+- [29:02.360] >> Do you have any proof of that?
+- [29:03.440] >> we didn't have we didn't have a lot of
+- [29:04.840] them then. Who would think that somebody
+- [29:06.320] would go into a pool and take a knife
+- [29:08.040] and start cutting it?
+- [29:09.080] >> Do you have proof of that that they they
+- [29:10.680] used a knife? Do you have photos or
+- [29:11.960] videos?
+- [29:12.480] >> put it this way. When you have a 350, I
+- [29:15.520] think it's 350, not 250, a 350-ft slit
+- [29:19.880] from one end to the other,
+- [29:22.080] you think that's proof? You think that's
+- [29:23.920] proof?
+- [29:24.400] >> have been done there today looking for
+- [29:25.680] that slit that you mentioned, and
+- [29:27.040] there's no evidence of it.
+- [29:27.960] >> you'd have to do is see the Parks
+- [29:29.240] Department. They'll show it to you. You
+- [29:30.485] [clears throat] see see uh
+- [29:33.600] the secretary.
+- [29:35.240] But I saw it. They cut it. They cut it
+- [29:37.440] very violently. The same thing with the
+- [29:39.520] floor, they cut it.
+- [29:41.280] And then they lifted it. They pulled it.
+- [29:43.320] And that's what it is.
+- [29:45.200] And you know, we've done over 50
+- [29:47.000] monuments uh
+- [29:48.760] Number one, we start with this is now a
+- [29:51.120] safe city. It's a safe as as safe a city
+- [29:53.480] as you're going to get in the country.
+- [29:55.360] And when I came here, it was a very
+- [29:57.200] dangerous city.
+- [29:58.720] Uh and number two, what we did is the
+- [30:00.880] beautification with the parks and the
+- [30:02.520] grass and every the removal of all the
+- [30:04.680] tents.
+- [30:06.040] And this is like a different place. One
+- [30:08.080] of the things we did is over 50
+- [30:10.440] fountains and statues,
+- [30:12.880] most of which were in horrible shape.
+- [30:14.680] All of them were bad, but some were just
+- [30:16.760] absolutely horrible. Graffiti, you
+- [30:18.440] couldn't even see the stone.
+- [30:20.240] They've all been fixed. We also fixed
+- [30:22.640] the uh reflecting pool. In fact, if you
+- [30:25.600] go over there right now, it looks very
+- [30:27.160] good. It's uh up. Uh they put Somebody
+- [30:30.520] said fertilizer in the water. If you put
+- [30:32.280] fertilizer in the water, you get algae.
+- [30:34.520] But uh somebody said they might have put
+- [30:36.240] fertilizer. They did something to create
+- [30:37.920] the algae, but that doesn't matter
+- [30:39.240] because
+- [30:40.240] uh that's been
+- [30:41.840] uh,
+- [30:42.880] purified.
+- [30:44.240] It's dead.
+- [30:45.920] Laying at the bottom, they're taking it
+- [30:47.520] out, they vacuum it out, they vacuum it
+- [30:49.320] very carefully out. And it'll be back to
+- [30:51.760] health pretty soon. We're going to have
+- [30:53.800] to let the water out to fix the water
+- [30:55.640] little There's two little areas, very
+- [30:57.440] little areas where they were cut. And
+- [30:59.520] we'll fix that, but it's not leaking or
+- [31:01.400] anything. It's got a base underneath.
+- [31:03.040] >> Part of what's Part of what's curious
+- [31:04.440] about this situation is we stood here
+- [31:06.400] with you in April when you first
+- [31:08.240] revealed the plans.
+- [31:09.360] >> I said what?
+- [31:10.120] >> In April you showed us pictures of what
+- [31:12.240] you were going to do at the pool and you
+- [31:13.680] said you had a guy who was going to do
+- [31:15.320] it in a week for about a million
+- [31:16.440] dollars.
+- [31:17.160] >> Well,
+- [31:17.680] >> It's been two months since 16 and a half
+- [31:19.360] million dollars.
+- [31:20.080] >> ready? Barack Hussein Obama, have you
+- [31:22.280] ever heard of him?
+- [31:22.960] >> Yeah.
+- [31:23.440] >> He spent two years and over a hundred
+- [31:26.000] million dollars when trying to fix it.
+- [31:28.320] You know what happened to it? Never even
+- [31:29.880] opened.
+- [31:30.440] >> Right.
+- [31:30.760] >> He took [clears throat] the water from
+- [31:31.720] the river, you know about that, right?
+- [31:33.640] It turned out to be putrid and it
+- [31:35.720] destroyed the whole thing. Spent over a
+- [31:37.520] hundred million. Him and Biden together
+- [31:39.800] spent a hundred and forty-seven million
+- [31:41.600] dollars. You know what happened? Never
+- [31:43.840] opened. You don't mention that, right?
+- [31:46.160] >> But the film crew
+- [31:46.560] >> I spent We spent about 10. Many of the
+- [31:49.200] Much of the money we spent are our park
+- [31:51.000] workers. They're there whether you're
+- [31:52.200] They do this or not, as you know. They
+- [31:54.280] work in the park and they're very good
+- [31:55.800] workers. They did a great job.
+- [31:57.760] So, they were going to spend three to
+- [32:00.520] four hundred million dollars, you know
+- [32:02.000] that. And
+- [32:04.000] it was going to take four years. I spent
+- [32:06.840] I spent
+- [32:08.560] about six, seven weeks.
+- [32:11.440] And I spent
+- [32:13.760] probably in terms of outside, probably
+- [32:15.680] 10 million dollars, around 10. They say
+- [32:17.800] 16, but a lot of that is workers that
+- [32:19.880] work for the same thing.
+- [32:21.600] So, they were going to spend 400
+- [32:23.000] million, I spent
+- [32:24.960] 10. They were going to spend four years,
+- [32:28.520] I spent
+- [32:30.040] two months, maybe less.
+- [32:33.000] And I have a better product. Now, I
+- [32:34.760] can't help it if somebody goes in with a
+- [32:36.840] knife and starts
+- [32:38.360] hacking it up. Uh and we also have
+- [32:40.800] pictures of it, you know. We have
+- [32:42.000] pictures.
+- [32:42.480] >> the photos? We've been asking for them.
+- [32:44.080] >> You'll see. You'll see it in court.
+- [32:46.240] You'll see it in court. But all you have
+- [32:47.480] to do is call the police department. Uh
+- [32:49.600] call the Department of Interior and
+- [32:52.240] I don't know if their lawyers will allow
+- [32:53.640] you to speak to them because, you know,
+- [32:55.000] you write fake You write fake news, but
+- [32:57.520] uh call the uh Interior Department. And
+- [33:00.840] I understand they've arrested five
+- [33:02.360] people and they have another five people
+- [33:04.000] that are under investigation.
+- [33:06.600] Uh here's the bottom line.
+- [33:08.680] We made
+- [33:10.440] so much progress in this city, people
+- [33:12.160] don't even recognize it. By the way,
+- [33:13.720] Memphis, Tennessee, crime is down 78% in
+- [33:17.280] a matter of months. It was a hell hole.
+- [33:20.680] Uh
+- [33:21.480] New Orleans, crime is down 79%
+- [33:24.840] and uh they had Mardi Gras. It was the
+- [33:27.080] safest Mardi Gras they've had in 50
+- [33:28.920] years. The governor called me.
+- [33:31.040] Governor Landry called me. Safest Mardi
+- [33:33.200] Gras they've had in
+- [33:34.720] And by the way, Chicago, which is a
+- [33:36.400] shooting field right now,
+- [33:38.160] if the governor would call me, Governor
+- [33:39.800] Pritzker would call me, I would solve
+- [33:41.880] the Chicago problem in 3 4 months, you'd
+- [33:45.360] have virtually
+- [33:46.880] a crime-free city.
+- [33:48.760] We'll remove all of the bad ones. You
+- [33:50.560] have criminals. You have career
+- [33:52.040] criminals who came in through the border
+- [33:53.520] because of Sleepy Joe Biden.
+- [33:55.600] Ever hear of Sleepy Joe Biden? Do you
+- [33:57.000] ever hear of him? He let people come
+- [33:59.240] into this country and we can never
+- [34:01.560] forget that that happened.
+- [34:03.720] Guys like you should never forget that
+- [34:05.720] that happened. They were murderers, drug
+- [34:08.080] dealers, mental patients.
+- [34:10.840] They They took them out of prisons. They
+- [34:12.440] took them out of mental institutions.
+- [34:15.159] You should never forget that that
+- [34:17.200] happened.
+- [34:17.879] >> Mr.
+- [34:18.800] Mr. President, good luck.
+- [34:20.679] >> Let's leave on a nice note.
+- [34:22.879] >> Your meeting with NATO uh
+- [34:25.159] Mark Rutte on Wednesday. You've had
+- [34:27.679] Secretary Hagseth review US presence in
+- [34:30.800] NATO countries.
+- [34:32.320] Talk to us about that conversation. Are
+- [34:33.960] you planning on drawing down US troops?
+- [34:36.159] >> It's NATO basically the question. So,
+- [34:39.560] we have been
+- [34:41.200] a great member of NATO the
+- [34:43.080] in many ways
+- [34:45.000] certainly the predominant member. We
+- [34:46.919] paid trillions of dollars over the
+- [34:49.040] years, not billions, trillions over the
+- [34:50.879] years to protect Europe.
+- [34:52.960] When we wanted to know I didn't need we
+- [34:55.639] didn't need any help at all. I was more
+- [34:58.200] curious than anything else.
+- [35:00.360] So, I said to Pete let's see if they'd
+- [35:01.960] actually come. So, we asked them to come
+- [35:03.680] and they weren't there for us. So, we
+- [35:05.480] spent it's stupid that they weren't.
+- [35:08.000] By the way, Starmer wasn't there. And
+- [35:10.000] you know what? The people of the UK did
+- [35:11.840] not like it that he wasn't there.
+- [35:14.000] Starmer said no.
+- [35:15.640] Starmer said worse than no. He said
+- [35:17.560] we'll be there as soon as you win.
+- [35:20.120] I said we don't need you as soon as we
+- [35:21.600] win.
+- [35:22.920] Before I went in, we called him.
+- [35:25.160] He said, "Oh, wow.
+- [35:27.120] We'll be there." This was not Winston
+- [35:29.280] Churchill would be you know what I
+- [35:30.640] thought I could tell you. But Starmer
+- [35:32.320] said we'll be there right Pete? As soon
+- [35:34.000] as we win. As soon as we win they're
+- [35:36.120] going to come and help us. Okay,
+- [35:38.440] but but you know what? Italy was very
+- [35:40.320] bad. Italy was very bad and other
+- [35:43.040] countries or Germany was very bad. So,
+- [35:45.280] we spent all of this money, probably 600
+- [35:48.720] I think we spent
+- [35:50.760] 600 billion a year, right? Why would say
+- [35:52.720] that? I think the real number
+- [35:55.160] Think of that. The numbers that we spend
+- [35:57.600] are so crazy for NATO and they weren't
+- [36:00.840] there for us.
+- [36:03.160] So, I say to Pete and I say to everybody
+- [36:05.480] else, if we're spending all of this
+- [36:07.400] money, hundreds just hundreds of
+- [36:10.480] millions of dollars to protect them from
+- [36:12.400] Russia
+- [36:13.560] mostly.
+- [36:15.160] Okay, so we're spending hundreds of
+- [36:17.360] millions of dollars
+- [36:19.440] a year.
+- [36:21.040] You know, the case could be made that we
+- [36:22.440] spent all of the money over the years
+- [36:25.000] before me. I cut it I cut it back. But
+- [36:27.840] listen, we spend all of this money
+- [36:30.400] and then when we want to maybe have help
+- [36:32.880] on this on small stuff, this is a small
+- [36:34.560] time. This is not the big one. This is
+- [36:37.440] small potatoes.
+- [36:39.240] They say no, we'd rather not help.
+- [36:41.800] Stupid thing to say because we can say
+- [36:44.080] that to them if we want and we might.
+- [36:49.680] >> It's the one year anniversary of
+- [36:50.960] Operation Midnight Hammer. If you could
+- [36:52.800] go back in time, is there anything you
+- [36:54.120] would do differently?
+- [36:56.040] >> It's the most successful attack that
+- [36:58.080] anyone's ever seen with a bomber that
+- [37:00.360] totally wiped out their nuclear
+- [37:02.440] potential.
+- [37:03.920] Uh if we didn't do that, you'd have no
+- [37:05.760] Israel right now. Israel would not exist
+- [37:07.840] and most of the Middle East would not
+- [37:09.360] exist. They were 2 weeks away from
+- [37:11.400] having a nuclear weapon. If we wouldn't
+- [37:13.560] have done that, Pete, they would have
+- [37:14.880] had a nuclear weapon. You want to say
+- [37:16.160] something about that?
+- [37:17.040] >> Yes, sir. I I didn't I wasn't aware it
+- [37:18.640] was 1 year, but you don't have the
+- [37:20.840] situation we have now, a position of
+- [37:22.760] strength where Iran's going to give up
+- [37:24.280] their nuclear program without Midnight
+- [37:26.240] Hammer, which no other country on planet
+- [37:29.040] Earth could remotely conceivably pull
+- [37:31.040] off uh that from start to finish. 37 7
+- [37:34.040] hours back and forth. Iran never saw it
+- [37:36.880] and every munition, precision munition
+- [37:38.960] that only we make, hit exactly where we
+- [37:41.480] wanted it to because
+- [37:42.520] >> And they knew we were coming and they
+- [37:43.840] could do nothing about it.
+- [37:44.920] >> nothing about it with their air
+- [37:46.000] defenses, which are even further now
+- [37:47.720] degraded. And that's what everyone
+- [37:49.240] misses in the press and the president's
+- [37:50.440] right to call it fake news uh because
+- [37:52.600] the overwhelming military victory that
+- [37:54.920] has been had over Iran is what has set
+- [37:57.400] the conditions for them to be at the
+- [37:59.040] table with our negotiators. And we will
+- [38:01.160] ensure, whether it's through a deal or
+- [38:03.160] through the war department, that they
+- [38:04.240] never get a nuclear weapon because of
+- [38:05.640] this president right here.
+- [38:06.640] >> Okay. Thank you very much.
+- [38:09.640] Thank you very much.
+- [38:10.800] >> Thank you guys. Thank you guys.
+- [38:13.360] Thank you guys. Thank you Thank you
+- [38:15.480] guys. Thank you guys. Thank you.
+- [38:26.440] >> You're fine.
+- [38:32.240] See, Biden can't do that.
+- [38:34.141] >> [laughter]
+- [38:34.520] >> See that arm?
+- [38:35.920] Nice singing. You see, Biden can't do
+- [38:37.360] that.
+- [38:38.360] Oh, look, I'm on camera.
+- [38:40.000] I didn't know.
+- [38:41.200] Biden can't do that.
+- [38:43.160] He used to want a pen. I said, "No,
+- [38:45.400] thanks."
+- [38:46.040] >> Most photographers say
+- [38:47.880] >> Okay.
+- [38:58.680] Okay. Thank you very much, everybody.
+- [39:02.040] Thank you.
+- [39:02.800] >> Thank you, Donald.
+- [39:03.617] >> [applause]
+- [39:04.480] >> Thank you, guys.
+- [39:05.160] >> Thank you very much.
+- [39:06.240] >> Thank you.
+- [39:06.880] >> Thank you for coming.
+- [39:07.760] >> Thank you, guys. Thank you.
