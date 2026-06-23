@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 8
+- Posts: 11
 
+- [11:44 UTC - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gi...](116799245997909499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116799245997909499
+  - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gizzi/donald- trump-latin-america-elections/2026/06/22/id/1260532/](https://www.newsmax.com/...
+- [11:24 UTC - 19 Millions Barrels of Oil flowed out of the Hormuz Strait yesterday, an all time RECORD. ...](116799167032916635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116799167032916635
+  - 19 Millions Barrels of Oil flowed out of the Hormuz Strait yesterday, an all time RECORD. Oil prices are tumbling down, and the World is a much safer place!!! President DONALD J. T...
+- [11:20 UTC - Despite their protestations and false statements to the contrary, coupled with the drumbea...](116799154100072125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116799154100072125
+  - Despite their protestations and false statements to the contrary, coupled with the drumbeat of the Fake News, which is doing everything possible to make the U.S. Victory as small a...
 - [04:14 UTC - At least 39 people injured, 4 dead, in Chicago weekend shootings. Governor Pritzker, I, as...](116797477878659134/)
   - Source: https://truthsocial.com/@realDonaldTrump/116797477878659134
   - At least 39 people injured, 4 dead, in Chicago weekend shootings. Governor Pritzker, I, as President, can fix this, FAST and Permanently. D.C., Memphis, New Orleans, all down to re...
