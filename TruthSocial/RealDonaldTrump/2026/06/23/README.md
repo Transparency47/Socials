@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 11
+- Posts: 13
 
+- [13:36 UTC - The GREAT Rush Limbaugh’s wonderful wife, Kathryn, was fantastic today on Fox & Friends, a...](116799685479849509/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116799685479849509
+  - The GREAT Rush Limbaugh’s wonderful wife, Kathryn, was fantastic today on Fox & Friends, as interviewed by Ainsley. We all miss Rush, truly one of a kind!!! President DJT
+- [13:19 UTC - Vote for Andy Biggs for Arizona Governor. He is GREAT!!! President DJT](116799620438726718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116799620438726718
+  - Vote for Andy Biggs for Arizona Governor. He is GREAT!!! President DJT
 - [11:44 UTC - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gi...](116799245997909499/)
   - Source: https://truthsocial.com/@realDonaldTrump/116799245997909499
   - Trump Scores 8 Triumphs in 7 Years Across Latin America: [https://www. newsmax.com/john-gizzi/donald- trump-latin-america-elections/2026/06/22/id/1260532/](https://www.newsmax.com/...
