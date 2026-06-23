@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 16
+- Posts: 17
 
+- [18:26 UTC - [https://www. dailymail.com/news/article-159 21233/trump-approval-bounces-iran-deal.html](...](116800828536496774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116800828536496774
+  - [https://www. dailymail.com/news/article-159 21233/trump-approval-bounces-iran-deal.html](https://www.dailymail.com/news/article-15921233/trump-approval-bounces-iran-deal.html)
 - [14:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116800007587633396 These pictur...](116800008619522183/)
   - Source: https://truthsocial.com/@realDonaldTrump/116800008619522183
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116800007587633396 These pictures were taken this morning!

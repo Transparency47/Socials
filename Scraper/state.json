@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=tsj3HefOMxA: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=tsj3HefOMxA! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9671,6 +9672,17 @@
       "published": "2026-06-23T02:10:43+00:00",
       "title": "Dems rlly do love criminal illegals more than any stupid song could say",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7654407454654090509"
+    },
+    "tiktok:whitehouse:7654665354685271327": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T19:18:57.155685+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/23/7654665354685271327",
+      "platform": "tiktok",
+      "post_id": "7654665354685271327",
+      "published": "2026-06-23T18:51:22+00:00",
+      "title": "AMERICA IS BACK \ud83c\uddfa\ud83c\uddf8 see you tomorrow at the State Fair Kick Off Celebration!",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7654665354685271327"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -117823,6 +117835,17 @@
       "published": "2026-06-23T14:58:14.200000+00:00",
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116800007587633396 These pictur...",
       "url": "https://truthsocial.com/@realDonaldTrump/116800008619522183"
+    },
+    "truthsocial:realdonaldtrump:116800828536496774": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-23T19:18:42.086599+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/23/116800828536496774",
+      "platform": "truthsocial",
+      "post_id": "116800828536496774",
+      "published": "2026-06-23T18:26:44.964000+00:00",
+      "title": "[https://www. dailymail.com/news/article-159 21233/trump-approval-bounces-iran-deal.html](...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116800828536496774"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
