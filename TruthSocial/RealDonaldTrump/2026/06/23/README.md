@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-23
 
-- Posts: 13
+- Posts: 16
 
+- [14:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116800007587633396 These pictur...](116800008619522183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116800008619522183
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116800007587633396 These pictures were taken this morning!
+- [14:57 UTC - Truth Social post 116800007587633396](116800007587633396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116800007587633396
+  - _No text content captured._
+- [14:56 UTC - Six people have been arrested, and seven people have been cited, for the damage they did t...](116800002761284625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116800002761284625
+  - Six people have been arrested, and seven people have been cited, for the damage they did to our Country’s now beautiful Reflecting Pool. The 350 foot gash, made by a very sharp kni...
 - [13:36 UTC - The GREAT Rush Limbaugh’s wonderful wife, Kathryn, was fantastic today on Fox & Friends, a...](116799685479849509/)
   - Source: https://truthsocial.com/@realDonaldTrump/116799685479849509
   - The GREAT Rush Limbaugh’s wonderful wife, Kathryn, was fantastic today on Fox & Friends, as interviewed by Ainsley. We all miss Rush, truly one of a kind!!! President DJT
