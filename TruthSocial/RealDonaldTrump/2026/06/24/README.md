@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-24
 
-- Posts: 26
+- Posts: 30
 
+- [13:49 UTC - The Elizabeth “Pocahontas” Warren centric housing bill, which is of minor importance compa...](116805400052068772/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805400052068772
+  - The Elizabeth “Pocahontas” Warren centric housing bill, which is of minor importance compared to lower interest rates, and even FISA, pales in comparison to passing THE SAVE AMERIC...
+- [12:30 UTC - Big Rally tonight on the National Mall. Fantastic Music!!! MAGA!!! FUN!!! Be there at 7:00...](116805090200626611/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805090200626611
+  - Big Rally tonight on the National Mall. Fantastic Music!!! MAGA!!! FUN!!! Be there at 7:00 P.M. President DJT
+- [12:08 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116805002780051143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805002780051143
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [12:07 UTC - Even though he tried unsuccessfully to prosecute me, and despite the fact that he is a maj...](116804998509920399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116804998509920399
+  - Even though he tried unsuccessfully to prosecute me, and despite the fact that he is a major Slimeball, I feel sorry for FORMER Congressman Dan Goldman. He is wandering aimlessly,...
 - [11:37 UTC - Iran has informed the U.S. that, despite troublemaking Fake News reporting to the contrary...](116804880689253931/)
   - Source: https://truthsocial.com/@realDonaldTrump/116804880689253931
   - Iran has informed the U.S. that, despite troublemaking Fake News reporting to the contrary, there are “NO TOLLS, NO INSURANCE COSTS, & NO OTHER CHARGES OF ANY KIND BEING SOUGHT OR...
