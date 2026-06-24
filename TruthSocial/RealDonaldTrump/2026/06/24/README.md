@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-24
 
-- Posts: 25
+- Posts: 26
 
+- [11:37 UTC - Iran has informed the U.S. that, despite troublemaking Fake News reporting to the contrary...](116804880689253931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116804880689253931
+  - Iran has informed the U.S. that, despite troublemaking Fake News reporting to the contrary, there are “NO TOLLS, NO INSURANCE COSTS, & NO OTHER CHARGES OF ANY KIND BEING SOUGHT OR...
 - [06:38 UTC - America the Beautiful will NEVER be a Communist Country!!! President DJT](116803704330293684/)
   - Source: https://truthsocial.com/@realDonaldTrump/116803704330293684
   - America the Beautiful will NEVER be a Communist Country!!! President DJT
