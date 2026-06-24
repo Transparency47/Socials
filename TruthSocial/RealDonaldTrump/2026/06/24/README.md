@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-24
 
-- Posts: 24
+- Posts: 25
 
+- [06:38 UTC - America the Beautiful will NEVER be a Communist Country!!! President DJT](116803704330293684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116803704330293684
+  - America the Beautiful will NEVER be a Communist Country!!! President DJT
 - [04:12 UTC - The big Oil Companies are not dropping their price at the pump commensurate with the sharp...](116803130747198847/)
   - Source: https://truthsocial.com/@realDonaldTrump/116803130747198847
   - The big Oil Companies are not dropping their price at the pump commensurate with the sharply lower prices they are paying for Oil. Those prices are dropping like a rock! In other w...
