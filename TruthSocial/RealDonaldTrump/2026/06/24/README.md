@@ -1,7 +1,46 @@
 # TruthSocial / RealDonaldTrump / 2026-06-24
 
-- Posts: 11
+- Posts: 24
 
+- [04:12 UTC - The big Oil Companies are not dropping their price at the pump commensurate with the sharp...](116803130747198847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116803130747198847
+  - The big Oil Companies are not dropping their price at the pump commensurate with the sharply lower prices they are paying for Oil. Those prices are dropping like a rock! In other w...
+- [03:52 UTC - Many Communists running in badly failing Blue States. The votes seem to have them doing qu...](116803051885813542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116803051885813542
+  - Many Communists running in badly failing Blue States. The votes seem to have them doing quite well against each other. The bad news is that history has conclusively shown that the...
+- [03:02 UTC - Weak and pathetic Congressman Dan Goldman just lost, BIG! I guess people didn’t like him i...](116802857184219655/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802857184219655
+  - Weak and pathetic Congressman Dan Goldman just lost, BIG! I guess people didn’t like him illegally targeting President TRUMP. In any event, this jerk is finally GONE! President DJT
+- [02:52 UTC - Wow, Mr. Kellyanne Conway, a Trump Deranged Loser at the highest level, is getting absolut...](116802818595314334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802818595314334
+  - Wow, Mr. Kellyanne Conway, a Trump Deranged Loser at the highest level, is getting absolutely CRUSHED in the Primaries tonight. He’ll end up at about 5% of the vote in a rather wea...
+- [02:39 UTC - So, I have Iran on the “ropes,” ready to go down for the fall, willing to give us practica...](116802765132974094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802765132974094
+  - So, I have Iran on the “ropes,” ready to go down for the fall, willing to give us practically anything, and for the first time in decades, respecting the hell out of the United Sta...
+- [02:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116802722830895187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802722830895187
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [02:28 UTC - Truth Social post 116802721684133999](116802721684133999/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802721684133999
+  - _No text content captured._
+- [02:28 UTC - Truth Social post 116802721061293373](116802721061293373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802721061293373
+  - _No text content captured._
+- [02:27 UTC - Truth Social post 116802720404485800](116802720404485800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802720404485800
+  - _No text content captured._
+- [02:27 UTC - Truth Social post 116802719640358608](116802719640358608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802719640358608
+  - _No text content captured._
+- [01:52 UTC - Truth Social post 116802583022422332](116802583022422332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802583022422332
+  - _No text content captured._
+- [01:52 UTC - Truth Social post 116802582429917059](116802582429917059/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802582429917059
+  - _No text content captured._
+- [01:52 UTC - Truth Social post 116802581669315992](116802581669315992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802581669315992
+  - _No text content captured._
 - [01:22 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116802462702290667/)
   - Source: https://truthsocial.com/@realDonaldTrump/116802462702290667
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
