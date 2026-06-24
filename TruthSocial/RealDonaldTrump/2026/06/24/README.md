@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-24
 
-- Posts: 30
+- Posts: 35
 
+- [15:18 UTC - This is the hard rubber surface — No Paint — Before the Vandals cut and pulled it apart!](116805750630335427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805750630335427
+  - This is the hard rubber surface — No Paint — Before the Vandals cut and pulled it apart!
+- [15:17 UTC - Truth Social post 116805748243351808](116805748243351808/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805748243351808
+  - _No text content captured._
+- [14:26 UTC - Today’s Housing News Conference and Signing is hereby cancelled until such time as we pass...](116805545512296111/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805545512296111
+  - Today’s Housing News Conference and Signing is hereby cancelled until such time as we pass the desperately needed SAVE AMERICA ACT, which I consider to be a National Emergency. Tha...
+- [14:17 UTC - MY REAL POLL NUMBERS ARE THE HIGHEST THEY HAVE EVER BEEN. THANK YOU!!! President DJT](116805510184370677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805510184370677
+  - MY REAL POLL NUMBERS ARE THE HIGHEST THEY HAVE EVER BEEN. THANK YOU!!! President DJT
+- [14:15 UTC - Mayor Mamdani pulled through 3 solid Communists, and has received loud and universal appla...](116805503768093822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116805503768093822
+  - Mayor Mamdani pulled through 3 solid Communists, and has received loud and universal applause from the Fake News Media. Congratulations Mr. Mayor! I went 16-0 last night, helping t...
 - [13:49 UTC - The Elizabeth “Pocahontas” Warren centric housing bill, which is of minor importance compa...](116805400052068772/)
   - Source: https://truthsocial.com/@realDonaldTrump/116805400052068772
   - The Elizabeth “Pocahontas” Warren centric housing bill, which is of minor importance compared to lower interest rates, and even FISA, pales in comparison to passing THE SAVE AMERIC...
