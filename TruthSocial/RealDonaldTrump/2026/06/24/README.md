@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2026-06-24
+
+- Posts: 11
+
+- [01:22 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116802462702290667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802462702290667
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [01:22 UTC - Truth Social post 116802461544961412](116802461544961412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802461544961412
+  - _No text content captured._
+- [01:21 UTC - Truth Social post 116802459363870357](116802459363870357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802459363870357
+  - _No text content captured._
+- [01:21 UTC - Truth Social post 116802458701910307](116802458701910307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802458701910307
+  - _No text content captured._
+- [01:21 UTC - Truth Social post 116802457932140979](116802457932140979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802457932140979
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 116802457179980574](116802457179980574/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802457179980574
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 116802456666292957](116802456666292957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802456666292957
+  - _No text content captured._
+- [01:20 UTC - Truth Social post 116802455893272945](116802455893272945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802455893272945
+  - _No text content captured._
+- [00:43 UTC - Truth Social post 116802308373747191](116802308373747191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802308373747191
+  - _No text content captured._
+- [00:19 UTC - Truth Social post 116802216796370297](116802216796370297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802216796370297
+  - _No text content captured._
+- [00:19 UTC - Truth Social post 116802213726687922](116802213726687922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116802213726687922
+  - _No text content captured._
