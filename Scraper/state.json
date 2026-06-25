@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=pKgR9ugan1Q: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=pKgR9ugan1Q! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9727,6 +9727,17 @@
       "published": "2026-06-24T17:10:48+00:00",
       "title": "We tried to tell y\u2019all. America is so back \ud83c\uddfa\ud83c\uddf8\ud83d\ude24",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7655010478271335694"
+    },
+    "tiktok:whitehouse:7655172355760688398": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:23:41.887126+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/25/7655172355760688398",
+      "platform": "tiktok",
+      "post_id": "7655172355760688398",
+      "published": "2026-06-25T03:38:40+00:00",
+      "title": "Patriots are in control \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7655172355760688398"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -118352,6 +118363,105 @@
       "published": "2026-06-24T15:18:30.220000+00:00",
       "title": "This is the hard rubber surface \u2014 No Paint \u2014 Before the Vandals cut and pulled it apart!",
       "url": "https://truthsocial.com/@realDonaldTrump/116805750630335427"
+    },
+    "truthsocial:realdonaldtrump:116808128226184079": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.773422+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808128226184079",
+      "platform": "truthsocial",
+      "post_id": "116808128226184079",
+      "published": "2026-06-25T01:23:09.454000+00:00",
+      "title": "Truth Social post 116808128226184079",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808128226184079"
+    },
+    "truthsocial:realdonaldtrump:116808419683018774": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.773190+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808419683018774",
+      "platform": "truthsocial",
+      "post_id": "116808419683018774",
+      "published": "2026-06-25T02:37:16.734000+00:00",
+      "title": "Truth Social post 116808419683018774",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808419683018774"
+    },
+    "truthsocial:realdonaldtrump:116808421221587297": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.772955+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808421221587297",
+      "platform": "truthsocial",
+      "post_id": "116808421221587297",
+      "published": "2026-06-25T02:37:40.237000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808419683018774",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808421221587297"
+    },
+    "truthsocial:realdonaldtrump:116808568420301784": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.772603+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808568420301784",
+      "platform": "truthsocial",
+      "post_id": "116808568420301784",
+      "published": "2026-06-25T03:15:06.253000+00:00",
+      "title": "Wow! The Senate just changed its vote on Iran from 50-48 against, to 50-47 for. Rand Paul ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808568420301784"
+    },
+    "truthsocial:realdonaldtrump:116808579545638198": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.772317+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808579545638198",
+      "platform": "truthsocial",
+      "post_id": "116808579545638198",
+      "published": "2026-06-25T03:17:55.978000+00:00",
+      "title": "[https://www. breitbart.com/politics/2026/06 /06/exclusive-bernie-moreno-embarrassing-cong...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808579545638198"
+    },
+    "truthsocial:realdonaldtrump:116808605851125876": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.771864+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808605851125876",
+      "platform": "truthsocial",
+      "post_id": "116808605851125876",
+      "published": "2026-06-25T03:24:37.433000+00:00",
+      "title": "Truth Social post 116808605851125876",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808605851125876"
+    },
+    "truthsocial:realdonaldtrump:116808606748078967": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.771576+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808606748078967",
+      "platform": "truthsocial",
+      "post_id": "116808606748078967",
+      "published": "2026-06-25T03:24:51.148000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808605851125876",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808606748078967"
+    },
+    "truthsocial:realdonaldtrump:116808607334375489": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.771230+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808607334375489",
+      "platform": "truthsocial",
+      "post_id": "116808607334375489",
+      "published": "2026-06-25T03:25:00+00:00",
+      "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Wow! The Senate just chan...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808607334375489"
+    },
+    "truthsocial:realdonaldtrump:116808686040715251": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T04:22:57.770696+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116808686040715251",
+      "platform": "truthsocial",
+      "post_id": "116808686040715251",
+      "published": "2026-06-25T03:45:00.999000+00:00",
+      "title": "The two major earthquakes that just hit the great people of Venezuela are both massive in ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116808686040715251"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

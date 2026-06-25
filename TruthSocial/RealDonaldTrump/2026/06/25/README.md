@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2026-06-25
+
+- Posts: 9
+
+- [03:45 UTC - The two major earthquakes that just hit the great people of Venezuela are both massive in ...](116808686040715251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808686040715251
+  - The two major earthquakes that just hit the great people of Venezuela are both massive in scale and have left a devastating number of deaths. The U.S.A. stands ready, willing, and...
+- [03:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Wow! The Senate just chan...](116808607334375489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808607334375489
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Wow! The Senate just changed its vote on Iran from 50-48 against, to 50-47 for. Rand Paul and Bill Cassidy changed....
+- [03:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808605851125876](116808606748078967/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808606748078967
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808605851125876
+- [03:24 UTC - Truth Social post 116808605851125876](116808605851125876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808605851125876
+  - _No text content captured._
+- [03:17 UTC - [https://www. breitbart.com/politics/2026/06 /06/exclusive-bernie-moreno-embarrassing-cong...](116808579545638198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808579545638198
+  - [https://www. breitbart.com/politics/2026/06 /06/exclusive-bernie-moreno-embarrassing-congress-cant-pass-save-america-act/](https://www.breitbart.com/politics/2026/06/06/exclusive-...
+- [03:15 UTC - Wow! The Senate just changed its vote on Iran from 50-48 against, to 50-47 for. Rand Paul ...](116808568420301784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808568420301784
+  - Wow! The Senate just changed its vote on Iran from 50-48 against, to 50-47 for. Rand Paul and Bill Cassidy changed. Thank you to Leader John Thune, Lindsey Graham, Bernie Moreno, a...
+- [02:37 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808419683018774](116808421221587297/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808421221587297
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116808419683018774
+- [02:37 UTC - Truth Social post 116808419683018774](116808419683018774/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808419683018774
+  - _No text content captured._
+- [01:23 UTC - Truth Social post 116808128226184079](116808128226184079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116808128226184079
+  - _No text content captured._
