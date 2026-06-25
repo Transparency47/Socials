@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-25
 
-- Posts: 10
+- Posts: 11
 
+- [17:47 UTC - The Crowd was incredible last night, packed to the brim — At least 45,000 people were ther...](116812000049397183/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116812000049397183
+  - The Crowd was incredible last night, packed to the brim — At least 45,000 people were there, with a huge Television and online audience. I wish we were able to have an even larger...
 - [09:30 UTC - After testy exchange, Senate hands Trump win by rejecting bill to rein in his war on Iran:...](116810046344255729/)
   - Source: https://truthsocial.com/@realDonaldTrump/116810046344255729
   - After testy exchange, Senate hands Trump win by rejecting bill to rein in his war on Iran: [https:// justthenews.com/government/con gress/after-testy-exchange-senate-hands-trump-wi...
