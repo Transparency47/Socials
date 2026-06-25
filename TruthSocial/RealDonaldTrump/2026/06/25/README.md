@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-25
 
-- Posts: 9
+- Posts: 10
 
+- [09:30 UTC - After testy exchange, Senate hands Trump win by rejecting bill to rein in his war on Iran:...](116810046344255729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116810046344255729
+  - After testy exchange, Senate hands Trump win by rejecting bill to rein in his war on Iran: [https:// justthenews.com/government/con gress/after-testy-exchange-senate-hands-trump-wi...
 - [03:45 UTC - The two major earthquakes that just hit the great people of Venezuela are both massive in ...](116808686040715251/)
   - Source: https://truthsocial.com/@realDonaldTrump/116808686040715251
   - The two major earthquakes that just hit the great people of Venezuela are both massive in scale and have left a devastating number of deaths. The U.S.A. stands ready, willing, and...
