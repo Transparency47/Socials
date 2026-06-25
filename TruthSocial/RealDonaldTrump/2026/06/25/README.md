@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-25
 
-- Posts: 12
+- Posts: 15
 
+- [22:53 UTC - It is my Great Honor to announce the nomination of Chris Klomp [@ 1klomp](https://truthsoc...](116813202769287423/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116813202769287423
+  - It is my Great Honor to announce the nomination of Chris Klomp [@ 1klomp](https://truthsocial.com/@1klomp) as our next Deputy Secretary of Health and Human Services (HHS)! His rapi...
+- [22:46 UTC - The Communists are finally making their move. I’ve been waiting and preparing for this for...](116813173401388945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116813173401388945
+  - The Communists are finally making their move. I’ve been waiting and preparing for this for a long time. It’s easy to be a Communist — All you have to do is say, “I’ll give you ever...
+- [22:29 UTC - Last night’s Rally was packed — 45,000 people. July 4th will be a step beyond anything you...](116813106147178492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116813106147178492
+  - Last night’s Rally was packed — 45,000 people. July 4th will be a step beyond anything you’ve ever seen. The Military flyovers will be the best, EVER — The most planes, the newest...
 - [20:41 UTC - House Republicans should unify, and stop voting down “Rules” or, threatening to do so. Giv...](116812682074393050/)
   - Source: https://truthsocial.com/@realDonaldTrump/116812682074393050
   - House Republicans should unify, and stop voting down “Rules” or, threatening to do so. Giving power to the Radical Left Dumocrats in the House to control what goes up for a Vote wi...

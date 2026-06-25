@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/lv4B21DLEPw: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=lv4B21DLEPw! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=lv4B21DLEPw&ei=rKQ9arztJ76BkucPksjc6As&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782449948&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=8C656BF027E6A3C617085F5CD2FB58689E61B61D.321044A3DBB4A808470B29661707836A292133B4&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=wKPfRh-odmM: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=wKPfRh-odmM! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -118517,6 +118517,39 @@
       "published": "2026-06-25T20:41:15.598000+00:00",
       "title": "House Republicans should unify, and stop voting down \u201cRules\u201d or, threatening to do so. Giv...",
       "url": "https://truthsocial.com/@realDonaldTrump/116812682074393050"
+    },
+    "truthsocial:realdonaldtrump:116813106147178492": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T23:20:08.945805+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116813106147178492",
+      "platform": "truthsocial",
+      "post_id": "116813106147178492",
+      "published": "2026-06-25T22:29:06.438000+00:00",
+      "title": "Last night\u2019s Rally was packed \u2014 45,000 people. July 4th will be a step beyond anything you...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813106147178492"
+    },
+    "truthsocial:realdonaldtrump:116813173401388945": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T23:20:08.945488+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116813173401388945",
+      "platform": "truthsocial",
+      "post_id": "116813173401388945",
+      "published": "2026-06-25T22:46:12.653000+00:00",
+      "title": "The Communists are finally making their move. I\u2019ve been waiting and preparing for this for...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813173401388945"
+    },
+    "truthsocial:realdonaldtrump:116813202769287423": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-25T23:20:08.945092+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/25/116813202769287423",
+      "platform": "truthsocial",
+      "post_id": "116813202769287423",
+      "published": "2026-06-25T22:53:40.766000+00:00",
+      "title": "It is my Great Honor to announce the nomination of Chris Klomp [@ 1klomp](https://truthsoc...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813202769287423"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
