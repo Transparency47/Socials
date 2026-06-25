@@ -1,0 +1,111 @@
+<!-- source: https://www.youtube.com/watch?v=NCUOLzVegL4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NCUOLzVegL4 -->
+<!-- date_published: 2026-06-24T16:50:14+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:57.420075+00:00 -->
+
+# Transcript: Road to Liberty: The Ride of Paul Revere
+
+- [00:01.040] You've seen the picture.
+- [00:02.760] One rider, one sleeping town, one
+- [00:06.200] mission.
+- [00:07.400] But that legendary night was about more
+- [00:09.760] than just one man.
+- [00:14.960] Dr. Warren received word the British
+- [00:16.720] were marching northwest to Lexington to
+- [00:18.800] capture Sam Adams and Hancock and push
+- [00:21.240] through to Concord to destroy the
+- [00:22.920] stockpile of patriot munitions.
+- [00:27.280] They would snuff out a rebellion before
+- [00:29.480] it could spark a revolution.
+- [00:32.720] Someone needed to get there first to
+- [00:34.600] warn them. So,
+- [00:37.520] they sent for me.
+- [00:41.840] To most folks in Boston,
+- [00:43.680] I was a silversmith.
+- [00:48.000] But to the Sons of Liberty,
+- [00:50.160] I was their courier.
+- [00:54.000] One with enough experience to ride
+- [00:55.600] swiftly and evade the dangers that lie
+- [00:57.960] ahead that night.
+- [01:02.000] But to be safe, Dr. Warren called upon a
+- [01:04.440] Mr. Dawes to take a longer, much safer
+- [01:07.080] route through the Boston neck.
+- [01:09.400] If one of us was stopped,
+- [01:11.440] the other had to get through.
+- [01:16.800] The code was simple. One lantern if they
+- [01:18.960] marched out by land,
+- [01:21.280] two if they crossed the river by sea.
+- [01:32.000] The signal,
+- [01:33.200] undetected by the British soldiers,
+- [01:35.600] but clear to those who needed it.
+- [01:43.960] That night,
+- [01:45.640] the moon shone bright enough to
+- [01:47.160] illuminate the dangers hiding in the
+- [01:49.240] shadows.
+- [01:57.480] >> You there.
+- [02:00.680] Stop.
+- [02:02.486] >> [music]
+- [02:11.656] [music]
+- [02:18.861] [music]
+- [02:30.651] [music]
+- [02:37.856] [music]
+- [02:44.160] >> I had to change course.
+- [02:46.720] Adding more time to my route, when every
+- [02:49.480] second counted.
+- [02:51.680] They weren't just marching now.
+- [02:53.800] They were hunting.
+- [02:59.640] The regulars are coming out.
+- [03:06.840] I was careful not to alert loyalists.
+- [03:10.160] For every house I stopped to warn,
+- [03:13.360] the redcoats continued their march.
+- [03:17.239] And I alarmed almost every house on the
+- [03:19.920] way to Lexington.
+- [03:23.480] >> Quiet. Don't make so much noise.
+- [03:27.320] >> Noise?
+- [03:28.720] You'll have noise enough before long.
+- [03:31.239] THE REGULARS ARE COMING OUT.
+- [03:38.360] THE FIRST MISSION WAS ACCOMPLISHED.
+- [03:41.200] Hancock and Adams had been warned.
+- [03:44.560] But the redcoats
+- [03:46.480] were still coming.
+- [03:53.959] Much to my surprise, relief, Dawes had
+- [03:57.360] made it. And for one dangerous
+- [03:59.560] heartbeat,
+- [04:00.387] >> [sighs]
+- [04:01.280] >> it felt like we'd beaten them.
+- [04:04.360] Message delivered, but Lexington wasn't
+- [04:06.680] the only target.
+- [04:08.240] Concord was still ahead.
+- [04:13.240] By good fortune, we were joined by
+- [04:15.240] fellow patriot Dr. Prescott.
+- [04:18.160] He knew these roads the way a sailor
+- [04:20.160] knows the stars.
+- [04:24.480] >> Bastards! Stop!
+- [04:26.160] If you go an inch further, you are a
+- [04:29.040] dead man!
+- [04:30.880] >> That's the trick of a night chase.
+- [04:33.240] You don't hear the hunters
+- [04:35.640] until they're already beside you.
+- [04:39.160] With a daring leap,
+- [04:40.840] Prescott cleared the wall,
+- [04:42.919] allowing Dawes to break free,
+- [04:45.360] and leaving me to try to buy more time.
+- [04:48.120] >> If you don't tell the truth,
+- [04:50.080] I'll blow your brains out.
+- [04:54.640] >> He wanted answers. Where I'd come from,
+- [04:57.520] when I left, who I was.
+- [05:00.280] Not easy to answer
+- [05:02.080] with a pistol in your face.
+- [05:11.240] They had stopped the rider,
+- [05:13.680] but they couldn't stop the warning.
+- [05:17.280] Town to town,
+- [05:18.840] the countryside woke before the army
+- [05:20.953] [music] arrived.
+- [05:22.480] The message
+- [05:23.680] was already loose.
+- [05:25.840] Thanks not just to one man on one horse,
+- [05:28.680] but to many men uniting
+- [05:31.880] for one cause.
+- [05:54.360] >> Mhm.

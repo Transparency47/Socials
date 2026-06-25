@@ -1,0 +1,126 @@
+<!-- source: https://www.youtube.com/watch?v=zdD9VL-FE4U -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: zdD9VL-FE4U -->
+<!-- date_published: 2026-06-24T17:06:29+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:54.969402+00:00 -->
+
+# Transcript: Road to Liberty: The Boston Tea Party, America's Greatest Heist
+
+- [00:00.654] [music]
+- [00:01.160] >> They tell this story as if it were a
+- [00:02.720] riot.
+- [00:06.120] A crowd that lost control.
+- [00:08.515] >> [music]
+- [00:09.360] >> But nothing about that night was chaos.
+- [00:14.280] It was the perfect plan.
+- [00:17.030] >> [music]
+- [00:23.000] >> When the Dartmouth glided into Boston
+- [00:24.480] Harbor, she brought with her the first
+- [00:26.280] tea under the Tea Act. Taxed by
+- [00:28.360] Parliament without our consent. No vote,
+- [00:31.600] no seat,
+- [00:32.880] no say.
+- [00:36.760] >> DROP ANCHOR.
+- [00:39.600] >> That's what we meant when we said,
+- [00:41.440] "No taxation without representation."
+- [00:44.120] They weren't just empty words.
+- [00:45.880] It was a line we refused to let them
+- [00:47.800] cross.
+- [00:51.480] Granted, the tea was [music] cheaper.
+- [00:53.680] With a tax buried inside.
+- [00:56.400] If even one chest was landed,
+- [00:59.400] that tax was owed.
+- [01:01.480] The law gave us 20 days before customs
+- [01:03.535] [music] men could seize the cargo,
+- [01:05.720] unload the tea themselves,
+- [01:07.600] and collect the tax by force.
+- [01:10.240] So, we waited,
+- [01:11.920] petitioned,
+- [01:13.440] hoped for the men [music] who sold the
+- [01:14.600] tea to step aside,
+- [01:16.240] or for the governor to intervene.
+- [01:18.800] >> The governor will not send the ships
+- [01:21.320] back.
+- [01:23.160] The consignees will not resign.
+- [01:31.360] >> Every plan has a mastermind.
+- [01:33.760] And this plan was as wild as the
+- [01:35.280] mastermind himself.
+- [01:37.000] Now, I [music] won't name names. Secrecy
+- [01:40.080] was essential for success.
+- [01:42.560] >> These meetings can do nothing more
+- [01:46.200] to save the country.
+- [01:48.280] >> But what are we to do?
+- [01:52.600] >> You're to sneak onto a ship and rob the
+- [01:54.880] British East India Company?
+- [01:58.880] >> No.
+- [02:00.440] I want you to hit all three.
+- [02:05.040] >> The plan was to hit the Dartmouth, the
+- [02:06.840] Eleanor, and the Beaver.
+- [02:09.280] Three ships, one cargo.
+- [02:11.800] 342 chests.
+- [02:14.360] Parliament's answer to resistance.
+- [02:17.360] Nearly 10,000 lb sterling.
+- [02:19.959] A fortune floating in our harbor.
+- [02:24.000] A loss
+- [02:25.600] that would hit them where it hurt.
+- [02:28.686] >> [cheering]
+- [02:30.080] >> You don't take a fortune with a mob.
+- [02:33.640] You build a crew.
+- [02:36.280] Strong arms.
+- [02:37.840] Steady hands.
+- [02:39.480] The chests [music] needed breaking.
+- [02:41.200] They'd do it clean.
+- [02:44.040] New cargo knew how ships [music] were
+- [02:45.840] loaded.
+- [02:47.280] And how fast they could be emptied.
+- [02:52.440] And me.
+- [02:54.480] The shoemaker by trade.
+- [02:56.720] But boatswain of the Dartmouth.
+- [03:08.642] >> [music]
+- [03:13.080] >> If Parliament didn't want [music] to
+- [03:14.000] view us as Englishmen,
+- [03:16.120] then we would cease to be Englishmen.
+- [03:20.680] Disguises that served as a symbol.
+- [03:29.720] Soldiers had been pulled back to the
+- [03:31.040] fort.
+- [03:32.280] That gave us a window.
+- [03:34.120] 3 hours. Get in, toss the chests, get
+- [03:37.519] out.
+- [03:39.040] >> We must be organized.
+- [03:41.080] >> The rules were set before we touched
+- [03:42.060] [music] the ship.
+- [03:44.360] No drinking.
+- [03:46.720] No fighting.
+- [03:47.840] >> Oh, come on.
+- [03:49.400] >> No damage,
+- [03:50.680] but to the tea.
+- [03:56.457] >> [music]
+- [03:58.960] >> Your key, sir.
+- [04:04.440] To the tea chests.
+- [04:13.120] The job
+- [04:14.440] was smooth sailing.
+- [04:22.520] >> Come on.
+- [04:24.960] You stupid lock.
+- [04:34.040] >> Smash the crates.
+- [04:38.640] Dump the tea.
+- [04:46.120] >> They were close enough to see us if they
+- [04:47.480] looked.
+- [04:48.680] Close enough to be on us in minutes if
+- [04:50.880] an order was given.
+- [04:52.360] One shout from the wharf, one signal
+- [04:54.400] from the fort,
+- [04:55.760] and the night would end in irons
+- [04:58.640] or blood.
+- [05:01.320] But for 3 hours,
+- [05:03.880] the king's guns
+- [05:05.760] stayed silent.
+- [05:08.280] We left with nothing but wet clothes
+- [05:11.240] and a message the crown couldn't ignore.
+- [05:15.200] That night,
+- [05:16.600] Boston Harbor was our vault.
+- [05:20.320] We didn't steal the tea.
+- [05:23.000] We destroyed the rule [music]
+- [05:24.919] it carried with it.
+- [05:31.433] >> [music]
+- [05:36.673] [music]

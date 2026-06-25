@@ -1,0 +1,134 @@
+<!-- source: https://www.youtube.com/watch?v=9yJsAXUoS-8 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 9yJsAXUoS-8 -->
+<!-- date_published: 2026-06-24T17:21:20+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:52.484478+00:00 -->
+
+# Transcript: Road to Liberty: Boston Massacre
+
+- [00:00.000] This is how Boston would remember it.
+- [00:04.880] Soldiers in our streets, colonists
+- [00:07.400] bleeding in the snow.
+- [00:09.840] An empire
+- [00:11.280] with a musket leveled at liberty.
+- [00:15.080] >> And yet, an image is not [music]
+- [00:17.840] testimony.
+- [00:19.320] What happened that night was a tragedy.
+- [00:22.280] >> No.
+- [00:24.280] It was a massacre.
+- [00:27.720] >> Yes, men are dead. Yes, Boston grieves.
+- [00:30.960] Yes, Boston is angry. But neither grief
+- [00:33.920] nor anger relieves us of justice. I
+- [00:37.360] argued the case in the courtroom.
+- [00:39.720] >> While I argued it before the court of
+- [00:42.120] public opinion.
+- [00:43.680] >> To understand that night, you must first
+- [00:46.520] understand the city in which it
+- [00:48.680] happened.
+- [00:50.040] Boston was no peaceful town suddenly
+- [00:52.880] struck by madness.
+- [00:54.840] For months, soldiers and civilians had
+- [00:57.040] lived nearly on top of one another.
+- [00:59.480] Resentful, suspicious, quick to provoke.
+- [01:03.400] A standing army in a crowded port city
+- [01:06.040] is tender enough.
+- [01:08.360] >> Because they were never there merely to
+- [01:10.040] keep peace.
+- [01:11.480] They were there to make Parliament's
+- [01:12.840] authority visible.
+- [01:14.720] Hm. Even off-duty soldiers took work
+- [01:17.280] from Boston laborers.
+- [01:19.040] >> Hungry men will take whatever work they
+- [01:21.480] can find. But every encounter sharpened
+- [01:24.880] the city's temper.
+- [01:26.640] >> Red coats, go home!
+- [01:28.960] >> Watch your tongue, boy.
+- [01:30.720] >> Make me.
+- [01:32.120] >> And then, on the evening of March 5th,
+- [01:35.360] the spark came.
+- [01:38.080] It began, as such things often do,
+- [01:41.640] smaller than history would remember.
+- [01:47.680] >> Lousy bloody back, CAN'T EVEN PAY YOUR
+- [01:50.560] DEBTS.
+- [01:52.240] >> In the name of the king, step back.
+- [01:55.120] >> You'll not have this street.
+- [01:57.480] Out with you.
+- [02:05.800] In the NAME OF THE KING, DISPERSE.
+- [02:13.040] >> Fear was mounting by the second.
+- [02:16.120] >> And there they stood. Armed soldiers
+- [02:18.861] [music] in the middle of a civilian
+- [02:20.280] town. Muskets leveled at the very people
+- [02:23.800] they claimed to protect.
+- [02:28.680] >> Who gave the order?
+- [02:30.840] Who heard it clearly in the smoke and
+- [02:33.120] shouting?
+- [02:35.280] >> Who could say in that chaos what each
+- [02:38.360] man believed in the instant before he
+- [02:40.400] fired?
+- [02:41.760] Were they acting in self-defense or
+- [02:45.000] committing cold-blooded murder?
+- [02:47.320] >> Crispus Attucks,
+- [02:49.720] Samuel Gray,
+- [02:51.760] James Caldwell,
+- [02:53.800] Samuel Maverick,
+- [02:55.880] Patrick Carr.
+- [02:58.160] Five dead.
+- [03:00.120] And with them,
+- [03:01.800] any hope that the accused would receive
+- [03:03.840] a fair trial.
+- [03:05.200] >> A street brawl had become a colonial
+- [03:07.640] cause.
+- [03:08.600] >> No courtroom could restore what had been
+- [03:11.280] taken that night.
+- [03:12.600] >> But the living could decide what would
+- [03:14.537] [music] follow it. If soldiers could
+- [03:16.480] fire into a crowd in Boston,
+- [03:18.560] then no colony could call its liberty
+- [03:20.400] secure.
+- [03:21.160] >> The law could not punish men for being
+- [03:24.120] hated. It could only judge what had been
+- [03:27.880] proven.
+- [03:29.040] >> And to many, that looked intolerable.
+- [03:31.760] A Bostonian
+- [03:33.560] defending redcoats while the blood was
+- [03:35.640] scarcely dry.
+- [03:36.959] >> It is not sympathy, it is principle. If
+- [03:40.680] the law belongs only to our friends,
+- [03:43.560] then it is not law at all.
+- [03:46.040] Facts are stubborn things. And whatever
+- [03:49.959] may be our wishes, our inclinations, or
+- [03:52.680] the dictates of our passion, they cannot
+- [03:55.520] alter the state of facts and evidence. A
+- [03:58.640] free people must be governed by
+- [04:00.720] evidence,
+- [04:01.960] not fury.
+- [04:03.920] >> And yet the people could see plainly
+- [04:05.680] what the law would not settle.
+- [04:07.760] An empire had stationed troops in a
+- [04:09.520] colonial town,
+- [04:11.280] and colonists had paid for it in blood.
+- [04:14.360] >> Most of the soldiers were acquitted.
+- [04:17.160] Two were convicted of manslaughter.
+- [04:20.000] The court had rendered its judgment.
+- [04:23.440] >> But the people had rendered theirs as
+- [04:25.120] well.
+- [04:26.200] Not merely on eight soldiers,
+- [04:28.480] but on the power that sent them.
+- [04:30.840] >> One verdict belonged to law,
+- [04:33.040] >> the other belonged to history.
+- [04:36.000] The law had spoken.
+- [04:39.960] >> The image was not evidence, it was
+- [04:42.240] persuasion. It turned a chaotic night
+- [04:45.480] into a simple verdict,
+- [04:47.760] >> because the larger truth was
+- [04:49.320] unmistakable. If the court would try the
+- [04:51.560] soldiers,
+- [04:52.760] then the people
+- [04:54.200] would try the empire.
+- [04:56.080] >> The shots on King Street did not begin
+- [04:58.520] the war,
+- [04:59.480] >> but they gave the colonies something
+- [05:01.040] just as powerful.
+- [05:02.760] A story no one
+- [05:04.919] could ignore.

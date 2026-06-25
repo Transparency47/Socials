@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -158987,6 +158986,17 @@
       "title": "President Trump Signs Executive Orders in the Oval Office, Feb. 3, 2025",
       "url": "https://www.youtube.com/watch?v=07UH2FTaqE4"
     },
+    "youtube:whitehouse:0AUNC8l9pQY": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:56.632679+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/0AUNC8l9pQY",
+      "platform": "youtube",
+      "post_id": "0AUNC8l9pQY",
+      "published": "2026-06-24T16:54:04+00:00",
+      "title": "Road to Liberty: Give Me Liberty",
+      "url": "https://www.youtube.com/watch?v=0AUNC8l9pQY"
+    },
     "youtube:whitehouse:0BvdnypN9YQ": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -160296,6 +160306,17 @@
       "title": "President Trump Delivers Remarks at the National Prayer Breakfast",
       "url": "https://www.youtube.com/watch?v=4AsnLBNSyBY"
     },
+    "youtube:whitehouse:4ENZE1u6taM": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:55.884006+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/4ENZE1u6taM",
+      "platform": "youtube",
+      "post_id": "4ENZE1u6taM",
+      "published": "2026-06-24T16:57:47+00:00",
+      "title": "Road to Liberty: First Continental Congress",
+      "url": "https://www.youtube.com/watch?v=4ENZE1u6taM"
+    },
     "youtube:whitehouse:4EUzlV7-Dew": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -160956,6 +160977,17 @@
       "title": "President Trump Gaggles with Press at Joint Base Andrews, May 30, 2025",
       "url": "https://www.youtube.com/watch?v=6CtrV0gPpB8"
     },
+    "youtube:whitehouse:6Eva7RAkHK8": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:47.449202+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/6Eva7RAkHK8",
+      "platform": "youtube",
+      "post_id": "6Eva7RAkHK8",
+      "published": "2026-06-24T21:04:37+00:00",
+      "title": "President Trump Participates in a Meeting with the Secretary General of NATO",
+      "url": "https://www.youtube.com/watch?v=6Eva7RAkHK8"
+    },
     "youtube:whitehouse:6JNbcVjoqcc": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -161340,6 +161372,17 @@
       "published": "2025-12-02T16:11:24+00:00",
       "title": "Veterans SLAM the Seditious Six & Issue a Crystal-Clear Message: We Stand with President Trump \ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.youtube.com/watch?v=7fCJABZwnhc"
+    },
+    "youtube:whitehouse:7fvu3uNsC3g": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:53.265791+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/7fvu3uNsC3g",
+      "platform": "youtube",
+      "post_id": "7fvu3uNsC3g",
+      "published": "2026-06-24T17:19:14+00:00",
+      "title": "Road to Liberty: Siege Of Yorktown",
+      "url": "https://www.youtube.com/watch?v=7fvu3uNsC3g"
     },
     "youtube:whitehouse:7hXK7xSqMik": {
       "account": "WhiteHouse",
@@ -161989,6 +162032,17 @@
       "published": "2025-09-09T01:48:11+00:00",
       "title": "One Nation Under God",
       "url": "https://www.youtube.com/watch?v=9wOSvGLJJ5M"
+    },
+    "youtube:whitehouse:9yJsAXUoS-8": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:52.484478+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/9yJsAXUoS_8",
+      "platform": "youtube",
+      "post_id": "9yJsAXUoS-8",
+      "published": "2026-06-24T17:21:20+00:00",
+      "title": "Road to Liberty: Boston Massacre",
+      "url": "https://www.youtube.com/watch?v=9yJsAXUoS-8"
     },
     "youtube:whitehouse:A-DSB13ZWtg": {
       "account": "WhiteHouse",
@@ -165224,6 +165278,17 @@
       "title": "Vice President JD Vance Swears In Sean Duffy as Secretary of Transportation",
       "url": "https://www.youtube.com/watch?v=KfCps7UHPnM"
     },
+    "youtube:whitehouse:KfZN8IjgrY0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:50.904612+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/KfZN8IjgrY0",
+      "platform": "youtube",
+      "post_id": "KfZN8IjgrY0",
+      "published": "2026-06-24T17:35:09+00:00",
+      "title": "Road to Liberty: Declaration of Independence",
+      "url": "https://www.youtube.com/watch?v=KfZN8IjgrY0"
+    },
     "youtube:whitehouse:KibXsypmpQs": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -165520,6 +165585,17 @@
       "published": "2026-04-24T15:19:27+00:00",
       "title": "Health Care Affordability Event",
       "url": "https://www.youtube.com/watch?v=LcZ0xN9hfuI"
+    },
+    "youtube:whitehouse:LevLBAKS-Gw": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:54.070644+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/LevLBAKS_Gw",
+      "platform": "youtube",
+      "post_id": "LevLBAKS-Gw",
+      "published": "2026-06-24T17:15:10+00:00",
+      "title": "Road to Liberty: Stamp Act",
+      "url": "https://www.youtube.com/watch?v=LevLBAKS-Gw"
     },
     "youtube:whitehouse:Lf9AqhaqUz8": {
       "account": "WhiteHouse",
@@ -165971,6 +166047,17 @@
       "published": "2025-07-31T20:58:58+00:00",
       "title": "President Trump Signs an Executive Order, July 31, 2025",
       "url": "https://www.youtube.com/watch?v=NC09z2oqpDg"
+    },
+    "youtube:whitehouse:NCUOLzVegL4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:57.420075+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/NCUOLzVegL4",
+      "platform": "youtube",
+      "post_id": "NCUOLzVegL4",
+      "published": "2026-06-24T16:50:14+00:00",
+      "title": "Road to Liberty: The Ride of Paul Revere",
+      "url": "https://www.youtube.com/watch?v=NCUOLzVegL4"
     },
     "youtube:whitehouse:NFWln0FC92A": {
       "account": "WhiteHouse",
@@ -167765,6 +167852,17 @@
       "title": "President Trump Signs a Proclamation, May 5, 2026",
       "url": "https://www.youtube.com/watch?v=TMfuHNgXdd4"
     },
+    "youtube:whitehouse:TOAn4wGOOLM": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:48.287844+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/TOAn4wGOOLM",
+      "platform": "youtube",
+      "post_id": "TOAn4wGOOLM",
+      "published": "2026-06-24T20:38:30+00:00",
+      "title": "President Trump Gaggles with Press upon Departure at the Capitol Building, Jun. 24, 2026",
+      "url": "https://www.youtube.com/watch?v=TOAn4wGOOLM"
+    },
     "youtube:whitehouse:TPGIFsbjtCA": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -167984,6 +168082,17 @@
       "published": "2025-01-21T02:28:56+00:00",
       "title": "Swearing-In Ceremony of Donald J. Trump, 47th President of the United States",
       "url": "https://www.youtube.com/watch?v=U4NWwi1_dCk"
+    },
+    "youtube:whitehouse:U4cfayBx6pA": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:50.060412+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/U4cfayBx6pA",
+      "platform": "youtube",
+      "post_id": "U4cfayBx6pA",
+      "published": "2026-06-24T17:40:54+00:00",
+      "title": "Road to Liberty: Battle of Saratoga",
+      "url": "https://www.youtube.com/watch?v=U4cfayBx6pA"
     },
     "youtube:whitehouse:U81_fO-bhDw": {
       "account": "WhiteHouse",
@@ -169821,6 +169930,17 @@
       "published": "2026-04-13T20:21:58+00:00",
       "title": "TRUMP ACCOUNTS: 4M+ parents already unlocked the American Dream for their kids this tax season",
       "url": "https://www.youtube.com/watch?v=_NI5V6YgIX4"
+    },
+    "youtube:whitehouse:_RVOfDceUkU": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:49.133399+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/RVOfDceUkU",
+      "platform": "youtube",
+      "post_id": "_RVOfDceUkU",
+      "published": "2026-06-24T20:38:26+00:00",
+      "title": "President Trump Gaggles with Press upon Arrival at the Capitol Building, Jun. 24, 2026",
+      "url": "https://www.youtube.com/watch?v=_RVOfDceUkU"
     },
     "youtube:whitehouse:_UNcpbCfpqw": {
       "account": "WhiteHouse",
@@ -172726,6 +172846,17 @@
       "title": "America First Policy Institute and Family Policy Alliance Support Trump's One Big Beautiful Bill",
       "url": "https://www.youtube.com/watch?v=jcREfAjK8kY"
     },
+    "youtube:whitehouse:jciafGjG-mg": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:51.712377+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/jciafGjG_mg",
+      "platform": "youtube",
+      "post_id": "jciafGjG-mg",
+      "published": "2026-06-24T17:27:28+00:00",
+      "title": "Road To Liberty: Ratification of the Constitution",
+      "url": "https://www.youtube.com/watch?v=jciafGjG-mg"
+    },
     "youtube:whitehouse:jfP_oB6XIGQ": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -174496,6 +174627,17 @@
       "published": "2025-05-19T19:34:26+00:00",
       "title": "President Trump and the First Lady Participate in a Bill Signing, May 19, 2025",
       "url": "https://www.youtube.com/watch?v=pI1BDZdzGsw"
+    },
+    "youtube:whitehouse:pKgR9ugan1Q": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:45.838272+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/25/pKgR9ugan1Q",
+      "platform": "youtube",
+      "post_id": "pKgR9ugan1Q",
+      "published": "2026-06-25T01:30:16+00:00",
+      "title": "President Trump Delivers Remarks at the Great American State Fair",
+      "url": "https://www.youtube.com/watch?v=pKgR9ugan1Q"
     },
     "youtube:whitehouse:pMi_EOpovbg": {
       "account": "WhiteHouse",
@@ -177401,6 +177543,17 @@
       "title": "President Donald Trump's Full Remarks at the 250th Anniversary of the US Army Grand Military Parade",
       "url": "https://www.youtube.com/watch?v=z6R-N-23XME"
     },
+    "youtube:whitehouse:z6mJiH-o1KU": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:46.650403+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/z6mJiH_o1KU",
+      "platform": "youtube",
+      "post_id": "z6mJiH-o1KU",
+      "published": "2026-06-24T21:44:40+00:00",
+      "title": "President Trump Delivers Remarks at Mack trucks in Pennsylvania",
+      "url": "https://www.youtube.com/watch?v=z6mJiH-o1KU"
+    },
     "youtube:whitehouse:zBxO-z-3cE4": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -177543,6 +177696,17 @@
       "published": "2025-08-01T01:19:46+00:00",
       "title": "Make America Fit Again: Presidential Fitness Test",
       "url": "https://www.youtube.com/watch?v=zaPzUc2y_kE"
+    },
+    "youtube:whitehouse:zdD9VL-FE4U": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-25T07:59:54.969402+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/24/zdD9VL_FE4U",
+      "platform": "youtube",
+      "post_id": "zdD9VL-FE4U",
+      "published": "2026-06-24T17:06:29+00:00",
+      "title": "Road to Liberty: The Boston Tea Party, America's Greatest Heist",
+      "url": "https://www.youtube.com/watch?v=zdD9VL-FE4U"
     },
     "youtube:whitehouse:zfSxzDhqlqI": {
       "account": "WhiteHouse",

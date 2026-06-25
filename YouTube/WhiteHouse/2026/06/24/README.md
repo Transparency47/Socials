@@ -1,7 +1,49 @@
 # YouTube / WhiteHouse / 2026-06-24
 
-- Posts: 1
+- Posts: 15
 
+- [21:44 UTC - President Trump Delivers Remarks at Mack trucks in Pennsylvania](z6mJiH_o1KU/)
+  - Source: https://www.youtube.com/watch?v=z6mJiH-o1KU
+  - [00:02.800] Well, I'm thrilled to be back in this - [00:04.720] incredible Commonwealth with the proud, - [00:06.960] hardworking patriots of Lehi Valley. - [00:10.240] Lehi Vall...
+- [21:04 UTC - President Trump Participates in a Meeting with the Secretary General of NATO](6Eva7RAkHK8/)
+  - Source: https://www.youtube.com/watch?v=6Eva7RAkHK8
+  - [00:05.200] Well, thank you very much. It's a great - [00:06.640] honor to be with a friend of mine, a man - [00:08.800] who is respected all over the world, - [00:10.920] actual...
+- [20:38 UTC - President Trump Gaggles with Press upon Departure at the Capitol Building, Jun. 24, 2026](TOAn4wGOOLM/)
+  - Source: https://www.youtube.com/watch?v=TOAn4wGOOLM
+  - [00:04.880] We had a really great meeting - [00:06.960] and we're very proud of the party. - [00:09.960] We like our leader, we like everybody - [00:12.520] really in the room. I...
+- [20:38 UTC - President Trump Gaggles with Press upon Arrival at the Capitol Building, Jun. 24, 2026](RVOfDceUkU/)
+  - Source: https://www.youtube.com/watch?v=_RVOfDceUkU
+  - [00:00.000] The war is going very well. - [00:02.400] As you know, we're winning by a lot. - [00:05.320] Iran is making very big concessions. - [00:08.240] Uh we'll see what happ...
+- [17:40 UTC - Road to Liberty: Battle of Saratoga](U4cfayBx6pA/)
+  - Source: https://www.youtube.com/watch?v=U4cfayBx6pA
+  - [00:00.600] At Saratoga, men won the battle in - [00:02.880] blood. - [00:04.160] Victors claimed the credit with ink. - [00:07.720] And I, the man who many say played a - [00:09...
+- [17:35 UTC - Road to Liberty: Declaration of Independence](KfZN8IjgrY0/)
+  - Source: https://www.youtube.com/watch?v=KfZN8IjgrY0
+  - [00:00.360] History remembers this moment - [00:03.400] where the declaration [music] - [00:04.720] lay before Congress. - [00:06.800] Even though the truth is this scene - [00:0...
+- [17:27 UTC - Road To Liberty: Ratification of the Constitution](jciafGjG_mg/)
+  - Source: https://www.youtube.com/watch?v=jciafGjG-mg
+  - [00:02.320] This is the moment people remember. - [00:05.520] Clean signatures, - [00:07.680] calm faces. - [00:09.680] A nation born in a single stroke. - [00:13.440] But signin...
+- [17:21 UTC - Road to Liberty: Boston Massacre](9yJsAXUoS_8/)
+  - Source: https://www.youtube.com/watch?v=9yJsAXUoS-8
+  - [00:00.000] This is how Boston would remember it. - [00:04.880] Soldiers in our streets, colonists - [00:07.400] bleeding in the snow. - [00:09.840] An empire - [00:11.280] with...
+- [17:19 UTC - Road to Liberty: Siege Of Yorktown](7fvu3uNsC3g/)
+  - Source: https://www.youtube.com/watch?v=7fvu3uNsC3g
+  - [00:06.320] After six long years of war, I had - [00:09.000] learned what victory cost. - [00:12.360] And yet, as we closed the trap at - [00:14.200] Yorktown, [music] - [00:15.2...
+- [17:15 UTC - Road to Liberty: Stamp Act](LevLBAKS_Gw/)
+  - Source: https://www.youtube.com/watch?v=LevLBAKS-Gw
+  - [00:02.440] They said Britain bled for our defense. - [00:08.240] That her debts from the French and - [00:09.720] Indian War must be paid. - [00:12.240] So they taxed our paper,...
+- [17:06 UTC - Road to Liberty: The Boston Tea Party, America's Greatest Heist](zdD9VL_FE4U/)
+  - Source: https://www.youtube.com/watch?v=zdD9VL-FE4U
+  - [00:00.654] [music] - [00:01.160] >> They tell this story as if it were a - [00:02.720] riot. - [00:06.120] A crowd that lost control. - [00:08.515] >> [music] - [00:09.360] >> B...
+- [16:57 UTC - Road to Liberty: First Continental Congress](4ENZE1u6taM/)
+  - Source: https://www.youtube.com/watch?v=4ENZE1u6taM
+  - [00:01.120] After the Intolerable Acts, - [00:03.200] the colonies stood on a knife's edge. - [00:05.640] Boston punished, Parliament unyielding, - [00:09.240] and here we gather...
+- [16:54 UTC - Road to Liberty: Give Me Liberty](0AUNC8l9pQY/)
+  - Source: https://www.youtube.com/watch?v=0AUNC8l9pQY
+  - [00:03.679] I will never forget that moment when - [00:07.440] Patrick Henry's words struck the room - [00:09.840] like a spark on dry tender, igniting a - [00:13.120] fire that...
+- [16:50 UTC - Road to Liberty: The Ride of Paul Revere](NCUOLzVegL4/)
+  - Source: https://www.youtube.com/watch?v=NCUOLzVegL4
+  - [00:01.040] You've seen the picture. - [00:02.760] One rider, one sleeping town, one - [00:06.200] mission. - [00:07.400] But that legendary night was about more - [00:09.760] th...
 - [15:29 UTC - World Cup in America Reactions](YFzViM83aIE/)
   - Source: https://www.youtube.com/shorts/YFzViM83aIE
   - [00:00.000] America, it is happening. Do you see it? - [00:03.520] People who aren't American or travel to - [00:05.440] the World Cup are realizing they've been - [00:08.000] li...

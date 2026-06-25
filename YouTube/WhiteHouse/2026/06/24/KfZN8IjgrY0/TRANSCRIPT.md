@@ -1,0 +1,103 @@
+<!-- source: https://www.youtube.com/watch?v=KfZN8IjgrY0 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: KfZN8IjgrY0 -->
+<!-- date_published: 2026-06-24T17:35:09+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:50.904612+00:00 -->
+
+# Transcript: Road to Liberty: Declaration of Independence
+
+- [00:00.360] History remembers this moment
+- [00:03.400] where the declaration [music]
+- [00:04.720] lay before Congress.
+- [00:06.800] Even though the truth is this scene
+- [00:09.840] never existed. [music]
+- [00:15.120] >> You speak of order, but I see only
+- [00:17.000] oppression. We demand
+- [00:18.320] >> How dare you? We speak for the people.
+- [00:20.400] >> Then listen. WE DEMAND REPRESENTATION.
+- [00:22.920] >> NOW!
+- [00:23.580] >> [screaming]
+- [00:25.840] >> AFTER LEXINGTON AND CONCORD,
+- [00:27.760] HATREDS HAD taken up arms.
+- [00:30.120] >> I must object to these proceedings.
+- [00:32.480] >> unified voice to speak for them.
+- [00:35.600] >> We must find a consensus before the
+- [00:37.280] vote.
+- [00:38.680] >> So Congress formed a Continental Army.
+- [00:42.680] >> That is the general from Virginia.
+- [00:45.400] >> The only man impractical enough to wear
+- [00:48.320] a uniform to a political meeting.
+- [00:55.040] But even with [music] an army, we had
+- [00:57.000] not yet decided what exactly we were
+- [00:59.520] fighting for.
+- [01:02.520] We petitioned the King for peace.
+- [01:05.720] He answered by calling us traitors.
+- [01:09.240] >> For as in absolute governments, the King
+- [01:11.160] is law, so in free countries, the law
+- [01:13.880] ought to be King. And there ought to be
+- [01:15.880] no other.
+- [01:17.360] We do accordingly strictly charge and
+- [01:19.360] command all our officers as well civil
+- [01:21.480] as military and all other our obedient
+- [01:24.040] and loyal subjects to use their utmost
+- [01:26.280] endeavors to withstand and suppress such
+- [01:28.240] rebellion and to disclose and make known
+- [01:30.640] all treasons and traitorous
+- [01:32.120] conspiracies.
+- [01:34.800] >> Nothing speeds independence like being
+- [01:38.080] threatened with a good hanging.
+- [01:40.160] >> The odds are not in our favor.
+- [01:44.760] Perhaps,
+- [01:46.000] but our cause is just.
+- [01:47.840] >> The war widened, old hopes thinned, and
+- [01:51.520] the question [music] was no longer
+- [01:52.960] whether we would separate, but when.
+- [01:56.480] They asked me to draft the declaration.
+- [02:00.200] And in that cramped room,
+- [02:02.040] I began the work of defining a people's
+- [02:05.240] right to be free.
+- [02:07.440] >> The heat, the flies, the secrecy,
+- [02:10.479] liberty [music] does not begin in
+- [02:12.520] comfort.
+- [02:15.200] Clarity is its [music] own kind of
+- [02:17.440] poetry.
+- [02:20.600] >> Line by line, we carved the case for
+- [02:23.480] separation.
+- [02:25.440] Every charge weighed.
+- [02:27.920] Every word contested.
+- [02:31.560] By July, the question came to a vote.
+- [02:36.560] That night, despite his illness and the
+- [02:39.520] malady that consumed him,
+- [02:42.160] Rodney abandoned his convalescence to
+- [02:45.280] ride 80 miles [music]
+- [02:47.240] to break the tied vote.
+- [02:51.360] 12 colonies voted for independence.
+- [02:54.160] >> Maryland.
+- [02:55.480] >> Aye.
+- [02:56.480] >> One abstained.
+- [02:58.000] >> Virginia.
+- [02:58.800] >> Aye.
+- [02:59.800] >> The deed was done. Not with cheers,
+- [03:03.560] but with a trembling.
+- [03:12.160] On the 4th, the declaration was
+- [03:14.280] approved.
+- [03:19.560] And on the 8th, it was read aloud to the
+- [03:23.080] people.
+- [03:24.362] >> [bell]
+- [03:24.680] >> We hold these truths to be self-evident,
+- [03:27.320] that all men are created
+- [03:28.959] >> and declare that these colonies are, and
+- [03:31.400] of right ought to be, free and
+- [03:33.519] independent states.
+- [03:34.680] >> Fine words, but words alone would not
+- [03:37.560] secure liberty.
+- [03:39.239] That task belonged to the men standing
+- [03:42.080] barefoot in the dirt.
+- [03:44.920] We set our names upon that parchment,
+- [03:47.560] knowing the cost,
+- [03:49.480] and believing the world would be better
+- [03:51.800] for it.
+- [03:53.160] >> We must all hang together
+- [03:55.760] or most assuredly we shall all hang
+- [03:59.560] separately.

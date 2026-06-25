@@ -1,0 +1,100 @@
+<!-- source: https://www.youtube.com/watch?v=7fvu3uNsC3g -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 7fvu3uNsC3g -->
+<!-- date_published: 2026-06-24T17:19:14+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:53.265791+00:00 -->
+
+# Transcript: Road to Liberty: Siege Of Yorktown
+
+- [00:06.320] After six long years of war, I had
+- [00:09.000] learned what victory cost.
+- [00:12.360] And yet, as we closed the trap at
+- [00:14.200] Yorktown, [music]
+- [00:15.280] the weight of command had never felt
+- [00:16.960] heavier.
+- [00:21.920] For years, my thoughts had fixed upon
+- [00:23.720] the northeast.
+- [00:26.840] It was where I endured defeat [music]
+- [00:28.720] and retreat.
+- [00:31.640] Where quarreling soldiers were forced to
+- [00:33.680] come together.
+- [00:35.480] It was where starving [music] soldiers
+- [00:37.120] doubted my leadership.
+- [00:39.320] Men divided by pride,
+- [00:41.680] yet bound by a common cause.
+- [00:44.680] New York was the ground we lost first,
+- [00:47.400] and I longed to reclaim it.
+- [00:50.800] Then word came that our French allies
+- [00:52.800] would sail not for New York, but for the
+- [00:54.840] Chesapeake.
+- [00:57.840] Cornwallis was fortifying at Yorktown.
+- [01:01.840] Lafayette was already in Virginia,
+- [01:05.080] holding him fast.
+- [01:08.760] For days, I weighed what to do.
+- [01:11.880] Abandon the plan I had pursued for
+- [01:13.720] years,
+- [01:15.440] or trust in fortune and in France. We
+- [01:18.080] march south.
+- [01:23.680] We moved in silence, masking our design.
+- [01:28.160] I was not without apprehensions lest the
+- [01:30.120] British should discover our real
+- [01:31.760] intentions
+- [01:33.560] and throw themselves into Virginia.
+- [01:36.080] But I felt we must risk something.
+- [01:38.560] Each mile was a gamble on faith,
+- [01:41.440] in our allies,
+- [01:43.240] and in providence.
+- [01:45.800] Cornwallis had paid dearly at Guilford
+- [01:48.000] Courthouse.
+- [01:49.520] It's a city by name, but a ruin in fact.
+- [01:52.480] His ranks thin, his men exhausted.
+- [01:54.626] [music]
+- [01:56.440] We would meet him at the end of that
+- [01:57.880] long leading road.
+- [02:12.200] >> Sir,
+- [02:13.480] you are too much exposed here.
+- [02:16.080] Had you not better step back?
+- [02:19.400] Colonel Cobb,
+- [02:20.880] if you are afraid,
+- [02:22.920] you have liberty to step back.
+- [02:32.880] >> When our men took the redoubts,
+- [02:36.240] the field itself seemed to tremble.
+- [02:41.520] In their courage, I saw every hardship,
+- [02:46.120] every winter endured,
+- [02:48.840] answered at last.
+- [02:52.240] British reinforcements were already on
+- [02:54.200] the way from New York,
+- [02:56.400] but at the capes, the French fleet
+- [02:58.161] [music] turned them back.
+- [03:01.480] With the bay sealed,
+- [03:03.920] Cornwallis stood alone.
+- [03:06.959] And in those final desperate nights,
+- [03:09.720] Cornwallis tried to escape across the
+- [03:11.800] York River,
+- [03:13.200] but a sudden storm [music] scattered his
+- [03:14.959] boats, and the last path of retreat
+- [03:17.800] closed before him.
+- [03:20.560] On the 19th of October, the enemy laid
+- [03:22.720] down their arms.
+- [03:25.800] By my order, there were no cheers at the
+- [03:27.920] surrender.
+- [03:34.040] Only the sound of a nation exhaling
+- [03:36.320] after years of struggle.
+- [03:40.760] Later, as news spread of our victory,
+- [03:43.959] bells rang,
+- [03:46.680] fires were lit,
+- [03:48.440] and celebrations broke out.
+- [03:50.200] >> TO LIBERTY AT LAST!
+- [03:53.240] >> FOR A hope too long deferred, now
+- [03:55.640] finally within reach.
+- [03:59.440] While loved ones finally rejoined
+- [04:01.320] together,
+- [04:02.880] and the nation breathed again.
+- [04:06.160] I confess I had long wished to terminate
+- [04:08.400] the war by the reduction of New York,
+- [04:11.240] but providence directed otherwise and
+- [04:13.959] better.
+- [04:15.400] Yorktown [music] essentially ended the
+- [04:17.400] war,
+- [04:18.480] yet there was still work to do.

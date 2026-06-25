@@ -1,0 +1,2492 @@
+<!-- source: https://www.youtube.com/watch?v=pKgR9ugan1Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: pKgR9ugan1Q -->
+<!-- date_published: 2026-06-25T01:30:16+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:45.838272+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Great American State Fair
+
+- [00:01.520] Good evening, ladies and gentlemen, and
+- [00:02.879] welcome to the kickoff celebration for
+- [00:04.480] the Great American State Fair, proudly
+- [00:06.720] presented by Freedom 250 and featuring
+- [00:09.360] President Donald J. Trump.
+- [00:13.759] To set the stage for tonight's historic
+- [00:15.920] program, we invite you to enjoy the
+- [00:18.080] spirit and sounds of America performed
+- [00:20.720] live by the president's own United
+- [00:23.039] States Marine Band.
+- [00:29.199] Heat.
+- [00:32.095] [music]
+- [00:37.990] [music]
+- [00:48.470] [music]
+- [00:49.039] Heat.
+- [00:54.000] Heat. Heat.
+- [00:55.675] [music]
+- [01:08.775] [music]
+- [01:13.360] Heat. Heat.
+- [01:27.115] [music]
+- [01:34.321] >> [music]
+- [01:39.561] [music]
+- [01:44.801] [music]
+- [01:47.520] >> Heat. Heat.
+- [01:50.696] [music]
+- [02:01.176] >> [music]
+- [02:06.416] [music]
+- [02:11.656] [music]
+- [02:14.720] >> Heat. Heat.
+- [02:35.891] >> [music]
+- [02:39.360] >> Heat. Heat.
+- [02:42.441] [music]
+- [02:44.640] Heat. Heat.
+- [02:52.921] [music]
+- [03:01.437] [music]
+- [03:36.152] >> [music]
+- [03:36.159] >> Heat. Heat.
+- [04:06.937] >> [music]
+- [04:27.243] [music]
+- [04:36.413] [music]
+- [04:42.308] [music]
+- [04:52.788] [music]
+- [04:56.320] >> Heat up here.
+- [05:01.840] Heat.
+- [05:13.093] [music]
+- [05:20.953] [music]
+- [05:24.800] Heat. [music]
+- [05:28.160] Heat.
+- [05:30.123] [music]
+- [05:34.708] [music]
+- [05:39.948] [music]
+- [05:41.680] Heat.
+- [05:52.393] [music]
+- [05:53.199] Here
+- [05:59.599] [music]
+- [06:09.424] [music]
+- [06:13.120] we go.
+- [06:18.160] Heat. Heat.
+- [06:27.764] [music]
+- [06:34.314] [music]
+- [06:38.899] [music]
+- [06:46.104] >> [music]
+- [06:51.344] [music]
+- [06:59.440] >> Heat. Heat.
+- [07:02.479] [music]
+- [07:05.599] Heat. Heat.
+- [07:09.029] [music]
+- [07:16.234] [music]
+- [07:26.715] >> [music]
+- [08:09.039] >> Heat. Heat.
+- [08:10.600] [music]
+- [08:17.150] [music]
+- [08:33.039] Heat. Heat. [music]
+- [08:44.660] [music]
+- [08:52.521] [music]
+- [09:10.861] >> [music]
+- [09:12.640] >> Heat. Heat.
+- [09:16.101] [music]
+- [09:21.680] Heat. Heat. [music]
+- [09:40.991] [music]
+- [09:50.816] >> [music]
+- [09:56.056] [music]
+- [09:56.320] >> Heat. Heat.
+- [10:06.536] >> [music]
+- [10:16.362] [music]
+- [10:24.222] [music]
+- [10:30.320] >> Heat. [music]
+- [10:37.322] [music]
+- [10:41.907] [music]
+- [10:46.492] [music]
+- [10:53.200] Heat. [music]
+- [10:58.282] >> [music]
+- [11:41.513] [music]
+- [11:51.680] >> Heat. Heat.
+- [11:53.958] [music]
+- [11:56.399] Heat. Heat.
+- [12:05.093] [music]
+- [12:12.298] [music]
+- [12:22.778] >> [music]
+- [12:28.673] [music]
+- [12:33.920] >> Heat
+- [12:40.463] [music]
+- [12:41.440] up here.
+- [12:46.000] Heat. [music]
+- [12:50.943] [music]
+- [12:56.560] Heat. [music]
+- [13:04.043] [music]
+- [13:09.284] >> [music]
+- [13:17.799] [music]
+- [13:22.800] >> Heat [music]
+- [13:26.800] up here. [music]
+- [13:31.360] Heat.
+- [13:34.174] [music]
+- [13:40.724] [music]
+- [13:45.309] [music]
+- [13:48.480] Heat.
+- [13:51.859] [music]
+- [13:54.800] Heat. Heat.
+- [13:57.754] [music]
+- [14:04.959] [music]
+- [14:08.160] Heat up
+- [14:14.129] >> [music]
+- [14:21.334] [music]
+- [14:26.574] [music]
+- [14:28.800] >> here.
+- [14:33.360] Heat. Heat. [music]
+- [14:38.365] [music]
+- [14:48.845] [music]
+- [14:54.800] Heat.
+- [15:10.460] [music]
+- [15:12.480] Heat.
+- [15:15.045] [music]
+- [15:18.480] Heat. Heat. [music]
+- [15:30.110] [music]
+- [15:36.005] [music]
+- [15:39.279] Heat.
+- [15:43.865] [music]
+- [15:49.760] [music]
+- [15:55.000] [music]
+- [15:59.279] Heat.
+- [16:33.646] >> [music]
+- [16:40.851] [music]
+- [16:42.399] >> Heat. Heat.
+- [16:46.746] >> [music]
+- [16:52.641] [music]
+- [16:57.759] >> Heat. Heat.
+- [16:59.846] [music]
+- [17:05.360] Heat.
+- [17:10.480] Heat. [music]
+- [17:32.960] Okay.
+- [17:34.562] [music]
+- [18:20.799] Heat. Heat.
+- [18:59.058] >> [music]
+- [19:07.573] [music]
+- [19:16.088] [music]
+- [19:23.948] [music]
+- [19:32.463] [music]
+- [19:40.323] [music]
+- [19:48.838] [music]
+- [19:51.200] >> Heat. Heat. Heat
+- [19:57.353] >> [music]
+- [20:04.558] [music]
+- [20:10.960] >> up here. [music]
+- [20:17.658] >> [music]
+- [20:24.864] [cheering]
+- [20:51.719] [music]
+- [20:59.600] >> Heat. Heat.
+- [21:04.819] [music]
+- [22:06.559] Heat. Heat.
+- [22:20.800] [music]
+- [22:31.280] >> [music]
+- [22:37.830] [music]
+- [22:46.345] [music]
+- [23:05.340] [music]
+- [23:13.856] [music]
+- [23:25.646] [music]
+- [23:39.520] >> Heat. Heat.
+- [23:42.676] [music]
+- [23:52.501] >> [music]
+- [24:01.016] [music]
+- [24:37.696] [music]
+- [24:46.867] [music]
+- [24:48.799] >> Heat.
+- [24:52.107] [music]
+- [24:54.960] Heat.
+- [25:07.827] >> [bell]
+- [25:11.757] [music]
+- [25:33.360] >> Ladies and gentlemen, as we launch this
+- [25:35.039] monumental summer of celebration marking
+- [25:37.600] 250 years of American independence,
+- [25:40.000] proudly presented by Freedom 250 to
+- [25:42.480] officially open tonight's historic
+- [25:44.159] program. Put your hands together for the
+- [25:46.080] 35th Chief of Protocol of the United
+- [25:48.240] States, Ambassador Monica [music]
+- [25:50.080] Crowley.
+- [26:05.279] But America
+- [26:07.760] and good evening. Are you all ready for
+- [26:11.279] the most epic party in all of American
+- [26:14.400] history?
+- [26:19.440] I am Ambassador Monica Crowley, chief of
+- [26:22.159] protocol of the United States and
+- [26:24.960] President Trump's administration
+- [26:27.200] representative
+- [26:28.799] for Freedom 250.
+- [26:35.600] How absolutely exciting and historic is
+- [26:38.960] it to be here right now in this moment
+- [26:43.200] to celebrate America's 250th birthday.
+- [26:50.559] It's known as our semiquincentennial,
+- [26:53.919] which I know is quite a mouthful. I'm
+- [26:56.799] sure there are many of you who remember
+- [26:59.200] our bicesentennial celebration in 1976,
+- [27:04.240] right?
+- [27:07.039] Well, I was a very very very
+- [27:10.880] little girl and although I don't recall
+- [27:14.240] every detail of that very special
+- [27:17.440] Independence Day, I will never forget
+- [27:20.960] celebrating it with my family on the
+- [27:23.679] Jersey Shore. Small flag in one hand,
+- [27:27.760] sparkler in the other, fireworks
+- [27:30.559] overhead, surrounded by friends and
+- [27:33.919] neighbors.
+- [27:35.840] I remember then how deeply proud I felt
+- [27:40.400] to be an American.
+- [27:43.840] And that feeling has never ever left me.
+- [27:48.960] Now, here we are.
+- [27:51.440] Here we are 250 years after 1776.
+- [27:57.039] It is such an honor to pass on that
+- [27:59.840] tremendous sense of pride and patriotism
+- [28:03.520] to the next generation of young and
+- [28:06.559] young at heart Americans and to welcome
+- [28:10.080] all of you to the kickoff celebration of
+- [28:13.039] a truly once-ina-lifetime event, the
+- [28:16.640] Great American State Fair.
+- [28:25.120] In the coming days, visitors from all 50
+- [28:28.240] states and all over the world will come
+- [28:31.360] to our sparkling Capital City to
+- [28:34.559] experience the National Mall like never
+- [28:37.440] before. And while they are here, they
+- [28:40.559] will form lifelong memories of America's
+- [28:43.840] big 250th birthday party and gain a
+- [28:48.559] renewed sense of pride in our
+- [28:51.120] exceptional country.
+- [28:59.600] From the moment these gates here open at
+- [29:02.320] 10:00 a.m. each morning to late at night
+- [29:05.760] each beautiful summer evening, this is
+- [29:09.360] the premier destination for you and for
+- [29:12.320] your loved ones to commemorate our
+- [29:14.880] 250th.
+- [29:17.039] Here in the heart of our nation's
+- [29:18.960] capital, you are not only steps away
+- [29:21.600] from iconic monuments, museums, and
+- [29:24.880] memorials. During the Great American
+- [29:27.600] State Fair, you will experience
+- [29:29.840] everything from that magnificent ferris
+- [29:32.799] wheel to get a fantastic view of
+- [29:35.840] Washington DC to movie screenings,
+- [29:39.200] rodeos, concerts, military flyovers, and
+- [29:43.760] a roaring patriotic spirit that will
+- [29:47.120] bring America's 250th to life for every
+- [29:51.279] member of the family.
+- [29:57.679] And you know, the celebration doesn't
+- [29:59.760] stop here. This birthday party will
+- [30:02.480] continue from sea to shining sea.
+- [30:07.279] In the coming days, our nation will
+- [30:09.520] enjoy an iconic Mount Rushmore
+- [30:12.640] celebration,
+- [30:14.240] an international parade of majestic
+- [30:16.960] ships in New York, and of course, the
+- [30:20.799] biggest fireworks display of all time
+- [30:24.320] right here on July 4th.
+- [30:32.559] These events are so much more than just
+- [30:35.440] dates on a calendar. This is a moment
+- [30:38.640] that will inspire a new era of American
+- [30:42.000] greatness as we honor our extraordinary
+- [30:45.679] history, cherish our God-given freedoms,
+- [30:50.000] and look to the future with optimism,
+- [30:52.960] excitement, and yes, love of country.
+- [31:02.799] This movement uniting our country to
+- [31:05.279] commemorate its 250th birthday has no
+- [31:09.120] greater champion than President Donald
+- [31:12.399] J. Trump.
+- [31:14.631] [cheering]
+- [31:19.760] None of this would have been possible
+- [31:22.080] without him and his tremendous
+- [31:24.559] leadership and vision to make this great
+- [31:27.600] celebration possible for all Americans.
+- [31:31.840] Now, we have a very special evening
+- [31:34.480] ahead as we launch the fair and pay
+- [31:37.360] tribute to all 56 states and territories
+- [31:41.039] with grandeur, ceremony, inspiration,
+- [31:44.480] and of course, fun. So, please enjoy the
+- [31:48.159] sights and sounds of America's big
+- [31:50.320] birthday party on this absolutely
+- [31:52.480] gorgeous summer night. And welcome to
+- [31:55.440] the great American State Fair.
+- [32:01.760] God bless you and may God continue to
+- [32:04.799] bless the United States of America.
+- [32:08.559] Thank you so much. [cheering]
+- [32:22.559] Ladies and gentlemen, please welcome the
+- [32:24.240] 55th United States Secretary of the
+- [32:26.240] Interior, Doug Bergam, and the 33rd
+- [32:28.720] United States Secretary of Agriculture,
+- [32:31.039] Brooke Rollins.
+- [32:40.080] Good evening, America. Are you ready for
+- [32:42.080] a celebration?
+- [32:46.320] What do you think about this marine band
+- [32:47.760] that's been playing so far? Aren't they
+- [32:49.600] fantastic? Let's give it up for them.
+- [32:52.227] [cheering]
+- [32:53.679] Who is excited to celebrate 250
+- [32:58.399] years of the greatest country in the
+- [33:01.279] history of the world?
+- [33:09.279] Well, welcome everyone. My name is
+- [33:11.120] Brooke Rollins. I have the honor of a
+- [33:12.799] lifetime to be your Secretary of
+- [33:15.360] Agriculture. And I know I speak for our
+- [33:17.760] great Secretary of the Interior, Doug
+- [33:20.000] Bergam, when I say what an incredible
+- [33:22.480] honor it is to welcome you to this, the
+- [33:26.480] official kickoff of the great American
+- [33:29.440] State Fair. Welcome everyone.
+- [33:33.279] Americans
+- [33:35.919] from every corner of our country have
+- [33:38.799] gathered here tonight. From the wheat
+- [33:41.200] fields of Kansas to the deserts of
+- [33:44.080] Arizona, from the Gulf Co from the Gulf
+- [33:47.360] Coast of New England, from Alaska to
+- [33:51.120] Hawaii and everywhere in between,
+- [33:53.919] America is here. And there could be no
+- [33:58.240] more fitting place to celebrate our
+- [34:00.559] nation's 250th
+- [34:02.799] birthday than right now, right here at
+- [34:05.760] the Great American State Fair.
+- [34:09.518] [cheering and applause]
+- [34:12.079] Over the next 16 days, right here on the
+- [34:15.119] National Mall, Americans will experience
+- [34:18.320] something unlike any other country has
+- [34:21.119] seen in generations. That is a modernday
+- [34:25.280] world's fair. A celebration of the
+- [34:28.159] people, the traditions, the innovations,
+- [34:30.960] and the spirit that have made America
+- [34:33.760] the greatest nation on earth. More than
+- [34:38.240] 150 exhibits from the nation's states
+- [34:40.399] and territories will be on display.
+- [34:43.040] You'll enjoy music and movies and
+- [34:46.240] cultural performances and agricultural
+- [34:48.720] exhibits, family attractions,
+- [34:51.200] spectacular flyovers, and one of the
+- [34:54.000] most iconic sites in Washington this
+- [34:56.639] summer, a giant ferris wheel rising
+- [34:59.920] above the National Mall.
+- [35:06.800] Over two centuries ago, state fairs
+- [35:09.599] began as harvest time agricultural
+- [35:12.240] showcases that helped promote
+- [35:14.400] Americanmade products as the nation grew
+- [35:17.440] more economically independent from Great
+- [35:20.000] Britain. Restricted trade surrounding
+- [35:22.480] the War of 1812 inspired rural New
+- [35:26.240] Englanders to exhibit their livestock,
+- [35:28.880] to exhibit their produce, and
+- [35:30.960] handiccrafts in lively competitions,
+- [35:33.440] spotlighting the best of Republican
+- [35:35.760] localism and agrarian self-governance.
+- [35:38.720] The very best of America. And for the
+- [35:41.920] next two weeks, the very best of America
+- [35:44.960] is gathered right here in Washington,
+- [35:48.000] DC.
+- [35:53.359] Every state has a story to tell. Every
+- [35:57.200] state has heroes to honor. Every state
+- [36:00.720] has traditions worth celebrating. But
+- [36:03.599] most importantly, every state is part of
+- [36:07.119] one family, one people, and one nation
+- [36:10.560] under God.
+- [36:12.660] [cheering]
+- [36:17.599] Tonight, tomorrow, and for the next two
+- [36:20.640] weeks, we will be celebrating all of our
+- [36:23.200] states. We celebrate our communities,
+- [36:26.000] and above all, we celebrate the ties
+- [36:28.640] that bind us together as the United
+- [36:31.680] States of America.
+- [36:38.320] Doug, you have had a front row seat to
+- [36:42.079] so much of the incredible Freedom 250
+- [36:44.880] celebrations taking place across this
+- [36:47.760] great country. Tell us a little bit
+- [36:50.160] about what America has in store over the
+- [36:53.359] coming weeks and months.
+- [36:56.079] >> Well, thank you, Brooke, and uh what an
+- [36:58.000] amazing Secretary of Agriculture we
+- [36:59.920] have. Best ever right here. Uh thank
+- [37:02.160] you, Brooke, for you and your team.
+- [37:03.520] Everything you've done to make this fair
+- [37:04.880] possible. Incredible. Great work. Uh but
+- [37:08.320] Brooke, what what strikes me is the
+- [37:10.400] sheer scale of what we're celebrating
+- [37:12.560] across our entire nation and how we're
+- [37:15.119] celebrating. For a quarter of a
+- [37:17.119] millennia, 250 years, America's have
+- [37:20.079] we've been building, exploring,
+- [37:22.240] inventing, farming, ranching, serving,
+- [37:25.440] but most of all, dreaming big and daring
+- [37:28.560] greatly. And this year, we're
+- [37:30.560] celebrating that story in some of the
+- [37:32.640] most treasured places in our nation.
+- [37:34.720] including right here on the National
+- [37:37.359] Mall, an iconic spot that the National
+- [37:40.079] Park Service has stewarded for
+- [37:42.079] generations. We kicked off our 250th
+- [37:44.880] celebration right here with an
+- [37:46.320] incredible light show like we've never
+- [37:48.079] seen before, illuminating the Washington
+- [37:50.400] Monument on all four sides in an
+- [37:52.560] emotional retelling of the amazing
+- [37:55.119] history of America. We've got freedom
+- [37:57.680] trucks that are driving across our
+- [37:59.200] country, bringing mobile museums to
+- [38:01.280] small towns and cities across the United
+- [38:03.520] States. And in just a few days,
+- [38:06.160] President Trump will join Americans from
+- [38:08.720] across the country in my home state in
+- [38:11.760] North Dakota in the Badlands for the
+- [38:14.320] grand opening of the Theodore Roosevelt
+- [38:16.320] Presidential Library at the entrance to
+- [38:18.480] The Roosevelt National Park.
+- [38:25.760] It was in those rugged hills and those
+- [38:27.839] open prairies that a young Teddy
+- [38:29.760] Roosevelt discovered something profound
+- [38:32.079] about himself and about our country as
+- [38:35.280] he reshaped himself from a sickly young
+- [38:37.440] child to a strong rough and tumble
+- [38:39.200] cowboy, the rough rider, the only
+- [38:41.280] becoming the only president to ever win
+- [38:43.119] the Medal of Honor in military service.
+- [38:45.599] He understood that Americans are capable
+- [38:47.680] of extraordinary things when they refuse
+- [38:50.480] to settle and they choose to dare
+- [38:52.640] greatly. That is the spirit that built
+- [38:55.040] America. It's the spirit that carved
+- [38:56.960] homes out of the wilderness, built
+- [38:58.480] towering cities, won wars to defend our
+- [39:01.839] freedoms and the freedoms of this world,
+- [39:04.160] and carried our nation from 13 little
+- [39:06.720] colonies to the greatest republic in the
+- [39:09.520] history of the world.
+- [39:16.880] And that story continues across our
+- [39:19.200] country and it's told at all of our
+- [39:20.960] national park facilities, but especially
+- [39:23.119] at places like Mount Rushmore, where
+- [39:25.280] four great presidents look out across
+- [39:27.280] the American landscape, where fireworks
+- [39:29.599] will again light up the sky on the eve
+- [39:31.680] of our 250th anniversary. And in here in
+- [39:34.560] Washington, we're making DC safe and
+- [39:37.599] beautiful, revitalizing this capital
+- [39:40.079] city to reflect the greatness of the
+- [39:42.800] American people. President
+- [39:47.920] President Trump with his leadership
+- [39:50.880] has said we want to make our capital not
+- [39:53.119] only if it's the greatest country in the
+- [39:54.560] world, that this ought to be the most
+- [39:55.839] beautiful and the most safe capital in
+- [39:57.280] the world. And we're doing that under
+- [39:58.720] his leadership. We're restoring
+- [40:00.720] monuments, improving public spaces, uh
+- [40:03.920] bringing fountains back to life, and
+- [40:05.599] preparing America's front yard to
+- [40:07.280] welcome visitors from across the nation
+- [40:09.520] and around the world. And because the
+- [40:12.160] capital of the greatest republic in
+- [40:14.240] human history, it should be worthy of
+- [40:16.640] you, the people that are represented
+- [40:19.119] here. And in just a few days, Americans
+- [40:21.359] will gather right here once again for an
+- [40:23.839] unforgettable Fourth of July
+- [40:25.599] celebration, including the biggest and
+- [40:28.320] grandest display our nation and the
+- [40:31.440] world has ever seen.
+- [40:38.480] From coast to coast, Americans are
+- [40:40.320] coming together to celebrate 250 years
+- [40:43.040] of freedom. And that's what makes this
+- [40:46.320] such a incredible moment. Well, really,
+- [40:48.640] that's exactly right, Doug Bergam. How
+- [40:50.079] about a big round of applause for our
+- [40:51.440] great Secretary of the Interior?
+- [40:54.968] [cheering]
+- [40:58.319] And you're right, Doug. When you walk
+- [41:00.000] around Washington DC, not only is it
+- [41:02.240] safe again, but it is beautiful again.
+- [41:05.760] Thank you, President Trump, and thank
+- [41:07.520] you, Secretary Bergam.
+- [41:13.119] For all our differences, there are still
+- [41:15.280] some things that unite or at least
+- [41:17.359] should unite every American. A love of
+- [41:21.040] country, pride in our heritage,
+- [41:24.400] gratitude for those who came before us,
+- [41:27.280] and especially those who gave it all and
+- [41:30.800] died for the freedom that has made
+- [41:33.200] tonight possible. God bless all of our
+- [41:36.240] veterans, our soldiers, and those who
+- [41:38.480] gave the ultimate sacrifice for this
+- [41:41.280] 250th
+- [41:43.200] year of freedom in the United States of
+- [41:46.480] America,
+- [41:48.023] [applause]
+- [41:57.680] USA.
+- [42:10.560] We have a determination to leave this
+- [42:14.000] nation stronger for our children and our
+- [42:17.599] grandchildren.
+- [42:21.040] >> Yes, that's the American story and it's
+- [42:23.119] still being written. And as Brooke gave
+- [42:25.359] a shout out to our incredible military,
+- [42:27.280] I want to give a shout out to an amazing
+- [42:29.520] group founded in 1791 by George
+- [42:32.800] Washington himself. The group that has
+- [42:35.200] the law enforcement responsibility for
+- [42:37.280] these monuments, the Statue of Liberty,
+- [42:39.119] the Golden Gate Recreation Area, none
+- [42:41.359] other than our very own United States
+- [42:44.000] Park Police. They're here tonight.
+- [42:45.760] They're keeping you safe. Let's give it
+- [42:47.520] up for all those US Park Police, all the
+- [42:50.000] Secret Service that are here tonight,
+- [42:51.520] all of our law enforcement.
+- [43:07.760] For 250 years, Americans have crossed
+- [43:11.119] oceans, settled frontiers, built
+- [43:14.000] communities, raised families, defended
+- [43:16.720] liberty, and through innovation, not
+- [43:19.440] regulation. Through innovation, they've
+- [43:21.359] created enormous prosperity, making us
+- [43:23.760] the most abundant and richest country in
+- [43:26.079] the world. And now, now, today, next
+- [43:30.640] week, July 4th, 2026, it falls to us to
+- [43:35.599] carry that story forward. America is a
+- [43:39.280] vast, a beautiful and abundant country,
+- [43:42.960] but it's up to all of us to preserve
+- [43:45.680] this great inheritance, to strengthen
+- [43:48.319] it, to celebrate it, and to pass it on
+- [43:51.760] by the grace of Almighty God.
+- [44:00.800] As we close, we want to again share our
+- [44:03.040] gratitude with all of you that are here
+- [44:04.960] and all of you that are watching because
+- [44:07.040] if you're here tonight, it means one
+- [44:08.640] thing. It means that you care about this
+- [44:10.400] country. You care about its future. You
+- [44:12.880] care about your children and your
+- [44:14.240] children's children. And you care about
+- [44:16.400] the fact that we have things to
+- [44:18.240] celebrate in each of our 50 states, in
+- [44:20.560] each of our amazing six territories. So,
+- [44:22.880] if you're here in person, enjoy the
+- [44:25.200] American State Fair. If you are not
+- [44:28.160] here, you've got 16 days to get here to
+- [44:31.280] see this incredible, amazing celebration
+- [44:33.920] of America. So, join us as we honor
+- [44:36.960] these 250 years of American greatness.
+- [44:39.760] And with your help, we begin writing the
+- [44:42.800] next chapter of the great American
+- [44:45.040] story.
+- [44:46.880] >> That's right. God bless you. God bless
+- [44:50.079] our president, Donald J. Trump
+- [44:53.390] [cheering]
+- [44:56.480] and God bless these the United States of
+- [45:00.160] America. Thank you everybody. God bless
+- [45:02.480] you. Thank you.
+- [45:05.119] >> Thank you and happy 250 America.
+- [45:08.456] [cheering]
+- [45:12.000] representing all 56 states and
+- [45:13.920] territories. Please welcome the United
+- [45:15.760] States Ceremonial Flag Unit accompanied
+- [45:18.000] by the President's Own United States
+- [45:20.160] Marine Band.
+- [45:28.106] [music]
+- [45:49.721] >> [music]
+- [45:51.359] >> Yeah. Yeah.
+- [45:54.306] [music]
+- [46:04.131] >> [music]
+- [46:10.026] [music]
+- [46:10.240] >> Heat. Heat.
+- [46:17.887] [music]
+- [46:18.480] Heat.
+- [46:24.437] [music]
+- [46:30.987] [music]
+- [46:36.882] [music]
+- [46:43.432] [music]
+- [46:44.480] Heat.
+- [46:56.319] Ladies and gentlemen, please rise if
+- [46:58.160] you're able for the presentation of
+- [46:59.599] colors and the singing of our national
+- [47:01.599] anthem performed by Alexis Wilkins.
+- [47:04.240] Sans.
+- [47:12.252] >> [music]
+- [47:17.492] [music]
+- [47:26.007] [music]
+- [47:30.079] >> Heat. Heat. [music]
+- [47:36.487] >> [music]
+- [47:42.382] [music]
+- [47:48.160] >> 2.
+- [48:02.033] >> [music]
+- [48:08.583] [music]
+- [48:11.520] >> Oh, see
+- [48:15.133] [music]
+- [48:16.079] by [singing] the dawn of cold night,
+- [48:20.960] what so [music] proudly [singing]
+- [48:23.599] we held
+- [48:26.000] at the twilight
+- [48:28.559] Last
+- [48:30.800] whose voice set [music] bright stars
+- [48:34.128] [singing]
+- [48:35.440] through the perilous
+- [48:38.559] sky
+- [48:40.319] or the riars
+- [48:42.643] [music] we watch [singing]
+- [48:45.119] were so galling
+- [48:50.480] and the [singing] rockets
+- [48:53.040] red glare
+- [48:55.440] the bombs bursting [singing]
+- [48:58.640] air
+- [49:00.400] gave proof through the [singing]
+- [49:03.760] night
+- [49:05.280] that our flag [music] was still
+- [49:08.188] [singing] there.
+- [49:10.640] Oh, [music] does that star spangle
+- [49:16.048] [singing] B
+- [49:18.880] away [music]
+- [49:23.040] for the land
+- [49:26.079] of the bra
+- [49:29.804] [music]
+- [49:36.240] in the Oh [singing]
+- [49:38.319] [music]
+- [49:38.960] my love.
+- [49:46.834] [cheering]
+- [50:09.759] >> [music]
+- [50:16.964] [music]
+- [50:24.319] >> Now, in tribute to the men and women who
+- [50:26.240] have defended our freedom,
+- [50:27.760] performing Toby Keith's iconic patriotic
+- [50:30.160] anthem, courtesy of the Red, White, and
+- [50:32.400] Blue. Please welcome Master Gunnery
+- [50:34.720] Sergeant Alan Prather of the President's
+- [50:36.880] Own United States Marine Band.
+- [50:43.200] American girls and American guys, we'll
+- [50:47.040] always stand [music] up and salute.
+- [50:49.280] We'll always recognize when we see your
+- [50:52.720] glory flying. There's a lot of
+- [50:54.955] [music and singing] men dead so we can
+- [50:57.680] sleep in peace at night when we
+- [51:00.195] >> [singing]
+- [51:00.400] >> lay down our head.
+- [51:03.760] My daddy served [singing] in the army
+- [51:06.400] where he lost his right eye. But he flew
+- [51:08.720] a flag out in the yard till the day that
+- [51:11.839] he [singing] died. He wanted my mother,
+- [51:14.319] a brother, sister, and me to grow up
+- [51:17.880] [singing] and live happy in [music] the
+- [51:20.160] land of the free. Now this nation that I
+- [51:23.200] love has fallen [singing] under attack.
+- [51:26.079] A mighty sucker [music] punch came
+- [51:27.920] flying in from somewhere in [singing]
+- [51:29.760] the back. Soon as we could see clearly
+- [51:33.040] we were big black eye [music]
+- [51:35.200] and we [singing] lit up your world like
+- [51:37.599] the 4th of July.
+- [51:41.920] the s [music]
+- [51:44.000] the top of this list the statue already
+- [51:47.920] started shell [music]
+- [51:54.400] when you
+- [51:56.240] start [music]
+- [52:01.520] raining [music] down [singing] you
+- [52:07.005] [music] brought to you courtesy
+- [52:09.760] of the red wine
+- [52:24.036] >> [music]
+- [52:29.119] >> Oh, justice will be served and the
+- [52:32.079] battle will rage. This big dog [singing]
+- [52:35.200] will fight when you rattle his cage.
+- [52:38.640] You'll be sorry that you messed with the
+- [52:41.680] US of A
+- [52:45.760] cuz it's the American way [music]
+- [52:52.880] the top [music]
+- [52:55.119] statue
+- [52:56.640] start shell.
+- [53:03.991] [music]
+- [53:06.319] Heat. Heat. Heat.
+- [53:14.471] [music]
+- [53:16.480] You courtesy
+- [53:18.160] of the [singing] red.
+- [53:23.641] [music]
+- [53:34.776] [music]
+- [53:40.016] [music]
+- [54:23.247] >> [music]
+- [54:46.172] [music]
+- [54:57.307] [music]
+- [55:13.683] [music]
+- [55:30.640] >> Heat.
+- [55:50.880] Heat.
+- [56:53.244] >> [music]
+- [56:59.139] [music]
+- [57:05.689] [music]
+- [57:13.520] >> Ladies and gentlemen, as we pause to
+- [57:15.119] reflect on the blessings of liberty and
+- [57:16.960] faith that has guided our nation
+- [57:18.559] throughout its history, to deliver
+- [57:20.400] tonight's spiritual invocation. Please
+- [57:22.400] welcome Pastor Jettison Franklin.
+- [57:32.559] Being from Eastern North Carolina as a
+- [57:35.760] child, I was raised near Fort Bragg that
+- [57:38.079] is now Fort Liberty.
+- [57:40.319] And when I heard that jet fly over,
+- [57:44.400] I immediately went back to my childhood
+- [57:46.880] when they used to have around the the
+- [57:50.319] airplane base there signs on the
+- [57:52.640] interstate
+- [57:54.559] that said, "Pardon the noise. It's the
+- [57:58.000] sound of freedom."
+- [58:01.040] Can you make some noise for the greatest
+- [58:04.319] nation on the planet? In God we trust.
+- [58:11.190] [cheering]
+- [58:12.319] If you would stand to your feet, we're
+- [58:14.400] going to pray. And this is going to be
+- [58:17.920] the greatest celebration in 250 years of
+- [58:22.480] liberty and freedom.
+- [58:25.119] In the book of Leviticus 25 and verse
+- [58:28.400] 10, the Bible says, "Proclaim liberty
+- [58:33.119] throughout all the land and to the
+- [58:37.280] inhabitants thereof."
+- [58:40.400] God let us know in that scripture that
+- [58:43.440] liberty and freedom are his gift to us
+- [58:50.240] that are born and raised and live and
+- [58:53.280] get to come and become citizens of the
+- [58:56.480] United States of America, the greatest
+- [58:59.760] country in the world.
+- [59:03.040] And I'm going to ask you to do what our
+- [59:06.079] forefathers did. Like George Washington
+- [59:10.160] when he kneled in the snow and prayed
+- [59:13.760] with the troops. Like the pilgrims at
+- [59:17.839] Plymouth Rock when they bowed down and
+- [59:21.440] prayed at the very beginning days of the
+- [59:24.559] birth of this nation.
+- [59:27.040] God breathed life into this nation. And
+- [59:30.400] he's not done yet. And we are here to
+- [59:33.839] acknowledge again that God is still
+- [59:37.920] real. He loves this nation and he hears
+- [59:41.760] and answers prayer. Would you pray with
+- [59:44.559] me for America?
+- [59:47.040] Lord, we come again on this 250th
+- [59:50.480] birthday and we thank you for this
+- [59:53.040] nation. We thank you, oh God, for your
+- [59:56.240] faithfulness throughout all the
+- [59:57.920] generations.
+- [59:59.760] And we thank you because you have
+- [01:00:03.520] brought us to this moment for such a
+- [01:00:05.680] time as this.
+- [01:00:07.839] Please breathe on America again. Lord,
+- [01:00:11.440] let your grace begin to cover this
+- [01:00:14.000] nation like never before. We thank you,
+- [01:00:17.200] oh God, for freedom of religion. We
+- [01:00:20.079] thank you that all religions have a
+- [01:00:22.240] right to worship as they desire. But we
+- [01:00:26.160] also thank you for our Christian roots,
+- [01:00:28.480] oh God, in this nation. And we thank you
+- [01:00:31.520] for the cross. And we thank you for the
+- [01:00:34.079] word of God. And we thank you for
+- [01:00:37.680] freedom. So bless this nation. And let
+- [01:00:41.760] your grace flow from sea to shining sea.
+- [01:00:45.920] Oh God, we thank you that your grace is
+- [01:00:48.640] sufficient for every challenge. touch
+- [01:00:51.760] our president, touch his cabinet, bless
+- [01:00:54.880] our Supreme Court, bless our Congress,
+- [01:00:57.440] and bless our Senate. And Lord, I pray,
+- [01:01:00.640] thy kingdom come, and thy will be done.
+- [01:01:03.920] Bless our young people. Bless our
+- [01:01:06.000] children and our children's children.
+- [01:01:08.240] And lastly, oh God, we ask you to send
+- [01:01:11.680] revival to the churches across America
+- [01:01:15.520] until there is a proclamation. Let
+- [01:01:18.079] freedom ring from from addiction, from
+- [01:01:22.160] fear, from anxiety, and from shame and
+- [01:01:25.680] guilt because of what you have provided
+- [01:01:29.040] through grace and through your
+- [01:01:31.760] salvation. In your mighty name we pray.
+- [01:01:35.599] Amen.
+- [01:01:48.160] When
+- [01:01:55.857] [singing]
+- [01:01:56.400] years
+- [01:01:58.319] bright shine
+- [01:02:01.760] as the
+- [01:02:04.160] sun,
+- [01:02:06.240] the sun
+- [01:02:14.079] to sing
+- [01:02:16.720] God's [singing]
+- [01:02:17.520] praise.
+- [01:02:19.839] And when
+- [01:02:22.160] we
+- [01:02:25.333] >> [singing]
+- [01:02:25.680] >> God
+- [01:02:34.160] bless. [singing]
+- [01:02:59.680] performing the timeless and inspiring
+- [01:03:01.680] Hallelujah, followed by a powerful
+- [01:03:03.520] rendition of A Maria, accompanied by the
+- [01:03:06.240] president's own United States Marine
+- [01:03:07.920] Band. Please welcome Master Gunnery
+- [01:03:09.920] Sergeant Kevin Baneer and America's
+- [01:03:12.640] presidential tenor, Christopher Mchio.
+- [01:03:30.178] >> [music]
+- [01:03:37.383] [music]
+- [01:03:42.079] >> I heard there was a secret cord that
+- [01:03:46.640] David played and it pleased the Lord.
+- [01:03:50.319] But you don't [singing] really care for
+- [01:03:53.680] music, do you?
+- [01:03:57.920] It goes like this. The fourth, the
+- [01:04:01.200] fifth, the minor fall, the major lift,
+- [01:04:05.920] the bubble king composing. Halleluah.
+- [01:04:13.520] Hallelujah. [singing]
+- [01:04:17.440] Hallelu.
+- [01:04:21.359] Hallelujah. [singing]
+- [01:04:25.200] Hallelujah.
+- [01:04:27.819] [singing]
+- [01:04:36.880] Your faith was strong. You needed proof.
+- [01:04:40.799] You saw her bathing on the roof. [music]
+- [01:04:44.720] Her beauty and the moonlight over
+- [01:04:48.880] through you.
+- [01:04:52.079] She tied you to a kitchen chair. She
+- [01:04:56.319] broke your crown. She cut your hair. And
+- [01:05:00.000] from [music and singing] your lips, she
+- [01:05:01.920] drew the Hallelu.
+- [01:05:06.960] Hallelu.
+- [01:05:10.640] Hallelu. [singing and music]
+- [01:05:14.480] Hallelu.
+- [01:05:18.240] Hallelujah. [singing]
+- [01:05:24.150] [singing]
+- [01:05:26.400] Baby, [music] I've been here before. I
+- [01:05:30.240] seen this room when I walk this floor. I
+- [01:05:33.839] used to [singing and music] live alone
+- [01:05:36.240] before I knew you.
+- [01:05:40.559] Oh, I've seen your flag [singing]
+- [01:05:42.400] on the march. And love is enough. A
+- [01:05:46.880] victory march. [music] It's colder. It's
+- [01:05:49.920] unbroken. [singing] Halleluah.
+- [01:05:54.960] Hallelujah.
+- [01:05:58.480] Hallelu. [singing]
+- [01:06:02.160] Oh,
+- [01:06:06.070] [singing]
+- [01:06:08.035] [music]
+- [01:06:11.310] [singing]
+- [01:06:16.480] heat [music]
+- [01:06:18.515] [singing]
+- [01:06:21.790] [music]
+- [01:06:26.720] n
+- [01:06:28.340] [music]
+- [01:06:35.200] did my [singing] burst, but it wasn't
+- [01:06:37.920] much I couldn't fail. So I tried to
+- [01:06:41.440] touch I told the [singing] truth I dare
+- [01:06:45.359] come to fool [music] you
+- [01:06:49.359] and leave
+- [01:06:51.200] it [singing] all wrong. I stand [music]
+- [01:06:53.920] before the Lord
+- [01:06:56.720] with my
+- [01:06:58.880] power.
+- [01:07:00.436] [singing and music]
+- [01:07:08.296] [singing]
+- [01:07:14.846] >> [music]
+- [01:07:17.466] [singing]
+- [01:07:20.086] [music]
+- [01:07:22.051] [singing]
+- [01:07:24.480] >> Heat [music]
+- [01:07:28.880] up here.
+- [01:07:30.566] [music]
+- [01:07:33.841] [singing]
+- [01:07:42.356] >> [music]
+- [01:07:44.160] >> Heat.
+- [01:07:50.216] [music]
+- [01:07:52.836] [cheering]
+- [01:07:54.880] Heat.
+- [01:08:03.317] >> [cheering]
+- [01:08:32.880] >> Morio
+- [01:08:41.307] [music]
+- [01:08:42.480] glor. Oh [singing]
+- [01:08:44.560] my
+- [01:08:55.199] See a
+- [01:09:01.040] What [singing and music] a
+- [01:09:05.440] all
+- [01:09:14.713] [singing]
+- [01:09:19.199] the [singing]
+- [01:09:26.319] flow [singing] might
+- [01:09:38.947] >> [singing]
+- [01:09:42.000] >> with burning [singing]
+- [01:09:45.359] of rockish
+- [01:09:50.640] and resto. [singing]
+- [01:09:57.943] [singing]
+- [01:10:02.239] Oh, [singing]
+- [01:10:06.719] holy.
+- [01:10:08.423] [singing and music]
+- [01:10:24.143] [cheering]
+- [01:10:28.159] God bless you.
+- [01:10:30.693] >> [cheering]
+- [01:10:35.933] [cheering]
+- [01:10:40.518] [music]
+- [01:10:58.080] >> Warrior.
+- [01:11:00.169] [music] You're always on the run now.
+- [01:11:04.000] Running after [singing] somebody.
+- [01:11:07.374] [music] You got to get him somehow.
+- [01:11:11.360] I think you got to slow down
+- [01:11:15.040] before you start [music] to blow it.
+- [01:11:18.239] I think you're headed for a breakdown.
+- [01:11:21.920] So be careful not to show
+- [01:11:23.749] [singing and music] it.
+- [01:11:25.920] You really don't remember.
+- [01:11:29.040] Was it something that he said? [music]
+- [01:11:32.880] Are the voices in your head
+- [01:11:36.640] calling Glor
+- [01:11:41.679] Gloria Gloria?
+- [01:11:44.239] >> Don't you [music] think you're falling?
+- [01:11:47.760] >> If everybody wants you,
+- [01:11:50.960] >> why isn't anybody calling?
+- [01:11:55.120] You don't have to answer
+- [01:11:59.040] it on the line. Oh, calling glory.
+- [01:12:11.565] [music]
+- [01:12:19.425] [music]
+- [01:12:30.560] >> [music]
+- [01:12:37.110] [music]
+- [01:12:41.920] >> Ladies and [music] gentlemen, please
+- [01:12:43.120] join us in recognizing distinguished
+- [01:12:44.880] guests joining us for this historic
+- [01:12:46.560] celebration, Speaker of the House, Mike
+- [01:12:49.360] Johnson.
+- [01:12:52.159] Acting United States Attorney General
+- [01:12:54.000] Todd Blanch,
+- [01:12:57.280] Secretary of Education Linda McMahon,
+- [01:13:01.345] [music] Acting Secretary of Labor Keith
+- [01:13:03.360] Thunder,
+- [01:13:05.600] Administrator of the Centers for
+- [01:13:06.960] Medicare and Medicaid Services, Dr.
+- [01:13:09.120] Mean,
+- [01:13:12.239] director of the Federal Bureau of
+- [01:13:13.760] Investigation, Cash Patel,
+- [01:13:18.000] Secretary of Homeland Security, Mark
+- [01:13:20.000] Wayne Mullen.
+- [01:13:22.305] [music]
+- [01:13:23.040] And we also recognize the dedicated
+- [01:13:25.280] National Park Service Rangers and the
+- [01:13:26.880] officers of the United [music] States
+- [01:13:28.080] Park Police whose service helps preserve
+- [01:13:30.480] and protect our nation's most treasured
+- [01:13:32.400] places. Please join us also [music] in
+- [01:13:34.400] acknowledging Downrange, the United
+- [01:13:36.159] States Army's premier rock band who just
+- [01:13:37.920] performed lower Branigan's Gloria.
+- [01:13:41.520] The president's own United [music]
+- [01:13:42.800] States Marine Band under the direction
+- [01:13:44.400] of Colonel Ryan Nal.
+- [01:13:46.880] United States Marine Corps and the Joint
+- [01:13:48.480] Armed Services Chorus for helping bring
+- [01:13:50.400] tonight's celebration to life. We are
+- [01:13:53.199] honored to welcome members of the
+- [01:13:54.560] Diplomatic Corps [music] and
+- [01:13:55.440] distinguished foreign dignitaries from
+- [01:13:57.040] around the world. And finally, we
+- [01:13:59.120] recognize the most important guests of
+- [01:14:01.199] all. You sitting in those chairs here on
+- [01:14:03.571] [music] the National Mall. Americans
+- [01:14:04.960] gathered all around the country tonight.
+- [01:14:07.120] The patriots, the workers, families,
+- [01:14:09.280] veterans, [music] dreamers, and citizens
+- [01:14:11.199] whose love of country has sustained this
+- [01:14:13.520] great republic for 250 years. Thank you
+- [01:14:17.120] for joining us [music] as we celebrate
+- [01:14:19.199] tonight the United States of America.
+- [01:14:29.771] >> [music]
+- [01:14:35.666] [music]
+- [01:14:43.920] >> I [music] used to think maybe you love
+- [01:14:46.480] me. Now baby, I'm sure.
+- [01:14:52.800] And I just [music] can't wait till the
+- [01:14:54.800] day when you knock on my door.
+- [01:15:01.360] Now every time I go for the mailbox,
+- [01:15:03.831] [music]
+- [01:15:04.560] got to hold myself down
+- [01:15:10.080] cuz [music] I just can't wait till you
+- [01:15:12.400] ride me. You're coming around.
+- [01:15:16.640] Sing it. I'm walking on sunshine.
+- [01:15:21.360] Oh, I'm walking on sunshine.
+- [01:15:23.482] [music and singing]
+- [01:15:24.880] Wo,
+- [01:15:26.480] I'm walking on sunshine.
+- [01:15:29.280] Wo,
+- [01:15:30.880] and don't [music] it feel good?
+- [01:15:34.080] All right, now don't feel good.
+- [01:15:40.640] I used to think maybe you love me. Now I
+- [01:15:44.239] know that it's true. [music]
+- [01:15:49.280] And I don't want to spend my whole life
+- [01:15:51.647] [music] just waiting for you.
+- [01:15:57.920] No, I don't want [music] you back for
+- [01:16:00.000] the weekend. Not back for a day.
+- [01:16:04.640] No, no, no. I said, "Baby, I just want
+- [01:16:08.677] [music] you back. And I want you to
+- [01:16:11.120] stay."
+- [01:16:13.520] All right. Now, I'm walking on sunshine.
+- [01:16:17.360] Oh,
+- [01:16:18.880] I'm walking on [music and singing]
+- [01:16:20.000] sunshine.
+- [01:16:21.679] Oh,
+- [01:16:23.199] I'm walking on sunshine. [music]
+- [01:16:26.080] Oh,
+- [01:16:27.600] and don't it feel good? I feel it. I
+- [01:16:30.000] feel it. I feel it again [music] now.
+- [01:16:32.000] And don't you feel good? All right. All
+- [01:16:34.800] right. All right. Don't feel good.
+- [01:16:37.497] [music] Hey. Hey. Hey. And don't feel
+- [01:16:41.760] good. [music]
+- [01:16:42.640] Hey.
+- [01:16:44.159] Yeah. Don't feel good.
+- [01:16:49.288] [cheering]
+- [01:16:57.120] Tonight we honor those who stand watch,
+- [01:16:59.600] answer the call, and dedicate their
+- [01:17:01.600] lives to serve others. Accompanied by
+- [01:17:03.840] the United States Park Police and
+- [01:17:05.679] National Park Service Honor Guards,
+- [01:17:07.600] please welcome the chairman and CEO of
+- [01:17:09.600] the Tunnel to Towers Foundation, Frank
+- [01:17:12.320] Siller.
+- [01:17:22.320] Thank you. Today is a day of
+- [01:17:25.040] celebration.
+- [01:17:26.880] You love America. I love America. And
+- [01:17:30.480] this is how we show it.
+- [01:17:34.239] But it's also a time to remember our
+- [01:17:37.440] freedoms, our lives, and everything we
+- [01:17:40.960] hold dear are defended by the military
+- [01:17:44.080] and service members, police officers,
+- [01:17:47.440] park rangers, firefighters, and all
+- [01:17:50.560] first responders who volunteer to put
+- [01:17:53.440] themselves in harm's way for us.
+- [01:17:57.760] We especially honor those who preserve
+- [01:18:00.800] our monuments, memorials, and the
+- [01:18:04.080] natural wonders of this land and protect
+- [01:18:07.440] the millions of visitors who explore our
+- [01:18:11.040] national parks each year. The parks
+- [01:18:14.800] police and the National Park Service who
+- [01:18:18.560] never get a thank you, but not tonight.
+- [01:18:21.199] So, let's say thank you. Thank you.
+- [01:18:23.280] Thank you. [cheering]
+- [01:18:29.120] As chairman and CEO of the Tunnel to
+- [01:18:32.000] Towers Foundation,
+- [01:18:34.239] when I think of our first responders,
+- [01:18:37.520] I I hold closest in my heart what
+- [01:18:40.880] happened 25 years ago.
+- [01:18:44.480] On September 11th, 2001, our nation
+- [01:18:48.080] experienced the deadliest terrorist
+- [01:18:50.080] attack in American history.
+- [01:18:53.040] Across the country, we watched as the
+- [01:18:55.679] World Trade Center crumbled.
+- [01:18:58.880] A flight from Washington DC was hijacked
+- [01:19:02.480] and flown into the Pentagon.
+- [01:19:05.600] And 40 innocent people perished in a
+- [01:19:08.960] field in Shanksville, Pennsylvania.
+- [01:19:12.159] I recently visited Shanksville,
+- [01:19:15.120] Pennsylvania with a piece of steel from
+- [01:19:17.679] the South Tower that came down 25 years
+- [01:19:20.960] ago. It's 16,900
+- [01:19:24.239] pounds. It has the souls of so many
+- [01:19:27.440] people who perished that day and we're
+- [01:19:30.159] bringing it all around America to make
+- [01:19:31.920] sure we never forget. It was the first
+- [01:19:34.640] battle that was fought in the war
+- [01:19:37.679] against terrorism
+- [01:19:39.679] was the 40 great heroes that were on
+- [01:19:42.000] flight night fight 93 that said as Todd
+- [01:19:46.159] Beamer said, "Let's roll." They took
+- [01:19:48.320] that plane down. They turned it upside
+- [01:19:51.199] down when they were taking over the
+- [01:19:52.640] cockpit. It flew upside down into the
+- [01:19:55.760] right over a school and into a field in
+- [01:19:58.400] Shanksville. The first battle on the
+- [01:20:01.440] global war on terror. And those great
+- [01:20:03.840] heroes war won that battle.
+- [01:20:07.760] In total,
+- [01:20:10.159] 2,977
+- [01:20:13.280] human beings perished at the hands of
+- [01:20:15.760] hatred, including my brother, New York
+- [01:20:18.239] City firefighter Steven Silla. To this
+- [01:20:21.520] day, many are still haunted by the
+- [01:20:24.080] tragedy of 911. It lives on in all those
+- [01:20:27.679] who suffer from 911 related illnesses.
+- [01:20:32.080] In the more than 7,000
+- [01:20:34.640] military personnel and families who have
+- [01:20:38.159] lost their loved ones in fighting in the
+- [01:20:41.120] global war on terror and families like
+- [01:20:43.920] mine whose loved ones ran towards and
+- [01:20:48.480] answered the call as first responders on
+- [01:20:51.760] that faithful day.
+- [01:20:54.640] As I look out
+- [01:20:56.880] at this incredible gathering of families
+- [01:21:00.320] celebrating
+- [01:21:02.000] and everything that makes this country
+- [01:21:06.800] so great, we must remember
+- [01:21:11.040] the extraordinary sacrifices
+- [01:21:14.000] of ordinary people who give their lives
+- [01:21:17.840] for us and in doing so become heroes.
+- [01:21:28.400] Today we pause to recognize every
+- [01:21:33.280] innocent life that was taken.
+- [01:21:37.600] Every first responder who ran towards
+- [01:21:40.080] danger. Every service member who
+- [01:21:42.560] answered the call in the years that
+- [01:21:45.360] followed 911.
+- [01:21:47.679] The bravery, heroism, sacrifice, and
+- [01:21:52.159] patriotism displayed by our first
+- [01:21:54.560] responders, our military, parks, police,
+- [01:21:58.800] park service rangers, and forest rangers
+- [01:22:02.800] is nothing short of incredible.
+- [01:22:07.360] So today, as you explore our nation's
+- [01:22:11.199] capital,
+- [01:22:12.719] enjoy the beauty of this natural
+- [01:22:16.960] the national mall and learn even more
+- [01:22:20.239] about the heritage and the history of
+- [01:22:22.320] our country. We must never forget the
+- [01:22:26.080] fallen. It is our duty to ensure that
+- [01:22:29.520] their names are always remembered
+- [01:22:33.440] and that that their memories live on
+- [01:22:36.080] through the work we do at the Tunnel to
+- [01:22:38.719] Towers Foundation.
+- [01:22:40.960] As a symbol of our nation's gratitude, I
+- [01:22:45.360] now invite the honor guard to lay a
+- [01:22:47.679] wreath in their memory.
+- [01:22:54.800] detail.
+- [01:23:20.719] Ready?
+- [01:23:22.880] Ready,
+- [01:23:45.040] set, wait.
+- [01:24:18.623] >> [music]
+- [01:24:25.828] [music]
+- [01:24:33.840] >> Heat. Heat.
+- [01:24:40.238] [music]
+- [01:24:46.788] >> [music]
+- [01:25:01.853] [music]
+- [01:25:33.948] [music]
+- [01:25:38.159] >> Come on, America. Are you guys ready to
+- [01:25:40.800] celebrate 250 years of freedom? [music]
+- [01:25:46.639] Well, the sun's coming up over New York
+- [01:25:50.560] City.
+- [01:25:54.000] A school bus [music and singing] driver
+- [01:25:56.320] in a traffic jam.
+- [01:26:01.199] Staring at the faces in a rear view
+- [01:26:04.639] mirror.
+- [01:26:08.159] Looking at the promise of the promised
+- [01:26:11.284] [music and singing] land.
+- [01:26:15.199] One kid [music] dreams of fame [singing]
+- [01:26:18.159] and fortune.
+- [01:26:21.109] [music] Come on.
+- [01:26:23.280] One kid helps to pay the rent.
+- [01:26:27.659] [music]
+- [01:26:30.000] One could end up going to prison.
+- [01:26:36.000] Let me tell you, one just might be
+- [01:26:38.139] [music and singing] president.
+- [01:26:41.840] Come on.
+- [01:26:44.639] Only in America. [music and singing]
+- [01:26:48.000] Dream in a red, white, and blue.
+- [01:26:51.600] Only in America.
+- [01:26:54.480] When we dream [music] as big as we want
+- [01:26:56.560] to, we all [singing] get a chance.
+- [01:27:01.280] Everybody gets to dance. [music]
+- [01:27:05.280] Only in [singing] America.
+- [01:27:09.120] Come on America, [music] let me hear
+- [01:27:10.400] you. Only
+- [01:27:12.960] in America
+- [01:27:15.360] where we're dreaming [music] of red,
+- [01:27:17.040] white, and blue. Oh, only in [singing]
+- [01:27:20.239] America
+- [01:27:22.320] where a dream as big as we [music] want
+- [01:27:24.480] to. We all get a chance.
+- [01:27:29.120] Everybody gets to dance. [music]
+- [01:27:33.440] only [singing] in America.
+- [01:27:38.400] [music]
+- [01:27:39.760] Woo!
+- [01:27:43.920] Come on, America. Y'all ready to
+- [01:27:46.080] celebrate? Come on, get up off your
+- [01:27:48.639] feet. Let me see those hands. Hey,
+- [01:27:52.080] celebrate
+- [01:27:54.000] good times. Come on. Yeah, let's
+- [01:27:56.960] celebrate.
+- [01:27:58.719] All right, now celebrate
+- [01:28:01.840] good times. [singing] Come on. We're
+- [01:28:04.800] celebrating.
+- [01:28:06.800] There's a party going on [music] right
+- [01:28:09.040] here. A celebration that last throughout
+- [01:28:12.880] the years. So bring your good times and
+- [01:28:16.800] your [music] laughter, too. [singing]
+- [01:28:19.600] Celebrate and party. Come on America,
+- [01:28:22.400] let's go.
+- [01:28:23.600] >> Cate
+- [01:28:25.520] good times. [music and singing] Come on,
+- [01:28:28.400] celebrate.
+- [01:28:30.239] All right. Now celebrate
+- [01:28:33.360] good times. Come on, let's celebrate.
+- [01:28:39.360] Cate
+- [01:28:41.199] good [music] times. Come on. Come on.
+- [01:28:54.960] Please welcome the 20th United States
+- [01:28:56.880] Secretary of Transportation, Shawn
+- [01:28:59.280] Duffy.
+- [01:29:06.171] >> [music]
+- [01:29:13.040] >> Hey everybody.
+- [01:29:15.760] Okay, to start this off, I think we have
+- [01:29:18.800] to give a big round of applause for our
+- [01:29:22.000] military band and singers. Way better
+- [01:29:24.960] than those libtards that canceled on us.
+- [01:29:28.000] So much better. [cheering]
+- [01:29:29.760] Thank you guys.
+- [01:29:33.840] President Trump will make you famous.
+- [01:29:37.280] So, I I want to say what an incredible
+- [01:29:39.199] evening that we have uh this amazing
+- [01:29:42.239] music. We have flyovers and in just a
+- [01:29:46.320] few moments, we're about to hear from
+- [01:29:49.120] the greatest president that's ever
+- [01:29:51.840] existed in this country since George
+- [01:29:54.639] Washington. [cheering]
+- [01:29:59.120] It's going to be great. We're going to
+- [01:30:00.239] have Ferris Wheel Rodeo. We're going to
+- [01:30:02.880] have Maja Mondays.
+- [01:30:06.159] It's going to be awesome.
+- [01:30:08.480] Uh, by the way, I should probably
+- [01:30:09.760] introduce my family. I'm here with my
+- [01:30:10.960] wife Rachel Campo Duffy. Uh, and five of
+- [01:30:13.679] my my kids, my son-in-law, and my uh
+- [01:30:17.440] brand new uh baby granddaughter who's
+- [01:30:19.679] not even a month old. Uh, so welcome
+- [01:30:22.159] everybody.
+- [01:30:24.480] But I want you guys to just put on your
+- [01:30:25.920] calendar. It doesn't stop on the 4th of
+- [01:30:28.320] July. Okay. August 23rd right here at
+- [01:30:32.480] the Capitol. Grand Prix race,
+- [01:30:36.719] 190 miles an hour around the mall, Indie
+- [01:30:40.320] cars. The last time we did this was 1801
+- [01:30:45.199] and we raced horses. So, we're Indie car
+- [01:30:48.560] in August 23rd. It's going to be free.
+- [01:30:51.440] So, mark your calendars. Um, I don't
+- [01:30:53.760] know if have you guys noticed that the
+- [01:30:55.600] FIFA World Cup is going on right now.
+- [01:30:59.679] America's doing pretty well. What I find
+- [01:31:02.639] fascinating is that all of these
+- [01:31:04.800] tourists from around the world have come
+- [01:31:06.400] to America and they've fallen in love.
+- [01:31:09.840] They love our food, our culture.
+- [01:31:15.199] They they love our our our parks, the
+- [01:31:18.239] beauty of America. They love the people
+- [01:31:20.480] of America. They love that they get free
+- [01:31:22.880] refills and soda when they go out to
+- [01:31:24.719] eat. They love Costco. They love Bass
+- [01:31:28.159] Pro.
+- [01:31:30.480] And what's shocking is that they were
+- [01:31:33.280] shocked to love America
+- [01:31:35.679] because
+- [01:31:37.280] uh they've been lied to in their home
+- [01:31:39.760] countries by the liberal media. They've
+- [01:31:42.320] been told that America is a dark and
+- [01:31:46.239] dirty violent place.
+- [01:31:48.800] Well, now they've discovered that that
+- [01:31:50.719] couldn't be further from the truth. So,
+- [01:31:53.840] as these tourists have come and
+- [01:31:56.239] discovered America, I think on her 250th
+- [01:32:00.719] birthday, it would only be appropriate
+- [01:32:03.040] for us to rediscover America. And I
+- [01:32:07.280] would suggest the way you do that is to
+- [01:32:09.920] gas up your car, to pack up your kids,
+- [01:32:13.199] to load up a cooler, and do a great
+- [01:32:16.239] American road trip. Hit the open road.
+- [01:32:23.199] Grand Canyon, Yellowstone, maybe the
+- [01:32:26.159] Smoky Mountains, or just a park that's a
+- [01:32:29.600] couple hours away from your home. But
+- [01:32:32.480] when you do this, have your kids put
+- [01:32:34.880] their phones away and reconnect with
+- [01:32:38.880] your family. So important, you know,
+- [01:32:42.400] speaking of families, modern culture has
+- [01:32:45.280] told uh our young people that they
+- [01:32:48.719] shouldn't look for love. They shouldn't
+- [01:32:50.800] have a family. They shouldn't have kids.
+- [01:32:52.400] Instead, focus on their education, focus
+- [01:32:54.719] on their careers, focus on their bank
+- [01:32:57.600] accounts. Have a free Saturday morning
+- [01:32:59.840] and go get a vente latte with your
+- [01:33:01.600] friends at Starbucks. That will give
+- [01:33:03.600] them joy is what Colt told them. This is
+- [01:33:07.120] the dumbest advice that they could ever
+- [01:33:09.760] get.
+- [01:33:13.440] What fills the human heart? What gives
+- [01:33:16.159] us purpose? We should look for love, get
+- [01:33:20.000] married, and have lots of kids.
+- [01:33:24.000] Right? It's a lot of fun,
+- [01:33:27.600] right? I best decision I made. I met
+- [01:33:30.239] Rachel on a reality TV show like 29
+- [01:33:32.800] years ago. We've been married for 27
+- [01:33:35.280] years. We're good Catholics. We're open
+- [01:33:37.520] to life. We have nine kids.
+- [01:33:40.719] Couldn't have made a better decision in
+- [01:33:42.719] my life. Well, actually, she said yes to
+- [01:33:44.719] me. So, she made a great decision for me
+- [01:33:46.639] in our life, which I'm very grateful
+- [01:33:48.239] for. But the strength of our country is
+- [01:33:51.120] rooted in the strength of our families.
+- [01:33:54.480] And so to celebrate America 250, we
+- [01:33:57.280] should celebrate our American family.
+- [01:34:00.639] And so just as important as our
+- [01:34:02.960] families, it's important to look at our
+- [01:34:05.760] faith. Our country was founded by men of
+- [01:34:10.239] faith. Men who understood there was one
+- [01:34:13.520] true God and it wasn't them. They knew
+- [01:34:17.120] there was right and wrong. There was
+- [01:34:19.360] good. There was evil. They understood
+- [01:34:22.320] that our rights like life, liberty, the
+- [01:34:24.400] pursuit of happiness, that didn't come
+- [01:34:26.960] from Congress, from government. It
+- [01:34:29.040] didn't come from a king. It came from
+- [01:34:32.560] God. God gave us those rights and no
+- [01:34:36.320] government can take those rights away
+- [01:34:37.679] from us.
+- [01:34:40.225] [cheering]
+- [01:34:43.120] And as we celebrate this 250th birthday,
+- [01:34:45.360] what's remarkable is there is a revival
+- [01:34:47.920] in America. Our young people have been
+- [01:34:51.840] lied to. They've been told that they
+- [01:34:54.960] would be fulfilled with hookup culture
+- [01:34:58.159] or some getrichqu
+- [01:35:00.880] scheme or they could find fame in social
+- [01:35:04.000] media and that fulfill them. But I would
+- [01:35:06.239] tell you they found that that's a false
+- [01:35:08.560] promise. That's a lie. And they've
+- [01:35:11.440] sought truth. And in seeking truth, they
+- [01:35:15.600] have gone to church. They've found the
+- [01:35:18.880] Holy Gospel. They've prayed and they
+- [01:35:22.239] have found God in historic numbers.
+- [01:35:25.440] Maybe it's the Holy Spirit at work. I
+- [01:35:26.880] don't know, probably. But it's great.
+- [01:35:30.400] And what's fascinating now is that there
+- [01:35:33.360] was a recent poll, young men, 42% of
+- [01:35:36.239] them say that religion is incredibly
+- [01:35:39.840] important to them in their lives. That's
+- [01:35:42.800] over 20% increase in just over a year.
+- [01:35:47.040] The Wall Street Journal had a recent
+- [01:35:48.719] headline that said, "Young New Yorkers
+- [01:35:50.960] have a new hot spot, Sunday mass.
+- [01:35:54.080] They're finding love at mass, which is
+- [01:35:55.600] great."
+- [01:35:56.800] So if these two values of faith and
+- [01:36:00.639] family that defines American greatness.
+- [01:36:03.760] And so as we celebrate today and we look
+- [01:36:06.320] at what makes us great, but we also
+- [01:36:08.560] think about what is going to make this
+- [01:36:10.480] country great for the next 250 years
+- [01:36:14.159] that is going to be rooted in the
+- [01:36:16.320] strength of our families uh in our
+- [01:36:18.560] hearts full of faith and grateful to God
+- [01:36:20.960] for what he has given us. Uh I am
+- [01:36:23.280] looking forward to with my family
+- [01:36:25.760] celebrating this great American
+- [01:36:27.040] birthday, celebrating it with all of
+- [01:36:29.280] you. And I am so grateful uh that we
+- [01:36:32.320] have a president who every single I see
+- [01:36:34.639] it every single day he focuses on how he
+- [01:36:37.920] can make America great, how he can bring
+- [01:36:40.239] jobs back to the American people,
+- [01:36:41.920] increase American wages, and we are
+- [01:36:44.080] blessed as a country to have that great
+- [01:36:46.320] president in the Oval Office today. God
+- [01:36:48.639] bless you all. Happy birthday, America.
+- [01:36:55.840] Everybody
+- [01:37:00.397] [music]
+- [01:37:06.947] [music]
+- [01:37:12.842] [music]
+- [01:37:19.392] [music]
+- [01:37:21.520] Heat
+- [01:37:29.217] [music]
+- [01:37:34.400] up
+- [01:37:38.387] [music]
+- [01:37:39.440] here.
+- [01:37:46.247] [music]
+- [01:37:50.239] Heat
+- [01:37:57.382] [music]
+- [01:38:01.968] [music]
+- [01:38:05.040] up here.
+- [01:38:07.863] [music]
+- [01:38:15.679] Heat.
+- [01:38:20.307] [music]
+- [01:38:26.858] [music]
+- [01:38:32.098] [music]
+- [01:38:35.040] Heat.
+- [01:38:39.958] [music]
+- [01:38:49.128] >> [music]
+- [01:38:56.400] >> Ladies and gentlemen, [music] tonight we
+- [01:38:57.679] welcome a voice of strength, discipline,
+- [01:38:59.360] and unwavering dedication to our nation.
+- [01:39:01.840] As a retired United States Navy Seal
+- [01:39:03.920] officer and best-selling author, he's
+- [01:39:05.920] inspired millions to take extreme
+- [01:39:07.840] ownership of their lives and their
+- [01:39:09.840] freedom. Please welcome a true American
+- [01:39:12.639] patriot, Jaco [music] Willing.
+- [01:39:33.013] >> [music]
+- [01:39:40.873] [music]
+- [01:39:51.280] >> Good evening.
+- [01:39:53.600] It is a miracle that we are celebrating
+- [01:39:57.360] 250 years of America.
+- [01:40:00.480] And in many ways, it's a miracle that
+- [01:40:02.560] America even exists at all.
+- [01:40:07.040] Because since day one, we have had the
+- [01:40:11.119] odds stacked against us.
+- [01:40:14.880] Starting at the very beginning when we
+- [01:40:18.800] declared independence from Great
+- [01:40:21.199] Britain, the world's most powerful
+- [01:40:24.320] empire.
+- [01:40:26.560] And then we had to fight them.
+- [01:40:30.960] Now the British had more men, more guns,
+- [01:40:36.159] more ships,
+- [01:40:38.560] but we had something the British did not
+- [01:40:41.520] have.
+- [01:40:43.360] You see the British soldiers and
+- [01:40:46.639] officers,
+- [01:40:48.159] they were subjects of the king.
+- [01:40:52.400] But we would bow to no man.
+- [01:40:58.159] Our forefathers knew that there was
+- [01:41:01.440] something more important than king and
+- [01:41:04.880] crown,
+- [01:41:06.480] something more important than safety or
+- [01:41:10.560] substance. an ideal more important than
+- [01:41:14.239] life itself.
+- [01:41:16.560] The founders of our country, for them,
+- [01:41:20.639] the most important thing
+- [01:41:23.360] was freedom.
+- [01:41:30.880] All men created equal, endowed by our
+- [01:41:35.679] creator with the unalienable rights of
+- [01:41:38.480] life, liberty, and the pursuit of
+- [01:41:41.360] happiness. And that ideal,
+- [01:41:44.639] it gave us something the British
+- [01:41:46.560] military leadership did not take into
+- [01:41:49.360] account.
+- [01:41:51.360] We had a will to win unlike anything
+- [01:41:55.679] they had ever seen before.
+- [01:41:59.679] And because of that will
+- [01:42:03.040] we did win.
+- [01:42:07.119] And that victory
+- [01:42:09.520] of these free and United States over the
+- [01:42:13.040] British crown. That victory unleashed a
+- [01:42:16.880] force which to this day has been
+- [01:42:20.480] completely unmatched in the world.
+- [01:42:27.600] That freedom that we fought for, the
+- [01:42:30.400] freedom to speak,
+- [01:42:32.639] to protest, to worship, the freedom to
+- [01:42:36.159] protect ourselves, our families, and our
+- [01:42:38.800] property, the freedom to work, to risk,
+- [01:42:42.880] to build, the freedom
+- [01:42:45.520] to achieve.
+- [01:42:48.800] And our spirit turned America into the
+- [01:42:52.320] most powerful nation the world has ever
+- [01:42:55.119] known.
+- [01:43:02.239] But that power
+- [01:43:05.679] was not built by the government.
+- [01:43:08.719] It was not built by the state. It was
+- [01:43:11.040] not built by the bureaucracy.
+- [01:43:15.440] America was built by freedom.
+- [01:43:21.280] The freedom for Americans from any
+- [01:43:24.800] background
+- [01:43:26.320] to chase their dreams, turn those dreams
+- [01:43:29.760] into reality and be rewarded for their
+- [01:43:33.679] effort.
+- [01:43:38.000] and our work ethic, our creativity, our
+- [01:43:41.520] will to win, and freedom itself
+- [01:43:45.119] have made America's rise undeniable.
+- [01:43:55.600] But there is one more important
+- [01:43:58.239] ingredient that allowed America to
+- [01:44:00.719] overcome the odds and become the
+- [01:44:03.440] greatest nation on earth. Without this
+- [01:44:06.400] last vital ingredient, America would not
+- [01:44:10.400] and could not exist.
+- [01:44:14.000] That final ingredient
+- [01:44:17.440] is blood.
+- [01:44:20.400] The blood of our patriotic service men
+- [01:44:23.600] and women. You see, the men and women of
+- [01:44:26.480] our military,
+- [01:44:28.320] they swear an oath, a commitment that if
+- [01:44:32.239] need be, they will sacrifice their
+- [01:44:35.280] lives, sacrifice their li liberty, and
+- [01:44:38.719] sacrifice their happiness
+- [01:44:42.960] for us,
+- [01:44:45.520] for our freedom.
+- [01:44:53.360] And for 250 years, our military has held
+- [01:44:58.239] the line against darkness,
+- [01:45:01.760] against tyranny,
+- [01:45:03.679] against evil,
+- [01:45:05.679] against fanatics determined to die for
+- [01:45:09.520] their cause.
+- [01:45:12.480] But we are determined to live and fight
+- [01:45:16.560] for our cause, the greatest cause of
+- [01:45:19.520] all, freedom.
+- [01:45:26.800] And that
+- [01:45:29.040] is the true strength of America.
+- [01:45:33.360] So
+- [01:45:35.280] as we celebrate 250 years of freedom,
+- [01:45:40.320] let us remember the sacrifices that have
+- [01:45:43.520] been made and will be made to protect
+- [01:45:46.560] it.
+- [01:45:48.159] We must remember those brave people
+- [01:45:52.719] who are not only soldiers, sailors,
+- [01:45:56.480] airmen, and marines,
+- [01:45:59.520] but who are also
+- [01:46:02.080] fathers and sons, mothers and daughters,
+- [01:46:06.960] brothers and sisters,
+- [01:46:10.080] who had plans and hopes and dreams, and
+- [01:46:14.080] they had goals and they had ambitions.
+- [01:46:16.480] And yet they sacrificed all of that.
+- [01:46:19.199] They sacrificed everything
+- [01:46:22.159] on some wretched piece of dirt or in the
+- [01:46:26.400] raging merciless sea or in the
+- [01:46:28.880] unforgiving clouds above. Throughout our
+- [01:46:31.840] history on sea, air, and land,
+- [01:46:36.719] American warriors have given their lives
+- [01:46:41.280] for our freedom.
+- [01:46:50.800] And for that
+- [01:46:53.280] we owe them everything.
+- [01:46:55.600] And the best thing we can do to honor
+- [01:46:58.320] their sacrifice
+- [01:47:00.480] is use this sacred freedom. Do not
+- [01:47:04.480] squander one second.
+- [01:47:07.600] We must not merely dream the American
+- [01:47:10.719] dream. We must live it.
+- [01:47:13.840] Live the American dream.
+- [01:47:20.960] Relish our liberty and our lives.
+- [01:47:24.880] Relentlessly pursue happiness. strive
+- [01:47:28.320] and work and build and create every day
+- [01:47:33.199] for ourselves,
+- [01:47:35.119] for our family, for our country.
+- [01:47:39.679] But most of all,
+- [01:47:42.239] for them,
+- [01:47:44.480] the fallen heroes.
+- [01:47:47.040] Those who gave us this gift of freedom.
+- [01:47:51.199] Remember them, honor them
+- [01:47:54.480] by living this life, this American
+- [01:47:59.760] miracle.
+- [01:48:01.280] Live it to the utmost.
+- [01:48:04.239] To the utmost
+- [01:48:06.560] for them.
+- [01:48:15.440] May God bless those who sacrificed
+- [01:48:19.040] their lives for our freedom and may God
+- [01:48:22.719] bless the United States of America.
+- [01:48:26.320] Thank you.
+- [01:48:28.155] [cheering]
+- [01:49:13.920] have seen the gloring
+- [01:49:33.520] of his
+- [01:49:36.320] sword. is true to the mighty
+- [01:49:42.719] God.
+- [01:49:47.119] Glory,
+- [01:49:49.199] glory, hallelujah.
+- [01:49:51.995] [music]
+- [01:49:55.600] Glory,
+- [01:49:57.236] [singing] glory, hallelujah,
+- [01:50:00.800] glor,
+- [01:50:04.000] glory,
+- [01:50:06.080] glory, [singing and music]
+- [01:50:07.199] hallelujah.
+- [01:50:11.280] His truth is [music]
+- [01:50:20.816] [music]
+- [01:50:28.021] [singing]
+- [01:50:33.261] [music]
+- [01:50:35.226] [singing]
+- [01:50:40.159] punching. The tree ising [singing]
+- [01:50:50.000] ising
+- [01:50:51.601] [singing and music]
+- [01:50:55.280] truth is maring
+- [01:50:58.480] glory.
+- [01:51:01.520] Glory, glory, [singing and music]
+- [01:51:03.119] hallelujah.
+- [01:51:05.440] Glory, glory. [music]
+- [01:51:09.360] His truth is mighty God.
+- [01:51:16.491] [music]
+- [01:51:28.937] >> [music]
+- [01:51:36.142] [music]
+- [01:51:44.880] >> The [singing]
+- [01:51:46.400] beauty of the
+- [01:51:53.199] Christ
+- [01:51:57.102] [singing] the sea
+- [01:52:01.760] with the glory [singing] in his
+- [01:52:08.400] trans
+- [01:52:11.280] and
+- [01:52:21.599] to make
+- [01:52:23.920] holy.
+- [01:52:28.000] Let us die to make men free. While God
+- [01:52:32.800] is maring on
+- [01:52:36.403] [music]
+- [01:52:49.503] [music]
+- [01:52:54.742] [music]
+- [01:52:58.320] Heat.
+- [01:53:00.637] [music]
+- [01:53:04.800] Heat. [music]
+- [01:53:10.463] [bell and music]
+- [01:53:14.800] Heat.
+- [01:53:18.000] Heat. [music]
+- [01:53:42.558] >> [music]
+- [01:53:49.108] [music]
+- [01:53:56.969] [music]
+- [01:54:04.239] >> Hey,
+- [01:54:05.760] hey,
+- [01:54:11.379] >> [music]
+- [01:54:18.584] [music]
+- [01:54:20.639] >> Heat.
+- [01:54:30.374] [music]
+- [01:54:31.760] Heat.
+- [01:54:36.924] >> [music]
+- [01:54:44.784] [music]
+- [01:54:54.609] [music]
+- [01:54:59.679] >> Give it [music] up for those guitar
+- [01:55:00.800] players. Ladies and gentlemen, come on,
+- [01:55:03.440] America. We're going to need your help
+- [01:55:04.719] here. Where it began,
+- [01:55:09.019] [music]
+- [01:55:10.239] I can't begin to know it.
+- [01:55:14.320] But then I [music and singing] know it's
+- [01:55:16.159] growing strong.
+- [01:55:19.280] I know you know this song.
+- [01:55:22.400] Twice in the spring
+- [01:55:26.480] and [music] spring became the summer.
+- [01:55:30.639] Who to believe [singing]
+- [01:55:32.080] you come along?
+- [01:55:35.840] All right, everybody. Let me see those
+- [01:55:38.159] hands.
+- [01:55:40.000] There you go.
+- [01:55:42.159] Touching hands,
+- [01:55:46.159] reaching [music]
+- [01:55:46.880] out,
+- [01:55:50.239] touching me, [singing]
+- [01:55:52.905] [music] touching you.
+- [01:55:57.199] Oh, sweet Caroline. [music]
+- [01:56:03.119] >> Good times never seem [music] so good.
+- [01:56:10.400] I've been inclined
+- [01:56:15.360] to [singing] believe [music] they never
+- [01:56:18.080] would.
+- [01:56:19.599] Come on, everybody in the back. Here we
+- [01:56:21.360] go. Sweet [music and singing] Caroline.
+- [01:56:27.520] Good times never seem so good.
+- [01:56:32.560] Hey folks,
+- [01:56:34.800] I
+- [01:56:36.480] fly
+- [01:56:39.760] to believe [music and singing] they
+- [01:56:41.599] never would
+- [01:56:44.800] care.
+- [01:56:49.040] Give yourselves a round of applause
+- [01:56:50.560] everybody.
+- [01:56:52.800] Woo!
+- [01:56:55.760] Woo! Come on.
+- [01:56:57.280] >> You guys are such good singers.
+- [01:56:59.599] Do you think you could keep it up? I
+- [01:57:02.480] said, "Do you think you can keep it up?"
+- [01:57:06.400] All right, I know you know this next
+- [01:57:08.880] one.
+- [01:57:10.480] Make sure you [music] sing it loud with
+- [01:57:12.080] us.
+- [01:57:13.840] Sing it. [music] Big wheels keep on
+- [01:57:17.280] turning.
+- [01:57:19.119] >> Come on, Mike.
+- [01:57:20.320] >> Bringing me home [music and singing] to
+- [01:57:21.520] see my kid.
+- [01:57:24.400] Hey,
+- [01:57:25.280] >> singing songs about the Southland.
+- [01:57:29.840] I miss Alabama [singing]
+- [01:57:31.520] once again. [music] And I think it's a
+- [01:57:33.119] sing. Sing it. Sweet home Alabama
+- [01:57:39.920] where the skies [music and singing] are
+- [01:57:41.440] so blue.
+- [01:57:44.960] Sweet home [singing and music] Alabama.
+- [01:57:49.840] Where the skies are so blue.
+- [01:57:53.199] Hey,
+- [01:58:02.159] >> come on everybody. Help us sing it.
+- [01:58:04.480] >> Sweet home Alabama
+- [01:58:09.440] where the skies are so blue.
+- [01:58:12.000] >> Come on everybody.
+- [01:58:14.320] >> Sweet home Alabama. [music]
+- [01:58:16.960] >> Let me hear you in the back.
+- [01:58:19.199] >> Lord, I'm coming home to you.
+- [01:58:27.440] Alabama.
+- [01:58:37.312] [music]
+- [01:58:38.719] Great job, America.
+- [01:58:42.552] [music]
+- [01:58:56.159] Heat. Heat.
+- [01:59:06.787] [music]
+- [01:59:27.092] >> [music]
+- [01:59:40.847] [music]
+- [01:59:51.982] [music]
+- [01:59:54.080] >> every
+- [02:00:10.323] [music] day.
+- [02:00:15.563] >> [music]
+- [02:00:22.080] >> Do you
+- [02:00:32.593] [music]
+- [02:00:35.840] love me?
+- [02:01:12.548] >> [music]
+- [02:01:17.360] >> Christmas.
+- [02:01:26.303] [music]
+- [02:01:32.080] Heat. Heat.
+- [02:01:34.163] [music]
+- [02:01:47.264] [music]
+- [02:01:52.504] [music]
+- [02:02:02.329] >> [music]
+- [02:02:07.569] [music]
+- [02:02:10.480] >> Ladies and gentlemen, from the Rumble in
+- [02:02:12.480] the Sky, we return to the America 250
+- [02:02:15.280] stage and performing Oh America and
+- [02:02:18.080] Nesson Dorman, accompanied by the
+- [02:02:20.080] president's own United States Marine
+- [02:02:21.920] Band of the Joint Armed Forces Chorus.
+- [02:02:24.639] Please welcome America's presidential
+- [02:02:26.960] tenor, Christopher Mchio.
+- [02:02:46.215] [music]
+- [02:02:55.385] >> [music]
+- [02:02:56.639] >> Oh, [singing]
+- [02:02:58.159] America,
+- [02:02:59.760] you're calling.
+- [02:03:02.590] [singing]
+- [02:03:03.599] I can hear you calling me.
+- [02:03:09.599] You are calling me to be true to thee.
+- [02:03:15.035] [singing and music]
+- [02:03:15.920] True to to thee.
+- [02:03:19.040] I will be
+- [02:03:22.895] [music]
+- [02:03:23.520] oh Americ
+- [02:03:26.800] we
+- [02:03:29.445] [singing]
+- [02:03:30.080] let there [music] be no wounded heart.
+- [02:03:36.239] I will keep you [singing] in my keeping
+- [02:03:42.480] till there'll [singing] be [music]
+- [02:03:45.760] a new start.
+- [02:03:49.840] that I will answer you
+- [02:03:53.119] and I will take your hand and lead
+- [02:03:58.800] you to the sun [music]
+- [02:04:03.199] and I will stand by you. [singing]
+- [02:04:06.400] Do all that I can do and we
+- [02:04:11.840] will be as one.
+- [02:04:16.719] Oh [singing] America,
+- [02:04:19.599] I hear you [music]
+- [02:04:23.040] from [singing] your praise to the sea.
+- [02:04:29.040] From [music] your mountains
+- [02:04:31.119] grant and all through this
+- [02:04:34.291] [music and singing] land, you are beauty
+- [02:04:39.119] to me. [singing]
+- [02:04:44.560] The [music] guy are calling.
+- [02:04:49.119] I [singing]
+- [02:04:50.159] can hear you calling [music] me.
+- [02:04:54.800] You are calling me to be true to
+- [02:04:59.836] [music and singing] thee. True to thee.
+- [02:05:04.159] I will be.
+- [02:05:08.000] And I will answer [singing] you. Do all
+- [02:05:11.840] that I [music] can do. And we [singing]
+- [02:05:16.639] will be as
+- [02:05:22.080] America. [music]
+- [02:05:29.311] [singing]
+- [02:05:37.171] [music and singing]
+- [02:05:46.320] Oh, [singing] what a [music] miracle
+- [02:05:49.199] you're calling.
+- [02:05:52.891] [music]
+- [02:05:56.239] I [singing] will never
+- [02:05:59.599] answer. [music]
+- [02:06:05.991] [music]
+- [02:06:10.577] [music]
+- [02:06:12.542] [cheering]
+- [02:06:48.079] Merc. [singing]
+- [02:07:12.639] Get
+- [02:07:14.880] the water.
+- [02:07:25.903] [singing]
+- [02:07:33.108] >> [singing]
+- [02:07:40.400] >> God
+- [02:07:44.898] [music]
+- [02:07:47.518] [singing]
+- [02:07:50.400] split.
+- [02:08:09.520] Get
+- [02:08:11.440] from me.
+- [02:08:18.958] [music]
+- [02:08:22.000] Glory.
+- [02:08:27.599] Glor. [music]
+- [02:08:43.848] [singing]
+- [02:08:51.709] [singing]
+- [02:08:55.638] [music]
+- [02:09:00.879] >> [music]
+- [02:09:06.239] >> Heat. [music]
+- [02:09:13.324] [music]
+- [02:09:15.440] Heat.
+- [02:09:17.909] [bell]
+- [02:09:19.219] [music]
+- [02:09:23.149] >> [bell]
+- [02:09:27.079] [music]
+- [02:09:28.159] >> I need [singing]
+- [02:09:30.320] more.
+- [02:09:35.594] [music]
+- [02:09:42.144] [music]
+- [02:09:48.694] [music]
+- [02:09:55.360] Jesus. [singing and music] Oh,
+- [02:10:01.139] [music]
+- [02:10:11.619] [singing and music]
+- [02:10:14.560] heat.
+- [02:10:18.824] [singing and music]
+- [02:10:27.995] >> [cheering]
+- [02:10:29.840] >> Thank you. God bless America.
+- [02:10:33.890] [cheering]
+- [02:10:39.520] Ladies and gentlemen, preparing to
+- [02:10:41.280] perform the greatest patriotic anthem of
+- [02:10:44.079] all time, God Bless the USA, please
+- [02:10:47.920] welcome American icon and Grammy
+- [02:10:50.159] award-winning singer songwriter Lee
+- [02:10:53.280] Greenwood.
+- [02:11:00.960] Hello America.
+- [02:11:04.560] Freedom 250.
+- [02:11:12.639] If tomorrow all the things were gone,
+- [02:11:16.159] I'd [music] work for all my life
+- [02:11:19.280] and I had to start again
+- [02:11:22.400] with just my children and my [music]
+- [02:11:24.560] wife.
+- [02:11:26.400] I thank my lucky stars
+- [02:11:29.599] to be living [music] here today
+- [02:11:32.480] cuz our flag still stands for freedom
+- [02:11:35.679] and they can't take [music and singing]
+- [02:11:37.119] that away.
+- [02:11:42.320] And I'm proud to be [singing and music]
+- [02:11:44.000] an American where at least I know I'm
+- [02:11:47.679] free. And I won't forget the men who
+- [02:11:51.760] died [singing and music]
+- [02:11:52.560] who gave that right to me. And I gladly
+- [02:11:56.079] stand up [music] next to you and
+- [02:11:59.060] [singing] defend her still today.
+- [02:12:02.480] Cuz there ain't no doubt I love this
+- [02:12:04.936] [music] land.
+- [02:12:07.520] God bless the USA.
+- [02:12:11.486] [music]
+- [02:12:14.106] [singing]
+- [02:12:19.346] >> [music]
+- [02:12:19.599] >> Ladies and gentlemen, it's my privilege
+- [02:12:21.760] to introduce to you the 45th President
+- [02:12:23.760] of the United States and the 47th
+- [02:12:26.159] President of the United States, our
+- [02:12:27.861] [music] Commander and Chief, Donald J.
+- [02:12:30.400] Trump.
+- [02:12:36.560] Across the plains of Texas, from sea to
+- [02:12:39.679] shining sea, [music]
+- [02:12:42.239] from Detroit down to Houston
+- [02:12:45.599] and New York [singing] to LA, [music]
+- [02:12:48.800] there's pride in every American heart.
+- [02:12:52.079] And it's time we stand and say
+- [02:12:55.371] [music]
+- [02:12:58.320] that I'm proud to be an American
+- [02:13:00.612] [singing and music]
+- [02:13:01.760] where at least I know I'm free. And I
+- [02:13:05.679] won't forget the men who [singing] died
+- [02:13:08.639] who gave that right to me. And I gladly
+- [02:13:12.079] stand up next to you and defend her
+- [02:13:16.320] still [music and singing]
+- [02:13:16.960] today. Cuz there ain't no doubt I love
+- [02:13:20.719] this land.
+- [02:13:23.360] God bless [music] the USA.
+- [02:13:30.087] [music and singing]
+- [02:13:31.840] And I'm proud to be an American where at
+- [02:13:35.982] [music] least I know I'm free.
+- [02:13:41.119] The man who [music] died, who gave that
+- [02:13:43.840] right to me, and I gladly stand
+- [02:13:49.082] [music] next to you.
+- [02:13:55.599] I love this.
+- [02:13:58.960] God bless [music]
+- [02:14:01.360] you.
+- [02:14:08.732] >> [music]
+- [02:14:10.880] >> God bless our president.
+- [02:14:13.972] [cheering]
+- [02:14:19.867] [cheering]
+- [02:14:28.383] [screaming]
+- [02:14:30.079] >> Well, thank you, Lee, and hello,
+- [02:14:31.920] Washington. And a very big hello to
+- [02:14:34.639] America. Thank you.
+- [02:14:38.880] And 10 days from now, our country will
+- [02:14:41.360] celebrate one of the most monumental
+- [02:14:44.000] milestones in human history. We will
+- [02:14:47.199] mark 250 years of glorious American
+- [02:14:50.800] freedom. In 1776, our founding fathers
+- [02:14:54.960] met in Philadelphia and changed the
+- [02:14:57.520] world forever and ever with a thing
+- [02:15:00.639] called the Declaration of Independence.
+- [02:15:05.063] [cheering]
+- [02:15:07.199] They proclaim the eternal truth that we
+- [02:15:10.719] are endowed by our creator with the
+- [02:15:13.119] rights to life, liberty, and the pursuit
+- [02:15:15.599] of happiness. We all made and you know
+- [02:15:18.960] that free and equal by the hand of
+- [02:15:23.119] Almighty God.
+- [02:15:25.920] Those
+- [02:15:27.520] timeless American principles did not
+- [02:15:30.560] just win a revolution, but they built us
+- [02:15:33.920] into the greatest, strongest, and most
+- [02:15:35.920] exceptional nation the world has ever
+- [02:15:38.960] known.
+- [02:15:40.560] There has never been anything like the
+- [02:15:43.520] United States of America. And together,
+- [02:15:45.760] we are making it bigger and better and
+- [02:15:49.199] stronger and far more exceptional
+- [02:15:52.719] than ever before.
+- [02:15:56.808] >> [cheering]
+- [02:15:59.840] >> Today we have the largest economy on
+- [02:16:02.320] earth. We have the strongest military on
+- [02:16:06.320] earth. We have the most powerful
+- [02:16:08.880] technology on earth. We have the
+- [02:16:11.520] greatest culture on earth. And above
+- [02:16:14.079] all, we have the greatest people on
+- [02:16:16.719] earth.
+- [02:16:18.480] Greatest.
+- [02:16:20.389] [cheering] Tonight, as we stand on the
+- [02:16:22.239] edge of our 250th year of independence,
+- [02:16:26.079] I am thrilled to declare that America is
+- [02:16:30.239] back.
+- [02:16:37.200] As you know very well, a short time ago,
+- [02:16:39.599] we were a dead country. We were dead.
+- [02:16:42.240] Now, we're the hottest country anywhere
+- [02:16:45.359] in the world. We're respected by
+- [02:16:47.519] everybody. Nobody's laughing at us
+- [02:16:50.160] anymore.
+- [02:16:52.240] Two years ago, they were laughing. Now,
+- [02:16:55.120] we're the most respected anywhere. Think
+- [02:16:57.359] of it. Anywhere in the world. Where were
+- [02:16:59.280] we two years ago? We weren't respected.
+- [02:17:02.000] We were a joke. We're not a joke
+- [02:17:04.000] anymore. Most powerful country in the
+- [02:17:06.399] world. But just like those patriots of
+- [02:17:09.359] 1776, over the past 17 months, we have
+- [02:17:13.040] taken power back from the faroff
+- [02:17:16.160] political class. They're trying to gain
+- [02:17:18.160] it back, but it's not going to happen.
+- [02:17:20.880] We have reclaimed our sovereignty,
+- [02:17:22.960] regained our liberty, restored our
+- [02:17:25.040] prosperity, and we have saved our
+- [02:17:28.160] country. In all things, we're once again
+- [02:17:32.080] putting a thing called America first.
+- [02:17:39.760] And last week, we signed a historic
+- [02:17:41.760] agreement to end the conflict with Iran,
+- [02:17:45.920] fully open the straight of Hormuz, and
+- [02:17:48.160] accomplish what no president has ever
+- [02:17:50.319] been able to accomplish before, Iran
+- [02:17:53.359] will never have a nuclear weapon. That's
+- [02:17:55.679] done. [cheering]
+- [02:17:58.319] And thanks to the power and skill of the
+- [02:18:00.719] United States armed forces, today Iran
+- [02:18:03.760] has no navy, no air force, no
+- [02:18:07.679] anti-aircraft capacity, no missile
+- [02:18:10.880] launchers, no manufacturing,
+- [02:18:14.080] and their leadership has been
+- [02:18:15.599] obliterated. And for the first time in
+- [02:18:18.719] 3,000 years, we are finally going to
+- [02:18:22.479] have peace in the Middle East. We're
+- [02:18:24.559] going to have peace in the Middle East.
+- [02:18:28.115] >> [cheering]
+- [02:18:28.479] >> Since the agreement, the stock market
+- [02:18:30.719] and your 401ks are skyrocketing upward
+- [02:18:34.319] and oil prices are plummeting downward.
+- [02:18:36.719] Today, it hit a new low and the world is
+- [02:18:39.599] a much safer place. We had to make that
+- [02:18:42.479] little journey to Iran to do what we
+- [02:18:44.800] did. Very soon, you'll be at $2.50
+- [02:18:49.359] a gallon for gasoline.
+- [02:18:51.695] [cheering]
+- [02:18:54.080] And even lower than that, just like it
+- [02:18:56.240] was before we took the nuclear weapon
+- [02:18:59.040] away from Iran, and it will be away from
+- [02:19:01.760] Iran for a very long time,
+- [02:19:05.760] forever, really. In my first term, I
+- [02:19:08.960] rebuilt our military and created the
+- [02:19:11.120] greatest economy in the history of the
+- [02:19:12.800] world. We had the greatest economy in
+- [02:19:14.719] history. And now, we are going to blow
+- [02:19:17.280] that away. We're doing better, much
+- [02:19:19.040] better than even the first term.
+- [02:19:20.800] America's 250th year is set for an
+- [02:19:24.160] economic boom the likes of which no
+- [02:19:27.359] nation has ever seen before. No nation
+- [02:19:30.719] has ever been in the place that we are
+- [02:19:33.599] right now. In four long years of the
+- [02:19:37.519] last administration, which was a total
+- [02:19:40.160] disaster, they got less than 1 trillion
+- [02:19:43.599] dollars of new investment in our
+- [02:19:46.160] country. That's less than1 trillion in
+- [02:19:48.319] four years. In my first 11 months, we
+- [02:19:51.920] secured commitments for 19.1 trillion
+- [02:19:55.600] dollars of new investment
+- [02:19:57.920] from all over the globe. And they're
+- [02:20:00.640] building factories and plants, and
+- [02:20:02.640] they're building everything all over our
+- [02:20:05.040] country. The stock market has set 73
+- [02:20:09.040] all-time record highs since the
+- [02:20:10.720] election, and more Americans are working
+- [02:20:13.280] today than at any time in the history of
+- [02:20:17.200] our country. Thank you.
+- [02:20:22.240] On the 4th of July, one year ago, I
+- [02:20:24.560] signed the largest tax cuts in American
+- [02:20:27.280] history, the largest spending cuts in
+- [02:20:30.560] American history, and the largest
+- [02:20:32.640] regulation cuts in American history by
+- [02:20:35.680] far. In the American Revolution, they
+- [02:20:38.800] had a saying, no tax on tea. But with
+- [02:20:43.040] the great big beautiful bill, we did
+- [02:20:45.520] even better. We gave you no tax on tips,
+- [02:20:48.880] no tax on overtime, and no tax on social
+- [02:20:52.479] security for our great seniors.
+- [02:20:57.457] [cheering]
+- [02:20:58.080] And we also made interest on auto loans.
+- [02:21:00.720] You go out and buy an automobile.
+- [02:21:03.520] The interest on the loan is fully
+- [02:21:05.439] taxdeductible. Never happened before,
+- [02:21:07.439] but only if the car happens to be made
+- [02:21:09.760] in America. And we're setting records in
+- [02:21:12.000] automobile
+- [02:21:14.160] construction. Our country is strong
+- [02:21:16.720] again. Our country is wealthy again. And
+- [02:21:18.800] our country is safe again. In January
+- [02:21:22.160] 2025,
+- [02:21:23.840] we inherited the worst, most dangerous,
+- [02:21:26.640] most wide open, and insecure border in
+- [02:21:29.760] history. And we have quickly turned it
+- [02:21:32.319] into the strongest, most secure border
+- [02:21:34.720] in the history of our country.
+- [02:21:40.240] For the past 13 months, zero illegal
+- [02:21:44.240] aliens have been admitted into the
+- [02:21:46.479] United States. [cheering] Zero.
+- [02:21:54.479] We are removing murderers, gang members,
+- [02:21:58.080] drug dealers, and dangerous criminals by
+- [02:22:00.479] the thousands. They came in through a
+- [02:22:02.479] ridiculous open border. I want to say a
+- [02:22:05.920] very special thanks to all of the men
+- [02:22:07.840] and women who have helped liberate
+- [02:22:10.160] America from this scourge. The heroes of
+- [02:22:12.319] ICE and Border Patrol. You are heroes.
+- [02:22:15.403] [cheering] You are heroes.
+- [02:22:17.840] With the help of our law enforcement
+- [02:22:20.240] heroes in 2025,
+- [02:22:22.560] we achieved the largest drop in the
+- [02:22:24.640] murder rate ever recorded to the lowest
+- [02:22:27.439] level in
+- [02:22:29.439] 125 years. That's the year 1900. We cut
+- [02:22:33.359] the flow of fentinol across our border
+- [02:22:35.680] by 66%.
+- [02:22:38.960] Drugs coming in by ocean or by sea are
+- [02:22:42.240] down 97%.
+- [02:22:47.840] And Washington DC is now one of the
+- [02:22:51.280] safest, most beautiful cities anywhere
+- [02:22:54.800] in the United States of America.
+- [02:22:57.979] [cheering]
+- [02:23:01.600] For many years, our country was ruled by
+- [02:23:04.319] politicians who let America and its
+- [02:23:06.479] capital fall into decline and total
+- [02:23:08.800] disrepair. The city, named in honor of
+- [02:23:12.560] General George Washington, was turned
+- [02:23:14.640] into a national disgrace. But not
+- [02:23:17.280] anymore. Today, the homeless encampments
+- [02:23:21.040] are gone. The graffiti is gone. Since I
+- [02:23:24.399] took office, more than 50 monuments and
+- [02:23:27.600] memorials have been repaired and
+- [02:23:29.600] beautified. Dozens of statues have been
+- [02:23:32.640] cleaned and they look so nice. 22
+- [02:23:35.680] fountains have been fixed at Union
+- [02:23:38.080] Station. The statue of Christopher
+- [02:23:40.399] Columbus is clean and fountain. That
+- [02:23:43.040] fountain is flowing and it looks so
+- [02:23:45.120] beautiful. I just looked at it coming
+- [02:23:47.439] over. It is so beautiful. That white
+- [02:23:50.399] marble is nice and clean. There's no
+- [02:23:52.479] more graffiti stains all over it. The
+- [02:23:55.280] water is cascading at Meridian Hill Park
+- [02:24:02.479] and I am personally along with Doug and
+- [02:24:05.439] some of my friends renovating Lafayette
+- [02:24:08.479] Square at the front door of the White
+- [02:24:10.479] House and it's going to be beautiful and
+- [02:24:12.800] opens in a short period of time.
+- [02:24:16.240] and the reflecting pool that you've
+- [02:24:18.160] heard so much about, which is so
+- [02:24:20.000] incredible. It's been gruesomely
+- [02:24:23.040] vandalized by thugs, bad people, but
+- [02:24:27.200] soon we'll be looking as beautiful as it
+- [02:24:30.000] looked just two weeks ago. In fact, I
+- [02:24:31.840] looked at it just a little while ago. It
+- [02:24:33.439] looks perfect already, but we're fixing
+- [02:24:35.920] it. The vandals got to it. They've
+- [02:24:38.319] largely been caught and are being
+- [02:24:41.439] prosecuted. We can't let that happen to
+- [02:24:43.520] our country. Can't let that happen. But
+- [02:24:46.640] it looks beautiful. Under the Trump
+- [02:24:49.600] administration, America is once again a
+- [02:24:52.479] nation of selfrespect, dignity, and
+- [02:24:55.040] pride. Under our leadership, America
+- [02:24:57.439] will also be a nation that dares to
+- [02:25:00.000] dream and to build again. We want to
+- [02:25:02.080] build again and dream again. The
+- [02:25:04.640] American dream is alive again. That's
+- [02:25:07.359] something that nobody thought they'd be
+- [02:25:09.120] saying when you went through that last
+- [02:25:10.640] four years of incompetence.
+- [02:25:13.840] For the 100th anniversary of our
+- [02:25:15.920] founding in 1876,
+- [02:25:19.359] American completed the Washington
+- [02:25:22.240] Monument and the work began on the
+- [02:25:24.800] Statue of Liberty. For our
+- [02:25:28.479] 150th year, we built
+- [02:25:31.040] Colonial Williamsburg. Remember that?
+- [02:25:33.760] Colonial Williamsburg, how beautiful it
+- [02:25:35.760] was. For the 200th year, we built the
+- [02:25:38.880] National Air and Space Museum and
+- [02:25:41.280] renovated the United States Capital for
+- [02:25:43.600] our 250th anniversary. We are likewise
+- [02:25:46.960] building new monuments to American
+- [02:25:50.240] greatness to serve every future
+- [02:25:52.240] president and first lady. We're building
+- [02:25:54.560] the most beautiful ballroom anywhere in
+- [02:25:57.120] the world right at the White House.
+- [02:25:59.200] Right at the White House. It's going to
+- [02:26:01.120] be completed very soon. And just across
+- [02:26:04.479] the bridge in front of Arlington
+- [02:26:06.080] Cemetery, we're building a magn really
+- [02:26:08.880] beautiful. This is going to be something
+- [02:26:10.560] you're going to like. A totally
+- [02:26:12.399] magnificent triumphal arc to honor the
+- [02:26:16.399] 250year triumph of the American spirit,
+- [02:26:20.160] American military,
+- [02:26:22.720] and frankly, American competence. In
+- [02:26:25.840] West PTOAC Park, we are creating the
+- [02:26:28.240] National Garden of American Heroes,
+- [02:26:30.160] featuring 250
+- [02:26:32.479] or more statues of the greatest
+- [02:26:34.640] Americans who have ever lived. It's
+- [02:26:36.800] going to be beautiful. And next week at
+- [02:26:39.359] Freedom Plaza, we will unveil the Spirit
+- [02:26:42.000] of 76 exhibition honoring the heroes and
+- [02:26:45.600] martyrs of the American
+- [02:26:48.479] Revolution. And remember
+- [02:26:51.439] 1776,
+- [02:26:53.040] what a time that was. where we've come
+- [02:26:55.600] from there. What a date it is. It's a
+- [02:26:59.120] date like no other date. From Athens to
+- [02:27:02.319] Rome, from London to Paris, from New
+- [02:27:04.640] York to LA, and from all of the other
+- [02:27:07.200] parts of the world, the great
+- [02:27:08.960] civilizations of history did not wallow
+- [02:27:11.439] in aging ruins of the past. They built
+- [02:27:14.240] new cities. They created new monuments.
+- [02:27:16.960] And they forged towering legacies that
+- [02:27:19.600] still inspire the world after hundreds
+- [02:27:21.840] and even thousands of years. As America
+- [02:27:25.040] turns 250 years, 250 years old, young by
+- [02:27:29.680] comparison to some, but superior to any
+- [02:27:33.040] nation that's ever been built, no matter
+- [02:27:35.040] how many years it took, we are the
+- [02:27:37.520] inheritors of these incredible
+- [02:27:39.280] traditions. We are the ones who are
+- [02:27:41.840] carrying forward the light of Western
+- [02:27:44.080] civilization because this is the very
+- [02:27:46.399] beginning of the golden age of America.
+- [02:27:49.680] We're in the golden age. There's never
+- [02:27:51.280] been an age like this. There's never
+- [02:27:53.840] been an age like this. This anniversary
+- [02:27:57.439] is a time to be proud of our past. But
+- [02:28:00.160] it is also a time to lift our sights,
+- [02:28:02.720] expand our ambitions, and raise our
+- [02:28:05.439] expectations of what America can be. We
+- [02:28:08.240] will leave our children nothing less
+- [02:28:10.000] than the richest inheritance, most
+- [02:28:11.920] advanced civilization, and highest
+- [02:28:14.800] standard of living in human history.
+- [02:28:16.800] There's never been anything like it. But
+- [02:28:19.359] with all of that being said, the best is
+- [02:28:22.640] yet to come. Best is yet to come.
+- [02:28:25.482] [cheering]
+- [02:28:29.359] I'm very pleased to be joined tonight by
+- [02:28:32.399] our great Speaker of the House, Mike
+- [02:28:35.280] Johnson. Mike, thank you. Stand up. He's
+- [02:28:40.160] been great. Attorney General Todd
+- [02:28:43.359] Blanch. Todd, thank you.
+- [02:28:46.800] Secretary of the Interior who works with
+- [02:28:49.040] me so hard on the monuments and the
+- [02:28:51.520] fountains. He loves it like I do. Doug
+- [02:28:54.399] Bergam. Doug, thank you very much.
+- [02:28:58.560] Secretary of Agriculture and those
+- [02:29:00.479] prices are tumbling down. They're
+- [02:29:02.560] tumbling down. We inherited a mess.
+- [02:29:05.200] Brooke Rollins. Thank you, Brooke.
+- [02:29:09.840] Secretary of Labor Keith Sonderling.
+- [02:29:14.479] Secretary of Transportation. You heard
+- [02:29:16.880] him and he's great. Shawn Duffy. Sean,
+- [02:29:20.080] thank you.
+- [02:29:23.120] Our wonderful Secretary of Education,
+- [02:29:25.840] Linda McMahon.
+- [02:29:30.160] Secretary of Homeland Security, Mark
+- [02:29:32.960] Wayne Mullen from Oklahoma.
+- [02:29:37.533] [cheering]
+- [02:29:38.560] Acting Director of National
+- [02:29:40.319] Intelligence, Bill Py. Thank you, Bill.
+- [02:29:44.800] FBI Director Cash Patel, [cheering]
+- [02:29:51.359] CMS administrator, and he's doing a
+- [02:29:54.000] fantastic job. Dr. Meett Oz,
+- [02:29:59.840] Ambassador Monica Crowley. Thank you,
+- [02:30:02.160] Monica.
+- [02:30:03.680] And countless members, so many members
+- [02:30:05.920] of Congress. I will not go over the
+- [02:30:07.680] names. And senators, we appreciate that
+- [02:30:10.319] you're here. This is a very special
+- [02:30:11.840] night. Thank you all very much. The
+- [02:30:13.439] Senate and the House. As you know, over
+- [02:30:16.000] the past few weeks, America has been
+- [02:30:18.000] proudly hosting the 2026 FIFA World Cup,
+- [02:30:22.319] and it's setting attendance records and
+- [02:30:24.640] television rating records like never
+- [02:30:26.560] before. Who would have thought this was
+- [02:30:28.160] going to happen? They would say it's not
+- [02:30:30.479] our primary sport, but it's happening.
+- [02:30:32.479] And I want to just congratulate my
+- [02:30:34.319] friend, FIFA President Johnny Infantino.
+- [02:30:38.240] He's been fantastic to deal with and
+- [02:30:40.479] he's very happy.
+- [02:30:42.800] Everything is a record. It's like having
+- [02:30:44.720] a Super Bowl every day. And I know
+- [02:30:47.520] everyone joins me in wishing team USA
+- [02:30:50.240] good luck in their match tomorrow
+- [02:30:51.840] against Turkey and Los Angeles.
+- [02:30:54.169] [cheering]
+- [02:30:56.960] They're doing great. Every day of my
+- [02:30:59.920] administration, we're delivering one
+- [02:31:02.000] historic victory after the next for the
+- [02:31:04.160] American people. We're unleashing
+- [02:31:07.040] American energy dominance and drill,
+- [02:31:09.600] baby drill. You remember during the
+- [02:31:11.359] campaign, drill, baby drill.
+- [02:31:14.479] And America is now the largest producer
+- [02:31:17.120] of oil and gas on Earth, larger than
+- [02:31:19.680] Russia and Saudi Arabia by far combined.
+- [02:31:24.300] [cheering]
+- [02:31:26.399] And under my most favored nation
+- [02:31:28.319] agreement on drug prices, we are
+- [02:31:30.560] delivering the largest reduction in drug
+- [02:31:32.640] price history with price differences of
+- [02:31:36.080] 400, 500, and even 600%.
+- [02:31:40.960] Who would think that if you took down a
+- [02:31:44.000] half a percent, somebody said you were a
+- [02:31:46.000] genius, 400, 500, 600, 700, 800%.
+- [02:31:50.399] Nobody's seen anything like it. We had
+- [02:31:52.720] the highest drug prices in the world and
+- [02:31:55.600] now we're going to be having the lowest
+- [02:31:58.560] drug prices in the world. And you think
+- [02:32:00.960] that was easy? It wasn't. For decades,
+- [02:32:04.000] Americans paid the highest prices. Think
+- [02:32:06.080] of that. There's never been a time where
+- [02:32:09.280] we when I took this over, the highest
+- [02:32:11.520] prices. And now, just remember, you go
+- [02:32:14.479] to trumprx.gov gov and you get what
+- [02:32:17.920] you're looking for at prices so much
+- [02:32:20.800] lower that a lot of people don't even
+- [02:32:22.560] believe it's happening. We passed the
+- [02:32:24.880] largest ever investment in the United
+- [02:32:27.040] States military more than$1 trillion
+- [02:32:30.319] dollars and this year all made in the
+- [02:32:32.640] USA. We're going to be asking Pete Hexth
+- [02:32:36.080] and General Raisin Kane and all of us
+- [02:32:39.200] we're going to And by the way, how good
+- [02:32:40.800] is our military? How good is our move?
+- [02:32:48.560] One week Iran was essentially finished.
+- [02:32:52.319] In one hour, Venezuela was finished. And
+- [02:32:56.560] I guess we have other things in store,
+- [02:32:58.399] but we don't want to get carried away.
+- [02:33:01.359] Recruitment for every branch of our
+- [02:33:03.359] armed forces, so importantly, is setting
+- [02:33:05.439] records. 18 months ago, we had
+- [02:33:07.920] shortages, and now we have waiting
+- [02:33:09.680] lists. We couldn't get people to join
+- [02:33:11.359] the military. None of them, none of the
+- [02:33:13.120] branches. They were all dying to get
+- [02:33:15.439] people. They couldn't. Then a thing
+- [02:33:17.280] happened on November 5th. It's called a
+- [02:33:19.920] great election victory. And from that
+- [02:33:22.160] moment on, now you can't even get into
+- [02:33:24.800] the military. We have waiting list to
+- [02:33:26.640] get into the military and to become
+- [02:33:29.040] policemen and to become firemen. It's
+- [02:33:32.000] really fantastic what's happened. The
+- [02:33:33.840] spirit in this country is like from a
+- [02:33:35.920] different planet from what it was a year
+- [02:33:38.240] and a half ago. In a flawless and
+- [02:33:40.560] breathtaking operation earlier this
+- [02:33:42.640] year, America's armed forces captured
+- [02:33:45.359] the outlaw dictator of Venezuela,
+- [02:33:48.160] Nicholas Maduro, and brought him back to
+- [02:33:50.800] face American justice.
+- [02:33:55.040] One of the great
+- [02:33:57.200] military raids in history, if you
+- [02:33:59.200] remember, and here at home, we abolished
+- [02:34:01.680] DEI across the entire federal
+- [02:34:03.840] government. We don't want DEI.
+- [02:34:08.960] And we got critical race theory out of
+- [02:34:11.040] our schools. [cheering]
+- [02:34:13.520] And I signed the largest expansion of
+- [02:34:15.840] school choice in history. And we have
+- [02:34:18.640] begun the process of abolishing the
+- [02:34:21.359] federal department of education. Thank
+- [02:34:24.319] you, Linda.
+- [02:34:27.680] Because we're sending education back to
+- [02:34:29.920] the states where it belongs.
+- [02:34:33.120] We banned the transgender mutilization
+- [02:34:36.319] of children.
+- [02:34:39.920] And we made it the official policy of
+- [02:34:42.080] the United States government that there
+- [02:34:44.720] are only two genders, male and female.
+- [02:34:49.316] [cheering]
+- [02:34:52.479] We got men out of women's sports.
+- [02:34:58.160] We renamed the Gulf of Mexico after 350
+- [02:35:02.800] years. They are 100 years older than we
+- [02:35:06.000] are. We named the Gulf of Mexico,
+- [02:35:09.280] the Gulf of America,
+- [02:35:12.242] [cheering]
+- [02:35:14.319] and restored the name of a great
+- [02:35:16.800] president, William McKinley, to Mount
+- [02:35:19.439] McKinley, where it belonged.
+- [02:35:22.160] And tonight, right here on the National
+- [02:35:24.240] Mall, we are beginning the most
+- [02:35:25.840] unforgettable birthday party any country
+- [02:35:28.240] has ever seen. Oh, you're going to have
+- [02:35:29.680] a good time. [cheering]
+- [02:35:31.120] You're going to have a good time. This
+- [02:35:33.680] evening, it's my honor to officially
+- [02:35:35.920] kick off the celebration with the Great
+- [02:35:39.439] American State Fair. It's going to be
+- [02:35:42.560] great. It's going to be unbelievable.
+- [02:35:44.880] So, from today through July 10th, this
+- [02:35:48.000] event will showcase all 56 states and
+- [02:35:50.960] territories.
+- [02:35:52.560] There will be no military flyovers. And
+- [02:35:55.760] I want to tell you something because
+- [02:35:57.840] they're going to be beyond flyovers.
+- [02:36:00.080] There'll be something like you've never
+- [02:36:01.439] seen. And you get just a little little
+- [02:36:03.120] tiny glimpse of it tonight. By the way,
+- [02:36:05.359] how good is our air force? How good is
+- [02:36:07.680] our Nobody's ever seen those planes.
+- [02:36:10.800] They are serious planes.
+- [02:36:13.359] When the bad guys see those planes come
+- [02:36:15.520] and they say, "We give up."
+- [02:36:18.319] But we're going to have special
+- [02:36:19.600] performances, patriotic music, high tech
+- [02:36:22.720] demonstrations,
+- [02:36:24.319] unique exhibitions, a FIFA fan zone,
+- [02:36:27.520] which is great. And it really has been
+- [02:36:29.840] big stuff. and even an in old-fashioned
+- [02:36:32.560] rodeo. I love rodeo. I don't know how
+- [02:36:34.800] they do it. I don't know how they do it.
+- [02:36:38.000] Then on July 4th, we will have the
+- [02:36:40.160] greatest show of all on the National
+- [02:36:42.000] Mall. Your favorite president will be
+- [02:36:44.720] speaking.
+- [02:36:46.640] So, please show up
+- [02:36:49.520] because if we have two empty seats, you
+- [02:36:51.439] know what's going to happen? The fake
+- [02:36:52.560] news is going to say he didn't fill out
+- [02:36:54.399] the arena.
+- [02:36:56.640] Now, I'll be speaking. and I'll be very
+- [02:36:58.479] proudly speaking as we ring in our 250th
+- [02:37:01.680] year with the largest fireworks display
+- [02:37:05.520] in world history. 10 times larger than
+- [02:37:08.880] any that we've ever done in Washington
+- [02:37:11.280] or in the United States. So, if you like
+- [02:37:13.760] fireworks,
+- [02:37:16.880] then in August, we're going to have
+- [02:37:19.280] what's called the Patriot Games, a
+- [02:37:21.200] firstofits-kind competition featuring
+- [02:37:23.760] the greatest high school athletes from
+- [02:37:25.600] all across the United States, and
+- [02:37:28.080] applications are open through July 10th.
+- [02:37:30.479] These are the best athletes in the
+- [02:37:31.920] country, young athletes. And soon
+- [02:37:33.920] thereafter, we'll have a Freedom 250
+- [02:37:37.359] Grand Prix right here in Washington
+- [02:37:39.760] around the Capitol. That's the great
+- [02:37:42.160] Roger Penske. Roger Pensky. It's going
+- [02:37:44.960] to be an indie race that they've been
+- [02:37:48.160] trying to get. He said, "We've been
+- [02:37:49.439] trying to get it for 29 years. We came
+- [02:37:52.479] to Washington over 200 times and with
+- [02:37:55.840] you as president, we came here a half an
+- [02:37:57.520] hour and it was done. So, we're going to
+- [02:37:59.680] have Indie wrapping around the cap down
+- [02:38:02.880] Pennsylvania Avenue. It's going to be
+- [02:38:04.479] amazing. It's in August." In conclusion,
+- [02:38:07.680] 250 years ago, a new nation was founded
+- [02:38:10.720] by farmers and soldiers, shopkeepers and
+- [02:38:13.359] tradesmen
+- [02:38:14.880] who stood strong to defend their rights,
+- [02:38:17.200] their families, and their freedom from
+- [02:38:19.200] tyranny
+- [02:38:20.720] across the sea, from every city and
+- [02:38:23.280] town, from the mountains and valleys,
+- [02:38:25.359] from the backwoods and rocky shores.
+- [02:38:28.000] They came by the thousands to fill the
+- [02:38:30.160] ranks of American patriots and enlist
+- [02:38:32.800] their lives in the righteous cause of
+- [02:38:34.960] independence. That's what they did. This
+- [02:38:37.680] exceptional nation was forged and won by
+- [02:38:40.080] some of the bravest, toughest,
+- [02:38:41.439] strongest, most extraordinary people
+- [02:38:43.920] ever to stride the earth. Together we
+- [02:38:46.800] stand on the shoulders of incomparable
+- [02:38:49.439] heroes such as George Washington, Thomas
+- [02:38:53.280] Jefferson,
+- [02:38:54.880] John Adams, Abraham Lincoln, Benjamin
+- [02:38:58.479] Franklin, Alexander Hamilton, John Paul
+- [02:39:02.160] Jones, John Hancock at Lexington in
+- [02:39:05.680] Concord, Brooklyn and Saratoga, Trenton
+- [02:39:08.399] and Yorktown, and at Independence Hall
+- [02:39:11.280] in Philadelphia. These real life legends
+- [02:39:13.680] and American icons poured out their
+- [02:39:16.240] blood, sweat, and tears and risked
+- [02:39:18.080] everything they had to purchase and to
+- [02:39:22.240] live the most priceless and glorious
+- [02:39:25.280] inheritance of any people ever to be on
+- [02:39:28.800] this earth. They all lived by the oath
+- [02:39:31.520] that Patrick Henry made immortal. Give
+- [02:39:34.160] me liberty or give me death.
+- [02:39:40.140] [cheering]
+- [02:39:40.960] For 250 years, every generation of
+- [02:39:43.680] Americans have taken up this same call
+- [02:39:46.640] to freedom. From the storied alleys of
+- [02:39:50.399] Boston to the streets of Philadelphia,
+- [02:39:52.640] from the golden fields of Michigan to
+- [02:39:55.120] the gleaming shores of California, and
+- [02:39:57.280] from Texas to Florida to right here in
+- [02:40:00.720] now beautiful and extremely safe,
+- [02:40:03.439] Washington DC, our American answers.
+- [02:40:08.640] Our American ancestors fought and won
+- [02:40:11.359] the most vicious battles. They explored
+- [02:40:14.160] and settled the most dangerous frontiers
+- [02:40:16.479] and let no challenge ever break their
+- [02:40:19.040] spirit or their pride. They were proud
+- [02:40:20.800] to be Americans. They love our country.
+- [02:40:23.120] They look down on us now. They love our
+- [02:40:25.280] people. Americans crossed the great
+- [02:40:27.680] plains, scaled the mighty Rockies, tamed
+- [02:40:30.560] the Wild West, and turned this continent
+- [02:40:32.880] into industrial powerhouses like nobody
+- [02:40:35.920] has ever seen. We laid down the
+- [02:40:38.240] railroads, raised up the skyscrapers,
+- [02:40:41.200] built the great highways, invented the
+- [02:40:43.840] airplane, won two world wars, defeated
+- [02:40:47.120] fascism and communism. We're going to
+- [02:40:49.359] have to do that again,
+- [02:40:51.520] and led humanity into space, and we did
+- [02:40:54.720] it all in the span of just 250 years.
+- [02:40:58.479] Now we are expanding the glory of
+- [02:41:00.880] American freedom into horizon really
+- [02:41:04.080] into a horizon that's never been seen
+- [02:41:06.800] before. We've never reached so high as
+- [02:41:09.439] we're reaching right now. This is our
+- [02:41:11.920] heritage. This is our history. And this
+- [02:41:14.800] is the destiny of America to be the
+- [02:41:17.040] greatest, most incredible country ever
+- [02:41:19.520] to grace the earth. We are one people,
+- [02:41:23.359] one nation, marching into one
+- [02:41:25.920] magnificent future under our great
+- [02:41:28.720] American flag that we love and respect
+- [02:41:31.359] so much. And tonight, we prepare to
+- [02:41:34.080] enter our 250th year. We are more
+- [02:41:37.680] determined than ever to
+- [02:41:40.640] remember these phrases. You've heard
+- [02:41:43.280] them many times before. We will make
+- [02:41:48.399] America powerful again.
+- [02:41:51.120] We will make America wealthy again. We
+- [02:41:55.359] will make America healthy again. We will
+- [02:41:59.760] make America strong again. We will make
+- [02:42:04.560] America proud again. We will make
+- [02:42:08.080] America safe again. And we will make
+- [02:42:12.720] America great again. Thank you very
+- [02:42:15.920] much. Happy birthday, America. Thank
+- [02:42:18.000] you.
+- [02:42:19.280] Thank you very much. [cheering]
+- [02:42:24.547] [music]
+- [02:42:33.920] Oh, [music] young man.
+- [02:42:37.359] I said young man
+- [02:42:40.800] down. I said young man
+- [02:42:43.760] in town. There's no [music] need to be
+- [02:42:47.760] unhappy young man. There's a place you
+- [02:42:51.520] can go as any young man. [music]
+- [02:42:54.240] When you're sure to go, you can go there
+- [02:42:58.000] to the YMCA. I know they can help you,
+- [02:43:03.040] too. Come on, everybody.
+- [02:43:06.080] It's fun to stay in the YMCA.
+- [02:43:09.760] It's fun to stay in the YMCA.
+- [02:43:14.327] >> [music]
+- [02:43:14.640] >> Take out everything for your men to
+- [02:43:17.439] enjoy. You can hang out with all the
+- [02:43:20.479] boys.
+- [02:43:23.498] [singing]
+- [02:43:24.560] It's fun to stay at home.
+- [02:43:29.439] You can get yourself clean.

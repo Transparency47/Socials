@@ -1,0 +1,118 @@
+<!-- source: https://www.youtube.com/watch?v=U4cfayBx6pA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: U4cfayBx6pA -->
+<!-- date_published: 2026-06-24T17:40:54+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:50.060412+00:00 -->
+
+# Transcript: Road to Liberty: Battle of Saratoga
+
+- [00:00.600] At Saratoga, men won the battle in
+- [00:02.880] blood.
+- [00:04.160] Victors claimed the credit with ink.
+- [00:07.720] And I, the man who many say played a
+- [00:09.640] decisive role in victory, would follow a
+- [00:12.120] dark path, live the rest of my days as a
+- [00:14.640] pariah,
+- [00:15.880] and forever be called
+- [00:18.120] turncoat.
+- [00:22.760] The British plan was simple. March
+- [00:24.480] south, seize the Hudson River Valley,
+- [00:26.640] split the colony. But a loss at
+- [00:28.560] Bennington had smashed their foragers
+- [00:30.760] and stripped their supply.
+- [00:32.680] And after the redcoats retreated from
+- [00:34.080] Stanwix, Lieutenant General Burgoyne and
+- [00:36.320] his men were alone, hungry,
+- [00:38.920] and vulnerable.
+- [00:44.120] We threw up strong works at Bemis
+- [00:45.640] Heights, blocking the road to Albany.
+- [00:47.960] Major General Horatio [music] Gates held
+- [00:49.360] the line.
+- [00:50.800] As his second-in-command, I pushed our
+- [00:52.480] light troops forward to sting the enemy
+- [00:54.160] before they reached it. He favored
+- [00:56.200] caution, I favored pressure.
+- [00:58.240] >> Move!
+- [00:59.280] >> Burgoyne tried to turn [music] a left at
+- [01:00.640] Freeman's Farm.
+- [01:01.440] >> Hold the line!
+- [01:01.960] >> I sent men to hit him before his columns
+- [01:03.600] formed.
+- [01:07.000] Fighting ceased on all afternoon,
+- [01:08.720] volleys so close you could taste the
+- [01:10.440] powder.
+- [01:11.720] At dusk, the British still stood on the
+- [01:13.600] field, but blood told the whole story.
+- [01:16.680] About 600 British down,
+- [01:19.440] roughly 300 of ours.
+- [01:21.640] We had blunted his edge, and I knew if I
+- [01:23.640] had more men to send at Freeman's Farm,
+- [01:25.280] we could bring a much quicker victory.
+- [01:29.080] Gates denied my request. In the ensuing
+- [01:32.040] days, he [music] began to leave me out
+- [01:33.160] of meetings. I asked for more troops, he
+- [01:35.680] continued to deny me.
+- [01:36.941] >> [music]
+- [01:37.280] >> Then, he took Morgan's riflemen from my
+- [01:39.120] command, not for strategic reasons, but
+- [01:42.000] to teach me a lesson.
+- [01:43.240] >> You're of little consequence to this
+- [01:44.960] army.
+- [01:45.360] >> How dare you?
+- [01:46.600] >> Consider yourself relieved of divisional
+- [01:48.800] command.
+- [01:51.880] >> Out of supplies and options, Burgoyne
+- [01:53.960] struck [music] again, sending a strong
+- [01:55.520] detachment to test our men at Bemis
+- [01:57.720] If they broke through, the road to
+- [01:59.320] Albany reopened.
+- [02:01.800] Gates again wanted [music] to wait, but
+- [02:04.280] that was something I could not do.
+- [02:09.520] I looped toward the Breyman [music]
+- [02:10.640] stronghold held by the German mercenary
+- [02:12.680] Hessians.
+- [02:16.280] Our men surged through the smoke.
+- [02:19.120] >> Push forward!
+- [02:19.600] >> The Hessians waved.
+- [02:21.520] The position cracked.
+- [02:23.240] And in the push, a shot slammed my leg.
+- [02:27.840] But the breach was made.
+- [02:31.200] By nightfall, the British fell back in
+- [02:32.840] disorder. Campfires left to fool our
+- [02:34.920] eyes. Roughly 6 to 700 British
+- [02:37.360] casualties that day, but fewer than 200
+- [02:40.120] for us.
+- [02:41.240] And by morning, short [music] on food
+- [02:43.000] and ammunition, Burgoyne had nowhere
+- [02:45.280] left to go.
+- [02:47.959] He asked for terms.
+- [02:49.480] About 5,800 [music] laid down their
+- [02:51.480] arms, the first British army to
+- [02:53.600] surrender in this war. And the world
+- [02:55.541] [music] finally looked our way.
+- [02:58.400] News crossed the Atlantic. The
+- [02:59.880] impossible had become likely. In Paris,
+- [03:02.840] Benjamin Franklin turned Saratoga into
+- [03:04.920] treaties. France stepped [music] from
+- [03:07.080] shadow to ally. But the victories
+- [03:10.400] weren't without problems. After
+- [03:12.040] Saratoga, [music] some praised Major
+- [03:13.760] General Gates as the man to lead us all.
+- [03:16.000] Brigadier General Conway put it in
+- [03:17.440] writing. [music] He pushed to replace
+- [03:19.080] Washington as the commander-in-chief
+- [03:20.600] with the man who took credit for my
+- [03:22.080] leadership. Washington was now fighting
+- [03:24.280] a battle [music] on two fronts.
+- [03:26.400] And I was dealing with feelings of
+- [03:27.880] betrayal. While Congress weighed heroes
+- [03:30.519] by headlines,
+- [03:31.567] >> [music]
+- [03:31.760] >> I healed. But my destiny was forever
+- [03:34.920] changed. Gates took the sword,
+- [03:37.519] Washington took the burden, and I took
+- [03:39.800] the scar.
+- [03:41.120] Saratoga decided our future and chose
+- [03:44.040] its heroes.
+- [03:59.840] >> Mhm.

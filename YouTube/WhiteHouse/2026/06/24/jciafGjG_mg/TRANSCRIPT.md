@@ -1,0 +1,169 @@
+<!-- source: https://www.youtube.com/watch?v=jciafGjG-mg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: jciafGjG-mg -->
+<!-- date_published: 2026-06-24T17:27:28+00:00 -->
+<!-- date_accessed: 2026-06-25T07:59:51.712377+00:00 -->
+
+# Transcript: Road To Liberty: Ratification of the Constitution
+
+- [00:02.320] This is the moment people remember.
+- [00:05.520] Clean signatures,
+- [00:07.680] calm faces.
+- [00:09.680] A nation born in a single stroke.
+- [00:13.440] But signing the Constitution was only
+- [00:15.840] the first step.
+- [00:17.720] Ratification was the real fight.
+- [00:22.680] Under the Articles of Confederation, we
+- [00:24.680] had won independence,
+- [00:26.720] then nearly lost the peace.
+- [00:29.440] No steady revenue,
+- [00:31.160] no power to act, no way to keep 13
+- [00:34.060] [music] separate states from throwing up
+- [00:35.680] barriers with one another.
+- [00:38.280] Tariffs and tolls that made life harder
+- [00:40.120] for ordinary citizens.
+- [00:43.640] >> The time has come when your Excellency
+- [00:45.640] has it in your power to make yourself
+- [00:47.760] king.
+- [00:49.360] >> In those uncertain years, a few even
+- [00:51.440] urged Washington to take a crown,
+- [00:53.880] believing a monarch could make the
+- [00:55.320] government function.
+- [00:57.280] He rebuked the idea.
+- [00:59.360] But as power stayed scattered, burdens
+- [01:01.280] grew.
+- [01:02.520] And when the pressure finally burst,
+- [01:04.760] it was in Massachusetts.
+- [01:06.680] >> Ready! Fire!
+- [01:09.840] >> When Shays' Rebellion broke out,
+- [01:11.920] it didn't feel like politics.
+- [01:14.240] It felt like the Republic was slipping.
+- [01:17.440] The Articles had failed in their
+- [01:18.600] purpose.
+- [01:19.960] We needed something stronger.
+- [01:23.280] We convened, ostensibly, to revise the
+- [01:25.800] Articles, but revision wouldn't save it.
+- [01:29.120] So we gambled
+- [01:30.520] on a stronger frame of government.
+- [01:33.200] Washington [music] said little.
+- [01:35.240] He didn't need to.
+- [01:36.760] His presence made the gamble believable.
+- [01:39.440] Franklin steadied the room with humor
+- [01:41.800] and age.
+- [01:43.000] Hamilton pushed urgency.
+- [01:45.080] If the nation couldn't function, it
+- [01:46.960] couldn't survive.
+- [01:49.080] And I?
+- [01:50.280] I wrote until the words sounded like one
+- [01:52.640] country.
+- [01:54.400] And we did not resolve every conflict.
+- [01:57.120] >> I must declare my disapproval of this
+- [01:58.960] traffic. It is a nefarious institution,
+- [02:01.840] the curse of heaven on the states where
+- [02:03.720] it prevails. The continuation of this
+- [02:05.960] union depends upon the protection of our
+- [02:07.920] right to property. This is essential to
+- [02:10.160] our economy
+- [02:11.560] and our way of life.
+- [02:13.240] >> Compromises were made so that the union
+- [02:15.440] could be born.
+- [02:17.800] Knowing it wasn't perfect. So we built
+- [02:20.680] it to be amended, strengthened, and
+- [02:23.360] improved by the generations that would
+- [02:25.600] inherit it.
+- [02:28.680] When the writing finally ended, we did
+- [02:30.480] what revolutions rarely get to do. We
+- [02:33.000] put our future into plain words.
+- [02:36.160] And one by [music] one, the men in that
+- [02:38.280] room signed.
+- [02:40.160] We signed knowing we disagreed
+- [02:43.000] because the union had to be stronger
+- [02:44.600] than our fear.
+- [02:47.080] Washington signed so that [music] no one
+- [02:48.800] could mistake the meaning.
+- [02:50.640] His name didn't just bless the paper.
+- [02:52.880] It pledged his reputation to the
+- [02:54.360] experiment.
+- [02:55.959] In that moment, in those walls, it felt
+- [02:58.920] like a first victory.
+- [03:01.160] But a signature in Philadelphia wasn't a
+- [03:03.160] nation.
+- [03:06.320] To live, the Constitution had to survive
+- [03:09.000] America itself.
+- [03:11.080] Then the battle moved from secret rooms
+- [03:13.200] to public streets. Hamilton, John Jay,
+- [03:16.160] and I wrote the Federalist Papers as
+- [03:18.400] Publius, not to flatter power, but to
+- [03:20.880] explain it. A government strong enough
+- [03:23.040] to act, built with restraints to prevent
+- [03:25.519] tyranny.
+- [03:26.600] And the opposition met us head-on.
+- [03:28.840] Patrick Henry thundered that a distant
+- [03:31.280] authority could become a familiar
+- [03:32.840] oppression.
+- [03:34.360] Gerry and Mason demanded what people
+- [03:36.200] deserved, rights in writing.
+- [03:38.720] >> Perhaps we need something to protect the
+- [03:40.519] rights [music] of citizens.
+- [03:41.840] >> Many Americans agreed.
+- [03:43.760] >> The Constitution already grants the
+- [03:45.680] federal government no power to touch
+- [03:47.480] those liberties.
+- [03:49.200] Why pretend it needs permission?
+- [03:51.200] >> Then why not just put it in writing?
+- [03:53.640] No Bill of Rights, no deal.
+- [04:03.120] >> Nine states made it law on paper.
+- [04:05.720] But without Virginia and New York,
+- [04:07.800] it might not survive in practice.
+- [04:10.360] >> We stand at a precipice. This assembly
+- [04:13.160] must decide whether to uphold the rights
+- [04:15.320] of the common man or succumb to [music]
+- [04:17.440] tyranny.
+- [04:18.519] >> Do not be deceived by promises of a
+- [04:20.280] distant benevolence. Power corrupts.
+- [04:23.240] Liberty, once surrendered, is rarely
+- [04:25.520] returned.
+- [04:26.600] >> In Virginia, it came down to a promise.
+- [04:29.480] Ratify now, amend next.
+- [04:32.480] The vote was razor-thin, 89 to 79.
+- [04:36.520] Virginia showed [music] it could work.
+- [04:38.280] Now everything came down to New York.
+- [04:41.000] If it said no, the Union could splinter.
+- [04:44.520] >> We must submit [music] to this idea.
+- [04:46.680] The true principle of a republic is
+- [04:49.280] that the people should choose [music]
+- [04:50.400] whom they please to govern them.
+- [04:52.520] >> In New York, Hamilton fought like the
+- [04:54.520] Union depended on it.
+- [04:56.520] Because it did.
+- [04:58.160] The vote, 30 to 27.
+- [05:01.400] Two states,
+- [05:02.720] two cliff edges,
+- [05:04.880] and at last,
+- [05:06.400] one country.
+- [05:08.320] Ratification didn't end our arguments.
+- [05:11.240] It gave them a common room to happen in,
+- [05:13.720] under the same rules.
+- [05:16.880] All those moments, the protests, the
+- [05:19.760] rides, the first shots, the winter
+- [05:22.000] marches, the desperate victories,
+- [05:24.720] they were never just about defying a
+- [05:26.440] king.
+- [05:27.760] They were about proving we could govern
+- [05:29.680] ourselves.
+- [05:31.520] And when the new government opened its
+- [05:33.320] doors, Washington was the only name that
+- [05:36.080] could hold every side in the same
+- [05:37.880] breath.
+- [05:39.840] If men were angels, no government would
+- [05:42.080] be necessary.
+- [05:43.480] So we built a government [music] to
+- [05:44.680] control the governed and oblige it to
+- [05:47.000] control itself. But its future does not
+- [05:49.520] live in the pages of the Constitution
+- [05:51.200] alone.
+- [05:52.280] It lives in the character [music] of the
+- [05:53.640] people,
+- [05:54.760] and in the providence that judges
+- [05:56.480] nations, as well as men.
