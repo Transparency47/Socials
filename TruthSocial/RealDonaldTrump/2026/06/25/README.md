@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-25
 
-- Posts: 11
+- Posts: 12
 
+- [20:41 UTC - House Republicans should unify, and stop voting down “Rules” or, threatening to do so. Giv...](116812682074393050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116812682074393050
+  - House Republicans should unify, and stop voting down “Rules” or, threatening to do so. Giving power to the Radical Left Dumocrats in the House to control what goes up for a Vote wi...
 - [17:47 UTC - The Crowd was incredible last night, packed to the brim — At least 45,000 people were ther...](116812000049397183/)
   - Source: https://truthsocial.com/@realDonaldTrump/116812000049397183
   - The Crowd was incredible last night, packed to the brim — At least 45,000 people were there, with a huge Television and online audience. I wish we were able to have an even larger...
