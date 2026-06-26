@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=dikuG6dEQNs: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=dikuG6dEQNs! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=dikuG6dEQNs: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=dikuG6dEQNs! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (dikuG6dEQNs) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9771,6 +9771,17 @@
       "published": "2026-06-26T14:28:59+00:00",
       "title": "Making D.C. safe & beautiful again \ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7655710966365048094"
+    },
+    "tiktok:whitehouse:7655788007881968910": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T19:30:41.521276+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/26/7655788007881968910",
+      "platform": "tiktok",
+      "post_id": "7655788007881968910",
+      "published": "2026-06-26T19:27:53+00:00",
+      "title": "President Trump loves our farmers \ud83e\udd20\ud83e\udd85\ud83c\uddfa\ud83c\uddf8 @Kait Thornton",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7655788007881968910"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -118748,6 +118759,28 @@
       "published": "2026-06-26T17:13:09.375000+00:00",
       "title": "I will be speaking at 1:30 P.M. to The Faith and Freedom Coalition, and one of the Stateme...",
       "url": "https://truthsocial.com/@realDonaldTrump/116817526085394987"
+    },
+    "truthsocial:realdonaldtrump:116817962257360565": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T19:30:24.418672+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116817962257360565",
+      "platform": "truthsocial",
+      "post_id": "116817962257360565",
+      "published": "2026-06-26T19:04:04.862000+00:00",
+      "title": "Good Evening from the Pool!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116817962257360565"
+    },
+    "truthsocial:realdonaldtrump:116818025512975700": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T19:30:24.418248+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116818025512975700",
+      "platform": "truthsocial",
+      "post_id": "116818025512975700",
+      "published": "2026-06-26T19:20:10.065000+00:00",
+      "title": "Good Morning from the Pool!",
+      "url": "https://truthsocial.com/@realDonaldTrump/116818025512975700"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

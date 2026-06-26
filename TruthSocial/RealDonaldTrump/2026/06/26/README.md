@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 17
+- Posts: 19
 
+- [19:20 UTC - Good Morning from the Pool!](116818025512975700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116818025512975700
+  - Good Morning from the Pool!
+- [19:04 UTC - Good Evening from the Pool!](116817962257360565/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817962257360565
+  - Good Evening from the Pool!
 - [17:13 UTC - I will be speaking at 1:30 P.M. to The Faith and Freedom Coalition, and one of the Stateme...](116817526085394987/)
   - Source: https://truthsocial.com/@realDonaldTrump/116817526085394987
   - I will be speaking at 1:30 P.M. to The Faith and Freedom Coalition, and one of the Statements I will be making, perhaps the most important of them all, concerns the recent Election...
