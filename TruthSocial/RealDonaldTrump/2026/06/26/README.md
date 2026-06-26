@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 10
+- Posts: 14
 
+- [15:51 UTC - The Islamic Republic of Iran shot at least four One Way Attack Drones at Ships transversin...](116817203281419093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817203281419093
+  - The Islamic Republic of Iran shot at least four One Way Attack Drones at Ships transversing the Strait of Hormuz. One of the Drones solidly hit the upper deck of a large and very e...
+- [15:04 UTC - It was just announced that, and I’m not necessarily thrilled to be talking about it becaus...](116817021244415806/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817021244415806
+  - It was just announced that, and I’m not necessarily thrilled to be talking about it because it does not exactly sound NICE, the Trump Administration has the Highest Average Daily A...
+- [14:56 UTC - For all of those who like to say that Barack Hussein Obama, and his Vice President, Sleepy...](116816990404292958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116816990404292958
+  - For all of those who like to say that Barack Hussein Obama, and his Vice President, Sleepy Joe Biden, did as many Criminal ICE removals as President Trump, the figures are just in....
+- [13:52 UTC - Other Polls have my Approval Rating at 65%, and more! Like Journalists, Honest Pollsters a...](116816735268373974/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116816735268373974
+  - Other Polls have my Approval Rating at 65%, and more! Like Journalists, Honest Pollsters are very rare and hard to find! President DJT [https://www. newsmax.com/mclaughlin/mclaugh...
 - [12:43 UTC - Roger Marshall of Kansas is a GREAT Republican Senator who just plain GETS THE JOB DONE. T...](116816466651864171/)
   - Source: https://truthsocial.com/@realDonaldTrump/116816466651864171
   - Roger Marshall of Kansas is a GREAT Republican Senator who just plain GETS THE JOB DONE. Thank you Roger! President DJT
