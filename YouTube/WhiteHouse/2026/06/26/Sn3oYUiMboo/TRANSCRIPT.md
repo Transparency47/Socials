@@ -1,0 +1,574 @@
+<!-- source: https://www.youtube.com/watch?v=Sn3oYUiMboo -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Sn3oYUiMboo -->
+<!-- date_published: 2026-06-26T19:59:07+00:00 -->
+<!-- date_accessed: 2026-06-26T21:08:02.414198+00:00 -->
+
+# Transcript: President Trump Receives Presentation of the Religious Liberty Commission Report
+
+- [00:05.440] Well, thank you very much. We just got
+- [00:07.040] back from a wonderful group of people,
+- [00:10.639] Faith and Freedom, and now we have
+- [00:12.320] something else that I've been working on
+- [00:13.759] for a long time with the Lieutenant
+- [00:15.920] Governor of Texas who's fantastic man
+- [00:18.160] and Ben Carson and everybody else up
+- [00:20.160] here. And I'm delighted to be joined by
+- [00:22.880] some of our nation's greatest champions
+- [00:25.680] of faith and religious freedom to
+- [00:27.359] receive the report of the presidential
+- [00:30.000] commission on religious liberty which is
+- [00:32.880] a very big deal. And here today are
+- [00:34.960] members of the commission. They showed
+- [00:38.079] up for every meeting and uh they take it
+- [00:41.440] very seriously and they are very serious
+- [00:43.200] people. Chairman Dan Patrick and I want
+- [00:45.920] to thank you Dan because you've done a
+- [00:47.280] fantastic job. Fantastic job. Vice
+- [00:50.160] Chairman Ben Carson, Dr. Ben Carson, my
+- [00:52.800] friend. He was originally my opponent.
+- [00:56.320] He ran very, very tough. I didn't like
+- [00:58.719] running against him. He was very tough.
+- [01:00.960] He was a tough one. But he's a great
+- [01:03.199] gentleman. Attorney General Todd Blanch.
+- [01:06.000] Where's Todd? Todd,
+- [01:07.360] >> you're doing good. Everybody tells me
+- [01:08.720] what a good job you're doing. I agree.
+- [01:10.720] They're all, even the senators all say,
+- [01:12.799] "Wow, he's doing a great job."
+- [01:15.040] >> Secretary of Housing and Urban
+- [01:16.479] Development Scott Turner. Scott, thank
+- [01:18.560] you.
+- [01:20.799] Dr. Ryan Anderson. Ryan, thank you very
+- [01:24.000] much. Bishop Robert Baron, Attorney
+- [01:28.320] Allison Hoe,
+- [01:30.720] Dr. Phil,
+- [01:33.040] some would call him Dr. Phil Mcgro. We
+- [01:34.960] all know him as Dr. Phil. One of the
+- [01:36.479] most successful people ever on
+- [01:38.000] television, I might add. Thank you,
+- [01:40.000] Phil. President and CEO of First Liberty
+- [01:43.520] Institute, Kelly Shackleford. Kelly,
+- [01:46.399] thank you. Rabbi Mir Solivvichek.
+- [01:51.439] Thank you, Rabbi. Pastor Paula White has
+- [01:54.079] been with the campaign from day one. And
+- [01:57.119] Jenny Korn worked with Paula. So, well,
+- [01:59.759] we've we got I think 94% of the vote,
+- [02:04.079] the evangelical vote. Nobody's ever
+- [02:06.159] gotten
+- [02:07.119] >> a number like that. And uh we're very
+- [02:10.239] honored. And part of it is because of
+- [02:11.920] the people standing behind me, the
+- [02:14.400] director of the White House Domestic
+- [02:16.560] Policy Council, Vince Haley. He used to
+- [02:19.760] be my speech writer. Now he went on to
+- [02:22.160] policy
+- [02:23.680] and he's doing a great job. He's a
+- [02:25.840] fantastic guy. In May of last year, I
+- [02:28.959] established the Presidential Commission
+- [02:30.959] on Religious Liberty to outline threats
+- [02:32.959] to the free exercise of religion in our
+- [02:35.840] country and to provide recommendations
+- [02:37.599] for action. America was founded by
+- [02:40.160] people of faith and it was settled as a
+- [02:42.640] haven for religious freedom. So
+- [02:44.959] important. As we prepare to celebrate
+- [02:47.040] the 250th anniversary of our founding
+- [02:50.160] next week, it is only appropriate that
+- [02:52.480] we work to strengthen this fundamental
+- [02:54.319] right and to most essentially
+- [02:57.519] have liberty for generations to come. We
+- [02:59.840] want religious liberty. We want liberty,
+- [03:02.159] but we also want religious liberty. We
+- [03:05.280] will closely study this report that is
+- [03:07.760] being presented to me as president
+- [03:09.519] today. And my administration will
+- [03:11.680] continue to work with the
+- [03:14.640] really the pillars of protecting
+- [03:17.200] religious liberty for all Americans. And
+- [03:19.280] we must also remain one nation under
+- [03:22.640] God. We will never let that phrase be
+- [03:25.280] stolen from us. You know, people are
+- [03:26.879] trying to steal it. We all know that
+- [03:28.959] very well. That phrase will never be
+- [03:31.519] stolen. It will stand proudly in our
+- [03:33.440] courts and everywhere else where we have
+- [03:35.680] it. And I want to thank this great team
+- [03:38.640] of outstanding work. And I'd like to
+- [03:40.959] start off with the chairman, Dan
+- [03:42.640] Patrick, and say a few words about the
+- [03:44.560] report and followed by uh a couple of
+- [03:47.360] the people that I know uh up here so
+- [03:50.319] well. And they're going to speak at
+- [03:52.000] random if they want, but it will be
+- [03:54.159] followed by vice chairman Dr. Ben
+- [03:56.799] Carson. So Dan, if you would, you'll
+- [03:59.360] start it off and then Ben and then you
+- [04:00.799] could say a few words. everybody as you
+- [04:02.879] want. Thank you. Yes, sir. First of all,
+- [04:05.599] Mr. President, thank you for hosting us
+- [04:07.200] today and thank you for establishing
+- [04:09.280] this commission. It was just 13 months
+- [04:12.480] ago when we stood in the Rose Garden.
+- [04:15.280] Now, it's an incredibly beautiful rose
+- [04:17.199] garden today. We stood there and we
+- [04:20.079] talked about religious liberty and that
+- [04:22.720] no president in our history has stood
+- [04:25.840] more for God than this president. He has
+- [04:29.759] been unashamed to speak the word of
+- [04:32.400] Jesus. He's been unashamed to speak up
+- [04:34.560] for all faiths. And he established this
+- [04:36.880] commission so that we would assure
+- [04:39.759] Americans the religious liberty that
+- [04:41.520] this great inheritance from our founding
+- [04:43.360] fathers would continue for another 250
+- [04:46.560] years. And Mr. President, we believe
+- [04:48.720] this will be one of your greatest
+- [04:50.320] legacies. And you happen to be the
+- [04:52.320] perfect president to be here in the
+- [04:54.479] 250th celebration. The question is, what
+- [04:57.600] is religious liberty?
+- [04:59.680] It's our conscience. It's that little
+- [05:02.160] voice inside of us that tells us right
+- [05:05.040] from wrong. It's that voice that when
+- [05:07.919] we're in trouble, we can talk to in our
+- [05:10.080] quiet moments. It's that voice when we
+- [05:13.280] feel unloved and alone that can comfort
+- [05:16.720] us through a higher power. When
+- [05:19.600] governments can take away your religious
+- [05:21.919] liberty, they're putting their hand in
+- [05:24.080] your heart and taking everything you
+- [05:26.080] believe in. And if governments can do
+- [05:28.400] that, then they become God. The
+- [05:31.919] president spoke earlier today of the
+- [05:33.440] communist threat in this country. We
+- [05:35.360] know what communists do around the
+- [05:37.120] world. They remove God. They close the
+- [05:40.479] churches. They punish the believers. And
+- [05:44.240] so this is so important at this point in
+- [05:46.880] time in history. And we didn't know
+- [05:49.039] about this communist movement a year ago
+- [05:51.360] when we were here. But this is the
+- [05:53.280] perfect time to stand up and say to
+- [05:56.880] America, you have been given this great
+- [05:59.039] inheritance and you deserve to have
+- [06:00.960] religious liberty. The key is that after
+- [06:06.800] 103 witnesses, after seven months of
+- [06:09.600] testimony, after 200 pages of testimony
+- [06:12.479] that we're delivering today, we found
+- [06:14.880] there was one constant theme. The
+- [06:17.840] overwhelming majority of our witnesses
+- [06:21.520] said that they were attacked
+- [06:24.000] and punished.
+- [06:25.840] And what was used against them was one
+- [06:28.160] phrase that's not in the Constitution.
+- [06:30.800] And that phrase is separation of church
+- [06:32.560] and state. The left has used that one
+- [06:36.000] phrase that was one line out of one of
+- [06:38.960] hundreds of letters by Thomas Jefferson
+- [06:41.440] to batter and hammer people of faith for
+- [06:44.560] the last 70 to 80 years. And this report
+- [06:47.360] will speak very clearly that we want to
+- [06:50.639] be sure Americans understand that they
+- [06:53.280] cannot be attacked by that phrase any
+- [06:55.440] longer. So we have 12 recommendations.
+- [06:58.400] I'll read the first six. uh my great
+- [07:01.280] vice chairman will read the next six and
+- [07:03.199] then members will speak to these issues.
+- [07:05.759] So Mr. President,
+- [07:08.000] recommendation number one, instruct the
+- [07:11.440] Department of Justice to issue guidance
+- [07:13.919] clarifying the proper understanding of
+- [07:16.319] the establishment clause and the
+- [07:17.840] separation of church and state. Number
+- [07:20.080] two, the Department of Justice, the
+- [07:22.080] Department of Health and Human Services,
+- [07:23.919] the Equal Employment Opportunity
+- [07:25.440] Commission shall issue know your rights
+- [07:28.160] posters for students, parents, public
+- [07:30.160] teachers, administrators, religious
+- [07:32.400] leaders, religious institution,
+- [07:34.400] healthcare workers, and military service
+- [07:37.360] members. Um,
+- [07:40.240] Carson, I'll let you finish with the
+- [07:42.000] remaining seven,
+- [07:44.080] >> six,
+- [07:44.720] >> six. Go ahead.
+- [07:46.319] Combat anti-semitism
+- [07:48.960] through enforcement of civil rights
+- [07:50.960] laws, litigation of credible allegations
+- [07:54.960] of anti-semitic discrimination and
+- [07:57.280] violence, and civic education.
+- [08:00.400] Protect religious Americans from
+- [08:02.879] government-led
+- [08:04.400] litigation targeting their free
+- [08:06.960] exercise. Repeal the Johnson amendment.
+- [08:10.720] Order the Department of War to
+- [08:12.400] streamline and improve the religious
+- [08:14.319] accommodation process. Continue efforts
+- [08:17.599] to restore the retirement or
+- [08:20.639] reinlistment eligibility of service
+- [08:22.879] members who lost employment, health
+- [08:25.280] insurance, pensions, and other benefits
+- [08:27.360] because of their religious beliefs about
+- [08:30.000] COVID and vaccines.
+- [08:32.719] And lastly,
+- [08:36.159] honored the courage of religious liberty
+- [08:39.039] heroes through creating a presidential
+- [08:42.000] medal of religious liberty and first
+- [08:45.120] freedom hero awards to recognize
+- [08:47.519] Americans who stand up for religious
+- [08:49.360] freedom and play an indispensable role
+- [08:52.080] in protecting citizens constitutional
+- [08:54.480] rights. And Mr. President, we just want
+- [08:56.880] to thank you uh first of all for
+- [08:59.760] appointing us to this commission.
+- [09:01.920] And secondly, for your steadfast
+- [09:04.880] dedication to religious liberty. I don't
+- [09:07.839] think anybody has done as much as you
+- [09:10.080] have. Maybe not everybody else put
+- [09:11.839] together. And some people in the
+- [09:14.080] beginning thought it was just fake. It
+- [09:16.240] was just politics. But you've been
+- [09:18.480] steadfast throughout the whole thing.
+- [09:20.959] And it's a big part of America. Our
+- [09:23.680] founding document says that our rights
+- [09:26.000] come from our creator and not from
+- [09:28.320] government. And people who try to
+- [09:30.640] divorce us from that heritage, do they
+- [09:33.920] realize that that's in our final
+- [09:35.839] document? Do they realize that our
+- [09:37.360] pledge of allegiance says we are one
+- [09:38.800] nation under God? Do they realize that
+- [09:41.360] many courtrooms in the land on the wall
+- [09:43.120] that says in God we trust? That every
+- [09:44.959] coin in their pocket, every bill in
+- [09:46.399] their wallet says in God we trust. So if
+- [09:48.800] it's in all those places, but we're not
+- [09:51.120] supposed to talk about it, maybe we need
+- [09:53.200] to see a psychiatrist.
+- [09:56.560] >> Thank you. Other members,
+- [09:59.519] >> would anybody like to say anything?
+- [10:02.000] >> Dr. Phil.
+- [10:03.680] >> Mr. President, I I want to underline
+- [10:05.839] that this wasn't a performative uh
+- [10:08.640] commission. I I I remember walking in
+- [10:11.760] there, the attorney general's there. I
+- [10:13.279] walk in the next one, the president of
+- [10:14.720] the United States is there seeing what's
+- [10:16.640] going on with the commission. And what
+- [10:19.120] stuck out at me for me uh is how many
+- [10:23.680] Americans showed up saying that they
+- [10:25.519] were persecuted in healthc care,
+- [10:28.800] military, education, uh different walks
+- [10:32.160] of life uh for living their faith and
+- [10:35.519] standing up for their faith. It's not
+- [10:37.120] just the liberty to choose which house
+- [10:39.920] of worship they they want. It's actually
+- [10:42.800] getting into their daily life and
+- [10:44.640] they're being persecuted in in their
+- [10:46.800] jobs, in their in their professions, and
+- [10:50.399] that's where the the fight for liberty
+- [10:52.720] is actually showing up and and they're
+- [10:56.079] having the courage to come and talk
+- [10:57.680] about that. They can't show a cross on
+- [11:00.160] their desk at school. Uh they they can't
+- [11:03.680] refuse a vaccine because it's against
+- [11:06.560] their religion. And and they're having
+- [11:08.640] the courage to stand up for that. and
+- [11:10.320] President Trump is backing them all the
+- [11:12.800] way and this commission is making all
+- [11:16.560] transparent and I I'm just very honored
+- [11:19.839] to have been part of that.
+- [11:21.120] >> Thank you very much, Phil. Appreciate
+- [11:22.880] your support. You're a great great
+- [11:24.320] gentleman. Thank you. Anybody?
+- [11:27.200] >> Yep. Yep. Mr. President, just um thank
+- [11:29.600] you for creating this commission. Um you
+- [11:31.920] as we celebrate the 250th, we're
+- [11:33.920] reminded that we're created equal. We
+- [11:36.000] were endowed by our creator with
+- [11:37.279] inalienable rights that the right to
+- [11:39.360] religious freedom for the founders
+- [11:41.120] because of duties to the creator. What
+- [11:43.440] we heard over and over during our
+- [11:45.040] commission hearings were people who
+- [11:46.399] thought that the creator should be
+- [11:47.839] banished from the public square. That
+- [11:50.000] the establishment clause meant that
+- [11:51.440] religion had to be kept in a closet. We
+- [11:53.600] saw over and over again students being
+- [11:55.519] told they can form a club but not if
+- [11:57.440] it's a religious club. They can speak at
+- [11:59.360] commencement but not if they mention
+- [12:00.959] God. Parents can get vouchers but not if
+- [12:03.440] they use it at a religious school. over
+- [12:05.120] and over again double standards where
+- [12:07.279] religious Americans were victimized. And
+- [12:09.680] then we saw unjust ideologies,
+- [12:11.760] particularly trans ideology, where
+- [12:14.240] parents were told, "We're going to
+- [12:15.279] secretly transition your kids." Medical
+- [12:17.360] doctors were told, "If you blow the
+- [12:18.560] whistle on this, we're going to harass
+- [12:19.839] you." Over and over again. Um the
+- [12:22.560] recommendation that I really want to
+- [12:23.839] encourage you to um um make prominent is
+- [12:26.399] the last one that Dr. Carson read. Who a
+- [12:28.880] community celebrates shows what a
+- [12:30.959] community values and we should be
+- [12:32.800] celebrating the heroes of religious
+- [12:34.560] liberty. Over and over again we saw men
+- [12:36.880] and women who were victimized and then
+- [12:38.720] they fought back and they won and we
+- [12:41.120] should celebrate those heroes.
+- [12:42.560] >> Thank you very much.
+- [12:44.399] >> Thank you, Mr. President. Let's just add
+- [12:46.959] first how grateful I am for the
+- [12:48.399] privilege of serving on this commission
+- [12:50.720] and uh for being given the opportunity
+- [12:52.959] to work for the religious liberty of all
+- [12:55.760] Americans. Uh Dr. Carson as part of the
+- [12:58.240] recommendations of this commission
+- [12:59.440] mentioned uh fighting against
+- [13:01.440] anti-semitis and fighting against you
+- [13:03.120] hatred and of course your administration
+- [13:05.519] has been so so incredible in the way
+- [13:09.040] that it's worked uh on this issue. I'll
+- [13:11.760] be heading back now for Shabbat uh to
+- [13:14.560] New York. As you know, Jewish community
+- [13:16.720] there faces a lot of threats and it's a
+- [13:19.600] scary time uh in New York right now.
+- [13:22.000] >> Serious threats,
+- [13:22.800] >> very serious threats as you mentioned in
+- [13:24.320] your speech today. And uh I for one am
+- [13:27.920] profoundly grateful for your leadership
+- [13:29.519] on this matter and the incredible
+- [13:31.760] leadership of the justice department on
+- [13:33.279] this matter and of the entire
+- [13:34.800] administration. Thank you very
+- [13:36.399] >> very much. Thank you very much. I
+- [13:37.600] appreciate it. This is the report that
+- [13:40.079] was just presented to me by the group.
+- [13:43.519] Beautiful. And you'll all get a copy of
+- [13:45.680] this during the day and uh you'll see
+- [13:49.200] it's it's quite a report. a lot of very
+- [13:53.920] important things in this report having
+- [13:56.079] to do with religion and actually some
+- [13:58.639] other topics also
+- [14:01.360] >> it's very important you want to speak
+- [14:03.680] for Bishop
+- [14:04.560] >> I want to say thank you President Trump
+- [14:06.320] you are the greatest champion of faith
+- [14:08.320] and these were not just superficial
+- [14:10.880] woundings that we heard against people
+- [14:12.880] of faith they were egregious acts that
+- [14:15.199] were very difficult to even listen to
+- [14:17.440] that you would think would happen in a
+- [14:19.120] country like ours but they did to force
+- [14:21.120] four-year-old, six-year-old, little
+- [14:23.120] children to moms, dads, communities, the
+- [14:26.480] rejection, the pain, the trauma that was
+- [14:29.120] caused simply because of faith. And it
+- [14:31.519] is just inconceivable that no one has
+- [14:34.639] stood up like you have stood up to fight
+- [14:36.880] for faith, which gives us meaning and
+- [14:39.680] purpose and hope and an ability to
+- [14:43.199] continue to be our better selves. So,
+- [14:46.079] thank you for honoring people of faith
+- [14:48.160] and being the greatest champion with
+- [14:50.079] this religious commission, with two DOJ
+- [14:52.639] task force, with the historical White
+- [14:55.199] House faith office and all the many
+- [14:57.440] other things you've done. We could sit
+- [14:59.120] here and list this all day, but your
+- [15:02.000] history will go down as the greatest
+- [15:04.480] history of a president of all for people
+- [15:06.399] of all faiths and we're grateful.
+- [15:08.160] >> Thank you, Paul.
+- [15:08.800] >> Yes, sir.
+- [15:09.360] >> Thank you very much.
+- [15:10.639] >> Mr. President, I'm very grateful too as
+- [15:12.079] well. Uh the commission was a wonderful
+- [15:14.240] year. I enjoyed the meetings very much
+- [15:15.519] and the witnesses were very impressive
+- [15:17.600] people that we heard. I'm struck as I
+- [15:19.279] stand in this historic place looking
+- [15:20.880] over at the portrait of James Madison.
+- [15:22.880] We spent a lot of time talking about the
+- [15:24.399] First Amendment. No one in this
+- [15:26.320] commission wants an established
+- [15:27.519] religion, but we all want the free
+- [15:29.440] exercise of religion. We sense that
+- [15:31.519] being limited in different ways. I think
+- [15:33.360] we also sense that behind a lot of the
+- [15:35.360] particular offenses, there was this
+- [15:37.279] great battle, you might say, with what I
+- [15:38.880] call the culture of self-invention. That
+- [15:41.040] my freedom determines value. I invent
+- [15:43.519] who I am. I determine what's good. And
+- [15:45.760] the avatars of that culture realize that
+- [15:47.760] the religious people stand to thwart
+- [15:49.360] that view. We think there are objective
+- [15:51.120] goods, moral goods, spiritual goods that
+- [15:53.279] we ought to align our freedom with. And
+- [15:55.279] I think that came through a lot in the
+- [15:57.279] witness testimony. But it was a
+- [15:59.120] wonderful experience and I think this
+- [16:00.240] commission accomplished a lot. So God
+- [16:02.160] bless you for uh drawing into existence.
+- [16:04.880] >> Thank you very much. Great. Vince, you
+- [16:06.480] want to say something?
+- [16:07.519] >> Uh yes, sir. Our founders know and wrote
+- [16:10.399] that no government has the right to
+- [16:11.839] become between the citizen and her
+- [16:13.600] relationship with God. It's one of the
+- [16:15.440] most powerful forces uh in in life uh in
+- [16:18.720] anybody's life. Um I'd say two things
+- [16:20.959] about this report. One, it's a body of
+- [16:23.040] evidence. We took testimony. So people
+- [16:25.279] can judge for themselves what people
+- [16:27.040] said in this report. It's body of
+- [16:28.639] evidence. And to violate religious
+- [16:31.519] liberty is self-destructive in in two
+- [16:33.920] ways. One, religious people, religious
+- [16:36.399] organizations provide so much fruit for
+- [16:38.320] society, whether it's education,
+- [16:40.480] healthcare to to violate the beliefs of
+- [16:43.120] those organizations and the people that
+- [16:44.560] work there would be undermining uh for
+- [16:47.440] all citizens and u the type of value
+- [16:49.839] they get from that. And secondly, the
+- [16:51.600] people that defend our freedom at large
+- [16:53.839] are often religious people because they
+- [16:55.600] get a power from above. And so if you go
+- [16:58.079] after religious people, you're actually
+- [16:59.920] undermounting undermining the very
+- [17:01.680] foundations of a freedom and those who
+- [17:03.199] will protect in this country.
+- [17:04.400] >> But it doesn't it doesn't stop them.
+- [17:06.559] >> No, they make it worse.
+- [17:09.360] >> But we have a great defender right here.
+- [17:10.959] Todd, go ahead. You're the one.
+- [17:13.280] >> I'm ready. I mean, the most important
+- [17:15.360] part of what we did today, Mr.
+- [17:16.959] President, after a lot of hard work is
+- [17:19.439] what you just heard Dr. Carson and
+- [17:21.280] Lieutenant Governor talk about, which is
+- [17:22.640] the work we have left to do. So we're
+- [17:24.480] not here saying, you know, we're done.
+- [17:26.559] We're here saying there's a lot of work
+- [17:27.919] left to do. I'm excited to to do my
+- [17:31.039] part. The Department of Justice, I know
+- [17:32.480] that the White House, we're going to do
+- [17:33.840] our part together. And so, everybody
+- [17:36.240] that all the work that was done over the
+- [17:38.320] past 8 months sets us up for the next uh
+- [17:41.200] the next several years to to make sure
+- [17:43.360] that we we don't drop this and this
+- [17:45.440] stays as important as it should be. So,
+- [17:47.200] thank you, Mr. President.
+- [17:48.240] >> Thank you, John. Great job.
+- [17:49.440] >> Mr. President, could I just say one last
+- [17:50.880] thing?
+- [17:51.120] >> Yes, please.
+- [17:52.400] On the issue of church and state, that
+- [17:55.520] was used as a hammer against almost all
+- [17:57.440] of our witnesses. One of the important
+- [17:59.520] recommendations that we made, if that
+- [18:01.679] happens in the future, if any superior
+- [18:04.400] person in the military, a superintendent
+- [18:06.160] of the school district, someone in the
+- [18:07.520] health care system, whoever uses that
+- [18:09.919] against someone who is simply standing
+- [18:11.600] up for their religious liberty or simply
+- [18:13.200] praying in public, that within a short
+- [18:16.799] amount of time, if they allege
+- [18:19.360] separation of church and state, that
+- [18:20.960] public official must in writing explain
+- [18:24.880] how that person has violated the
+- [18:27.039] Constitution. Because again, the
+- [18:30.000] separation of church and state is not in
+- [18:31.840] the constitution. And from this day
+- [18:34.080] forward, if anyone says that to you and
+- [18:37.120] they're in public office or serve in any
+- [18:39.520] agency in any official capacity, they
+- [18:41.760] have to point out exactly where you have
+- [18:44.880] violated the Constitution because you
+- [18:46.640] have not. And from this day forward,
+- [18:49.600] that phrase should have no power over
+- [18:52.320] people of all faiths ever again in
+- [18:54.559] America.
+- [18:55.520] >> Thank you.
+- [18:56.799] Okay, how about a couple of quick
+- [18:58.960] questions on Iran? On Iran, Mr.
+- [19:01.039] President, we you said that Iran
+- [19:02.559] violated the ceasefire. Will they face
+- [19:04.880] any consequences?
+- [19:05.840] >> Well, you'll find out.
+- [19:07.760] >> Do you consider the ceasefire to still
+- [19:09.360] be in place?
+- [19:10.240] >> I don't like the fact that they took a
+- [19:12.640] shot yesterday, actually four. We
+- [19:14.559] knocked down three uh at a ship. Uh not
+- [19:19.280] an Allied ship, but a ship, a very
+- [19:21.440] expensive ship. And uh it was fine but
+- [19:25.280] it took a little beating. They shouldn't
+- [19:27.600] be doing that. So you'll find out.
+- [19:29.200] >> Will the US
+- [19:29.760] >> I mean you'll find out.
+- [19:30.480] >> Will the US respond? What is your
+- [19:31.679] message to
+- [19:32.240] >> Will I respond? You're going to find
+- [19:33.440] out.
+- [19:33.919] >> Sir, why do you think they did that if
+- [19:35.440] the talks you you've said repeatedly
+- [19:37.120] they're going well? What do you think
+- [19:38.160] the motivation is ship?
+- [19:40.559] >> They're a little bit different. That's
+- [19:42.640] why I think of it. 47 years no president
+- [19:45.280] did what we're doing. Uh so you just
+- [19:49.280] asked a question, you'll find out. Okay.
+- [19:51.600] Uh, I think we had enough. This is so
+- [19:53.440] important. I want to have it stand on
+- [19:54.960] its own. Uh, these people are incredible
+- [19:57.679] patriots. They're people of great
+- [19:59.760] respect and and religion. They're among
+- [20:02.400] the most respected people in our
+- [20:03.919] country. And I just want to thank Dan
+- [20:05.440] and Ben and Todd and Vince and everybody
+- [20:08.720] for Paul. Always Paul because she's been
+- [20:10.960] here from the beginning. We have a White
+- [20:12.799] House office now on faith. Nobody
+- [20:15.520] thought that was going to happen. Never
+- [20:16.720] happened before. How will the finance
+- [20:19.200] how will the findings of this commission
+- [20:20.720] change how the government operates going
+- [20:22.559] forward?
+- [20:23.039] >> Well, we're going to sell it. We're
+- [20:24.240] going to sell some of the things that we
+- [20:25.760] have. We have some incredible
+- [20:27.120] recommendations, but a recommendation
+- [20:29.600] doesn't mean anything. This group can
+- [20:31.120] sell and uh that's what we're going to
+- [20:33.200] be doing. We're going to bring religion
+- [20:35.440] back even stronger. You know, religion's
+- [20:37.120] made it. It's been a tremendous
+- [20:38.720] resurgence in our country. I I have not
+- [20:40.880] seen anything like it. I hate to joke,
+- [20:43.360] but if this were a stock, you'd be very
+- [20:45.120] rich because it has gone up like a
+- [20:47.120] rocket ship over the last year, year and
+- [20:49.039] a half. And I'm very honored to be
+- [20:51.280] sitting here. Maybe had something to do
+- [20:52.799] with it. But they've made some very
+- [20:54.960] strong recommendations and now we have
+- [20:56.799] to uh convince people to adhere by those
+- [21:00.159] regulations. Thank you very much
+- [21:01.840] everybody.
+- [21:02.559] >> Thank you. Thank you guys. Thank you.
+- [21:05.360] Press. Thank you guys. Thank you guys.
+- [21:07.760] Thank you. Thank you press. Keep moving
+- [21:09.679] please. Thank you press. Thank you guys.
+- [21:11.760] Keep moving please. Thank you.

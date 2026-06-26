@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 19
+- Posts: 22
 
+- [20:54 UTC - The U.S.A.’s New Passport, which says, “Welcome, but be good!” President DJT](116818397307589675/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116818397307589675
+  - The U.S.A.’s New Passport, which says, “Welcome, but be good!” President DJT
+- [20:43 UTC - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY Preside...](116818353041386106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116818353041386106
+  - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY President to win ALL 77 Counties in three straight Elections. Additionally, I won more votes than...
+- [20:13 UTC - The new Donald Trump Avenue in Hyderabad, India — The first U.S. President to ever be hono...](116818236347869022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116818236347869022
+  - The new Donald Trump Avenue in Hyderabad, India — The first U.S. President to ever be honored in this way. Thank you! President DONALD J. TRUMP
 - [19:20 UTC - Good Morning from the Pool!](116818025512975700/)
   - Source: https://truthsocial.com/@realDonaldTrump/116818025512975700
   - Good Morning from the Pool!

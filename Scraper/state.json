@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=dikuG6dEQNs: NoTranscriptFound: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=dikuG6dEQNs! This is most likely caused by:\n\nNo transcripts were found for any of the requested language codes: ['en', 'en-US']\n\nFor this video (dikuG6dEQNs) transcripts are available in the following languages:\n\n(MANUALLY CREATED)\n - und (\"root\")\n\n(GENERATED)\nNone\n\n(TRANSLATION LANGUAGES)\nNone\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -118782,6 +118781,39 @@
       "title": "Good Morning from the Pool!",
       "url": "https://truthsocial.com/@realDonaldTrump/116818025512975700"
     },
+    "truthsocial:realdonaldtrump:116818236347869022": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T21:07:45.580045+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116818236347869022",
+      "platform": "truthsocial",
+      "post_id": "116818236347869022",
+      "published": "2026-06-26T20:13:47.150000+00:00",
+      "title": "The new Donald Trump Avenue in Hyderabad, India \u2014 The first U.S. President to ever be hono...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116818236347869022"
+    },
+    "truthsocial:realdonaldtrump:116818353041386106": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T21:07:45.579726+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116818353041386106",
+      "platform": "truthsocial",
+      "post_id": "116818353041386106",
+      "published": "2026-06-26T20:43:27.722000+00:00",
+      "title": "MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY Preside...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116818353041386106"
+    },
+    "truthsocial:realdonaldtrump:116818397307589675": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T21:07:45.578796+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116818397307589675",
+      "platform": "truthsocial",
+      "post_id": "116818397307589675",
+      "published": "2026-06-26T20:54:43.200000+00:00",
+      "title": "The U.S.A.\u2019s New Passport, which says, \u201cWelcome, but be good!\u201d President DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116818397307589675"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -161968,6 +162000,17 @@
       "title": "Fostering the Future Together Global Summit - March 24-25, 2026",
       "url": "https://www.youtube.com/watch?v=8_svfbA_UXE"
     },
+    "youtube:whitehouse:8bdy3uchN50": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T21:08:03.685754+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/26/8bdy3uchN50",
+      "platform": "youtube",
+      "post_id": "8bdy3uchN50",
+      "published": "2026-06-26T19:42:23+00:00",
+      "title": "President Trump Hosts Farmers at the Rose Garden",
+      "url": "https://www.youtube.com/watch?v=8bdy3uchN50"
+    },
     "youtube:whitehouse:8btZeOYp5QM": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -167952,6 +167995,17 @@
       "title": "President Trump in Memphis for the Memphis Safe Task Force Roundtable",
       "url": "https://www.youtube.com/watch?v=Skox4mPCPQw"
     },
+    "youtube:whitehouse:Sn3oYUiMboo": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T21:08:02.414198+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/26/Sn3oYUiMboo",
+      "platform": "youtube",
+      "post_id": "Sn3oYUiMboo",
+      "published": "2026-06-26T19:59:07+00:00",
+      "title": "President Trump Receives Presentation of the Religious Liberty Commission Report",
+      "url": "https://www.youtube.com/watch?v=Sn3oYUiMboo"
+    },
     "youtube:whitehouse:Spcmn-TZrw0": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -171417,6 +171471,17 @@
       "title": "D.C. Residents Speak on Crime",
       "url": "https://www.youtube.com/watch?v=dfF3sA1UHc0"
     },
+    "youtube:whitehouse:dikuG6dEQNs": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T21:08:06.503693+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/26/dikuG6dEQNs",
+      "platform": "youtube",
+      "post_id": "dikuG6dEQNs",
+      "published": "2026-06-26T18:48:25+00:00",
+      "title": "President Trump Delivers Remarks at the Faith & Freedom Coalition's 2026 Policy Conference",
+      "url": "https://www.youtube.com/watch?v=dikuG6dEQNs"
+    },
     "youtube:whitehouse:djmN71XxAbg": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -174628,6 +174693,17 @@
       "published": "2025-12-08T15:24:17+00:00",
       "title": "Road to Liberty: Battles of the South",
       "url": "https://www.youtube.com/watch?v=oAj3sfiX-J4"
+    },
+    "youtube:whitehouse:oHnU6sOLcU0": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T21:08:05.200489+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/26/oHnU6sOLcU0",
+      "platform": "youtube",
+      "post_id": "oHnU6sOLcU0",
+      "published": "2026-06-26T19:35:22+00:00",
+      "title": "\"American greatness has been forged by people of faith.\" \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.youtube.com/shorts/oHnU6sOLcU0"
     },
     "youtube:whitehouse:oKdF8m8Z9TY": {
       "account": "WhiteHouse",

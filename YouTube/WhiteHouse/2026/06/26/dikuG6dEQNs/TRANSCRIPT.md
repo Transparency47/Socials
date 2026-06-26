@@ -1,0 +1,1315 @@
+<!-- source: https://www.youtube.com/watch?v=dikuG6dEQNs -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dikuG6dEQNs -->
+<!-- date_published: 2026-06-26T18:48:25+00:00 -->
+<!-- date_accessed: 2026-06-26T21:08:06.503693+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at the Faith & Freedom Coalition's 2026 Policy Conference
+
+- [00:04.960] Ladies and gentlemen, please welcome
+- [00:07.520] back to the stage Ralph Reed.
+- [00:18.080] Are you guys ready?
+- [00:23.840] >> I know he's ready,
+- [00:27.119] but I'm going to give him a proper
+- [00:28.720] introduction.
+- [00:30.800] Because this man, our next speaker, is
+- [00:33.120] no stranger to this conference or this
+- [00:35.680] stage. In fact, today marks his 10th
+- [00:39.760] appearance at the Faith and Freedom Road
+- [00:42.399] to majority conference.
+- [00:45.840] He has been here as a private citizen,
+- [00:49.039] as a candidate,
+- [00:51.280] and we are pleased to welcome him back
+- [00:54.160] today as president of the United States.
+- [00:59.680] with the seal back on the podium where
+- [01:02.000] it belongs. Amen.
+- [01:04.799] >> This is a man who alone
+- [01:08.560] among all the leaders that we have had
+- [01:11.840] gave us the most conservative Supreme
+- [01:14.240] Court in over a century.
+- [01:17.920] This is a man
+- [01:20.640] who after decades of incompetence
+- [01:23.920] and criminal negligence gave us the most
+- [01:26.720] secure border the United States has ever
+- [01:30.000] had.
+- [01:33.680] He signed the largest tax cut in history
+- [01:38.079] that is fueling the greatest economy the
+- [01:40.640] world has ever seen.
+- [01:42.799] He moved the US embassy from Tel Aviv to
+- [01:45.680] Jerusalem. and he gave us
+- [01:48.799] the closest relationship and
+- [01:51.200] collaboration with our ally Israel that
+- [01:53.840] the nation has ever known. And he alone
+- [01:58.960] had the courage and the moral clarity to
+- [02:02.399] order and direct military action against
+- [02:05.200] Iran to make sure it will never have a
+- [02:08.479] nuclear weapon.
+- [02:12.560] They impeached him. They indicted him.
+- [02:16.239] They tried to imprison him. They tried
+- [02:18.959] to knock him off the ballot.
+- [02:21.680] And then they tried to kill him. And it
+- [02:24.879] all failed because God has a purpose for
+- [02:28.720] this man.
+- [02:31.280] And it is to save our nation.
+- [02:34.879] Please welcome back to this stage the
+- [02:38.720] 45th and the 47th president of the
+- [02:41.920] United States, Donald J. Trump
+- [02:54.000] forget the men who died, who gave that
+- [02:57.920] to me. And I gladly stand
+- [03:01.680] next to you and defeat her still today.
+- [03:06.239] Cuz there ain't no doubt I love this
+- [03:09.040] land.
+- [03:11.280] God bless the USA.
+- [03:21.440] From
+- [03:26.560] the lakes of Minnesota
+- [03:29.599] to the hills of Tennessee,
+- [03:33.280] across the plains of Texas, from sea to
+- [03:37.360] shining sea,
+- [03:39.760] from Detroit down to Houston
+- [03:43.200] and New York to LA,
+- [03:46.159] where there's pride in every American
+- [03:49.040] heart, and it's time we and say
+- [03:56.159] that I'm proud to be an American where
+- [03:59.920] at least I know I'm free. And I won't
+- [04:04.000] forget the men who died, who gave that
+- [04:07.519] right to me. And I gladly stand up next
+- [04:11.920] to you and defend her still today.
+- [04:16.160] Cuz there ain't no doubt I love this
+- [04:18.959] land.
+- [04:21.199] God bless the USA.
+- [04:29.680] And I'm proud to be an American where at
+- [04:33.600] least I know I'm free. And I won't
+- [04:37.759] forget the men who died, who gave that
+- [04:41.360] right to me. And I gladly stand up.
+- [04:46.639] next to you and defend her still today
+- [04:51.199] cuz there ain't no doubt I love this
+- [04:54.160] land.
+- [04:56.560] God bless
+- [04:58.639] you.
+- [05:17.600] USA.
+- [05:22.160] >> Thank you. Thank you very much. And I
+- [05:25.759] want to thank Ralph for the
+- [05:27.360] introduction. He's a great guy and
+- [05:29.199] friend of mine for a long time. And
+- [05:30.800] thank you to all of the true American
+- [05:33.280] patriots of Faith and Freedom Coalition.
+- [05:35.680] You've been with me from the beginning
+- [05:38.080] and uh pretty much like nobody nobody
+- [05:41.039] else uh I don't think can top you. You
+- [05:43.680] you were just great right from the
+- [05:45.600] beginning. You got it. You understood
+- [05:47.600] what we had to do and we got it done and
+- [05:49.520] we're continuing to get it done at
+- [05:51.840] levels that nobody's seen before. With
+- [05:54.720] the help of many people in this room 18
+- [05:56.720] months ago, we won the most
+- [05:58.160] consequential election victory in
+- [06:00.000] American history.
+- [06:04.080] winning all seven swing states, the
+- [06:06.160] electoral college by 312 to 226, the
+- [06:10.639] popular vote in 86% of all counties in
+- [06:13.600] America 2,700 to 525. That's called a
+- [06:19.360] big victory. The Faith and Freedom
+- [06:22.160] Coalition was with us every step of the
+- [06:24.960] way. You knocked on 97 million doors.
+- [06:28.400] It's true. Ralph actually told me 10
+- [06:31.120] million, so I had checked. Who's n 9.7
+- [06:34.479] million? You reached 18 million voters.
+- [06:38.560] Think of that. Voters of faith. You sent
+- [06:41.199] 28 million text messages and made 10
+- [06:43.520] million phone calls to help us win a
+- [06:46.800] mandate like no other administration in
+- [06:49.039] modern history. It was a mandate like we
+- [06:51.199] have not seen before. And together we
+- [06:53.759] saved our country and we saved religious
+- [06:56.240] freedom in America. We really we saved
+- [06:58.240] religious. It was going down.
+- [07:01.360] and you've always stood with me and I
+- [07:03.280] will always stand with you. I'll always
+- [07:04.800] remember it. I'll always remember how
+- [07:06.400] hard you worked and your spirit. I
+- [07:09.280] especially want to thank Pastor Paula
+- [07:11.120] White who's with us. Paula, wherever you
+- [07:12.800] may be.
+- [07:14.800] Thank you, Paula. Great person. Director
+- [07:17.919] of the White House Faith Office, Jenny
+- [07:20.080] Korn. Terrific,
+- [07:22.319] Jenny. Thank you very much.
+- [07:26.080] Bishop Kevin Cobberis. Where is Kevin?
+- [07:30.319] Thank you, Kevin. Good job. Nice looking
+- [07:33.120] man. President of the National Hispanic
+- [07:36.319] Christian Leadership Conference, Pastor
+- [07:38.160] Sam Rodriguez, who's been with me from
+- [07:40.400] the beginning.
+- [07:45.120] This place is crowded.
+- [07:52.720] I remember this place not so long ago. I
+- [07:56.960] hopefully uh we'll have a little more
+- [07:59.280] pleasant we're going to have a little
+- [08:00.960] more pleasant experience. I remember
+- [08:02.720] this room very well. A friend of mine
+- [08:05.759] who has been just incredible. Dr. Alva
+- [08:08.720] King. Doctor.
+- [08:11.199] Doctor. Thank you. Thank you, darling.
+- [08:13.440] She's been with me also from the
+- [08:15.840] beginning. So many from the beginning.
+- [08:18.080] You can tell so much. The ones from the
+- [08:20.080] beginning. I don't know. They tend to be
+- [08:21.680] the ones. They're the ones they stay and
+- [08:24.639] they stay like nobody. And we appreciate
+- [08:26.720] all of those people. An ambassador to
+- [08:29.120] the United Nations who's doing a really
+- [08:31.120] great job. Mike Waltz. He's around here
+- [08:32.959] someplace.
+- [08:34.800] Mike doing a really good job. And just
+- [08:37.919] over one week from now, we will
+- [08:39.599] celebrate the 250th anniversary of the
+- [08:42.479] Declaration of Independence,
+- [08:45.200] marking two and a half centuries of
+- [08:47.040] glorious American freedom. And thanks to
+- [08:50.320] the extraordinary work and incredible
+- [08:52.160] devotion of patriots like those people
+- [08:55.360] in this very very crowded ballroom,
+- [08:58.160] today I can proudly report that on the
+- [09:01.120] edge of our 250th year, America is back.
+- [09:05.360] It's back.
+- [09:07.200] It's back.
+- [09:09.200] I believe better than ever before.
+- [09:12.480] And I'm especially pleased to say that
+- [09:15.120] likewise, religion is back in our
+- [09:17.200] country, bigger and stronger than it has
+- [09:20.480] been in many, many years. Been reading
+- [09:23.040] all of those reports. Religion's really,
+- [09:25.519] it's going up. If that were a stock,
+- [09:28.640] we'd be very, very rich, all of us. It's
+- [09:31.760] been great to watch. And as I've said
+- [09:33.920] before, to be a great nation, you have
+- [09:35.760] to have religion and you have to have
+- [09:37.279] God in your nation. And if you don't
+- [09:39.040] have that, it just doesn't seem to work
+- [09:41.120] out, does it? And we have it. We have
+- [09:43.360] religion and we have God now. Remember
+- [09:45.680] when I first started 2016, they wanted
+- [09:48.160] to take the Christmas out of Christmas.
+- [09:50.480] Remember that? We ended that little
+- [09:52.959] drive. But we ended a lot of other
+- [09:55.200] drives, too. From the very beginning of
+- [09:57.040] our country, American greatness has been
+- [09:59.760] forged by people of faith. And the very
+- [10:02.080] first settlers who set foot upon this
+- [10:04.399] new world at Jamestown got off their
+- [10:06.720] ship, raised up a cross and bowed down
+- [10:09.600] to the Lord in prayer. It was faith that
+- [10:12.959] strengthened the minute men and who
+- [10:15.680] stood up at Lexington Green and Concord
+- [10:18.079] Bridge in Philadelphia 250 years ago.
+- [10:21.519] Next week, our founders invoked the
+- [10:24.160] creator four times in the Declaration of
+- [10:26.640] Independence. Four times. I wasn't
+- [10:29.200] mentioned once. I'm very upset.
+- [10:32.160] Not once. Faith pushed the pioneers to
+- [10:36.240] journey west. Faith led Americans to
+- [10:38.880] abolish slavery. And faith built this
+- [10:41.360] country into the most exceptional nation
+- [10:43.360] in the history of the world. It was
+- [10:45.680] going very badly couple of years ago.
+- [10:48.800] Very badly. But it's back really strong.
+- [10:52.079] But we have to be very careful because
+- [10:53.680] bad things are happening. Can I watch
+- [10:55.600] what's happening? And we're going to be
+- [10:57.519] discussing that in just a minute.
+- [10:59.279] Americans have always deeply believed in
+- [11:02.000] the promise of Christ's words in the
+- [11:04.160] Gospel of Matthew. With God, all things
+- [11:08.079] are possible. With God, all things are
+- [11:10.560] possible. Right?
+- [11:14.560] All things. That's why as we prepared to
+- [11:17.920] enter the 250th year last month, tens of
+- [11:21.600] thousands of patriots came together on
+- [11:23.680] our National Mall and we officially
+- [11:26.320] rededicated America as one nation under
+- [11:30.240] God. And we're not changing. We're not
+- [11:33.040] changing.
+- [11:35.360] And we always have been and we always
+- [11:37.200] will be. We're not going to let him take
+- [11:38.560] it away. But as we celebrate this
+- [11:41.040] anniversary, we must also remember that
+- [11:43.600] our country could have been marking this
+- [11:46.160] occasion under very different
+- [11:48.399] circumstances.
+- [11:49.920] The last administration carried out a
+- [11:52.160] reign of persecution and repression
+- [11:54.240] against Christians and people of faith
+- [11:56.160] like America has never seen before. It's
+- [11:58.720] terrible. They turned a nation founded
+- [12:01.600] on freedom for believers into a place
+- [12:04.480] where Catholics were targeted by the
+- [12:06.480] FBI, where pro-life grandmothers were
+- [12:09.279] put in jail for praying, and where
+- [12:11.839] members of our military were thrown out
+- [12:13.680] of the armed forces for their religious
+- [12:15.839] beliefs. The radicals responsible for
+- [12:18.880] these offenses would have loved nothing
+- [12:20.720] more than to mark America's 250th
+- [12:23.440] anniversary by driving God from our
+- [12:26.079] public square once and for all. They
+- [12:28.720] wanted to do that. I don't know how
+- [12:30.800] anybody could vote for these people.
+- [12:33.360] They were so bad. They were so evil and
+- [12:35.920] yet in many ways incompetent. Certainly
+- [12:37.920] incompetent on policy. Open borders,
+- [12:41.839] transgender for everybody, men and women
+- [12:44.560] sports, just grossly incompetent
+- [12:48.399] ideologies and so many more. But they
+- [12:51.760] did not get that chance because they
+- [12:53.760] lost an election in a landslide. And we
+- [12:56.720] won an election in Atlanta.
+- [13:03.040] And while I am in the White House, I
+- [13:04.959] will defend Christians and all Americans
+- [13:07.040] of faith 100%. You have it 100%. And
+- [13:10.800] you've seen it already.
+- [13:13.839] So upon taking office, I created the
+- [13:16.079] first ever presidential commission on
+- [13:18.240] religious liberty led by Texas
+- [13:20.800] Lieutenant Governor. A great guy. I
+- [13:22.639] don't know if he's here. I know he's
+- [13:23.760] coming over to my office in a little
+- [13:25.120] while. a thing called the Oval Office.
+- [13:26.880] Beautiful office. Lieutenant Governor
+- [13:29.360] Dan Patrick and my friend Dr. Ben
+- [13:34.079] Carson.
+- [13:40.079] I don't know so many people in this
+- [13:41.600] room. I don't know if they're here. They
+- [13:42.959] may be here, but they're two great
+- [13:44.880] people. And later today at the White
+- [13:47.440] House, they will present me with their
+- [13:49.360] official report and recommendations to
+- [13:51.839] ensure that America continues to uphold
+- [13:54.160] the first right in our Constitution and
+- [13:57.360] that's religious liberty. We have to
+- [13:59.440] uphold religious liberty, most important
+- [14:02.639] thing.
+- [14:07.760] On day one of my administration, I ended
+- [14:10.000] the weaponization of law enforcement
+- [14:11.920] against religious believers. You know
+- [14:14.079] that I pardoned the Christians Joe Biden
+- [14:17.920] threw in jail for saying prayers. He
+- [14:19.839] threw him in jail. You know, he didn't
+- [14:21.040] know what the hell he was doing. The
+- [14:22.079] guy's grossly incompetent, but he was
+- [14:24.320] surrounded by very smart, some cases
+- [14:27.760] brilliant lunatics.
+- [14:30.560] I got rid of the Sinister Johnson
+- [14:32.800] amendment so that pastors can speak the
+- [14:35.040] truth at their pulpit.
+- [14:39.680] We created the very, very popular White
+- [14:42.399] House faith office. First time that's
+- [14:44.320] ever happened. And I set up an official
+- [14:47.279] Department of Justice task force to
+- [14:49.279] eradicate anti-Christian bias. Is
+- [14:52.000] anti-Christian bias. Who would think at
+- [14:54.639] a high level too, although it's fading
+- [14:57.360] going to fade fast? That task force just
+- [15:00.639] produced a new documentary reveal
+- [15:02.880] revealing the abuses of religious
+- [15:05.199] freedom that they uncovered. is called
+- [15:08.000] By Dawn's Early Light and it's out right
+- [15:11.199] now and it's really supposed to be I
+- [15:13.360] have not seen I cannot tell a lie I have
+- [15:15.600] not seen it but I've heard about it and
+- [15:17.519] I hear it's great and I will see it I
+- [15:20.000] hope soon. I also signed a historic
+- [15:22.560] executive order to combat the scourge of
+- [15:25.279] anti-semitism in our country
+- [15:30.000] and we reinstated the warriors who were
+- [15:32.240] thrown out of our military by the Biden
+- [15:34.639] vaccine mandates.
+- [15:38.079] and restored them to their former ranks
+- [15:41.040] and we let them back with full pay. Is
+- [15:43.360] that good? We want to cut costs, but we
+- [15:46.079] figured we have to do we have to take
+- [15:47.760] care of them. And we're protecting our
+- [15:50.720] churches and synagogues by prosecuting
+- [15:53.519] mobs of radical left lunatics and
+- [15:56.000] agitators who try to harass and
+- [15:58.079] intimidate people in their places of
+- [16:00.639] worship not so long ago.
+- [16:04.880] And to help parents send their children
+- [16:06.639] to schools that share their values, I
+- [16:08.639] signed the largest expansion of school
+- [16:10.720] choice in the history of our country,
+- [16:14.240] including in Texas.
+- [16:16.800] And in my direction, the Department of
+- [16:18.639] Education issued new guidance protecting
+- [16:20.880] the right to prayer in public schools.
+- [16:23.040] That was a big thing.
+- [16:26.240] And these are all things that we were,
+- [16:27.839] you know, they fought us very strongly.
+- [16:30.240] Very, very strongly. Hard to believe
+- [16:31.600] they'd fight us on that, but we had to
+- [16:33.360] fight the good battle, but we won every
+- [16:35.759] time. We slashed federal funding for any
+- [16:38.160] school that pushes transgender insanity
+- [16:40.880] on our youth.
+- [16:44.800] We expanded the Mexico City policy to
+- [16:47.360] stop taxpayer dollars from being used to
+- [16:49.519] promote radical gender ideology around
+- [16:51.920] the world. Radical gender ideology it
+- [16:55.120] is.
+- [16:56.320] I made it the official policy of the
+- [16:58.560] United States government that there are
+- [17:01.120] only two genders, male and female.
+- [17:06.559] That wasn't too tough.
+- [17:09.199] That was sort of an easy one, but you
+- [17:11.039] know, we have a man running in Texas who
+- [17:13.520] thinks there are six genders. I don't
+- [17:15.120] know what he's going to have to discuss
+- [17:17.120] that with us. Can you believe it? Six
+- [17:19.600] genders. And we officially banned the
+- [17:22.160] chemical and surgical mutilization of
+- [17:24.720] our children.
+- [17:30.400] And now we have to pass the Save America
+- [17:32.799] Act to protect our sacred American
+- [17:34.880] elections. Have to pass.
+- [17:42.240] Hard to believe, right? Hard to believe
+- [17:44.400] that we even have to fight for this. We
+- [17:47.360] have to fight for everything. Nothing
+- [17:49.039] comes easy. nothing.
+- [17:51.280] All voters must show photo ID. It's not
+- [17:54.880] so bad, right?
+- [17:57.039] All voters must provide proof of
+- [17:59.760] citizenship. Is that so hard?
+- [18:02.960] And you're fighting the Democrats and a
+- [18:04.960] few uh Republicans who are doing a
+- [18:08.400] tremendous disservice to this country.
+- [18:11.280] >> We have a few Republicans that are
+- [18:14.080] fighting it. Lisa Macowski of Alaska.
+- [18:17.600] You should call her and tell her to get
+- [18:19.919] on the ball.
+- [18:22.080] She'll never win another election. I can
+- [18:23.840] tell you she has got to get she's got to
+- [18:26.240] vote. It's called the Save America Act.
+- [18:30.000] It's voter ID. Ideally, photo ID, right?
+- [18:33.600] So, you can look and you can say, "Oh,
+- [18:35.360] that person's okay." Or for lots of
+- [18:38.000] reasons, that person is not the same
+- [18:40.160] person. We want proof of citizenship and
+- [18:44.000] we want no mail-in ballots except for
+- [18:47.440] illness, disability, and military
+- [18:49.520] deployment or travel will be very
+- [18:52.480] judicious.
+- [18:55.280] Look at what's happening in California
+- [18:56.960] where the ballots still aren't in.
+- [18:59.200] They're still not Can you believe it?
+- [19:01.440] Weeks afterwards, you know what's
+- [19:03.039] happening? They're cheating.
+- [19:05.120] The kid won or he was certainly in the
+- [19:07.360] top two. I don't know him. I never met
+- [19:09.919] him. Spencer Pratt and he went away
+- [19:12.799] quietly. We didn't go away quietly, but
+- [19:14.880] he shouldn't go away quietly. He should
+- [19:16.400] protest because it was, in my very
+- [19:19.520] strong opinion, that was a rigged
+- [19:21.039] election. That kid should be in the
+- [19:22.960] runoffs.
+- [19:24.559] The woman who edged him out after like a
+- [19:27.360] long time,
+- [19:29.120] days, days, and days. And then you'd
+- [19:31.440] hear reports Spencer Pratt is not doing
+- [19:33.440] so well, even though he was strongly in
+- [19:36.720] the lead. And then you hear Spencer
+- [19:40.080] Pratt has a 20% chance of being in the
+- [19:43.360] runoff. I said they just rigged the
+- [19:45.440] election. And then you hear that a woman
+- [19:47.840] who nobody ever heard of is in the
+- [19:49.679] runoff, not him. And then they tried to
+- [19:52.640] hurt Steve Hilton, too. And I called the
+- [19:55.520] US attorney and I said, "You have to
+- [19:57.039] look into this." Because Steve Hilton
+- [19:58.559] did great. He's running for governor.
+- [20:01.039] And you could see it. The election was
+- [20:03.840] there. He was doing great. Then day
+- [20:06.720] after day you'd hear reports about vote
+- [20:09.520] counting. You they go on for weeks. You
+- [20:13.280] know Colombia just had an election. The
+- [20:15.679] country of Colombia 30 million voters.
+- [20:19.600] And I endorsed I I now are I'm endorsed.
+- [20:22.240] We do so well with endorsements. Like
+- [20:24.080] almost 100%
+- [20:26.160] success. But I endorsed somebody running
+- [20:28.320] LT Gray. LT Gray. I liked him. You know
+- [20:31.760] why? Because he likes me. I don't know.
+- [20:33.280] He used to talk about Trump. I like
+- [20:35.600] President Trump. I don't know. How can
+- [20:37.120] you not let So I endorsed him. I didn't
+- [20:38.960] know.
+- [20:40.480] He was in uh way down the list. He was
+- [20:43.760] not going to win. No chance of winning.
+- [20:45.200] I endorsed him and he won. Did he just
+- [20:46.640] announce he won? But think of it. They
+- [20:49.520] had 30 million votes. By 9:30 in the
+- [20:53.280] evening, every single vote was counted.
+- [20:56.720] And there were no complaints. He won.
+- [20:59.200] Every vote was counted. Here we are in
+- [21:02.240] California. They're going to go for
+- [21:03.679] weeks and weeks and weeks. And you know
+- [21:05.360] what they do? They cheat. How many votes
+- [21:07.200] do we need? How many votes? That's why
+- [21:09.120] they take their time. How many votes do
+- [21:11.200] we need? Okay, here they are.
+- [21:14.320] It's honestly, it's terrible. We're a
+- [21:16.799] third world country with elections.
+- [21:19.679] And we will also enshrine a permanent
+- [21:22.320] law that says very easily and
+- [21:26.240] succinctly, no men in women's sports and
+- [21:29.120] no transgender surgery for our children.
+- [21:35.520] Never forget, if the radical left ever
+- [21:37.360] gets the chance, they will bring all of
+- [21:39.840] this insanity right back at levels that
+- [21:41.919] you've never seen before. You will never
+- [21:43.679] have seen anything like it if they ever
+- [21:45.360] get their chance. And they're trying
+- [21:46.640] like hell. I call them the Democrats. I
+- [21:49.600] exchanged an E for you, the dumb
+- [21:52.720] regrets.
+- [21:54.559] And that's counter. It's trending number
+- [21:56.720] one. The word democrat. I just can't
+- [21:58.960] believe I didn't think of it nine years
+- [22:01.120] ago. I should have
+- [22:03.440] the Democrats. They are horrible.
+- [22:06.799] They want to resume the transgender
+- [22:08.880] mutilization of our children. They want
+- [22:10.720] to restart the war on Christians and
+- [22:12.720] churches. And as you saw with the
+- [22:15.280] communists elected in New York City
+- [22:17.039] recently, they're communists. They're
+- [22:18.320] not social democrats. They want to
+- [22:20.720] completely destroy the traditional
+- [22:22.640] American way of life. Communism
+- [22:26.400] is very easy to sell.
+- [22:29.280] It destroys everything, but it's very
+- [22:31.280] easy. I'd be I I'll be honest. I think
+- [22:33.760] I'd be the greatest communist in
+- [22:35.280] history. I give free rent. Ladies and
+- [22:38.640] gentlemen, from now on, you don't have
+- [22:40.720] to pay any rent. From now on, anybody
+- [22:43.440] wants a house, don't worry about it.
+- [22:45.039] Just pick the house you want.
+- [22:47.840] Everybody gets free food. Everything is
+- [22:49.919] free from this point forward. Everyone's
+- [22:51.440] going to vote for me. The problem is
+- [22:53.679] after two or three years, the country
+- [22:56.720] is a disaster area. The country fails.
+- [23:01.200] They always do. It always does. So easy
+- [23:04.080] to sell. That first year, boy, you're
+- [23:06.000] the most popular. It's happening right
+- [23:07.840] now in New York and California.
+- [23:11.520] But you'll start living in squalor.
+- [23:14.000] You'll live in squalor. There will be no
+- [23:15.760] food. There will be no housing. There
+- [23:17.679] will be no military. There will be no
+- [23:19.200] law and order. There will be no nothing.
+- [23:21.600] There will be no nothing. You'll be a
+- [23:23.600] third world
+- [23:25.440] inhabitant in every way. And everyone
+- [23:28.000] will suffer or die. You'll suffer or
+- [23:30.159] die. That's what happens for thousands
+- [23:32.559] of years. It's been happening by
+- [23:34.000] different names. Thousands of years. I
+- [23:36.880] would be I'm telling you, I'd be the
+- [23:38.080] greatest communist in history. It would
+- [23:39.600] be so easy. You wouldn't have to work.
+- [23:42.159] You could stay home. The problem is a
+- [23:43.760] couple of years go by, the whole place
+- [23:45.520] collapses. Always does. Always has. But
+- [23:49.440] I'm sorry to say, but assassinations of
+- [23:52.080] those who oppose them is a very
+- [23:54.240] important element of their ideology.
+- [23:56.880] Assassination's a big deal for them.
+- [23:59.280] They're animals. They're animals. In
+- [24:01.679] many cases, they're not smart, but in
+- [24:04.159] some cases, they are. It's easy for them
+- [24:07.360] to get followers because they make
+- [24:10.080] promises that they know they can't keep.
+- [24:12.799] And the Democrats aren't fighting back.
+- [24:15.039] That's why they're dumb. They're not
+- [24:16.799] fighting back. They're afraid. I watch
+- [24:18.960] Schumer. He's afraid to fight. I watch
+- [24:21.440] guys that are pretty normal. And guys
+- [24:24.640] that we oppose, they're afraid to fight.
+- [24:27.279] The Democrats have taken a tremendous
+- [24:30.240] turn left. And many of these people, I
+- [24:32.480] looked at some of the people that got
+- [24:33.679] elected the other night in New York.
+- [24:36.559] These are these are in many ways stupid
+- [24:42.000] people in some ways and intellectually
+- [24:45.360] probably pretty smart, but they're
+- [24:47.679] people that want to destroy our country.
+- [24:49.279] They hate our country. They hate our
+- [24:50.799] people. They hate the Democrat party.
+- [24:53.360] The Democrat party is in big trouble
+- [24:56.240] because this isn't stopping with New
+- [24:58.400] York. This is going all too easy to get
+- [25:00.720] elected, given everything away. Too easy
+- [25:03.120] to get elected. Very dangerous. But
+- [25:05.600] you'll soon have nothing left. That's
+- [25:07.200] the problem. In many ways, they're
+- [25:09.679] allowing them to just go their own way.
+- [25:12.559] Do your own. We don't want to take a
+- [25:14.960] chance on saying anything bad because
+- [25:16.400] we're afraid we're going to lose our
+- [25:17.600] jobs if we do. They're afraid they're
+- [25:20.240] going to lose their election if they
+- [25:22.880] even think about saying anything bad
+- [25:25.440] about this new breed of sick people.
+- [25:28.240] They're not smart enough or tough enough
+- [25:30.159] to fight the plague that's happening.
+- [25:31.760] It's happening right before your very
+- [25:33.200] eyes. If they fought them the way they
+- [25:36.559] fight Republicans or the way they fight
+- [25:38.480] me, they'd be victorious. They didn't
+- [25:40.880] beat us, but they'd be victorious
+- [25:43.200] against the Communists,
+- [25:45.840] but they don't have the courage to do
+- [25:47.360] so. So, they're turning communists
+- [25:49.679] themselves. It's becoming a communist
+- [25:51.360] party. These are not social democrats.
+- [25:55.120] These are hardcore godless communists.
+- [25:57.919] They're godless communists. All
+- [25:59.440] communists are godless. They don't
+- [26:01.600] believe in God. This is the most serious
+- [26:04.159] threat to our country since its
+- [26:06.400] existence, in my opinion,
+- [26:09.039] 250 years ago. This is a major threat to
+- [26:11.520] our country.
+- [26:13.600] It isn't something that's easily solved,
+- [26:17.760] but with a little love and help,
+- [26:22.559] some hard work,
+- [26:24.559] because it's ironic, we're celebrating a
+- [26:26.880] very important birthday, our most
+- [26:29.840] important birthday so far, 250 years.
+- [26:33.200] And instead of speaking about Christ,
+- [26:36.480] and instead of speaking about freedom
+- [26:37.919] and victories of all different kinds,
+- [26:40.000] we're speaking about yet another threat
+- [26:41.919] to the foundations of America.
+- [26:45.520] These ruthless communists will attack
+- [26:47.600] all religions, but in particular,
+- [26:49.440] Christianity.
+- [26:51.039] They always do. They're after
+- [26:53.840] Christianity more than any other
+- [26:55.360] religion. It seems to be more and more
+- [26:57.120] throughout the world. Maybe because
+- [26:58.400] we're doing so well. I don't know. Maybe
+- [27:00.400] if we weren't doing well. But you see
+- [27:02.880] the numbers, how they're growing, how
+- [27:04.320] the churches are filling up. It's a
+- [27:07.039] beautiful thing to see. I mean, look, it
+- [27:09.520] happens to be during my presidency, so I
+- [27:12.480] don't mind taking credit for it. I'm
+- [27:14.159] very proud. But but a lot of great
+- [27:17.200] things are happening. All communist
+- [27:19.440] countries attack religions violently.
+- [27:22.720] It's part of their that's part of their
+- [27:25.279] deal. As you know, we recently struck
+- [27:28.880] Nigeria and largely ended the slaughter
+- [27:31.120] of great Christian
+- [27:33.440] populations.
+- [27:38.400] They have a great Christian population.
+- [27:40.240] They were being butchered. Butchered.
+- [27:42.320] Thousands and thousands of people were
+- [27:44.320] being killed. Children, women, old
+- [27:48.080] people, just being slaughtered, hatched
+- [27:50.559] to death.
+- [27:52.559] They know that if they go further, the
+- [27:54.240] attack will be far greater. and that
+- [27:57.360] they don't want to really get involved
+- [27:58.799] anymore so much. You know, we hit them
+- [28:00.720] very hard. We knocked out their leader.
+- [28:02.399] We knocked out their second leader and
+- [28:04.000] their third leader. Sounds a little bit
+- [28:06.080] like Iran. Actually, that's all about a
+- [28:09.360] different cause that we have to do
+- [28:10.880] because we cannot let Iran have a
+- [28:13.039] nuclear weapon. Can't let it happen.
+- [28:18.799] So I'm saving Christians throughout the
+- [28:20.799] world even though we are not in those
+- [28:22.880] various countries where you read about
+- [28:24.640] this. But they'd like to make our
+- [28:27.120] country just like those countries.
+- [28:28.640] That's where they started. They started
+- [28:30.080] right where we are right now. But I'm
+- [28:32.799] saving them by hitting these terrorists
+- [28:35.279] very violently and very hard. We're
+- [28:37.600] hitting them very hard by the greatest
+- [28:40.080] weapons on earth. Taking them out. We
+- [28:43.679] know where they are. We hunt them down
+- [28:45.120] and we take them out.
+- [28:46.880] Think of it. They go into a village and
+- [28:48.399] they just kill everybody. It's like
+- [28:49.919] crazy.
+- [28:51.440] They will close your churches in this
+- [28:54.159] country. They go communist. And they're
+- [28:57.279] trying to. They will kill your people.
+- [29:00.799] And that's what they're about. They want
+- [29:02.799] to end religion. They have to end
+- [29:04.720] religion because their ideology doesn't
+- [29:07.600] work. If you have strong religion,
+- [29:10.480] people like you that are so incredible
+- [29:12.880] and love our country so much and love
+- [29:14.720] God.
+- [29:16.080] This is the greatest threat to our
+- [29:17.919] country since its founding in my opinion
+- [29:20.080] 250 years ago. What's happening right
+- [29:22.000] now? It's the greatest threat. People
+- [29:24.399] don't look at that. Oh, three people
+- [29:26.159] were elected. No, no, it's many more
+- [29:27.919] than three people and the other people
+- [29:30.399] are being swayed because
+- [29:33.200] they don't have the sense to see what's
+- [29:35.600] happening. They don't have the sense.
+- [29:38.320] Their followers are not leaders even
+- [29:40.240] though they're politicians in some cases
+- [29:42.159] successful ones. for the first time in
+- [29:44.880] history. The powerful rent stabilization
+- [29:47.039] board as an example that sets rents in
+- [29:49.919] New York City just happened today.
+- [29:52.480] They've done it for years and years and
+- [29:55.520] they've been very far left. They're run
+- [29:57.520] by Democrats and they give landlords a
+- [30:00.240] hard time for years and years called
+- [30:02.320] rent control. They give landlords a hard
+- [30:05.360] time, but they always give some
+- [30:06.559] increases so they can survive.
+- [30:09.440] But they just came out first time ever
+- [30:11.360] with a ruling zero rent increases for
+- [30:14.559] landlords. Zero for the next two years
+- [30:17.760] despite the fact that energy supplies,
+- [30:20.799] real estate taxes, and just about
+- [30:22.799] everything else has gone up. They're
+- [30:25.039] supposed to allow you to have that zero.
+- [30:27.679] They're giving them. They're basically
+- [30:29.360] confiscating their property. And the one
+- [30:34.159] representative for the landlords who's
+- [30:36.320] on the board, I think they have eight or
+- [30:37.679] nine people on the board. And you had
+- [30:39.120] one who was representing one one out of
+- [30:42.399] like eight, but at least you had
+- [30:45.120] somebody. But that person walked off in
+- [30:47.679] disgust, walked off and got booed.
+- [30:51.279] Mayor M Danny, who came to the White
+- [30:53.679] House and seems like a nice guy, but he
+- [30:56.960] said he was going to do this in his
+- [30:58.559] campaign. Nobody thought he was serious.
+- [31:01.679] He said he was going to make sure that
+- [31:03.200] people don't have a rent increase. Even
+- [31:05.120] though energy went up, it's going to
+- [31:08.159] come down. It's coming down fast right
+- [31:09.600] now. I hope you're watching what's
+- [31:10.880] happening. We had a low number just now.
+- [31:13.200] $69 a barrel. That was Some people said
+- [31:16.559] it was going to be 350 by now. 69. It's
+- [31:20.480] going to be 300 350. Never hit those
+- [31:23.760] numbers at all, even in the height of it
+- [31:26.799] all. But what the mayor doesn't say is
+- [31:29.840] that these buildings will soon turn into
+- [31:32.000] ghettos and slums and that everybody
+- [31:33.760] will continue leaving New York. And as
+- [31:36.399] this spreads throughout the country,
+- [31:38.000] very much like an uncontrollable form of
+- [31:40.960] cancer, the country itself will be taken
+- [31:44.240] down. It will be third world, strictly
+- [31:46.799] third world. And it's happened many
+- [31:49.519] times before to very big and very
+- [31:51.360] powerful countries.
+- [31:53.440] But it's not going to happen to the
+- [31:55.120] United States of America.
+- [31:57.440] No way.
+- [32:04.000] Because communism really is the past and
+- [32:08.080] freedom is the future. That's what we
+- [32:09.679] are. All we want is freedom. Freedom is
+- [32:11.440] going to be freedom gets you everything.
+- [32:14.720] Everyone needs to get out and vote in
+- [32:17.039] the midterms. We have to win this
+- [32:18.399] election. This election is very vital.
+- [32:20.720] If we don't, everything that we've
+- [32:22.080] gotten, we've gotten so much. I mean,
+- [32:23.760] religious liberty, but we've gotten so
+- [32:25.919] much. Our military is the strongest in
+- [32:28.720] the world. I built it during my first
+- [32:30.240] term. Strongest in the world. And people
+- [32:33.840] respect us again. They respect us maybe
+- [32:36.399] like never before. We were laughed at a
+- [32:38.320] year and a half ago. We were laughed at.
+- [32:40.720] And now we're the most respected nation
+- [32:42.799] anywhere in the world.
+- [32:47.120] And in our 250th year, we will make our
+- [32:50.799] nation stronger and safer, better, more
+- [32:53.120] prosperous, and more faithful. Very
+- [32:55.600] important, more faithful than ever
+- [32:57.679] before. Today, we have the largest
+- [33:00.320] economy on Earth. We're expanding at a
+- [33:03.600] degree and to a degree that nobody
+- [33:05.279] thought possible. They never thought
+- [33:07.679] what we're doing for the last year and a
+- [33:09.360] half, it's only a year and a half. What
+- [33:11.760] we're doing for the last year and a
+- [33:12.960] half, nobody thought was possible. We
+- [33:15.279] have the strongest military on Earth. We
+- [33:18.240] have the most powerful technology on
+- [33:20.480] Earth. We're winning on AI. We're
+- [33:22.799] winning with automobile manufacturing.
+- [33:24.720] Do you see how many plants are coming
+- [33:26.240] back into the United States? Tariffs.
+- [33:28.480] Tariffs. If they don't come in, they
+- [33:30.480] have to pay massive tariffs. Make your
+- [33:32.240] car outside, but you have to pay massive
+- [33:34.559] tariffs to come in. If you build your
+- [33:36.799] car in the United States using US
+- [33:39.519] workers, our great American workers, you
+- [33:42.159] don't have any tariffs to pay.
+- [33:44.640] So they're all pouring in. Should have
+- [33:46.960] been done years ago by other presidents.
+- [33:48.799] We have the greatest culture on earth.
+- [33:51.279] And above all, we have the greatest
+- [33:53.279] people on earth. We do. We have the
+- [33:54.720] greatest people.
+- [33:57.600] But think of it. I was with the king of
+- [33:59.120] Saudi Arabia. And he said,
+- [34:01.919] "Mr. President, two years ago, your
+- [34:04.720] country was dead. It was a dead country.
+- [34:08.960] And today, you're the hottest country
+- [34:10.399] anywhere in the world. It's amazing
+- [34:11.839] what's happened.
+- [34:13.919] We were laughed at.
+- [34:16.560] We were laughed at. We had a man who
+- [34:18.159] couldn't speak, couldn't think. He
+- [34:19.919] didn't know what the hell was happening.
+- [34:21.520] Kept falling down all over the place. If
+- [34:24.079] he was standing here now, he would have
+- [34:25.520] been off the stage before he started.
+- [34:27.919] But if he was standing here now, he
+- [34:29.440] wouldn't know how to get off the stage.
+- [34:30.800] I had to lead him off the stage. It was
+- [34:33.679] a disaster. And it was a rigged
+- [34:35.520] election.
+- [34:37.040] But we did it again. And we did. And we
+- [34:39.200] got it right. Too big to rig. We made it
+- [34:40.960] too big to rig. It was a rigged
+- [34:42.320] election.
+- [34:45.280] And look what happened because it was a
+- [34:46.879] rigged election. 25 million people came
+- [34:48.960] in. Many criminals, murderers, 11,88
+- [34:54.159] murderers, more than 50% of who created
+- [34:57.760] more than one murderer, murdered more
+- [34:59.920] than one person. These are not going to
+- [35:02.400] be the citizens of our country. There's
+- [35:04.320] not a thing you can do to change that.
+- [35:07.280] But drug dealers at the highest level,
+- [35:09.440] the worst, some of the worst people on
+- [35:11.520] earth came in through open borders, Joe
+- [35:14.240] Biden's, but really it was the
+- [35:15.760] ideologies, open border policy where
+- [35:17.920] everybody could come in. They came from
+- [35:19.359] all over the world. They they emptied
+- [35:21.680] their prison populations into the United
+- [35:23.839] States of America. Think of that. But
+- [35:26.640] we're getting them out. We're getting
+- [35:27.839] them out faster than anybody can
+- [35:29.440] imagine.
+- [35:32.480] And we're going after the bad ones
+- [35:34.079] first. We're getting them out. Last
+- [35:35.599] week, we signed a historic agreement to
+- [35:38.400] accomplish what no president has ever
+- [35:40.560] been able to accomplish before. That
+- [35:43.599] Iran will never have a nuclear weapon.
+- [35:46.240] We're not going to let that happen.
+- [35:48.400] And thanks to the power and skill of the
+- [35:50.720] United States armed forces, Iran today
+- [35:52.960] has no navy, no air force, no
+- [35:56.560] anti-aircraft capability, no radar,
+- [36:01.359] virtually no manufacturing. Their drone
+- [36:04.720] capacity has been cut by 82%. Their
+- [36:08.000] missile capacity has been cut by 80%.
+- [36:11.839] Their rocket launchers have been cut by
+- [36:14.480] 90%. Their leadership has been killed
+- [36:19.280] a first time and their leadership has
+- [36:21.839] been killed a second time and nobody
+- [36:24.800] wants to be the leader of Iran anymore.
+- [36:26.960] They said, "Who would like to be the
+- [36:28.720] president?" And everyone said, "No,
+- [36:30.400] thank you."
+- [36:33.760] It's amazing. And then the fake news
+- [36:35.280] like the New York Times which is a
+- [36:36.880] failing publication but the fake news
+- [36:40.160] ABC so bad ABC television network fake
+- [36:44.560] ABC NBC CBS CNN
+- [36:48.400] they actually said for a little while it
+- [36:50.640] didn't play well that Iran was much
+- [36:53.599] stronger
+- [36:55.119] today than it was four months ago. Think
+- [36:58.000] of it. They have no navy. They have no
+- [37:00.079] They said they're stronger. They're
+- [37:02.000] dying to make a deal.
+- [37:04.320] They're giving us a lot. They should
+- [37:06.960] have been done
+- [37:08.800] over the 47year period that they've
+- [37:10.800] reigned with terror. And that's what
+- [37:13.119] they did. They reigned with terror. When
+- [37:14.640] you see a young man or woman walking
+- [37:16.560] around without legs or without arms or a
+- [37:18.480] face that was obliterated, it happened
+- [37:20.079] from the roadside bomb. That was created
+- [37:24.320] the creation of General Salami, who I
+- [37:27.680] killed in my first term. And that was a
+- [37:30.000] big killing.
+- [37:31.920] He was a mad genius, but he was he was
+- [37:34.079] going to he was going to knock out five
+- [37:36.079] of our military installations. I found
+- [37:38.079] out about it. And in all fairness,
+- [37:40.480] Israel was supposed to do it with us.
+- [37:42.079] And the night before that took place, uh
+- [37:45.040] we heard from Israel that they will not
+- [37:46.720] be doing it. They don't want to do it.
+- [37:48.160] And I said to couple of generals that we
+- [37:50.480] had who were very good. I said, "Uh,
+- [37:53.200] what do you think, generals? Can we do
+- [37:54.720] it?" Because we worked on for 30 days,
+- [37:56.640] worked on it with Israel. They said,
+- [37:59.040] "We'll do it, sir. Can we do it as well?
+- [38:00.960] We'll do it better. And he was dead the
+- [38:04.079] next day. He was dead in the valley of
+- [38:06.560] death. He died in the valley of death.
+- [38:08.240] We had them all. We knew when he was
+- [38:10.560] coming, where he was coming, how he was
+- [38:12.400] getting that we knew everything, but we
+- [38:13.920] lost our partner. I don't blame him that
+- [38:16.240] much to be honest with you because it's
+- [38:17.680] tough stuff. But they told us the night
+- [38:19.760] before they won't be doing it. We did it
+- [38:22.240] ourselves and we did it so incredibly
+- [38:25.280] well. We also took out the head of
+- [38:27.599] Iraq's ISIS division
+- [38:31.280] and we took out both of them by
+- [38:34.640] by luck by luck with Iraq. But uh had he
+- [38:40.079] had he lived because he was a brilliant
+- [38:42.240] general very sick man mentally but he
+- [38:46.079] was a brilliant general it may have been
+- [38:48.160] a different story. I don't think so. I
+- [38:49.599] think we would have knocked the hell out
+- [38:50.720] of him whether he was there or anybody
+- [38:52.160] else was there but he was a brilliant
+- [38:53.680] general. was one of the biggest things
+- [38:55.599] ever to happen in the Middle East, the
+- [38:57.680] killing of Salami. People have said it's
+- [38:59.680] the biggest thing to happen in a hundred
+- [39:01.359] years because he was a dominant force. I
+- [39:04.880] actually think that Kani and all of the
+- [39:06.800] people in Iran
+- [39:08.880] were happy about it because they were
+- [39:10.880] afraid of him, too. Over the past few
+- [39:13.359] weeks, the stock market and your 401ks
+- [39:15.760] skyrocketed
+- [39:17.280] upward like pretty much
+- [39:20.560] nobody's seen before. oil prices are
+- [39:23.119] plummeting downward and the world is a
+- [39:25.680] much safer place. We had to take that
+- [39:27.280] detour to knock out Iran if we didn't do
+- [39:30.000] that. And we're still, you know, we
+- [39:31.359] still have a fight. They have some
+- [39:32.640] capability. Not much.
+- [39:35.520] They're not winning or anything, but
+- [39:37.119] they have some cap. They can still
+- [39:38.400] shoot, you know, they shot a a drone
+- [39:40.560] yesterday at a big ship going into the
+- [39:42.640] Harammo Strait. They shot four of them.
+- [39:45.359] We knocked down three of them. One of
+- [39:46.960] them, I guess, we didn't miss it. Nobody
+- [39:50.240] saw it coming.
+- [39:51.760] and it hit a ship and did some damage.
+- [39:55.040] But you can't do that stuff. But very
+- [39:57.599] soon they will be we're going to be at
+- [40:00.240] $2.50 gasoline. You know, I was in Iowa
+- [40:03.359] making a speech the day before we did
+- [40:05.520] the attack. And again, we had to turn it
+- [40:07.119] around. Everything was going so well.
+- [40:08.800] It's like you're doing so well. We have
+- [40:10.480] the best econ everything's great. And I
+- [40:12.000] say I brought my people into the room,
+- [40:14.400] my financial people and other people. I
+- [40:16.800] said, "Listen, we just set a record in
+- [40:19.280] the stock market. We just set a record
+- [40:21.200] in every single thing, including 401ks.
+- [40:23.440] Your 401ks, most of you have 401ks, are
+- [40:26.079] at the highest they've ever been,
+- [40:27.440] everything. But this was true three and
+- [40:29.680] a half months ago before the attack.
+- [40:32.480] Everything was good. We had records and
+- [40:34.480] everything. We're doing great. And I
+- [40:35.680] said, I hate to tell you, but we're
+- [40:37.440] going to have to take a detour. We're
+- [40:38.720] going to have to go to war or go to a
+- [40:41.359] military operation, which my people
+- [40:43.920] would prefer that I use as a term
+- [40:45.599] because war means things that they don't
+- [40:48.400] like. But whether you call it war or
+- [40:50.000] not, it is what it is. And we're going
+- [40:52.560] to go down to the Islamic Republic of
+- [40:55.440] Iran. And we're going to have to hit
+- [40:58.560] them very hard. And don't forget when
+- [41:01.359] Barack Hussein Obama did the JC PO,
+- [41:05.760] if you look at that Barack Hussein
+- [41:08.480] Obama, have you heard of him? He was a
+- [41:10.560] disaster.
+- [41:12.079] He was a disaster. He gave them 1.7
+- [41:15.440] billion in cash. 1.7 billion in cash and
+- [41:19.599] tens of billions of dollars. Gave it to
+- [41:21.599] Iran. Thought he could buy their
+- [41:22.880] friendship and it was just the opposite.
+- [41:24.960] They used the money and they built
+- [41:26.319] missiles and everything else. And I
+- [41:29.359] terminated the JC POA was his agreement.
+- [41:34.240] It was the Iran nuclear deal. It was a
+- [41:35.839] disaster. By the way, it expired a long
+- [41:38.319] time ago, but I terminated long before
+- [41:41.119] it expired. If I didn't do that, Iran
+- [41:43.520] would have had a nuclear weapon. And if
+- [41:44.880] I didn't send the B2 bombers in 10
+- [41:46.800] months ago, they would have had a
+- [41:48.240] nuclear weapon. We obliterated that
+- [41:50.560] nuclear dust. Very important.
+- [41:54.400] And then you wouldn't have Israel.
+- [41:55.680] Israel would be gone. I know you have a
+- [41:57.200] lot of good fans of Israel in this room.
+- [41:59.359] And Israel would have been gone and
+- [42:00.720] probably the Middle East would have been
+- [42:01.920] gone. And we they could have taken a
+- [42:04.400] shot. We would have wiped them out
+- [42:05.920] pretty quick, but they could have taken
+- [42:07.200] a chunk of us, too. But in my first
+- [42:10.000] term, I created the greatest economy in
+- [42:12.160] the history of the world. The first term
+- [42:13.760] was a great success and rebuilt the
+- [42:15.520] military, did everything, but now we're
+- [42:18.400] blowing it away. We're doing much better
+- [42:19.920] this time. And again, we did have to
+- [42:22.480] make that excursion. How would you like
+- [42:24.800] to be given the best numbers we've ever
+- [42:26.400] had as a country and tell people, guess
+- [42:28.319] what? We're going to war. And nobody in
+- [42:30.960] the room knew what I was talking about
+- [42:32.720] because they weren't, it wasn't their
+- [42:35.200] thing. And uh I said, "We got to stop
+- [42:37.680] them from having a nuclear weapon."
+- [42:39.280] Because you want to see problems. Let a
+- [42:41.680] crazy country have a nuclear weapon.
+- [42:43.359] You'll see problems like you've never
+- [42:44.800] seen before. The stock market has set 73
+- [42:48.240] all-time record highs since the
+- [42:49.760] election. And more Americans are working
+- [42:52.000] today than at any time in the history of
+- [42:53.760] our country. That's pretty good. In
+- [42:57.040] January 2025, we inherited the worst,
+- [42:59.680] most dangerous, most wide open, and
+- [43:01.839] insecure border in history. I actually
+- [43:04.560] think in the history of the world, I
+- [43:05.839] don't think it's just here, you could
+- [43:07.440] just walk into the country and again
+- [43:10.319] they were letting prison populations,
+- [43:13.520] they were taking buses and dropping them
+- [43:15.520] off at our border and people coming out,
+- [43:17.200] murderers coming out of prison, drug
+- [43:19.119] dealers, the worst, the worst people.
+- [43:22.319] They made our criminals look like nice
+- [43:24.240] people. That's the only thing nice. Our
+- [43:26.720] criminals for the first time looked very
+- [43:28.720] nice by comparison to these people. But
+- [43:32.319] they dropped 25 million people over four
+- [43:35.520] years into our country. And it's the
+- [43:38.240] single hardest job I have getting them
+- [43:39.760] out. We're getting them out pretty
+- [43:41.280] rapidly, but it's a very hard thing. But
+- [43:43.920] it's, think of it, prison populations
+- [43:46.319] from the Congo, from all parts of South
+- [43:50.000] America, from all parts of the world,
+- [43:52.560] were taken in, driven through Mexico,
+- [43:55.599] and dropped off in our border, and they
+- [43:57.280] would walk right into our country.
+- [44:00.160] And we've quickly turned it into the
+- [44:02.640] strongest and most secure border in the
+- [44:05.599] history. We have the strongest border
+- [44:06.960] we've ever had now.
+- [44:10.640] And for the past 13 months, zero illegal
+- [44:13.680] aliens have been admitted into the
+- [44:15.520] United States. Zero.
+- [44:21.440] We have zero. And those are the numbers.
+- [44:23.680] They report them and they're taken by
+- [44:25.200] sort of a left kind of a group. the
+- [44:28.000] stats, you know, if anybody did, they'd
+- [44:30.000] like to report them, but we have zero.
+- [44:31.760] And they don't even try because they
+- [44:33.280] know they're probably not going to get
+- [44:34.560] in, so they're not going to make this
+- [44:35.920] very dangerous marsh. We're saving a lot
+- [44:37.599] of lives because in those caravans,
+- [44:40.319] remember I named them caravans. They'd
+- [44:41.839] have 25,000 people, sometimes more. But
+- [44:45.040] they'd come up from South America and
+- [44:46.880] all through Mexico. They'd go all
+- [44:48.800] through and they go through jungles in
+- [44:52.160] Colombia.
+- [44:54.000] Really tough jungles, too. dangerous
+- [44:56.400] jungles and women would die and women
+- [44:59.680] would be raped. Remember when I
+- [45:01.280] mentioned when I said they get raped,
+- [45:04.880] crime, murder, and everyone, my first
+- [45:07.760] speech, my first speech was
+- [45:09.599] controversial. When I announced I was
+- [45:11.200] running, everyone said, "What do you
+- [45:12.560] mean raped?" What I said was peanuts
+- [45:14.640] compared to what happened. And the women
+- [45:17.359] would come up and they'd die. They'd be
+- [45:19.839] raped. A lot of people would die on
+- [45:21.599] those caravans. The journeys up were
+- [45:24.000] they call them journeys through hell
+- [45:26.480] because they had to go through jungles.
+- [45:27.920] They had to go through very dangerous
+- [45:29.359] areas.
+- [45:30.960] And the people that got here would just
+- [45:33.359] walk right into our country. We had no
+- [45:35.040] idea who they were. Nobody would even
+- [45:36.400] stand there and check. They just came
+- [45:37.680] in. Come on in. Come on in. This was
+- [45:40.160] sleepy Joe Biden's
+- [45:42.400] ideology that was forced on him by much
+- [45:44.480] smarter people than him that wanted to
+- [45:46.960] destroy our country because he had no
+- [45:48.720] clue. But with the help of our law
+- [45:51.520] enforcement heroes in 2025, we achieved
+- [45:54.160] the largest drop in the murder rate ever
+- [45:56.720] recorded in our country's history 125
+- [45:59.359] years ago.
+- [46:01.359] Think of that 19 Think of that. The year
+- [46:05.280] 1900,
+- [46:07.119] that was before my father. My father
+- [46:09.040] would hate me saying that because it's a
+- [46:11.119] long time ago, but that was before my
+- [46:12.880] father was born. Had a wonderful father
+- [46:15.520] and mother, but and family. But uh the
+- [46:20.000] lowest murder rate in 125 years,
+- [46:22.880] Washington DC is now one of the safest,
+- [46:25.839] most beautiful cities in the country.
+- [46:27.520] And just a little while ago, it was a it
+- [46:30.079] was a killing machine.
+- [46:33.359] Think of that. Uh a year and a half ago,
+- [46:36.560] Washington was a very unsafe city. Now
+- [46:38.400] it's one of the safest cities in the
+- [46:39.920] country. It's one of the most beautiful
+- [46:41.280] cities. Doug Bergam and my myself and a
+- [46:44.240] whole group of people did a great job
+- [46:46.400] when the monuments and fountains and the
+- [46:50.000] reflecting pool was so beautiful. They
+- [46:51.680] tried to destroy it. They cut it up with
+- [46:53.680] a box knife and tried to destroy it and
+- [46:56.319] it's in great shape now. They're
+- [46:58.240] terrible. They're vandals. They're
+- [47:00.079] They've caught six of them, I guess.
+- [47:01.599] Maybe more. They've got others in line
+- [47:04.400] to be caught. But we just inspected it.
+- [47:06.560] We'll fix it right after the 4th of
+- [47:08.160] July. Got to let the water out. Just fix
+- [47:10.720] it. But we caught them. They would cut
+- [47:13.200] it and they would grab this very
+- [47:15.200] expensive and very good material,
+- [47:17.119] totally waterproof, and they rip it.
+- [47:20.079] These people are sick. They ripped a
+- [47:21.839] scar 350 ft long through the side of the
+- [47:25.680] reflecting pool.
+- [47:27.760] These are the people we're dealing with.
+- [47:29.680] These are the people that want to
+- [47:30.960] destroy our country. But we've invested
+- [47:33.599] a record $1 trillion dollars in the
+- [47:36.319] United States armed forces and we're
+- [47:38.160] going this year for 1.5 trillion all
+- [47:40.400] made in the USA.
+- [47:45.040] And something that's so exciting, the
+- [47:46.800] recruitment, you know, if you go back a
+- [47:48.400] year and a half, two years ago, you
+- [47:50.400] could not get anybody to join the army,
+- [47:53.200] the navy, the air force, the marines,
+- [47:55.359] the coast guard, space force. You
+- [47:57.680] couldn't get anybody to join. They had
+- [48:01.119] tremendous recruitment problems, but now
+- [48:03.680] recruitment in every branch of our
+- [48:05.280] military is setting records. 18 months
+- [48:07.280] ago, we had tremendous shortages and we
+- [48:10.240] couldn't fill them up. We were never
+- [48:12.640] going to fill them up. That included
+- [48:14.000] police and firemen. We couldn't get
+- [48:16.640] policemen and women. We couldn't get
+- [48:18.240] firemen and women. Anything with a
+- [48:21.040] uniform because they were ashamed of our
+- [48:22.960] country because we had people that were
+- [48:25.680] not respected. You have to respect the
+- [48:27.520] president. If you don't respect the
+- [48:28.960] president, you're going to have a
+- [48:30.000] problem. Going to have a problem. They
+- [48:32.240] had no respect.
+- [48:34.640] And now we have waiting lists. Now you
+- [48:37.119] can't get into the literally we went
+- [48:39.359] from the worst recruitment numbers ever
+- [48:42.480] in one year to the best recruitment
+- [48:45.440] numbers ever. And it all started on that
+- [48:47.359] beautiful day, November 5th, right? A
+- [48:49.920] thing called election day.
+- [48:52.480] And as soon as we won, before I even got
+- [48:54.559] to do anything, it those numbers started
+- [48:56.480] going through the roof. People love our
+- [48:58.000] country again and they have spirit. You
+- [49:00.079] always loved it, but you were down. You
+- [49:01.760] were depressed. You were not feeling too
+- [49:04.559] good about our country, especially you
+- [49:06.800] as people with a great religion and a
+- [49:09.920] fervor for Christianity and religion. Uh
+- [49:12.960] you were very you should be depressed.
+- [49:14.640] You should have been. But now you're
+- [49:16.559] riding high. But we have to be careful.
+- [49:18.240] We don't want to lose it. We got to win
+- [49:19.359] the midterms. We got to win the election
+- [49:21.760] coming up. And uh we're going to we're
+- [49:24.960] going to be in good shape.
+- [49:27.280] But you have to expose them. If you
+- [49:28.960] don't expose them, I stand here and I
+- [49:30.720] expose them. Some people don't do it
+- [49:32.160] right. They say they're going to get
+- [49:34.160] free rent. Well, that's okay to say, but
+- [49:36.880] everyone's going to vote for them except
+- [49:38.800] for a few of the people in this room.
+- [49:40.960] But you have to say they're going to get
+- [49:42.400] free rent, but in two years everything
+- [49:44.640] is going to collapse and you're going to
+- [49:46.160] live in squalor. When you say that, you
+- [49:49.200] can beat the free rent. You can beat the
+- [49:52.000] fact that they're going to take your
+- [49:53.040] house away and give it to somebody else,
+- [49:55.520] which is essentially what they'd like to
+- [49:57.200] do. But it's happened so many times over
+- [49:59.680] the years with really powerful countries
+- [50:02.079] and we're not going to let it happen.
+- [50:03.520] So, we have the strongest and most
+- [50:06.720] powerful military anywhere in the world.
+- [50:08.400] I built it in my first term, using it a
+- [50:10.480] little bit of my second term, and we're
+- [50:12.800] once again using it to defend America's
+- [50:15.520] interests and American values. Look at
+- [50:18.319] what happened in Venezuela. We have a
+- [50:20.880] great and by the way we're helping
+- [50:22.400] Venezuela. They had a tremendous
+- [50:23.760] earthquake. A lot of people killed and
+- [50:25.680] unbelieing.
+- [50:29.839] But Venezuela has been
+- [50:32.240] fantastic. We've had a great
+- [50:33.680] relationship. It was a one-day war. We
+- [50:35.520] hit them so hard and one day war. Now
+- [50:38.400] we've taken out millions of barrels of
+- [50:40.800] oil and we've paid for the war many
+- [50:43.119] times over. But just as importantly,
+- [50:44.800] they are doing better than they've ever
+- [50:46.400] done. They're making more money than
+- [50:48.480] they've ever done. They've never made
+- [50:50.400] the money that they're making now. And
+- [50:53.119] it's really I mean outside of what
+- [50:54.960] happened last night with the terrible
+- [50:56.960] That was terrible what happened. It was
+- [50:58.400] a big earthquake, knocked down
+- [51:00.960] buildings, but outside it was really uh
+- [51:03.760] it's a happy country again. The people
+- [51:05.359] are happy. They're dancing in the
+- [51:06.800] streets. The people running it are doing
+- [51:09.040] a very good job. The United States has
+- [51:11.599] never been stronger. We have never been
+- [51:14.160] wealthier. We've never been prouder to
+- [51:16.800] be an American. Since 1776, America's
+- [51:20.720] story has been a tale of freedom,
+- [51:23.040] overcoming oppression, good defeating
+- [51:26.079] evil, and faith overcoming every
+- [51:28.559] challenge and every foe. We had
+- [51:30.640] everybody was winning, and we're going
+- [51:32.480] to continue stronger, maybe stronger.
+- [51:36.319] One generation, think of it, just one
+- [51:38.960] generation after our war of
+- [51:40.800] independence, the British tried, they
+- [51:43.599] really tried hard to conquer America in
+- [51:45.760] the War of 1812. That didn't work out
+- [51:48.160] too well, but they failed and the cause
+- [51:50.880] of freedom won and it continues to win.
+- [51:54.079] The war of survival ultimately gave
+- [51:56.240] America our national anthem and our star
+- [51:58.559] spangled banner. Many Americans know the
+- [52:01.280] story of Francis Scott Key writing the
+- [52:03.760] words of the anthem. Watch the flag
+- [52:06.720] under attack and he wrote that beautiful
+- [52:08.640] those beautiful words.
+- [52:11.040] But what few realize is that the very
+- [52:14.079] same poem also inspired our national
+- [52:16.880] motto, the fourth verse of the song ends
+- [52:20.559] in these words. And this be our motto,
+- [52:24.240] in God we trust. In God we trust.
+- [52:34.000] And as you know, the Democrats want to
+- [52:35.839] end that. They don't want the words in
+- [52:37.599] God we trust. They want to have that
+- [52:39.760] stricken. They go to court. They take us
+- [52:41.599] to court. We're never changing that.
+- [52:44.000] We'll fight for that. We're not changing
+- [52:46.000] that. In God we trust. Better believe
+- [52:48.720] it.
+- [52:50.640] So today, on the threshold of our 250th
+- [52:53.839] year, this room is proof that America is
+- [52:56.000] still a nation that lives by those
+- [52:58.960] magnificent words. In God we trust. With
+- [53:02.079] the help of everyone here today and
+- [53:04.079] Americans of faith all across this land,
+- [53:06.480] we will continue to protect the promise
+- [53:08.960] of the Declaration of Independence. One
+- [53:13.040] of which actually is in my office in the
+- [53:16.240] Oval Office. So with we cherish it. We
+- [53:19.359] will continue to defend our values, our
+- [53:21.520] traditions, our faith, and our freedom.
+- [53:24.000] And as we enter the golden age of
+- [53:26.160] America, that's what we have. This is
+- [53:27.599] the golden age. We've never had anything
+- [53:29.440] like it. We have factories all over the
+- [53:31.440] country. We have car plants, AI plants,
+- [53:36.240] all sorts of plants. Our businesses are
+- [53:38.640] expanding. Our numbers are unbelievable.
+- [53:41.760] Remember that we've never had a year
+- [53:43.520] with so many number one stock markets.
+- [53:46.640] Good to have number one because that
+- [53:48.160] affects everybody. That means jobs. That
+- [53:50.480] means success. That's good, as we said,
+- [53:52.400] for your 401ks. It's good for your stock
+- [53:55.520] investments. Everyone's doing well. We
+- [53:58.400] have a country that's just the hottest.
+- [54:01.359] It just is so hot. And I'm working
+- [54:04.319] really hard to make it even better.
+- [54:05.839] We're going to get rid of some of the
+- [54:07.040] flaws. We're going to make it even
+- [54:08.800] better. But the biggest thing we have to
+- [54:10.480] do is we have to stop this this horrible
+- [54:15.200] thread of cancer that's permeating our
+- [54:17.920] country called communism. We have to
+- [54:19.680] stop it because that's what it's about.
+- [54:21.440] That's what they want to do quietly.
+- [54:24.720] And we ask that God will continue to
+- [54:26.960] bless the United States of America. And
+- [54:30.400] God will bless the United States of
+- [54:32.559] America because of people like you.
+- [54:34.319] Thank you very much. And happy
+- [54:36.000] Independence Day everybody. Thank you.
+- [54:38.800] Thank you very much. Thank you. Thank
+- [54:42.720] you.
+- [54:50.319] Thank you.
+- [55:05.599] There's no need to feel down. I said,
+- [55:07.760] "Young man, pick yourself off the
+- [55:10.559] ground." I said, "Young man, you're in a
+- [55:14.079] new town. There's no

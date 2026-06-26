@@ -1,0 +1,92 @@
+<!-- source: https://www.youtube.com/watch?v=8bdy3uchN50 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 8bdy3uchN50 -->
+<!-- date_published: 2026-06-26T19:42:23+00:00 -->
+<!-- date_accessed: 2026-06-26T21:08:03.685754+00:00 -->
+
+# Transcript: President Trump Hosts Farmers at the Rose Garden
+
+- [00:00.240] My name is AJ Richards. I'm from Cody,
+- [00:02.320] Wyoming by way of St. George, Utah.
+- [00:04.560] >> Hey, I'm Kate Thornson. I'm a fourth
+- [00:06.319] generation apple and pear grower from
+- [00:07.919] very north central Washington.
+- [00:09.360] >> I'm a dairy farmer from southern
+- [00:11.280] Illinois.
+- [00:12.080] >> My family have been ranchers in southern
+- [00:13.920] Utah since six generations ago.
+- [00:16.880] >> I just want to thank President Trump for
+- [00:19.119] being a transparent president who is
+- [00:21.199] willing to listen to the challenges we
+- [00:23.439] face in the heartland in rural America.
+- [00:26.320] It's obvious the president in his
+- [00:28.320] previous administration has been very in
+- [00:30.800] tune to farmers and ranchers how
+- [00:33.200] important they are for the economy of
+- [00:34.960] this country and uh it has carried over
+- [00:37.360] into the second administration.
+- [00:39.120] >> You know being a woman in agriculture, a
+- [00:41.200] fourth generation farmer, I can say that
+- [00:43.520] women in agriculture wear many hats and
+- [00:46.320] I can't tell you how refreshing it is to
+- [00:48.719] be invited to the table.
+- [00:50.399] >> We have a saying in the west, graze it,
+- [00:52.559] log it or watch it burn. And in my home
+- [00:55.120] state of Utah right now, we're losing
+- [00:57.199] tens of thousands of acres to wildfires.
+- [01:00.160] And it's thanks to the president and
+- [01:01.600] fighting back against the ENOS that have
+- [01:03.840] captured our public land grazing for
+- [01:05.439] their special interests that our
+- [01:06.960] ranchers can get back to the land, start
+- [01:08.720] producing cattle, and rebuild our
+- [01:10.000] domestic herds. So, thank you, Mr.
+- [01:11.439] President. We're grateful for you.
+- [01:13.040] >> I want to say a huge thank you to
+- [01:14.320] Secretary Rollins and to President Trump
+- [01:16.400] for even including the next generation.
+- [01:18.479] The progress that has been made has
+- [01:20.320] truly impacted young farmers and really
+- [01:22.640] gives me a lot of hope. We're so
+- [01:24.320] grateful to President Trump and
+- [01:26.000] Secretary Rollins for the product of USA
+- [01:28.479] labeling, rolling back the death tax,
+- [01:30.880] the ability to write to repair, to work
+- [01:32.960] on our own equipment,
+- [01:34.240] >> and and I would like to thank personally
+- [01:36.000] thank President Trump. It's very obvious
+- [01:38.400] that he understands how important that
+- [01:41.520] farmers and ranchers are for the economy
+- [01:43.920] of this country and for the national
+- [01:45.600] security of this country.
+- [01:46.880] >> I think he's the first president in my
+- [01:48.560] lifetime that just constantly talks
+- [01:50.240] about farmers and cares what's happening
+- [01:52.399] on our farm. truly cares what's happens
+- [01:54.000] on our farms.
+- [01:54.880] >> We are very happy and excited to be at
+- [01:56.799] the Rose Garden having dinner tonight
+- [01:58.079] with President Trump and this
+- [01:59.200] administration and we can't thank him
+- [02:01.200] enough and this administration for all
+- [02:03.200] they're doing for agriculture,
+- [02:04.560] especially cutting a lot of the red tape
+- [02:06.079] that we we're not fans of. And what was
+- [02:08.319] your what was the thing you like
+- [02:09.520] >> and cutting the taxes
+- [02:11.360] >> tax relief?
+- [02:12.160] >> Tax relief for farmers. Yes.
+- [02:13.680] >> For farmers like our family to to be
+- [02:15.840] here today is very special. I served in
+- [02:17.520] the military uh deployed to Iraq. It's
+- [02:20.319] very special. celebrate America's 250th
+- [02:22.560] year to have the opportunity to be here
+- [02:24.160] with the great farmers and ranchers of
+- [02:25.599] our nation. I'm very humbled and I feel
+- [02:27.520] very blessed. So, thanks for having me.
+- [02:29.680] >> I don't want to over that's it's beyond
+- [02:32.160] cool to be here. Never been at a dinner
+- [02:34.160] like this at the Rose Garden. So, uh I
+- [02:36.720] am really truly blessed and humbled that
+- [02:39.519] to have the opportunity to be here.
