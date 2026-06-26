@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 9
+- Posts: 10
 
+- [12:43 UTC - Roger Marshall of Kansas is a GREAT Republican Senator who just plain GETS THE JOB DONE. T...](116816466651864171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116816466651864171
+  - Roger Marshall of Kansas is a GREAT Republican Senator who just plain GETS THE JOB DONE. Thank you Roger! President DJT
 - [03:19 UTC - Truth Social post 116814249441604202](116814249441604202/)
   - Source: https://truthsocial.com/@realDonaldTrump/116814249441604202
   - _No text content captured._
