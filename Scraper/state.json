@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=gTZBYTPaYlk: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=gTZBYTPaYlk! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=gTZBYTPaYlk&ei=a9c9atzdNvvM0_wPrIaEyQQ&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782462939&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=9E78C6614C68ABCAA1B982EC8CA4801DA7EDA2EF.391F2DD8E79D0933750A74A176B6FB727D91078F&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -118573,6 +118572,83 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116813755890271897",
       "url": "https://truthsocial.com/@realDonaldTrump/116813757947032364"
     },
+    "truthsocial:realdonaldtrump:116813941619435704": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.727157+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116813941619435704",
+      "platform": "truthsocial",
+      "post_id": "116813941619435704",
+      "published": "2026-06-26T02:01:34.731000+00:00",
+      "title": "Truth Social post 116813941619435704",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813941619435704"
+    },
+    "truthsocial:realdonaldtrump:116813942567060772": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.726875+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116813942567060772",
+      "platform": "truthsocial",
+      "post_id": "116813942567060772",
+      "published": "2026-06-26T02:01:49.192000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116813941619435704",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813942567060772"
+    },
+    "truthsocial:realdonaldtrump:116813945253003849": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.726479+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116813945253003849",
+      "platform": "truthsocial",
+      "post_id": "116813945253003849",
+      "published": "2026-06-26T02:02:30.171000+00:00",
+      "title": "Truth Social post 116813945253003849",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813945253003849"
+    },
+    "truthsocial:realdonaldtrump:116813945998972533": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.726196+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116813945998972533",
+      "platform": "truthsocial",
+      "post_id": "116813945998972533",
+      "published": "2026-06-26T02:02:41.552000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116813945253003849",
+      "url": "https://truthsocial.com/@realDonaldTrump/116813945998972533"
+    },
+    "truthsocial:realdonaldtrump:116814048560190114": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.725809+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116814048560190114",
+      "platform": "truthsocial",
+      "post_id": "116814048560190114",
+      "published": "2026-06-26T02:28:46.511000+00:00",
+      "title": "Truth Social post 116814048560190114",
+      "url": "https://truthsocial.com/@realDonaldTrump/116814048560190114"
+    },
+    "truthsocial:realdonaldtrump:116814051010230263": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.725488+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116814051010230263",
+      "platform": "truthsocial",
+      "post_id": "116814051010230263",
+      "published": "2026-06-26T02:29:23.904000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116814048560190114",
+      "url": "https://truthsocial.com/@realDonaldTrump/116814051010230263"
+    },
+    "truthsocial:realdonaldtrump:116814249441604202": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-26T05:54:56.724916+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/26/116814249441604202",
+      "platform": "truthsocial",
+      "post_id": "116814249441604202",
+      "published": "2026-06-26T03:19:51.720000+00:00",
+      "title": "Truth Social post 116814249441604202",
+      "url": "https://truthsocial.com/@realDonaldTrump/116814249441604202"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -162199,6 +162275,17 @@
       "title": "President Trump Participates in a Bilateral Meeting with the President of El Salvador",
       "url": "https://www.youtube.com/watch?v=A6iphPzEGtw"
     },
+    "youtube:whitehouse:A7NlvYO3GjE": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T05:55:22.984170+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/25/A7NlvYO3GjE",
+      "platform": "youtube",
+      "post_id": "A7NlvYO3GjE",
+      "published": "2026-06-25T22:22:13+00:00",
+      "title": "The Great American State Fair Kick-Off Celebration",
+      "url": "https://www.youtube.com/watch?v=A7NlvYO3GjE"
+    },
     "youtube:whitehouse:ADIYqCIUasg": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -171945,6 +172032,17 @@
       "title": "President Trump Delivers Remarks to the Department of War",
       "url": "https://www.youtube.com/watch?v=gKxWz8dyKfU"
     },
+    "youtube:whitehouse:gTZBYTPaYlk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T05:55:21.935630+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/26/gTZBYTPaYlk",
+      "platform": "youtube",
+      "post_id": "gTZBYTPaYlk",
+      "published": "2026-06-26T00:36:08+00:00",
+      "title": "President Trump Participates in a Rose Garden Club Dinner with American Farmers",
+      "url": "https://www.youtube.com/watch?v=gTZBYTPaYlk"
+    },
     "youtube:whitehouse:gUBfv9YqVmM": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -173649,6 +173747,17 @@
       "published": "2026-05-27T17:20:19+00:00",
       "title": "President Trump Participates in a Cabinet Meeting, May 27, 2026",
       "url": "https://www.youtube.com/watch?v=ln-FnwDYE4Y"
+    },
+    "youtube:whitehouse:lv4B21DLEPw": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-26T05:55:24.093994+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/25/lv4B21DLEPw",
+      "platform": "youtube",
+      "post_id": "lv4B21DLEPw",
+      "published": "2026-06-25T15:49:01+00:00",
+      "title": "CAUGHT ON VIDEO: Suspects vandalizing the Reflecting Pool",
+      "url": "https://www.youtube.com/shorts/lv4B21DLEPw"
     },
     "youtube:whitehouse:lwhSAK6E3Mg": {
       "account": "WhiteHouse",
