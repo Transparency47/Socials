@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 22
+- Posts: 23
 
+- [23:06 UTC - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Loui...](116818915365927435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116818915365927435
+  - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, has been from the very beginning, and only gets better! Julia is r...
 - [20:54 UTC - The U.S.A.’s New Passport, which says, “Welcome, but be good!” President DJT](116818397307589675/)
   - Source: https://truthsocial.com/@realDonaldTrump/116818397307589675
   - The U.S.A.’s New Passport, which says, “Welcome, but be good!” President DJT
