@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-26
 
-- Posts: 14
+- Posts: 17
 
+- [17:13 UTC - I will be speaking at 1:30 P.M. to The Faith and Freedom Coalition, and one of the Stateme...](116817526085394987/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817526085394987
+  - I will be speaking at 1:30 P.M. to The Faith and Freedom Coalition, and one of the Statements I will be making, perhaps the most important of them all, concerns the recent Election...
+- [16:32 UTC - The Fourth of July Airshow, over Washington, D.C., our Great Capital, will be the biggest,...](116817366986980714/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817366986980714
+  - The Fourth of July Airshow, over Washington, D.C., our Great Capital, will be the biggest, by far, in the History of the United States of America. Hundreds of Planes, of different...
+- [16:20 UTC - Numerous European Countries have been discussing the imminent implementation of a Digital ...](116817320899062447/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116817320899062447
+  - Numerous European Countries have been discussing the imminent implementation of a Digital Services Tax on American Companies. Some of these Countries are close to actually doing th...
 - [15:51 UTC - The Islamic Republic of Iran shot at least four One Way Attack Drones at Ships transversin...](116817203281419093/)
   - Source: https://truthsocial.com/@realDonaldTrump/116817203281419093
   - The Islamic Republic of Iran shot at least four One Way Attack Drones at Ships transversing the Strait of Hormuz. One of the Drones solidly hit the upper deck of a large and very e...
