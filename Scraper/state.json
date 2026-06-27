@@ -1,16 +1,16 @@
 {
   "last_errors": [
-    "X/DHSgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/EnvoyNoem: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/FBIDirectorKash: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/ICEgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/POTUS: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/PressSec: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/RapidResponse47: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/DHSgov: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/DHSgov",
+    "X/EnvoyNoem: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/EnvoyNoem",
+    "X/FBIDirectorKash: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/FBIDirectorKash",
+    "X/ICEgov: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/ICEgov",
+    "X/POTUS: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/POTUS",
+    "X/PressSec: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/PressSec",
+    "X/RapidResponse47: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RapidResponse47",
+    "X/RealDonaldTrump: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RealDonaldTrump",
+    "X/SecMullinDHS: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/SecMullinDHS",
+    "X/VP: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/VP",
+    "X/WhiteHouse: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/WhiteHouse"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
