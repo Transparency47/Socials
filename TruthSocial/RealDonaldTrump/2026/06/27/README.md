@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-27
 
-- Posts: 12
+- Posts: 15
 
+- [16:36 UTC - Truth Social post 116823044587153152](116823044587153152/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823044587153152
+  - _No text content captured._
+- [15:49 UTC - Truth Social post 116822860074991499](116822860074991499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116822860074991499
+  - _No text content captured._
+- [15:47 UTC - Truth Social post 116822850417536963](116822850417536963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116822850417536963
+  - _No text content captured._
 - [14:00 UTC - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https://...](116822431539992071/)
   - Source: https://truthsocial.com/@realDonaldTrump/116822431539992071
   - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https:// justthenews.com/politics-polic y/elections/reeling-democratic-establishment-suggests-poli...
