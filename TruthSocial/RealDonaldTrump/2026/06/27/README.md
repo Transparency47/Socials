@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-06-27
 
-- Posts: 20
+- Posts: 26
 
+- [23:13 UTC - United States aircraft just struck Iranian missile and drone storage locations, and coasta...](116824603632739697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824603632739697
+  - United States aircraft just struck Iranian missile and drone storage locations, and coastal radar sites, for violating the Cease Fire Agreement, AGAIN! It is very possible that the...
+- [23:00 UTC - Stephen Miller: Democratic Party has become a party of ‘violent extremists’ and revolution...](116824552466402728/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824552466402728
+  - Stephen Miller: Democratic Party has become a party of ‘violent extremists’ and revolutionaries: [https://www. foxnews.com/video/639890330211 2](https://www.foxnews.com/video/63989...
+- [22:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116824550355095950](116824551176646175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824551176646175
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116824550355095950
+- [22:59 UTC - Truth Social post 116824550355095950](116824550355095950/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824550355095950
+  - _No text content captured._
+- [22:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116824548028070621](116824549124473603/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824549124473603
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116824548028070621
+- [22:58 UTC - Truth Social post 116824548028070621](116824548028070621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116824548028070621
+  - _No text content captured._
 - [19:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116823758959638034](116823759809487754/)
   - Source: https://truthsocial.com/@realDonaldTrump/116823759809487754
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116823758959638034
