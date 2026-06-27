@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-06-27
 
-- Posts: 1
+- Posts: 10
 
+- [10:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd was incredible ...](116821508217428756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821508217428756
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd was incredible last night, packed to the brim — At least 45,000 people were there, with a huge Television...
+- [10:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Last night’s Rally was pa...](116821507353839242/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821507353839242
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Last night’s Rally was packed — 45,000 people. July 4th will be a step beyond anything you’ve ever seen. The Milita...
+- [10:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Communists are finall...](116821506408562584/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821506408562584
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Communists are finally making their move. I’ve been waiting and preparing for this for a long time. It’s easy t...
+- [10:04 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Other Polls have my Appro...](116821502243524187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821502243524187
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Other Polls have my Approval Rating at 65%, and more! Like Journalists, Honest Pollsters are very rare and hard to...
+- [10:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Numerous European Countri...](116821499250670683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821499250670683
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Numerous European Countries have been discussing the imminent implementation of a Digital Services Tax on American...
+- [10:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Fourth of July Airsho...](116821498466152909/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821498466152909
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Fourth of July Airshow, over Washington, D.C., our Great Capital, will be the biggest, by far, in the History o...
+- [10:03 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Good Evening from the Poo...](116821497039277613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821497039277613
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Good Evening from the Pool!
+- [10:02 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Good Morning from the Poo...](116821495184772843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821495184772843
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Good Morning from the Pool!
+- [09:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116818915365927435 LOUISIANA: V...](116821470056250616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116821470056250616
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116818915365927435 LOUISIANA: VOTE FOR JULIA TODAY!!! DJT
 - [01:14 UTC - John Bolton, a very dumb, unbalanced, and unskilled former representative of the United St...](116819418021640869/)
   - Source: https://truthsocial.com/@realDonaldTrump/116819418021640869
   - John Bolton, a very dumb, unbalanced, and unskilled former representative of the United States of America, just pleads guilty! He is a terrible person, a lunatic who only wanted to...
