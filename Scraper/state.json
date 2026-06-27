@@ -1,16 +1,16 @@
 {
   "last_errors": [
-    "X/DHSgov: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/DHSgov",
-    "X/EnvoyNoem: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/EnvoyNoem",
-    "X/FBIDirectorKash: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/FBIDirectorKash",
-    "X/ICEgov: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/ICEgov",
-    "X/POTUS: HTTPError: 503 Server Error: Service Unavailable for url: https://x.com/POTUS",
-    "X/PressSec: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/PressSec",
-    "X/RapidResponse47: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RapidResponse47",
-    "X/RealDonaldTrump: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/RealDonaldTrump",
-    "X/SecMullinDHS: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/SecMullinDHS",
-    "X/VP: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/VP",
-    "X/WhiteHouse: HTTPError: 500 Server Error: Internal Server Error for url: https://x.com/WhiteHouse"
+    "X/DHSgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/EnvoyNoem: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/FBIDirectorKash: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/ICEgov: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/POTUS: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/PressSec: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/RapidResponse47: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -118934,6 +118934,28 @@
       "published": "2026-06-27T10:05:51.853000+00:00",
       "title": "RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd was incredible ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116821508217428756"
+    },
+    "truthsocial:realdonaldtrump:116822415818781534": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-27T14:05:25.416484+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/27/116822415818781534",
+      "platform": "truthsocial",
+      "post_id": "116822415818781534",
+      "published": "2026-06-27T13:56:40.814000+00:00",
+      "title": "[https:// babylonbee.com/news/cubans-liv ing-in-nyc-begin-boarding-rafts-to-escape-communi...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116822415818781534"
+    },
+    "truthsocial:realdonaldtrump:116822431539992071": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-27T14:05:25.415987+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/27/116822431539992071",
+      "platform": "truthsocial",
+      "post_id": "116822431539992071",
+      "published": "2026-06-27T14:00:40.637000+00:00",
+      "title": "Reeling Democratic establishment accuses socialists of exploiting ballot access: [https://...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116822431539992071"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

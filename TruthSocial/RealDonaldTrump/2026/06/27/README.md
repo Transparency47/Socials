@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-27
 
-- Posts: 10
+- Posts: 12
 
+- [14:00 UTC - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https://...](116822431539992071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116822431539992071
+  - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https:// justthenews.com/politics-polic y/elections/reeling-democratic-establishment-suggests-poli...
+- [13:56 UTC - [https:// babylonbee.com/news/cubans-liv ing-in-nyc-begin-boarding-rafts-to-escape-communi...](116822415818781534/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116822415818781534
+  - [https:// babylonbee.com/news/cubans-liv ing-in-nyc-begin-boarding-rafts-to-escape-communism-again](https://babylonbee.com/news/cubans-living-in-nyc-begin-boarding-rafts-to-escape-...
 - [10:05 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd was incredible ...](116821508217428756/)
   - Source: https://truthsocial.com/@realDonaldTrump/116821508217428756
   - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd was incredible last night, packed to the brim — At least 45,000 people were there, with a huge Television...
