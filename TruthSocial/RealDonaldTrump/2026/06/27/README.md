@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-27
 
-- Posts: 15
+- Posts: 20
 
+- [19:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116823758959638034](116823759809487754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823759809487754
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116823758959638034
+- [19:38 UTC - Truth Social post 116823758959638034](116823758959638034/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823758959638034
+  - _No text content captured._
+- [19:35 UTC - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY Preside...](116823747941042256/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823747941042256
+  - MAGA Warrior Mike Mazzei is running for Governor in Oklahoma, where I was the ONLY President to win ALL 77 Counties in three straight Elections. Additionally, I won more votes than...
+- [19:34 UTC - I am very pleased to announce that I have nominated Lance Schroyer to be our next ICE Dire...](116823744965970219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823744965970219
+  - I am very pleased to announce that I have nominated Lance Schroyer to be our next ICE Director. Lance has over 29 YEARS of Law Enforcement experience in Oklahoma — A State where I...
+- [19:28 UTC - Truth Social post 116823721563001986](116823721563001986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116823721563001986
+  - _No text content captured._
 - [16:36 UTC - Truth Social post 116823044587153152](116823044587153152/)
   - Source: https://truthsocial.com/@realDonaldTrump/116823044587153152
   - _No text content captured._
