@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-28
 
-- Posts: 13
+- Posts: 17
 
+- [20:03 UTC - The FIFA Numbers are far greater than any World Cup in History. This is a Great Tribute to...](116829518714038986/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829518714038986
+  - The FIFA Numbers are far greater than any World Cup in History. This is a Great Tribute to the United States of America. Thank you to all! President DONALD J. TRUMP
+- [19:59 UTC - Communism is the Greatest Threat to our Country since World War I, World War II, Pearl Har...](116829505399993127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829505399993127
+  - Communism is the Greatest Threat to our Country since World War I, World War II, Pearl Harbor, or 9/11! President DONALD J. TRUMP
+- [19:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116829500559553610 Our Great Na...](116829502998078615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829502998078615
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116829500559553610 Our Great National Security Facility and Ballroom is moving along on schedule. When completed, there w...
+- [19:58 UTC - Truth Social post 116829500559553610](116829500559553610/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829500559553610
+  - _No text content captured._
 - [19:01 UTC - Janeese Lewis George, the Communist who is almost certainly going to be elected Mayor of W...](116829276650028561/)
   - Source: https://truthsocial.com/@realDonaldTrump/116829276650028561
   - Janeese Lewis George, the Communist who is almost certainly going to be elected Mayor of Washington, D.C., has stated that she wants to empty the prisons, make D.C. a Sanctuary Cit...
