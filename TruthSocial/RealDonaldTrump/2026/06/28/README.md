@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-06-28
 
-- Posts: 11
+- Posts: 13
 
+- [19:01 UTC - Janeese Lewis George, the Communist who is almost certainly going to be elected Mayor of W...](116829276650028561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829276650028561
+  - Janeese Lewis George, the Communist who is almost certainly going to be elected Mayor of Washington, D.C., has stated that she wants to empty the prisons, make D.C. a Sanctuary Cit...
+- [18:42 UTC - I just returned from a tour of various Statues, Monuments, Fountains and, most importantly...](116829203090822692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116829203090822692
+  - I just returned from a tour of various Statues, Monuments, Fountains and, most importantly, an old and run down Golf Course located throughout Washington, D.C., our Nation’s Capita...
 - [17:44 UTC - This is what happens to people who desecrate, or even think about desecrating, our Great M...](116828975314637303/)
   - Source: https://truthsocial.com/@realDonaldTrump/116828975314637303
   - This is what happens to people who desecrate, or even think about desecrating, our Great Monuments, Statues, or Fountains! [https://www. egattorneys.com/destroy-govt-p roperty](htt...
