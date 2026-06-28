@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-28
 
-- Posts: 10
+- Posts: 11
 
+- [17:44 UTC - This is what happens to people who desecrate, or even think about desecrating, our Great M...](116828975314637303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116828975314637303
+  - This is what happens to people who desecrate, or even think about desecrating, our Great Monuments, Statues, or Fountains! [https://www. egattorneys.com/destroy-govt-p roperty](htt...
 - [04:22 UTC - Based on a very quick and boring briefing concerning the Magot Hagerman book about me, it ...](116825821568797363/)
   - Source: https://truthsocial.com/@realDonaldTrump/116825821568797363
   - Based on a very quick and boring briefing concerning the Magot Hagerman book about me, it is mostly made up, Fake News, largely fiction, as have been most of the things she has wri...
