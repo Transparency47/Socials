@@ -10,7 +10,8 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=WnKs9GQvY0E: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=WnKs9GQvY0E! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=WnKs9GQvY0E&ei=yphBar-8LYeJkucPyY7p0AE&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782709050&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=32F9AF8AB2C2F418DF9F91EC5FB552505CD7FA60.02EC0E169DB6B7E4399AE6FDE519D99D6790CB38&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -9814,6 +9815,17 @@
       "published": "2026-06-28T16:00:41+00:00",
       "title": "Less than one week until America\u2019s 250th \ud83c\uddfa\ud83c\uddf8",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7656476801316769055"
+    },
+    "tiktok:whitehouse:7656557051753073933": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-28T21:57:26.179958+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/28/7656557051753073933",
+      "platform": "tiktok",
+      "post_id": "7656557051753073933",
+      "published": "2026-06-28T21:12:14+00:00",
+      "title": "Less than ONE WEEK until America\u2019s 250th \ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7656557051753073933"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
