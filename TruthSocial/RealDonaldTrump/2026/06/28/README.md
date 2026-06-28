@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-06-28
 
-- Posts: 1
+- Posts: 10
 
+- [04:22 UTC - Based on a very quick and boring briefing concerning the Magot Hagerman book about me, it ...](116825821568797363/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825821568797363
+  - Based on a very quick and boring briefing concerning the Magot Hagerman book about me, it is mostly made up, Fake News, largely fiction, as have been most of the things she has wri...
+- [03:55 UTC - Truth Social post 116825715189065070](116825715189065070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825715189065070
+  - _No text content captured._
+- [03:53 UTC - Mack to the future: Trump touts Iran deal energy boom that could boost trucking biz: [http...](116825706034291064/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825706034291064
+  - Mack to the future: Trump touts Iran deal energy boom that could boost trucking biz: [https:// justthenews.com/government/whi te-house/mack-future-trump-touts-tariffs-and-iran-deal...
+- [03:52 UTC - Supreme Court immigration rulings cement Trump as foremost border security guardian: [http...](116825704058472549/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825704058472549
+  - Supreme Court immigration rulings cement Trump as foremost border security guardian: [https:// justthenews.com/government/sec urity/friscotus-immigration-rulings-cement-trump-forem...
+- [03:52 UTC - Aloha, gun grabbers: Trump’s national carry push gets SCOTUS boost as Hawaii’s rule is kno...](116825702171921406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825702171921406
+  - Aloha, gun grabbers: Trump’s national carry push gets SCOTUS boost as Hawaii’s rule is knocked down: [https:// justthenews.com/government/whi te-house/aloha-gun-grabbers-trumps-nat...
+- [03:51 UTC - Treasury Secretary vows law-breaking leftist nonprofits to face prosecution, asset seizure...](116825700077983923/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825700077983923
+  - Treasury Secretary vows law-breaking leftist nonprofits to face prosecution, asset seizures: [https:// justthenews.com/accountability /political-ethics/treasury-secretary-vows-law-...
+- [03:51 UTC - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https://...](116825697576087695/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825697576087695
+  - Reeling Democratic establishment accuses socialists of exploiting ballot access: [https:// justthenews.com/politics-polic y/elections/reeling-democratic-establishment-suggests-poli...
+- [03:50 UTC - Trump’s election run continues as Letlow wins GOP runoff for Louisiana Senate seat: [https...](116825695114073072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825695114073072
+  - Trump’s election run continues as Letlow wins GOP runoff for Louisiana Senate seat: [https:// justthenews.com/politics-polic y/elections/trump-backed-letlow-facing-against-fleming-...
+- [02:06 UTC - Great News!!! Julia Letlow WON in Louisiana, beating conclusively a very strong and smart ...](116825287521580891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116825287521580891
+  - Great News!!! Julia Letlow WON in Louisiana, beating conclusively a very strong and smart opponent. Congratulations to Julia. She will be a truly GREAT Senator! President DONALD J....
 - [00:30 UTC - Truth Social post 116824908404922744](116824908404922744/)
   - Source: https://truthsocial.com/@realDonaldTrump/116824908404922744
   - _No text content captured._
