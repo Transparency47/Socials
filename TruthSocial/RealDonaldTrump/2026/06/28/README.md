@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-28
 
-- Posts: 17
+- Posts: 18
 
+- [23:42 UTC - Exclusive — Secretary Mullin at 100-Day Mark at DHS: ‘Deportations Are Way Up,’ 2026 Stats...](116830380441356766/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830380441356766
+  - Exclusive — Secretary Mullin at 100-Day Mark at DHS: ‘Deportations Are Way Up,’ 2026 Stats Set to Outpace ‘Well Past’ 2025 Numbers: [https://www. breitbart.com/politics/2026/06 /28...
 - [20:03 UTC - The FIFA Numbers are far greater than any World Cup in History. This is a Great Tribute to...](116829518714038986/)
   - Source: https://truthsocial.com/@realDonaldTrump/116829518714038986
   - The FIFA Numbers are far greater than any World Cup in History. This is a Great Tribute to the United States of America. Thank you to all! President DONALD J. TRUMP
