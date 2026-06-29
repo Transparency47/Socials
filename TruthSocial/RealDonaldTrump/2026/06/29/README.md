@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 9
+- Posts: 16
 
+- [13:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116833595973466644](116833596711045418/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833596711045418
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116833595973466644
+- [13:19 UTC - Truth Social post 116833595973466644](116833595973466644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833595973466644
+  - _No text content captured._
+- [11:31 UTC - IRAN HAS REQUESTED A MEETING. IT WILL TAKE PLACE TOMORROW IN DOHA! President DJT](116833168246538290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833168246538290
+  - IRAN HAS REQUESTED A MEETING. IT WILL TAKE PLACE TOMORROW IN DOHA! President DJT
+- [11:23 UTC - WTI CRUDE - $69, and heading down. This is less than it was prior to the start of the Denu...](116833138299035157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833138299035157
+  - WTI CRUDE - $69, and heading down. This is less than it was prior to the start of the Denuclearization of Iran! President DJT
+- [11:20 UTC - GAS PRICES COMING DOWN, FAST! REPORT ANY ABUSES AT RETAIL LEVEL!!! President DJT](116833127066912322/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833127066912322
+  - GAS PRICES COMING DOWN, FAST! REPORT ANY ABUSES AT RETAIL LEVEL!!! President DJT
+- [10:47 UTC - Highest Poll Numbers Ever. Even Higher than Election Day, November 5th. This despite the f...](116832995541119171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116832995541119171
+  - Highest Poll Numbers Ever. Even Higher than Election Day, November 5th. This despite the fact that, IRAN WILL NOT HAVE A NUCLEAR WEAPON!
+- [10:27 UTC - Do you think people appreciate what a fantastic job we did in building and operating the G...](116832918759686018/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116832918759686018
+  - Do you think people appreciate what a fantastic job we did in building and operating the Great American State Fair at the National Mall, packed with happy people, and everybody lov...
 - [02:46 UTC - Great painting!!  President DJT](116831104490275644/)
   - Source: https://truthsocial.com/@realDonaldTrump/116831104490275644
   - Great painting!!  President DJT
