@@ -10,8 +10,7 @@
     "X/RealDonaldTrump: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=WnKs9GQvY0E: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=WnKs9GQvY0E! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=WnKs9GQvY0E&ei=qbhBaofCNZWb2_gPqrXA-Q0&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782717209&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=B9C54C57ED360F7B5F0A5E2B071B24EF0B9CED07.DFE8C1B8F04021F917E9F4F8D64D37DED876684B&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle."
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -119376,6 +119375,83 @@
       "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830493710945459",
       "url": "https://truthsocial.com/@realDonaldTrump/116830494681072122"
     },
+    "truthsocial:realdonaldtrump:116830981377783021": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.508159+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116830981377783021",
+      "platform": "truthsocial",
+      "post_id": "116830981377783021",
+      "published": "2026-06-29T02:15:00.873000+00:00",
+      "title": "Truth Social post 116830981377783021",
+      "url": "https://truthsocial.com/@realDonaldTrump/116830981377783021"
+    },
+    "truthsocial:realdonaldtrump:116830982622038793": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.507967+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116830982622038793",
+      "platform": "truthsocial",
+      "post_id": "116830982622038793",
+      "published": "2026-06-29T02:15:19.887000+00:00",
+      "title": "RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830981377783021",
+      "url": "https://truthsocial.com/@realDonaldTrump/116830982622038793"
+    },
+    "truthsocial:realdonaldtrump:116830984569599019": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.507642+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116830984569599019",
+      "platform": "truthsocial",
+      "post_id": "116830984569599019",
+      "published": "2026-06-29T02:15:49.576000+00:00",
+      "title": "Truth Social post 116830984569599019",
+      "url": "https://truthsocial.com/@realDonaldTrump/116830984569599019"
+    },
+    "truthsocial:realdonaldtrump:116830985513952990": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.507453+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116830985513952990",
+      "platform": "truthsocial",
+      "post_id": "116830985513952990",
+      "published": "2026-06-29T02:16:03.987000+00:00",
+      "title": "Truth Social post 116830985513952990",
+      "url": "https://truthsocial.com/@realDonaldTrump/116830985513952990"
+    },
+    "truthsocial:realdonaldtrump:116830986161149807": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.507262+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116830986161149807",
+      "platform": "truthsocial",
+      "post_id": "116830986161149807",
+      "published": "2026-06-29T02:16:13.862000+00:00",
+      "title": "Truth Social post 116830986161149807",
+      "url": "https://truthsocial.com/@realDonaldTrump/116830986161149807"
+    },
+    "truthsocial:realdonaldtrump:116831103426109262": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.507044+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116831103426109262",
+      "platform": "truthsocial",
+      "post_id": "116831103426109262",
+      "published": "2026-06-29T02:46:03.183000+00:00",
+      "title": "Truth Social post 116831103426109262",
+      "url": "https://truthsocial.com/@realDonaldTrump/116831103426109262"
+    },
+    "truthsocial:realdonaldtrump:116831104490275644": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-29T04:59:30.506722+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/29/116831104490275644",
+      "platform": "truthsocial",
+      "post_id": "116831104490275644",
+      "published": "2026-06-29T02:46:19.422000+00:00",
+      "title": "Great painting!!\u00a0\u00a0President DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116831104490275644"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -169810,6 +169886,17 @@
       "published": "2025-10-26T00:35:00+00:00",
       "title": "MAGA Minute October 24",
       "url": "https://www.youtube.com/watch?v=WlYR101usSQ"
+    },
+    "youtube:whitehouse:WnKs9GQvY0E": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-29T04:59:49.848730+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/28/WnKs9GQvY0E",
+      "platform": "youtube",
+      "post_id": "WnKs9GQvY0E",
+      "published": "2026-06-28T21:33:53+00:00",
+      "title": "President Trump Speaks at the Faith & Freedom Coalition Conference",
+      "url": "https://www.youtube.com/watch?v=WnKs9GQvY0E"
     },
     "youtube:whitehouse:WtXHaYrhflk": {
       "account": "WhiteHouse",

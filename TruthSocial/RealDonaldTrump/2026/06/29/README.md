@@ -1,7 +1,28 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 2
+- Posts: 9
 
+- [02:46 UTC - Great painting!!  President DJT](116831104490275644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116831104490275644
+  - Great painting!!  President DJT
+- [02:46 UTC - Truth Social post 116831103426109262](116831103426109262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116831103426109262
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 116830986161149807](116830986161149807/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830986161149807
+  - _No text content captured._
+- [02:16 UTC - Truth Social post 116830985513952990](116830985513952990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830985513952990
+  - _No text content captured._
+- [02:15 UTC - Truth Social post 116830984569599019](116830984569599019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830984569599019
+  - _No text content captured._
+- [02:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830981377783021](116830982622038793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830982622038793
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830981377783021
+- [02:15 UTC - Truth Social post 116830981377783021](116830981377783021/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116830981377783021
+  - _No text content captured._
 - [00:11 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830493710945459](116830494681072122/)
   - Source: https://truthsocial.com/@realDonaldTrump/116830494681072122
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116830493710945459
