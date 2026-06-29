@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 21
+- Posts: 22
 
+- [18:40 UTC - Today’s Historic Slaughter Decision by the Supreme Court is the Greatest Increase in Presi...](116834854601794123/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116834854601794123
+  - Today’s Historic Slaughter Decision by the Supreme Court is the Greatest Increase in Presidential Power in the last 100 years. Such a Monumental Ruling at such an important time! P...
 - [15:24 UTC - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AN...](116834086981971752/)
   - Source: https://truthsocial.com/@realDonaldTrump/116834086981971752
   - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AND UNEQUIVOCALLY OVERRULED, greatly increasing Presidential Power at a time when it is most...
