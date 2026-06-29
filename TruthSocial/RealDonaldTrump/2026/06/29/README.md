@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 22
+- Posts: 23
 
+- [20:51 UTC - The Reflecting Pool, which suffered great damage due to the Vandals and Radical Left SCUM ...](116835372963831103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116835372963831103
+  - The Reflecting Pool, which suffered great damage due to the Vandals and Radical Left SCUM that hate our Country, has been, for the past two days, in full operation. It looks beauti...
 - [18:40 UTC - Today’s Historic Slaughter Decision by the Supreme Court is the Greatest Increase in Presi...](116834854601794123/)
   - Source: https://truthsocial.com/@realDonaldTrump/116834854601794123
   - Today’s Historic Slaughter Decision by the Supreme Court is the Greatest Increase in Presidential Power in the last 100 years. Such a Monumental Ruling at such an important time! P...
