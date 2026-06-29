@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 16
+- Posts: 21
 
+- [15:24 UTC - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AN...](116834086981971752/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116834086981971752
+  - To show the importance of the Slaughter Case, 90 years of precedent has been COMPLETELY AND UNEQUIVOCALLY OVERRULED, greatly increasing Presidential Power at a time when it is most...
+- [15:23 UTC - The Cook Lawsuit, having to do with her suitability in sitting on the Board of the Federal...](116834083672690020/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116834083672690020
+  - The Cook Lawsuit, having to do with her suitability in sitting on the Board of the Federal Reserve, was sent back by the Supreme Court on a strictly procedural basis, we will take...
+- [15:16 UTC - Surprisingly, the Supreme Court declined to “review” a Fake Case brought against me by a w...](116834055569312013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116834055569312013
+  - Surprisingly, the Supreme Court declined to “review” a Fake Case brought against me by a woman I never met (Decades old celebrity photo line, standing with her husband, does not co...
+- [15:03 UTC - In light of the tremendous loss in the Supreme Court today concerning Voter’s Rights, and ...](116834002761429397/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116834002761429397
+  - In light of the tremendous loss in the Supreme Court today concerning Voter’s Rights, and the fact that “people’s” votes are allowed to be counted LONG AFTER an Election is over, i...
+- [14:51 UTC - BIG WIN just moments ago at the Supreme Court, in the Slaughter Case, confirming President...](116833954690924756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116833954690924756
+  - BIG WIN just moments ago at the Supreme Court, in the Slaughter Case, confirming Presidential Power in our Country to remove Executive Branch Officers and Agency Appointees, or Rep...
 - [13:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116833595973466644](116833596711045418/)
   - Source: https://truthsocial.com/@realDonaldTrump/116833596711045418
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116833595973466644
