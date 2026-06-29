@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 23
+- Posts: 24
 
+- [22:51 UTC - It is my Great Honor to announce that I am nominating Keith E. Sonderling, the outstanding...](116835841525431179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116835841525431179
+  - It is my Great Honor to announce that I am nominating Keith E. Sonderling, the outstanding Acting United States Secretary of Labor, to be permanent. Keith previously served as Depu...
 - [20:51 UTC - The Reflecting Pool, which suffered great damage due to the Vandals and Radical Left SCUM ...](116835372963831103/)
   - Source: https://truthsocial.com/@realDonaldTrump/116835372963831103
   - The Reflecting Pool, which suffered great damage due to the Vandals and Radical Left SCUM that hate our Country, has been, for the past two days, in full operation. It looks beauti...
