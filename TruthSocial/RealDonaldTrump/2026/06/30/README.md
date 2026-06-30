@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 21
+- Posts: 25
 
+- [22:59 UTC - Truth Social post 116841537124349537](116841537124349537/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841537124349537
+  - _No text content captured._
+- [22:10 UTC - Since September, my Council of Economic Advisers has been led by the very highly respected...](116841344198975517/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841344198975517
+  - Since September, my Council of Economic Advisers has been led by the very highly respected Professor Pierre Yared, of Columbia University, as he and his team of “Brainiacs” at the...
+- [22:09 UTC - I am pleased to announce that the Great State of Louisiana has been approved to be given $...](116841340114529127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841340114529127
+  - I am pleased to announce that the Great State of Louisiana has been approved to be given $8.6 Million Dollars in its Disaster Declaration Request. Louisiana is truly a special plac...
+- [22:08 UTC - I just spoke with Congressman Tom Tiffany (who has my Complete and Total Endorsement for G...](116841336987145523/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841336987145523
+  - I just spoke with Congressman Tom Tiffany (who has my Complete and Total Endorsement for Governor!), and informed him that the Great State of Wisconsin has been approved to be give...
 - [21:39 UTC - BIG NEWS! For the first time ever, the Republican Party will hold a MIDTERM CONVENTION. It...](116841220861327348/)
   - Source: https://truthsocial.com/@realDonaldTrump/116841220861327348
   - BIG NEWS! For the first time ever, the Republican Party will hold a MIDTERM CONVENTION. It will be in Dallas, Texas — One of my favorite places in the World. It will be fantastic!...
