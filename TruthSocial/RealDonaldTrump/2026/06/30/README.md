@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 8
+- Posts: 14
 
+- [17:30 UTC - I would like to congratulate President Xi, and the Great Country of China, on their massiv...](116840243627255640/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840243627255640
+  - I would like to congratulate President Xi, and the Great Country of China, on their massive Birthright Citizenship WIN! President DONALD J. TRUMP
+- [17:24 UTC - Congressman Gabe Evans is an America First Patriot who is doing a fantastic job representi...](116840218534572591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840218534572591
+  - Congressman Gabe Evans is an America First Patriot who is doing a fantastic job representing Colorado’s 8th Congressional District! A decorated Army Helicopter Pilot and former Pol...
+- [17:23 UTC - Congressman Jeff Crank is doing a truly fantastic job representing the Great People of Col...](116840217466948975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840217466948975
+  - Congressman Jeff Crank is doing a truly fantastic job representing the Great People of Colorado’s 5th Congressional District! Jeff is a Fierce Advocate for our America First Agenda...
+- [17:23 UTC - Congressman Jeff Hurd is an incredible Representative for the Great People of Colorado’s 3...](116840216226791835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840216226791835
+  - Congressman Jeff Hurd is an incredible Representative for the Great People of Colorado’s 3rd Congressional District! Jeff has a strong Record of SUCCESS, and resounding support fro...
+- [16:45 UTC - The biggest and most consequential Decision issued by the Court, by far, is the Slaughter ...](116840065501020055/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840065501020055
+  - The biggest and most consequential Decision issued by the Court, by far, is the Slaughter Case, which overturned the very famous Humphrey’s Executor Rule. This whole concept of “Po...
+- [16:23 UTC - The Supreme Court upheld Birthright Citizenship, which is too bad for our Country, but we ...](116839981384247632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116839981384247632
+  - The Supreme Court upheld Birthright Citizenship, which is too bad for our Country, but we can easily make it up in Congress through Legislation, with the support of the President,...
 - [14:56 UTC - The Supreme Court just took restrictions off political spending! A BIG WIN FOR REPUBLICANS...](116839637737375696/)
   - Source: https://truthsocial.com/@realDonaldTrump/116839637737375696
   - The Supreme Court just took restrictions off political spending! A BIG WIN FOR REPUBLICANS and, more importantly, The First Amendment! President DONALD J. TRUMP
