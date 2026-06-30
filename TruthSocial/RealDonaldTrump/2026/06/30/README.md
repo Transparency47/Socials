@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 5
+- Posts: 8
 
+- [14:56 UTC - The Supreme Court just took restrictions off political spending! A BIG WIN FOR REPUBLICANS...](116839637737375696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116839637737375696
+  - The Supreme Court just took restrictions off political spending! A BIG WIN FOR REPUBLICANS and, more importantly, The First Amendment! President DONALD J. TRUMP
+- [14:46 UTC - BIG WIN: The United States Supreme Court just RULED AGAINST MEN PLAYING IN WOMEN’S SPORTS....](116839596876971289/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116839596876971289
+  - BIG WIN: The United States Supreme Court just RULED AGAINST MEN PLAYING IN WOMEN’S SPORTS. Wow! That takes that ridiculous situation off the table!!! President DONALD J. TRUMP
+- [13:31 UTC - Trump’s efforts to reverse birthright citizenship may succeed with or without SCOTUS: [htt...](116839303401655480/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116839303401655480
+  - Trump’s efforts to reverse birthright citizenship may succeed with or without SCOTUS: [https:// justthenews.com/government/whi te-house/trumps-efforts-reverse-birthright-citizenshi...
 - [01:26 UTC - I am pleased to announce the nomination of Jason Manion to the United States Sentencing Co...](116836451044750555/)
   - Source: https://truthsocial.com/@realDonaldTrump/116836451044750555
   - I am pleased to announce the nomination of Jason Manion to the United States Sentencing Commission. Jason is General Counsel and Senior Advisor to the White House Task Force to Eli...
