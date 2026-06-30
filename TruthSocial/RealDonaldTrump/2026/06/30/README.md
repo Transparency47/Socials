@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 14
+- Posts: 15
 
+- [19:30 UTC - “FREE TINA!” became the rallying cry of the Republican Party over the past two years. Tina...](116840714775652406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840714775652406
+  - “FREE TINA!” became the rallying cry of the Republican Party over the past two years. Tina Peters just came to the White House to thank me for getting her released from prison in C...
 - [17:30 UTC - I would like to congratulate President Xi, and the Great Country of China, on their massiv...](116840243627255640/)
   - Source: https://truthsocial.com/@realDonaldTrump/116840243627255640
   - I would like to congratulate President Xi, and the Great Country of China, on their massive Birthright Citizenship WIN! President DONALD J. TRUMP
