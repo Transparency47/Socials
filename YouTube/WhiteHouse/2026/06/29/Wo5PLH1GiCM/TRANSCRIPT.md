@@ -1,0 +1,119 @@
+<!-- source: https://www.youtube.com/watch?v=Wo5PLH1GiCM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Wo5PLH1GiCM -->
+<!-- date_published: 2026-06-29T21:24:11+00:00 -->
+<!-- date_accessed: 2026-06-30T11:41:05.935829+00:00 -->
+
+# Transcript: Road to Liberty: Articles Of Confederation
+
+- [00:01.200] This painting symbolizes a country's
+- [00:03.720] foundation. A quiet room, [music] clean
+- [00:06.440] signatures, steady resolve, total unity,
+- [00:10.760] promises of liberty.
+- [00:12.800] This is the signing of the United States
+- [00:15.000] Constitution. [music]
+- [00:20.000] But from where I stood,
+- [00:23.840] promises [music] were already being
+- [00:25.280] broken.
+- [00:28.080] And a debt was owed.
+- [00:32.750] >> [music]
+- [00:38.400] >> This clause, here, must be revised.
+- [00:41.320] >> They started drafting it in '76.
+- [00:44.400] >> Let us agree to this historic measure.
+- [00:46.680] >> Congress approved it in '77.
+- [00:49.680] Then began signing in '78. [music]
+- [00:52.360] But it didn't officially go into effect
+- [00:55.080] until '81.
+- [00:56.840] >> It is finished.
+- [00:58.000] >> And for a moment, we felt we might have
+- [01:01.580] [music] a nation.
+- [01:03.160] But even as it was being written, the
+- [01:05.360] weakness was already there.
+- [01:08.800] At Trenton, we marched, broke, pay
+- [01:11.920] missing, terms expiring, bellies empty.
+- [01:16.440] >> I propose that [music] this resolution
+- [01:19.440] be adopted.
+- [01:20.600] >> Congress could pass resolutions, but it
+- [01:22.760] couldn't collect a single [music]
+- [01:24.760] dollar to back them.
+- [01:27.840] So we crossed on promises,
+- [01:30.320] not pay.
+- [01:32.120] Then, Valley Forge.
+- [01:34.800] Winter didn't just test our commitment,
+- [01:37.080] it exposed a weakness.
+- [01:39.960] No proper clothes, not enough bread, and
+- [01:43.360] the army froze while waiting for
+- [01:45.520] Congress to act.
+- [01:47.880] The articles were built from fear.
+- [01:50.720] >> We must grant Congress the power to tax,
+- [01:52.661] [music] gentlemen.
+- [01:53.360] >> Absolutely not.
+- [01:55.000] >> Fear that a strong government would grow
+- [01:56.840] into a new tyrant. So, they kept the
+- [01:59.120] strength with the states. Congress tried
+- [02:01.720] to cobble together a semblance of
+- [02:03.680] government, but they couldn't even pay
+- [02:05.600] their own debts.
+- [02:07.160] We'd beaten Britain at Yorktown, [music]
+- [02:09.320] yet still we shivered like we'd lost.
+- [02:12.600] The fighting ceased. The bill came due.
+- [02:16.800] Congress pleaded. States hesitated.
+- [02:21.520] >> Payment isn't coming.
+- [02:24.160] We're being called to confer
+- [02:26.520] in private.
+- [02:27.840] >> And the army, my men, who bled for
+- [02:31.320] freedom, discovered that gratitude alone
+- [02:34.240] doesn't feed your family.
+- [02:36.680] Washington didn't write the articles,
+- [02:38.511] [music]
+- [02:39.080] but he lived with their consequences.
+- [02:43.160] >> Gentlemen,
+- [02:43.751] >> [music]
+- [02:44.000] >> the decisions we make now will determine
+- [02:46.400] our future.
+- [02:47.640] >> We did not bleed for this nation only to
+- [02:49.560] be cast aside when it is convenient.
+- [02:51.800] >> That winter, the talk [music] turned
+- [02:53.600] dangerous. If Congress wouldn't act,
+- [02:56.680] maybe the army must. We'd collect the
+- [02:59.080] debts by force. [music]
+- [03:01.200] >> We must march on Congress to secure our
+- [03:03.840] dues.
+- [03:16.920] >> An attempt has been made to convene you
+- [03:19.280] together.
+- [03:22.360] >> How inconsistent with the rules of
+- [03:24.320] propriety. [music]
+- [03:26.280] How un-military.
+- [03:29.200] I expected him to punish us.
+- [03:32.360] Charge us with treason.
+- [03:34.560] Instead, he
+- [03:36.000] spoke with the steady resolve of a man
+- [03:38.200] who had seen and overcome greater
+- [03:41.200] hardships.
+- [03:44.280] >> Gentlemen,
+- [03:45.760] you will permit me to to put on my
+- [03:47.160] spectacles.
+- [03:50.360] For I have not only grown gray,
+- [03:52.920] but almost [music] blind in the service
+- [03:54.760] of my country.
+- [03:56.440] >> That was all we needed to hear, and
+- [03:59.040] suddenly our fury felt small. And then
+- [04:03.320] he did the unthinkable. What victorious
+- [04:05.627] [music]
+- [04:06.160] commanders almost never do.
+- [04:09.080] >> Having now finished the work assigned
+- [04:11.280] me,
+- [04:12.360] I retire from the great theater of
+- [04:15.000] action.
+- [04:16.239] >> He humbly handed back power.
+- [04:19.239] He retired at the end of the war to
+- [04:20.920] return to [music] his farm. In that
+- [04:22.880] moment I realized an army could seize
+- [04:25.919] anything except legitimacy.
+- [04:29.600] We'd beaten a tyrant. Now we had to
+- [04:32.760] decide what or who could replace him
+- [04:35.800] without becoming him. Because the next
+- [04:38.520] fight wasn't on a battlefield.
+- [04:41.280] It was over the kind of country we'd
+- [04:43.600] become.

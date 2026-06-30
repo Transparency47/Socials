@@ -1,0 +1,431 @@
+<!-- source: https://www.youtube.com/watch?v=oDzq7mNCK0Q -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: oDzq7mNCK0Q -->
+<!-- date_published: 2026-06-29T19:41:21+00:00 -->
+<!-- date_accessed: 2026-06-30T11:41:07.295653+00:00 -->
+
+# Transcript: President Trump Signs Executive Orders, Jun. 29, 2026
+
+- [00:04.360] Hello.
+- [00:07.960] Guys, you all ready?
+- [00:09.760] Let's go get them.
+- [00:12.120] Thank you very much. We have a big
+- [00:13.400] ruling that we're just issuing now. It's
+- [00:16.600] a uh
+- [00:17.760] I think it's very important. Going to
+- [00:19.720] lower the price of your car. It's going
+- [00:21.880] to lower the price of fixing your car.
+- [00:24.880] Uh has to do with uh affordability. Has
+- [00:27.840] to do with a lot of things. You know,
+- [00:29.080] oil prices are way down.
+- [00:31.120] Uh we hit $69 today. It was higher than
+- [00:33.960] that prior to the denuclearization of
+- [00:36.160] Iran
+- [00:37.400] uh fight that we have.
+- [00:39.360] Which we're doing very well. There'll be
+- [00:40.680] a meeting on that tomorrow in
+- [00:43.000] Doha.
+- [00:44.560] And uh
+- [00:46.400] they're going to Qatar. They're I think
+- [00:47.880] they've already left or they're just
+- [00:49.040] about getting ready to leave. So, we'll
+- [00:50.800] see how that goes. But we're doing very
+- [00:52.320] well on that front. But the uh
+- [00:55.440] uh meeting in Doha is going to be uh
+- [01:00.160] perhaps important, perhaps not. We're
+- [01:01.840] going to find out. But we're winning
+- [01:04.400] militarily. It's almost won militarily,
+- [01:07.560] I would say.
+- [01:08.920] Uh
+- [01:09.480] and it's really very simple. It's the
+- [01:11.040] denuclearization of Iran. We don't want
+- [01:13.520] them to have a nuclear weapon, and
+- [01:15.000] they're not going to have a nuclear
+- [01:15.920] weapon. They've agreed to that in all
+- [01:17.280] fairness.
+- [01:18.520] Uh this is something that's uh
+- [01:21.280] very exciting to me.
+- [01:22.880] And if you bring the bill, and I'm going
+- [01:24.280] to let uh
+- [01:25.520] Lee explain exactly what it means, but
+- [01:27.760] it means a lot to
+- [01:29.440] uh people that own vehicles, uh
+- [01:31.840] cars in particular, but cars and
+- [01:33.760] anything else.
+- [01:35.240] Uh it's going to save them a lot of
+- [01:36.360] money, and they're going to be able to
+- [01:37.640] do it themselves. Please.
+- [01:39.280] >> Mr. President, this is a presidential
+- [01:41.160] memo to the Environmental Protection
+- [01:43.560] Agency, a presidential memo supporting
+- [01:46.080] the freedom to fix. Americans have the
+- [01:48.560] freedom to fix their vehicle. President
+- [01:51.120] Trump insists upon it. Uh we are not
+- [01:53.560] going to be going after people who are
+- [01:55.760] fixing their own vehicle, like past
+- [01:58.360] administrations have. Uh additionally,
+- [02:00.760] we we bring the term President Trump has
+- [02:02.520] been concerned about after market parts,
+- [02:04.280] cheap knockoff after market parts coming
+- [02:07.040] into the United States, harming small
+- [02:09.000] businesses, harming Americans. This
+- [02:11.560] presidential memo puts an end to it.
+- [02:13.680] Also, the only third-party certification
+- [02:16.200] for these after market parts, it's CARB
+- [02:18.360] in California, a process that's
+- [02:20.320] backlogged and faulty. So, we're going
+- [02:22.800] to break that monopoly, and no longer
+- [02:25.400] will CARB be the only third-party
+- [02:27.360] certifier for these after market parts.
+- [02:29.840] Uh again, President Trump is insisting
+- [02:31.680] on fixing it. This presidential memo
+- [02:33.200] does that. President Trump was calling
+- [02:35.200] me up on a Saturday night when this idea
+- [02:37.280] first came to his head, and he says he
+- [02:39.120] wants to do a press conference right
+- [02:40.440] away uh to get this over the top. In
+- [02:43.040] February, February 2nd, we signed a
+- [02:44.720] right to repair for our farmers, so they
+- [02:47.320] can repair their tractors and their
+- [02:49.000] non-road equipment, and this is covering
+- [02:51.280] everyone else.
+- [02:52.440] >> I mean, think about it. They It came to
+- [02:54.400] my attention because I noticed they were
+- [02:56.160] arresting people for fixing their car.
+- [02:58.959] They were arresting people for fixing
+- [03:01.200] That's not even believable.
+- [03:03.160] Anyway, so it's right to fix, and uh I
+- [03:06.480] think it's it's really common sense. If
+- [03:09.519] somebody wants to fix Some of these
+- [03:11.160] people are better mechanics than the
+- [03:12.480] mechanics in the shop.
+- [03:14.480] They're telling the mechanic in the shop
+- [03:16.000] how to fix their car or their truck. We
+- [03:18.239] signed a truck one
+- [03:19.840] a little while ago. So, I'm going to
+- [03:21.560] sign this, and I'll be happy about it.
+- [03:26.200] We rule by common sense to a large
+- [03:28.000] extent.
+- [03:34.320] All right, lady. Good job. Thank you.
+- [03:37.160] >> Thank you, sir.
+- [03:39.480] >> Okay.
+- [03:42.400] Can you imagine that? They want to put
+- [03:44.320] you in jail if you fix your car.
+- [03:46.959] Thank you, man.
+- [03:48.360] Uh you have any questions?
+- [03:49.680] >> Mr. Mr.
+- [03:51.000] what
+- [03:51.800] do you make of the Supreme Court ruling
+- [03:53.520] today in regards to the mail-in ballots
+- [03:55.720] and what comes next for the Save Act
+- [03:57.480] after today's ruling?
+- [03:58.680] >> Well, because of the mail-in ballot
+- [04:01.000] ruling, which was a little bit
+- [04:02.680] surprising, gives people
+- [04:05.200] more time to vote illegally, let's say.
+- [04:08.160] But the Save Act is even more important
+- [04:10.760] and that's the uh right. Do you have to
+- [04:12.959] be a a citizen of our country? Okay, you
+- [04:15.920] have to show you're a citizen of our
+- [04:17.200] country, called citizenship. Uh
+- [04:19.760] voter ID by photo, photo voter ID.
+- [04:23.360] And no mail-in ballots unless you're in
+- [04:25.720] the military, disabled, you're ill or
+- [04:28.120] you're away or even on a vacation. We're
+- [04:30.080] being very open about it. It's pretty
+- [04:32.880] easy.
+- [04:34.120] And we'll have honest elections. But the
+- [04:37.400] ruling, which a lot of people were
+- [04:38.720] waiting for, that was a ruling that was
+- [04:41.480] I I think it was very detrimental to
+- [04:43.640] honest elections.
+- [04:45.680] But it is what it is. Basically, they're
+- [04:47.240] keeping it a little bit the way it is
+- [04:48.600] now. They may have a little bit of a
+- [04:50.400] restriction on based on the ruling.
+- [04:54.160] And then you have the
+- [04:56.440] the very important one, the Slaughter
+- [04:58.360] case, which we'll talk about if you ask
+- [04:59.840] that question, but the
+- [05:03.000] parliamentarian
+- [05:04.720] What were you asking about
+- [05:05.680] parliamentarian?
+- [05:06.240] >> you talked with Thune about
+- [05:07.919] >> I have. No, I can't imagine why you'd
+- [05:09.560] keep a woman that was put there by Harry
+- [05:11.320] Reid and Barack Hussein I cannot
+- [05:13.880] understand it.
+- [05:15.240] Uh
+- [05:16.840] The leader has the right to fire the
+- [05:18.120] person at will and put Somebody else
+- [05:20.520] there that could be cuz we get so many
+- [05:22.840] negative rulings from her.
+- [05:25.080] The parliamentarian. She's been there
+- [05:26.440] for years.
+- [05:27.840] And she was put there by Harry Reid and
+- [05:30.360] Barack Hussein Obama.
+- [05:32.240] Harry Reid was a bad guy.
+- [05:34.600] And he was the leader and he put her.
+- [05:36.919] And the speaker has the right to
+- [05:38.040] immediately fire her and put somebody
+- [05:39.600] else there. And like it's it's not even
+- [05:41.120] believable that she's still there.
+- [05:43.280] She's obviously a good politician or or
+- [05:45.880] >> Mr. President, a question on the
+- [05:47.040] Slaughter case. The Supreme Court just
+- [05:48.640] affirmed your right to fire the heads of
+- [05:50.480] independent agencies. Should we expect
+- [05:52.520] more firings of as a result of this
+- [05:54.600] ruling?
+- [05:54.920] >> I don't think so. It gives me the right
+- [05:56.400] and not me, it gives a president the
+- [05:58.800] right to do what the president should
+- [06:00.320] have the right to do. And
+- [06:02.120] it's very interesting, it's a big ruling
+- [06:03.840] it's been going on for almost a hundred
+- [06:05.800] years.
+- [06:07.040] They've been working on this and you
+- [06:08.960] know that it comes down at my term as a
+- [06:10.840] very great honor.
+- [06:12.480] But it bestows additional powers or
+- [06:15.240] maybe the same power on the president.
+- [06:16.840] The president has the right to do this.
+- [06:19.000] And that has to do with a lot of
+- [06:20.040] agencies all throughout the system.
+- [06:23.200] So it was it's considered, you know, the
+- [06:25.440] biggest of the group. And I can
+- [06:27.720] understand that this has been going on
+- [06:29.440] for almost a hundred years they've been
+- [06:31.280] waiting for this
+- [06:32.720] decision. Yes.
+- [06:33.760] >> Mr. President, you were posting about
+- [06:35.280] how important it is to get the Save
+- [06:36.360] America Act passed. Who do you see as
+- [06:38.640] the biggest hurdle to getting this
+- [06:40.440] across the finish line?
+- [06:41.520] >> Well, it's held up in the Senate.
+- [06:43.840] And frankly, if you terminated the
+- [06:45.960] filibuster, you just need 50 votes and
+- [06:47.760] we have 53.
+- [06:49.600] And then you have JD.
+- [06:51.280] So
+- [06:53.680] the Democrats are going to terminate the
+- [06:55.160] filibuster, but
+- [06:57.160] if you
+- [06:58.560] did reconciliation, you could do it with
+- [07:00.680] 50 votes. I mean, the best would be to
+- [07:02.440] terminate the filibuster, but for some
+- [07:04.000] reason, but you have the same basic
+- [07:05.320] people.
+- [07:06.840] But even Rand Paul is in favor of the
+- [07:08.919] Save America Act if you can believe it.
+- [07:10.640] Think of it, Rand Paul
+- [07:12.720] is strongly in favor. He's fighting for
+- [07:14.440] it.
+- [07:15.440] So that's good news, but you would have
+- [07:19.160] Lisa Murkowski always against things
+- [07:22.760] like this.
+- [07:24.160] Nobody knows why. I think I know why.
+- [07:26.560] But you have Lisa Murkowski, you have
+- [07:28.120] Susan Collins.
+- [07:29.720] You have
+- [07:32.360] Tillis
+- [07:33.520] is against and he's not in office
+- [07:35.120] because he easily holds me, you know, he
+- [07:37.040] because I wouldn't endorse him.
+- [07:39.040] I think you have Senator Cassidy against
+- [07:41.640] it, too.
+- [07:42.800] >> I think he supports it at this time.
+- [07:43.960] >> think you have Mitch McConnell against
+- [07:45.240] it, too.
+- [07:46.320] Mitch McConnell, who's very disloyal to
+- [07:48.640] John Thune. You know, John Thune was a
+- [07:50.440] very
+- [07:51.680] good person for him. I mean, he was a
+- [07:53.160] very loyal person, and Mitch McConnell's
+- [07:55.160] against him
+- [07:56.960] almost all the time because he's
+- [08:00.320] angry, I guess. Probably at me.
+- [08:02.920] >> Mr. President,
+- [08:03.720] >> Yeah, please.
+- [08:04.120] >> what about Democrats, Mr. President? Are
+- [08:05.480] there any you could think you could
+- [08:06.520] change their minds?
+- [08:07.760] >> you do it, too. I mean, we you'll
+- [08:09.160] probably get one Democrat who's you
+- [08:11.040] know, a common-sense Democrat, you know
+- [08:12.880] who that is.
+- [08:14.520] And
+- [08:16.680] everybody should vote for this. This is
+- [08:20.080] the Save America Act. Voter ID
+- [08:23.800] with photo, ideally.
+- [08:25.680] But voter ID, proof of citizenship, and
+- [08:29.120] no mail-in ballots, which is
+- [08:31.960] to my way of thinking, maybe the most
+- [08:33.320] important of all because it's so
+- [08:34.719] corrupt.
+- [08:36.120] But you have exceptions. If you're away,
+- [08:38.640] uh exceptions for the military
+- [08:41.360] that deployed,
+- [08:43.200] uh exceptions, illness, disability. You
+- [08:45.880] have exceptions, strong exceptions.
+- [08:48.400] But the cheating on the ballots, the
+- [08:50.080] mail-in ballots. Jimmy Carter said it a
+- [08:51.560] long time ago. He said, "You can't have
+- [08:52.839] mail-in ballots." He headed up a
+- [08:54.640] committee with Scoop Jackson and others,
+- [08:57.480] all respected. And he actually I think
+- [08:59.520] it was Jimmy Carter's finest moment, not
+- [09:02.120] not during president,
+- [09:03.920] uh but he headed up a committee, and he
+- [09:06.320] said he came out with a strong
+- [09:07.680] conclusion that if you do mail-in
+- [09:09.800] ballots, there's going to be cheating.
+- [09:11.400] France gave it up. We're the only
+- [09:13.080] country in the world that does this type
+- [09:14.680] of mail-in ballot. There's no other
+- [09:16.520] country in the world. Do you know why?
+- [09:18.040] They tried it, and it was totally
+- [09:19.440] dishonest.
+- [09:21.000] And it's really dishonest, so
+- [09:23.680] we shouldn't do mail-in ballots.
+- [09:25.760] So, it's not too much to ask for voter
+- [09:27.440] ID, proof of citizenship, and no mail-in
+- [09:31.000] ballots, and you'll have honest
+- [09:32.440] elections.
+- [09:33.520] >> What are your plans for the housing
+- [09:34.839] bill, Mr. President? Are you
+- [09:35.960] >> I don't know. I think it's so
+- [09:40.120] unimportant by compared to by compared
+- [09:42.320] to the Save America Act. I think the the
+- [09:44.400] Save America Act is exactly what it
+- [09:46.760] says. It's saving America from crooked
+- [09:48.560] elections.
+- [09:49.800] And the housing bill is a bill that can
+- [09:51.680] get approved. They worked on it long and
+- [09:53.400] hard. It's very
+- [09:55.800] bipartisan.
+- [09:57.280] That means the Democrats like it.
+- [09:59.640] I think it's
+- [10:00.960] maybe even
+- [10:03.080] uh
+- [10:04.640] It's It's probably maybe more that way
+- [10:07.080] they're getting things that I wouldn't
+- [10:08.160] necessarily agree to. Nobody knows more
+- [10:11.000] than housing in the history of the
+- [10:12.160] presidency. Nobody Nobody did well like
+- [10:14.440] me in housing.
+- [10:16.160] >> Mr. President, are you worried
+- [10:18.120] >> I made a lot of money. I made a lot of
+- [10:20.000] money with housing.
+- [10:21.560] Uh but when I look at that bill
+- [10:25.200] it's a bill.
+- [10:26.520] But when I look at the Save America Act,
+- [10:28.480] it's about saving America.
+- [10:30.560] And I'd like to have the Save America
+- [10:32.080] Act added, and that's probably not going
+- [10:33.720] to happen.
+- [10:34.960] Cuz we have four Republican senators,
+- [10:36.920] maybe five, that
+- [10:38.960] just won't vote for it. It's crazy.
+- [10:42.080] Somebody like Lisa Murkowski
+- [10:44.760] from Alaska. Uh nobody's done more for
+- [10:46.640] Alaska than me.
+- [10:48.160] She's a
+- [10:49.800] Trump deranged. What can I tell you?
+- [10:52.360] But those four or five people that I
+- [10:54.960] mentioned
+- [10:56.560] should vote. How do you vote against
+- [10:58.440] Save America? How do you vote against
+- [11:00.040] it? How do you vote against voter
+- [11:01.839] identification or proof of citizenship?
+- [11:05.000] The only people that would vote against
+- [11:06.920] that are people that are going to cheat
+- [11:08.680] in an election. The Democrats need it
+- [11:11.839] because their policy is so bad. They
+- [11:13.280] want open borders. They want high taxes.
+- [11:16.360] They want terrible
+- [11:17.960] medical every anything medical.
+- [11:20.520] I'm the one that did favored nations.
+- [11:22.120] I'm I'm reducing drug prices by
+- [11:24.760] 200, 300, 400%. Nobody even talks about
+- [11:28.000] that. The news doesn't talk about it.
+- [11:30.360] The Democrats are opposed to it. If they
+- [11:32.360] get into they'll put it back. Your drug
+- [11:34.160] prices are going to go up by
+- [11:36.640] 200, 300, 400, 500%. You know that.
+- [11:39.600] >> But will you sign that housing bill?
+- [11:41.160] >> I I I have not It hasn't been sent to me
+- [11:43.520] yet. It's coming, I understand, and then
+- [11:45.400] I'll make Then I'll make a
+- [11:47.400] Here's what I would like to sign, much
+- [11:49.600] more than a bill that big deal. It's a
+- [11:52.120] yawn.
+- [11:53.600] Some people say it's wonderful.
+- [11:55.480] Uh
+- [11:56.240] to me, compared to the Save America Act,
+- [12:00.120] just about everything is a big yawn.
+- [12:03.440] >> And Mr. President, what are your
+- [12:04.840] thoughts on birthright citizenship?
+- [12:06.040] Birthright citizenship is next. What are
+- [12:07.960] your thoughts on birthright citizenship?
+- [12:09.760] What are your thoughts and will you
+- [12:10.760] accept it if the rules against you?
+- [12:12.880] >> Well, I guess I have to accept it. It's
+- [12:14.160] the Supreme Court, so I'll accept. I
+- [12:15.600] think it's very bad for our nation.
+- [12:17.040] We're the only nation that does it.
+- [12:19.720] No other nation does that birthright
+- [12:22.200] citizenship. No, it's not even close.
+- [12:25.040] Some did it, they ended it. It's
+- [12:26.560] tremendously destructive. It's extremely
+- [12:29.280] costly.
+- [12:31.080] I don't know. It's up to them, but in
+- [12:33.200] terms of for the good of the country,
+- [12:34.560] it'd be great if
+- [12:36.320] they did the They didn't allow it. It
+- [12:38.600] would be great, but I can't tell you. Uh
+- [12:42.320] the Slaughter case was the big case
+- [12:43.839] today. That was really a big case
+- [12:45.240] because it gave
+- [12:46.839] strength to presidents and strength to
+- [12:49.040] the presidency, a very important case.
+- [12:51.720] It's been going on for almost 100 years,
+- [12:53.280] think of that, and this was the ruling
+- [12:55.440] that
+- [12:56.480] that really topped everything by a lot
+- [12:58.240] today, yeah.
+- [12:59.040] >> Mr. President, Bernie Sanders said in an
+- [13:01.040] interview this week that he was open to
+- [13:03.640] being the poster child for socialist
+- [13:05.560] candidates. Are you worried about more
+- [13:07.320] socialist candidates across the
+- [13:08.520] >> Well, I think it's a big threat to our
+- [13:09.760] nation, actually.
+- [13:11.720] Because it's not socialism, it's really
+- [13:13.280] communism.
+- [13:14.720] They use the word social democrat cuz it
+- [13:16.600] sounds so nice, but
+- [13:18.640] it's really communism you're talking
+- [13:20.280] about. I think it's the biggest threat
+- [13:21.760] to our nation
+- [13:24.160] there is, maybe since our founding.
+- [13:26.960] That includes World War II, World War
+- [13:29.120] II, September 11th. It includes
+- [13:32.600] the Pearl Harbor attack.
+- [13:35.600] I think this is the biggest threat
+- [13:38.200] to our nation. People will smile when I
+- [13:39.800] say that, but the smart people are going
+- [13:41.800] to say, "You know, he's probably right."
+- [13:43.920] It's basically introducing communism
+- [13:46.400] into the United States of America.
+- [13:48.040] There's never been anything so
+- [13:49.120] dangerous. Thank you very much,
+- [13:50.600] everybody. Thank you.
+- [13:51.440] >> you all. Thank you for your time. Thank
+- [13:52.800] you guys. Thank you all. Thank you so
+- [13:54.600] much. Thank you guys.
+- [13:56.600] Thank you guys. Thank you. Thank you.
+- [13:58.680] >> That's okay. That's okay.
+- [14:00.080] Peace.
