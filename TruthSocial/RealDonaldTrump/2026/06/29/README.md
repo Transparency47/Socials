@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-29
 
-- Posts: 24
+- Posts: 25
 
+- [23:39 UTC - Gasoline Retailers must get their Prices down, IMMEDIATELY! They’re too high considering t...](116836032463779667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116836032463779667
+  - Gasoline Retailers must get their Prices down, IMMEDIATELY! They’re too high considering that Oil is now at $68 a Barrel, and heading south. The Retailers must quickly react to thi...
 - [22:51 UTC - It is my Great Honor to announce that I am nominating Keith E. Sonderling, the outstanding...](116835841525431179/)
   - Source: https://truthsocial.com/@realDonaldTrump/116835841525431179
   - It is my Great Honor to announce that I am nominating Keith E. Sonderling, the outstanding Acting United States Secretary of Labor, to be permanent. Keith previously served as Depu...
