@@ -1,7 +1,25 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 15
+- Posts: 21
 
+- [21:39 UTC - BIG NEWS! For the first time ever, the Republican Party will hold a MIDTERM CONVENTION. It...](116841220861327348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841220861327348
+  - BIG NEWS! For the first time ever, the Republican Party will hold a MIDTERM CONVENTION. It will be in Dallas, Texas — One of my favorite places in the World. It will be fantastic!...
+- [21:37 UTC - I just spoke with Governor Mike Kehoe, and informed him that the Great State of Missouri h...](116841214962249646/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841214962249646
+  - I just spoke with Governor Mike Kehoe, and informed him that the Great State of Missouri has been approved to be given $27.6 Million Dollars in its Disaster Declaration Request for...
+- [21:36 UTC - I just spoke with Governor Brad Little (who has my Complete and Total Endorsement for Re-E...](116841212458527385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841212458527385
+  - I just spoke with Governor Brad Little (who has my Complete and Total Endorsement for Re-Election!), and informed him that the Great State of Idaho has been approved to be given $4...
+- [21:20 UTC - I just spoke with Governor Tate Reeves, and informed him that the Great State of Mississip...](116841146009754730/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841146009754730
+  - I just spoke with Governor Tate Reeves, and informed him that the Great State of Mississippi has been approved to be given $11 Million Dollars in its Disaster Declaration Request f...
+- [21:09 UTC - I just spoke with Senator Roger Marshall, and informed him that the Great State of Kansas ...](116841104752414661/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841104752414661
+  - I just spoke with Senator Roger Marshall, and informed him that the Great State of Kansas has been approved to be given $5.5 Million Dollars in its Disaster Declaration Request for...
+- [20:42 UTC - I am pleased to announce that the Great State of Florida has been approved to be given $41...](116840999457825464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116840999457825464
+  - I am pleased to announce that the Great State of Florida has been approved to be given $415.9 Million Dollars in its Disaster Declaration Request. Much of it is going to one of my...
 - [19:30 UTC - “FREE TINA!” became the rallying cry of the Republican Party over the past two years. Tina...](116840714775652406/)
   - Source: https://truthsocial.com/@realDonaldTrump/116840714775652406
   - “FREE TINA!” became the rallying cry of the Republican Party over the past two years. Tina Peters just came to the White House to thank me for getting her released from prison in C...
