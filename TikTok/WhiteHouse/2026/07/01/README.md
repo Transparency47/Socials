@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-01
 
-- Posts: 1
+- Posts: 2
 
+- [14:41 UTC - IT’S JULY 🇺🇸🦅 Time to lock in.](7657569574174379278/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7657569574174379278
+  - IT’S JULY 🇺🇸🦅 Time to lock in.
 - [01:57 UTC - THIS is the World Cup in America 🦅](7657372758136950030/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7657372758136950030
   - THIS is the World Cup in America 🦅

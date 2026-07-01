@@ -1,0 +1,584 @@
+<!-- source: https://www.youtube.com/watch?v=RdqfduXaewM -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: RdqfduXaewM -->
+<!-- date_published: 2026-07-01T16:03:22+00:00 -->
+<!-- date_accessed: 2026-07-01T16:41:36.991608+00:00 -->
+
+# Transcript: Vice President Vance Delivers Remarks at Naval Air Station Oceana in Virginia Beach, VA
+
+- [00:23.119] sitting in a Batman
+- [00:26.560] with the I was pounding high
+- [00:31.679] school boo on the west side of people
+- [00:36.320] doing wrong.
+- [00:38.719] Yes, I got a call man
+- [00:43.840] song
+- [00:48.879] baby.
+- [00:50.719] My temperature just started to rise.
+- [00:55.600] She was alone in
+- [00:59.199] the fin.
+- [01:22.799] Thank you. Thank you. Wow.
+- [01:25.439] It's amazing to be here. You know what
+- [01:27.040] I'm thinking as I'm coming down the
+- [01:28.320] steps is don't fall and bust your ass in
+- [01:32.240] front of all of you and in front of all
+- [01:33.920] these cameras because they would never
+- [01:35.920] let me live that one down. You know the
+- [01:38.640] previous president. I'm trying to be
+- [01:40.880] nonpartisan. You ever seen these old
+- [01:42.880] cartoons where you've got the angel on
+- [01:44.799] the shoulder and the devil on the
+- [01:46.240] shoulder? Well, because I'm speaking to
+- [01:48.159] all of you, our great patriots and
+- [01:50.399] service members, I've got the angel on
+- [01:52.960] my shoulder saying, JD, don't be
+- [01:55.439] partisan. We're going to make this
+- [01:56.799] nonpartisan. And then I've got the devil
+- [01:58.320] on my shoulder who wants to talk about
+- [01:59.920] every time that Joe Biden fell up or
+- [02:02.079] down the stairs. And the media didn't
+- [02:04.479] care about that. But if I did it one
+- [02:06.240] time, if I did it one time, it would be
+- [02:08.399] a major major story. But let me just say
+- [02:11.440] to all of you, first of all, I'm so
+- [02:14.080] proud of you and I'm grateful to be here
+- [02:16.239] and I can't think of any better group of
+- [02:19.280] people to spend this week before
+- [02:21.760] America's 250th birthday. Give it up,
+- [02:24.959] ladies and gentlemen. It's an honor to
+- [02:26.959] be here with you.
+- [02:36.959] Now, NA Naval Air Station Oceaniana is
+- [02:39.760] of course one of the proudest military
+- [02:42.000] installations we have and one of the
+- [02:44.480] great parts of American military
+- [02:47.280] history. And I know that we've got
+- [02:48.879] obviously sailors, we've got Marines, I
+- [02:51.920] believe we have representatives from
+- [02:53.440] every single one of our six branches of
+- [02:56.800] the armed forces. And I just want to
+- [02:59.120] tell you from the president of the
+- [03:00.800] United States and the entire cabinet, we
+- [03:03.200] are proud of you guys. You guys have
+- [03:05.680] done more in the last 18 months. The
+- [03:08.319] president of the United States has asked
+- [03:10.480] you to do more than I think any group of
+- [03:13.760] service members has ever been asked to
+- [03:15.920] do. And yet, you've done it. Every
+- [03:18.480] single time you've answered the call,
+- [03:20.720] every single time we've given you a
+- [03:22.720] mission, you have accomplish it with
+- [03:24.800] pride and vigor. Ladies and gentlemen,
+- [03:27.920] you are what make America great, and you
+- [03:31.280] should be celebrating our 250th birthday
+- [03:34.000] better than anybody in the United States
+- [03:36.000] of America, cuz you've earned it. I want
+- [03:39.040] to give a shout out to a couple of
+- [03:40.720] people before I get into uh to the meat
+- [03:42.720] of our remarks here. First of all, you
+- [03:45.280] guys are all active duty service
+- [03:47.680] members, so you're most worried in the
+- [03:49.280] cabinet about our great secretary of
+- [03:51.440] war, Pete Hexip. But all of you will
+- [03:54.080] eventually hit a point where you need
+- [03:56.239] the help or you rely on the services of
+- [03:58.640] our great Secretary of Veteran Affairs,
+- [04:00.799] Doug Collins. Doug, give it up for Doug.
+- [04:03.120] He's doing a great job at the VA.
+- [04:12.319] I also want to give a special note of
+- [04:14.159] gratitude to Jen Kiggins, one of the
+- [04:16.880] great congressman, congresswoman in the
+- [04:19.519] entire United States Congress. somebody
+- [04:21.840] who comes to work every single day and
+- [04:24.320] fights for you. And I just learned this
+- [04:26.000] on the airplane over here. But you know,
+- [04:28.320] Jen, the last place that she served as
+- [04:31.520] an active duty service member was right
+- [04:33.759] here at Naval Air Station Oceanana. So,
+- [04:36.240] Jen, thank you for being a rock star for
+- [04:38.400] our veterans. Thank you for being a rock
+- [04:40.240] star for our troops. Thank you for
+- [04:42.080] fighting for them because, ladies and
+- [04:43.600] gentlemen, you fight for us every single
+- [04:45.280] day.
+- [04:54.320] And finally, as much as every single one
+- [04:56.240] of you have served and done an amazing
+- [04:58.400] job, I want to give a special shout out.
+- [05:00.320] A little bit late, but I want to give a
+- [05:02.320] special shout out to the members of
+- [05:05.120] Carrier Airwing 8. Where is Carrier
+- [05:07.440] Airwing 8? Where are you guys at?
+- [05:10.800] Got some of you all around.
+- [05:15.759] So, this wing let just finished came
+- [05:19.199] home in May from a historic 11month
+- [05:22.320] deployment. The wing logged nearly
+- [05:24.639] 12,000 launches across the deployment
+- [05:27.600] and over 5,500 flight hours in support
+- [05:31.199] of Operation Epic Fury alone. All of the
+- [05:35.120] great things that we've accomplished,
+- [05:37.120] you guys are the reason that we've been
+- [05:38.960] able to accomplish it. So, thank you and
+- [05:41.199] welcome home. A little bit late, but
+- [05:42.960] welcome home. We're proud to have you
+- [05:44.320] guys back.
+- [05:53.919] So, I mentioned that we are not just in
+- [05:56.560] a proud Naval Air Station, but we're
+- [05:58.479] also centered in one of the proudest
+- [06:02.479] geographies of military history in the
+- [06:05.039] United States of America. Just as I
+- [06:08.319] understand it, a few miles away, General
+- [06:11.199] George Washington the day after we won
+- [06:14.319] at Yorktown
+- [06:16.319] commissioned a religious service to give
+- [06:19.120] thanks to Almighty God. And at that
+- [06:22.080] service, he said something. He he asked
+- [06:25.199] everybody to show gratitude of heart.
+- [06:29.199] Gratitude of heart for our young and
+- [06:31.120] fledgling nation. gratitude of heart
+- [06:33.520] that we were able to win a military
+- [06:35.600] victory against the longest odds, the
+- [06:38.319] most powerful empire in the history of
+- [06:40.319] the world. But I think that gratitude of
+- [06:42.720] heart is so much a part of what we do
+- [06:47.039] and what we fight for in the United
+- [06:49.280] States military. When I think about
+- [06:51.919] gratitude of heart, I'm of course most
+- [06:54.400] grateful for all of you that we have the
+- [06:57.520] best people, the best of us from every
+- [06:59.680] walk of life, from every geography in
+- [07:01.840] the United States of America who are
+- [07:03.919] willing to put on the uniform of this
+- [07:06.080] country and serve to create that
+- [07:09.120] protective blanket. When we talk about
+- [07:12.080] the Declaration of Independence that
+- [07:14.000] protects life and liberty and the
+- [07:16.319] pursuit of happiness, it is your
+- [07:18.560] protective blanket that guarantees the
+- [07:20.880] life of every single one of our
+- [07:22.479] citizens. It is your dedication that
+- [07:25.520] ensures the liberty of every single one
+- [07:27.840] of our citizens. And it would be
+- [07:29.520] impossible for our fellow Americans to
+- [07:31.680] pursue happiness were it what not for
+- [07:34.000] the hard work, the dedication, the
+- [07:36.479] sacrifice, and yes, sometimes the
+- [07:39.440] ultimate sacrifice provided by the
+- [07:41.680] people who wear the uniform. I know
+- [07:44.639] because I of course was an enlisted
+- [07:46.800] Marine for 4 years that sometimes you
+- [07:49.599] get into this mode where you're thinking
+- [07:51.599] about the day-to-day of the job. You're
+- [07:53.280] thinking about the task that you got to
+- [07:55.039] accomplish. you're thinking about how do
+- [07:57.039] I make sure that the sergeant or the
+- [07:59.919] gunnery sergeant or the second
+- [08:01.599] lieutenant who's in charge of me doesn't
+- [08:03.199] chew my ass today.
+- [08:05.599] But remember that when you're going to
+- [08:07.599] work every single day, even though it is
+- [08:09.840] routine to you, it is not routine to
+- [08:12.879] your fellow citizens who know that they
+- [08:15.599] would not have their life, their
+- [08:18.400] liberty, or their ability to pursue
+- [08:20.400] happiness were it not for the sacrifices
+- [08:22.720] of you. Now, I have had this job for all
+- [08:25.520] of 18 months. And the thing that I know,
+- [08:28.240] the thing that I see every single day is
+- [08:30.879] that part of the reason why we in our
+- [08:33.760] political leadership are able to do what
+- [08:35.839] we do is because the world over, bad
+- [08:39.360] guys and good guys, friends and foes,
+- [08:42.640] allies and enemies are afraid of you.
+- [08:46.000] They know that if we ask, you guys will
+- [08:49.360] go and make the impossible possible.
+- [08:51.600] They know that when we demand that a bad
+- [08:55.360] guy does something, if they say no, you
+- [08:58.480] are the ones who are going to enforce
+- [08:59.839] that demand. And that is an amazing
+- [09:02.240] thing. And it's why we have the great
+- [09:04.240] nation that we have today. So what I'd
+- [09:06.800] ask for you as we all get ready to
+- [09:08.399] celebrate America's 250th birthday is
+- [09:11.680] have that gratitude of heart that
+- [09:13.519] General Washington talked about almost
+- [09:15.920] 250 years ago. Grateful for yourselves,
+- [09:19.519] grateful for the men and women to your
+- [09:21.440] left and right, and grateful to the
+- [09:23.680] nation that makes it possible for every
+- [09:26.640] American to pursue their dreams and to
+- [09:29.839] pursue the American dream in whatever
+- [09:31.839] the way that they ultimately decide.
+- [09:35.360] Now, here's what I want to talk about
+- [09:37.680] next. I want to talk about what we owe
+- [09:39.680] to you. You know, when I was uh when I
+- [09:42.880] was in the Marine Corps, I spent four
+- [09:44.480] years from 03 to '07 in the United
+- [09:46.880] States Marine Corps. And I'll I'll say
+- [09:48.320] this to the the other Marines. There are
+- [09:50.399] a lot of reasons why I wanted this job,
+- [09:53.120] but one of the reasons why I wanted this
+- [09:55.200] job is because it's pretty cool to have
+- [09:57.839] the common of the Marine Corps have to
+- [09:59.760] salute a member of the E4 mafia.
+- [10:02.959] That's pretty cool. Call it call it an
+- [10:05.680] ego thing, but I I I left the Marine
+- [10:08.240] Corps as an E4, as a corporal of
+- [10:10.240] Marines. And some of the proudest things
+- [10:13.040] that I ever did, I did in the Marine
+- [10:14.640] Corps. And some of the best friends that
+- [10:16.000] I've ever made were in the Marine Corps
+- [10:18.160] with Marines, with sailors, with all the
+- [10:20.240] people that I served with and had the
+- [10:22.160] pleasure to get to know. But one of the
+- [10:25.279] things I learned in the United States
+- [10:27.040] Marine Corps serving from 03 to07 is
+- [10:30.320] that we sometimes had leaders who would
+- [10:32.959] ask you all to go to war but would not
+- [10:36.000] give you a clear mission on the other
+- [10:38.800] end. And one of the reasons why I'm
+- [10:41.040] proudest of what the president of the
+- [10:42.880] United States has done over these last
+- [10:45.120] 18 months is because when he has asked
+- [10:48.320] you to go to war, he has given you a
+- [10:50.959] defined mission. He's asked you to go
+- [10:53.360] and accomplish it. And most importantly,
+- [10:55.839] he's given you the tools to kick the
+- [10:58.079] hell out of the enemy and to come home
+- [11:00.480] safely. That is what you should expect
+- [11:02.880] of me, of our great secretary of war, of
+- [11:06.160] the president of the United States. You
+- [11:08.959] put on the uniform. You offered a
+- [11:11.279] sacrifice ultimately for the benefit of
+- [11:14.640] this nation. But what you should demand
+- [11:17.279] in return is that when we ask you to go
+- [11:19.920] and do something, we tell you exactly
+- [11:22.720] what we want you to accomplish. That is
+- [11:26.079] what this administration has promised
+- [11:28.399] and that is what this administration has
+- [11:31.200] delivered on. Cuz when I think about
+- [11:33.680] what happened when I was a young Marine
+- [11:36.000] in ' 03 to '07 is we had a lot of people
+- [11:39.040] who were asking our military to do the
+- [11:41.200] impossible, but they weren't giving them
+- [11:44.000] clearly defined missions and clearly
+- [11:46.240] defined objectives. To the members of
+- [11:49.120] the Airwing that just came home in May,
+- [11:52.000] what did the president of the United
+- [11:53.120] States ask you to do? Something very
+- [11:55.440] discreet and very specific. Number one,
+- [11:58.079] he asked you to ensure that we destroyed
+- [12:01.360] Iran's conventional military. And as we
+- [12:04.079] sit here today, their navy is at the
+- [12:06.560] bottom of the ocean and they have no
+- [12:08.560] ability to project power like they did
+- [12:10.560] even 12 months ago. What else did he ask
+- [12:13.440] you to do? He asked you to destroy their
+- [12:15.920] nuclear program. And now, and trust me,
+- [12:18.639] I know because I look at the
+- [12:20.000] intelligence estimates. If you look at
+- [12:22.320] what our own intelligence says about
+- [12:24.480] their nuclear program, they are further
+- [12:26.800] away from developing a nuclear bomb than
+- [12:29.279] they have ever been since basically the
+- [12:33.040] last 20 or 30 years. And that is because
+- [12:36.000] of you and because of your hard work.
+- [12:38.959] And finally, what the president asks you
+- [12:41.440] to accomplish is to destroy the defense
+- [12:44.800] industrial base of that country so that
+- [12:47.200] if they ever decided to rebuild their
+- [12:49.360] military or if they ever decided to
+- [12:51.360] rebuild that nuclear program, they would
+- [12:53.920] be hardpressed to do it. And you did
+- [12:56.639] that exactly as well. But today, as I
+- [13:00.320] sit here, there are people in this
+- [13:03.440] country who want you to just keep going
+- [13:06.959] and keep going and attack the president
+- [13:09.120] of the United States for using the
+- [13:11.839] leverage that you gave him to engage in
+- [13:14.800] negotiation.
+- [13:16.480] And why do we engage in negotiation?
+- [13:18.560] Because of you. It's not out of
+- [13:20.480] weakness, but it's out of strength. And
+- [13:23.519] again, I go back to that time that I
+- [13:25.360] served in the United States military
+- [13:27.040] from 03 to07.
+- [13:29.360] We made a lot of mistakes back then. We
+- [13:31.760] did a lot of stupid things back then.
+- [13:33.600] You performed aly, but your political
+- [13:36.160] leadership did not. And what I remember
+- [13:39.279] about that time is that number one,
+- [13:42.480] there were people who learned all the
+- [13:44.320] wrong lessons from that moment in
+- [13:46.160] history. There were people who learned
+- [13:48.240] the lesson that we could never use the
+- [13:50.560] military again.
+- [13:52.720] But that's not the right lesson because
+- [13:54.800] the military isn't who screwed up in
+- [13:56.880] 2003 and 2007. It was the political
+- [14:00.000] leadership that screwed up. So that was
+- [14:02.160] the wrong lesson to learn. There were
+- [14:03.680] also people who learned a different
+- [14:05.680] lesson, an equally wrong lesson. That
+- [14:08.399] the solution to the problems that we had
+- [14:10.880] in the early 2000s was to ask you to do
+- [14:14.079] more and more and more and more without
+- [14:17.839] giving you a clearly defined objective.
+- [14:20.639] Ladies and gentlemen, I think that you
+- [14:22.880] deserve to have a clearly defined
+- [14:25.199] objective. I think you deserve to have a
+- [14:27.519] president of the United States who
+- [14:29.120] believes in you and gives you the
+- [14:30.959] weapons to win. And I believe that you
+- [14:33.680] have a presidential leadership today
+- [14:36.639] that will never ask you to go to war
+- [14:39.120] unless he's telling you why you're going
+- [14:41.120] to war. And most importantly, when he
+- [14:43.839] sends you to war, he gives you the tools
+- [14:46.320] you need to kick the hell out of the
+- [14:48.480] enemy and come home safely. That's what
+- [14:50.480] you deserve.
+- [15:01.120] And I and I look at the uh American
+- [15:03.360] media these days and I hear people who
+- [15:05.440] are attacking the president of the
+- [15:06.959] United States for negotiating
+- [15:09.360] even though the president is negotiating
+- [15:11.519] from a position of strength because of
+- [15:13.279] you. He's negotiating from a position
+- [15:16.079] where Iran's nuclear program has been
+- [15:18.240] destroyed and their conventional
+- [15:19.920] military has been destroyed too. And
+- [15:22.480] what I notice about the people who are
+- [15:25.120] attacking the administration for
+- [15:27.839] negotiating is that they're the very
+- [15:30.240] same people who, for example, encouraged
+- [15:32.880] us to just go a little bit further and
+- [15:35.839] just drop a few more bombs in places
+- [15:37.920] like Afghanistan. But again, if you go
+- [15:41.120] back to the mistakes that were made,
+- [15:42.800] those very same people, they refused to
+- [15:47.120] say, "What were we dropping bombs for?"
+- [15:50.399] Now, the president of the United States
+- [15:51.680] maintains a lot of options today in
+- [15:53.440] 2026. But if he ever asked you to go and
+- [15:56.560] drop bombs, it's going to be for
+- [15:58.720] something specific to accomplish
+- [16:00.639] something that matters to the American
+- [16:02.560] people. We dropped some bombs a couple
+- [16:04.639] of days ago. You know why? Because the
+- [16:06.720] Iranians were shooting at commercial
+- [16:08.240] ships. So, we dropped some bombs, we
+- [16:10.560] applied some leverage, and we've had
+- [16:12.639] free commercial transit for the last 3
+- [16:15.040] days. If the Iranians try to rebuild the
+- [16:17.519] nuclear program, the president's got
+- [16:19.600] options again because of you. If the
+- [16:22.000] Iranians try to threaten their neighbors
+- [16:24.160] or fund terrorism, we've got options
+- [16:26.560] again because of you. But what we must
+- [16:29.360] never do is drop bombs just for the sake
+- [16:32.240] of dropping bombs. And that is what the
+- [16:34.560] president will never ask you to do.
+- [16:36.560] He'll ask you to go to war, yes, but
+- [16:38.880] when he asks you to go to war, he'll
+- [16:40.720] tell you exactly what you're going for.
+- [16:43.040] And I think that is what you should
+- [16:45.040] expect out of your political leadership.
+- [16:47.759] You should expect something else, too.
+- [16:49.519] And this is where I get into the great
+- [16:51.040] work of Jen Kiggins and Doug Collins.
+- [16:55.120] You know, I one of the most formative
+- [16:57.199] experiences of my entire life was after
+- [16:59.519] I got out of the Marine Corps and I was
+- [17:01.759] a law school student and I worked on the
+- [17:04.959] veterans legal clinic helping veterans
+- [17:07.360] deal with some of their legal
+- [17:08.559] challenges.
+- [17:10.079] And we actually represented the Vietnam
+- [17:12.799] Veterans of America. And a lot of you
+- [17:15.600] are maybe too young to appreciate this,
+- [17:18.160] but the Vietnam Veterans of America
+- [17:20.799] experienced one of the most shameful
+- [17:23.120] periods in the history of the United
+- [17:25.199] States of America. They came home, many
+- [17:28.000] of them, not to fanfare, not to flag
+- [17:30.799] waving, not to a grateful nation. They
+- [17:33.440] came home to people who spit on them,
+- [17:35.760] who attacked them, and criticized them
+- [17:39.039] simply because they did the job the
+- [17:41.120] political leadership asked them to do.
+- [17:44.320] Now, I go back to what General
+- [17:46.400] Washington said about gratitude of
+- [17:48.080] heart. And when I sat down with these
+- [17:51.200] Vietnam veterans, these people who had
+- [17:53.360] quite literally been spit on by their
+- [17:55.919] fellow citizens for doing the job
+- [17:58.000] Washington asked them to do. Do you know
+- [18:00.480] what they had? They didn't have
+- [18:01.679] resentment. They didn't have hatred.
+- [18:04.320] They didn't have anger. They had a
+- [18:06.400] simple motto that never again would
+- [18:10.080] America do to a generation of veterans
+- [18:12.480] what happened to the veterans from
+- [18:13.919] Vietnam. It was an amazing thing. And so
+- [18:17.600] when they came to us and they wanted
+- [18:20.000] legal help, it wasn't for themselves. It
+- [18:22.400] was for all of you. And it was for the
+- [18:24.400] generation of veterans that I
+- [18:26.400] represented, the vet the veterans in
+- [18:28.240] Iraq and Afghanistan. and they committed
+- [18:31.200] themselves, these old red hatters, some
+- [18:34.720] of them were the the saltiest people
+- [18:36.880] you've ever met in your entire life, but
+- [18:39.520] they committed themselves to help all of
+- [18:41.600] you because they wanted to make sure
+- [18:44.000] that the United States would never again
+- [18:46.320] treat a generation of veterans the way
+- [18:48.240] that it treated the Vietnam veteran
+- [18:50.880] generation. And that's an amazing thing.
+- [18:53.280] That is the spirit of gratitude. And
+- [18:56.000] what we've done is we have taken that
+- [18:58.160] charge and we have run with it. What
+- [19:00.640] Doug Collins has done is we have seen
+- [19:02.880] working with Jyn Kiggins and some of our
+- [19:04.720] other great rock stars in Congress is
+- [19:06.880] we've seen veteran backlogs at their
+- [19:09.840] lowest level in 30 years. When you call
+- [19:13.280] the VA, whenever you get out of the
+- [19:14.880] military and you call the VA, somebody
+- [19:16.960] ought to actually answer the telephone.
+- [19:19.039] And that's what we've done because of
+- [19:20.559] Doug Collins and Jen Kiggins. If you or
+- [19:22.880] your family needs medical care, it
+- [19:25.120] should be there. And that's what's
+- [19:26.559] happening because of Doug Collins and
+- [19:28.240] Jen Kiggins. Ladies and gentlemen, some
+- [19:30.320] of you will serve four years and some of
+- [19:32.640] you will serve 34 years. But the simple
+- [19:35.919] promise that I make to you that Doug
+- [19:37.919] Collins and Jen Kiggins fight every
+- [19:40.240] single day is that whenever you call on
+- [19:42.880] the Department of Veterans Affairs,
+- [19:45.280] somebody should answer the phone and
+- [19:47.280] give you the services that you need. So,
+- [19:49.760] I want to say thank you to Doug. I want
+- [19:51.919] to say thank you to Jen Kigan. We are
+- [19:54.400] fighting for our veterans every single
+- [19:56.400] day. And the thing that I'd ask all of
+- [19:58.240] you cuz one day you're going to be
+- [20:00.000] veterans. You won't be active duty
+- [20:01.919] service members. You will be veterans.
+- [20:04.080] Are we going to continue to fight for
+- [20:06.000] our veterans just as the Vietnam Veteran
+- [20:08.400] of Generations has fought for you.
+- [20:10.320] Absolutely we will. That's what we need
+- [20:13.200] from every single person in this room.
+- [20:15.679] And that's what you should expect and
+- [20:17.520] that's what you have from your political
+- [20:19.919] leadership.
+- [20:21.280] Now, let me make just a a couple of
+- [20:23.440] final comments here. You know, one of
+- [20:26.480] the things that we've we've tried to do
+- [20:28.720] in our Department of War is to recognize
+- [20:32.640] that you guys are able to do amazing
+- [20:35.280] things, but only if you're empowered to
+- [20:37.840] actually do them. Why have we gotten rid
+- [20:40.320] of diversity, equity, and inclusion?
+- [20:42.960] Because we recognize that Americans from
+- [20:45.120] every walk of life, from every
+- [20:47.360] ethnicity, from every race and religion,
+- [20:49.760] that you all can exceed,
+- [20:52.480] that you all can succeed if you're
+- [20:54.559] empowered by your leadership. Why have
+- [20:57.039] we given you the best equipment anywhere
+- [20:59.280] in the world? Because when you go to
+- [21:00.960] war, you shouldn't be looking down the
+- [21:02.799] barrel of a gun of somebody who's got
+- [21:04.480] something better than you have. You
+- [21:06.240] ought to have the very best stuff. But I
+- [21:08.799] think the thing that I'm proudest of is
+- [21:11.039] that we have empowered you to do great
+- [21:15.039] things. Again, we're not telling you to
+- [21:17.760] look behind you. We're not telling you
+- [21:19.360] to think about whether your warfighting
+- [21:22.480] abilities or your war fighting
+- [21:23.919] capabilities are going to be
+- [21:25.520] second-guessed by a politician back in
+- [21:27.600] Washington. We're sending you overseas
+- [21:30.000] if we have to. We're giving you clearly
+- [21:32.159] defined missions and we're making it
+- [21:34.159] possible for you all to do exactly what
+- [21:36.480] you need to do.
+- [21:38.000] So, from one enlisted Marine to all of
+- [21:40.080] you, I just have a couple of final
+- [21:42.240] thoughts. Number one, I am grateful to
+- [21:44.880] you. You may not realize this, but I
+- [21:47.760] spend my time with a lot of political
+- [21:49.280] hacks back in Washington DC. Not Doug
+- [21:51.840] and Jen, but there are some political
+- [21:53.679] hacks back in Washington DC. You are the
+- [21:56.640] people who make this job worthwhile, and
+- [21:59.039] you are the people who make this job
+- [22:00.880] something proud to do. I know it. You
+- [22:03.840] may not see it, but I've looked in the
+- [22:05.919] eye of a lot of bad guys. And those bad
+- [22:08.640] guys respect the United States because
+- [22:11.280] they fear you. So, number one, thank
+- [22:13.919] you. And number two, I want to say as we
+- [22:16.720] get ready to celebrate 250 years of
+- [22:20.400] great American history, I want you all
+- [22:23.440] to know that that celebration belongs to
+- [22:26.400] you as much as it belongs to anybody in
+- [22:29.760] the United States of America. For 250
+- [22:33.520] years, it is people like you who have
+- [22:36.240] put on the uniform of the United States
+- [22:38.240] of America and made sure that our
+- [22:40.640] Constitution actually has meaning. Who
+- [22:43.200] have put on the uniform of the United
+- [22:45.120] States of America and made sure that
+- [22:47.360] those backyard barbecues and those
+- [22:49.679] celebrations we're going to see over the
+- [22:51.440] next few days exist under a blanket of
+- [22:55.039] liberty and protection. Ladies and
+- [22:57.840] gentlemen, you are the very best part of
+- [23:01.120] the United States of America. So, happy
+- [23:04.000] 250th birthday. Let's keep on
+- [23:06.480] celebrating. And because of you, my
+- [23:08.320] friends, the next 250 years of the
+- [23:11.120] United States of America are going to be
+- [23:13.600] better than the last 250 years. God
+- [23:16.240] bless you and happy Independence Day, my
+- [23:17.840] friends. I'm proud of you.
+- [23:23.200] for your time. You work a 40hour week
+- [23:26.320] for a living
+- [23:29.039] just to send it on down the line.
+- [23:33.039] Hello Pert.
+- [23:36.159] Let me thank you for your time. You work
+- [23:39.200] a 40hour week for a living.
+- [23:42.880] I just send it on down the line.
+- [23:46.880] This is for the one who swings the
+- [23:49.039] hammer. Driving home the nail. For the
+- [23:53.360] one behind the counter, ringing up the
+- [23:57.280] sales. For the one who fights the fires,
+- [24:01.520] the one who brings the mail. For
+- [24:04.720] everyone who works behind the scenes.
+- [24:09.600] You can see them every morning in the
+- [24:13.200] factories and the fields, in the city
+- [24:16.480] streets, in the quiet country towns.
+- [24:19.760] Work
+- [24:22.880] together like spokes inside a wheel.
+- [24:26.960] They keep this country turn it around.
+- [24:32.400] Hello Kansas
+- [24:35.120] farmer. Let me thank you for your time.
+- [24:38.080] You work a 40hour week for a living
+- [24:42.480] just to send it on down the line.
+- [24:46.400] Hello, West Virginia. Cold miner. Let me
+- [24:49.919] thank you for your time. You work a
+- [24:52.720] 40hour week for a living
+- [24:56.480] just to send it on down the line.
+- [25:00.400] This is for the one who drives the big
+- [25:02.799] rig. Up and down the road. For the one
+- [25:07.039] out in the warehouse,
+- [25:09.440] bringing in the load. are the waitress,
+- [25:13.200] the mechanic, the policeman on patrol.
+- [25:17.679] Are everyone who works behind the scenes
+- [25:22.880] with a spirit you can't replace with no
+- [25:25.919] machine.

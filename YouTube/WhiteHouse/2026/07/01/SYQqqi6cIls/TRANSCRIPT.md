@@ -1,0 +1,233 @@
+<!-- source: https://www.youtube.com/watch?v=SYQqqi6cIls -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: SYQqqi6cIls -->
+<!-- date_published: 2026-07-01T15:50:36+00:00 -->
+<!-- date_accessed: 2026-07-01T16:41:38.365165+00:00 -->
+
+# Transcript: President Trump Gaggles with Press at Joint Base Andrews, Jul. 1, 2026
+
+- [00:02.560] So, this will be the first flight of
+- [00:06.480] what I think is maybe the greatest
+- [00:09.519] commercial plane ever built. I said to
+- [00:12.160] Boeing, "What's the best one?" They
+- [00:13.679] said, "This is the best plane ever
+- [00:15.040] built, and you're going to have the
+- [00:17.039] privilege of flying it." And I have a
+- [00:18.880] privilege also flying it. But this is
+- [00:21.680] the first flight. We're going to the
+- [00:23.760] Teddy Roosevelt Presidential Library.
+- [00:26.640] It's opening and that'll be very good.
+- [00:29.760] That'll be a lot of fun. But I think,
+- [00:32.320] you know, to be honest with you, uh I'm
+- [00:34.800] excited about the first flight. It's
+- [00:37.360] something nobody's ever seen anything
+- [00:39.040] like it. Even you people with all your
+- [00:41.440] experience and all of your talent, you
+- [00:44.399] will never see anything like this. So,
+- [00:46.960] they just uh completed it. They made it
+- [00:50.079] uh appropriate for a president. that
+- [00:52.879] means the security and all of the
+- [00:54.399] different bells and whistles they put
+- [00:56.559] on. Very complex stuff, but it's really
+- [00:59.199] uh quite something. And this is a plane
+- [01:01.280] that the United States of America should
+- [01:03.199] have. Our Air Force One was uh 35 36
+- [01:07.119] years old and it would be parked next to
+- [01:11.119] the new ones like this and it really
+- [01:13.840] didn't look appropriate for our country.
+- [01:16.560] So, uh we're very proud of this. The
+- [01:18.960] country is very proud of it. And you can
+- [01:21.200] do two things. You can lowkey it or you
+- [01:24.080] can show it. And I think the country
+- [01:26.080] should be very proud of it. And it's
+- [01:28.159] beautiful and you'll see that in a
+- [01:30.320] little while when you board. Uh as far
+- [01:32.400] as things are going, the den
+- [01:35.759] nuclearization of Iran is moving along
+- [01:39.119] well. They've had very good meetings and
+- [01:41.680] we'll see. We hit them very hard for
+- [01:44.000] three nights as you know, but we're
+- [01:46.560] getting along very well. So, I call it
+- [01:48.399] the dnuclearization
+- [01:51.360] and uh it's all taking place. It's all
+- [01:54.399] going well. The stock market is setting
+- [01:56.880] records virtually every day. The oil
+- [01:59.840] price is way down. We're down at 68. I
+- [02:02.159] see it hit 68 today. That's lower than
+- [02:05.200] when I started the uh I guess you could
+- [02:09.119] call it an attack on Iran so that they'd
+- [02:11.120] never have a nuclear weapon. So, the oil
+- [02:13.440] price is now lower. the retail prices,
+- [02:16.000] the gasoline is coming down rapidly. And
+- [02:18.959] if you have any questions, let's go.
+- [02:21.120] >> Mr. President, what's your favorite
+- [02:22.319] upgrade to the new plane? And how much
+- [02:23.760] did it cost American taxpayers to
+- [02:26.000] upgrade the plane?
+- [02:27.120] >> Well, it cost very little relative to
+- [02:29.280] what it would cost if we did it a
+- [02:31.280] different way. So, this was a gift from
+- [02:33.920] a a country that's treated us very well,
+- [02:37.120] and they're an ally of us over in the
+- [02:39.599] Middle East, Qatar. And uh I went to
+- [02:42.480] Boeing. I said, "Who has the best one?"
+- [02:44.239] They said, "Quit Qar. There's no there's
+- [02:46.800] never been a plane like it." Frankly, we
+- [02:48.879] couldn't build a plane like this because
+- [02:50.400] we wouldn't be willing to spend the kind
+- [02:52.720] of money necessary. They spent top
+- [02:54.959] dollar. So the head of Boeing said,
+- [02:56.879] "This is considered the best 747 they've
+- [02:59.440] ever built." And I went to Qatar. I
+- [03:01.840] said, "I'd like to use it for a period
+- [03:04.239] of time because the other ones, as you
+- [03:05.920] know, are under construction. They'll be
+- [03:07.840] here in two years." And because you know
+- [03:10.640] the plane is 35 years old. So I said I'd
+- [03:14.159] like to use it. And uh the Amir Tamim
+- [03:17.920] who's a great gentleman he said no no
+- [03:20.879] I'd like to make a contribution to the
+- [03:22.720] country. So uh it was very nice and
+- [03:26.319] we're able to do it in about 5 months.
+- [03:28.480] You know bring it up to the presidential
+- [03:30.879] standard meaning security wise and uh
+- [03:34.879] you're going to get you're going to get
+- [03:36.080] a kick out of him. There's just nothing
+- [03:37.440] like it. Uh your financial disclosure
+- [03:40.159] shows you had a very lucrative year last
+- [03:42.159] year. What message does this send to to
+- [03:44.400] average Americans, especially those?
+- [03:47.519] >> I don't get involved in my personal We
+- [03:49.920] have funds that run my money.
+- [03:52.000] >> But you are benefit.
+- [03:53.599] >> Well, I've made a lot of money before I
+- [03:55.200] became president and they invest my
+- [03:57.599] money and I don't talk to them. I never
+- [03:59.360] I don't even speak to them. So I have
+- [04:01.439] many people I don't know what they call
+- [04:02.959] closed accounts or something. You put
+- [04:04.560] your money in and that's it. I don't
+- [04:06.720] talk to them. They're big institutions
+- [04:09.040] and they run it. But yeah, I've had a
+- [04:11.680] great career in business. I've had a
+- [04:13.280] great career.
+- [04:15.599] >> I don't know if I've had a better career
+- [04:16.799] in politics or business, but I had a
+- [04:19.120] great career in business. And uh you
+- [04:21.919] know, you saw the cash and you report
+- [04:24.479] the different things. And what they do
+- [04:26.400] is we gave it I think it's called a
+- [04:28.240] blind account but they basically they
+- [04:30.240] take it and I purposely I never speak to
+- [04:32.560] any of the people that run the money but
+- [04:34.400] they're at big institutions and uh they
+- [04:37.120] invest in whatever they invest in
+- [04:40.320] say you're profiting off the presidency
+- [04:41.919] that you're
+- [04:42.320] >> well you know why I'm profiting because
+- [04:43.600] the stock market's going up. Everybody's
+- [04:45.520] profiting. If you have a you have a 401k
+- [04:48.800] how's your 401k done? It's about up 85%.
+- [04:52.960] Thank you President Trump. So, we're all
+- [04:55.280] profiting. I'm profiting because I have
+- [04:57.600] a lot of money and a lot of cash and we
+- [05:00.080] I give it to institutions. I don't know
+- [05:01.840] if they know what they're doing or not,
+- [05:03.280] but uh they buy a vast array of things.
+- [05:09.199] >> Meeting with Secretary Hex and General
+- [05:11.360] Kaine about potentially returning to an
+- [05:13.120] all-out war with Iran. You mean you've
+- [05:15.199] been unhappy with Iran's adherence to
+- [05:17.440] theou?
+- [05:18.400] >> Well, I think they've uh come a long
+- [05:20.720] way. We hit them very hard last week.
+- [05:23.199] Uh, I think they're fine. I think we're
+- [05:24.880] going to It's It's the dnuclearization
+- [05:28.400] of Iran. It's very simple. And Iran
+- [05:30.800] cannot have a nuclear weapon. Otherwise,
+- [05:32.560] all of this stuff that we look at, all
+- [05:34.240] of these things that we do, the
+- [05:36.160] country's never had activity like it's
+- [05:38.560] got right now. So, we're building more
+- [05:40.639] factories and car plants and other
+- [05:42.560] things. We went for years without ever
+- [05:44.720] building one car plant. Now, we're
+- [05:46.320] building many car plants. We're building
+- [05:48.560] AI. We're building We're building all
+- [05:50.720] over the country. $19.1 trillion being
+- [05:54.479] invested. The record was like two and
+- [05:57.440] we've got 19.1 and it's going to
+- [05:59.440] continue. And with those buildings open,
+- [06:02.240] you're going to see something like the
+- [06:04.000] country's never seen before. That's why
+- [06:06.160] the stock market's going up every day.
+- [06:07.919] That's why your 401k because everybody
+- [06:10.560] benefits. When the stock market goes up,
+- [06:13.120] everybody benefits. More jobs, more
+- [06:15.199] everything. And uh we're creating more
+- [06:17.520] jobs. We have more people working today
+- [06:20.160] than have ever worked in the history of
+- [06:21.919] our country. It's great. And that's
+- [06:23.440] before these places open. They'll be
+- [06:25.600] opening up over the next year and we
+- [06:28.000] have them coming into Taiwan. We have
+- [06:30.000] from Taiwan. We have more chip makers
+- [06:33.440] and the biggest the biggest company in
+- [06:35.440] the world actually the chip maker. But
+- [06:37.840] they're coming in. They're building in
+- [06:39.199] Arizona and they just announced they're
+- [06:41.199] going to double the size. We could have
+- [06:43.280] 50% of the chip market by the time I
+- [06:45.680] leave office. You know what we had now?
+- [06:48.000] Nothing. And then I uh got as a gift,
+- [06:51.440] another gift. I said to Intel, "Give the
+- [06:55.280] United States of They needed something.
+- [06:57.199] They needed some help." The chipmaker. I
+- [07:00.000] said, "Give the United States of
+- [07:01.599] America, I'll do it for you, but give
+- [07:03.919] the United States of America 10% of your
+- [07:06.319] company." He said, "You have a deal." He
+- [07:09.840] said, "It's so fast." I said, "I should
+- [07:11.360] have asked for more, but he said, "You
+- [07:13.120] have a deal." And that stake is now
+- [07:16.960] worth $80 billion. I made $80 billion
+- [07:21.599] for the country in 8 months. Does
+- [07:23.919] anybody talk about it? No. Have a good
+- [07:25.759] time. Have a good flight. Enjoy the
+- [07:27.520] plane.
+- [07:29.280] >> Quick question.
+- [07:30.560] >> Got DNI PY over there as the new
+- [07:32.880] director. We also know you have the task
+- [07:34.560] force set up on declassification. Maybe
+- [07:37.120] looking talking about international
+- [07:39.039] maybe looking at some declassification.
+- [07:41.120] Are you able to give us an update on
+- [07:42.400] that? He classifi almost never
+- [07:45.199] >> and you know by the way we have Jay
+- [07:46.639] Clayton is going in you know Bill Py is
+- [07:49.280] a very talented guy but he's just there
+- [07:50.880] temporarily until Jay Clayton and Jay
+- [07:53.039] Clayton is going through the process and
+- [07:55.360] Jay Clayton highly respected and so is
+- [07:57.280] Bill Py but Bill is there just for a
+- [08:00.879] fairly short period of time but while
+- [08:02.720] he's there I said you can declassify
+- [08:04.720] whatever you want.
+- [08:05.680] >> You think about
+- [08:07.759] >> I told him you could do it as you got to
+- [08:09.440] ask him. All right. But uh I think it's
+- [08:12.160] a friend of I think that I think that uh
+- [08:15.759] Bill will declassify. I told him you
+- [08:18.000] could declassify
+- [08:19.680] whatever you want. So Bill's there just,
+- [08:21.840] you know, for maybe a month or two
+- [08:23.840] months or something and Jay is going
+- [08:25.840] through the process. He's got a hearing
+- [08:27.360] in two weeks. Highly respected man. Jay
+- [08:30.160] Clayton. Okay. Thank you. Did you get
+- [08:33.200] any more bullet surprises?
+- [08:35.039] >> You know what a bullet surprise? A
+- [08:36.959] picture of the plane.
+- [08:39.200] Margot, are you taking care of
+- [08:40.560] everybody? How's Margo?
