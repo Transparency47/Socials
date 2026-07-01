@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-01
 
-- Posts: 4
+- Posts: 5
 
+- [21:13 UTC - All aboard the Trump Train! 🦅](7657670527238098190/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7657670527238098190
+  - All aboard the Trump Train! 🦅
 - [19:33 UTC - President Trump delivers remarks in North Dakota! 🇺🇸](7657644902989221133/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7657644902989221133
   - President Trump delivers remarks in North Dakota! 🇺🇸
