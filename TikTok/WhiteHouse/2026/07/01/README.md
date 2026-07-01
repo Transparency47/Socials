@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-01
 
-- Posts: 3
+- Posts: 4
 
+- [19:33 UTC - President Trump delivers remarks in North Dakota! 🇺🇸](7657644902989221133/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7657644902989221133
+  - President Trump delivers remarks in North Dakota! 🇺🇸
 - [17:49 UTC - USA USA USA 🇺🇸🦅😤](7657618087759482125/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7657618087759482125
   - USA USA USA 🇺🇸🦅😤
