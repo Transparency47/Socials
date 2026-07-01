@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-06-30
 
-- Posts: 25
+- Posts: 28
 
+- [23:34 UTC - I just spoke with Governor Brian Kemp, and informed him that the Great State of Georgia ha...](116841674801545467/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841674801545467
+  - I just spoke with Governor Brian Kemp, and informed him that the Great State of Georgia has been approved to be given $318.3 Million Dollars in its Disaster Declaration Request rel...
+- [23:29 UTC - I am pleased to announce that the Great State of Michigan has been approved to be given $3...](116841654008131501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841654008131501
+  - I am pleased to announce that the Great State of Michigan has been approved to be given $32.1 Million Dollars in its Disaster Declaration Request, for Severe Storms, Tornadoes, and...
+- [23:11 UTC - Congratulations to Rachel Campos-Duffy on her new book, “All American Patriotism: Celebrat...](116841584133441515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116841584133441515
+  - Congratulations to Rachel Campos-Duffy on her new book, “All American Patriotism: Celebrating 250 Years of America’s Greatness!” By sharing personal stories of Patriotism, along wi...
 - [22:59 UTC - Truth Social post 116841537124349537](116841537124349537/)
   - Source: https://truthsocial.com/@realDonaldTrump/116841537124349537
   - _No text content captured._
