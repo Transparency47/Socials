@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-01
 
-- Posts: 5
+- Posts: 6
 
+- [16:56 UTC - How the Republican Senate is not firing the Parliamentarian, who was appointed by Radical ...](116845771905594037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116845771905594037
+  - How the Republican Senate is not firing the Parliamentarian, who was appointed by Radical Left Senator Harry Reid, and Barack Hussein Obama, is beyond me! She has been ruling unfai...
 - [16:19 UTC - BIG NEWS! Micron, a truly GREAT American Company, and one of the “HOTTEST” anywhere in the...](116845625781087003/)
   - Source: https://truthsocial.com/@realDonaldTrump/116845625781087003
   - BIG NEWS! Micron, a truly GREAT American Company, and one of the “HOTTEST” anywhere in the World, has announced a HISTORIC $250 MILLION Investment in TRUMP ACCOUNTS. This incredibl...

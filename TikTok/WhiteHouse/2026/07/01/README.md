@@ -1,7 +1,10 @@
 # TikTok / WhiteHouse / 2026-07-01
 
-- Posts: 2
+- Posts: 3
 
+- [17:49 UTC - USA USA USA 🇺🇸🦅😤](7657618087759482125/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7657618087759482125
+  - USA USA USA 🇺🇸🦅😤
 - [14:41 UTC - IT’S JULY 🇺🇸🦅 Time to lock in.](7657569574174379278/)
   - Source: https://www.tiktok.com/@WhiteHouse/video/7657569574174379278
   - IT’S JULY 🇺🇸🦅 Time to lock in.
