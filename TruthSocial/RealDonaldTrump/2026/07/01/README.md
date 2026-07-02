@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-01
 
-- Posts: 6
+- Posts: 7
 
+- [23:53 UTC - Just as I promised, Oil Prices are plummeting FAST, and Gas Prices at the pump are droppin...](116847413162359390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116847413162359390
+  - Just as I promised, Oil Prices are plummeting FAST, and Gas Prices at the pump are dropping too, but not as fast as they should be. As we approach America’s 250th Birthday, I am pl...
 - [16:56 UTC - How the Republican Senate is not firing the Parliamentarian, who was appointed by Radical ...](116845771905594037/)
   - Source: https://truthsocial.com/@realDonaldTrump/116845771905594037
   - How the Republican Senate is not firing the Parliamentarian, who was appointed by Radical Left Senator Harry Reid, and Barack Hussein Obama, is beyond me! She has been ruling unfai...
