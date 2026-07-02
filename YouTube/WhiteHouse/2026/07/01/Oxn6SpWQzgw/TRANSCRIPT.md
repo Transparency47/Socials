@@ -1,0 +1,1515 @@
+<!-- source: https://www.youtube.com/watch?v=Oxn6SpWQzgw -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: Oxn6SpWQzgw -->
+<!-- date_published: 2026-07-01T20:35:50+00:00 -->
+<!-- date_accessed: 2026-07-02T05:42:29.465812+00:00 -->
+
+# Transcript: President Trump Delivers Remarks, Jul. 1, 2026
+
+- [00:04.584] [music]
+- [00:13.755] [music]
+- [00:14.799] If tomorrow [singing] all the things
+- [00:17.279] were gone [music] work for all my life
+- [00:21.600] and I had to start [music] again with
+- [00:24.880] just my children and my wife.
+- [00:28.960] I thank [music] my lucky stars to be
+- [00:32.239] living here [singing] today.
+- [00:35.040] Cuz the [music] flag still stands for
+- [00:37.200] freedom and they can't take that away.
+- [00:42.575] [music]
+- [00:45.360] And I'm proud to be an American where at
+- [00:49.120] least stand [music]
+- [00:50.879] free. And I won't forget the men who
+- [00:54.879] died, who gave that life to me. [music]
+- [00:58.000] And I gladly stand [singing] up next to
+- [01:01.440] you and the neighbor still today.
+- [01:04.190] [music and singing]
+- [01:05.439] Cuz there ain't no doubt I love this
+- [01:08.240] land.
+- [01:10.479] God [music] bless the USA.
+- [01:17.945] [music]
+- [01:25.520] From the lakes [music and singing] of
+- [01:26.720] Minnesota
+- [01:28.799] to the hills of Tennessee,
+- [01:32.355] [music] across the plains of Texas, from
+- [01:35.920] sea [singing] to shining sea,
+- [01:38.960] from Detroit down to [singing] Houston
+- [01:42.320] and New [music] York to LA, where
+- [01:45.600] there's pride in every
+- [01:47.421] [music and singing] American heart. And
+- [01:49.119] it's time we stand and say
+- [01:53.316] [music]
+- [01:55.680] I'm proud to be an American where it is
+- [01:59.866] [music]
+- [02:00.521] [singing] and free
+- [02:04.000] the men who died who gave that [music]
+- [02:06.799] life to me and I stand up next [music]
+- [02:11.200] to you and it hurts still today.
+- [02:14.276] [singing]
+- [02:15.440] cuz there ain't no doubt I love this.
+- [02:21.440] the [music] USA
+- [02:29.996] [music]
+- [02:37.856] [music]
+- [02:39.840] gave that to me and I stand
+- [02:45.716] [music] next to you and [singing] still
+- [02:49.040] day cuz there ain't no [music] doubt I
+- [02:52.800] love this.
+- [02:55.760] God bless
+- [02:57.920] you. [music]
+- [03:04.057] [singing]
+- [03:08.642] [cheering]
+- [03:10.560] US
+- [03:12.572] [applause]
+- [03:19.777] [cheering] USA USA.
+- [03:25.672] [cheering]
+- [03:26.560] >> Well, I want to thank everybody. This is
+- [03:28.480] an honor. We love you and you've been so
+- [03:30.560] nice to me with those votes. We set
+- [03:32.319] every record in the book. [cheering]
+- [03:34.720] But today we come to the heartland of
+- [03:37.120] America to pay tribute to a man who
+- [03:40.080] embodied the heart and soul and fight
+- [03:42.720] and spirit of our country as much as
+- [03:44.799] anyone who ever lived. And uh he's a
+- [03:48.080] very special man and that's why I'm
+- [03:49.519] here. President Theodore Roosevelt and
+- [03:52.319] he loved your community. He loved your
+- [03:54.159] state and uh he was quite something. He
+- [03:57.439] was really quite something.
+- [03:59.732] [cheering]
+- [04:04.400] And here
+- [04:06.159] beneath the wide open sky of the
+- [04:09.439] Badlands. They call it the Badlands.
+- [04:11.040] They said, "What's that all about?"
+- [04:13.680] It's pretty cool. It's pretty cool name,
+- [04:15.439] I have to tell you. On the steps of the
+- [04:18.799] burning hills, we dedicate a living
+- [04:21.840] monument to a legend, a statesman, a
+- [04:24.479] soldier, frontiersman, and a true
+- [04:27.440] American hero.
+- [04:29.680] This is a very exciting thing for me and
+- [04:32.800] number one I have to tell you because
+- [04:35.360] this was a inaugural flight of a certain
+- [04:40.479] airplane called Air Force One after 37
+- [04:43.040] years [cheering]
+- [04:50.080] and it's a great plane and we have uh we
+- [04:53.440] had a lot of fun with Doug and everybody
+- [04:55.199] coming over but we talked about the
+- [04:58.560] Roosevelt a lot because he was something
+- [05:01.680] that was really very special. Number
+- [05:03.600] two, because I'm honoring the Roosevelt
+- [05:07.520] and that's the man who I have long
+- [05:10.000] admired. He's one of the few I don't
+- [05:11.919] admire too many people, I have to tell
+- [05:13.600] you. There's not a lot of people out
+- [05:15.919] there. And number three, I'm back in
+- [05:19.039] North Dakota because I won this state
+- [05:20.960] with the most votes in the history of
+- [05:22.720] the presidency. Thank you.
+- [05:25.680] Thank you very much.
+- [05:28.813] >> [cheering]
+- [05:36.800] >> And number four,
+- [05:39.280] I have two teleprompterss that aren't
+- [05:41.199] working. And here I stand.
+- [05:44.533] [cheering]
+- [05:51.840] But TR
+- [05:53.520] once observed that I would not have been
+- [05:57.680] president about himself had he not been
+- [06:01.600] and had it not been for the experience
+- [06:05.919] in North Dakota. He had a great
+- [06:07.600] experience here. It really shaped him so
+- [06:10.160] so much.
+- [06:12.560] So there could be no better place for
+- [06:15.440] this new national treasure than the
+- [06:19.199] Rough Rider State. I met some of the
+- [06:20.960] rough riders. They are rough riders.
+- [06:22.400] They're good riders, too. They were very
+- [06:24.160] impressive.
+- [06:27.199] Today, 107 years after he passed into
+- [06:31.440] eternity, Theodore Roosevelt's
+- [06:33.600] presidential library opens its doors and
+- [06:35.919] the small town, but very great town. And
+- [06:39.840] today, it's a very famous town because
+- [06:41.360] that's all they're talking about, of
+- [06:44.960] Madora
+- [06:46.639] opens its arms to the entire world. The
+- [06:48.960] entire world is watching. It's not a big
+- [06:51.759] town, but it's a very powerful town
+- [06:53.440] because of what was left behind. I want
+- [06:57.039] to thank the thousands of people who
+- [06:59.440] work so hard to make this project a
+- [07:02.160] reality. And you really did. You made it
+- [07:04.000] a beautiful reality. Very few places
+- [07:08.240] very very few places will top it.
+- [07:12.560] And starting with the man who put the
+- [07:18.240] library in its first funding. Think of
+- [07:20.400] this. Did so much. He raised so much
+- [07:22.319] money. He did so many different things.
+- [07:23.919] He really did. He he had a very complete
+- [07:26.880] life. Wouldn't you think he was a real
+- [07:30.720] man of many [snorts]
+- [07:32.639] forms of genius and without whom it
+- [07:35.680] would never have been possible,
+- [07:37.199] Secretary of the Interior. And I'll tell
+- [07:39.680] you what, I thought he was an oil man
+- [07:41.840] and he wasn't.
+- [07:43.840] I saw him on a debate because this guy
+- [07:46.560] was actually going against me. Can you
+- [07:48.319] believe it?
+- [07:50.160] But I thought he was very impressive. I
+- [07:52.960] thought his wife, Katherine, was even
+- [07:55.199] more impressive to be honest with you.
+- [07:58.639] And
+- [08:00.800] so impressive that I said, "He's a good
+- [08:02.720] man. That guy's all right." But he's
+- [08:05.120] been fantastic. He's been a tremendous
+- [08:07.280] Secretary of the Interior. and the best
+- [08:09.599] ever. There's never been a secretary of
+- [08:11.520] the interior like Doug Bergam. Thank you
+- [08:13.280] very much. [cheering]
+- [08:14.800] Thank you.
+- [08:17.919] Never been.
+- [08:23.599] And you know, Doug called me. He said,
+- [08:25.120] "Would you do me a favor? He's really
+- [08:26.879] fantastic." Because I did not know the
+- [08:28.479] gentleman too well, but he said, "Kelly
+- [08:31.120] Armstrong is fantastic. Would you
+- [08:32.959] endorse him for governor?" And I did.
+- [08:35.279] And he won easily. Kelly on screen.
+- [08:38.800] Great job you're doing. Great job. And
+- [08:42.479] two of my very good friends, two warrior
+- [08:44.640] senators. Tough cookies. That's tough.
+- [08:47.360] Oh, I wish they could get their way. We
+- [08:49.200] could get a couple of little things
+- [08:51.440] passed like voter identification
+- [08:53.831] [cheering] like
+- [08:55.680] like proof of citizenship
+- [08:58.560] called Save America. You know, that's
+- [09:00.160] pretty good. Save America. Can you
+- [09:01.839] imagine?
+- [09:02.959] >> We have uh 100% of the Democrats against
+- [09:06.080] it. and four or five Republicans, if you
+- [09:08.959] can believe that. What are they all
+- [09:10.720] about?
+- [09:12.320] But these two people are with us all the
+- [09:14.880] way. John Hovind and Kevin Kramer,
+- [09:17.600] senators.
+- [09:19.200] They're [cheering and applause] great.
+- [09:20.080] Two great guys.
+- [09:24.959] And a congresswoman who fights and gets
+- [09:27.839] what she wants. And she's very
+- [09:29.279] respected. Julie Fedorek. Thank you,
+- [09:32.720] Julie.
+- [09:34.640] very very respected.
+- [09:37.120] And we have our ambassador, Monica.
+- [09:39.200] Where's Monica? Monica. Monica Growley.
+- [09:42.160] Fantastic.
+- [09:44.640] Acting Secretary of the Navy Hung Cow.
+- [09:51.920] And we're building a lot of ships.
+- [09:53.839] Building a lot of ships. North Dakota
+- [09:56.640] House Speaker Robin Wise. Thank you.
+- [10:00.959] >> Thank you. Doing a great job.
+- [10:04.320] State House Majority Leader Mike Lefor.
+- [10:09.156] [cheering] Mike, thank you, Mike.
+- [10:13.680] State Senate Majority Leader David
+- [10:16.560] Hogue.
+- [10:18.079] Thank you, David.
+- [10:22.160] And all of the members of the North
+- [10:24.320] Dakota legislature. I hear every single
+- [10:27.440] one. I'm not going to introduce you. You
+- [10:29.360] have no chance of that. I'll be here all
+- [10:31.040] day, but you're all here. We love you
+- [10:32.640] and you've been with us from day one.
+- [10:34.480] Thank you very much.
+- [10:36.880] Thank you.
+- [10:39.360] And the CEO who's done a fantastic job.
+- [10:41.839] He took me around. I thought it would be
+- [10:43.440] maybe 10 minutes, five minutes. I I've
+- [10:46.640] been doing this for two hours.
+- [10:50.079] Thank goodness I loved the subject or I
+- [10:51.920] would not have put up with it. Doug said
+- [10:54.800] you could come in. You know, I'm
+- [10:57.040] prosecuting a war, which we're winning
+- [10:58.720] very easily, by the way. But
+- [11:03.360] But
+- [11:05.279] I said, "Doug, let's fly in. We'll do
+- [11:07.920] 10, 15 minutes. I know I'm going to love
+- [11:11.279] it." And then I'll get out. Oh,
+- [11:13.760] absolutely, sir. So, then time comes. He
+- [11:16.480] got me making speeches. I was over there
+- [11:18.399] two hours. I know more about that museum
+- [11:21.680] than the people that built it.
+- [11:24.800] But that's okay because they did a very
+- [11:27.440] good job. I can report that they did a
+- [11:29.200] really good job. the CEO of the Theodore
+- [11:32.640] Roosevelt Presidential Library who
+- [11:34.880] really did give me a tremendous amount
+- [11:37.440] of knowledge I mean about things that I
+- [11:40.640] never would have thought could have been
+- [11:42.320] possible about how great this man was.
+- [11:44.240] Ed O'Keefe. Ed, thank you very much.
+- [11:51.920] And two of my sons are here, Eric and
+- [11:55.680] Don.
+- [11:59.853] >> [applause]
+- [12:02.720] >> and Betina, thank you very much. Don
+- [12:04.880] just got married. Betina, thank you.
+- [12:06.639] It's going to be great.
+- [12:09.040] Thank you very much.
+- [12:12.800] But the members of the Roosevelt family
+- [12:16.480] and countless foundation staff, donors,
+- [12:19.680] and supporters. Everyone's here and I
+- [12:21.600] understand that one local construction
+- [12:23.920] worker delayed his retirement by four
+- [12:26.240] years just to be involved with the
+- [12:28.639] building and they heard I was going to
+- [12:29.920] come. I was coming even when I wasn't
+- [12:33.440] president. I had agreed to come and they
+- [12:36.560] said well when we do it you're going to
+- [12:39.279] be president. So that was during that
+- [12:41.519] ridiculous time that ridiculous
+- [12:45.760] that ridiculous fouryear period of time
+- [12:48.000] they asked me to come. I said, "I'd love
+- [12:49.680] to come." And uh I said, "I may or I may
+- [12:53.279] not be president of this. We don't care.
+- [12:55.200] We want you to be there." And I always
+- [12:56.800] remember that. But uh they said, "You're
+- [12:59.360] going to win. You know that if you run,
+- [13:00.720] you're going to win." It turned out we
+- [13:02.000] did quite easily actually.
+- [13:06.480] And today I can tell you that we can see
+- [13:10.639] why it was worth it. It's really uh
+- [13:12.959] amazing. They've done an amazing job.
+- [13:14.800] Beautiful job. And you know, they've
+- [13:16.079] done it from from love. Jobs that are
+- [13:18.720] done from love are always better than
+- [13:21.120] jobs where you sort of have to follow a
+- [13:22.720] plan. They made lots of changes and they
+- [13:25.440] every one of them was good. And I think
+- [13:27.360] I know about every one of them. After
+- [13:29.600] two and a half hours, I learned every
+- [13:31.200] single one of them. But I want to really
+- [13:34.720] thank everyone who greeted me at the
+- [13:37.360] train station because that was so
+- [13:38.880] famous. That was such a famous train.
+- [13:42.480] The last one was President Dwight
+- [13:45.279] Eisenhower and he was actually a very
+- [13:47.200] good president. People don't realize he
+- [13:48.880] was a general, good general. And he was
+- [13:51.200] actually built the interstate highway
+- [13:53.120] system. I'd say that alone is pretty
+- [13:55.680] good. He did he was a good and that was
+- [13:57.519] he was the last one. He was on the back
+- [13:58.959] of the exact same train. So the head of
+- [14:01.920] the railroad, he was fabulous. And they
+- [14:04.720] were explaining all about the train and
+- [14:07.199] they said, "Wow, that's really some
+- [14:08.800] history." And the crowd we had thousands
+- [14:10.240] of people over there. It was fantastic.
+- [14:12.560] But I have the picture of President
+- [14:14.800] Eisenhower in the back of the train. The
+- [14:16.639] same exact train. I checked it out
+- [14:18.720] because I said, you know, we don't want
+- [14:20.639] to make any mistakes because the fake
+- [14:22.720] news is watching and they'll say it
+- [14:24.320] wasn't. It wasn't the same train. It
+- [14:27.600] wasn't the same train. No, they've been
+- [14:30.079] pretty nice to me lately. Look, when you
+- [14:32.800] do as well as we're doing, they have to
+- [14:34.399] be nice. I guess
+- [14:37.040] they've been pretty nice.
+- [14:39.020] [cheering and applause]
+- [14:41.120] And I want to give a very special thanks
+- [14:43.680] to the patriots who gave us such an
+- [14:46.399] incredible escort from town. We had more
+- [14:49.760] law enforcement. You know, I love law
+- [14:51.519] enforcement. Now, according to
+- [14:57.600] according to the people that are running
+- [14:59.120] on the other side, in many places, they
+- [15:01.199] want to defund the police. That's not
+- [15:04.000] going to happen. That's not going to
+- [15:05.920] happen. We we see them all the time.
+- [15:09.279] They said they're social democrats.
+- [15:11.199] Doesn't it sound pretty? They're
+- [15:12.399] actually communists. But we'll get into
+- [15:14.959] that a little bit later. They're not
+- [15:17.440] going to win. They're not going to win
+- [15:18.639] anything. They got some very
+- [15:19.760] unattractive candidates, I have to say.
+- [15:23.120] During my first term, it was a privilege
+- [15:25.440] to sign the bill that helped get this
+- [15:28.399] incredible project underway and
+- [15:30.720] transferring 90 acres. We took it right
+- [15:32.800] out of the federal government. We ripped
+- [15:34.639] it away from the federal government.
+- [15:36.000] They don't know what's missing. They
+- [15:37.199] still haven't figured out what the hell
+- [15:38.560] happened.
+- [15:40.320] And today, the artistry and scholarship,
+- [15:44.240] technical skill on display right here.
+- [15:47.040] And in that museum in particular is just
+- [15:50.399] fantastic. It's really great things that
+- [15:52.560] uh they actually gave me. You know,
+- [15:53.600] we're going to build our museum in
+- [15:55.440] Miami. They got me a lot of ideas, Doug.
+- [15:58.639] You gave me a lot of ideas, Doug.
+- [16:01.920] But they really did it well. Incredible.
+- [16:03.759] I even had a conversation with Theodore
+- [16:06.480] Roosevelt. I had a I said, "What did you
+- [16:08.880] think about the Panama Canal? Do you
+- [16:10.639] consider that your greatest
+- [16:11.680] achievement?" How do you feel about the
+- [16:14.399] fact that the Democrats gave the Panama
+- [16:19.040] Canal away to Panama for $1? You know,
+- [16:24.000] he built the Panama Canal preceded
+- [16:27.040] really by a man who was actually he was
+- [16:29.600] the tariff king, William McKinley. He
+- [16:32.720] was a president and they took his name
+- [16:35.040] off Mount McKinley and I put it back on
+- [16:37.040] because it deserved it. Put it back on.
+- [16:40.560] But McKinley actually and he was
+- [16:42.800] assassinated but he made tremendous
+- [16:45.199] amounts of money. Made our country very
+- [16:46.880] rich. And then Teddy Roosevelt as a vice
+- [16:49.519] president got in and he uh did some
+- [16:51.920] incredible things, but one of them I
+- [16:53.600] think one of the most amazing maybe a
+- [16:55.600] lot of people would say the parks and
+- [16:56.959] you could say a lot of different
+- [16:59.600] elements of his success are incredible.
+- [17:01.839] But he built the Panama Canal. It was
+- [17:04.319] the most expensive project to this date
+- [17:06.400] if you bring the dollars forward ever
+- [17:08.240] built in history. 38,000 people died.
+- [17:12.720] They died 95%
+- [17:15.039] from mosquitoes, malaria. 95% you
+- [17:18.079] expected almost to die. They paid
+- [17:20.000] workers from the United States. Mostly
+- [17:22.480] they came in and mostly I must say men.
+- [17:25.039] It was a little different time. Today
+- [17:26.720] would have men and women but they had
+- [17:29.200] all men and they paid them massive
+- [17:32.640] amounts of money more than they were
+- [17:34.320] making as workers in the United States.
+- [17:37.440] Such a fascinating thing. The Panama
+- [17:39.440] Canal. I've studied it long and hard.
+- [17:41.600] And when they made when they gave it
+- [17:42.799] away, $1. $1. But uh they died from the
+- [17:47.200] mosquito and they died from the snake.
+- [17:48.640] They have a viper, a snake that if you
+- [17:50.880] get bit, you're in trouble. If you get
+- [17:52.400] bit, you were dead. You were dead. And
+- [17:54.720] that got about that wiped out about 5%.
+- [17:57.760] We lost 38,000 people building the
+- [18:00.160] Panama Canal. Our people, 38,000 people
+- [18:03.679] died building the Panama Canal. It
+- [18:06.799] opened and from day one it was very
+- [18:08.480] successful and we gave it away. We gave
+- [18:12.240] it away. It was the most expensive thing
+- [18:13.840] we ever built and it was also the most
+- [18:16.400] profitable thing we ever built. That's a
+- [18:18.400] nice combination. A little bit like
+- [18:21.039] Venezuela. We did a good job in
+- [18:22.799] Venezuela.
+- [18:24.640] >> But
+- [18:26.720] and we're actually doing equally as well
+- [18:30.080] with the Islamic Republic of Iran. Maybe
+- [18:33.919] you've heard of it. But but think of it
+- [18:37.200] uh the Panama Canal. So we gave it away.
+- [18:39.919] The first thing they did, you know what
+- [18:41.679] they did? They raised the prices for the
+- [18:44.240] ships by four times. And they didn't
+- [18:47.440] lose one ship. And then they raised it
+- [18:49.760] again twice.
+- [18:51.679] And they didn't lose one ship. All they
+- [18:53.360] did is make tremendous amounts of money
+- [18:55.520] for years and years. How stupid was
+- [18:59.039] that? And now China is trying to take
+- [19:02.640] over the Panama Canal and we're not
+- [19:05.840] going to let that happen. Okay.
+- [19:12.320] And that was not part of the script
+- [19:14.960] because I don't really have a script
+- [19:16.480] because this thing doesn't work.
+- [19:20.559] >> It's appropriate the one on my right is
+- [19:22.400] slightly better than the one on my left.
+- [19:24.080] The one on my left is a waste of time.
+- [19:26.240] It's a little like politics. The one on
+- [19:28.000] my right is a little bit
+- [19:31.808] >> [applause]
+- [19:34.880] >> It's not great. I'd give it about a two
+- [19:37.600] on the scale of 10.
+- [19:40.240] And this afternoon, I'm pleased to
+- [19:43.039] announce that through the National
+- [19:46.160] Endowment for the Humanities, we will be
+- [19:49.280] awarding the library $750,000
+- [19:53.200] to support the opening exhibits during
+- [19:55.200] the first year. So, they're getting a
+- [19:56.559] nice check.
+- [19:59.520] getting a nice check.
+- [20:02.720] And as you know, this week, Americans
+- [20:05.039] all across our nation are filled with
+- [20:06.960] joy and excitement and anticipation as
+- [20:09.440] we prepare for one of the proudest
+- [20:11.840] moments in our history, 250 years. Think
+- [20:15.200] about that. Three days from now, we will
+- [20:17.919] celebrate the 250th anniversary of the
+- [20:22.400] signing of the Declaration of
+- [20:24.799] Independence. What a document that was.
+- [20:27.484] >> [cheering]
+- [20:33.039] >> And this week we look back on 250 years
+- [20:36.720] of glorious freedom and we took
+- [20:39.760] so much time and so much effort. And by
+- [20:41.840] the way on July 4th it's going to be
+- [20:46.000] approximately 107 degrees out and I'm
+- [20:49.280] going to go and I'm going to make a
+- [20:50.559] really long speech
+- [20:52.799] just to show that I can do anything.
+- [20:56.000] It's going to be 107.
+- [20:59.280] But you know what? They also predicted
+- [21:01.360] the fight that we had three weeks ago
+- [21:03.200] was unbelievable at the White House.
+- [21:04.720] They said,
+- [21:06.799] they said a week before, 6 days, 5 days,
+- [21:10.080] 4 days, 3 days, 2 days, one day. They
+- [21:12.799] said it was going to rain. It's going to
+- [21:15.200] be horrible. You're going to have to
+- [21:16.799] cancel the fight. Sure, we're going to
+- [21:18.080] have to cancel. This was a big event.
+- [21:20.159] This was one of the highest rated fights
+- [21:22.080] in history. It was on CBS National on a
+- [21:26.000] Sunday night, not a Saturday night.
+- [21:27.760] Saturday nights are called Death Valley
+- [21:29.760] for television. I know a lot about
+- [21:31.600] ratings,
+- [21:33.120] but Sunday night's very good. And it was
+- [21:34.880] broadcast on CBS, a network, and it got
+- [21:38.159] among the highest ratings any fight has
+- [21:40.320] ever gotten. But they said it was going
+- [21:42.559] to rain. And I talked to Dana White. I
+- [21:45.440] said, "Dana, I don't know. This is bad,
+- [21:47.280] sir. 100% chance of rain." I said, "You
+- [21:51.120] sure? Like maybe 90?" No, 100% sir. So,
+- [21:55.600] it was 7:00 and it wasn't raining. Then
+- [21:59.200] it started at 8:00 and we were going to
+- [22:01.440] delay it till 12:00 midnight. I said,
+- [22:04.400] "That's not good." But it wasn't raining
+- [22:06.000] at 8:00 and it wasn't raining at 8:30
+- [22:09.840] and we had the fight on time and it
+- [22:12.240] never rained. Never rained. So, you
+- [22:15.440] never know about
+- [22:17.760] you never know about weather
+- [22:18.960] forecasting, do you? With all the money
+- [22:20.480] we spend, we spend all that money.
+- [22:22.880] That's happened before. We had a big
+- [22:24.559] march in Washington. You remember that?
+- [22:26.320] That was going to be rained out. Sir,
+- [22:27.760] we're going to have to change it. Rained
+- [22:29.760] out. Never rained. So, we're getting
+- [22:32.000] pretty good at that. But this is a time
+- [22:34.720] to rediscover the indomitable spirit
+- [22:37.760] that built our country and all that will
+- [22:41.679] ensure America always remains the most
+- [22:44.159] exceptional nation on the face of the
+- [22:46.000] earth. We're not going to let communists
+- [22:47.520] get in our way. We're not going to let
+- [22:48.799] anyone get in our way. Not the com Not
+- [22:51.120] the communists.
+- [22:54.799] It's a very unattractive lot. They're
+- [22:56.960] not going to do it. They're not doing
+- [22:59.120] anything. Those people, what they're
+- [23:00.640] doing, they're so stupid. They're so
+- [23:02.880] stupid.
+- [23:04.880] There could be no better place to begin
+- [23:07.200] this rediscovery than with the life and
+- [23:10.799] times and passions of Theodore
+- [23:13.919] Roosevelt. He had great passion. The
+- [23:16.559] colonel, they called him, was an
+- [23:18.000] American man.
+- [23:20.080] He was really a a great He-Man. He was a
+- [23:23.600] American man through and through.
+- [23:26.240] His chest swelled with American
+- [23:28.240] optimism, confidence, enthusiasm, and
+- [23:30.880] pride. His heartbeat with an unyielding
+- [23:34.080] sense of America's destiny and pride.
+- [23:36.799] And that pride was bigger. The biggest
+- [23:38.480] word for him, I think, was pride. He was
+- [23:40.000] a proud He was a proud man. But I'm a
+- [23:43.280] proud man. I'm proud of our country.
+- [23:48.320] I'm proud that
+- [23:50.799] two years ago we had a country that was
+- [23:52.720] a laughingstock all over the world. And
+- [23:54.720] now we have the hottest country anywhere
+- [23:56.480] in the world, the most respected country
+- [23:58.720] anywhere in the world.
+- [24:01.840] But as a young boy, I saw that he loved
+- [24:05.600] Lincoln and Lincoln's
+- [24:08.480] casket would pass through a nation torn
+- [24:11.440] apart by civil war. I don't know if you
+- [24:14.400] know that. I think Teddy Roosevelt, I
+- [24:17.440] think, is probably his biggest. I was
+- [24:19.120] trying to get that today and I think it
+- [24:20.880] came pretty loud and clear. Abraham
+- [24:23.919] Lincoln was the person that he most
+- [24:26.880] respected, most admired, most looked up
+- [24:29.279] to. He has a beautiful picture of
+- [24:32.240] Lincoln that he had in his his one of
+- [24:34.960] his rooms, one of his very important
+- [24:36.640] rooms where he lived. And it's at the
+- [24:39.440] it's at the library. By the end of uh
+- [24:42.559] the 60 years
+- [24:44.640] TR had transformed his country by the
+- [24:48.400] reach of his vision. He had a great
+- [24:50.000] vision and by the force of his will into
+- [24:53.360] one of the greatest places, one of the
+- [24:55.840] greatest empires, one of the most
+- [24:58.400] incredible countries ready to take its
+- [25:01.919] rightful place as the strongest and most
+- [25:04.880] respected nation anywhere in the world.
+- [25:07.600] They didn't have people that didn't
+- [25:08.960] couldn't they had no idea where they
+- [25:10.720] were.
+- [25:12.240] They didn't have people that couldn't
+- [25:13.440] walk up the steps. See those steps? They
+- [25:16.640] didn't have people that had no idea
+- [25:18.320] where the hell they were. They didn't
+- [25:20.240] have people that said, "Let's have open
+- [25:21.600] borders so millions and millions of
+- [25:23.279] people can pour into our country from
+- [25:25.039] prisons all over the world."
+- [25:28.000] They didn't have those people. They had
+- [25:29.760] strong, smart people like Teddy
+- [25:32.640] Roosevelt. Today, America is stronger
+- [25:36.640] and more respected. right now.
+- [25:39.760] I'll tell you the king of Saudi Arabia,
+- [25:41.440] I was with him a year ago, smart guy,
+- [25:45.279] good guy. He said to me, "Sir, you know,
+- [25:47.279] it's amazing." And this was as we were
+- [25:50.640] just started to really and we've made a
+- [25:52.400] lot of progress since then. You see the
+- [25:53.840] numbers, factories being built all over
+- [25:55.600] the country at a level that we've never
+- [25:57.279] had before.
+- [25:59.039] But he said, 'You know, one year ago
+- [26:02.480] during the Biden Sleepy Joe during the
+- [26:05.840] Biden administration,
+- [26:07.919] he said, "One year ago, your country was
+- [26:11.120] dead. We gave up on your country. They
+- [26:13.760] were looking at China. They were looking
+- [26:15.200] at others to protect them. They were
+- [26:16.720] looking at other countries. And now you
+- [26:19.440] have the hottest country anywhere in the
+- [26:21.120] world." He said that and it's true. And
+- [26:23.279] now it's even more so than it was than
+- [26:26.720] hottest country anywhere in the world.
+- [26:29.840] So Theodore Roosevelt
+- [26:32.320] and his presidency
+- [26:34.559] fell exactly at the halfway mark between
+- [26:37.200] the founding in 1776 and the
+- [26:42.240] place we are today in 2026.
+- [26:46.240] And here five lessons and I I wanted to
+- [26:49.200] write these because you can learn from
+- [26:50.640] some people not from too many from a lot
+- [26:53.200] of them you don't want to learn much but
+- [26:55.440] you can learn from him and here are five
+- [26:58.159] lessons that are really extraordinary
+- [27:01.360] life offers to all Americans on the
+- [27:04.799] threshold of our 250th year. First of
+- [27:08.960] all, the life of the Roosevelt
+- [27:12.880] reminds us that Americans never give up.
+- [27:17.360] We don't give up. You know, if you
+- [27:19.279] really look back two years ago, I can
+- [27:21.600] see people wanting to give up. I can see
+- [27:24.559] them wanting to give up. He never
+- [27:27.520] stopped, never quit, never surrendered
+- [27:31.520] in pursuit of his dreams. He had a
+- [27:33.279] dream, a very complex dream he did
+- [27:35.840] because of the way he traveled, the way
+- [27:37.679] he moved, the fact that he ended up here
+- [27:40.240] and turned out to be one of the most
+- [27:42.640] impactful things he ever did, ending up
+- [27:44.880] right here where we are.
+- [27:47.679] But his pursuit of the American dream
+- [27:50.799] never ever stopped. It was really
+- [27:53.120] amazing. He was plagued by asthma, very,
+- [27:55.679] very bad, very serious. He was having a
+- [27:57.760] hard time breathing for much of his
+- [28:00.480] life. But he went out and he was told by
+- [28:04.399] his doctor that he'd have to live very
+- [28:07.360] quietly. He'd have to, this is as a
+- [28:09.039] young man, he was told you'd have to be
+- [28:11.840] and have a very quiet life. You have to
+- [28:14.000] be nice and easy. And he did just the
+- [28:16.960] opposite. He had a freaking wild life,
+- [28:20.480] right? He was wild.
+- [28:23.760] He just didn't want to take that. He
+- [28:25.360] didn't want to listen to his doctor. He
+- [28:27.760] didn't want to
+- [28:29.679] be quiet. He wanted to be great. He
+- [28:32.000] actually wanted to be great. And that's
+- [28:33.679] what he turned out to be. Young Theodore
+- [28:36.480] replied, "Doctor, I'm going to do all
+- [28:39.600] the things that you tell me not to do,
+- [28:41.919] and I've got to live the sort of life
+- [28:43.919] that you've described. I don't care how
+- [28:47.919] short it is. I just want to live my life
+- [28:50.399] the way I want to live my life." It was
+- [28:52.480] great. I mean, who would say that? The
+- [28:55.039] next year he sailed the Atlantic and he
+- [28:59.520] summited the Matterhorn just to prove
+- [29:02.799] that he could do these things, just to
+- [29:04.640] prove his doctor wrong. He knew his
+- [29:06.240] doctor. He wanted to prove him wrong.
+- [29:08.640] Maybe it wasn't smart, but it worked out
+- [29:10.480] okay. But again and again, he summoned
+- [29:13.279] the will to transcend tragedy and
+- [29:17.120] triumph and defeat heartbreak with hard
+- [29:20.080] work. He worked hard and I found that
+- [29:23.039] out. I mean, uh, if you love what you
+- [29:25.679] do, it's not work. That's one thing I
+- [29:27.360] will tell you. People say I work hard,
+- [29:28.720] but it's not work because if you love
+- [29:30.320] it, I love making America great again. I
+- [29:33.039] mean, I'm having a good time.
+- [29:36.480] So, it's not work. We call it work, but
+- [29:39.520] it's so
+- [29:41.200] in his library, we find his diary open
+- [29:45.520] to the page from 1884 when his mother
+- [29:49.360] and his wife died on the very same day
+- [29:53.279] in the very
+- [29:55.440] same house. Totally unrelated,
+- [29:58.159] just a tragic moment, but unrelated.
+- [30:02.880] There wasn't an accident where both of
+- [30:04.799] them were killed. They just died.
+- [30:07.440] Then he came back home and he said,
+- [30:09.679] "What happened?" They're both dead.
+- [30:12.720] Different parts of the house had nothing
+- [30:14.320] to do. It's just an amazing wife was
+- [30:17.520] very young. Mother was older, but she
+- [30:19.760] was getting by.
+- [30:21.919] The light has gone out from my life, he
+- [30:24.399] wrote. But Theodore Roosevelt did not
+- [30:27.520] surrender to fate. He came here to
+- [30:31.840] Madora and made himself fate's master. I
+- [30:36.080] said, "I want to be fate's master." He
+- [30:38.000] wanted to turn the tables and he really
+- [30:40.799] showed that that's what Americans can
+- [30:42.640] do. That's what people can do beyond
+- [30:44.799] Americans. That's what people can do if
+- [30:46.559] they really believe and they set their
+- [30:48.880] mind to it. And if they're competent, I
+- [30:51.360] mean, you have to be competent. You have
+- [30:52.960] to be smart. It's nice to say anybody
+- [30:55.279] can do it. Not anybody can do it. They'd
+- [30:57.919] like to say, uh, oh, anybody can do. No,
+- [31:00.799] no. But he was a special person. He
+- [31:04.000] arrived at this town
+- [31:07.120] narrowchested,
+- [31:08.880] 140 pounds. He looked pretty bad to the
+- [31:11.760] people here because they're pretty tough
+- [31:13.360] people around here. Never changed. He
+- [31:16.000] was sick. He was shattered from the
+- [31:18.000] death of these two people that he loved
+- [31:19.679] the most. And uh his body and his spirit
+- [31:25.200] were pretty much broken. Not broken
+- [31:27.600] enough, but pretty much broken. If they
+- [31:29.360] were broken all the way, he wouldn't
+- [31:30.799] have been able to do what he did. He
+- [31:32.159] left here two years later. He weighed 40
+- [31:35.120] lbs more and he was strong as an ox.
+- [31:38.159] They say it was 40 pounds of muscle. I
+- [31:39.919] don't know how the hell that happened.
+- [31:43.279] They didn't have modern day drugs. Of
+- [31:45.039] course, the modern day drugs don't do
+- [31:46.640] that either, do they? In fact, they
+- [31:48.720] actually take away the muscle. That's
+- [31:50.320] not good. How are we doing, doctor?
+- [31:52.559] Well, you lost a lot of muscle. That's
+- [31:54.000] not good. But we didn't have any of
+- [31:56.559] that. He went He was 40 pounds of steel.
+- [32:01.039] the vital man of vigor who would become
+- [32:04.480] president of the United States not that
+- [32:06.720] long after he left. Wow, that's amazing.
+- [32:10.159] I know what it takes to do that. It's
+- [32:11.919] tough. As a sheriff's deputy, he heard
+- [32:16.880] three thieves had stolen the only boat
+- [32:20.640] in town. So, he built another and over
+- [32:24.080] three days chased the criminals 300
+- [32:26.320] miles. He wanted all those poor
+- [32:27.840] criminals. We need a little bit more of
+- [32:30.320] that in our country, don't. But we do
+- [32:32.880] pretty good. We have the best border
+- [32:35.360] we've ever had. We do pretty good. Think
+- [32:38.720] of it. We have the best border,
+- [32:39.840] strongest border. We went from the worst
+- [32:41.360] border in history in three months to the
+- [32:45.120] best border in history. So, we do okay.
+- [32:48.720] But he was a man
+- [32:51.200] who could get crushed
+- [32:53.679] beneath the horse. He was crushed. get
+- [32:56.480] up and he kept writing. People said,
+- [32:59.039] "You gotta get back. We got to get you
+- [33:01.039] to No, no, no. I'm gonna keep writing."
+- [33:04.159] He could take a bullet to the chest,
+- [33:07.039] stand up, and keep speaking. He had a
+- [33:09.840] little luck. Had a lot of paper there. I
+- [33:12.720] saw it today. A bullet hole right
+- [33:14.240] through both of them. But so lucky, got
+- [33:17.840] lucky. But other people wouldn't have
+- [33:20.559] done what he did. He could feel sick and
+- [33:24.640] he was often feeling sick deep in the
+- [33:28.000] Amazon jungles. He would
+- [33:31.200] get extremely sick. Maybe he shouldn't
+- [33:33.679] have been there. He knew what was
+- [33:35.600] happening. It was a very dangerous place
+- [33:37.360] from that standpoint, from the
+- [33:38.720] standpoint of catching some pretty bad
+- [33:41.919] diseases. And he caught him. And yet he
+- [33:44.399] carried on when he was half dead. And
+- [33:46.960] most people think he was going to die.
+- [33:48.399] They thought he was going to die. They
+- [33:49.679] said Teddy Roosevelt is going to die.
+- [33:52.559] But he carried on and he was still
+- [33:55.039] standing. He never sat. He never rested.
+- [33:57.279] He just kept going. As America turns 250
+- [34:01.440] years old, we look at this remarkable
+- [34:04.320] man. And we recall that with effort,
+- [34:08.159] determination, and drive, there is
+- [34:10.079] nothing that Americans of competence
+- [34:14.079] cannot do.
+- [34:16.159] Nothing.
+- [34:17.839] Our
+- [34:23.520] ancestors were the people who raised up
+- [34:26.639] New York City from the marshes of
+- [34:29.200] Manhattan and then ventured into the
+- [34:32.000] Dakotas to carve up a life in the place
+- [34:35.520] that they called hell with the fires
+- [34:38.960] burned out. I don't know what the hell
+- [34:40.240] that's supposed to mean. Hell with the
+- [34:42.480] fires burned out. That doesn't sound so
+- [34:44.320] nice, but you did. And you've become a
+- [34:48.079] tremendously wealthy state, a very
+- [34:50.960] successful state with low taxes.
+- [34:54.159] I mean, you have you have great
+- [34:56.399] government.
+- [34:58.079] You have great government. These people
+- [35:00.000] right over here and the people I
+- [35:01.520] introduced, but other places have good
+- [35:05.359] land. They have valuable assets under
+- [35:07.680] the land and they're losing. Do you know
+- [35:10.560] California was our third biggest oil
+- [35:13.200] drilling state, Doug, not so long ago.
+- [35:15.520] It's got tremendous amounts of oil.
+- [35:16.880] Nobody knows that. It was third after
+- [35:19.359] Texas years ago. It was a big oil
+- [35:22.000] drilling. Now they won't drill because
+- [35:23.920] the environmental
+- [35:25.760] lunatics have said don't do it. And it's
+- [35:28.400] not a state that's doing very well. In
+- [35:30.960] fact, it's doing extremely poorly. One
+- [35:32.640] of the most beautiful states in the
+- [35:33.920] world. Best weather, best everything.
+- [35:36.800] From winning our independence to laying
+- [35:39.760] the railroads, taming the west, and
+- [35:41.680] planting our flag on the moon. Nothing
+- [35:44.560] great that America has ever done has
+- [35:47.760] come without staggering effort and has
+- [35:51.040] never come easy. It's been really an
+- [35:53.760] unfl flagging persistence that drove us
+- [35:56.400] into greatness. We had the persistence
+- [35:58.880] of great people, great men, great women.
+- [36:02.400] They were persistent. They never gave
+- [36:04.320] up. This country was built on the
+- [36:07.359] conviction that just because something
+- [36:11.280] is hard to do, that only means that
+- [36:14.800] Americans try even harder and they
+- [36:17.760] succeed almost all the time. Because
+- [36:21.040] whatever the obstacle, whatever the
+- [36:23.280] challenge, it's no match for American
+- [36:26.800] grit. And you have it probably as much
+- [36:28.720] or more than any other place there is.
+- [36:32.000] You have American grit.
+- [36:39.119] And second, Theodore Roosevelt reminds
+- [36:41.760] us all that to be a great nation and to
+- [36:44.880] be a free nation, we must have courage.
+- [36:48.079] Without courage, you have nothing.
+- [36:51.359] As TR once put it, freedom is not a gift
+- [36:55.520] that lasts long in the hands of cowards.
+- [36:58.880] How about that? Doesn't last long in the
+- [37:00.960] hands of cowards. What a great
+- [37:02.640] statement.
+- [37:09.440] I want to use that. I shouldn't have
+- [37:11.040] said it. I would have used that
+- [37:12.320] statement and I wouldn't have attributed
+- [37:14.880] it to TR
+- [37:16.880] and they would have said, "Oh, what a
+- [37:18.560] great statement that is." Trump made a
+- [37:20.480] brilliant speech.
+- [37:22.800] What do you think, John? Would I get
+- [37:24.160] away with that, Kevin? I don't know.
+- [37:25.920] Maybe not. But that's a great statement.
+- [37:29.119] That's a beautiful thing to say. But in
+- [37:31.920] the West, he tracked a 1,200B
+- [37:36.480] grizzly. My two boys know all about
+- [37:38.320] that. I say, "Are grizzlies dangerous?
+- [37:40.400] Is a grizzly bear dangerous?" I looked
+- [37:43.040] at Eric and Don. They know more about
+- [37:44.960] that stuff than any human being. I tell
+- [37:46.880] you, they said, "They're real dangerous,
+- [37:49.200] Dad." I said, "Are they violent bears?"
+- [37:53.040] They said, "They're really violent."
+- [37:55.520] Right, fellas? You said they are
+- [37:57.920] violent, but that doesn't scare them.
+- [37:59.839] Just be scared. Okay. and get the hell
+- [38:01.760] out of there,
+- [38:03.520] but uh we want to keep you around. But
+- [38:06.320] when it roared, a big one, and it wanted
+- [38:11.200] to strike him, and it was going rapidly
+- [38:13.760] there, very fast. I just learned that on
+- [38:15.760] a beautiful airplane coming over here.
+- [38:18.320] He shot it squarely between the eyes and
+- [38:21.680] it fell, touching him, but not able to
+- [38:26.079] destroy him. when he heard a man here
+- [38:30.400] threatened to kill him right here. One
+- [38:32.240] of your tough people. Is he around by
+- [38:34.880] any chance? Would you please stand up?
+- [38:37.920] He rode to his house. He rode to the
+- [38:39.920] man's house, knocked on his door. The
+- [38:42.160] man threatened to kill him. He said,
+- [38:43.280] "I'm going to kill Roosevelt."
+- [38:46.960] And he declared that I've come over to
+- [38:49.680] see what you want to
+- [38:53.920] begin with and how do you want to begin
+- [38:56.160] the killing? He said, "How do you want
+- [38:57.839] to begin? I'm right here in front of
+- [38:59.440] you. How do you want to begin the
+- [39:01.040] killing?" That's a little different kind
+- [39:03.200] of a guy.
+- [39:06.000] By a coincidence of history, it was
+- [39:09.520] exactly 128 years ago today that Colonel
+- [39:13.839] Roosevelt gave our nation one of the
+- [39:15.920] greatest examples of American courage,
+- [39:19.200] the age-old chronicles of military valor
+- [39:22.400] have ever seen. After commandeering a
+- [39:26.960] ship to Cuba for the volunteer regiment,
+- [39:31.680] he personally raised and trained his
+- [39:35.599] incredible rough riders. They're rough
+- [39:37.119] riders. I saw the rough riders. Where
+- [39:38.640] the hell are the rough? Look at these
+- [39:40.160] guys. I wish I looked like them.
+- [39:42.262] [applause]
+- [39:46.240] If I look like them, I would have been
+- [39:47.760] president 20 years ago.
+- [39:50.480] You guys are great. Thank you. They
+- [39:52.000] could really ride those horses. They let
+- [39:53.520] us in. They were going faster than the
+- [39:55.119] car.
+- [39:56.720] I said to my guys, "Is there any danger
+- [39:58.640] in the way they're riding?" Yeah,
+- [39:59.760] there's danger, sir, but they're great
+- [40:01.040] riders. You guys are fantastic. Thank
+- [40:02.800] you.
+- [40:08.320] But he led the Rough Riders in their
+- [40:10.640] heroic charge up San Juan Heights. And
+- [40:15.200] with malaria coursing all throughout his
+- [40:18.079] veins, he was really sick. Colonel
+- [40:20.400] Roosevelt galloped into a hail of
+- [40:22.480] Spanish bullets and when his horse came
+- [40:25.040] to a wire fence, he leapt off the horse.
+- [40:28.480] He jumped off the horse and he started
+- [40:30.240] running toward the enemy. I don't know
+- [40:31.760] if that was smart, but he made it. Then
+- [40:35.359] he looked over at the next hill and he
+- [40:38.640] grabbed his men. He said, "Fellas, let's
+- [40:41.200] do it again." And he did it again and
+- [40:43.920] again. The Ruff Riders victory at Sanan
+- [40:48.079] Heights led directly to the collapse of
+- [40:51.200] the Spanish line. Ah, the Spanish, the
+- [40:55.920] members of NATO, but not very good
+- [40:58.960] members of NATO.
+- [41:01.280] They say, "No, we don't want to help
+- [41:02.720] other people. What are we doing?" Huh?
+- [41:05.440] They uh they are not behaving nicely.
+- [41:08.400] But they will learn soon after they
+- [41:10.960] relinquish their grip on Cuba and Guam.
+- [41:14.640] the Philippines and Puerto Rico and they
+- [41:17.440] were all ours. They all we we got them
+- [41:20.079] all. And speaking of Cuba,
+- [41:23.599] after many, many decades,
+- [41:26.079] it's coming our way.
+- [41:28.640] Coming our way.
+- [41:32.800] But for his actions that day, TR was
+- [41:35.280] celebrated as a hero and eventually
+- [41:37.920] awarded the Congressional Medal of
+- [41:40.319] Honor. That's a big deal. And I'm
+- [41:42.800] thrilled to announce that just moments
+- [41:45.280] ago,
+- [41:47.280] 128 years after the Battle of San Juan
+- [41:51.119] Heights, it was my really great
+- [41:53.520] privilege to deliver his library
+- [41:57.920] and uh a very special little gift. In
+- [42:00.720] fact, I gave it to Doug and the
+- [42:02.640] president,
+- [42:04.240] man who did such a good job in helping
+- [42:06.400] to build it. Doug raised a lot of money,
+- [42:09.359] got a president to be out here all day
+- [42:11.440] instead of 15 minutes. And I gave that
+- [42:14.640] medal. I took it off the We have a
+- [42:16.240] beautiful room, the Roosevelt room, this
+- [42:19.440] Roosevelt, by the way. And I took it off
+- [42:22.240] the wall, brought it over, and we just
+- [42:24.720] presented it. It's going to be in your
+- [42:26.880] library now for a long, long time.
+- [42:34.000] And it'll be displayed alongside the
+- [42:36.079] Medal of Honor earned by his brave son.
+- [42:38.720] His son was brave. It's genetics. You
+- [42:40.720] know, it's like the racehorse theory,
+- [42:42.240] right? Fast horses.
+- [42:46.079] The Roosevelt
+- [42:48.000] Junior and D-Day. He also received that
+- [42:50.960] incredible
+- [42:52.560] acknowledgement except for Arthur and
+- [42:55.920] Douglas MacArthur. Arthur was his son.
+- [42:58.640] Douglas MacArthur, great general.
+- [43:00.720] They're the only father and son pair to
+- [43:03.839] receive our nation's highest
+- [43:07.520] military award for courage above and
+- [43:10.319] beyond
+- [43:11.920] the call of duty. Now, as I see my two
+- [43:14.000] beautiful sons sitting there, I think
+- [43:15.680] I'm going to give one to myself, one to
+- [43:17.599] them, and we'll have a threesome. Okay,
+- [43:20.800] I'll pick out one of the two.
+- [43:23.920] I'll give them the Congressional Medal
+- [43:26.000] of Honor for something [laughter]
+- [43:28.720] for their genius at hunting. And I'll
+- [43:31.839] get one for
+- [43:33.920] taking on Russia, Russia, Russia or
+- [43:36.319] something.
+- [43:38.560] And we'll have a third pair. No, I'm
+- [43:40.319] only kidding. But I have seriously
+- [43:42.000] thought about now this is dangerous to
+- [43:44.160] say because the fake news is up there
+- [43:45.839] all over the place. And when I joke I
+- [43:48.319] always I learned early on, don't be
+- [43:50.000] sarcastic in politics.
+- [43:52.560] But I actually said a few times that
+- [43:55.599] I've seriously thought of giving myself
+- [43:57.440] the Congressional Medal of Honor.
+- [44:00.319] Now everyone knows I'm doing it with a
+- [44:02.720] chuckle, but then they report he wants
+- [44:05.680] to give himself the Congressional. So I
+- [44:08.480] don't say that anymore. It's very
+- [44:09.920] dangerous to say,
+- [44:12.400] but it is the highest award. And they
+- [44:14.720] had a father son get it and that's a
+- [44:16.640] tremendous tribute to a genetic pool. As
+- [44:20.640] we enter the 250th year, Americans must
+- [44:24.800] never forget we are a historic and
+- [44:26.960] heroic people with a heroic spirit and a
+- [44:30.000] heroic purpose. And in this world, we
+- [44:32.720] are a very special group. American
+- [44:35.680] courage won our independence. It
+- [44:38.240] liberated millions and millions from
+- [44:40.400] slavery, rescued billions from tyranny,
+- [44:42.960] and sustained American liberty for two
+- [44:47.119] and a half centuries. And we're not
+- [44:48.560] going to lose it to this group of
+- [44:49.920] losers. Oh, can you imagine? Have you
+- [44:52.960] seen these people? Have you Have you
+- [44:55.920] seen these people?
+- [44:58.400] The press is just building them up.
+- [45:00.000] They're losers. Okay, they're nasty
+- [45:03.040] people, but they're losers. We'll teach
+- [45:05.760] them.
+- [45:07.119] >> We're going to teach them. They're not
+- [45:08.560] going to hurt our country.
+- [45:10.960] Without courage, there is no
+- [45:14.720] America today. If you don't have
+- [45:16.079] courage, we wouldn't have America today.
+- [45:17.760] Wouldn't we wouldn't be close. Third,
+- [45:20.640] Theodore Roosevelt believed in the
+- [45:24.240] America that really works and worked. He
+- [45:28.400] refused to accept failure, mediocrity,
+- [45:32.160] corruption, decay, or decline. And
+- [45:36.079] neither should we. That's why we can't
+- [45:37.839] take this nonsense that's going on right
+- [45:39.760] now. We're not going to take it.
+- [45:44.400] The first public cause he ever supported
+- [45:48.560] was a bill to fix the streets in New
+- [45:52.400] York City. He was very New York City and
+- [45:55.200] New York centric. You know that that's
+- [45:56.800] where he came from. He was pretty rich
+- [45:59.200] family. As the civil service
+- [46:02.319] commissioner, he fought tooth and nail
+- [46:04.960] to return federal hiring to a principle
+- [46:08.720] called merit. Merit. Isn't that nice to
+- [46:12.800] hear? And by the way, by the way, do you
+- [46:17.040] know a little while ago, not in
+- [46:18.880] yesterday's decisions, where we actually
+- [46:20.880] had a good day except for birthright
+- [46:22.640] citizenship, which will work out some
+- [46:25.119] way, but we had something
+- [46:28.720] called, do you know what we're talking
+- [46:30.880] about? We had something that gives back
+- [46:34.240] tremendous power to the president of the
+- [46:37.839] United States. And we won that, I think,
+- [46:40.000] six to three. And it was taken away from
+- [46:44.000] another Roosevelt. It was taken away
+- [46:46.800] from FDR in 1932. Was taken away and for
+- [46:52.480] almost a hundred years that's been up
+- [46:56.160] for grabs. Slaughter. It was called the
+- [46:59.040] slaughter case. And a lot of people
+- [47:01.680] didn't think it would ever be won. And
+- [47:03.680] we won it two days ago in the Supreme
+- [47:06.319] Court. It gives power back to the
+- [47:09.839] president at a time where the president
+- [47:12.079] really needs power. It's a great
+- [47:15.599] decision.
+- [47:19.599] It was the most important and we want
+- [47:21.440] some others too. It was the most
+- [47:22.800] important decision of all of them, I
+- [47:24.480] think. But we'll take care of the
+- [47:26.240] birthright citizenship because that was
+- [47:28.720] that was not meant for rich people from
+- [47:31.839] other countries. It was meant for
+- [47:33.920] actually it was meant for the babies of
+- [47:36.480] slaves. If you look at it, it was a
+- [47:39.359] month after the civil war ended that it
+- [47:42.319] went through. That's because it was
+- [47:44.240] meant for the babies of slaves. It
+- [47:46.560] wasn't meant for rich people from China.
+- [47:50.560] It was they came over in Gulf Streams.
+- [47:52.960] It was meant for the babies of slaves.
+- [47:55.119] So I believe no I know they got it wrong
+- [47:59.280] but that's okay because they gave us
+- [48:01.119] something that nobody thought but they
+- [48:03.359] also gave us something in one of the
+- [48:06.800] sessions a year ago was called merit.
+- [48:09.680] Our country now is based again on merit.
+- [48:17.680] So,
+- [48:22.079] if you're a student with very average
+- [48:24.079] marks and you looked a certain way or
+- [48:26.880] you acted a certain way or whatever
+- [48:30.240] and you get into the finest school in
+- [48:32.240] the world and then you're somebody else
+- [48:34.559] that looked a certain way or acted a
+- [48:36.640] certain way and you have all A+es
+- [48:40.079] and you have all great marks and board
+- [48:42.800] numbers that are through the roof, way
+- [48:45.440] above other people, but you don't get
+- [48:47.680] in, they get in.
+- [48:49.839] It's all over with. It's based now on
+- [48:52.480] merit. I don't even know if people know
+- [48:53.920] the fake news didn't want to cover it.
+- [48:55.280] To me, that's one of the greatest
+- [48:56.559] decisions. And that took courage of the
+- [48:59.280] Supreme Court because our country became
+- [49:02.319] great because of merit.
+- [49:05.119] We became great because of merit. And
+- [49:08.400] when you look at those soldiers that we
+- [49:10.079] have standing there at Washington DC
+- [49:13.040] where we ended up. So we had the one of
+- [49:16.000] the most unsafe
+- [49:18.800] cities places our capital anywhere in
+- [49:22.160] the country. And now we have one of the
+- [49:24.160] absolute safest. You can walk anywhere
+- [49:26.400] in Washington. And we fixed up the
+- [49:28.720] monuments and Doug was fantastic. We had
+- [49:31.680] 78 monuments, fountains,
+- [49:34.960] statues.
+- [49:37.520] We have the reflecting pond which we did
+- [49:39.599] the best job of all. They came in with
+- [49:41.599] box cutters and they cut it up but it's
+- [49:44.160] working fine. Going to let a little
+- [49:46.960] water out. We're going to redo it a
+- [49:48.400] little bit. But we fixed it up afterund.
+- [49:51.359] Think of it. It was 1922
+- [49:54.480] that it came about. And from the day it
+- [49:57.280] was built it leaked. From the day it was
+- [50:00.160] built it didn't work. But when it did
+- [50:02.240] when they had water it was beautiful. It
+- [50:04.240] reflected Washington, the Washington
+- [50:06.000] Monument. It reflected Lincoln in
+- [50:08.559] Washington. Think of it. How beautiful.
+- [50:12.000] How beautiful. And uh these people went
+- [50:15.520] in and cut it up and they got caught.
+- [50:20.240] We'll see what happens with them, but
+- [50:21.839] they got caught. But they put a big
+- [50:24.240] gash, 350 ft long. Think of that. 350 ft
+- [50:28.480] gash along the side of this very
+- [50:31.280] expensive material, but it will have it
+- [50:34.319] all. It's already good. We want to have
+- [50:36.400] it done for July 4th, and it was done
+- [50:38.079] for July 4th. Then it's operating right
+- [50:40.960] now, but we'll little ward out. We'll
+- [50:42.880] fix it up very quickly, Doug, and it'll
+- [50:45.760] be just as good. But we have for the
+- [50:47.760] first time ever. What they don't say, we
+- [50:50.079] spent a very small amount of money, too.
+- [50:52.319] What they don't say is Barack Hussein
+- [50:54.079] Obama. Have you heard of him? Barack
+- [50:55.920] Hussein Obama spent tens of millions of
+- [50:59.440] dollars trying to fix it and it was a
+- [51:01.520] disaster. Sleepy Joe Biden spent
+- [51:05.040] millions of dollars trying to fix it and
+- [51:07.440] he was unable to do it. But we did it
+- [51:09.680] and it works beautifully. It's a
+- [51:11.599] beautiful We got rid of the algae which
+- [51:13.280] they put in. THEY PUT IN ALGAE. Who the
+- [51:16.079] hell put in algae?
+- [51:18.800] They had a couple of people with signs
+- [51:21.359] protect the algae.
+- [51:23.520] Can you believe this? This this world
+- [51:25.599] has gone crazy.
+- [51:27.839] But today I'm proud to say that after
+- [51:31.200] four years of decline, America is once
+- [51:33.599] again a nation that is strong borders,
+- [51:37.119] is respected by everyone. All countries
+- [51:40.000] all over the world.
+- [51:42.880] They respect your president and they
+- [51:44.800] respect you. When they respect your
+- [51:46.720] president, they respect you.
+- [51:52.319] and we solve problems and we take things
+- [51:55.520] on just like the Roosevelt took things
+- [51:58.640] on. He took them on directly right at
+- [52:00.720] them. He stared in their face. But our
+- [52:03.119] laws will be enforced. Our laws will be
+- [52:07.760] protected and our law enforcement is
+- [52:10.960] respected again. You know, one of the
+- [52:13.119] things that I'm most proud of when I was
+- [52:15.359] running in the campaign and even before
+- [52:17.119] I announced, you could not get people to
+- [52:19.839] join the military. We had the worst
+- [52:23.119] years we've ever had under sleepy Joe
+- [52:25.280] Biden. He had no idea what the hell he
+- [52:27.359] was doing. And people were ashamed of
+- [52:29.680] our country and you couldn't get him to
+- [52:32.000] join.
+- [52:33.680] And then we had a beautiful day,
+- [52:35.200] November 5th, and we won by a lot. We
+- [52:38.240] won by just a lot. It was incredible. We
+- [52:41.440] beat a a woman named Kamala.
+- [52:44.800] We beat a brilliant young woman named
+- [52:47.760] Kamala
+- [52:49.280] who had no clue. She was the borders.
+- [52:52.319] She never went to the border. She never
+- [52:53.680] called the border patrol. I said,
+- [52:55.680] "Fellas, you ever get a call from
+- [52:57.119] Kamala? She's the borders." "No, sir."
+- [52:58.880] She never called. I used to call him
+- [53:00.160] every other day. How we doing on the
+- [53:02.079] border? Two months and we had a border.
+- [53:04.480] That was perfect. Two months.
+- [53:09.520] But Kamla never called and she never
+- [53:12.400] went. So for four years she was the
+- [53:14.800] borders. She never went to the border.
+- [53:16.559] It's not doesn't typically play out very
+- [53:18.720] well. And we had the worst border in the
+- [53:21.040] world. But uh these are the people that
+- [53:23.839] were running our government and we were
+- [53:25.359] a laughingstock all over the world. Not
+- [53:27.359] anymore. They don't laugh at us anymore.
+- [53:30.160] A government that was honest and
+- [53:32.480] accountable was the number one demand of
+- [53:36.800] the Declaration of Independence. They
+- [53:39.440] want honesty. They want respect. And on
+- [53:42.640] this anniversary, we recommmit ourselves
+- [53:45.520] to upholding that righteous legacy. And
+- [53:48.319] that's why I'm here. I'm in a state that
+- [53:50.000] I won by a landslide, but I won a lot of
+- [53:52.960] them by landslides in all fairness. But
+- [53:55.440] this was a beauty. This was a beauty.
+- [54:03.680] And I refuse to tell you. My son said,
+- [54:07.599] "Dad, don't say that." So, I won't. I
+- [54:10.480] refuse to tell you who got more votes,
+- [54:14.960] me or the legendary, and he was great,
+- [54:17.760] sir.
+- [54:18.240] >> Theodore Roosevelt. I refuse to say
+- [54:21.040] because you'll say he's a braggard.
+- [54:23.760] He's a terrible human being. He's a
+- [54:25.520] horrible person. So, I refuse to say. I
+- [54:27.920] told my son I will not say thank you.
+- [54:30.480] Thank you for giving me some good
+- [54:31.760] advice. Eric Trump and Donald Don Trump.
+- [54:34.400] TR was also a staunch and ferocious
+- [54:38.079] opponent of a thing called communism.
+- [54:40.160] You've been hearing a lot about that
+- [54:41.599] lately. He said the doctrines of
+- [54:44.960] communistic socialism,
+- [54:48.000] if consistently followed, mean the
+- [54:50.240] ultimate annihilation of civilization.
+- [54:52.960] Other than that, he thought it was
+- [54:54.240] wonderful.
+- [54:56.160] As we're seeing now, communism is the
+- [54:58.319] greatest threat to our country,
+- [54:59.839] including I believe this. You know, when
+- [55:02.640] I said it, I said, "Boy, that's pretty
+- [55:04.000] severe." But I think it's true. It's the
+- [55:06.880] biggest threat to our country, including
+- [55:08.559] World War I, World War II, Pearl Harbor,
+- [55:12.559] September 11th. I think it's a a bigger
+- [55:15.119] threat, potentially a bigger threat than
+- [55:16.960] that, because it's like a cancer that
+- [55:19.200] spreads, and you better stop it fast.
+- [55:22.079] We will never let the United States
+- [55:24.160] become a communist country. Won't
+- [55:26.960] happen.
+- [55:30.480] And four, three, you know, thank you.
+- [55:33.520] Fourth, Theodore Roosevelt believed in
+- [55:36.559] an America that thinks big. He thought
+- [55:40.160] big. He was a big thinker. He was a
+- [55:42.880] tremendously big thinker. On the 4th of
+- [55:46.640] July in 1886,
+- [55:49.440] he spoke in Dickinson, North Dakota.
+- [55:52.960] Anybody from Dickinson? [cheering]
+- [55:57.680] And said, "Like all Americans,
+- [56:00.640] I like big things. Big prairies, big
+- [56:03.839] forests and mountains. I want them big.
+- [56:07.680] He wants big wheat fields. He wants
+- [56:10.559] tremendous railroads. Let him be big and
+- [56:13.599] beautiful and powerful and herds of
+- [56:15.760] cattle. He wants everything big. He
+- [56:18.480] wants big factories,
+- [56:20.640] steamboats. He wants everything big. It
+- [56:23.200] was cool. I mean, I thought it was great
+- [56:25.040] because I feel that way. I feel that.
+- [56:26.960] I've always felt that way. The Roosevelt
+- [56:29.520] wanted a big future and he had big
+- [56:32.400] dreams for America. And thanks to him,
+- [56:35.280] we built the Panama Canal. That
+- [56:37.040] beautiful Panama Canal.
+- [56:44.480] that is not managed the way it should
+- [56:46.240] be, but we won't talk about that now.
+- [56:50.079] But he did all of these incredible
+- [56:54.319] things with parks and everything else.
+- [56:56.960] And we vanquished
+- [56:59.599] every foreign power from the hemisphere.
+- [57:03.280] And he raised the American flag on the
+- [57:08.079] far side of the world. He had our
+- [57:09.920] American flag planted on every part of
+- [57:12.559] the world. He would call or whatever
+- [57:14.799] they did in those days. Is the flag over
+- [57:17.280] there is the flag he wanted that flag to
+- [57:20.400] fly boldly in other countries and other
+- [57:22.720] parts of the world. We built the great
+- [57:25.520] white fleet. Did you ever hear the great
+- [57:27.440] white fleet? We used to build ships.
+- [57:29.760] We're going to start very soon building
+- [57:31.440] them again. We're building them like
+- [57:34.240] you see. Although we do build the
+- [57:35.599] greatest submarines ever in ever in the
+- [57:38.079] world. We're 15 years ahead on
+- [57:39.680] submarines and other things. We do other
+- [57:42.240] things. Great. But we're going to start
+- [57:43.599] with the ships again. We used to build a
+- [57:45.119] ship a day and now they got out of that.
+- [57:48.400] A lot of bad a lot of people that didn't
+- [57:50.799] know what the hell they were doing in
+- [57:52.000] running our country. The Roosevelt
+- [57:53.920] understood that the grand and righteous
+- [57:57.440] ambition is not a vice. It is a American
+- [58:01.359] virtue. Having ambition is a positive
+- [58:03.839] thing. He said, not a negative thing.
+- [58:06.240] and it won us our country and it's been
+- [58:10.480] among the greatest forces for good. It's
+- [58:14.079] been the greatest thing our attitude and
+- [58:17.599] the attitude toward our country and
+- [58:19.280] making our country great by some people.
+- [58:21.280] Not all presidents were like that. I
+- [58:23.200] don't want to get involved with talking
+- [58:24.799] about the individual presidents but we
+- [58:27.760] had some good. We had few great. We had
+- [58:30.079] a couple, but we had some good, but we
+- [58:33.599] had some real bad ones. And they set us
+- [58:35.440] back very, very substantially. In
+- [58:37.200] particular, the last one.
+- [58:39.680] A nation like
+- [58:42.319] an individual
+- [58:44.480] either rises or falls, bills or decays,
+- [58:48.960] lives or dies by this. As we look into
+- [58:52.480] the future of our 250th year, it's time
+- [58:57.040] that we get out there and we expand our
+- [59:00.400] aspirations and our ambitions and build
+- [59:03.760] the country that will inspire the entire
+- [59:07.040] world for generations. So that's what
+- [59:08.799] we're doing. Again, we have more money
+- [59:11.839] being invested in the United States of
+- [59:13.839] America by other countries and people
+- [59:15.599] than ever before by many, many times
+- [59:18.880] over. The fake news doesn't like talking
+- [59:21.920] about it, but they see what's happening.
+- [59:23.440] Look at the stock market. Every day it's
+- [59:25.839] hitting a new high. I think it's 82
+- [59:28.480] times now in a short period of time. 82.
+- [59:33.066] [applause]
+- [59:34.319] And that's a good thing, not a bad
+- [59:36.079] thing. And all of you that have 401ks,
+- [59:39.040] which are many, who has a 401k, 401k,
+- [59:42.000] yeah, big percentage of the audience,
+- [59:45.680] everyone that has a 401k is setting
+- [59:47.920] records right now in your 401k. Your
+- [59:51.440] your wife, your husband, your kids, they
+- [59:53.680] all think you're a genius. I'm the
+- [59:56.079] genius. I'm the one. I'm only kidding.
+- [59:59.839] No, I told the story the other day for
+- [01:00:01.599] the first time. A policeman
+- [01:00:05.280] came up to me, a big, strong,
+- [01:00:07.119] good-looking guy, and he said, "Sir, I
+- [01:00:09.680] want to thank you." He was almost sort
+- [01:00:11.520] of crying. I said, "What do you want to
+- [01:00:14.160] talk to me about, officer?" He was
+- [01:00:16.079] standing online. He was watching as I
+- [01:00:18.240] shook hands with people. Some of these
+- [01:00:20.559] people are extremely strong and shaking
+- [01:00:22.240] hands. They break your hand because
+- [01:00:23.520] they're so emotional. Sir, thank you
+- [01:00:24.960] very much. That guy's an NFL offensive
+- [01:00:26.960] lineman. Sir, I'd like to thank you very
+- [01:00:28.960] much. Why?
+- [01:00:31.200] But he came up to me and he said, "Sir,
+- [01:00:33.280] I was leaving. I want to thank you so
+- [01:00:35.839] much." Well, my 401k is up 84%.
+- [01:00:39.520] My wife was disgusted with me for years.
+- [01:00:43.680] We just It was just going in the wrong
+- [01:00:46.559] direction. But it's up 84% this year.
+- [01:00:50.960] And I just want to thank you, sir,
+- [01:00:52.480] because it's really helped me with my
+- [01:00:54.079] marriage. My wife is respecting me
+- [01:00:56.720] again. She thought I was an idiot.
+- [01:00:59.839] This is a big strong guy. But the women
+- [01:01:01.839] knew, you know, the women rule. You know
+- [01:01:03.599] that. We know all the guys in there. You
+- [01:01:05.520] know, this guy is a big powerful guy.
+- [01:01:08.000] And he was a petrified of his wife. But
+- [01:01:11.119] you know what he said? Uh, my wife now
+- [01:01:14.000] respects me again. She thinks I'm a
+- [01:01:16.720] genius. She thinks I'm Warren Buffett.
+- [01:01:19.520] She thinks I'm one of the greatest
+- [01:01:20.799] investors. But they are up. Everybody in
+- [01:01:23.440] this room, there's not one person here
+- [01:01:25.040] that hasn't been going up 50, 60, 70,
+- [01:01:28.319] 80%. Your 401ks, you're making a lot of
+- [01:01:30.720] money. Everybody is. And we have more
+- [01:01:33.920] people working today than any time in
+- [01:01:37.280] the history of our country. We have more
+- [01:01:40.240] people working today than at any time.
+- [01:01:43.040] And we inherit a tremendous inflation
+- [01:01:46.400] problem from Biden. We inherited the
+- [01:01:48.559] worst inflation in history. 48 years
+- [01:01:50.960] they say but let's say history it was
+- [01:01:53.280] the worst inflation and prices were high
+- [01:01:55.760] and those prices are all coming down and
+- [01:01:57.839] you see fuel is coming way down it's
+- [01:01:59.760] dropping like a rock just like I said
+- [01:02:02.400] cuz those boats are coming out of the
+- [01:02:04.240] Hormo straight they're coming out by
+- [01:02:07.200] numbers that nobody ever saw setting
+- [01:02:09.280] records actually the oil is dropping we
+- [01:02:13.119] have some great oilmen here I don't know
+- [01:02:15.440] if they're happy or sad I don't give a
+- [01:02:17.200] damn if they're happy or sad I want the
+- [01:02:18.960] prices to go down and the oil is
+- [01:02:20.799] dropping like nobody thought possible,
+- [01:02:22.400] but I told you it would.
+- [01:02:24.880] Total control. We have total control of
+- [01:02:27.119] everything. This is just the beginning
+- [01:02:29.200] of the golden age of America. We're in
+- [01:02:31.040] the golden age of America. And America
+- [01:02:36.079] is going to experience something that I
+- [01:02:39.040] can truly say I believe the best is yet
+- [01:02:41.440] to come. It's going to be coming and
+- [01:02:44.240] it's been it's here, but it's it's
+- [01:02:48.079] coming at at speeds that nobody thought
+- [01:02:50.559] possible. Finally, Theodore Roosevelt
+- [01:02:52.480] understood that whatever
+- [01:02:56.000] our background, we are all Americans.
+- [01:02:58.160] We're Americans first, united under one
+- [01:03:01.680] flag.
+- [01:03:03.920] And we don't wipe our hands on a flag.
+- [01:03:07.119] Did you hear the person? one of our
+- [01:03:08.880] communist
+- [01:03:11.119] one of our communist people. But they
+- [01:03:13.680] cleaned it up. The press cleaned that
+- [01:03:15.280] statement up. You know that, right? She
+- [01:03:17.119] didn't use the word hand. She used a
+- [01:03:18.880] different word. A disgusting word.
+- [01:03:20.799] They're disgusting pigs.
+- [01:03:23.839] She didn't use the word hand. They said
+- [01:03:25.680] hand. She used another word. You know
+- [01:03:27.920] what word I'm talking about. These
+- [01:03:30.400] people are a disgrace. That's why the
+- [01:03:36.160] Roosevelt boldly fought for what he
+- [01:03:38.559] called the new nationalism. The word
+- [01:03:40.640] nationalism is a very interesting word.
+- [01:03:44.240] Putting the needs of the whole nation
+- [01:03:47.359] and all of these people above
+- [01:03:49.359] partisanship, lobbyists,
+- [01:03:52.240] crooked politicians.
+- [01:03:54.480] That's this is one thing with these
+- [01:03:55.839] guys. They are honest as hell. I'd let
+- [01:03:58.400] you know if they were crooked. If John
+- [01:04:00.240] or Kevin were crooked, I'd say they're
+- [01:04:03.599] crooked pals, but they're honest. Maybe
+- [01:04:07.520] they're too honest. Actually, we got to
+- [01:04:09.039] get an election going here, fellas. But
+- [01:04:11.599] no, these are great politicians. They're
+- [01:04:13.359] great people. That's why you you put
+- [01:04:16.160] them back in office in record numbers,
+- [01:04:17.839] the two of them, all the time.
+- [01:04:20.799] But TR knew that
+- [01:04:24.880] true patriotism demanded caring for the
+- [01:04:27.520] worker, the environment, and the health
+- [01:04:30.079] and culture, and integrity for the
+- [01:04:32.559] nation itself. He was something special.
+- [01:04:35.839] He was a really great man. He was a man
+- [01:04:38.799] the likes of which you may never see
+- [01:04:40.480] again, but we'll all get close and we'll
+- [01:04:43.039] all try and duplicate what he's done
+- [01:04:45.839] because he was a man of unbelievable
+- [01:04:48.319] genius and unbelievable toughness and
+- [01:04:50.480] principle. So, I want to just say that
+- [01:04:53.520] it's an honor to be with you. It's an
+- [01:04:56.079] honor to
+- [01:04:58.720] be asked to represent our nation in the
+- [01:05:01.760] opening of what will be a truly great
+- [01:05:04.400] library, museum, or center. call it what
+- [01:05:06.960] you want. And he deserves it as much as
+- [01:05:09.920] anybody that's ever been president of
+- [01:05:12.559] the United States, which is such a great
+- [01:05:14.319] honor. And I just want to thank
+- [01:05:16.240] everybody for being here on this
+- [01:05:17.680] extremely hot day. It's a beautiful day
+- [01:05:20.240] and it's a beautiful state. And I want
+- [01:05:22.480] to thank you all. Thank you very much
+- [01:05:24.160] everybody. Thank [cheering] you. Thank
+- [01:05:26.480] you very much. Thank you.
+- [01:05:30.045] [music]
+- [01:05:36.595] >> [music]
+- [01:05:42.490] [music]
+- [01:05:55.590] [music]
+- [01:05:56.079] >> Young man, there's no need to feel down.
+- [01:05:59.119] And I said, "Young man, pick yourself
+- [01:06:02.000] off [music] the ground." I said, "Young
+- [01:06:03.920] man, cuz you're in a new town, there's
+- [01:06:07.119] no need to [music] be unhappy, young
+- [01:06:11.440] man, there's a place you can go." I
+- [01:06:14.559] said, "Young [music] man, when you're
+- [01:06:16.880] short on your stay there, and I'm sure
+- [01:06:20.960] you [music] will find many ways to have
+- [01:06:24.880] a good time.
+- [01:06:28.480] It's fun to [music] stay in the YMCA.
+- [01:06:32.240] >> It's fun to stay at the YMCA.
+- [01:06:37.280] >> They have everything [music]
+- [01:06:39.920] to enjoy. You can hang out all the way.
+- [01:06:43.406] [music] It's time to stay at home.
+- [01:06:47.359] >> It's time to stay up.
+- [01:06:52.400] >> You can get yourself [music] clean. You
+- [01:06:54.559] can have a good meal. You can do
+- [01:06:56.880] whatever you feel.
+- [01:07:00.319] Young man, are you listening [music] to
+- [01:07:02.960] me? I said, young man, what do you want
+- [01:07:06.559] to be? I tell you, man,
+- [01:07:09.359] >> you can make million dreams, but you
+- [01:07:11.571] [music] got to know this one. No man
+- [01:07:17.039] does it all by himself. I said, [music]
+- [01:07:20.640] "Put your pride on the shelf.

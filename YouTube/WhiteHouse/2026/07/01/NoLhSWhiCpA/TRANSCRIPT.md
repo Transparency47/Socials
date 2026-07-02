@@ -1,0 +1,152 @@
+<!-- source: https://www.youtube.com/watch?v=NoLhSWhiCpA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: NoLhSWhiCpA -->
+<!-- date_published: 2026-07-01T19:07:45+00:00 -->
+<!-- date_accessed: 2026-07-02T05:42:31.436681+00:00 -->
+
+# Transcript: President Trump Participates in an Event at Theodore Roosevelt Presidential Library
+
+- [00:07.205] [applause]
+- [00:11.790] [applause]
+- [00:21.615] [applause]
+- [00:24.920] >> Good afternoon.
+- [00:26.840] Thank you all for being here.
+- [00:29.240] Want to just say one quick word, which
+- [00:30.920] is that this incredible, amazing,
+- [00:33.840] improbable
+- [00:35.400] presidential library museum would not
+- [00:37.200] have been possible with all of you. Give
+- [00:38.880] yourselves a hand. You guys are all key
+- [00:40.480] to making this happen. Way to go.
+- [00:43.230] >> [applause]
+- [00:48.280] >> You've all been invited to this special
+- [00:49.800] private ceremony.
+- [00:51.400] Uh we of course have a special guest
+- [00:53.920] here today on this remarkable and
+- [00:55.560] historic day.
+- [00:57.520] Uh and we'd like to uh
+- [00:59.160] Uh
+- [00:59.840] also with me on stage, I'd like to
+- [01:01.200] introduce uh Britt Slabinski. Britt is
+- [01:03.600] the president of the National Medal of
+- [01:07.200] Honor Society. But as you can see, he's
+- [01:09.920] also a Medal of Honor winner. So, thank
+- [01:11.880] you, Britt, for your service. Thank you
+- [01:13.280] for everything you've done.
+- [01:14.670] >> [applause]
+- [01:19.910] [applause]
+- [01:22.480] >> And with that,
+- [01:24.200] we have someone who's got a very, very
+- [01:26.720] remarkable surprise
+- [01:28.800] uh
+- [01:29.680] for the Theodore Roosevelt Presidential
+- [01:31.760] Library opening.
+- [01:33.400] Please join me in welcoming the 45th and
+- [01:35.960] 47th President of the United States of
+- [01:37.960] America, President Donald J. Trump.
+- [01:41.526] >> [applause]
+- [01:43.491] [cheering]
+- [01:46.111] [applause]
+- [01:53.316] [applause]
+- [02:01.176] [applause]
+- [02:07.520] >> There are a lot of people in this room
+- [02:09.679] that are as we call them Ted heads,
+- [02:11.959] people that know a lot of stuff about
+- [02:13.680] the history of Theodore Roosevelt. You
+- [02:15.520] may know that Theodore Roosevelt himself
+- [02:18.400] and his son Theodore Roosevelt Jr. Are
+- [02:21.160] both Medal of Honor winners, one of only
+- [02:23.440] two pairs in our history. Their Medal of
+- [02:25.800] Honors have never been together, but
+- [02:27.360] because of the generosity and support of
+- [02:29.480] President Trump, he brings with him
+- [02:31.320] today, right this is Theodore
+- [02:33.560] Roosevelt's actual Medal of Honor
+- [02:36.200] presenting it to the museum.
+- [02:38.511] >> [applause]
+- [02:43.096] [applause]
+- [02:51.611] [applause]
+- [02:58.120] >> Well, thank you very much. It was in the
+- [02:59.880] Roosevelt room for many many years.
+- [03:02.720] And when I heard about this, I said
+- [03:04.400] maybe we'll think about it. Then I saw
+- [03:06.160] what you did.
+- [03:07.680] And what a magnificent library you
+- [03:09.920] built. It's really a library, it's a
+- [03:12.160] museum, it's a center.
+- [03:14.160] And it's a great tribute and I said
+- [03:15.800] let's take it from the
+- [03:17.640] Roosevelt room, which is a very
+- [03:18.920] important room in the White House. I use
+- [03:20.560] it all the time.
+- [03:22.400] I'll be a little bit lonely in there
+- [03:23.600] without it.
+- [03:25.200] But I thought this would be a very
+- [03:26.959] really
+- [03:28.160] an appropriate place to have it.
+- [03:30.519] And
+- [03:31.680] then it's very special. You're a very
+- [03:33.280] special man.
+- [03:34.840] There are very few people that have
+- [03:36.239] them. You know, I want to give one to
+- [03:37.400] myself, but they tell me I'm not allowed
+- [03:39.040] to. My son over here, my both of them.
+- [03:42.120] I said fellows, I'd love to give one of
+- [03:43.640] them to me.
+- [03:45.239] What have I done that where I deserve it
+- [03:47.480] and they couldn't think of anything.
+- [03:50.200] So I'm not happy with them today.
+- [03:52.840] Now, there's no higher award. That's the
+- [03:55.800] Congressional Medal of Honor. The
+- [03:58.200] highest award we have. You have the
+- [04:00.200] Presidential Medal of Freedom.
+- [04:02.480] That's more of the civilian nature of
+- [04:05.480] those two. But, in particular that
+- [04:07.680] because what you have to go through is
+- [04:10.040] very rough. So, it's an honor to
+- [04:12.959] be with you. Congratulations. And it's
+- [04:15.040] an honor to be with my friend Doug who's
+- [04:16.799] a spectacular secretary
+- [04:20.280] of the Interior, to put it mildly.
+- [04:22.320] There's never been anyone better.
+- [04:25.932] >> [applause and cheering]
+- [04:34.447] [applause]
+- [04:35.520] >> So, I know you're all here looking
+- [04:36.880] forward to what will be a significant
+- [04:38.560] presidential address down at the
+- [04:39.919] amphitheater. But, before you go, we
+- [04:41.480] have one last thing. Uh President Trump
+- [04:43.760] being here on this day of dedicating
+- [04:46.120] this library, it's a it is a historic
+- [04:48.919] moment to have a sitting president here
+- [04:51.440] to help do that. We are ceremoniously,
+- [04:53.320] the president and I are going to cut the
+- [04:54.600] ribbon. Uh and then uh we'll all see
+- [04:57.200] down at the amphitheater after that.
+- [04:58.680] But, President, let's grab a sitter's
+- [05:00.160] scissors.
+- [05:01.958] >> [clears throat]
+- [05:02.880] >> They did say no running with these.
+- [05:04.680] We'll be
+- [05:19.360] >> Well, well.
+- [05:20.000] >> And we need audience participation. You
+- [05:21.440] guys count down from 10. How about that?
+- [05:23.960] >> 10
+- [05:24.400] >> 10
+- [05:24.919] >> 9
+- [05:25.840] 8
+- [05:26.800] 7
+- [05:27.760] 6
+- [05:28.640] 5
+- [05:29.600] 4
+- [05:30.520] 3
+- [05:31.400] 2
+- [05:32.280] 1
+- [05:36.018] >> [applause]
+- [05:41.258] [applause]
+- [05:47.153] [applause]
+- [05:50.400] >> Thank Thank you all. We'll see you down
+- [05:51.880] at the amphitheater.
+- [05:53.520] Let's go, North Dakota.
+- [05:56.979] >> [cheering and applause]

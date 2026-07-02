@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-07-02
 
-- Posts: 3
+- Posts: 7
 
+- [03:55 UTC - Truth Social post 116848361915412381](116848361915412381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116848361915412381
+  - _No text content captured._
+- [03:53 UTC - Truth Social post 116848355347603843](116848355347603843/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116848355347603843
+  - _No text content captured._
+- [03:50 UTC - Truth Social post 116848343312690891](116848343312690891/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116848343312690891
+  - _No text content captured._
+- [01:59 UTC - S&P 500 closes with strongest quarter since 2020: [https:// justthenews.com/politics-polic...](116847906594604040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116847906594604040
+  - S&P 500 closes with strongest quarter since 2020: [https:// justthenews.com/politics-polic y/finance/sp-500-closes-strongest-quarter-2020](https://justthenews.com/politics-policy/f...
 - [00:57 UTC - Breitbart's [@ jonkahnmusic](https://truthsocial.com/@jonkahnmusic) wrote the [# 1](https:...](116847662330084420/)
   - Source: https://truthsocial.com/@realDonaldTrump/116847662330084420
   - Breitbart's [@ jonkahnmusic](https://truthsocial.com/@jonkahnmusic) wrote the [# 1](https://truthsocial.com/tags/1) song, "Fighter,” and now he and Michael Farren have an incredibl...

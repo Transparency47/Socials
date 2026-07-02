@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=Oxn6SpWQzgw: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=Oxn6SpWQzgw! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=Oxn6SpWQzgw&ei=q8BFav37NMio0_wPv56-4Qs&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1782981403&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=6649FF1A713406C93563296BD4E1D7A1B76DA336.093A256B92C6BE3A2CCCE26EF8B6EFD0BA00DA28&key=yt8&kind=asr&lang=en&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0NiRkijqLGw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0NiRkijqLGw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -120168,6 +120168,50 @@
       "title": "Breitbart's [@ jonkahnmusic](https://truthsocial.com/@jonkahnmusic) wrote the [# 1](https:...",
       "url": "https://truthsocial.com/@realDonaldTrump/116847662330084420"
     },
+    "truthsocial:realdonaldtrump:116847906594604040": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-02T05:42:10.882426+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/02/116847906594604040",
+      "platform": "truthsocial",
+      "post_id": "116847906594604040",
+      "published": "2026-07-02T01:59:19.117000+00:00",
+      "title": "S&P 500 closes with strongest quarter since 2020: [https:// justthenews.com/politics-polic...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116847906594604040"
+    },
+    "truthsocial:realdonaldtrump:116848343312690891": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-02T05:42:10.862196+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/02/116848343312690891",
+      "platform": "truthsocial",
+      "post_id": "116848343312690891",
+      "published": "2026-07-02T03:50:22.911000+00:00",
+      "title": "Truth Social post 116848343312690891",
+      "url": "https://truthsocial.com/@realDonaldTrump/116848343312690891"
+    },
+    "truthsocial:realdonaldtrump:116848355347603843": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-02T05:42:10.861951+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/02/116848355347603843",
+      "platform": "truthsocial",
+      "post_id": "116848355347603843",
+      "published": "2026-07-02T03:53:26.550000+00:00",
+      "title": "Truth Social post 116848355347603843",
+      "url": "https://truthsocial.com/@realDonaldTrump/116848355347603843"
+    },
+    "truthsocial:realdonaldtrump:116848361915412381": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-02T05:42:10.861634+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/02/116848361915412381",
+      "platform": "truthsocial",
+      "post_id": "116848361915412381",
+      "published": "2026-07-02T03:55:06.830000+00:00",
+      "title": "Truth Social post 116848361915412381",
+      "url": "https://truthsocial.com/@realDonaldTrump/116848361915412381"
+    },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
       "content_kind": "post",
@@ -161737,6 +161781,17 @@
       "title": "\ud83c\udf85\ud83c\udffc",
       "url": "https://www.youtube.com/watch?v=3ClF_EFxP-M"
     },
+    "youtube:whitehouse:3Crx95yg4v8": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-02T05:42:30.566031+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/01/3Crx95yg4v8",
+      "platform": "youtube",
+      "post_id": "3Crx95yg4v8",
+      "published": "2026-07-01T20:12:36+00:00",
+      "title": "President Trump delivers a speech at the opening of the Theodore Roosevelt Presidential Library.",
+      "url": "https://www.youtube.com/shorts/3Crx95yg4v8"
+    },
     "youtube:whitehouse:3Fxd1TnNav4": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -168007,6 +168062,17 @@
       "title": "Press Secretary Karoline Leavitt Briefs Members of the Media with a Special Guest, Apr. 16, 2025",
       "url": "https://www.youtube.com/watch?v=Nlmkn3JNOHI"
     },
+    "youtube:whitehouse:NoLhSWhiCpA": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-02T05:42:31.436681+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/01/NoLhSWhiCpA",
+      "platform": "youtube",
+      "post_id": "NoLhSWhiCpA",
+      "published": "2026-07-01T19:07:45+00:00",
+      "title": "President Trump Participates in an Event at Theodore Roosevelt Presidential Library",
+      "url": "https://www.youtube.com/watch?v=NoLhSWhiCpA"
+    },
     "youtube:whitehouse:NvY1m8Le1zk": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -168281,6 +168347,17 @@
       "published": "2025-08-07T22:18:08+00:00",
       "title": "President Trump Makes an Economic Announcement, Aug. 7, 2025",
       "url": "https://www.youtube.com/watch?v=OsieDdXpnlc"
+    },
+    "youtube:whitehouse:Oxn6SpWQzgw": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-02T05:42:29.465812+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/01/Oxn6SpWQzgw",
+      "platform": "youtube",
+      "post_id": "Oxn6SpWQzgw",
+      "published": "2026-07-01T20:35:50+00:00",
+      "title": "President Trump Delivers Remarks, Jul. 1, 2026",
+      "url": "https://www.youtube.com/watch?v=Oxn6SpWQzgw"
     },
     "youtube:whitehouse:Oy6TAdOhIYw": {
       "account": "WhiteHouse",
