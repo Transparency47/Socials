@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-02
 
-- Posts: 7
+- Posts: 8
 
+- [12:02 UTC - The United States spends more money on NATO than any other country, by far, to protect the...](116850279579552155/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116850279579552155
+  - The United States spends more money on NATO than any other country, by far, to protect them, without getting any benefit from so doing: U.S. 999 Billion Dollars, United Kingdom, 90...
 - [03:55 UTC - Truth Social post 116848361915412381](116848361915412381/)
   - Source: https://truthsocial.com/@realDonaldTrump/116848361915412381
   - _No text content captured._
