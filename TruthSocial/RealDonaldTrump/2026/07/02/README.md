@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-02
 
-- Posts: 9
+- Posts: 11
 
+- [17:57 UTC - Truth Social post 116851676127577747](116851676127577747/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116851676127577747
+  - _No text content captured._
+- [17:48 UTC - Today I am declaring a National Scallops Day to celebrate an action taken by the National ...](116851640807022172/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116851640807022172
+  - Today I am declaring a National Scallops Day to celebrate an action taken by the National Oceanic and Atmospheric Administration (NOAA) that will open up the Northern Edge of Georg...
 - [13:23 UTC - How about this? Micron, a GREAT American Company, announced that they are putting in 250 M...](116850596821921968/)
   - Source: https://truthsocial.com/@realDonaldTrump/116850596821921968
   - How about this? Micron, a GREAT American Company, announced that they are putting in 250 Million Dollars into the Trump Accounts for the future benefit of children, and their stock...
