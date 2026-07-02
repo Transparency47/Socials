@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-02
 
-- Posts: 8
+- Posts: 9
 
+- [13:23 UTC - How about this? Micron, a GREAT American Company, announced that they are putting in 250 M...](116850596821921968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116850596821921968
+  - How about this? Micron, a GREAT American Company, announced that they are putting in 250 Million Dollars into the Trump Accounts for the future benefit of children, and their stock...
 - [12:02 UTC - The United States spends more money on NATO than any other country, by far, to protect the...](116850279579552155/)
   - Source: https://truthsocial.com/@realDonaldTrump/116850279579552155
   - The United States spends more money on NATO than any other country, by far, to protect them, without getting any benefit from so doing: U.S. 999 Billion Dollars, United Kingdom, 90...
