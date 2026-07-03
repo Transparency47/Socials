@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=73DC5aaZCTQ: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=73DC5aaZCTQ! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=73DC5aaZCTQ&ei=RvtGau73MMKcsfIPx8Wo0Qk&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783061942&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=AC36E5FDAF5F793826DD0BB564477846FF522698.E2677D80865D73FF562A651E7691236D3F8DEAB3&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=73DC5aaZCTQ: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=73DC5aaZCTQ! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=73DC5aaZCTQ&ei=cypHaqmeHuCCkucPmMD52As&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783074019&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=E463B419170E3EC788645C5DC5DE5EEBD94CC09D.EF72570E3CBFC0783B5A7F6AEA81F314A8C0B5B7&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -120299,6 +120299,39 @@
       "published": "2026-07-02T17:57:57.628000+00:00",
       "title": "Truth Social post 116851676127577747",
       "url": "https://truthsocial.com/@realDonaldTrump/116851676127577747"
+    },
+    "truthsocial:realdonaldtrump:116853549264630885": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-03T03:20:02.026036+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/03/116853549264630885",
+      "platform": "truthsocial",
+      "post_id": "116853549264630885",
+      "published": "2026-07-03T01:54:19.433000+00:00",
+      "title": "I am thrilled to announce the opening of SPIRIT OF \u201976 at FREEDOM PLAZA, a new Exhibition ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116853549264630885"
+    },
+    "truthsocial:realdonaldtrump:116853560701003246": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-03T03:20:02.025659+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/03/116853560701003246",
+      "platform": "truthsocial",
+      "post_id": "116853560701003246",
+      "published": "2026-07-03T01:57:13.936000+00:00",
+      "title": "250 years ago, on the eve of America\u2019s momentous vote for Independence, Caesar Rodney rece...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116853560701003246"
+    },
+    "truthsocial:realdonaldtrump:116853791867694191": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-03T03:20:02.025207+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/03/116853791867694191",
+      "platform": "truthsocial",
+      "post_id": "116853791867694191",
+      "published": "2026-07-03T02:56:01.261000+00:00",
+      "title": "Ridiculous for the U.S.A. to continue along this one sided path when the relationship is n...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116853791867694191"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
