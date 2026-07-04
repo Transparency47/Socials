@@ -1,7 +1,31 @@
 # TruthSocial / RealDonaldTrump / 2026-07-04
 
-- Posts: 14
+- Posts: 22
 
+- [22:03 UTC - Truth Social post 116863964316579525](116863964316579525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863964316579525
+  - _No text content captured._
+- [21:58 UTC - Truth Social post 116863947961868476](116863947961868476/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863947961868476
+  - _No text content captured._
+- [21:47 UTC - Truth Social post 116863901745611294](116863901745611294/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863901745611294
+  - _No text content captured._
+- [21:44 UTC - Truth Social post 116863892707937785](116863892707937785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863892707937785
+  - _No text content captured._
+- [21:40 UTC - Liberty has prevailed here because of the culture and the character of the people who decl...](116863876220138991/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863876220138991
+  - Liberty has prevailed here because of the culture and the character of the people who declared it, defended it, and preserved it—We reach a milestone like no other and celebrate wi...
+- [21:38 UTC - Truth Social post 116863869495508792](116863869495508792/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863869495508792
+  - _No text content captured._
+- [21:34 UTC - Truth Social post 116863852189065357](116863852189065357/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863852189065357
+  - _No text content captured._
+- [21:33 UTC - Truth Social post 116863849329717320](116863849329717320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863849329717320
+  - _No text content captured._
 - [18:59 UTC - Europe is learning that when you take in Third World criminals, you become a Third World C...](116863241061573145/)
   - Source: https://truthsocial.com/@realDonaldTrump/116863241061573145
   - Europe is learning that when you take in Third World criminals, you become a Third World Country. It happens quickly, in just a blink of the eye. I was elected just in time!!! Pres...
