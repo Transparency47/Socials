@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0NiRkijqLGw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0NiRkijqLGw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=kQZbUlLGWHk: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=kQZbUlLGWHk! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -120541,6 +120541,28 @@
       "published": "2026-07-04T06:19:16.417000+00:00",
       "title": "Truth Social post 116860253399741841",
       "url": "https://truthsocial.com/@realDonaldTrump/116860253399741841"
+    },
+    "truthsocial:realdonaldtrump:116862309953442713": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-04T15:47:34.795633+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/04/116862309953442713",
+      "platform": "truthsocial",
+      "post_id": "116862309953442713",
+      "published": "2026-07-04T15:02:16.970000+00:00",
+      "title": "Has anyone ever seen a Happy Dumocrat? President DONALD J. TRUMP",
+      "url": "https://truthsocial.com/@realDonaldTrump/116862309953442713"
+    },
+    "truthsocial:realdonaldtrump:116862311673958910": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-04T15:47:34.795127+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/04/116862311673958910",
+      "platform": "truthsocial",
+      "post_id": "116862311673958910",
+      "published": "2026-07-04T15:02:43.253000+00:00",
+      "title": "Truth Social post 116862311673958910",
+      "url": "https://truthsocial.com/@realDonaldTrump/116862311673958910"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

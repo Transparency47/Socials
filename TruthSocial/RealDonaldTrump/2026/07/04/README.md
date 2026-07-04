@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-04
 
-- Posts: 10
+- Posts: 12
 
+- [15:02 UTC - Truth Social post 116862311673958910](116862311673958910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116862311673958910
+  - _No text content captured._
+- [15:02 UTC - Has anyone ever seen a Happy Dumocrat? President DONALD J. TRUMP](116862309953442713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116862309953442713
+  - Has anyone ever seen a Happy Dumocrat? President DONALD J. TRUMP
 - [06:19 UTC - Truth Social post 116860253399741841](116860253399741841/)
   - Source: https://truthsocial.com/@realDonaldTrump/116860253399741841
   - _No text content captured._
