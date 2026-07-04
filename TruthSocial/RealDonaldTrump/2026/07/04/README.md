@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-04
 
-- Posts: 12
+- Posts: 14
 
+- [18:59 UTC - Europe is learning that when you take in Third World criminals, you become a Third World C...](116863241061573145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863241061573145
+  - Europe is learning that when you take in Third World criminals, you become a Third World Country. It happens quickly, in just a blink of the eye. I was elected just in time!!! Pres...
+- [18:53 UTC - Despite the heat, which isn’t as bad as predicted, the crowds in D.C. are INCREDIBLE! The ...](116863219932335821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116863219932335821
+  - Despite the heat, which isn’t as bad as predicted, the crowds in D.C. are INCREDIBLE! The love of our Country has never been stronger! The Air Shows are at a level never seen befor...
 - [15:02 UTC - Truth Social post 116862311673958910](116862311673958910/)
   - Source: https://truthsocial.com/@realDonaldTrump/116862311673958910
   - _No text content captured._
