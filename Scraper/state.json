@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=kQZbUlLGWHk: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=kQZbUlLGWHk! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=0NiRkijqLGw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=0NiRkijqLGw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10035,6 +10035,17 @@
       "published": "2026-07-04T12:45:29+00:00",
       "title": "Today, America wakes 250 years later as a beacon of hope",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7658652876058692878"
+    },
+    "tiktok:whitehouse:7658701551057243406": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-04T16:57:01.631245+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/04/7658701551057243406",
+      "platform": "tiktok",
+      "post_id": "7658701551057243406",
+      "published": "2026-07-04T15:53:57+00:00",
+      "title": "POV: America entered its 2000s era",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7658701551057243406"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -175376,6 +175387,17 @@
       "published": "2025-03-03T20:11:46+00:00",
       "title": "President Trump Makes an Investment Announcement",
       "url": "https://www.youtube.com/watch?v=kQO50OiUcrw"
+    },
+    "youtube:whitehouse:kQZbUlLGWHk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-04T16:57:05.882658+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/04/kQZbUlLGWHk",
+      "platform": "youtube",
+      "post_id": "kQZbUlLGWHk",
+      "published": "2026-07-04T15:44:53+00:00",
+      "title": "Vice President JD Vance Delivers Remarks Aboard the USS Kearsarge in New York Harbor, NY",
+      "url": "https://www.youtube.com/watch?v=kQZbUlLGWHk"
     },
     "youtube:whitehouse:kS-Sqie9bgU": {
       "account": "WhiteHouse",

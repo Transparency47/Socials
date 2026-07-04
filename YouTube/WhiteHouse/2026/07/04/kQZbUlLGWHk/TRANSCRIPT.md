@@ -1,0 +1,591 @@
+<!-- source: https://www.youtube.com/watch?v=kQZbUlLGWHk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: kQZbUlLGWHk -->
+<!-- date_published: 2026-07-04T15:44:53+00:00 -->
+<!-- date_accessed: 2026-07-04T16:57:05.882658+00:00 -->
+
+# Transcript: Vice President JD Vance Delivers Remarks Aboard the USS Kearsarge in New York Harbor, NY
+
+- [00:06.640] How we doing?
+- [00:11.679] >> Srirafi
+- [00:13.759] >> and happy birthday to all the sailors
+- [00:15.839] and the marines and all the service
+- [00:17.440] members of this incredible ship. Please,
+- [00:19.680] please, ladies and gentlemen, take take
+- [00:21.119] a seat. You know, I know it's 100
+- [00:23.039] degrees out here, but my speech writers
+- [00:24.800] wrote me a nice nine-hour address, so
+- [00:27.920] it's going to be a long day. a long day.
+- [00:30.800] But let me start by saying first of all,
+- [00:33.520] thank you for being here on this
+- [00:35.760] incredibly historic occasion. I have to
+- [00:38.559] give a shout out to Admiral Codle and of
+- [00:40.719] course acting secretary Cal, two great
+- [00:43.200] Americans. Thank you for your leadership
+- [00:45.360] and for everything you've done to
+- [00:46.879] prepare us for this incredible
+- [00:48.640] celebration today. And I al also of
+- [00:51.600] course got to give thank you but also
+- [00:53.680] special greetings from the president of
+- [00:56.079] the United States for reviving this
+- [00:58.719] incredibly proud naval tradition as we
+- [01:02.079] celebrate 250 years of American daring
+- [01:06.080] and 250 years of American naval
+- [01:09.360] excellence.
+- [01:11.520] Today,
+- [01:17.280] today we celebrate 250 years of America
+- [01:21.600] facing the future without fear. We
+- [01:24.640] celebrate 250 years of proving what a
+- [01:28.479] free people can achieve by the
+- [01:30.560] providence of our almighty creator. I
+- [01:33.920] want to welcome the incredible sailors
+- [01:35.680] who are with us today. all the Marines,
+- [01:38.479] the coasties, and countless others from
+- [01:41.040] all of our forces who serve our nation
+- [01:43.119] and do so proudly. And I especially want
+- [01:46.000] to thank and welcome our wounded
+- [01:48.079] warriors and gold star families, many of
+- [01:51.200] New York's finest police officers and
+- [01:53.360] bravest firefighters. And of course, we
+- [01:55.840] have a number of local leaders from
+- [01:57.280] across this tri-state area. I'm honored
+- [02:00.479] to welcome the dozens of Navy chiefs and
+- [02:03.360] other guests from other countries around
+- [02:05.840] the world who represent the vessels
+- [02:08.080] joining us in today's review. And to the
+- [02:10.879] Americans who are watching back home, we
+- [02:14.160] have over 50 countries from all over the
+- [02:17.440] world who chose to send fighters or
+- [02:20.640] naval vessels here to honor our country.
+- [02:24.720] And we say from the bottom of our
+- [02:26.239] hearts, we are grateful for our friends,
+- [02:28.720] grateful for our allies on this special
+- [02:30.800] anniversary.
+- [02:32.640] It is a very American thing to ring in
+- [02:35.760] 250 years of American history by
+- [02:38.560] parading our naval and air force might
+- [02:41.120] for the world to see. But I can't help
+- [02:44.000] but consider that 250 years ago, the
+- [02:47.360] waters of New York Harbor looked very,
+- [02:50.239] very different. While the Continental
+- [02:52.879] Congress met in Philadelphia to ratify
+- [02:55.360] the Declaration of Independence, General
+- [02:58.160] Washington was right here in Manhattan,
+- [03:01.440] peering out on this beautiful land and
+- [03:04.000] beautiful sea.
+- [03:06.000] His attention was fixed on the horizon,
+- [03:09.599] watching for sails of the most powerful
+- [03:12.400] navy on Earth.
+- [03:15.200] One week before, the British had begun
+- [03:17.840] landing troops on Staten Island, and
+- [03:20.480] they had landed 32,000
+- [03:23.760] in just over six weeks.
+- [03:26.400] One colonist still in the city
+- [03:28.159] recounted, "It seemed as if all of
+- [03:30.640] London was afloat and heading to the new
+- [03:33.680] nation. War was coming, and everyone
+- [03:37.519] knew it." By July of 1776,
+- [03:41.440] 80% of New York's population had emptied
+- [03:44.239] out in anticipation of the coming
+- [03:46.720] violence. And that brings us back to our
+- [03:49.760] great General Washington.
+- [03:52.159] He knew the battles to come would be
+- [03:54.159] bruising and would demand much of his
+- [03:57.200] men,
+- [03:58.959] but they needed to know through hot
+- [04:01.360] summers and cold winters exactly what
+- [04:04.159] they were being asked to fight for.
+- [04:07.040] And so just a few days after the
+- [04:09.040] Declaration of Independence was signed,
+- [04:11.760] George Washington read aloud the words
+- [04:14.799] of the incredible Declaration.
+- [04:17.919] We hold these truths to be self-evident
+- [04:21.680] that all men are created equal, that
+- [04:24.880] they are endowed by their creator with
+- [04:27.199] certain unalienable rights, and that
+- [04:30.080] among these rights are life, liberty,
+- [04:34.160] and the pursuit of happiness.
+- [04:36.880] Even today, 250 years to the day later,
+- [04:41.360] these words command a tremendous power
+- [04:43.840] over us as Americans.
+- [04:46.400] For 250 years, they have stirred our
+- [04:48.720] hearts and they've reminded us of who we
+- [04:51.919] are as a people.
+- [04:54.320] But to Washington soldiers, to the
+- [04:56.240] people to whom they were first read,
+- [04:59.040] think about this. They were entirely
+- [05:00.639] new. what has become standard American
+- [05:04.240] parliament. They had never heard those
+- [05:06.720] words before. And I think it's something
+- [05:09.840] striking to reflect on that in 2026, the
+- [05:13.919] declaration was written with the
+- [05:15.520] assumption that its audience would
+- [05:17.759] immediately grasp its words. Though they
+- [05:20.400] had never heard it, they would know
+- [05:22.320] exactly what it meant. It wasn't written
+- [05:25.120] for historians. It wasn't written for
+- [05:27.919] academics. It wasn't written for the
+- [05:29.600] generations to come. It was written for
+- [05:33.039] the people of this fledgling country. It
+- [05:36.800] was written for the soldiers who would
+- [05:38.400] fight to turn those words into a new
+- [05:41.120] system of government. As a document, it
+- [05:45.039] does not handhold its readers,
+- [05:48.240] its citizenship at a very hard level. It
+- [05:50.960] does not pause to explain who this
+- [05:52.960] creator is. It doesn't explain what the
+- [05:55.600] equality of men means. It doesn't try to
+- [05:58.639] go into details about the consent of the
+- [06:00.960] governed. It simply declares these
+- [06:03.759] truths to be self-evident.
+- [06:07.600] 250 years later, it's worth asking.
+- [06:11.039] Self-evident to whom?
+- [06:13.759] And the declaration proclaims truths the
+- [06:15.919] founders believe to all mankind. Yes.
+- [06:19.199] But it says those truths in language
+- [06:21.280] intended to be familiar specifically to
+- [06:23.919] the American nation. that it was
+- [06:25.600] authored to, authored by, and authored
+- [06:28.880] for.
+- [06:30.400] It was, as Jefferson put it later in his
+- [06:32.720] own life, an expression of the American
+- [06:36.000] mind. A document whose purpose wasn't,
+- [06:39.360] quote, to find out new principles or new
+- [06:42.479] arguments, but to place before mankind
+- [06:45.759] the common sense of the subject, the
+- [06:48.319] common sense of the American people.
+- [06:51.759] That people had been generations in the
+- [06:54.479] making. 1776
+- [06:56.560] was not an accident. The patriots of
+- [06:59.360] that era understood themselves to be
+- [07:01.440] heirs to an older civilization who would
+- [07:04.000] carry it forward. Now they shared with
+- [07:06.800] Great Britain the same language, the
+- [07:09.919] same God, the same system of common law.
+- [07:13.840] They even read many of the same books
+- [07:16.400] and observe many of the same customs.
+- [07:19.520] They share the same understanding of
+- [07:21.199] justice and public life. You know,
+- [07:24.240] George Washington's boyhood offers a
+- [07:26.479] small but revealing example. When he was
+- [07:28.479] 13 years old, he copied down more than
+- [07:31.759] 100 entries from a tiny little book
+- [07:34.560] called The Rules of Civility and Decent
+- [07:37.280] Behavior. It was not an American work,
+- [07:40.319] but it was first published in London
+- [07:42.160] more than a century before George
+- [07:43.840] Washington was born.
+- [07:46.240] Yet the America that formed Washington
+- [07:49.120] demanded qualities that no book, no
+- [07:52.479] manual could teach.
+- [07:54.639] Before General Washington commanded an
+- [07:56.720] army, he spent his 20s surveying
+- [07:59.680] America's wild interior, saving up
+- [08:02.639] money, learning self-reliance on a
+- [08:05.199] continent that rewarded initiative more
+- [08:07.280] than pedigree. Didn't care if you were a
+- [08:09.280] nobleman. It cared what you could do.
+- [08:12.800] Now, our society at the time reinforced
+- [08:15.120] the habits Washington learned in the
+- [08:17.759] wilderness. Frontier life rewarded
+- [08:20.960] resourcefulness, while America's
+- [08:23.280] colonial assemblies taught citizens to
+- [08:26.000] govern their own affairs. It taught
+- [08:28.560] citizens to be self-governing
+- [08:31.759] human beings.
+- [08:33.680] Churches at the time, especially those
+- [08:35.760] who were touched by the Great Awakening,
+- [08:38.240] reminded congregants that no earthly
+- [08:40.640] hierarchy outweighed the equal dignity
+- [08:43.760] of every human soul before its creator.
+- [08:47.440] All of that came together. And so, it
+- [08:50.240] was no surprise that when Washington
+- [08:52.240] soldiers first heard the declaration 250
+- [08:55.680] years ago, they understood precisely
+- [08:58.959] what it meant. They understood the
+- [09:01.760] meaning that was conveyed. It was
+- [09:04.399] seismic, but it was their birthright as
+- [09:07.360] citizens of this new republic.
+- [09:10.320] The words might have been new, but they
+- [09:13.040] expressed a feeling, something that
+- [09:14.959] already lived in the heart of every
+- [09:17.519] single American patriot. And I believe
+- [09:20.320] those words still live in the heart of
+- [09:22.880] every single American patriot today.
+- [09:26.800] And for seven long years, they fought
+- [09:29.440] for that birthright. It wasn't easy. On
+- [09:32.240] some days, it was hotter even than it
+- [09:34.640] was today. As hard as that is to
+- [09:36.080] believe. Many suffered and died for that
+- [09:39.279] dream and died for those principles.
+- [09:42.480] But by the grace of Almighty God, they
+- [09:44.480] secured for us a free, a proud, and an
+- [09:48.160] independent republic that endures and
+- [09:50.720] doesn't just endure, but thrives to this
+- [09:54.000] very day.
+- [09:55.920] As Washington traded in the uniform for
+- [09:58.560] the presidency, he remained preoccupied
+- [10:01.360] with the physical land that had shaped
+- [10:03.519] him. He imagined wagons crossing
+- [10:06.800] mountains, paths out of the Alaganis and
+- [10:09.519] the Appalachins, and canals connecting
+- [10:11.839] the PTOAC and the Ohio River to its
+- [10:14.800] western valleys.
+- [10:16.720] Our first president would not live long
+- [10:18.800] enough to see that vision of a continent
+- [10:21.760] connected. He would not live to see it
+- [10:23.920] to completion. But the rivers he
+- [10:26.480] surveyed in his youth carried on
+- [10:28.560] westward without him. They carried
+- [10:31.440] settlers and new riches and cities
+- [10:35.200] waiting to be built. And eventually they
+- [10:38.880] carried a 13-year-old boy by the name of
+- [10:41.600] James Buchanan Eids.
+- [10:44.720] In the fall of 1833, Eids and his
+- [10:47.680] family, like many Americans, moved west
+- [10:50.720] to the nation's growing frontier, the
+- [10:52.959] land of opportunity. And as their
+- [10:55.360] steamboat approached St. Louis, its
+- [10:58.399] boiler exploded, throwing him into the
+- [11:01.519] turbulent waters of the Mississippi.
+- [11:04.560] The family lost everything, every
+- [11:07.360] earthly possession, and the river nearly
+- [11:10.079] killed young Eids. From that moment on,
+- [11:13.360] he vowed not to be a slave to that
+- [11:16.880] mighty river, but to make it his own.
+- [11:20.800] He received no formal education, but to
+- [11:24.160] support his family. He sold apples on
+- [11:27.040] the St. Louis riverfront, captivated by
+- [11:29.760] the bustle and frontier of Boomtown St.
+- [11:32.800] Louis.
+- [11:34.320] At 16, he took a job on the water. And
+- [11:36.959] not long after, he conceived of an idea
+- [11:39.519] that most engineers at the time, they
+- [11:41.920] thought it was crazy. They thought it
+- [11:44.399] was insane.
+- [11:46.320] You know, sunken ships and other
+- [11:47.839] treasures lay scattered along the bottom
+- [11:50.240] of the Mississippi.
+- [11:52.320] No business in the world existed to
+- [11:55.040] salvage them, to take that buried
+- [11:57.360] treasure on the bottom of the mighty
+- [11:58.880] Mississippi and bring it to work for
+- [12:00.880] people. Unlike the more peaceful streams
+- [12:03.760] out east, the river's strong currents
+- [12:06.880] and turbid waters, most insisted that
+- [12:10.160] ordinary diving in the mighty
+- [12:12.000] Mississippi was impossible. You could
+- [12:14.000] not do what Eids proposed that we do.
+- [12:17.760] But he disagreed. And so he did what
+- [12:20.000] every American does when they're told
+- [12:21.680] they can't do something. He went out and
+- [12:23.519] did it anyway. And he did it himself.
+- [12:26.720] He bought a 40gallon whiskey barrel,
+- [12:30.000] fixed it to a diving bell, and climbed
+- [12:32.320] in and down he went all by himself.
+- [12:35.920] The riverbed was pitch black, the
+- [12:39.279] current pulling his feet every which
+- [12:41.279] way.
+- [12:42.959] Sand swirled around him like a dense
+- [12:45.120] snowstorm, he later recalled. But he
+- [12:47.920] located his target, a large hunk of lead
+- [12:51.440] tied on the cable and came back to the
+- [12:53.680] surface. Eids went on to become one of
+- [12:56.639] the nation's greatest civil engineers.
+- [12:59.519] He built the very first bridge spanning
+- [13:01.760] the Mississippi River south of its
+- [13:04.079] confluence with the Missouri. An
+- [13:06.480] impressive feat for a man who'd never
+- [13:08.560] built a bridge before. The people who
+- [13:11.839] told him, "You can't build the most
+- [13:14.079] difficult bridge because you've never
+- [13:15.760] built a bridge before." He said, "Yes, I
+- [13:17.680] can because I'm an American and I'm
+- [13:19.760] going to do it myself."
+- [13:21.839] It was the first on the planet, that
+- [13:24.480] bridge, to be made of steel. And
+- [13:26.880] residents of St. Louis still use that
+- [13:29.200] bridge to this very day, nearly 200
+- [13:32.480] years later. That is American ingenuity
+- [13:35.839] and American greatness.
+- [13:38.240] At the river's mouth in Louisiana, Eids
+- [13:41.360] raised jetties that helped calm its
+- [13:43.120] violent flooding to prevent the buildup
+- [13:45.440] of silt. And by doing so, he transformed
+- [13:49.279] New Orleans from the ninth largest port
+- [13:52.240] in the United States to the second most
+- [13:55.120] powerful port in the world, rivaling
+- [13:57.760] only the city that stands behind us. But
+- [14:01.440] Eid had already faced a still greater
+- [14:03.519] test because as the civil war broke out,
+- [14:07.120] the government summoned him to
+- [14:08.480] Washington for his help building the
+- [14:10.160] ironclads, which the United States Navy
+- [14:12.880] would seize the Mississippi with.
+- [14:16.639] It was no matter that Eids had never
+- [14:19.279] built a gunboat in his life. He had
+- [14:21.199] never built a gunboat ever. Instead, he
+- [14:25.360] completed 700 of them in a 100 days.
+- [14:29.680] It's unbelievable.
+- [14:31.600] The river ships that Eid built were so
+- [14:33.760] strong that the Navy deployed them into
+- [14:36.399] the ocean to secure the Gulf. They
+- [14:39.279] served their purpose. They defended the
+- [14:41.519] Mississippi. And in doing so, they
+- [14:43.680] helped preserve our union. And so it
+- [14:46.720] kept growing. And of course, the
+- [14:48.959] American frontier made way to farms and
+- [14:51.440] factories stretching further and further
+- [14:53.839] west. River towns became great cities.
+- [14:58.320] Railroads reached the Pacific. Steel
+- [15:01.440] mills rose where once wilderness had
+- [15:04.240] stood.
+- [15:05.839] The American mind widened. and the
+- [15:08.240] Republican whose independence Washington
+- [15:10.240] won that James Eids had helped sew
+- [15:13.680] together grew into the most powerful
+- [15:16.560] industrial powerhouse in the history of
+- [15:19.040] humanity.
+- [15:20.880] For other nations, growing industry
+- [15:23.600] brought dispossession before it did
+- [15:25.440] prosperity.
+- [15:27.199] In the old world, the one our ancestors
+- [15:29.199] had left behind. The industrial
+- [15:31.199] revolution threw society into chaos. And
+- [15:34.399] into that chaos rush vacuums and
+- [15:37.760] ideologies
+- [15:39.279] that answered the dignity of man with
+- [15:42.000] labor camps and killing fields.
+- [15:45.360] Where the old world led to communism and
+- [15:48.800] fascism.
+- [15:50.320] The Americans recognized that at root
+- [15:52.880] they were a denial of everything that
+- [15:54.880] Washington and Jefferson had read to his
+- [15:56.800] men 250 years ago. The free world needed
+- [16:00.959] to win. But in order for the free world
+- [16:03.360] to beat communism and fascism, it had to
+- [16:06.320] out produce them. And as in every
+- [16:09.519] conflict before, America looked to her
+- [16:12.320] sailors for help and to the builders who
+- [16:15.279] made sure those sailors had the very
+- [16:17.600] best ships to sail on. Among
+- [16:20.959] them was a man that we know as Henry
+- [16:23.519] Kaiser.
+- [16:25.040] Like Eids, Kaiser had grown up with very
+- [16:27.519] little. The son of German immigrants, he
+- [16:30.160] dropped out of school at 13 to work the
+- [16:33.040] stock room at a dry goods store in
+- [16:35.360] Udica, making a buck 50 a week and
+- [16:39.199] commuting four miles each way on foot.
+- [16:42.639] Eventually, he moved to Spokane for
+- [16:44.560] better job opportunities,
+- [16:47.120] setting his sights on starting his own
+- [16:49.440] company. Now, he walked into a bank with
+- [16:52.720] no business, no workforce, and no
+- [16:55.199] history, just a single proposed
+- [16:57.440] contract, and what the banker would
+- [16:59.519] later describe as sheer audacity.
+- [17:03.199] He walked out with a $25,000 loan. And
+- [17:06.959] with his workers, he erected the Hoover
+- [17:09.120] Dam and hundreds of miles of highway
+- [17:11.839] across the West. Everywhere he went, he
+- [17:15.839] organized ordinary Americans to build
+- [17:19.039] extraordinary things. And everywhere he
+- [17:22.160] went, he believed their welfare and the
+- [17:25.199] welfare of the enterprise that he was
+- [17:27.280] building went hand in hand.
+- [17:30.240] Kaiser pioneered health coverage at his
+- [17:33.280] construction sites. That's why we know
+- [17:34.799] the name of Kaiser. because he
+- [17:36.960] understood that men working in dangerous
+- [17:38.880] conditions, they deserve to see a
+- [17:40.960] doctor. He saw his workers as partners
+- [17:44.640] and he walked the walk long before it
+- [17:46.880] was fashionable to do so.
+- [17:49.520] Where some say that America's story is
+- [17:51.840] one of the dispossessed struggling
+- [17:54.240] against the powerful,
+- [17:56.240] Kaiser shows that America's greatness is
+- [17:59.200] built by cooperation between all of our
+- [18:01.760] citizens from every single walk of
+- [18:04.559] American life.
+- [18:06.400] Now, that cooperation was important, but
+- [18:08.960] it became profoundly important the day
+- [18:12.080] after Pearl Harbor. The United States
+- [18:15.360] Navy at the time needed ships bigger and
+- [18:18.640] better and faster than anyone thought
+- [18:21.440] they could be built. We didn't have the
+- [18:23.760] biggest navy in the world, but we needed
+- [18:25.520] one, and we needed one fast. So, Kaiser
+- [18:28.400] did what Americans always do when
+- [18:30.000] confronted with the impossible. He put
+- [18:32.080] it on his shoulders and said, "Let's go
+- [18:34.080] do it.
+- [18:35.440] Kaiser had never made a ship in his
+- [18:37.200] life, but that wasn't going to stop him.
+- [18:40.480] First, he built shipyards all up and
+- [18:42.799] down the Pacific coast. Then, he filled
+- [18:45.200] them with American workers, 250,000
+- [18:48.880] of them. Farm boys from Iowa, miners
+- [18:52.000] from Appalachia, mothers from Detroit,
+- [18:54.160] who had never held a welding torch.
+- [18:57.039] Together they launched nearly 15,000
+- [19:00.640] Liberty ships, vessels that carried
+- [19:03.440] American cargo and sailors across two
+- [19:05.840] oceans.
+- [19:07.440] His Richmond Yard built one of them, the
+- [19:09.679] SS Robert E. Perry, in an astonishing 4
+- [19:13.280] days and 15 hours. The ship builders
+- [19:16.799] Kaiser hired, they weren't just a a
+- [19:19.520] means to an end. They were his partners.
+- [19:22.559] Kaiser looked at his workers and saw
+- [19:24.720] people, Americans who got sick, who had
+- [19:27.600] families to raise, who showed up in
+- [19:29.919] Richmond and Portland with little more
+- [19:31.840] than a hat in their hand, but who had
+- [19:34.080] amazing potential. He saw the potential
+- [19:37.440] of normal Americans when unshackled from
+- [19:40.240] destitution. And he saw them not just as
+- [19:42.960] mouths to feed or as workers to pay. He
+- [19:45.840] saw them as fellow citizens who could
+- [19:48.320] build amazing things.
+- [19:50.640] So he built housing near these shipyards
+- [19:52.640] and nursery schools to help mothers join
+- [19:54.799] the war effort. He extended the health
+- [19:57.200] plan he had started at his dams to every
+- [19:59.600] worker in every yard, opening it to the
+- [20:02.559] public after the US won World War II.
+- [20:06.400] And though separated by generations, I
+- [20:08.480] tell the story of these three men
+- [20:10.720] because Kaiser and Eids and Washington,
+- [20:14.320] they were exactly the kind of men that
+- [20:17.360] Jefferson wrote the Declaration of
+- [20:19.039] Independence for. Kaiser was an
+- [20:21.760] American. He looked at what needed doing
+- [20:24.080] and he did it. And he trusted the men
+- [20:26.000] and women around them to do the same,
+- [20:29.039] knowing that he could only do his job if
+- [20:32.080] they did theirs, too. Our Declaration of
+- [20:35.919] Independence may have spoken to
+- [20:38.080] universal human truths and broadly
+- [20:40.480] shared human desires. Of course, it
+- [20:42.400] does. But it was a document written by
+- [20:45.679] and for a particular kind of people, the
+- [20:49.120] American people.
+- [20:51.360] From General Washington to James
+- [20:53.200] Buchanan Eids, from Henry Kaiser, one of
+- [20:56.640] America's great ship builders, to the
+- [20:59.039] sailors standing here today.
+- [21:02.080] And by the way, what you folks watching
+- [21:03.840] at home on TV may not realize is that
+- [21:06.640] everything that you saw, everything that
+- [21:08.960] you see today was destroyed last night
+- [21:12.000] in a storm. But these great sailors
+- [21:15.039] rebuilt it in 12 hours so that you all
+- [21:17.440] could be here, so that we could have
+- [21:19.039] this amazing procession and so we could
+- [21:21.840] celebrate our 250th birthday in style.
+- [21:30.559] All of us connected through the
+- [21:32.720] generations rich and poor of every job.
+- [21:35.520] We are a people formed by generations of
+- [21:38.880] self-governance and personal industry.
+- [21:42.240] We are formed by frontier assembly hall
+- [21:44.720] and congregation by river valley and
+- [21:47.760] prairie and factory floor.
+- [21:50.480] We are formed by the conviction that we
+- [21:52.960] are bound to one another, not only by
+- [21:54.960] bloodline nor creed alone, but by a
+- [21:57.840] common character, a shared fate, a
+- [22:01.360] shared future.
+- [22:04.400] Ladies and gentlemen, I have to address
+- [22:05.919] what we will hear from some loud voices
+- [22:08.080] today because as much as all of us,
+- [22:10.799] whether we're Democrat or Republican,
+- [22:12.960] whatever our political persuasion, all
+- [22:15.360] of us are celebrating. But you will hear
+- [22:18.159] a couple small but loud voices today
+- [22:21.600] speak obsessively not of our national
+- [22:23.760] greatness but of our national
+- [22:25.520] imperfections.
+- [22:27.280] They will speak of the powerless and the
+- [22:30.159] dispossessed. They will tell you that
+- [22:32.559] America is just another country where
+- [22:35.200] the weak struggle against the strong.
+- [22:38.000] And if they acknowledge that there is
+- [22:39.679] anything to be proud of in our history,
+- [22:42.080] they'll say it's the fact that sometimes
+- [22:44.000] the powerless have won a zero sum
+- [22:46.720] battle. They're wrong.
+- [22:49.919] They'll talk about America's sins with
+- [22:52.400] the anger and zeal of a brimstone
+- [22:55.039] preacher, but without any of the grace
+- [22:58.080] or forgiveness that must be present in
+- [23:00.960] the Christian faith.
+- [23:03.200] These people misunderstand the essence
+- [23:05.200] of America. from Thomas Jefferson to
+- [23:07.120] Henry Kaiser.
+- [23:09.120] They misunderstand that we all have
+- [23:11.200] moments of great power despite those
+- [23:14.320] very real imperfections.
+- [23:16.720] That there are victims and heroes who
+- [23:19.039] live inside of each of us. From the most
+- [23:21.840] ambitious leaders and builders to steel
+- [23:24.559] welders like my grandfather, people who
+- [23:27.120] had their own role to play in turning
+- [23:29.360] this dangerous wilderness into the
+- [23:31.520] proudest civilization in history.
+- [23:34.559] So, what I'd ask you to do, my fellow
+- [23:36.480] Americans,
+- [23:38.000] on our 250th birthday, is to reject the
+- [23:42.080] two-dimensional view of your fellow
+- [23:44.000] citizens and reject the two-dimensional
+- [23:46.880] view of your country. Reject that
+- [23:49.600] America is a place for zero sum thinking
+- [23:52.400] because it is not. Our history is one of
+- [23:56.240] people carving a great civilization out
+- [23:59.520] of the wilderness.
+- [24:01.360] Reject the view of your nation that sees
+- [24:03.679] only its sins but not its grace and its
+- [24:07.360] greatness.
+- [24:09.200] Everything that we have done, everything
+- [24:12.159] that we have done as a country, we have
+- [24:14.880] done together. Not as citizens divided
+- [24:18.480] against each other, but as a common
+- [24:20.720] people working towards a common future.
+- [24:24.159] When we won our independence, we were
+- [24:26.880] led by General Washington to liberty and
+- [24:29.039] greatness. But marching ahead of them
+- [24:31.360] were thousands of boys from all over the
+- [24:33.760] new nation who gave Washington's
+- [24:36.000] military genius its foundation and its
+- [24:39.039] firepower.
+- [24:40.640] When we saved the world in World War II
+- [24:42.799] from tyranny in the 20th century, of
+- [24:45.919] course, we needed great military
+- [24:47.919] leadership and tactical genius from our
+- [24:50.240] generals, but we also needed Rosie the
+- [24:52.799] Riveter. Iowa farm girls who built the
+- [24:55.440] machinery of war and the sweethearts
+- [24:57.919] they sent to a world away to storm the
+- [25:00.720] beaches at Normandy. When we went to the
+- [25:03.679] moon, of course, our great astronauts
+- [25:06.400] flew the rockets and our great men of
+- [25:08.240] science and engineering built them. But
+- [25:10.799] there were clerks and janitors and
+- [25:12.880] welders like my grandfather who each
+- [25:15.679] played their distinctive American part.
+- [25:19.039] All of us have a part. All of us had our
+- [25:22.320] part. our role to play in creating 250
+- [25:26.240] years of a proud American story. And all
+- [25:30.240] of us will need to do our part to create
+- [25:33.279] the next 250 years of American
+- [25:36.159] greatness. So I say to all my fellow
+- [25:38.960] Americans, I'm proud of you. Happy
+- [25:42.000] birthday and happy birthday to our great
+- [25:45.279] nation. Today, my friends, we celebrate
+- [25:48.640] and tomorrow we get back to work. God
+- [25:50.799] bless you. Thank you for having me.
+- [25:53.919] Hello Detroit
+- [25:56.159] auto worker. Let me thank you for your
+- [25:58.640] time.
