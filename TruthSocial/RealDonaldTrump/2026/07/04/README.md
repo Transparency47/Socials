@@ -1,0 +1,16 @@
+# TruthSocial / RealDonaldTrump / 2026-07-04
+
+- Posts: 4
+
+- [01:04 UTC - Republicans, look what I just found! The Dumocrats are openly stating that they plan to TE...](116859014229427354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859014229427354
+  - Republicans, look what I just found! The Dumocrats are openly stating that they plan to TERMINATE THE FILIBUSTER if they ever take power, and EXPAND THE SUPREME COURT. In other wor...
+- [01:02 UTC - THE TRUMP ECONOMY IS SOARING! The Stock Market just completed its BEST QUARTER since the l...](116859006382890396/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859006382890396
+  - THE TRUMP ECONOMY IS SOARING! The Stock Market just completed its BEST QUARTER since the last time I was President. The S&P 500, Nasdaq, and Dow are all SURGING, sending Americans’...
+- [00:42 UTC - The Communist Party is made up of Illegal Immigrants, Criminals, and Everybody That Doesn’...](116858929249586679/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116858929249586679
+  - The Communist Party is made up of Illegal Immigrants, Criminals, and Everybody That Doesn’t Want to Work! President DONALD J. TRUMP
+- [00:03 UTC - BIG NEWS! My Administration is delivering another fantastic America First Victory. The Dep...](116858774244974608/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116858774244974608
+  - BIG NEWS! My Administration is delivering another fantastic America First Victory. The Department of Treasury will now accept philanthropic contributions of readily tradable Public...

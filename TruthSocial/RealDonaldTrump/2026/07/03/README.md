@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-03
 
-- Posts: 7
+- Posts: 8
 
+- [23:50 UTC - Acting DNI Pulte fires dozens of intelligence officials: [https://www. cnbc.com/2026/07/03...](116858724269653893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116858724269653893
+  - Acting DNI Pulte fires dozens of intelligence officials: [https://www. cnbc.com/2026/07/03/acting-dni -pulte-fires-dozens-of-intelligence-officials-ms-now.html](https://www.cnbc.co...
 - [20:02 UTC - Justin Gaethje came to the Oval Office to celebrate, with his parents, his Great Victory t...](116857829999876676/)
   - Source: https://truthsocial.com/@realDonaldTrump/116857829999876676
   - Justin Gaethje came to the Oval Office to celebrate, with his parents, his Great Victory two weeks ago. It was one of the Highest Rated Fights in the History of Television, and wha...
