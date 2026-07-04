@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-07-04
 
-- Posts: 4
+- Posts: 8
 
+- [05:02 UTC - Truth Social post 116859951682480388](116859951682480388/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859951682480388
+  - _No text content captured._
+- [02:09 UTC - Heading to beautiful Mount Rushmore to speak, shortly. Big Crowd! On all TV. Enjoy! Presid...](116859272442865972/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859272442865972
+  - Heading to beautiful Mount Rushmore to speak, shortly. Big Crowd! On all TV. Enjoy! President DJT
+- [01:50 UTC - Truth Social post 116859197488831317](116859197488831317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859197488831317
+  - _No text content captured._
+- [01:29 UTC - Truth Social post 116859113514900260](116859113514900260/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116859113514900260
+  - _No text content captured._
 - [01:04 UTC - Republicans, look what I just found! The Dumocrats are openly stating that they plan to TE...](116859014229427354/)
   - Source: https://truthsocial.com/@realDonaldTrump/116859014229427354
   - Republicans, look what I just found! The Dumocrats are openly stating that they plan to TERMINATE THE FILIBUSTER if they ever take power, and EXPAND THE SUPREME COURT. In other wor...
