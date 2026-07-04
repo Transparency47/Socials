@@ -1,0 +1,758 @@
+<!-- source: https://www.youtube.com/watch?v=czEyP_QX2sI -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: czEyP_QX2sI -->
+<!-- date_published: 2026-07-04T03:40:40+00:00 -->
+<!-- date_accessed: 2026-07-04T14:45:29.975245+00:00 -->
+
+# Transcript: President Trump Delivers Remarks at Mount Rushmore, Jul. 3, 2026
+
+- [00:07.860] [music]
+- [00:09.200] >> Ladies and gentlemen, please welcome the
+- [00:11.400] 45th and 47th President of the United
+- [00:14.360] States of America, Donald J. Trump.
+- [00:18.995] >> [music]
+- [00:26.200] [music]
+- [00:30.785] [music]
+- [00:37.335] [music]
+- [00:50.435] [music]
+- [00:55.675] [cheering]
+- [00:56.985] [screaming]
+- [01:04.190] [cheering]
+- [01:08.775] [cheering]
+- [01:15.720] >> Well, thank you very much to the men and
+- [01:17.760] women of the South Dakota Air National
+- [01:20.720] Guard and those beautiful F-35s. We love
+- [01:24.200] them and I want to thank you all for
+- [01:26.240] being at this big crowd. This is a
+- [01:27.880] lovely crowd.
+- [01:29.080] >> [cheering]
+- [01:29.360] >> And And what a sight it is.
+- [01:32.840] I want to thank Senate Majority Leader
+- [01:34.680] John Thune, a good friend of mine and
+- [01:36.760] all of us. Senator Mike Rounds, great
+- [01:39.440] guy.
+- [01:40.800] Governor Kristi Noem, thank you, Kristi.
+- [01:44.146] >> [cheering]
+- [01:48.040] >> Lieutenant Governor
+- [01:49.386] >> [cheering]
+- [01:49.640] >> Ben Nelson.
+- [01:54.000] Oh, they're good.
+- [01:56.440] I was waiting for that.
+- [02:00.960] They said you start speaking, they won't
+- [02:02.920] interrupt you at all. They didn't
+- [02:04.360] interrupt us at all.
+- [02:07.000] Thank you. They're They're fantastic.
+- [02:08.920] What great, incredible, talented pilots.
+- [02:11.959] Thank you very much. And
+- [02:13.959] Secretary Burgum is doing a phenomenal
+- [02:16.360] job. Governor Ron DeSantis, thank you.
+- [02:19.280] Governor DeSan- where is Ron? Thank you,
+- [02:21.480] Ron.
+- [02:22.760] Distinguished guests and fellow citizens
+- [02:24.840] tonight,
+- [02:26.120] we gather on the eve of one of the most
+- [02:28.320] extraordinary days in the history
+- [02:30.959] of the world. Tomorrow, we mark 250
+- [02:35.040] years of glorious independence and 250
+- [02:38.520] years of majestic American freedom.
+- [02:41.800] Nothing like it.
+- [02:43.751] >> [cheering]
+- [02:47.080] >> In all the chronicles of the ages, never
+- [02:50.280] before has any nation celebrated so
+- [02:52.920] magnificent a triumph as this one, the
+- [02:56.520] one that we are participating in right
+- [02:59.080] now.
+- [03:00.239] At 250 years, America is the oldest
+- [03:03.400] republic on Earth. We are the freest
+- [03:06.200] people on Earth. We have the most
+- [03:08.519] righteous and enduring Constitution on
+- [03:11.320] Earth. We are the strongest and most
+- [03:13.760] powerful country on Earth.
+- [03:16.239] And by the grace of God, the United
+- [03:18.280] States of America is the most
+- [03:19.880] successful, most accomplished, most
+- [03:22.800] exceptional nation ever to exist in
+- [03:26.200] human history. And it is great to be
+- [03:29.200] your president.
+- [03:30.912] >> [cheering]
+- [03:34.440] >> It is great.
+- [03:36.880] For a quarter of a millennium, liberty,
+- [03:40.080] justice, equality, self-government, and
+- [03:43.040] unmatched prosperity have flourished
+- [03:45.519] here as they have never flourished
+- [03:48.560] anywhere before. There is nothing like
+- [03:51.880] what we are doing.
+- [03:55.147] >> [cheering and applause]
+- [03:57.280] >> The birth and survival of the American
+- [03:59.680] nation under God is quite simply the
+- [04:02.480] best and most incredible thing ever to
+- [04:04.400] happen on this planet by human hands
+- [04:07.280] ever. That is ever ever ever.
+- [04:11.680] No other country has done more good for
+- [04:13.920] this world than the United States of
+- [04:16.560] America.
+- [04:18.072] >> [cheering]
+- [04:18.640] >> And we give thanks for these
+- [04:20.200] extraordinary blessings. We remember
+- [04:22.840] that what we have created in this
+- [04:25.320] country is not the natural way of the
+- [04:28.520] world. It is not the norm. It is the
+- [04:31.760] exception. It is rare. It is priceless
+- [04:34.840] and it is truly miraculous.
+- [04:38.378] >> [cheering]
+- [04:40.760] >> Throughout the entire story of humanity,
+- [04:43.080] most people in most places have lived a
+- [04:45.800] life plagued by suffering, poverty,
+- [04:48.080] exploitation,
+- [04:49.640] violence, and misery. But here in
+- [04:52.200] America, in this land, on this
+- [04:54.040] continent, we have written a very
+- [04:56.040] different story. It's a tale of
+- [04:58.400] adventure, liberation, and unmatched
+- [05:01.640] greatness. It's the story of people
+- [05:04.000] governing themselves, the many uniting
+- [05:06.840] as one, the men and women rising by
+- [05:09.760] their own skill and talent to go further
+- [05:12.440] and reach higher than anyone has ever
+- [05:15.120] gone before. There has never been
+- [05:17.520] anything like this.
+- [05:20.298] >> [cheering]
+- [05:22.918] [applause]
+- [05:24.160] >> The triumph of American independence was
+- [05:27.040] the result of the most extraordinary
+- [05:29.680] people in history, the most
+- [05:31.720] extraordinary culture in history, and
+- [05:34.320] the most extraordinary ideas in history,
+- [05:36.680] all creating the most extraordinary
+- [05:38.960] republic ever ever ever in history.
+- [05:43.878] >> [cheering and applause]
+- [05:45.520] >> It all came together for the miracle of
+- [05:48.280] July 4th, 1776.
+- [05:51.800] That was a big year.
+- [05:56.600] 250 years ago tomorrow, what a big day
+- [05:59.600] that is. I consider this a big day
+- [06:02.240] because I'm with you. I like that, too.
+- [06:06.804] >> [cheering]
+- [06:10.160] >> And by the way, we won big here. We won
+- [06:13.400] really big.
+- [06:15.400] Each Each and every time.
+- [06:17.939] >> [cheering]
+- [06:19.280] >> But 250 years ago tomorrow, the words of
+- [06:22.120] our Declaration of Independence sent an
+- [06:24.400] earthquake through all of the coming
+- [06:26.320] time.
+- [06:27.480] They sparked a revolution that has never
+- [06:29.520] ended, but still continues to this day.
+- [06:32.320] And tonight, we come to this beautiful
+- [06:34.320] mountain, and it is beautiful, to
+- [06:36.880] express our gratitude to those who made
+- [06:39.160] it possible,
+- [06:40.520] starting with the four men most
+- [06:42.280] responsible for reaching this milestone,
+- [06:45.080] more than any others. We salute
+- [06:48.480] the father of our country, George
+- [06:51.760] Washington.
+- [06:53.309] >> [cheering]
+- [06:55.760] >> The author of the Declaration of
+- [06:57.800] Independence, Thomas Jefferson.
+- [07:01.169] >> [cheering]
+- [07:02.919] >> The great emancipator and savior of our
+- [07:05.600] union, Abraham Lincoln.
+- [07:09.684] >> [cheering]
+- [07:10.800] >> And the man who built America into a
+- [07:12.880] global superpower, Theodore Roosevelt.
+- [07:16.889] >> [cheering]
+- [07:18.960] >> These are the men who declared the
+- [07:20.919] freedom, won our freedom, and saved our
+- [07:23.560] freedom, and secured our freedom.
+- [07:26.280] They were men of action, men of
+- [07:28.520] ambition, men of daring,
+- [07:30.520] men of destiny, and men of truly great
+- [07:32.960] intelligence.
+- [07:34.680] Above all, they were great men of
+- [07:38.120] history.
+- [07:39.520] Tonight, on the threshold of our 25th
+- [07:42.080] year, we stand beneath
+- [07:44.120] the monument of these heroes, a true
+- [07:46.800] group of unbelievable people,
+- [07:49.520] and we rededicate ourselves to being a
+- [07:51.720] nation as big, bold, noble, and as great
+- [07:55.160] as these American giants. And that's not
+- [07:57.920] easy to do, but we're going to do it.
+- [08:00.800] These men could only have been made in
+- [08:03.720] the USA.
+- [08:05.360] >> [cheering]
+- [08:09.290] [applause]
+- [08:10.400] >> Their faces are engraved on these
+- [08:12.520] bluffs, not only because of what they
+- [08:14.840] did, but to remind us forever who we
+- [08:18.640] are. These heroes exemplify what is
+- [08:22.760] timeless, enduring, and eternal about
+- [08:25.280] the American character.
+- [08:27.600] And in the end, it has always been that
+- [08:30.440] character, a distinct and unique
+- [08:33.039] identity. It is a truly unique identity,
+- [08:36.919] and it'll never change. That's the
+- [08:39.000] ultimate source of our strength and the
+- [08:41.479] bulwark of our freedom.
+- [08:43.919] On this anniversary, we must remember,
+- [08:46.320] we have to remember, we can never forget
+- [08:48.360] that
+- [08:49.360] American liberty has not endured for 250
+- [08:52.360] years merely because of words on paper.
+- [08:55.880] Liberty has prevailed here because of
+- [08:58.120] the culture and character of the people
+- [09:00.600] who declared it, defended it, and
+- [09:03.760] preserved it. These are very, very
+- [09:06.200] special times, and this is a very
+- [09:09.120] special place. You live in a very
+- [09:11.560] special place. Congratulations,
+- [09:13.880] everybody.
+- [09:15.446] >> [cheering and applause]
+- [09:20.031] [cheering]
+- [09:20.440] >> The identity of a nation is the destiny
+- [09:23.040] of a nation, and America has a destiny
+- [09:25.920] like no other because we are a people
+- [09:29.440] like no other. For whatever reason,
+- [09:31.920] that's just the way it is.
+- [09:34.080] Here the old world sent its bravest,
+- [09:36.800] boldest, and most resilient, its
+- [09:39.480] fiercest, most faithful, and
+- [09:41.840] freedom-loving. These men and women
+- [09:44.160] brought values, traditions, and customs
+- [09:46.560] transmitted over the centuries in
+- [09:48.640] Britain
+- [09:49.760] and stretching back even further to
+- [09:52.200] Athens, Jerusalem, and Rome.
+- [09:55.720] The United States of America is where
+- [09:57.800] the greatest civilization in human
+- [09:59.600] history became greater than ever before.
+- [10:03.720] On the grounds and granite hills and the
+- [10:06.640] rugged plains of this wide-open
+- [10:08.680] continent, they forged a uniquely
+- [10:11.280] American character, a new breed of
+- [10:13.840] citizen.
+- [10:15.240] That's you.
+- [10:16.600] Congratulations.
+- [10:18.982] >> [cheering]
+- [10:19.080] >> Congratulations.
+- [10:22.640] You're not that new a breed, you're a
+- [10:24.120] really good breed, but I'm not sure that
+- [10:26.080] you're that new a breed.
+- [10:28.000] Americans did not bow before a king or a
+- [10:31.280] government, but kneeled only before
+- [10:33.960] almighty God.
+- [10:36.012] >> [cheering]
+- [10:38.440] >> That's right.
+- [10:40.597] >> [cheering]
+- [10:40.960] >> These were the people who founded our
+- [10:42.760] republic. These were the patriots who
+- [10:44.880] fought for independence. This was the
+- [10:47.560] spirit that demanded freedom, and this
+- [10:50.200] was the culture that built America and
+- [10:52.200] carved its heroes into
+- [10:54.480] Mount Rushmore.
+- [10:56.972] >> [cheering]
+- [10:58.937] [applause]
+- [11:00.040] >> For generations, it was understood that
+- [11:02.400] the core of patriotic duty of every
+- [11:05.040] American was to pass this culture on to
+- [11:07.440] our children and to preserve the nation
+- [11:10.440] for centuries and centuries to come.
+- [11:13.720] But in recent years, there's been an
+- [11:15.760] undeniable attempt to change this
+- [11:17.800] exceptional character,
+- [11:19.680] to beat the American spirit out of us,
+- [11:22.640] alienate us from our history, and to
+- [11:24.680] make it impossible to even answer the
+- [11:27.600] question, "What does it mean
+- [11:30.560] to be an American?"
+- [11:32.520] As we march into our 250th year,
+- [11:36.520] credible,
+- [11:37.840] beautiful year it will be,
+- [11:40.600] we must never forget there is no
+- [11:42.680] American freedom without American
+- [11:45.760] culture.
+- [11:48.063] >> [cheering]
+- [11:48.718] [applause]
+- [11:50.920] >> And there is no American founding
+- [11:53.200] without the American people. Many
+- [11:55.600] nations have paper constitutions and
+- [11:58.040] legal systems, but the citizens live in
+- [12:00.520] fear and squalor.
+- [12:02.480] A constitution is only as strong as the
+- [12:04.800] people and the culture responsible for
+- [12:07.120] upholding it.
+- [12:08.600] But as long as we remember who we are,
+- [12:11.320] we have to always remember who we are
+- [12:14.120] and what we're all about, the United
+- [12:16.520] States of America will forever be the
+- [12:18.600] land of free men and women, and we will
+- [12:21.320] never, ever fail.
+- [12:26.708] >> [cheering and applause]
+- [12:29.600] >> So tonight, let us say clearly and
+- [12:31.800] proudly what makes Americans so unique
+- [12:34.880] and extraordinary.
+- [12:36.720] We're going to give our country its
+- [12:39.200] identity back. Above all, Americans love
+- [12:42.920] freedom. We cherish independence, and we
+- [12:45.920] know that we are the heirs to the most
+- [12:48.320] beautiful land, the most thrilling
+- [12:49.880] story, and the most precious legacy on
+- [12:52.480] which the sun has ever shined.
+- [12:55.560] In America, we do not need anyone's
+- [12:58.000] permission to say what we think and to
+- [13:00.880] live as we please, to worship as we
+- [13:03.040] choose, or to keep and bear arms. You
+- [13:06.720] know that.
+- [13:07.974] >> [cheering]
+- [13:11.249] [applause]
+- [13:14.080] >> And for almost 6 years during my
+- [13:17.000] presidency, I've saved
+- [13:19.400] almost single-handedly, but working with
+- [13:21.839] John and some other great people, we've
+- [13:24.839] saved your Second Amendment, and I will
+- [13:27.280] continue to do so, I promise.
+- [13:30.899] >> [cheering and applause]
+- [13:33.040] >> Our rights here, given to us by the God
+- [13:35.680] who made us, and those rights shall not
+- [13:39.120] be infringed. Americans believe in
+- [13:41.960] self-reliance. We look at success with
+- [13:46.160] envy not, and I say that some people are
+- [13:48.880] envious and some people are not. We are
+- [13:52.000] not, but with admiration, and we earn
+- [13:54.480] it, and we will always earn it, and we
+- [13:56.240] will always respect it.
+- [13:58.320] We are an incredible, good, kind, and
+- [14:00.280] generous people,
+- [14:01.760] always ready to help a friend or a
+- [14:03.640] neighbor in need. No one has ever given
+- [14:06.320] more to charity, ended more hunger,
+- [14:09.120] cured more disease, or done more to
+- [14:11.160] uplift humanity than Americans, and no
+- [14:14.200] country ever will be able to match it.
+- [14:17.404] >> [cheering]
+- [14:21.989] [applause]
+- [14:33.125] [cheering]
+- [14:35.200] >> Thank you.
+- [14:36.400] So true.
+- [14:37.960] Americans honor excellence. We admire
+- [14:40.880] boldness. We respect ambition.
+- [14:43.680] We are a nation of dreamers and
+- [14:45.400] believers, warriors and explorers, doers
+- [14:47.880] and fighters.
+- [14:49.320] In every human endeavor, Americans see
+- [14:51.400] an unfinished competition.
+- [14:54.120] What is strong can be made stronger.
+- [14:56.120] What is fast can be made faster. What is
+- [14:58.880] great can be made greater than ever
+- [15:00.760] before, and that's what's happening with
+- [15:02.360] America.
+- [15:03.839] Show us a mountain, and we'll just climb
+- [15:07.040] it. Show us an ocean, and we'll just
+- [15:10.800] cross it.
+- [15:12.280] Show us a problem, and we will just
+- [15:14.880] solve it.
+- [15:16.320] Show us a task the world calls
+- [15:19.680] impossible, and Americans will get it
+- [15:22.800] done.
+- [15:23.440] >> USA!
+- [15:23.760] >> USA!
+- [15:24.080] >> USA! [cheering]
+- [15:24.400] >> USA!
+- [15:24.720] >> USA!
+- [15:25.525] >> [applause]
+- [15:27.480] >> AMERICANS ARE STRONG and always ready to
+- [15:29.600] stand firm for a good cause.
+- [15:32.400] We treasure justice, fairness, family,
+- [15:34.760] honesty, and human dignity,
+- [15:37.400] unlike societies based on class, clan,
+- [15:40.880] or tribe.
+- [15:42.400] We see every citizen as an individual,
+- [15:44.760] equal under the law, and equal under the
+- [15:47.240] eyes of the Lord.
+- [15:49.760] >> [cheering]
+- [15:52.680] >> In America, we speak English because
+- [15:54.880] that is the language of our founding,
+- [15:56.920] and
+- [15:57.621] >> [cheering]
+- [15:58.040] >> for a thousand years,
+- [16:01.920] that has been the language of freedom.
+- [16:05.200] An American [snorts]
+- [16:06.280] always wants peace and order,
+- [16:08.640] but we will never shrink from danger or
+- [16:11.120] threat. We will always fight, fight,
+- [16:14.120] fight, and win, win, win. We got to do
+- [16:16.880] that.
+- [16:19.891] >> [applause]
+- [16:20.546] [cheering]
+- [16:20.640] >> Because this is our culture, this is our
+- [16:22.880] character. Not every American is all of
+- [16:25.200] these things, but every American knows
+- [16:27.200] these are the traits that
+- [16:29.280] make our country exceptional, and
+- [16:31.440] exceptional it is.
+- [16:34.040] You do not have to be born here, but you
+- [16:36.600] do have to love what we have built. You
+- [16:39.360] must love our country.
+- [16:41.506] >> [cheering]
+- [16:44.360] >> There has never been anything like us
+- [16:46.720] anywhere on Earth, and we are not going
+- [16:49.440] to let anyone take that away.
+- [16:53.296] >> [cheering and applause]
+- [16:56.400] >> Yet, as we approach this magnificent
+- [16:58.520] anniversary,
+- [16:59.960] we see our American identity under a
+- [17:02.200] renewed attack. A generation after we
+- [17:05.319] fought and won the Cold War against the
+- [17:07.880] menace of communism,
+- [17:10.480] there is now a resurgence of the
+- [17:12.280] communist menace in our land, including
+- [17:14.720] from newcomers to our country who
+- [17:16.920] embrace ideas totally opposed to our way
+- [17:20.319] of life and our great success.
+- [17:23.000] These are not mere political
+- [17:24.560] disagreements like differences over
+- [17:26.720] taxes or regulations.
+- [17:29.120] Communism is a mortal threat to American
+- [17:32.960] liberty.
+- [17:34.160] It is the greatest threat to our country
+- [17:36.400] including World War I, World War II,
+- [17:39.840] Pearl Harbor, or even 9/11.
+- [17:43.280] Uh we're not going to let this happen to
+- [17:44.880] us.
+- [17:46.160] Believe me, we're not letting it happen.
+- [17:48.317] >> [applause]
+- [17:50.280] >> Because communism is the enemy of free
+- [17:52.760] people everywhere, everywhere in the
+- [17:54.600] world. Never works.
+- [17:56.520] It's the enemy of the Constitution.
+- [17:58.840] Above all, it's the enemy of July 4th,
+- [18:02.920] 1776.
+- [18:04.960] It is the enemy indeed.
+- [18:07.000] Even while the radicals and extremists
+- [18:10.080] attack our incredible history at every
+- [18:12.200] turn, they are silent on the miserable
+- [18:15.160] history of communism itself because it
+- [18:17.640] never worked.
+- [18:19.000] Thousands of years if you look at it
+- [18:21.000] under different names, under somewhat
+- [18:22.760] different
+- [18:24.680] ideologies and systems, that system has
+- [18:27.840] led to more death and destruction than
+- [18:30.240] any system ever tried. It killed
+- [18:33.240] 100 million people just in the last
+- [18:35.680] century alone.
+- [18:37.400] Communism is the exact opposite of life,
+- [18:40.320] liberty, and the pursuit of happiness.
+- [18:42.560] It's death,
+- [18:43.920] tyranny, and the pursuit of evil.
+- [18:47.000] The godless communist morality states
+- [18:49.520] that anything is justified to bring
+- [18:51.720] about inhuman visions and
+- [18:54.680] a pro- and to really propose
+- [18:57.400] what's good. They don't want good. They
+- [18:59.760] don't love God and they don't want God.
+- [19:02.000] They don't love religion and they don't
+- [19:03.960] want religion and they won't have it.
+- [19:06.400] But we will not let them win. They have
+- [19:09.120] no chance against us.
+- [19:12.158] >> [cheering]
+- [19:13.360] >> They have no respect for law,
+- [19:16.120] justice, principle, tradition, or your
+- [19:18.680] God-given rights.
+- [19:20.400] It's an ideology of mass theft, mass
+- [19:23.040] control, mass lies, and mass murder.
+- [19:26.200] Such doctrines can be given no quarter
+- [19:28.440] in a democracy
+- [19:30.400] because the first thing they do when
+- [19:32.040] they get into power is turn around and
+- [19:34.000] destroy it. It always is destroyed just
+- [19:37.560] as communists have done in other
+- [19:39.640] countries all over the world, no matter
+- [19:41.640] where you look.
+- [19:43.040] Very simply, communism represents the
+- [19:45.200] worst ideas and abuses in history by the
+- [19:47.680] worst people. The American founding
+- [19:50.160] represents the best ideas and traditions
+- [19:53.080] in history
+- [19:54.680] by the best people, like you.
+- [19:58.008] >> [cheering and applause]
+- [19:59.760] >> You can be loyal to Karl Marx, or you
+- [20:02.600] can be loyal to America. You can be a
+- [20:05.960] communist, or you can be a patriot. You
+- [20:08.560] cannot be both. As for those who peddle
+- [20:12.200] Marxist lies about our heritage, tell
+- [20:15.000] our children that we live on stolen
+- [20:17.920] land, or that our heroes were
+- [20:20.440] oppressors,
+- [20:21.840] they're doing something much worse than
+- [20:23.440] slandering our past. They are slandering
+- [20:26.200] and attacking our future. Not going to
+- [20:28.880] let that happen. They're trying to tear
+- [20:31.280] down the great American character, to
+- [20:33.680] destroy the people who declared
+- [20:35.720] independence,
+- [20:37.440] who crossed the Delaware, who settled
+- [20:39.160] the West, and conquered the skies. You
+- [20:41.360] know who those people are.
+- [20:43.320] But we will never let that happen. Our
+- [20:46.240] American ancestors did not shed their
+- [20:48.760] blood at Concord and Trenton, Gettysburg
+- [20:51.280] and Shiloh,
+- [20:52.720] Midway and Normandy, just so that a band
+- [20:55.800] of thieves, radicals, and lunatics could
+- [20:58.480] come in and loot, pillage our nation.
+- [21:01.160] Our heroes died to win, build, and to
+- [21:04.160] save, and to build truly a great
+- [21:06.520] country, the greatest country ever in
+- [21:08.760] the world.
+- [21:10.059] >> [cheering]
+- [21:13.334] [applause]
+- [21:14.360] >> So, on the eve
+- [21:16.800] of this 250th anniversary of American
+- [21:20.080] heritage, we resolve and swear for all
+- [21:23.360] to hear that the citizens of the United
+- [21:25.800] States of America will vanquish
+- [21:29.120] communism quickly. Don't let them take
+- [21:31.760] too much of your time.
+- [21:33.680] You know they're wasting your time,
+- [21:35.040] don't you? But, we're not going to let
+- [21:36.560] them take too long or too much of our
+- [21:38.840] time as they play their games
+- [21:41.280] and send them into exile. We will send
+- [21:43.800] them quickly away and we will continue
+- [21:47.680] to build our country bigger and better
+- [21:49.720] and stronger than ever before.
+- [21:52.520] America will never be
+- [21:55.360] a communist country.
+- [21:57.875] >> [cheering]
+- [21:59.185] [applause]
+- [22:02.080] >> We can only lose the
+- [22:04.320] midterms if we allow ourselves to lose
+- [22:06.680] the midterms, if we are foolish, stupid,
+- [22:10.680] and unwise.
+- [22:12.520] But, if we terminate the filibuster as
+- [22:14.720] we should do
+- [22:16.120] and immediately vote for the Save
+- [22:18.400] America Act, then we [cheering] will not
+- [22:21.120] lose
+- [22:23.080] an election
+- [22:24.680] for 100 years.
+- [22:27.160] We do that, we're not going to lose an
+- [22:28.440] election for 100 years.
+- [22:30.840] The Communist Party is made up of
+- [22:33.280] illegal immigrants, criminals, and
+- [22:35.520] everybody that doesn't want to work.
+- [22:38.320] Communism is a loser.
+- [22:40.800] It always was and it is right now. It's
+- [22:43.960] a big loser. Look at the people that are
+- [22:46.600] promoting it.
+- [22:48.120] They are not the people you're going to
+- [22:49.640] follow.
+- [22:50.960] In 250 years, the free people of this
+- [22:53.560] land have
+- [22:54.720] accomplished more with our liberty than
+- [22:57.400] any other society has accomplished even
+- [23:00.400] in thousands and thousands of years as
+- [23:02.880] you look back and you study,
+- [23:05.000] what our critics will never understand
+- [23:07.040] is that America is not the sum of its
+- [23:09.800] mistakes. Our mistakes make us human.
+- [23:13.280] Our achievements make us American, and
+- [23:16.400] nobody has ever had the achievements
+- [23:18.480] that we've had.
+- [23:20.040] We are the nation that dreamed and
+- [23:22.040] created the modern world. We laid the
+- [23:24.520] railroads. We raised up those big,
+- [23:27.320] beautiful skyscrapers, harnessed
+- [23:29.880] electricity, and invented the lightbulb,
+- [23:32.600] the telephone, the airplane, the
+- [23:34.680] assembly line, the television, the
+- [23:36.600] microchip, the personal computer, the
+- [23:39.760] internet, the GPS, the smartphone, and
+- [23:43.640] almost everything else that has ever
+- [23:46.760] been invented, including, especially
+- [23:49.000] over the last few days in certain areas,
+- [23:52.000] a thing called air conditioning.
+- [23:55.776] >> [cheering]
+- [23:57.600] >> Invented it all.
+- [24:00.120] We charted the human genome, cured
+- [24:03.320] diseases.
+- [24:04.840] We powered entire cities by splitting
+- [24:07.240] single atoms,
+- [24:08.720] and planted our flag on the moon.
+- [24:10.760] Americans fill the airwaves of the
+- [24:13.480] planet with our music and our culture.
+- [24:16.440] We invented baseball, basketball,
+- [24:18.520] football, volleyball, NASCAR, and the
+- [24:21.320] rodeo. We love that rodeo of the west.
+- [24:24.596] >> [cheering]
+- [24:26.880] >> Americans have won the most Olympic
+- [24:29.320] medals of any country in the world by
+- [24:31.520] far, the most Nobel Prizes.
+- [24:35.680] Well, they haven't given me one.
+- [24:38.351] >> [cheering]
+- [24:39.400] >> It's the late wars. I still haven't
+- [24:40.880] gotten it. That's okay.
+- [24:43.320] And the most world records. We publish
+- [24:46.480] by far the most patents. We produce the
+- [24:49.080] best movies. We make the best music. And
+- [24:51.840] we raise up the greatest entertainers
+- [24:54.480] and strongest athletes the world has
+- [24:56.960] ever seen. So true.
+- [24:59.160] We built the biggest and most dynamic
+- [25:01.360] economy and by the way, our country
+- [25:03.760] today is doing better than it's ever
+- [25:05.800] done before. Never had anything like it.
+- [25:09.137] >> [applause and cheering]
+- [25:10.280] >> With as of last week, 19.2 trillion
+- [25:13.680] dollars pouring into the United States
+- [25:15.760] right now from all over the world.
+- [25:18.160] That's the investments being made and
+- [25:20.560] the record was three.
+- [25:23.200] Four years in four years, the last
+- [25:25.720] administration did much less than one
+- [25:27.840] and we did 19.2 in 12 months.
+- [25:31.407] >> [cheering]
+- [25:33.372] [applause]
+- [25:34.680] >> And thanks to our great election win,
+- [25:37.320] November 5th,
+- [25:39.520] and the tariffs, plants and factories
+- [25:42.400] are being built all over the United
+- [25:44.560] States right now and they're being built
+- [25:46.920] at a number that we've never ever seen
+- [25:49.280] before. So much more, there's we're
+- [25:51.960] breaking records by double, triple,
+- [25:54.160] quadruple. We created the strongest and
+- [25:56.880] most powerful military. We won
+- [25:59.400] two World Wars, the Cold War, left
+- [26:01.840] America's enemies in the depths of
+- [26:03.760] history.
+- [26:06.280] We beat Venezuela in one day
+- [26:09.160] and we knocked the hell out of Iran.
+- [26:11.800] They're dying to settle.
+- [26:14.040] They want to settle so badly.
+- [26:19.160] We gave them a week off for a funeral
+- [26:20.920] because we're nice.
+- [26:24.160] For 250 years, the entire world has
+- [26:27.080] looked to our country and been inspired
+- [26:29.280] by the leaps of progress, feats of
+- [26:31.480] strength,
+- [26:32.640] and acts of selflessness, faith and hope
+- [26:35.880] that could only have happened right
+- [26:37.480] here.
+- [26:38.840] Two years ago, we were laughed at,
+- [26:41.920] mocked,
+- [26:43.440] and a nation in decline. We were in very
+- [26:45.520] serious decline.
+- [26:48.080] Last administration, what they've done
+- [26:50.040] to us, we can never ever forget that.
+- [26:53.640] And today we are the hottest country
+- [26:55.720] anywhere in the world. Everybody
+- [26:57.240] respects us.
+- [26:59.080] Like no nation, remember this, we're
+- [27:01.240] respected like no nation in the world is
+- [27:04.360] respected like us. Every king, every
+- [27:09.120] prime minister, every president, they
+- [27:11.240] respect us more than any other country
+- [27:13.720] by far.
+- [27:15.360] Two years ago they laughed at us. Now
+- [27:17.800] it's only respect. And I want to tell
+- [27:20.440] you
+- [27:21.480] the best is yet to come.
+- [27:26.688] >> [cheering and applause]
+- [27:29.560] >> So in conclusion,
+- [27:31.640] from the
+- [27:32.840] roaring waters of Niagara Falls
+- [27:36.040] to the shimmering gushes of oil and fire
+- [27:40.680] from our beloved Texas,
+- [27:43.040] from the magnificent fields of corn and
+- [27:45.920] wheat and barley of our farms in the
+- [27:48.680] Midwest to the vast canyons of finance
+- [27:52.000] in New York City,
+- [27:53.800] from the billowing stacks of steel now
+- [27:56.360] being produced all over our country at
+- [27:59.000] record levels
+- [28:00.640] to the car plants that are rising like
+- [28:03.600] we have never seen before. We have more
+- [28:05.760] plants under construction than we've had
+- [28:08.280] ever before. Automobile plants,
+- [28:10.400] something
+- [28:11.520] you didn't see of at all for 35 years.
+- [28:15.320] To technology from the minds of geniuses
+- [28:18.600] that is being brought to life in all
+- [28:21.800] corners of our country,
+- [28:23.720] from the snow-capped peaks of the
+- [28:26.040] Rockies to the white sand shores of the
+- [28:29.480] Gulf of America.
+- [28:33.499] >> [cheering]
+- [28:34.154] [applause]
+- [28:36.240] >> And to right here in the Black Hills of
+- [28:39.080] the Dakotas,
+- [28:40.760] after 250 years, American freedom still
+- [28:44.120] rings.
+- [28:45.640] The American dream still lives and the
+- [28:47.760] American flag still flies more proudly
+- [28:50.400] than ever before over the people who
+- [28:53.200] will not quit, the nation that will not
+- [28:55.600] fail, the country that will not fall. No
+- [28:58.840] matter how hard the enemy tries, we
+- [29:01.800] cannot be beaten. Tomorrow we reach a
+- [29:04.440] milestone like no other and celebrate
+- [29:07.240] with joyful hearts and soaring spirits
+- [29:09.880] because after two and a half centuries,
+- [29:13.280] we know that this is not an ending. This
+- [29:16.600] is only the beginning of the golden age
+- [29:19.880] of America.
+- [29:21.970] >> [cheering]
+- [29:24.040] >> And together we will make America
+- [29:25.760] bigger, better, and stronger than ever
+- [29:28.920] before. I promise you that. It's an
+- [29:31.280] honor
+- [29:32.360] to be your president. Thank you very
+- [29:34.040] much, and happy Independence Day to all.
+- [29:36.360] God bless you all. God bless [cheering]
+- [29:38.560] you all. Thank you.
+- [29:42.930] >> [applause]
+- [29:45.550] [cheering]
+- [29:49.480] [music]
+- [29:54.560] >> When you're feeling outside of the YMCA
+- [30:05.200] >> [music]
+- [30:07.720] >> young man,
+- [30:09.200] there's no need to feel down.
+- [30:11.080] I said, young
+- [30:13.080] If you feel off the ground, I'll say,
+- [30:16.840] I'll pick you up
+- [30:17.645] >> [music]
+- [30:17.920] >> off the ground.
+- [30:19.120] There's no need
+- [30:19.880] to feel down.
+- [30:24.320] There's no place you can go.
+- [30:26.120] I'll say,
+- [30:26.840] young man,
+- [30:28.200] when you're short [music] on your dough,
+- [30:29.960] you can stay.
+- [30:32.080] And that's where you will find
+- [30:34.400] many
+- [30:35.120] ways to
+- [30:35.800] have A
+- [30:37.240] GOOD TIME.
+- [30:40.200] IT'S FUN TO STAY AT THE
+- [30:42.720] Y M C A.
+- [30:44.240] IT'S FUN TO STAY AT THE Y M C A.
+- [30:49.080] THEY have
+- [30:49.880] everything
+- [30:51.120] from A to
+- [30:52.120] Z.
+- [30:52.880] Young man, there's no need to feel down.
+- [30:54.200] Young man, pick yourself off the ground.
+- [30:55.520] Young man, it's fun to stay at the
+- [30:57.240] Y M C A.
+- [30:59.280] Young man, it's fun to stay at the
+- [31:00.640] Y M C A.
+- [31:04.240] Young man, get yourself clean.
+- [31:06.160] Young man, learn to be a man.
+- [31:08.160] Young man, you can do whatever
+- [31:09.880] you feel.
