@@ -1,7 +1,109 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 5
+- Posts: 39
 
+- [15:35 UTC - Exclusive — Leading UN Secretary General Candidate Macky Sall Backs ‘Peace Builder’ Donald...](116868104541429027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868104541429027
+  - Exclusive — Leading UN Secretary General Candidate Macky Sall Backs ‘Peace Builder’ Donald Trump’s Push for Reforms: ‘Make the UN Great Again’: [https://www. breitbart.com/politics...
+- [15:35 UTC - Harvard-Harris poll: Clear majority of Americans favor mass deportation: [https:// worldtr...](116868102796678428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868102796678428
+  - Harvard-Harris poll: Clear majority of Americans favor mass deportation: [https:// worldtribune.com/harvard-harri s-poll-clear-majority-of-americans-favor-mass-deportation/](https:...
+- [15:35 UTC - The EU’s deforestation regulation: textbook over-regulation that Draghi warned against - b...](116868101287636876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868101287636876
+  - The EU’s deforestation regulation: textbook over-regulation that Draghi warned against - by Andrew Puzder: [https:// agenceurope.eu/en/bulletin/art icle/13894/39/the-eus-deforestat...
+- [15:34 UTC - EXCLUSIVE — Trump says of Pennsylvania’s economic reinvention: ‘Welcome to the Money Belt’...](116868100168152887/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868100168152887
+  - EXCLUSIVE — Trump says of Pennsylvania’s economic reinvention: ‘Welcome to the Money Belt’: [https://www. washingtonexaminer.com/opinion /4623094/trump-pennsylvania-economic-reinve...
+- [15:34 UTC - Loser George Conway got crushed!](116868098285138461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868098285138461
+  - Loser George Conway got crushed!
+- [15:34 UTC - World Cup already sets new attendance record, will shatter total attendance mark by end of...](116868097291651141/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868097291651141
+  - World Cup already sets new attendance record, will shatter total attendance mark by end of tourney: [https://www. sportsbusinessjournal.com/Arti cles/2026/06/26/world-cup-already-s...
+- [15:28 UTC - 'Freedom is the future': Trump warns Americans about the threat of 'hardcore, godless comm...](116868074827104487/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868074827104487
+  - 'Freedom is the future': Trump warns Americans about the threat of 'hardcore, godless communists' on the rise: [https:// thepostmillennial.com/freedom- is-the-future-trump-warns-am...
+- [15:27 UTC - Trump blasts left-wing NYC Dems as ‘godless communists’ at Faith & Freedom Coalition confe...](116868073387804639/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868073387804639
+  - Trump blasts left-wing NYC Dems as ‘godless communists’ at Faith & Freedom Coalition conference: [https://www. washingtontimes.com/news/2026/ jun/26/trump-blasts-left-wing-nyc-dems...
+- [15:27 UTC - Trump says communism is the biggest threat facing America on eve of 250th birthday: [https...](116868071918677461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868071918677461
+  - Trump says communism is the biggest threat facing America on eve of 250th birthday: [https://www. washingtonexaminer.com/news/wh ite-house/4627007/trump-communism-biggest-threat-fa...
+- [15:27 UTC - Watch: Trump Tells the Hard Truth on Why the Dem Party Refuses to Fight Its Internal Commu...](116868070757235178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868070757235178
+  - Watch: Trump Tells the Hard Truth on Why the Dem Party Refuses to Fight Its Internal Communist Threat: [https:// redstate.com/beccalower/2026/0 6/26/religious-liberty-at-the-heart-...
+- [15:26 UTC - Trump warns ‘godless communists’ will turn cities into slums as Dems fail to fight sociali...](116868068664504672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868068664504672
+  - Trump warns ‘godless communists’ will turn cities into slums as Dems fail to fight socialist surge: [https://www. foxnews.com/politics/trump-war ns-godless-communists-turn-cities-s...
+- [15:26 UTC - Trump Declares Holy War on Communism in Latest Speech: [https:// townhall.com/tipsheet/jos...](116868067768149796/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868067768149796
+  - Trump Declares Holy War on Communism in Latest Speech: [https:// townhall.com/tipsheet/josephch alfant/2026/06/26/trump-declares-holy-war-on-communism-in-latest-speech-n2678393](ht...
+- [15:20 UTC - Truth Social post 116868042691251503](116868042691251503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868042691251503
+  - _No text content captured._
+- [15:19 UTC - Truth Social post 116868041920525805](116868041920525805/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868041920525805
+  - _No text content captured._
+- [15:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868040466267706](116868041130930649/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868041130930649
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868040466267706
+- [15:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868038705921716](116868040466267706/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868040466267706
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868038705921716
+- [15:19 UTC - Truth Social post 116868038705921716](116868038705921716/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868038705921716
+  - _No text content captured._
+- [15:18 UTC - Truth Social post 116868037280628734](116868037280628734/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868037280628734
+  - _No text content captured._
+- [15:18 UTC - Truth Social post 116868036549936727](116868036549936727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868036549936727
+  - _No text content captured._
+- [15:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868034274777966](116868035089942232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868035089942232
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868034274777966
+- [15:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868031697482283](116868034274777966/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868034274777966
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868031697482283
+- [15:17 UTC - Truth Social post 116868031697482283](116868031697482283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868031697482283
+  - _No text content captured._
+- [15:16 UTC - Truth Social post 116868027107114251](116868027107114251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868027107114251
+  - _No text content captured._
+- [15:16 UTC - Truth Social post 116868026401931879](116868026401931879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868026401931879
+  - _No text content captured._
+- [15:15 UTC - Truth Social post 116868025617707129](116868025617707129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868025617707129
+  - _No text content captured._
+- [15:15 UTC - Truth Social post 116868024942266024](116868024942266024/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868024942266024
+  - _No text content captured._
+- [15:15 UTC - Truth Social post 116868024497767108](116868024497767108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868024497767108
+  - _No text content captured._
+- [15:15 UTC - Truth Social post 116868023448989689](116868023448989689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868023448989689
+  - _No text content captured._
+- [15:15 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868021523031453](116868022324870960/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868022324870960
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868021523031453
+- [15:14 UTC - Truth Social post 116868021523031453](116868021523031453/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868021523031453
+  - _No text content captured._
+- [15:14 UTC - Bessent Says Iran Talks Feature Shift to Dollar Invoicing: [https://www. bloomberg.com/new...](116868019451683008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868019451683008
+  - Bessent Says Iran Talks Feature Shift to Dollar Invoicing: [https://www. bloomberg.com/news/articles/20 26-06-24/bessent-says-iran-talks-feature-shifting-to-invoicing-in-dollars?em...
+- [15:14 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868017675605732](116868018467961022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868018467961022
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868017675605732
+- [15:13 UTC - Truth Social post 116868017675605732](116868017675605732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868017675605732
+  - _No text content captured._
+- [15:12 UTC - ‘We’re on Break!’ Senate’s Sloth Stalls SAVE America Act: [https://www. dailysignal.com/20...](116868012643897524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868012643897524
+  - ‘We’re on Break!’ Senate’s Sloth Stalls SAVE America Act: [https://www. dailysignal.com/2026/06/29/sav e-america-senate-sloth/](https://www.dailysignal.com/2026/06/29/save-america-...
 - [05:21 UTC - Truth Social post 116865688913397491](116865688913397491/)
   - Source: https://truthsocial.com/@realDonaldTrump/116865688913397491
   - _No text content captured._
