@@ -1,7 +1,34 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 99
+- Posts: 108
 
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Justin Gaethje after his ...](116869511026325770/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869511026325770
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Justin Gaethje after his Big Victory, and attaining the UFC World Championship, at the front door of the White Hous...
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My father, grandparents, ...](116869510768308993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869510768308993
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My father, grandparents, uncle, and aunt!
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My father and mentor, Fre...](116869510527992504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869510527992504
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) My father and mentor, Fred C. Trump!
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Dr. John G. Trump, of MIT...](116869510252731067/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869510252731067
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Dr. John G. Trump, of MIT!
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd at 7:05 in the ...](116869509874810993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869509874810993
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Crowd at 7:05 in the evening was 422,000 people! All were forced to leave because of the weather, the event was...
+- [21:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I would like to congratul...](116869509533298347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869509533298347
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I would like to congratulate Freedom 250, a Great White House Commission, and Pyrotecnico, on producing the Most Sp...
+- [21:33 UTC - Truth Social post 116869508737653463](116869508737653463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869508737653463
+  - _No text content captured._
+- [21:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116869462082097713](116869463498698433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869463498698433
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116869462082097713
+- [21:21 UTC - Truth Social post 116869462082097713](116869462082097713/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869462082097713
+  - _No text content captured._
 - [21:10 UTC - Truth Social post 116869420230444932](116869420230444932/)
   - Source: https://truthsocial.com/@realDonaldTrump/116869420230444932
   - _No text content captured._
