@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 72
+- Posts: 74
 
+- [18:44 UTC - Truth Social post 116868844369796370](116868844369796370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868844369796370
+  - _No text content captured._
+- [18:19 UTC - There is nothing Americans can’t do except get Voter ID (Identification), Proof of Citizen...](116868746595583837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868746595583837
+  - There is nothing Americans can’t do except get Voter ID (Identification), Proof of Citizenship or, most importantly of all, TERMINATE THE FILIBUSTER (which the Democrats will do im...
 - [17:14 UTC - Thank you to FIFA for doing what was right, and reversing a great injustice! President DON...](116868490571213527/)
   - Source: https://truthsocial.com/@realDonaldTrump/116868490571213527
   - Thank you to FIFA for doing what was right, and reversing a great injustice! President DONALD J. TRUMP
