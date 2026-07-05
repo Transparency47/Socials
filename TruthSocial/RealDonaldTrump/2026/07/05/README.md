@@ -1,7 +1,19 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 74
+- Posts: 78
 
+- [20:07 UTC - Truth Social post 116869173681200313](116869173681200313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869173681200313
+  - _No text content captured._
+- [19:29 UTC - The Crowd at 7:05 in the evening was 422,000 people! All were forced to leave because of t...](116869022220741530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869022220741530
+  - The Crowd at 7:05 in the evening was 422,000 people! All were forced to leave because of the weather, the event was cancelled, and everyone was gone because of lightning. When I he...
+- [19:26 UTC - I would like to congratulate Freedom 250, a Great White House Commission, and Pyrotecnico,...](116869010601777815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869010601777815
+  - I would like to congratulate Freedom 250, a Great White House Commission, and Pyrotecnico, on producing the Most Spectacular Fireworks Show I have ever seen, and I’ve seen them all...
+- [19:26 UTC - Truth Social post 116869009774290847](116869009774290847/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869009774290847
+  - _No text content captured._
 - [18:44 UTC - Truth Social post 116868844369796370](116868844369796370/)
   - Source: https://truthsocial.com/@realDonaldTrump/116868844369796370
   - _No text content captured._
