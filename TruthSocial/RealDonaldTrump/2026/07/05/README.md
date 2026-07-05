@@ -1,7 +1,100 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 39
+- Posts: 70
 
+- [16:32 UTC - They do this, and the Republican Party is DEAD! Key House caucus leaders target Supreme Co...](116868328903806318/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868328903806318
+  - They do this, and the Republican Party is DEAD! Key House caucus leaders target Supreme Court, Senate filibuster: [https://www. politico.com/live-updates/2026 /06/24/congress/dem-c...
+- [16:32 UTC - Plants like this are going up all over the Country. Many are Defense. They are massive!](116868325177344816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868325177344816
+  - Plants like this are going up all over the Country. Many are Defense. They are massive!
+- [16:28 UTC - First Statue for Triumphal Arch — Amazing!](116868310583775832/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868310583775832
+  - First Statue for Triumphal Arch — Amazing!
+- [16:27 UTC - Truth Social post 116868306085372229](116868306085372229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868306085372229
+  - _No text content captured._
+- [16:26 UTC - Truth Social post 116868304360304285](116868304360304285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868304360304285
+  - _No text content captured._
+- [16:24 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868292534134605 Number 1 on ...](116868294476750006/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868294476750006
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868292534134605 Number 1 on TikTok!
+- [16:23 UTC - From Shou Chew, CEO of TikTok: “Attached are the latest numbers of the President on TikTok...](116868292534134605/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868292534134605
+  - From Shou Chew, CEO of TikTok: “Attached are the latest numbers of the President on TikTok. All time views of [# Trump](https://truthsocial.com/tags/Trump) TikToks are now at 425 b...
+- [16:20 UTC - Truth Social post 116868280671343176](116868280671343176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868280671343176
+  - _No text content captured._
+- [16:20 UTC - Truth Social post 116868280142948092](116868280142948092/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868280142948092
+  - _No text content captured._
+- [16:20 UTC - Truth Social post 116868279537415230](116868279537415230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868279537415230
+  - _No text content captured._
+- [16:20 UTC - Truth Social post 116868278325526827](116868278325526827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868278325526827
+  - _No text content captured._
+- [16:19 UTC - Truth Social post 116868277674165805](116868277674165805/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868277674165805
+  - _No text content captured._
+- [16:18 UTC - Truth Social post 116868270794415402](116868270794415402/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868270794415402
+  - _No text content captured._
+- [16:16 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868259368267169](116868263258096038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868263258096038
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868259368267169
+- [16:15 UTC - Truth Social post 116868259368267169](116868259368267169/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868259368267169
+  - _No text content captured._
+- [16:12 UTC - From Greg Wischer at the United States Department of the Interior: “After 6 long years, th...](116868250318223381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868250318223381
+  - From Greg Wischer at the United States Department of the Interior: “After 6 long years, the original cannons that previously surrounded the Andrew Jackson statue in Lafayette Park...
+- [16:11 UTC - From Greg Wischer at the United States Department of the Interior: “The Theodore Roosevelt...](116868243191193043/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868243191193043
+  - From Greg Wischer at the United States Department of the Interior: “The Theodore Roosevelt Island National Memorial, with two fountains and a 17-foot statue of Theodore Roosevelt,...
+- [16:08 UTC - The statue “Valor” — one of the Arts of War statues — being completely regilded!](116868233496967493/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868233496967493
+  - The statue “Valor” — one of the Arts of War statues — being completely regilded!
+- [16:03 UTC - From Greg Wischer at the United States Department of the Interior: “Dupont Circle was a di...](116868213223916230/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868213223916230
+  - From Greg Wischer at the United States Department of the Interior: “Dupont Circle was a dirty, crime-ridden mess for decades, but thanks to the President’s and Secretary’s efforts...
+- [15:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868188238340283](116868189158518693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868189158518693
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868188238340283
+- [15:57 UTC - Truth Social post 116868188238340283](116868188238340283/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868188238340283
+  - _No text content captured._
+- [15:53 UTC - Truth Social post 116868172223613648](116868172223613648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868172223613648
+  - _No text content captured._
+- [15:51 UTC - Truth Social post 116868166113968234](116868166113968234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868166113968234
+  - _No text content captured._
+- [15:50 UTC - Here are photos comparing the Reflecting Pool one week after refilling under Obama vs Pres...](116868162091573241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868162091573241
+  - Here are photos comparing the Reflecting Pool one week after refilling under Obama vs President Trump.
+- [15:48 UTC - The U.S. Park Police is seeking the public’s assistance in identifying the individual in t...](116868155164220533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868155164220533
+  - The U.S. Park Police is seeking the public’s assistance in identifying the individual in the notice below in connection with a Destruction of Government Property investigation rela...
+- [15:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868145849515478 The regildin...](116868151073246892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868151073246892
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116868145849515478 The regilding of the sculpture “Valor” is complete, and the regilding of the sculpture “Sacrifice” is...
+- [15:46 UTC - Truth Social post 116868145849515478](116868145849515478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868145849515478
+  - _No text content captured._
+- [15:43 UTC - From Greg Wischer at the United States Department of the Interior: “Photo just taken of th...](116868134746005754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868134746005754
+  - From Greg Wischer at the United States Department of the Interior: “Photo just taken of the Reflecting Pool. As you can see, the water is crystal clear.”
+- [15:41 UTC - White House Renovation: Some more photos of the North Portico project. Big Stuff!](116868126447391515/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868126447391515
+  - White House Renovation: Some more photos of the North Portico project. Big Stuff!
+- [15:38 UTC - The Iranian Agreement and The Trump Economic Boom: [https://www. gingrich360.net/p/the-ira...](116868114461226198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868114461226198
+  - The Iranian Agreement and The Trump Economic Boom: [https://www. gingrich360.net/p/the-iranian- agreement-and-the-trump](https://www.gingrich360.net/p/the-iranian-agreement-and-the...
+- [15:38 UTC - Three-story tall banners of POTUS and George Washington have been hung on the front of the...](116868113508651926/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868113508651926
+  - Three-story tall banners of POTUS and George Washington have been hung on the front of the Department of the Interior building. The wording above Washington is “America’s First” in...
 - [15:35 UTC - Exclusive — Leading UN Secretary General Candidate Macky Sall Backs ‘Peace Builder’ Donald...](116868104541429027/)
   - Source: https://truthsocial.com/@realDonaldTrump/116868104541429027
   - Exclusive — Leading UN Secretary General Candidate Macky Sall Backs ‘Peace Builder’ Donald Trump’s Push for Reforms: ‘Make the UN Great Again’: [https://www. breitbart.com/politics...
