@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=qNhZAA7E3Ss: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=qNhZAA7E3Ss! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption track was empty"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=qNhZAA7E3Ss: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=qNhZAA7E3Ss! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -120717,6 +120717,50 @@
       "published": "2026-07-05T01:05:25.474000+00:00",
       "title": "Storms bring luck to whatever the occasion. They also make events a little bit more exciti...",
       "url": "https://truthsocial.com/@realDonaldTrump/116864681605523102"
+    },
+    "truthsocial:realdonaldtrump:116864961960694526": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-05T05:32:12.681968+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/05/116864961960694526",
+      "platform": "truthsocial",
+      "post_id": "116864961960694526",
+      "published": "2026-07-05T02:16:43.352000+00:00",
+      "title": "I\u2019M HERE!!! DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116864961960694526"
+    },
+    "truthsocial:realdonaldtrump:116865193651782709": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-05T05:32:12.681675+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/05/116865193651782709",
+      "platform": "truthsocial",
+      "post_id": "116865193651782709",
+      "published": "2026-07-05T03:15:38.717000+00:00",
+      "title": "[https://www. youtube.com/live/qNhZAA7E3Ss?s i=3u5VUWJJU61_hmdH](https://www.youtube.com/l...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116865193651782709"
+    },
+    "truthsocial:realdonaldtrump:116865509906385097": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-05T05:32:12.681145+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/05/116865509906385097",
+      "platform": "truthsocial",
+      "post_id": "116865509906385097",
+      "published": "2026-07-05T04:36:04.379000+00:00",
+      "title": "Best fireworks show, EVER! President DJT",
+      "url": "https://truthsocial.com/@realDonaldTrump/116865509906385097"
+    },
+    "truthsocial:realdonaldtrump:116865688913397491": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-05T05:32:12.680626+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/05/116865688913397491",
+      "platform": "truthsocial",
+      "post_id": "116865688913397491",
+      "published": "2026-07-05T05:21:35.838000+00:00",
+      "title": "Truth Social post 116865688913397491",
+      "url": "https://truthsocial.com/@realDonaldTrump/116865688913397491"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
