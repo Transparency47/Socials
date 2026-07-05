@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 70
+- Posts: 72
 
+- [17:14 UTC - Thank you to FIFA for doing what was right, and reversing a great injustice! President DON...](116868490571213527/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868490571213527
+  - Thank you to FIFA for doing what was right, and reversing a great injustice! President DONALD J. TRUMP
+- [17:13 UTC - Truth Social post 116868489708460066](116868489708460066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116868489708460066
+  - _No text content captured._
 - [16:32 UTC - They do this, and the Republican Party is DEAD! Key House caucus leaders target Supreme Co...](116868328903806318/)
   - Source: https://truthsocial.com/@realDonaldTrump/116868328903806318
   - They do this, and the Republican Party is DEAD! Key House caucus leaders target Supreme Court, Senate filibuster: [https://www. politico.com/live-updates/2026 /06/24/congress/dem-c...
