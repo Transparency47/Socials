@@ -1,7 +1,70 @@
 # TruthSocial / RealDonaldTrump / 2026-07-05
 
-- Posts: 78
+- Posts: 99
 
+- [21:10 UTC - Truth Social post 116869420230444932](116869420230444932/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869420230444932
+  - _No text content captured._
+- [20:59 UTC - Justin Gaethje after his Big Victory, and attaining the UFC World Championship, at the fro...](116869375257278579/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869375257278579
+  - Justin Gaethje after his Big Victory, and attaining the UFC World Championship, at the front door of the White House. He is a Great Fighter! President DONALD J. TRUMP
+- [20:53 UTC - Truth Social post 116869354390629398](116869354390629398/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869354390629398
+  - _No text content captured._
+- [20:53 UTC - Truth Social post 116869353294486038](116869353294486038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869353294486038
+  - _No text content captured._
+- [20:53 UTC - Truth Social post 116869351857046192](116869351857046192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869351857046192
+  - _No text content captured._
+- [20:52 UTC - Truth Social post 116869351098426290](116869351098426290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869351098426290
+  - _No text content captured._
+- [20:52 UTC - Truth Social post 116869349396558837](116869349396558837/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869349396558837
+  - _No text content captured._
+- [20:52 UTC - Truth Social post 116869348549720919](116869348549720919/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869348549720919
+  - _No text content captured._
+- [20:52 UTC - Truth Social post 116869347605894718](116869347605894718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869347605894718
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116869346199427577](116869346199427577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869346199427577
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116869345504502637](116869345504502637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869345504502637
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116869344661233645](116869344661233645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869344661233645
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116869343915433662](116869343915433662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869343915433662
+  - _No text content captured._
+- [20:26 UTC - Truth Social post 116869248389792181](116869248389792181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869248389792181
+  - _No text content captured._
+- [20:26 UTC - My father, grandparents, uncle, and aunt!](116869247017804299/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869247017804299
+  - My father, grandparents, uncle, and aunt!
+- [20:25 UTC - My father and mentor, Fred C. Trump!](116869241546765973/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869241546765973
+  - My father and mentor, Fred C. Trump!
+- [20:22 UTC - Dr. John G. Trump, of MIT!](116869233363782138/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869233363782138
+  - Dr. John G. Trump, of MIT!
+- [20:10 UTC - Truth Social post 116869185498305998](116869185498305998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869185498305998
+  - _No text content captured._
+- [20:10 UTC - Truth Social post 116869184607549711](116869184607549711/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869184607549711
+  - _No text content captured._
+- [20:10 UTC - Truth Social post 116869183969536781](116869183969536781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869183969536781
+  - _No text content captured._
+- [20:10 UTC - Truth Social post 116869183450710959](116869183450710959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116869183450710959
+  - _No text content captured._
 - [20:07 UTC - Truth Social post 116869173681200313](116869173681200313/)
   - Source: https://truthsocial.com/@realDonaldTrump/116869173681200313
   - _No text content captured._
