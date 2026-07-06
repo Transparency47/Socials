@@ -1,7 +1,142 @@
 # TruthSocial / RealDonaldTrump / 2026-07-06
 
-- Posts: 2
+- Posts: 47
 
+- [16:03 UTC - Truth Social post 116873875024607375](116873875024607375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873875024607375
+  - _No text content captured._
+- [15:13 UTC - Truth Social post 116873677588811572](116873677588811572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873677588811572
+  - _No text content captured._
+- [15:12 UTC - Truth Social post 116873676574273374](116873676574273374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873676574273374
+  - _No text content captured._
+- [15:12 UTC - Truth Social post 116873675775422498](116873675775422498/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873675775422498
+  - _No text content captured._
+- [15:12 UTC - Truth Social post 116873674797735296](116873674797735296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873674797735296
+  - _No text content captured._
+- [15:12 UTC - From Greg Wischer at the United States Department of the Interior: “The regilding of the s...](116873673494784125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873673494784125
+  - From Greg Wischer at the United States Department of the Interior: “The regilding of the sculpture “Sacrifice” is completed. That means both Arts of War sculptures, “Valor” and “Sa...
+- [15:10 UTC - Truth Social post 116873668103736996](116873668103736996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873668103736996
+  - _No text content captured._
+- [15:10 UTC - Truth Social post 116873666670080189](116873666670080189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873666670080189
+  - _No text content captured._
+- [15:09 UTC - Truth Social post 116873664597930285](116873664597930285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873664597930285
+  - _No text content captured._
+- [15:09 UTC - Truth Social post 116873663155282609](116873663155282609/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873663155282609
+  - _No text content captured._
+- [15:09 UTC - Truth Social post 116873661817198405](116873661817198405/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873661817198405
+  - _No text content captured._
+- [15:08 UTC - [https://www. washingtonpost.com/opinions/20 26/06/22/jim-banks-architecture-america-shoul...](116873660419870262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873660419870262
+  - [https://www. washingtonpost.com/opinions/20 26/06/22/jim-banks-architecture-america-should-be-beautiful-not-brutalist/](https://www.washingtonpost.com/opinions/2026/06/22/jim-bank...
+- [15:07 UTC - Truth Social post 116873653915463392](116873653915463392/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873653915463392
+  - _No text content captured._
+- [15:07 UTC - Truth Social post 116873653278485179](116873653278485179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873653278485179
+  - _No text content captured._
+- [15:06 UTC - Truth Social post 116873652592410638](116873652592410638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873652592410638
+  - _No text content captured._
+- [15:06 UTC - Truth Social post 116873651967567128](116873651967567128/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873651967567128
+  - _No text content captured._
+- [15:06 UTC - From Greg Wischer at the United States Department of the Interior: “Another fountain has b...](116873651087558785/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873651087558785
+  - From Greg Wischer at the United States Department of the Interior: “Another fountain has been fixed, beautified, and turned on — The Rawlins Park fountain! This fountain was defunc...
+- [15:04 UTC - From Greg Wischer at the United States Department of the Interior: “Here is another founta...](116873642365568222/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873642365568222
+  - From Greg Wischer at the United States Department of the Interior: “Here is another fountain update —Another one was just turned on. The Freedom Plaza fountain, which is located ju...
+- [15:01 UTC - From Greg Wischer at the United States Department of the Interior: “Latest Law Enforcement...](116873632527630265/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873632527630265
+  - From Greg Wischer at the United States Department of the Interior: “Latest Law Enforcement numbers from the Reflecting Pool: 7 arrests, 7 additional people issued Federal citations...
+- [14:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873621175645512](116873622048937601/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873622048937601
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873621175645512
+- [14:58 UTC - Truth Social post 116873621175645512](116873621175645512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873621175645512
+  - _No text content captured._
+- [14:58 UTC - PBI Airport begins process of name change to Trump: [https://www. palmbeachpost.com/story/...](116873619773837916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873619773837916
+  - PBI Airport begins process of name change to Trump: [https://www. palmbeachpost.com/story/news/t rump/2026/06/26/pbi-airport-west-palm-name-change-trump-photos/90675038007/](https:...
+- [14:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873613769389029](116873615071043800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873615071043800
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873613769389029
+- [14:56 UTC - Truth Social post 116873613769389029](116873613769389029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873613769389029
+  - _No text content captured._
+- [14:56 UTC - EXCLUSIVE: Serbian President Vučić says support for US 'surged' under Trump, invites him t...](116873611442328208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873611442328208
+  - EXCLUSIVE: Serbian President Vučić says support for US 'surged' under Trump, invites him to visit Belgrade: [https://www. foxnews.com/world/exclusive-se rbian-president-vucic-says-...
+- [14:55 UTC - Biden Border!](116873609422392313/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873609422392313
+  - Biden Border!
+- [14:55 UTC - Alice is a beautiful soul!](116873606818019352/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873606818019352
+  - Alice is a beautiful soul!
+- [14:54 UTC - It was the Greatest Hoax in Political History!](116873605841320356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873605841320356
+  - It was the Greatest Hoax in Political History!
+- [14:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873603099605813 This is good...](116873604334707323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873604334707323
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873603099605813 This is good, but Rand has to vote with us more than he does!
+- [14:54 UTC - Truth Social post 116873603099605813](116873603099605813/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873603099605813
+  - _No text content captured._
+- [14:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873600025860413](116873600928684662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873600928684662
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116873600025860413
+- [14:53 UTC - Truth Social post 116873600025860413](116873600025860413/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873600025860413
+  - _No text content captured._
+- [14:52 UTC - Truth Social post 116873594996384119](116873594996384119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873594996384119
+  - _No text content captured._
+- [14:51 UTC - Truth Social post 116873590368635910](116873590368635910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873590368635910
+  - _No text content captured._
+- [14:50 UTC - Truth Social post 116873589617673800](116873589617673800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873589617673800
+  - _No text content captured._
+- [14:50 UTC - Truth Social post 116873588761011893](116873588761011893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873588761011893
+  - _No text content captured._
+- [14:49 UTC - Truth Social post 116873585830890580](116873585830890580/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873585830890580
+  - _No text content captured._
+- [14:49 UTC - Truth Social post 116873584794502302](116873584794502302/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873584794502302
+  - _No text content captured._
+- [14:49 UTC - Truth Social post 116873583579004972](116873583579004972/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873583579004972
+  - _No text content captured._
+- [14:48 UTC - Truth Social post 116873582320180039](116873582320180039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873582320180039
+  - _No text content captured._
+- [14:47 UTC - They’re Running the 2024 Anti-Trump Playbook on Nigel Farage: [https:// thenationalpulse.c...](116873578105532929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873578105532929
+  - They’re Running the 2024 Anti-Trump Playbook on Nigel Farage: [https:// thenationalpulse.com/analysis- post/theyre-running-the-2024-anti-trump-playbook-on-nigel-farage-its-failing/...
+- [14:47 UTC - How President Trump Revived American Pride and Patriotism in Time for America’s 250th Birt...](116873576068089044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873576068089044
+  - How President Trump Revived American Pride and Patriotism in Time for America’s 250th Birthday: [https:// mattkaneusa.substack.com/p/how -president-trump-revived-american](https://...
+- [14:47 UTC - Exclusive—Trump: SCOTUS Slaughter Decision ‘More Than Made Up’ for ‘Disappointing’ Birthri...](116873574990020627/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873574990020627
+  - Exclusive—Trump: SCOTUS Slaughter Decision ‘More Than Made Up’ for ‘Disappointing’ Birthright Citizenship Ruling: [https://www. breitbart.com/politics/2026/07 /01/exclusive-trump-s...
+- [14:46 UTC - Exclusive — President Donald Trump: ‘Certainly Prepared’ for Possible SCOTUS Vacancy, but ...](116873572953095657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873572953095657
+  - Exclusive — President Donald Trump: ‘Certainly Prepared’ for Possible SCOTUS Vacancy, but ‘Nobody’ Can Replace Justice Alito: [https://www. breitbart.com/politics/2026/07 /01/exclu...
+- [14:46 UTC - Hillary Clinton breaks with Democratic critics by backing Trump’s Gaza plan as the 'only g...](116873571463955993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116873571463955993
+  - Hillary Clinton breaks with Democratic critics by backing Trump’s Gaza plan as the 'only game in town': [https://www. foxnews.com/media/hillary-clin ton-breaks-democratic-critics-b...
 - [03:08 UTC - Harry Kane of England is a GREAT player!!!](116870828977749531/)
   - Source: https://truthsocial.com/@realDonaldTrump/116870828977749531
   - Harry Kane of England is a GREAT player!!!
