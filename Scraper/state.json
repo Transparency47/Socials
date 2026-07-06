@@ -11,8 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "TruthSocial/RealDonaldTrump: HTTPError: 502 Server Error: Bad Gateway for url: https://truthsocial.com/api/v1/accounts/107780257626128497/statuses?limit=40&exclude_replies=true&with_muted=true",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=qNhZAA7E3Ss: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=qNhZAA7E3Ss! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/zylXgdqCAzI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zylXgdqCAzI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10102,6 +10101,28 @@
       "published": "2026-07-06T16:30:45+00:00",
       "title": "One year of delivering historic results from Working Families Tax Cuts \ud83e\udd85\ud83d\ude24",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7659453255948258573"
+    },
+    "tiktok:whitehouse:7659523199591271710": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-06T22:16:53.093325+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/06/7659523199591271710",
+      "platform": "tiktok",
+      "post_id": "7659523199591271710",
+      "published": "2026-07-06T21:02:14+00:00",
+      "title": "Today is the DAY. Let\u2019s go USA \ud83e\udd85\ud83d\ude24\ud83c\uddfa\ud83c\uddf8",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7659523199591271710"
+    },
+    "tiktok:whitehouse:7659539987523849502": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-06T22:16:53.093297+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/06/7659539987523849502",
+      "platform": "tiktok",
+      "post_id": "7659539987523849502",
+      "published": "2026-07-06T22:07:28+00:00",
+      "title": "Satisfying ASMR: no tax on tips \ud83e\udd85",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7659539987523849502"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -122467,6 +122488,17 @@
       "published": "2026-07-06T19:00:46.080000+00:00",
       "title": "OIL PRICES COMING DOWN! [https://www. bloomberg.com/news/articles/20 26-07-06/saudis-make-...",
       "url": "https://truthsocial.com/@realDonaldTrump/116874572332187882"
+    },
+    "truthsocial:realdonaldtrump:116874984393383550": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-06T22:16:42.640538+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/06/116874984393383550",
+      "platform": "truthsocial",
+      "post_id": "116874984393383550",
+      "published": "2026-07-06T20:45:33.577000+00:00",
+      "title": "Great news! I have just been informed that one of the biggest, best, and smartest Retailer...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116874984393383550"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
