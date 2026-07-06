@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-06
 
-- Posts: 47
+- Posts: 48
 
+- [19:00 UTC - OIL PRICES COMING DOWN! [https://www. bloomberg.com/news/articles/20 26-07-06/saudis-make-...](116874572332187882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116874572332187882
+  - OIL PRICES COMING DOWN! [https://www. bloomberg.com/news/articles/20 26-07-06/saudis-make-biggest-oil-price-cut-in-decades-as-market-weakens](https://www.bloomberg.com/news/article...
 - [16:03 UTC - Truth Social post 116873875024607375](116873875024607375/)
   - Source: https://truthsocial.com/@realDonaldTrump/116873875024607375
   - _No text content captured._
