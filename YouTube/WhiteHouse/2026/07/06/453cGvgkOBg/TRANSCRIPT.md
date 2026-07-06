@@ -1,0 +1,930 @@
+<!-- source: https://www.youtube.com/watch?v=453cGvgkOBg -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 453cGvgkOBg -->
+<!-- date_published: 2026-07-06T16:32:54+00:00 -->
+<!-- date_accessed: 2026-07-06T21:00:02.270534+00:00 -->
+
+# Transcript: President Trump Participates in a Rose Garden Club Lunch, Jul. 6, 2026
+
+- [00:07.919] President of the United States, Donald
+- [00:10.240] J. Trump. And I'm proud to be an
+- [00:13.840] American where at least I know I'm free.
+- [00:18.640] And I won't forget the men who died, who
+- [00:22.560] gave that right to me. And I gladly
+- [00:25.920] stand up next to you and defend her
+- [00:30.320] still today.
+- [00:32.480] Cuz there ain't no doubt I love this
+- [00:35.520] land.
+- [00:37.760] God bless the USA.
+- [00:52.960] from the lakes of Minnesota
+- [00:56.320] to the hills of Tennessee.
+- [01:00.239] Cross the plains of Texas.
+- [01:03.120] From sea to shining sea,
+- [01:06.640] from Detroit down to Houston and New
+- [01:10.799] York to LA. Well, is it bright in every
+- [01:15.360] American heart and it's time we stand
+- [01:18.479] and say
+- [01:23.360] that I'm proud to be an American where
+- [01:27.119] at least I know I'm free. And I won't
+- [01:31.200] forget the man who died, who gave that
+- [01:34.799] right to me. And I'm gladly stand up
+- [01:39.200] next to you and defend her still today.
+- [01:43.759] Cuz there ain't no doubt I love this.
+- [01:49.040] God bless you.
+- [01:57.680] And I'm proud to be an American
+- [02:01.200] where at least I know I'm free.
+- [02:04.880] And I won't forget the man who died, who
+- [02:08.800] gave that right to me. And I gladly
+- [02:12.239] stand up
+- [02:15.120] next to you and defend her still today.
+- [02:19.920] Cuz there ain't no doubt I love this
+- [02:22.959] land.
+- [02:25.280] God bless the US.
+- [02:36.000] >> Lee Grinwood. Wow. Has he been great,
+- [02:38.319] huh? That's been with me a long time.
+- [02:41.280] That song. We won three elections with
+- [02:44.080] that song.
+- [02:45.920] And uh we have a country that's a much
+- [02:49.200] different place than it was just a short
+- [02:50.800] while ago. We have the hottest stock
+- [02:53.360] market in history. We did great the
+- [02:56.959] first time. We had the greatest economic
+- [02:59.760] numbers ever in history for the first
+- [03:02.080] term and I think we're going to be
+- [03:03.519] blowing them away. What do you think,
+- [03:04.800] David? You agree? Goldman Sachs. David's
+- [03:07.680] here. Uh we're going to be blowing them
+- [03:10.400] away. This numbers are all over the
+- [03:12.800] country. We have factories rising. 19.2
+- [03:15.920] trillion investment. And please sit
+- [03:18.239] down. Please. I appreciate you standing
+- [03:21.599] up.
+- [03:23.599] And anytime you want to stand up and
+- [03:25.120] cheer, that's okay, too. But we have a
+- [03:27.519] lot of very big people here. They don't
+- [03:28.959] get up and cheer too often, but they're
+- [03:31.360] very happy with what's happening. And
+- [03:33.200] we're doing very well. As you know,
+- [03:35.040] Venezuela was amazing and we're getting
+- [03:37.840] along great with Venezuela. We're we
+- [03:40.239] paid for the war many times over and and
+- [03:43.200] Venezuela is doing better. The
+- [03:44.640] relationship is very very good and we're
+- [03:47.280] doing very well with Iran. We wiped out
+- [03:49.120] their navy, their air force, their
+- [03:51.200] radar, their leaders. We wiped out
+- [03:53.760] everybody. And then I heard they're
+- [03:55.760] doing very well. No, they're not doing
+- [03:57.360] well at all. They want to make a deal so
+- [03:59.120] badly. But we'll see what happens. They
+- [04:01.680] have to make the right deal because they
+- [04:02.959] cannot have a nuclear weapon. They
+- [04:04.560] cannot have a nuclear weapon. It's very
+- [04:06.319] simple. You want to see a bad stock
+- [04:08.640] market, let them use a nuclear weapon.
+- [04:10.400] I'll show you a bad stock market. Right?
+- [04:13.040] So, uh, but we're doing very well.
+- [04:15.040] They've agreed to a lot of things that a
+- [04:16.639] lot of people said they wouldn't agree
+- [04:17.919] to. We'll see what happens. We're going
+- [04:19.680] to win one way or the other. We win the
+- [04:22.240] nice way or the not nice way. But I want
+- [04:25.120] to welcome everybody to the Rose Garden.
+- [04:27.520] What you're sitting on, the stone is uh
+- [04:30.320] sort of a replica of the color of the
+- [04:32.320] White House. This was grass. And I love
+- [04:34.720] grass, but you know, the White House was
+- [04:37.040] built on a wetland. And the grass was
+- [04:39.520] always very wet. And if you were sitting
+- [04:42.000] here right now, your shoes would be
+- [04:43.360] destroyed. you would be extremely
+- [04:45.360] unhappy with me. You'd want to leave.
+- [04:47.040] The men wouldn't like it, but the women
+- [04:48.560] would with their beautiful I won't name
+- [04:50.960] the the group, but you know who I'm
+- [04:52.880] talking about. Those extremely high
+- [04:54.479] heels. Uh they'd be sinking into I used
+- [04:57.280] to call it the quicksand. He was a
+- [04:59.280] quicksand pit. So, we've redone it. We
+- [05:02.160] built the presidential walk of fame,
+- [05:05.120] which starts with George Washington and
+- [05:07.440] goes all the way up to Trump. And uh
+- [05:11.280] it's been so popular. We've redone the
+- [05:14.160] path. All the stone was broken. It was
+- [05:16.160] in terrible shape. And we put beautiful
+- [05:18.639] granite pavers in that uh will last.
+- [05:21.840] They said has a million-year life. They
+- [05:23.600] go a million year plus. They rate stone,
+- [05:25.600] you know, 35,000 pounds per square inch.
+- [05:28.880] So, think of it. Nature makes a stone
+- [05:31.120] far greater than we can. There's no
+- [05:33.840] stone that we can make. There's no
+- [05:35.360] concrete or mix that we can make that's
+- [05:37.199] 35,000 lbs per square inch. But, uh,
+- [05:40.960] it's gotten rave reviews. The I don't
+- [05:43.840] know if anybody's up and seen it, but
+- [05:45.440] this is the walk to the Oval Office and
+- [05:47.199] walk to the West Wing. And so, we've
+- [05:49.680] done a job and, uh, we've taken about
+- [05:53.680] 150 years of paint off of the columns
+- [05:57.199] and redid them. They were in very bad
+- [05:59.840] shape. You know, when you have 150 coats
+- [06:02.560] of paint on something, it's not good.
+- [06:04.720] You're supposed to what they call strip
+- [06:06.319] it. I don't use use a word like that too
+- [06:08.639] easily. I will tell you in construction,
+- [06:10.319] if you don't strip the paint off, it
+- [06:12.479] gets worse and worse and worse and it
+- [06:14.240] was looking bad. You couldn't even see
+- [06:16.400] the details of what was up here. We very
+- [06:18.800] carefully stripped it. Now we're doing
+- [06:20.880] it. You notice the scaffolding on the
+- [06:22.479] front of the White House. We're doing
+- [06:23.520] that. A lot of love is being put in the
+- [06:24.960] White House because frankly was treated
+- [06:27.600] very badly by a lot of presidents. Had
+- [06:30.479] no idea. Uh the last one definitely had
+- [06:33.840] no idea. Do you think he walked in the
+- [06:35.440] office and said, "I don't like the shape
+- [06:37.680] of the columns. I don't think so. Biden,
+- [06:40.319] I don't like the shape of the columns.
+- [06:42.479] He didn't notice things like that. He
+- [06:44.560] didn't notice anything. But, uh, we're
+- [06:47.919] putting a lot of love back into the
+- [06:49.280] White House. This will happen every 200
+- [06:51.039] years or so. You'll get somebody that
+- [06:52.639] will bring it back. But, if you look at
+- [06:55.520] that wall right there, that beautiful
+- [06:57.280] wall of the building itself, that's been
+- [06:59.840] redone and and it's been done
+- [07:02.000] beautifully. And the best thing and the
+- [07:03.520] biggest thing that we're doing is we're
+- [07:04.800] building a ballroom and a tremendous
+- [07:07.199] military center that was supposed to be
+- [07:10.000] top secret, but it's no longer top
+- [07:11.680] secret because no matter what you do,
+- [07:14.240] you get sued. They sue because they
+- [07:16.800] think the ballroom's too big, the
+- [07:18.639] ballroom's too small. I don't like the
+- [07:21.280] color of the ceiling. We don't like you
+- [07:23.840] know you get sued in in this world we're
+- [07:26.639] living especially if your name is Trump
+- [07:28.319] you get sued and you get sort of good at
+- [07:31.199] it after a while becomes routine it's
+- [07:33.919] ridiculous but we're building something
+- [07:36.319] the likes of which will never be even
+- [07:38.960] close to being competed with the
+- [07:40.560] ballroom is going up to there you see
+- [07:43.440] it's the hardest part is now completed
+- [07:46.880] the base and it's rising very
+- [07:48.880] substantially rising and when it's done
+- [07:52.160] you know the You can see there's about
+- [07:54.080] 93 people in the White House. It was
+- [07:56.080] always a problem. For 150 years, they've
+- [07:59.840] wanted a ballroom to be built. We don't
+- [08:01.840] have a ballroom in the White House. We
+- [08:03.680] have a a room that's a little bit large,
+- [08:05.360] but it's not a ballroom. It's a very
+- [08:07.199] small room. We had uh King Charles here.
+- [08:11.039] Everybody wanted to be here. We couldn't
+- [08:12.560] hold anybody. But soon you'll be able
+- [08:15.120] to. It'll be I think it's going to be
+- [08:16.479] one of the most beautiful structures in
+- [08:18.080] Washington when it's completed. And I've
+- [08:20.800] done many ballrooms. And this will be
+- [08:22.800] the there won't be anything to compete
+- [08:24.800] with this anywhere in the country. And
+- [08:27.120] that's what it should have. And it'll
+- [08:28.800] use it exclusively only for the White
+- [08:30.720] House, but it it's really what it should
+- [08:33.120] have when you have heads of state. Uh
+- [08:35.440] it's also uh able to hold the
+- [08:38.800] inauguration. You know, we had the
+- [08:41.120] inauguration was so cold that when you
+- [08:42.719] have January 20th, it's so cold the
+- [08:44.720] weather that generally the first time we
+- [08:46.880] got by with it, it was good. It was, you
+- [08:49.440] know, like 34 degrees. But the last time
+- [08:52.240] it was below zero and you weren't able.
+- [08:56.080] So we used the capital and it's a very
+- [08:58.399] small space. It's not safe. It's not,
+- [09:01.200] you know, it's not they didn't have
+- [09:03.600] drones in mind when they built it. They
+- [09:06.080] didn't have other things in mind either.
+- [09:08.800] But we were able to get 921 people in
+- [09:13.120] and this will hold many times that
+- [09:14.959] numbers of people without the tables as
+- [09:16.880] seats and uh bulletproof, drone proof,
+- [09:22.080] missileproof in many cases. Um and
+- [09:25.839] beautiful at the same time and a big
+- [09:28.880] military component including on the roof
+- [09:31.440] a drone port. Can you believe we have a
+- [09:33.120] drone port and it's uh like no other. So
+- [09:37.920] we're doing a great service. It's great
+- [09:39.600] national security. We also take care of
+- [09:41.600] a need. Every president said this is
+- [09:44.560] crazy. Uh I'm sure that many of you
+- [09:47.120] along with me attended.
+- [09:49.360] Uh we would have a presidential ceremony
+- [09:52.399] of some kind or head heads of state
+- [09:55.040] would come in. For instance, President
+- [09:57.440] Xi is coming here in the toward the end
+- [09:59.680] of September 24th I believe. And what we
+- [10:04.160] need is uh a big ballroom where we we
+- [10:07.440] could hold thousands of people to see
+- [10:10.000] him. Everyone wants to see him. Same
+- [10:12.160] thing with King Charles. Same thing with
+- [10:14.399] a lot of the leaders of countries. And
+- [10:17.120] now we're going to have a a place the
+- [10:18.640] likes of which no country has. I was in
+- [10:21.360] the great hall of China recently, four
+- [10:23.519] weeks ago when I was in China. They have
+- [10:26.160] a very large ballroom, beautiful
+- [10:28.959] ballroom. We don't have that, but we're
+- [10:30.480] going to have one that tops everything.
+- [10:31.920] won't won't even be close. The beauty of
+- [10:34.079] it and the size will be great. So, it's
+- [10:37.360] exciting and that'll be done actually I
+- [10:39.839] will get to use it for you know people
+- [10:41.360] say he's building it for himself. I'll
+- [10:42.880] be using it if I'm lucky if I get six
+- [10:45.440] months because it'll be done toward the
+- [10:48.399] middle of 28. So, I'm really building it
+- [10:52.000] for other presidents. But, it'll give
+- [10:53.519] them great safety.
+- [10:55.600] uh glass windows that are this thick
+- [10:57.839] that can withstand any form of uh shot,
+- [11:02.000] rifle, drone, anyone. Nothing gets
+- [11:05.680] through. Steel walls,
+- [11:07.920] steel ceiling, extra strength. I mean,
+- [11:10.480] it's a it's really an amazing thing. And
+- [11:12.560] yet, all of that security made it more
+- [11:15.200] beautiful because you have very thick
+- [11:16.640] walls, very powerful walls, very
+- [11:19.200] beautiful. Uh we've actually taken
+- [11:22.160] security and made it a beautiful thing.
+- [11:24.000] It looks like it was built from 700
+- [11:28.240] years ago. Like when I went to England,
+- [11:31.519] we went to um Windsor Castle. It's the
+- [11:36.000] longest building I've ever seen. I said
+- [11:37.680] to Charles, it was built around like
+- [11:41.600] 900, you know, was a long time. But uh I
+- [11:46.399] said to Charles,
+- [11:48.399] who built this? This place is
+- [11:50.480] incredible. William the Conqueror. I
+- [11:53.920] said, "Oh, William the Conqueror." Was
+- [11:55.680] he a nice man? Charles said, "No, no, he
+- [11:58.800] was extremely strong and very tough." I
+- [12:02.320] said, "I figure with the name William
+- [12:03.760] the Conqueror. I would think." What do
+- [12:05.760] you think? I think he'd be tough,
+- [12:07.200] Michael. What do you think? I said, "We
+- [12:09.120] have to come up with a good name for
+- [12:10.320] you, Charles. Maybe Charles the
+- [12:11.839] Conqueror." No, no, no, please.
+- [12:14.480] But, uh, William the Conqueror built a
+- [12:16.639] great building, but we are building one
+- [12:18.320] that's going to top them all, and it's
+- [12:20.480] going to be beautiful. It's gotten great
+- [12:22.000] architectural reviews and more
+- [12:24.639] importantly it got great military. We're
+- [12:26.720] doing it in conjunction with the
+- [12:28.160] military and the generals and these are
+- [12:30.639] smart, brilliant generals that know
+- [12:32.720] exactly what they're doing, what they
+- [12:34.000] want. I'm giving them everything they
+- [12:35.360] want and it's really a national security
+- [12:38.480] must.
+- [12:40.160] But I want to welcome you to the Rose
+- [12:42.320] Garden and today's a historic day as we
+- [12:44.399] begin begin America's 250th year. We're
+- [12:49.040] launching what's called the Trump
+- [12:50.240] accounts. You've been hearing about it
+- [12:52.079] and this was something that was made
+- [12:53.600] possible because of the great big
+- [12:55.519] beautiful bill otherwise you couldn't do
+- [12:57.680] it. We got it approved. Ted Cruz is here
+- [12:59.600] and he helped us a lot and I want to
+- [13:02.639] thank you Ted and to ensure that every
+- [13:05.200] American child is born with a head start
+- [13:07.519] and a fair shot at the American dream
+- [13:10.160] because by the time they're 18 they
+- [13:11.920] could have a lot of money. They go up
+- [13:14.000] with the market. Think what would have
+- [13:15.680] happened if we invested $1,000 in an
+- [13:19.040] account. Even Brad and Mike, Susan, if
+- [13:22.959] we invested a thousand dollars in an
+- [13:25.600] account a year ago, it's like would have
+- [13:29.040] doubled. And uh because the market we
+- [13:32.480] we're riding the hottest stock market in
+- [13:34.320] history. 81 days. I've been here
+- [13:38.880] one and a half years. Think of it. 81
+- [13:41.839] days we hit record highs, including
+- [13:44.480] today.
+- [13:45.839] A lot of you Wall Street guys, I see
+- [13:48.639] Larry and I see some of the the biggest
+- [13:51.040] guys in Wall Street, David Goldman
+- [13:53.120] Sachs,
+- [13:54.720] Blackstone, Black Rockck, they're all
+- [13:56.720] here. And think of it, I'm making them
+- [14:00.000] all geniuses. Every one of them is a
+- [14:01.760] genius. Is anybody doing poorly? If you
+- [14:03.600] are, I guess you have a couple of guys
+- [14:05.360] that went short, those poor bastards. I
+- [14:07.920] mean, they are they're in big trouble.
+- [14:10.079] They're being wiped out. They're short
+- [14:12.000] guys. I never like short guys because
+- [14:13.519] they're betting against the country. So
+- [14:16.240] that's okay. But earlier this morning,
+- [14:18.720] many of you joined me in the Oval Office
+- [14:20.480] for the ringing of the opening bell and
+- [14:23.839] something happened that was incredible.
+- [14:26.240] Never happened before. We had the New
+- [14:28.639] York Stock Exchange and NASDAQ, the top
+- [14:31.440] of both. These are great people, but
+- [14:34.720] they never did a bell and opening
+- [14:36.320] together. This is the first time.
+- [14:37.760] There's the bell right there. And I
+- [14:38.959] said, "It's so beautiful. I'm not giving
+- [14:40.240] it back. I don't know if it's supposed
+- [14:41.440] to go back, but they're going to have to
+- [14:43.519] fight like hell to get it back. We're
+- [14:45.040] not giving it back. Do you understand
+- [14:46.399] that, Scott? Don't Don't let it leave.
+- [14:48.560] It's so beautiful.
+- [14:50.880] But that's the bell we rang. And that's
+- [14:54.079] where the New York Stock Exchange and
+- [14:55.839] NASDAQ came together. The leadership,
+- [14:58.079] brilliant people, and the first time
+- [15:00.639] ever, we did it together. It was an
+- [15:02.720] opening where we did it together. And
+- [15:04.079] that's in honor of the Trump accounts
+- [15:05.519] cuz we're going to make young children
+- [15:07.760] born with no money in many cases.
+- [15:10.720] Rich. I think they're going to be rich.
+- [15:13.680] But I want to thank Secretary of the
+- [15:15.360] Treasury Scott Bessett, chairman of the
+- [15:18.079] SEC. These are ter really tremendous
+- [15:20.800] people. Paul Atkins. Scott, stand up.
+- [15:23.600] And Paul, please stand up.
+- [15:29.360] Thank you very much.
+- [15:31.920] director of the National Economic
+- [15:34.000] Council, Kevin Hassid, who's so great.
+- [15:36.160] Everybody loves him. Stand up, Kevin.
+- [15:39.279] Thank you, Kevin.
+- [15:41.600] Governor's Sarah Huckabe Sanders, who
+- [15:44.240] worked here very diligently and
+- [15:46.560] brilliantly as my press secretary. She
+- [15:49.279] did a great job. Thank you very much,
+- [15:51.360] Sarah, wherever you may be. Thank you.
+- [15:55.519] Governor Jeff Landry who called me. He
+- [15:57.600] says, "You know, we have a crime problem
+- [15:59.120] and we had the M Mart Mardigra and he
+- [16:02.399] said, "Could you send we want to get rid
+- [16:05.120] of the crime do something because we
+- [16:08.399] have a little bit of a Marty Gig is
+- [16:10.160] coming and we have a little bit of a
+- [16:12.160] crime problem." And I think you say it
+- [16:14.399] was the safest. Where's Jeff? The safest
+- [16:16.959] that they've ever had. Is that right?
+- [16:20.320] Right. In New Orleans, he said was the
+- [16:23.759] best they ever had. The safest. And the
+- [16:25.440] city crime is down 81%.
+- [16:27.839] I wish Chicago would call me. If Chicago
+- [16:30.160] would call me, I would wipe out crime so
+- [16:32.079] fast. Would remove the hardcore
+- [16:34.240] criminals like I did in Washington DC,
+- [16:37.680] in Memphis, and in New Orleans. We we
+- [16:41.440] not just a question of, you know, we're
+- [16:42.800] going to have big strong soldiers.
+- [16:44.160] That's the least. Well, it's very
+- [16:46.160] important. But we removed in your place,
+- [16:48.959] you know, 2,900
+- [16:51.279] career criminals. Many of them came
+- [16:52.880] through the Biden administration. stupid
+- [16:54.800] open border policy they poured in. And I
+- [16:58.320] just want to give a little extra thing.
+- [17:01.199] Thanks a lot, Jeff. You're doing a
+- [17:02.560] fantastic job. And I'm glad you called.
+- [17:04.319] But he called me up two days ago and he
+- [17:06.959] said, "We just had the lowest crime
+- [17:08.559] numbers we've had in 50 years." 50. And
+- [17:11.120] we haven't even finished your job, but
+- [17:12.640] they're down like uh 87 85%. You'll be
+- [17:17.199] down to 90 95%. But we removed the
+- [17:20.400] criminals. We took them out. We're not
+- [17:22.559] letting them stay. because they're
+- [17:24.799] criminals and they'll, you know, a great
+- [17:26.959] stat that I love.
+- [17:29.679] 91%
+- [17:31.760] of the crime in cities is caused by 2%
+- [17:34.880] of the people. I love that because you
+- [17:37.280] can handle that. You can get rid of the
+- [17:39.200] 2%. If it was caused by 91%, you got a
+- [17:43.679] problem. But 91% of the crime in
+- [17:46.880] Washington DC as an example was caused
+- [17:49.919] by 2.1%
+- [17:52.400] of the population. These are career many
+- [17:55.280] career pre criminals sick people
+- [17:58.480] mental problems but 2.1% in the case of
+- [18:02.559] Washington and we removed from
+- [18:04.960] Washington DC 4,212
+- [18:07.679] people permanently removed. Many of them
+- [18:10.240] were brought back to their countries.
+- [18:12.559] Some were put in jail. Many were wanted.
+- [18:14.960] We had murderers. So, we've taken
+- [18:17.520] Washington DC crime, we brought it down
+- [18:20.160] 91%.
+- [18:22.080] And it's considered now one of the
+- [18:24.240] safest is we're going to do better than
+- [18:25.679] the 91 cuz 9% is even too much. But
+- [18:28.640] we're going to bring it back to almost
+- [18:30.480] nothing. The only thing we have a hard
+- [18:33.039] time stopping is a crime of passion. Do
+- [18:35.120] you know what that is? Anybody? was
+- [18:36.640] anybody in this is a group that probably
+- [18:38.720] knows something about crimes of passion.
+- [18:41.360] But the crimes of passion we can't do
+- [18:43.120] much about just one of those things. But
+- [18:46.320] we have uh Washington is way down. We
+- [18:49.919] worked well with the mayor's office. The
+- [18:52.160] National Guard and our military was
+- [18:53.840] unbelievable.
+- [18:55.360] And in Washington, restaurants were
+- [18:57.840] closing. Nobody wanted to eat at
+- [19:00.080] restaurants. It was a disaster. When I
+- [19:02.480] first came it was a really they were
+- [19:04.640] losing three people a week to murder.
+- [19:07.280] Can you 150 people and I said wow and we
+- [19:12.320] really put it into gear and now we don't
+- [19:15.200] have murders. I mean you have I guess
+- [19:17.919] but not much and people are safe and
+- [19:21.600] restaurants are thriving. You can't get
+- [19:24.080] if you're an entrepreneur a restaurant
+- [19:26.080] tour you can't get a restaurant. There's
+- [19:27.760] nothing available. The restaurants are
+- [19:30.160] packed. They used to go in and rob the
+- [19:32.559] restaurants. They'd, you know, they
+- [19:34.880] wouldn't, you'd feel safe in a
+- [19:36.320] restaurant. It was like the old Wild
+- [19:38.559] West. They'd say, "Stick them up. Give
+- [19:40.160] me your money." The whole restaurant is
+- [19:41.760] handing them money. And now that if that
+- [19:44.480] ever happened, those people would be in
+- [19:46.000] deep trouble. Deep, deep. We We hit them
+- [19:48.240] very hard. And we have tremendous
+- [19:51.919] military people involved and they do the
+- [19:54.960] trick. And that's what happened with
+- [19:57.120] Jeff, with Louisiana. That's what's
+- [19:58.799] happened with Memphis, Tennessee, where
+- [20:00.880] the governor also called me. He said
+- [20:02.320] Memphis I mean FedEx was going to move
+- [20:04.559] and now they called me the other day.
+- [20:05.840] They said you've made it a safe city.
+- [20:07.280] I've never se People have never seen
+- [20:09.440] anything like it. Washington DC every
+- [20:12.160] day somebody says thank you. I know
+- [20:13.600] immediately what they're saying
+- [20:16.160] young women that walk to work at White
+- [20:20.080] House. They used to take Uber and they
+- [20:22.640] felt unsafe because the Uber car was
+- [20:24.559] robbed and dangerous. They shoot people.
+- [20:28.240] That doesn't happen anymore. And the
+- [20:29.760] girls are working to work and the young
+- [20:32.000] guys are walking to work. And the older
+- [20:34.799] guys, if they can walk, they walk. Half
+- [20:37.679] of them can't walk because they made too
+- [20:40.240] much money. A lot of these guys here,
+- [20:41.679] they can't walk, but they're rich as
+- [20:42.960] hell. But it's a it's such a tribute.
+- [20:46.880] And I just wish that I'd get a call from
+- [20:50.400] the governor of
+- [20:53.520] Illinois as an example or the mayor of
+- [20:55.919] Chicago. Sir, we've had a they've had a
+- [20:58.799] a horrible three weeks. By the way, many
+- [21:01.840] people shot, many people killed, and
+- [21:03.679] they just don't want to call. They have
+- [21:06.159] to call. All they have to do is say,
+- [21:07.679] "Sir, we need help. I'll straighten it
+- [21:10.880] out so fast. San Francisco, I wish
+- [21:14.080] they'd call. You know, you have a mayor
+- [21:16.080] there who's a Democrat, but he's a good
+- [21:17.600] person. He's trying hard, but I told a
+- [21:20.240] couple of the very rich people living in
+- [21:21.919] San Francisco. They wanted me to give
+- [21:23.919] him a chance, and I said, "All right,
+- [21:25.039] I'll give him a chance." But he can't do
+- [21:26.240] the job because he can't remove people
+- [21:27.679] like us. We have the law on our side. We
+- [21:30.400] can remove murderers. You know, under
+- [21:33.039] the Biden open border policy, 11,888
+- [21:36.480] murders were allowed into our country.
+- [21:38.960] They're living in a place near you. But
+- [21:41.919] I've gotten rid of most of them have
+- [21:43.440] been either removed or we put them in
+- [21:44.799] jail. We've caughten caught most of
+- [21:46.480] them. But they came in through an open
+- [21:48.080] border. They came in through prisons,
+- [21:50.080] mental institutions,
+- [21:52.559] drug dealers. You have no idea the drug
+- [21:54.480] dealers that came in under Biden. Open
+- [21:56.400] border. Nobody checked. They just walk
+- [21:58.960] in. And you could look at some of them.
+- [22:00.799] You could say, "This is trouble." And
+- [22:02.960] they'd walk into our country. We remove
+- [22:04.880] them. And I wish Los Angeles, I wish
+- [22:07.520] Gavin Newsome would call me. I wish
+- [22:10.320] Governor Prrisco would call me. I wish
+- [22:13.039] the governor of New York would call me.
+- [22:14.799] They have tremendous crime and all of
+- [22:17.120] them. And they would have they would go
+- [22:19.280] just like Washington. We have the men.
+- [22:21.600] We have unlimited number of
+- [22:24.480] great men. You know, one of the things
+- [22:26.000] we one of the many things we got was
+- [22:29.440] from the Supreme Court of the United
+- [22:31.120] States. You know, we went against merit.
+- [22:34.960] merit had no place in our country. So
+- [22:38.400] people were getting into college with
+- [22:40.240] bad marks, with bad board scores, not
+- [22:44.000] great students, and they'd get into
+- [22:46.559] college and people with straight A's,
+- [22:48.320] with the highest boards, everything else
+- [22:50.880] couldn't get into colleges, certain
+- [22:53.200] colleges, the top colleges. And we won
+- [22:56.400] based on merit. We now have a country. I
+- [22:59.200] was I frankly I give a lot of credit to
+- [23:01.120] the Supreme Court on that one because
+- [23:02.480] that was a tough one for them. But we
+- [23:05.120] won. We now have a country based on
+- [23:08.640] merit. That goes for colleges. You get
+- [23:10.720] the best if you have the highest marks
+- [23:12.559] and the best boards and all the things
+- [23:14.240] that you need. You don't get on based on
+- [23:18.000] race, color, creed, thought, look,
+- [23:21.280] height. You get on by
+- [23:24.960] merit. And you get into colleges by
+- [23:27.679] merit and you get into the military by
+- [23:30.720] merit. So we had a military where we
+- [23:32.400] could not sign anybody. Before the
+- [23:34.880] election, November 5th, you could not
+- [23:37.600] get anybody.
+- [23:39.360] They couldn't get him. We couldn't
+- [23:41.280] recruit people. Now recruitment has went
+- [23:44.159] to gone to an all-time high. We've never
+- [23:47.520] had anything like it. And likewise the
+- [23:50.960] soldiers, they are put in based on
+- [23:54.240] merit. like we'd like to have strong
+- [23:57.520] soldiers. I want my soldiers to be
+- [24:00.080] strong physically and we have strong
+- [24:02.799] soldiers. And when the bad guys see our
+- [24:05.440] soldiers out on the streets of
+- [24:06.880] Washington, and you saw that, Jeff, you
+- [24:09.120] were saying he said, "I never saw so
+- [24:10.640] many big, strong, good-looking people."
+- [24:14.080] And it's all based on merit. So, our
+- [24:18.000] military's got merit-based. Everything
+- [24:20.080] we do is merit-based.
+- [24:22.240] And we're not forced to take people that
+- [24:24.000] cannot do the job. And I tell you what,
+- [24:26.960] that was not an easy decision to make as
+- [24:29.919] you could understand. But that's the way
+- [24:31.120] our country grew. We grew based on
+- [24:32.799] merit. We didn't grow based on, you
+- [24:34.799] know, you got to have xxx and and x.
+- [24:39.360] So I want to thank all of these people
+- [24:41.120] that have been so good. And I want to
+- [24:43.360] thank Jeff Landry because you have been
+- [24:45.200] really you've been a great governor.
+- [24:46.559] Thank you, Jeff. I was very honored to
+- [24:48.720] have endorsed you. And you avoided
+- [24:51.039] primaries. You avoided runoffs. You
+- [24:53.120] avoided everything and you deserve it.
+- [24:56.000] Uh Rob Breznahan is here. Congressman
+- [25:00.400] who's been fantastic. Rob, wherever you
+- [25:02.240] may be. Thank you, Rob. Thank you very
+- [25:04.799] much, Rob. Young, handsome guy. He could
+- [25:07.520] be up here someday. Who the hell knows,
+- [25:09.120] right? Rob, he's got the look. Along
+- [25:12.000] with the CEO of Intercontinental
+- [25:14.960] Exchange, Jeffrey, my friend. Jeff, that
+- [25:18.880] means the New York Stock Exchange.
+- [25:20.320] That's another word for New York Stock
+- [25:22.000] Exchange and various other I said so you
+- [25:24.960] own the New York Stock Exchange. He said
+- [25:27.120] yeah. I said what else? He said he owns
+- [25:29.440] numerous exchanges and he I was very
+- [25:31.760] proud to see them together today with
+- [25:33.520] NASDAQ. But Jeff is great and he's
+- [25:36.240] married to a person who's doing a
+- [25:38.480] phenomenal job at the SBA small business
+- [25:42.320] Nicki Minaj who's so incredible. They
+- [25:44.400] call it small business Nikki but when
+- [25:45.840] you add it up it's bigger than any bank
+- [25:47.520] probably in the world right. I don't
+- [25:48.960] know. It's Larry. It's It's right up
+- [25:51.200] there. Small. It's not small business,
+- [25:54.080] but she's done fantastically and I
+- [25:56.960] appreciate it. The president Lynn Martin
+- [26:01.440] NASDAQ and chair and CEO Adena is here.
+- [26:05.600] So, you have Lynn and you have Adena and
+- [26:07.840] they fight each other a little bit. I
+- [26:10.159] don't know. Do you fight? Where are you?
+- [26:11.600] Do you fight? Not too much. Right. Boy,
+- [26:14.720] you've got you've never gotten along so
+- [26:16.480] well. I think there will be no merger.
+- [26:18.480] However, I'm going to talk to Paul.
+- [26:20.240] Paul, don't let them merge, please. We
+- [26:23.360] need all the competition we can get.
+- [26:25.120] That's all we need. We get out of this a
+- [26:26.720] merger of NASDAQ into the New York. We
+- [26:29.360] will not allow that to happen. Right,
+- [26:30.799] Paul? Also, President
+- [26:34.320] Nelson Griggsy, you're here someplace.
+- [26:36.159] Nelson, where are you? You've been
+- [26:38.640] great. Thank you. It's good to have you.
+- [26:40.559] I love the scene of the four of them.
+- [26:43.039] The four of them. And uh the bell is
+- [26:45.840] right in the middle. and I happened to
+- [26:47.279] be in that picture, but I got out
+- [26:48.720] because I wanted to have the picture of
+- [26:50.000] the four of them. Never, it never
+- [26:51.919] happened before. We also have a woman
+- [26:53.440] that is so respected and so hot and so
+- [26:57.440] great and such a a great friend of I
+- [27:00.720] don't say conservative, I say of common
+- [27:02.480] sense. She's not conservative or liberal
+- [27:04.480] or as they say now progressive. Liberal
+- [27:07.120] became so tarnished, but now it's
+- [27:09.440] communist. You know, they say social
+- [27:11.440] democrats. No, social democrat is a
+- [27:13.360] communist. All right, just so you know.
+- [27:15.279] There's no So, if you look at the people
+- [27:17.200] that are running, it's crazy what
+- [27:18.559] they're doing. But we won't we'll never
+- [27:21.279] let that happen to this country. It
+- [27:22.720] can't happen to the country. You can't
+- [27:24.880] There's no appetite for it, especially
+- [27:27.279] since we've literally now you're going
+- [27:29.039] to see numbers coming out over the next
+- [27:30.640] six months, I think, that nobody will
+- [27:32.720] have ever seen before. But she's a
+- [27:35.520] fantastic person and she's a woman
+- [27:37.520] that's respected by everybody and she's
+- [27:39.600] got real talent. Nicki Minaj. Nikki,
+- [27:41.919] stand up, please.
+- [27:44.000] He's
+- [27:47.200] such a great person, respected by
+- [27:49.440] everybody. Today, 38% of Americans do
+- [27:52.240] not own stock. Yet, we have set 73
+- [27:55.600] all-time records. It's now 82. They're a
+- [27:58.559] little bit late with their notes. With
+- [28:00.799] Trump accounts, every newborn child will
+- [28:03.039] be invested in the stock market. So,
+- [28:05.600] they're going to be watching. You know,
+- [28:07.919] they'll be the next Larry Frink. They'll
+- [28:10.320] be the next
+- [28:13.039] chairman of Goldman Sachs. They'll take
+- [28:14.640] David's place. David will be very
+- [28:17.200] concerned about this. He's not going to
+- [28:18.720] like it. But they're going to be
+- [28:21.520] invested in our country and uh it's
+- [28:24.799] going to be something. Every newborn
+- [28:26.240] child will be in the stock market and
+- [28:29.520] one day you'll see what happens. is that
+- [28:31.279] if we have good markets, if we have
+- [28:32.720] smart presidents, if we have people that
+- [28:34.399] know what they're doing like Scott and
+- [28:37.679] all of the people that are so that work
+- [28:40.880] so hard, uh,
+- [28:44.000] all of these childs, so children, so
+- [28:46.240] many of these children are going to be
+- [28:47.440] involved with the Trump account, they're
+- [28:48.880] going to watch their account grow.
+- [28:49.919] They're going to watch the country grow.
+- [28:51.760] They're going to be reading the
+- [28:52.720] newspapers. They want to go to the
+- [28:54.240] financial pages, but parents have to go
+- [28:57.600] to trumpaccounts.gov.
+- [29:00.000] And many many people are investing in
+- [29:01.840] this enough for themselves. They're
+- [29:03.200] putting money in. Uh as an example,
+- [29:05.600] Michael Dell and Susan Dell invested $6
+- [29:08.720] bill250 million. Think of that. Not
+- [29:11.600] everybody has to do quite that much.
+- [29:17.200] And I'm going to wait a little period of
+- [29:18.720] time. Then I'll see him again. I'll say,
+- [29:20.000] "How about doubling it up?" Yeah. But
+- [29:22.720] then he can do it, too. Amazing story.
+- [29:25.360] He started off making computers on his
+- [29:27.200] bed at a dorm.
+- [29:29.279] And uh I won't ask you which college
+- [29:31.279] where where did you go to college?
+- [29:33.200] >> University of Texas.
+- [29:34.480] >> Oh, that's a good one. Huh? University
+- [29:36.320] of Texas.
+- [29:38.080] That's a good one. It's great. We love
+- [29:40.159] the state.
+- [29:42.000] But I want to really give you a special
+- [29:44.240] shout out because of what you've done.
+- [29:45.600] You was right right from the beginning.
+- [29:47.600] They were involved with Brad and you
+- [29:50.559] guys are very special. So I want to
+- [29:52.320] thank you and Susan. I want to also uh
+- [29:56.000] tell you that Brad is investing
+- [29:59.360] $250
+- [30:01.279] to the accounts of all children under
+- [30:03.440] five in his home state of Indiana. And
+- [30:05.200] that 250 is going to grow very rapidly.
+- [30:08.399] That's going to be that's a lot of
+- [30:09.679] money.
+- [30:12.559] the head of Micron, a friend of mine,
+- [30:14.640] CEO Sanjay
+- [30:16.880] Morotra,
+- [30:18.399] who last week announced that Micron will
+- [30:20.640] be making a $250 million investment in
+- [30:23.200] the Trump accounts.
+- [30:25.279] And I didn't name that account. There
+- [30:27.200] was a whole group of people got
+- [30:28.799] together, what's the best name for it?
+- [30:30.240] And they came to me and they said, "What
+- [30:33.039] is this all about?" And as soon as I
+- [30:35.360] heard it, I said, "This is going to
+- [30:36.480] really work." And it really has. We're
+- [30:37.760] setting records with it. And it's just
+- [30:40.320] really now opening the complexity. And
+- [30:42.080] Scott, you're going to get this open
+- [30:43.360] really fast. We got to do that really,
+- [30:46.320] really fast. Get it. It's just about
+- [30:48.799] complete. And we had some tremendous
+- [30:50.880] people working on it. But made possible
+- [30:53.360] by the provisions that we put in the
+- [30:55.919] great big beautiful bill.
+- [30:58.320] And I made reference today that
+- [31:00.000] Australia has a
+- [31:02.880] thing going that's very good. It's
+- [31:04.480] really worked out very well. We have
+- [31:06.080] good respect for Australia. And that has
+- [31:07.840] to do with people that are working
+- [31:09.360] people and it's something that also does
+- [31:12.880] puts them in much better shape when
+- [31:14.640] they're retirement age. So we're going
+- [31:17.200] to we're going to do that. We're looking
+- [31:18.880] at that very strongly. We're going to be
+- [31:21.120] taking that and we're going to be maybe
+- [31:23.360] making it a little bit sharper, a little
+- [31:26.240] bit even better. But we're going to be
+- [31:28.240] doing that. And uh Scott, you're working
+- [31:30.480] on that immediately. You and the whole
+- [31:32.320] group, Howard, everybody.
+- [31:34.799] But already more than 6 million
+- [31:36.399] Americans have signed up for Trump
+- [31:38.000] accounts and we've just started. Many of
+- [31:40.320] which are receiving a one-time seed
+- [31:42.799] contribution of $1,000. So these are
+- [31:45.600] children in many cases extremely poor
+- [31:47.840] children and they're starting off with
+- [31:50.159] $1,000 and then it goes up and it's uh
+- [31:53.360] comes out of the United States Treasury
+- [31:55.519] with contributions from parents,
+- [31:57.200] employees, churches or generous
+- [31:58.720] Americans like these that we're gathered
+- [32:01.440] with. We have so many people here that
+- [32:02.960] have contributed a lot of lot of money
+- [32:05.600] and I just thought it would be so
+- [32:07.360] appropriate to have our first meeting at
+- [32:08.880] the Oval Office.
+- [32:11.039] It's a special very special place.
+- [32:13.360] Nobody no place I've been in a lot of
+- [32:15.840] offices. There's no place like the Oval
+- [32:17.679] in terms of overall impact and
+- [32:20.320] everything that it represents. There's
+- [32:21.840] no place like it. But the Trump accounts
+- [32:25.200] could grow to hundreds of thousands of
+- [32:27.279] dollars by the time they reach 18 or 21.
+- [32:30.559] or they can leave the account and have
+- [32:32.159] it put into a different fund at a
+- [32:34.559] certain point in their life, but
+- [32:36.960] hundreds of thousands of dollars by the
+- [32:38.960] time they turn 18. Think of that. You
+- [32:41.519] have a young child with no money growing
+- [32:43.760] up in a rough area and they turn 18 and
+- [32:47.120] they have hundreds of thousands of
+- [32:48.559] dollars and we're going to help them
+- [32:51.360] when they get because they can lose that
+- [32:52.960] hundreds of thousands of dollars very
+- [32:54.640] quickly if they're not careful. I also
+- [32:56.960] want to recognize all of the outstanding
+- [32:59.760] employers who have committed to making
+- [33:01.519] contributions toward the Trump accounts.
+- [33:03.360] some of whom are here today. Uh and in
+- [33:07.360] some cases they're adding them to the
+- [33:09.120] employee benefit packages including
+- [33:11.760] Uber, Wells Fargo, Goldman Sachs, Visa,
+- [33:16.480] Robin Hood, Mastercard, Intel, IBM, AMD,
+- [33:22.559] Rusk Industries and Stake and Shake and
+- [33:25.519] many others are here and but many too
+- [33:27.440] many to name but uh it's really caught
+- [33:30.559] on. A lot of the the big public
+- [33:33.600] companies are doing tremendous amounts
+- [33:35.279] of uh they're taking care of all of the
+- [33:37.600] children of their employees.
+- [33:39.919] Some are taking care of Brad has picked
+- [33:42.320] up a large portion of the children in
+- [33:44.320] the state of Indiana. I didn't know he
+- [33:46.799] was that rich, Michael. You know, he's a
+- [33:48.480] rich guy. I learned about Brad. You're a
+- [33:50.880] rich guy. That's a lot of children.
+- [33:53.039] Indiana.
+- [33:54.720] I won Indiana by 35 points. So, I like
+- [33:57.279] it. We love Indiana. That's great what
+- [33:59.519] you're doing, Brad. But we're doing
+- [34:00.720] that. People are picking up states.
+- [34:03.679] So for years, Washington politicians
+- [34:05.840] have left our children with nothing but
+- [34:07.600] debt, nothing but problems. Now, with
+- [34:10.159] the help of so many of you here today,
+- [34:12.079] we're jumpstarting financial freedom for
+- [34:14.159] young Americans and helping them to
+- [34:16.480] build the future they deserve. And also,
+- [34:18.240] there's tremendous, by the way, there's
+- [34:19.520] tremendous tax benefit to doing this.
+- [34:22.720] You know, sometimes you don't like
+- [34:23.919] saying that because it's a nasty word,
+- [34:25.520] but there's tremendous tax benefit. And
+- [34:28.320] perhaps there's some people that are
+- [34:30.639] okay with that, but doesn't make any
+- [34:32.560] difference. There's a great tax benefit.
+- [34:35.440] And also for the children, there's a
+- [34:37.040] tremendous tax benefit. There is no tax.
+- [34:41.119] It's called uh I don't know if we can
+- [34:43.839] complain, Ted. Will anybody sue us
+- [34:45.839] because we're giving children a form of
+- [34:48.240] tax assistance? You think we'll be sued?
+- [34:50.159] Yeah, I think so. Somebody will sue.
+- [34:52.399] They'll say, "You are giving advantage
+- [34:54.879] to a young person who just got $1,000."
+- [34:58.480] But you never know. But I doubt it. With
+- [35:01.440] us today is Kenley Reedwin, a rising
+- [35:05.599] sixth grader, very smart, and a budding
+- [35:07.599] entrepreneur.
+- [35:10.079] Perhaps the next Michael Dell.
+- [35:14.400] Where is Kenley? Where are you, Kenley?
+- [35:17.839] Who's so stand? Oh, look how beautiful.
+- [35:20.800] Good luck. Do you think you'll be as
+- [35:22.240] rich as Michael Dell some? I think yes.
+- [35:24.400] You'll be richer than Michael Dell,
+- [35:26.079] right? Congratulations, Kenzie. Thank
+- [35:28.880] you for being here, honey.
+- [35:31.520] But Kenzie's been investing her earnings
+- [35:33.839] into a 401k. By the way, 401ks are up
+- [35:38.800] like 49% in the last seven or eight
+- [35:41.760] months.
+- [35:43.520] And everybody likes me that has a 401k
+- [35:46.640] because it's the it's the biggest rise
+- [35:49.520] last year and a half, biggest rise in
+- [35:51.200] history. So, you know, a lot of people
+- [35:54.160] have become rich by having their 401k.
+- [35:57.680] And Kenzie, thank you very much. I heard
+- [35:59.440] you're doing fantastically well
+- [36:00.960] investing your money into a 401k, but
+- [36:03.839] now she'll be contributing to her very
+- [36:05.680] own Trump account, and that's going to
+- [36:08.160] even be better. So, we're going to watch
+- [36:11.040] you all the way up. We're gonna watch
+- [36:12.320] you go up that ladder, Kenley. Okay,
+- [36:14.079] we'll be watching.
+- [36:16.640] So, just in closing,
+- [36:18.960] it's so great to have you here. A place
+- [36:23.280] that we were never able to use because
+- [36:24.960] of the conditions of the soil.
+- [36:28.640] And uh now it's become the hottest place
+- [36:31.760] there is probably in the country. Every
+- [36:34.320] time we have an event at the Rose
+- [36:35.680] Garden, everyone just says, "Yes, we
+- [36:37.760] want to go." And you're going to love
+- [36:39.839] the food made by the military and the
+- [36:41.599] White House staff. And it's an honor to
+- [36:44.320] have everybody, but uh I want to just
+- [36:47.200] thank so many minds went into this. Not
+- [36:49.440] easy. And Scott's going to work overtime
+- [36:52.079] to get the final little touches done so
+- [36:55.200] it really kicks in even faster because
+- [36:57.520] it's we're setting records. The numbers
+- [37:00.079] are incredible, but we want to get it
+- [37:02.160] finished so everyone can fill out their
+- [37:04.160] and finalize their accounts. Scott, you
+- [37:06.160] and the people. But you've done a great
+- [37:08.880] job. And again, thank you all very much.
+- [37:11.599] Have a good lunch. Should we put on a
+- [37:13.440] little music? Yes. This way you don't
+- [37:16.079] have to talk to each other. You just
+- [37:17.359] have to listen to music. So, we're going
+- [37:19.359] to put on a little music. The Trump
+- [37:20.960] playlist. Okay. And we'll have a little
+- [37:23.280] fun. Again, thank you all. This is
+- [37:25.280] really a very uh I think a historic
+- [37:27.680] moment in a sense, but it's going to be
+- [37:30.000] really great. Thank you very much,
+- [37:31.280] everybody. Thank you.
