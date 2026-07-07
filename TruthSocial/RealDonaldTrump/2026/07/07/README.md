@@ -1,7 +1,16 @@
 # TruthSocial / RealDonaldTrump / 2026-07-07
 
-- Posts: 6
+- Posts: 9
 
+- [06:23 UTC - American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on...](116877256925065925/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116877256925065925
+  - American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on America’s 250th Birthday: [https://www. breitbart.com/politics/2026/07 /04/american-excep...
+- [06:22 UTC - Defying The Odds: President Trump Just Put On The Greatest Show On Earth: [https:// nickad...](116877251990471550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116877251990471550
+  - Defying The Odds: President Trump Just Put On The Greatest Show On Earth: [https:// nickadamsmaga.substack.com/p/d efying-the-odds-president-trump](https://nickadamsmaga.substack.c...
+- [06:20 UTC - ROCK STAR: Trump Returns to Mount Rushmore For America’s 250th Birthday Bash: [https:// ha...](116877243675744707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116877243675744707
+  - ROCK STAR: Trump Returns to Mount Rushmore For America’s 250th Birthday Bash: [https:// hannity.com/media-room/rock-st ar-trump-returns-to-mount-rushmore-for-americas-250th-birthda...
 - [04:58 UTC - The United States Military has never been stronger, or more powerful. No other Nation can ...](116876921284232391/)
   - Source: https://truthsocial.com/@realDonaldTrump/116876921284232391
   - The United States Military has never been stronger, or more powerful. No other Nation can do what we do (It’s not even close!). This year we set even more Historic Recruiting Recor...

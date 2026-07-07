@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/zylXgdqCAzI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zylXgdqCAzI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -122576,6 +122576,39 @@
       "published": "2026-07-07T04:58:08.186000+00:00",
       "title": "The United States Military has never been stronger, or more powerful. No other Nation can ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116876921284232391"
+    },
+    "truthsocial:realdonaldtrump:116877243675744707": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T08:50:13.593050+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116877243675744707",
+      "platform": "truthsocial",
+      "post_id": "116877243675744707",
+      "published": "2026-07-07T06:20:07.454000+00:00",
+      "title": "ROCK STAR: Trump Returns to Mount Rushmore For America\u2019s 250th Birthday Bash: [https:// ha...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116877243675744707"
+    },
+    "truthsocial:realdonaldtrump:116877251990471550": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T08:50:13.592547+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116877251990471550",
+      "platform": "truthsocial",
+      "post_id": "116877251990471550",
+      "published": "2026-07-07T06:22:14.328000+00:00",
+      "title": "Defying The Odds: President Trump Just Put On The Greatest Show On Earth: [https:// nickad...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116877251990471550"
+    },
+    "truthsocial:realdonaldtrump:116877256925065925": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T08:50:13.591996+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116877256925065925",
+      "platform": "truthsocial",
+      "post_id": "116877256925065925",
+      "published": "2026-07-07T06:23:29.623000+00:00",
+      "title": "American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116877256925065925"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
