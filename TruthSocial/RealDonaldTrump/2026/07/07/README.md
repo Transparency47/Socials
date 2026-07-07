@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-07
 
-- Posts: 12
+- Posts: 13
 
+- [15:51 UTC - Thank you! NATO is stronger because Trump demanded more: [https://www. washingtonexaminer....](116879490053026634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116879490053026634
+  - Thank you! NATO is stronger because Trump demanded more: [https://www. washingtonexaminer.com/op-eds/ 4637918/shared-security-interests-nato-stronger-because-trump-demanded-more/](...
 - [12:21 UTC - Toyota is moving from Mexico to the United States (Texas!). A really big deal. Tariffs at ...](116878664308977613/)
   - Source: https://truthsocial.com/@realDonaldTrump/116878664308977613
   - Toyota is moving from Mexico to the United States (Texas!). A really big deal. Tariffs at work! President DONALD J. TRUMP

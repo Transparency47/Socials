@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/idiP9oO2DNw: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=idiP9oO2DNw! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=idiP9oO2DNw&ei=aARNasSgMt-BkucPq-fFyQM&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783457496&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=8975D3020DBA883C0BD4A44AEF9CA02B0DDB6367.0240F28E17C066683743E43F7B64DF65D07443C1&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=CtvvI285yyo: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=CtvvI285yyo! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=CtvvI285yyo&ei=vydNasCLB-CWr9gPurbA-A8&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783466543&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=5BAD8583AEF17EB73A6628D9FDAC9E0797289436.1DD61D11792830A7DFD0848887C299D94BF1C913&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10134,6 +10134,17 @@
       "published": "2026-07-06T23:20:47+00:00",
       "title": "SOCCER \ud83e\udd85\ud83e\udd85",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7659558913657818398"
+    },
+    "tiktok:whitehouse:7659797996053318926": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T16:22:18.740540+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/07/7659797996053318926",
+      "platform": "tiktok",
+      "post_id": "7659797996053318926",
+      "published": "2026-07-07T14:48:55+00:00",
+      "title": "\ud83c\uddfa\ud83c\uddf8\ud83e\udd1d\ud83c\uddf9\ud83c\uddf7",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7659797996053318926"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -122642,6 +122653,17 @@
       "published": "2026-07-07T12:21:24.593000+00:00",
       "title": "Toyota is moving from Mexico to the United States (Texas!). A really big deal. Tariffs at ...",
       "url": "https://truthsocial.com/@realDonaldTrump/116878664308977613"
+    },
+    "truthsocial:realdonaldtrump:116879490053026634": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T16:22:08.737082+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116879490053026634",
+      "platform": "truthsocial",
+      "post_id": "116879490053026634",
+      "published": "2026-07-07T15:51:24.451000+00:00",
+      "title": "Thank you! NATO is stronger because Trump demanded more: [https://www. washingtonexaminer....",
+      "url": "https://truthsocial.com/@realDonaldTrump/116879490053026634"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",
