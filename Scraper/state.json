@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/zylXgdqCAzI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zylXgdqCAzI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: ScrapeError: Could not fetch YouTube feed. https://www.youtube.com/feeds/videos.xml?user=WhiteHouse: HTTP 404; https://www.youtube.com/feeds/videos.xml?user=whitehouse: HTTP 404"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -122565,6 +122565,17 @@
       "published": "2026-07-07T01:22:08.625000+00:00",
       "title": "Truth Social post 116876071968901457",
       "url": "https://truthsocial.com/@realDonaldTrump/116876071968901457"
+    },
+    "truthsocial:realdonaldtrump:116876921284232391": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T05:29:30.458574+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116876921284232391",
+      "platform": "truthsocial",
+      "post_id": "116876921284232391",
+      "published": "2026-07-07T04:58:08.186000+00:00",
+      "title": "The United States Military has never been stronger, or more powerful. No other Nation can ...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116876921284232391"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

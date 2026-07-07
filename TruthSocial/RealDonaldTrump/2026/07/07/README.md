@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-07
 
-- Posts: 5
+- Posts: 6
 
+- [04:58 UTC - The United States Military has never been stronger, or more powerful. No other Nation can ...](116876921284232391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116876921284232391
+  - The United States Military has never been stronger, or more powerful. No other Nation can do what we do (It’s not even close!). This year we set even more Historic Recruiting Recor...
 - [01:22 UTC - Truth Social post 116876071968901457](116876071968901457/)
   - Source: https://truthsocial.com/@realDonaldTrump/116876071968901457
   - _No text content captured._
