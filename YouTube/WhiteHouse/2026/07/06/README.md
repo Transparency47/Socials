@@ -1,7 +1,10 @@
 # YouTube / WhiteHouse / 2026-07-06
 
-- Posts: 3
+- Posts: 4
 
+- [23:16 UTC - SOCCER. LET'S GOOO U.S. Men's Soccer Team 🇺🇸](i3JO64ojEQI/)
+  - Source: https://www.youtube.com/shorts/i3JO64ojEQI
+  - [00:01.309] [music] - [00:05.894] [music] - [00:10.480] [music] - [00:17.160] >> Hey.
 - [16:32 UTC - President Trump Participates in a Rose Garden Club Lunch, Jul. 6, 2026](453cGvgkOBg/)
   - Source: https://www.youtube.com/watch?v=453cGvgkOBg
   - [00:07.919] President of the United States, Donald - [00:10.240] J. Trump. And I'm proud to be an - [00:13.840] American where at least I know I'm free. - [00:18.640] And I won't...
