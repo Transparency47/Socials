@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/shorts/zylXgdqCAzI: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=zylXgdqCAzI! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=7WhdyCmritw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=7WhdyCmritw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -122609,6 +122609,28 @@
       "published": "2026-07-07T06:23:29.623000+00:00",
       "title": "American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on...",
       "url": "https://truthsocial.com/@realDonaldTrump/116877256925065925"
+    },
+    "truthsocial:realdonaldtrump:116878205432736013": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T11:40:45.444841+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116878205432736013",
+      "platform": "truthsocial",
+      "post_id": "116878205432736013",
+      "published": "2026-07-07T10:24:42.702000+00:00",
+      "title": "Truth Social post 116878205432736013",
+      "url": "https://truthsocial.com/@realDonaldTrump/116878205432736013"
+    },
+    "truthsocial:realdonaldtrump:116878279404305897": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T11:40:45.444499+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/07/07/116878279404305897",
+      "platform": "truthsocial",
+      "post_id": "116878279404305897",
+      "published": "2026-07-07T10:43:31.416000+00:00",
+      "title": "Truth Social post 116878279404305897",
+      "url": "https://truthsocial.com/@realDonaldTrump/116878279404305897"
     },
     "x:dhsgov:2046378109809647855": {
       "account": "DHSgov",

@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-07
 
-- Posts: 9
+- Posts: 11
 
+- [10:43 UTC - Truth Social post 116878279404305897](116878279404305897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116878279404305897
+  - _No text content captured._
+- [10:24 UTC - Truth Social post 116878205432736013](116878205432736013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116878205432736013
+  - _No text content captured._
 - [06:23 UTC - American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on...](116877256925065925/)
   - Source: https://truthsocial.com/@realDonaldTrump/116877256925065925
   - American Exceptionalism & Manifest Destiny: Trump Gives 4th of July Speech for the Ages on America’s 250th Birthday: [https://www. breitbart.com/politics/2026/07 /04/american-excep...
