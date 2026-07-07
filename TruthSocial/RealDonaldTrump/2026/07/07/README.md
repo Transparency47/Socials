@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-07-07
 
-- Posts: 11
+- Posts: 12
 
+- [12:21 UTC - Toyota is moving from Mexico to the United States (Texas!). A really big deal. Tariffs at ...](116878664308977613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116878664308977613
+  - Toyota is moving from Mexico to the United States (Texas!). A really big deal. Tariffs at work! President DONALD J. TRUMP
 - [10:43 UTC - Truth Social post 116878279404305897](116878279404305897/)
   - Source: https://truthsocial.com/@realDonaldTrump/116878279404305897
   - _No text content captured._
