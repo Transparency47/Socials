@@ -1,0 +1,97 @@
+<!-- source: https://www.youtube.com/watch?v=dO_UeDvRJVA -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: dO_UeDvRJVA -->
+<!-- date_published: 2026-07-07T12:38:39+00:00 -->
+<!-- date_accessed: 2026-07-07T20:24:05.179767+00:00 -->
+
+# Transcript: President Trump Participates in a State Arrival Ceremony and Honor Guard Review
+
+- [00:00.000] Heat. Heat.
+- [00:09.825] [music]
+- [00:17.030] [music]
+- [00:22.270] [music]
+- [00:29.475] >> [music]
+- [00:34.715] [music]
+- [00:42.480] >> Heat. Heat. [music]
+- [00:48.470] [music]
+- [01:00.915] >> [music]
+- [01:05.439] >> No sinners.
+- [01:06.880] >> She's dead all.
+- [01:09.430] [music]
+- [01:13.680] Heat. Heat. [music]
+- [01:26.460] [music]
+- [01:34.640] Heat. Hey, Heat.
+- [01:45.456] [music]
+- [01:52.006] [music]
+- [02:01.831] >> [music]
+- [02:09.691] [music]
+- [02:15.586] [music]
+- [02:22.319] >> Susan
+- [02:29.040] out.
+- [02:55.840] I don't think it is.
+- [03:22.720] Look, [screaming] run, dude.
+- [03:47.360] You're good.
+- [04:19.919] This is good.
+- [04:41.653] >> [music]
+- [04:47.548] [music]
+- [04:49.120] >> Heat.
+- [04:52.788] [music]
+- [04:53.600] Heat.
+- [04:59.338] [music]
+- [05:02.320] Heat.
+- [05:03.923] [music]
+- [05:09.163] [music]
+- [05:15.280] Heat.
+- [05:17.678] [music]
+- [05:23.680] Heat. Heat.
+- [05:25.538] [music]
+- [05:30.123] [music]
+- [05:37.983] [music]
+- [05:44.533] [music]
+- [05:54.359] >> [music]
+- [05:56.560] >> Oh yeah.
+- [06:07.459] [music]
+- [06:13.919] Heat.
+- [06:16.080] Heat.
+- [06:17.939] [music]
+- [06:24.489] [music]
+- [06:31.039] Heat. [music]
+- [06:49.379] >> [music]
+- [06:57.894] [music]
+- [07:00.800] >> Oh my god.
+- [07:04.800] Shoot.
+- [07:20.240] Go shoot.
+- [07:31.955] [music]
+- [07:36.540] >> [music]
+- [07:41.125] [music]
+- [07:45.919] >> Heat. Heat.
+- [07:48.985] [music]
+- [07:55.535] >> [music]
+- [08:01.430] [music]
+- [08:05.039] >> Heat. Heat.
+- [08:06.670] [music]
+- [08:13.875] [music]
+- [08:19.115] >> [music]
+- [08:25.010] [music]
+- [08:34.835] [music]
+- [08:40.000] >> Okay,
+- [08:44.080] Marhaba Ashkar.
+- [08:57.761] [music]
+- [09:06.276] [music]
+- [09:12.171] [music]
+- [09:22.160] I'm with
+- [09:26.240] you.
+- [09:33.131] [music]
+- [09:40.336] >> [music]
+- [09:45.576] [music]
+- [09:51.839] >> Heat. Heat. [music]
+- [09:56.711] [music]
+- [10:00.000] Heat. Heat.
+- [10:02.606] [music]
+- [10:09.811] [music]
+- [10:16.362] [music]
+- [10:22.912] >> [music]
+- [10:34.047] [music]
+- [10:49.112] [music]
+- [10:55.007] [music]

@@ -11,7 +11,7 @@
     "X/SecMullinDHS: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/VP: ScrapeError: Could not locate X web app main JavaScript bundle.",
     "X/WhiteHouse: ScrapeError: Could not locate X web app main JavaScript bundle.",
-    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=CtvvI285yyo: IpBlocked: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=CtvvI285yyo! This is most likely caused by:\n\nYouTube is blocking requests from your IP. This usually is due to one of the following reasons:\n- You have done too many requests and your IP has been blocked by YouTube\n- You are doing requests from an IP belonging to a cloud provider (like AWS, Google Cloud Platform, Azure, etc.). Unfortunately, most IPs from cloud providers are blocked by YouTube.\n\nWays to work around this are explained in the \"Working around IP bans\" section of the README (https://github.com/jdepoix/youtube-transcript-api?tab=readme-ov-file#working-around-ip-bans-requestblocked-or-ipblocked-exception).\n\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: automatic captions en vtt caption fetch failed: HTTPError: 429 Client Error: Too Many Requests for url: https://www.youtube.com/api/timedtext?v=CtvvI285yyo&ei=-ERNap2rGL2Lr9gPwMzG-QQ&caps=asr&opi=112496729&xoaf=5&xowf=1&xospf=1&hl=en&ip=0.0.0.0&ipbits=0&expire=1783474024&sparams=ip%2Cipbits%2Cexpire%2Cv%2Cei%2Ccaps%2Copi%2Cxoaf&signature=CBCA493805584109F6EC13D6655417AEB3E7AB0A.66CA3075E13BA63B222BF4784ECA943AE86B7AF7&key=yt8&kind=asr&lang=en&variant=gemini&fmt=vtt"
+    "YouTube/WhiteHouse: YouTube transcript is required for https://www.youtube.com/watch?v=7WhdyCmritw: TranscriptsDisabled: \nCould not retrieve a transcript for the video https://www.youtube.com/watch?v=7WhdyCmritw! This is most likely caused by:\n\nSubtitles are disabled for this video\n\nIf you are sure that the described cause is not responsible for this error and that a transcript should be retrievable, please create an issue at https://github.com/jdepoix/youtube-transcript-api/issues. Please add which version of youtube_transcript_api you are using and provide the information needed to replicate the error. Also make sure that there are no open issues which already describe your problem!; yt-dlp fallback: no usable English caption track found"
   ],
   "last_successful_run": "2026-06-05T18:22:48.248090+00:00",
   "seen_posts": {
@@ -10145,6 +10145,17 @@
       "published": "2026-07-07T14:48:55+00:00",
       "title": "\ud83c\uddfa\ud83c\uddf8\ud83e\udd1d\ud83c\uddf9\ud83c\uddf7",
       "url": "https://www.tiktok.com/@WhiteHouse/video/7659797996053318926"
+    },
+    "tiktok:whitehouse:7659870393267653902": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-07-07T20:23:54.176118+00:00",
+      "path": "TikTok/WhiteHouse/2026/07/07/7659870393267653902",
+      "platform": "tiktok",
+      "post_id": "7659870393267653902",
+      "published": "2026-07-07T19:29:39+00:00",
+      "title": "TRUMP ACCOUNTS ARE HERE \ud83e\udd11",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7659870393267653902"
     },
     "tiktok:whitehouse:MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E": {
       "account": "WhiteHouse",
@@ -163926,6 +163937,17 @@
       "title": "Laken Riley's Mother: President Trump \"Is a Man of His Word\"",
       "url": "https://www.youtube.com/watch?v=2H6U1MYLtIw"
     },
+    "youtube:whitehouse:2I2NSFzqFCk": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-07T20:24:03.650291+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/07/2I2NSFzqFCk",
+      "platform": "youtube",
+      "post_id": "2I2NSFzqFCk",
+      "published": "2026-07-07T13:13:07+00:00",
+      "title": "President Trump Participates in a Bilateral Meeting with the President of the Republic of Turkey",
+      "url": "https://www.youtube.com/watch?v=2I2NSFzqFCk"
+    },
     "youtube:whitehouse:2Klj__nvcQg": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -167203,6 +167225,17 @@
       "published": "2025-04-22T00:52:11+00:00",
       "title": "First Lady Melania Trump: 2025 White House Easter Egg Roll",
       "url": "https://www.youtube.com/watch?v=CrC_TYnt_VM"
+    },
+    "youtube:whitehouse:CtvvI285yyo": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-07T20:24:00.808520+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/07/CtvvI285yyo",
+      "platform": "youtube",
+      "post_id": "CtvvI285yyo",
+      "published": "2026-07-07T14:27:41+00:00",
+      "title": "Freedom Fuel Network Gas Station Has Arrived",
+      "url": "https://www.youtube.com/watch?v=CtvvI285yyo"
     },
     "youtube:whitehouse:CvLGz776Jqc": {
       "account": "WhiteHouse",
@@ -175377,6 +175410,17 @@
       "title": "President Trump Participates in Invest America Roundtable",
       "url": "https://www.youtube.com/watch?v=dLhUDEOIdks"
     },
+    "youtube:whitehouse:dO_UeDvRJVA": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-07T20:24:05.179767+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/07/dO_UeDvRJVA",
+      "platform": "youtube",
+      "post_id": "dO_UeDvRJVA",
+      "published": "2026-07-07T12:38:39+00:00",
+      "title": "President Trump Participates in a State Arrival Ceremony and Honor Guard Review",
+      "url": "https://www.youtube.com/watch?v=dO_UeDvRJVA"
+    },
     "youtube:whitehouse:dP4-pTKeJBk": {
       "account": "WhiteHouse",
       "content_kind": "youtube_video",
@@ -176927,6 +176971,17 @@
       "published": "2025-12-12T02:44:44+00:00",
       "title": "First Lady Melania Trump Delivers Remarks at the Congressional Ball",
       "url": "https://www.youtube.com/watch?v=idczmOGtgR8"
+    },
+    "youtube:whitehouse:idiP9oO2DNw": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-07-07T20:24:02.269004+00:00",
+      "path": "YouTube/WhiteHouse/2026/07/07/idiP9oO2DNw",
+      "platform": "youtube",
+      "post_id": "idiP9oO2DNw",
+      "published": "2026-07-07T13:20:51+00:00",
+      "title": "President Donald J. Trump Arrives at the Presidential Palace in Turkey Ahead of NATO Summit",
+      "url": "https://www.youtube.com/shorts/idiP9oO2DNw"
     },
     "youtube:whitehouse:ih5818qTGcE": {
       "account": "WhiteHouse",

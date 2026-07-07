@@ -1,0 +1,522 @@
+<!-- source: https://www.youtube.com/watch?v=2I2NSFzqFCk -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: 2I2NSFzqFCk -->
+<!-- date_published: 2026-07-07T13:13:07+00:00 -->
+<!-- date_accessed: 2026-07-07T20:24:03.650291+00:00 -->
+
+# Transcript: President Trump Participates in a Bilateral Meeting with the President of the Republic of Turkey
+
+- [01:45.200] Not the
+- [02:07.840] First here on the occasion of the NATO
+- [02:10.160] summit, I would like to welcome my
+- [02:12.319] valuable friend Mr. President Trump who
+- [02:15.360] has participated here today with us and
+- [02:17.760] added strength to the summit that we are
+- [02:20.560] convening for.
+- [02:30.480] And I would like to express how
+- [02:31.840] important this summit is that we are
+- [02:33.920] here gathering for.
+- [03:02.319] the fact that we are convening here
+- [03:04.000] today for the NATO Ankora Summit and
+- [03:06.560] that all the leaders are arriving and
+- [03:08.720] have arrived and we will be executing
+- [03:11.840] the NATO summit tomorrow with the
+- [03:14.400] president of President Trump which will
+- [03:16.319] be adding might and strength to our
+- [03:19.680] summit.
+- [03:24.720] >> Once again, I would like to say welcome,
+- [03:26.480] Mr. President.
+- [03:29.680] >> Well, I want to thank you very much. As
+- [03:31.680] everybody knows, it's been very much
+- [03:34.159] reported,
+- [03:35.840] we are great friends. The president has
+- [03:38.400] done an incredible job just landing at
+- [03:41.360] the airport to see such a beautiful
+- [03:43.040] airport and to have a building named
+- [03:46.319] after me. I was very happy about that.
+- [03:48.159] That was very nice. The airport is
+- [03:50.879] absolutely beautiful. The roads coming
+- [03:53.680] in were brand new and beautiful. And
+- [03:56.640] you've been a great leader and a
+- [03:58.319] respected leader all over the world. And
+- [04:01.280] we really do we have a we've had right
+- [04:03.360] from the beginning good chemistry. We've
+- [04:05.120] had a very special relationship. Turkey
+- [04:08.480] has become under the president a very
+- [04:12.959] powerful country militarily. people knew
+- [04:16.000] people don't know how powerful actually
+- [04:19.280] they have a lot of our equipment and
+- [04:21.440] they have a lot of great soldiers and uh
+- [04:25.280] they're really uh
+- [04:27.680] somebody to be reckoned with and the
+- [04:30.080] nice part is that because of the
+- [04:32.320] relationship that we have it's all gone
+- [04:35.199] very well. I just want to say that I
+- [04:37.919] have a lot of respect for the president
+- [04:41.120] and uh I think it's really to the
+- [04:43.919] benefit of both countries. We're going
+- [04:46.320] to be talking today about trade. We're
+- [04:48.000] going to be talking about other things
+- [04:50.400] having to do with the military, lots of
+- [04:52.240] different things. Probably we'll mention
+- [04:54.800] Iran where we have essentially decimated
+- [04:58.479] their military. They cannot have a
+- [05:00.240] nuclear weapon. and uh we have some very
+- [05:04.000] good discussions, but we do a lot of
+- [05:06.000] trade with Turkey. We make great things
+- [05:08.160] and they make great things and we we've
+- [05:10.960] had a very very it's had a very big
+- [05:13.600] impact on both of our countries. So, I
+- [05:15.919] just want to tell you that it's an honor
+- [05:18.160] to be with you and we're going to have a
+- [05:22.000] a lot of good meetings, going to have
+- [05:24.320] good dinners, good food, we're going to
+- [05:26.639] have a good time, but mostly we're going
+- [05:27.840] to have a lot of work and we're going to
+- [05:29.919] do good things for our countries. Thank
+- [05:31.680] you very much, Mr. President. Thank you.
+- [05:44.080] Foreign
+- [05:48.000] speech. Foreign speech. Foreign speech.
+- [06:02.960] Thank you.
+- [06:08.400] >> Mr. President, are you going to sell
+- [06:09.680] F-35s to Turkey? And what about the
+- [06:11.680] legal restrictions?
+- [06:13.759] >> It's a decision we're going to make.
+- [06:18.319] We have a very good relationship. I
+- [06:20.319] would think that many people I can tell
+- [06:22.720] you many people including the people
+- [06:24.880] sitting right here thinks why wouldn't
+- [06:27.680] we do that we have a better relationship
+- [06:29.600] with Turkey and Turkeykey's been in many
+- [06:32.000] ways much more loyal than other
+- [06:33.520] countries that we think would be loyal
+- [06:36.319] so yeah something certainly we would
+- [06:38.880] consider it's a great plane it's the
+- [06:41.199] best currently the best plane by far and
+- [06:45.199] uh certainly something we will consider
+- [06:48.319] >> Mr. President on the
+- [06:51.039] >> Mr. President sir, you said I believe it
+- [06:53.039] was last week or two weeks ago that
+- [06:54.560] President Erdogan was a big reason you
+- [06:56.560] wanted to come to the summit here. What
+- [06:58.560] has made your relationship with him so
+- [07:00.560] special in your own words and what do
+- [07:02.479] you broadly hope to achieve here at the
+- [07:04.240] summit?
+- [07:04.560] >> You never know why a relationship is
+- [07:06.319] special.
+- [07:08.319] Some people you get along with and some
+- [07:11.840] people you don't. Sometimes you get
+- [07:14.400] along with the toughest people like him
+- [07:17.440] and sometimes you don't get along with
+- [07:19.039] the weakest, most pathetic people. You
+- [07:21.919] just don't get along. Maybe you don't
+- [07:23.599] respect them, but uh I uh you know, from
+- [07:27.919] from the day we met, we got along. We
+- [07:30.080] had a pastor, so I remember his name was
+- [07:33.280] Pastor Brunson, and it was a very big
+- [07:36.080] thing. And it was a very traumatic. He
+- [07:40.560] was sentenced to a long-term prison
+- [07:42.560] sentence and I felt he was innocent and
+- [07:45.759] I called other people called they got
+- [07:48.240] nowhere. I called the president and he
+- [07:51.440] released him immediately. Something that
+- [07:53.919] the evangelical community will never
+- [07:56.240] forget
+- [07:57.840] and he was a good man, Pastor Brunson.
+- [08:00.160] So, you know, just things like that we
+- [08:02.560] just have always it's always worked out
+- [08:05.759] and I think it's been from the very
+- [08:07.199] beginning from the first moment this
+- [08:08.800] just I said it before it's a it's a it's
+- [08:11.120] a chemistry that works between us. There
+- [08:13.919] were those that I don't have a good
+- [08:15.360] chemistry with. I will tell you that and
+- [08:18.319] we work that out too.
+- [08:20.160] >> Mr. President
+- [08:22.800] draw downs in Europe like are you likely
+- [08:24.960] to announce further troop draw downs in
+- [08:26.960] Europe?
+- [08:27.919] >> Say it. uh are are further troop drawd
+- [08:30.080] downs in Europe likely and are you
+- [08:32.159] satisfied with the progress that NATO
+- [08:33.360] allies have made?
+- [08:33.839] >> Well, we're going to see. I was very
+- [08:35.039] disappointed with NATO and frankly if it
+- [08:38.560] weren't held in Turkey where my friend
+- [08:41.440] happens to be a very strong leader, a
+- [08:43.680] very strong uh person I it's possible
+- [08:47.839] that I wouldn't have attended.
+- [08:50.640] I felt I had to attend because of the
+- [08:52.800] fact that you know I know he's gone all
+- [08:54.320] out. It was a big thing to have NATO
+- [08:56.880] come to Turkey or any place else. It's a
+- [08:58.720] big thing. But we weren't treated well
+- [09:02.080] because we did something in Iran. We
+- [09:04.720] don't need anybody's help. I didn't even
+- [09:07.120] want the help. But before I asked, they
+- [09:10.480] said they wouldn't be there. And we've
+- [09:12.959] invested trillions of dollars in NATO.
+- [09:16.560] Why? To protect European countries and
+- [09:21.200] others, Canada, etc., But to protect
+- [09:23.680] people, countries from generally
+- [09:26.560] speaking, it used to be the Soviet
+- [09:27.920] Union, now it's Russia. And
+- [09:31.760] I say that's fine, but you would think
+- [09:34.480] that they'd be very willing to do
+- [09:37.760] something to help us. And they really
+- [09:40.240] weren't. In the case of the United
+- [09:42.560] Kingdom, the prime minister, I guess
+- [09:44.320] he's no longer there, maybe because of
+- [09:46.800] this, there was a very unpopular thing
+- [09:48.399] he did. He said, "No, we'll help after
+- [09:51.120] the war is over.
+- [09:52.720] I said, "I don't need that kind of
+- [09:54.160] help." We didn't need any help at all.
+- [09:56.720] And in a way, I was testing people. I
+- [09:58.560] was testing to see whether or not they'd
+- [10:00.080] be there because I've long said that we
+- [10:02.480] help them, but I'm not sure that they'd
+- [10:04.160] be there for us. And Italy turned us
+- [10:06.000] down and Germany turned us down and
+- [10:08.720] France turned us down.
+- [10:11.200] And it's okay, but you know, why are we
+- [10:14.480] spending hundreds of billions of dollars
+- [10:17.839] and they're not there for us? We've
+- [10:19.600] always been there for them.
+- [10:52.560] Is there
+- [11:11.200] Foreign
+- [11:12.720] speech. Foreign speech. Foreign speech.
+- [13:52.720] Foreign
+- [13:55.040] speech. Foreign speech. Foreign speech.
+- [14:14.000] question. Is it going to be handed over
+- [14:16.160] to a third party as part of any deal
+- [14:17.920] with F-35s?
+- [14:19.279] >> What does that mean?
+- [14:20.639] >> Are you is it going to be handed over to
+- [14:22.399] a third party?
+- [14:24.399] Is that not part of the deal?
+- [14:25.839] >> Third party. What is the third with
+- [14:27.680] respect to what
+- [14:28.880] >> is the There's our concerns about the
+- [14:30.320] Russian missile defense system. Do you
+- [14:32.079] have those concerns about the system?
+- [14:33.680] Are they going to have to
+- [14:34.880] >> concerns at all about anything? I mean,
+- [14:36.880] he's uh a leader of a country that he's
+- [14:40.720] made a much better country, much more
+- [14:42.560] powerful country, and you see it. I
+- [14:44.880] mean, it's beautiful. You get off the
+- [14:46.160] roads of your country. It's a amazing
+- [14:48.639] thing. Now, I have no concerns about
+- [14:50.959] anything having to do with Turkey. The
+- [14:52.639] relationship, I would say the
+- [14:54.720] relationship with Turkey right now is
+- [14:56.560] better probably than it's ever been. It
+- [14:58.160] was good in my first four years, but I
+- [15:00.639] think now it's probably even better than
+- [15:02.320] not if that's possible.
+- [15:03.519] >> Mr. President, Mr. President, [laughter]
+- [15:05.279] Mr. President, can you
+- [15:07.920] Mr. President, sir, US military and
+- [15:10.399] Turkish military constitute a really
+- [15:12.720] strong and large military base for NATO?
+- [15:15.120] Are we expecting further defense
+- [15:17.120] cooperation out of this bilateral
+- [15:18.720] meeting, out of this NATO summit here in
+- [15:20.320] Ankara?
+- [15:20.880] >> Well, we're going to find out when I go
+- [15:22.160] there. We're going to find out. We're
+- [15:23.680] going to be having meetings. They're
+- [15:25.440] very friendly with many of the leaders.
+- [15:28.079] Some of them are new. We don't know
+- [15:29.440] them. You I've been doing this for now
+- [15:32.079] sort of a long time. Uh if you count the
+- [15:35.760] four years where we had a rigged
+- [15:37.199] election, you was very much into
+- [15:39.199] politics then too. But I spent the first
+- [15:41.920] four years. I spent four years in little
+- [15:45.839] different state. And then uh we had
+- [15:48.959] we've had an amazing
+- [15:51.120] probably the best year maybe ever had by
+- [15:53.680] an American president. When you look at
+- [15:55.600] the economy, we have the greatest
+- [15:57.600] economy we've ever had. We have $19
+- [16:00.320] trillion 19.2 trillion dollars to be
+- [16:03.360] exact being invested in the United
+- [16:05.600] States. That's seven or eight times more
+- [16:08.240] than it's ever. It's it's a world
+- [16:10.560] record, not just a US record. And I just
+- [16:14.639] read where in fact coming over. I was
+- [16:16.560] just given I was in the car with those
+- [16:19.040] beautiful horses, those great riders,
+- [16:20.959] those great soldiers. And uh it came
+- [16:23.519] over the wires that Toyota is moving out
+- [16:25.920] of Mexico
+- [16:27.600] into the United States and building one
+- [16:30.000] of the biggest truck and car plants ever
+- [16:33.360] built. It's amazing. That's what tariffs
+- [16:36.399] do properly used. And uh so we've never
+- [16:39.360] had uh a more exceptional
+- [16:43.600] economy or potential economy. There's
+- [16:45.680] never been anything like it. Under the
+- [16:47.600] last administration, they did much less
+- [16:50.240] than a trillion dollars of investment
+- [16:52.160] coming in and we're at 19.2 trillion in
+- [16:56.959] actually the first 12 months because
+- [16:58.560] that's where it's, you know, really so
+- [17:01.279] there a year and a half. So that number
+- [17:02.560] is now substantially higher. But 19.2 2
+- [17:06.319] trillion Scott for a period of 12
+- [17:09.199] months. Nobody's ever seen anything like
+- [17:10.720] that. So we have by far the greatest
+- [17:13.039] economy. We have more jobs right now in
+- [17:16.000] the United States than ever before. And
+- [17:18.160] we have a great relationship with some
+- [17:20.720] countries on trade and Turkey happens to
+- [17:23.120] be one of them.
+- [17:50.720] America
+- [18:05.280] is
+- [18:19.600] thank you for watching.
+- [18:53.200] Is that for me?
+- [18:54.720] >> Are you asking me or are you asking the
+- [18:56.559] president?
+- [19:43.520] form.
+- [20:24.320] had a hard time that Turkey bought
+- [20:27.679] planes. It's the best plane, but they
+- [20:31.200] bought planes from the United States.
+- [20:33.679] And when you buy a plane from the United
+- [20:36.080] States, if uh there's engine rehab and
+- [20:40.400] other things that are done to engines,
+- [20:42.080] there's various things that happen,
+- [20:44.240] including just maintenance. I think we
+- [20:46.480] have an obligation to maintain engines
+- [20:48.799] and help them maintain engines. When you
+- [20:51.520] buy a plane from us, what are we going
+- [20:52.880] to do? Say you're buying a plane if if
+- [20:55.360] the engine needs work or if the engine
+- [20:57.919] has to be rehabilitated or even upgraded
+- [21:01.679] somewhat. But uh I think we have an
+- [21:04.559] obligation to do that. What are you
+- [21:05.760] going to do? Say I'm not going to do
+- [21:06.960] that? Look, Turkeykey's been I know you
+- [21:09.360] know a lot of people
+- [21:11.440] don't agree although I think with time
+- [21:13.039] they're starting to Turkey has been a
+- [21:15.280] great ally for us. Turkeykey's been
+- [21:18.320] Turkey could have gone on the side. They
+- [21:20.000] know Iran very well and they know the
+- [21:22.880] problems with Iran but they've been very
+- [21:25.120] instrumental along with a couple of
+- [21:27.360] other countries of helping. They could
+- [21:29.919] have gotten into the fight. You I hear
+- [21:32.799] some people saying about their
+- [21:34.799] relationship with Israel. They could
+- [21:36.640] have gotten into the fight. They're a
+- [21:38.799] very powerful military nation. They
+- [21:41.360] didn't do that. Maybe they didn't do
+- [21:43.280] that because of me, but they could have
+- [21:45.520] gotten into this into the fight on the
+- [21:47.679] other side. They are a nation that's
+- [21:51.600] been very very good. And I can only I
+- [21:54.799] can speak for myself as president.
+- [21:57.360] They've been extraordinary in many ways
+- [21:59.840] with respect to our relationship,
+- [22:02.880] including trying to end the war with
+- [22:05.200] Iran or whatever you call. It's not even
+- [22:07.039] a war. It's a military operation.
+- [22:09.679] It's a denuclearization.
+- [22:12.080] That's really what it is of Iran because
+- [22:14.240] I don't think he wants to see them have
+- [22:16.240] a nuclear weapon either. I'm pretty sure
+- [22:18.080] of that. In fact, I'm totally sure of
+- [22:20.640] that. So, but when they buy a product
+- [22:23.760] from us, whether it's a plane or
+- [22:25.280] anything else, when it's time for
+- [22:27.520] maintenance, I think we have don't we
+- [22:28.880] have an obligation to help them? What
+- [22:30.320] are we, you say, we're not going to
+- [22:32.480] we're not going to let you use the
+- [22:34.080] product that you spent a lot of money in
+- [22:35.760] buying? And especially when it's it's
+- [22:38.159] been somebody that frankly has been more
+- [22:41.120] helpful to the United States than many
+- [22:44.559] other more traditional countries.
+- [22:48.159] >> Mr. President, Mr. President, [laughter]
+- [22:49.760] you will meet President Zeleleski
+- [22:51.280] tomorrow. Sir, you will meet President
+- [22:52.720] Zeleleski tomorrow. Should we expect a
+- [22:54.880] breakthrough soon? Where are we at
+- [22:56.559] Ukraine?
+- [22:57.200] >> Thank you. I had a very good talk with
+- [22:59.039] President Putin, who by the way has a
+- [23:01.360] lot of respect for President Erdigan. A
+- [23:04.880] lot of respect for him. Uh we had a long
+- [23:07.600] talk yesterday. It lasted a long time.
+- [23:09.360] And I also spoke with President
+- [23:12.000] Zullinsky right after that.
+- [23:14.640] >> I think they both want to make a deal.
+- [23:17.280] >> It's too bad it took so long. But I
+- [23:19.840] think there's going to be something's
+- [23:21.200] going to come out and the president's
+- [23:23.120] also helping us with that. But I think
+- [23:24.960] there's something you settled eight wars
+- [23:28.400] and I think we're going to be settling
+- [23:30.240] and I it doesn't seem likely now but
+- [23:32.720] sometimes when with war I see when it's
+- [23:35.520] least likely that's when it happens. I
+- [23:38.080] had a very good talk with President
+- [23:39.600] Putin. I had a very good talk with I
+- [23:41.600] would say as a combination a lot of
+- [23:43.200] times I do well with Putin and Zilinsky
+- [23:45.760] would be a problem or or vice versa.
+- [23:48.640] Sinsky would be great and Putin would be
+- [23:51.919] they both want to get it settled now
+- [23:54.480] more than that's all I do in my life is
+- [23:56.480] deals no deals and I think they are
+- [24:00.960] going to I think we're going to get it
+- [24:02.320] settled hopefully soon. Uh last month
+- [24:07.039] 35,000 most of the soldiers died. The
+- [24:10.880] month before that it was 24,000. And the
+- [24:13.679] month before that it was 27,000
+- [24:16.159] and the month before that it was 29,000.
+- [24:19.679] But last month it was 35,000 young
+- [24:22.480] soldiers, mostly soldiers died. And
+- [24:25.679] that's crazy.
+- [25:06.159] York.
+- [25:18.559] I can tell you we're going to be taking
+- [25:19.919] the sanctions off.
+- [25:22.159] Okay.
+- [25:23.520] I don't want him to waste his time
+- [25:25.120] answering that question because we're
+- [25:27.520] working very closely with Marco Rubio,
+- [25:30.799] very famous man, great secretary of
+- [25:33.679] state, and with Scott Besset and with
+- [25:36.480] Pete and everybody else. We're going to
+- [25:38.159] be taking the sanctions off. It's time
+- [25:40.480] to do that.
+- [25:42.720] >> Okay,
+- [25:44.000] >> Mr. President,
+- [25:45.600] >> we don't want to sanction friends. It's
+- [25:47.200] very simple. There's plenty of people we
+- [25:49.440] can sanction and we are sanctioned. We
+- [25:50.960] don't want to sanction France and uh
+- [25:54.159] because of the president, you know, we
+- [25:56.159] have a very good relationship with the
+- [25:59.039] new leader of Syria and he's done an
+- [26:01.360] amazing job in a year and a half. He's
+- [26:02.960] pulled the whole country together and I
+- [26:05.200] have a very great relationship with him.
+- [26:06.960] And somebody said, "Well, he's pretty
+- [26:08.320] rough to put him there." I approved him
+- [26:10.799] along with the president. We were the
+- [26:12.640] two that really wanted him and he's done
+- [26:15.200] a great job. He's done a great job. He's
+- [26:17.679] pulled it together. Not an easy job.
+- [26:20.799] Mr. President, can you clarify what you
+- [26:23.360] meant with your social media post
+- [26:24.799] yesterday with respect to Prime Minister
+- [26:26.799] Maloney? Uh, that true social post with
+- [26:29.039] the restraining order.
+- [26:29.840] >> Oh, I don't know. I think she's a nice
+- [26:31.200] person. Actually, we've had a good We we
+- [26:33.840] had a bad relationship, but it became a
+- [26:36.000] little bad because she refused to help
+- [26:38.400] us. Again, I didn't put a heavy press on
+- [26:40.880] her, but she refused to get involved
+- [26:43.919] with the hormonal straight or you could
+- [26:47.440] also say just around. She refused to get
+- [26:49.520] involved. So, it soured my relationship
+- [26:52.480] with her a little bit. But I like it. I
+- [26:54.960] think she's a nice person actually, but
+- [26:56.799] I think she made a mistake. You know,
+- [26:58.559] they get a lot of their oil from We
+- [27:00.159] don't get any of We have a lot of oil.
+- [27:01.760] The United States has more oil than
+- [27:04.240] anybody. And when you add Venezuela to
+- [27:06.640] it, it's like we have far more oil than
+- [27:09.360] any we don't need the straits. We do
+- [27:11.360] this because we think it's an important
+- [27:12.880] thing to do. But um she just wasn't
+- [27:16.640] there for us and I wasn't happy about
+- [27:19.760] that. You can imagine I wasn't happy
+- [27:21.600] about that.
+- [27:22.640] >> Mr. President, you seem to express
+- [27:24.400] optimism that a deal between Russia and
+- [27:26.240] Ukraine is closed. Why do you think
+- [27:27.919] that? Uh what what conditions have
+- [27:29.600] changed? Did Putin seem
+- [27:31.039] >> with what?
+- [27:31.600] >> Uh Russian Ukraine. Does Putin seem open
+- [27:33.600] to any concessions that he
+- [27:34.880] >> never changed. I just don't want him
+- [27:37.039] killing people. You know, it doesn't
+- [27:38.960] affect the United States. When Biden was
+- [27:41.679] here, he gave them hundreds of billions
+- [27:43.600] of dollars worth of equipment. Now I
+- [27:46.000] sell the equipment for, you know, fair
+- [27:48.080] price, full price. Uh, and I sell it not
+- [27:51.039] to Ukraine. I sell it to the European
+- [27:52.640] Union. They pay us. But with me, it's
+- [27:56.159] not anything to do other than I'd like
+- [27:58.240] to save lives. You have 25, 35,
+- [28:02.880] 30.
+- [28:04.399] One time they hit 41,000 a month souls.
+- [28:09.520] They're dead. They leave their mother in
+- [28:12.159] Ukraine. They leave their mother and
+- [28:13.760] father in Russia, Ukraine. They wave
+- [28:16.399] goodbye and a week later they're dead.
+- [28:20.320] It's crazy. And I would like to see it
+- [28:23.279] doesn't affect us. It's really, you
+- [28:24.799] know, it's far away. It affects Europe
+- [28:28.399] much more. We're there to help Europe,
+- [28:30.880] but it doesn't affect the United We have
+- [28:33.279] an ocean in between. But, you know, it's
+- [28:37.520] just I can't stand watching what's
+- [28:39.679] happening. I've seen the pictures of
+- [28:41.760] those battlefields.
+- [28:43.440] >> And it's a drone war. It's a war of
+- [28:45.760] drones. It's a whole new technology. And
+- [28:48.480] we're actually the leader in drones now.
+- [28:50.320] We have the most sophisticated drones.
+- [28:52.000] But people wouldn't believe how violent
+- [28:55.039] it is. And I've seen the battlefields.
+- [28:56.960] They send me pictures. say, "I actually
+- [28:58.720] want to say, don't send them to me,
+- [29:00.799] Pete. This man right here sends me
+- [29:02.880] pictures." Pete X said, and I said,
+- [29:06.159] "Pete, you know what? Doesn't help to
+- [29:08.480] look. I've never seen anything like it.
+- [29:10.480] It's carnage and it should stop."
+- [29:13.840] >> Did he seem open to any?
+- [29:17.360] >> Did he seem open to any concessions to
+- [29:19.600] end the war?
+- [29:21.120] >> Did open to any concessions to end the
+- [29:23.440] war in your call with him?
+- [29:25.440] We get along very well with and we're
+- [29:27.760] going to get it settled and President
+- [29:30.480] Erdigan is helping us get it settled as
+- [29:33.200] he's helping with
+- [29:50.159] Denmark
+- [29:54.480] help agree with but it's an important
+- [29:56.960] part for the United States and it's
+- [29:59.279] surrounded by China's ships and Russian
+- [30:02.240] ships and that's not going to happen
+- [30:04.159] ships it's not going to happen it was
+- [30:07.520] Greenland that in my and it continues to
+- [30:09.760] be that should be controlled by the
+- [30:12.799] United States not by Denmark and when
+- [30:15.039] they wouldn't go along with it and with
+- [30:16.720] all the money we spent to help them with
+- [30:18.480] Russia
+- [30:20.240] >> and we don't have to spend any money we
+- [30:22.240] could remove all of our soldiers out
+- [30:23.840] Europe because as you probably noticed
+- [30:26.720] Europe's a very different place than it
+- [30:29.039] was 20 years ago. A lot different much
+- [30:31.600] different a much different and they
+- [30:33.600] better be careful with immigration and
+- [30:36.720] energy. If they're not careful with
+- [30:38.960] those two things you're not going to
+- [30:40.640] have a Europe anymore.
