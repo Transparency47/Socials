@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-07-08
+
+- Posts: 16
+
+- [05:04 UTC - Truth Social post 116882606801599061](116882606801599061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882606801599061
+  - _No text content captured._
+- [02:48 UTC - BREAKING NEWS: A very fair and highly respected Judge in the Middle District of Florida ju...](116882074981775044/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882074981775044
+  - BREAKING NEWS: A very fair and highly respected Judge in the Middle District of Florida just denied The Failing New York Times’ desperate attempt, together with other defendants we...
+- [02:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116882069375303735](116882070969009876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882070969009876
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116882069375303735
+- [02:47 UTC - Truth Social post 116882069375303735](116882069375303735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882069375303735
+  - _No text content captured._
+- [02:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116882059882536161](116882060967384429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882060967384429
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116882059882536161
+- [02:44 UTC - Truth Social post 116882059882536161](116882059882536161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882059882536161
+  - _No text content captured._
+- [02:43 UTC - Truth Social post 116882056025457135](116882056025457135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882056025457135
+  - _No text content captured._
+- [02:43 UTC - Truth Social post 116882055158930575](116882055158930575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882055158930575
+  - _No text content captured._
+- [02:43 UTC - Truth Social post 116882054761589760](116882054761589760/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882054761589760
+  - _No text content captured._
+- [02:36 UTC - Trump caps sensational 250th celebration with tribute to the glory of American freedom: [h...](116882024734977134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882024734977134
+  - Trump caps sensational 250th celebration with tribute to the glory of American freedom: [https:// justthenews.com/politics-polic y/all-things-trump/trump-caps-sensational-250th-cel...
+- [02:34 UTC - Fed Reserve working paper suggests Biden illegal immigrant wave caused 30% of home price i...](116882020173993794/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882020173993794
+  - Fed Reserve working paper suggests Biden illegal immigrant wave caused 30% of home price increases: [https:// justthenews.com/government/sec urity/fed-reserve-working-paper-suggest...
+- [02:34 UTC - Trump fan or not, economists say Trump accounts are a good deal: [https:// justthenews.com...](116882017802445918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882017802445918
+  - Trump fan or not, economists say Trump accounts are a good deal: [https:// justthenews.com/politics-polic y/all-things-trump/trump-fan-or-not-economists-say-trump-accounts-are-good...
+- [02:33 UTC - Comer blasts Senate Republicans who do not support SAVE America Act: 'Are you that weak?' ...](116882015487927647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882015487927647
+  - Comer blasts Senate Republicans who do not support SAVE America Act: 'Are you that weak?' [https:// justthenews.com/government/con gress/comer-blasts-senate-republicans-who-do-not-...
+- [02:33 UTC - Trump announces Walmart to lower prices for thousands of products at his administration's ...](116882013098841635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882013098841635
+  - Trump announces Walmart to lower prices for thousands of products at his administration's request: [https:// justthenews.com/nation/economy /trump-announces-walmart-lower-prices-th...
+- [02:32 UTC - Federal judge hands Trump big win, directs DHS to restore voter verification features of S...](116882011013561710/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882011013561710
+  - Federal judge hands Trump big win, directs DHS to restore voter verification features of SAVE system: [https:// justthenews.com/government/cou rts-law/federal-judge-directs-dhs-res...
+- [02:31 UTC - Australian alien arrested after investigation finds she illegally voted in two federal ele...](116882008915975445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116882008915975445
+  - Australian alien arrested after investigation finds she illegally voted in two federal elections: [https:// justthenews.com/government/sec urity/australian-alien-arrested-after-inv...
