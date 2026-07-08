@@ -1,7 +1,22 @@
 # TruthSocial / RealDonaldTrump / 2026-07-08
 
-- Posts: 18
+- Posts: 23
 
+- [21:35 UTC - This is in retribution for yesterday’s bombing of ships by Iran. If it happens again, it w...](116886505160658220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886505160658220
+  - This is in retribution for yesterday’s bombing of ships by Iran. If it happens again, it will get much worse!
+- [21:30 UTC - Truth Social post 116886486745054489](116886486745054489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886486745054489
+  - _No text content captured._
+- [21:30 UTC - Truth Social post 116886486675485295](116886486675485295/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886486675485295
+  - _No text content captured._
+- [21:30 UTC - Truth Social post 116886486564673399](116886486564673399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886486564673399
+  - _No text content captured._
+- [21:24 UTC - Signs and Billboards are being put up all over our Southern Border, and Mexico, advertisin...](116886461770041376/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886461770041376
+  - Signs and Billboards are being put up all over our Southern Border, and Mexico, advertising BIRTHRIGHT CITIZENSHIP, with “Deliveries starting at $4000.” Likewise, similar signs goi...
 - [13:33 UTC - President Zelenskyy and I just had a News Conference with the Fake News. It went very well...](116884610837999938/)
   - Source: https://truthsocial.com/@realDonaldTrump/116884610837999938
   - President Zelenskyy and I just had a News Conference with the Fake News. It went very well. Everybody is looking for a solution. Very positive! President DONALD J. TRUMP
