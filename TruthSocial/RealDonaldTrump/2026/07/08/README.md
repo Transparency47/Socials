@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-08
 
-- Posts: 32
+- Posts: 34
 
+- [23:23 UTC - The newly revamped West Wing of the White House, including signage and renovated walls, ma...](116886928331817100/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886928331817100
+  - The newly revamped West Wing of the White House, including signage and renovated walls, maple trees, and plantings! President DONALD J. TRUMP
+- [23:22 UTC - Gavin Newscum's recent Career Threatening Interview where he said he can't read a speech, ...](116886926110208412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116886926110208412
+  - Gavin Newscum's recent Career Threatening Interview where he said he can't read a speech, he was a stupid person, but smarter than the people in the room (RACIST!), has mental inca...
 - [22:16 UTC - We just landed and met up with our new Air Force One, which was sent earlier to RAF Milden...](116886666473252596/)
   - Source: https://truthsocial.com/@realDonaldTrump/116886666473252596
   - We just landed and met up with our new Air Force One, which was sent earlier to RAF Mildenhall, so we could show the wonderful Servicemembers, as per the entire Base’s request. The...
