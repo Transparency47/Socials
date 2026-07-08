@@ -1,0 +1,162 @@
+<!-- source: https://www.youtube.com/watch?v=VUfmxcxY0x4 -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: VUfmxcxY0x4 -->
+<!-- date_published: 2026-07-08T10:15:32+00:00 -->
+<!-- date_accessed: 2026-07-08T13:47:05.551416+00:00 -->
+
+# Transcript: President Trump Participates in a NATO Leaders' Working Session
+
+- [00:10.559] Please take your seats, dear colleagues.
+- [00:15.599] And a warm welcome to this summit. And
+- [00:21.920] without further ado, it is my honor and
+- [00:25.039] pleasure to give the floor to our host,
+- [00:28.080] the President of the Republic of Turkey.
+- [00:32.800] Please, President Eron, you have the
+- [00:34.320] floor.
+- [00:55.039] So,
+- [00:57.360] >> distinguished secretary general,
+- [01:00.320] distinguished heads of state and
+- [01:02.000] government,
+- [01:05.760] on the basis of our decisions that we
+- [01:07.680] have taken in the in the HEG summit,
+- [01:13.920] we have focused on ensuring ing the
+- [01:16.479] European allies to become more sec
+- [01:19.200] better security providers as Turkey
+- [01:21.520] before 2030
+- [01:23.680] we'd like to increase our defense
+- [01:25.439] spending to 3.5%
+- [01:29.920] and we have already taken our measures
+- [01:31.920] to do that
+- [01:35.680] in expenditures in connection with
+- [01:38.320] security and resilience even now we have
+- [01:42.159] reached a budget share of 1.5% % in this
+- [01:46.479] way
+- [01:50.000] as determined
+- [01:52.000] in the H the 5% target we aim to reach
+- [01:56.720] this target 5 years before uh the
+- [02:01.040] determined time but our main success of
+- [02:04.240] our country is with regards to our move
+- [02:07.119] in defense industry with regards to
+- [02:09.200] production and export capacity we rank
+- [02:12.560] among the top 10 countries countries of
+- [02:15.360] the world.
+- [02:17.360] In the alliance, we have been allocated
+- [02:21.040] 361
+- [02:22.560] capability targets and almost all of
+- [02:26.560] them will have been covered uh within 3
+- [02:31.200] years even before the pledged date.
+- [02:35.840] We have allocated an additional budget
+- [02:39.120] of $ 24 billion dollar
+- [02:43.120] to air and missile defense capabilities
+- [02:46.400] whose uh blackness is most felt in our
+- [02:50.400] alliance through our steel dome project.
+- [02:53.440] As the country that has the largest army
+- [02:55.599] in Europe, we are in an effort to
+- [02:59.519] provide our capabilities to the service
+- [03:02.640] of the alliance at every stage that is
+- [03:05.280] needed in Kosova, in Black Sea, in the
+- [03:08.560] Baltic Baltic area and in other
+- [03:10.879] geographies. We are
+- [03:14.959] leading among the allies that contribute
+- [03:17.200] to the operations, missions and
+- [03:18.959] exercises of the alliance. As an ally
+- [03:22.720] that uses the UAVs and armed UAVs
+- [03:26.480] successfully in real battlefields,
+- [03:30.480] we hope to have our
+- [03:35.599] center of excellence for unmanned
+- [03:37.280] systems counter measures uh that we are
+- [03:40.239] foreseeing to establish to be accredited
+- [03:42.640] at NATO. And I believe that this center
+- [03:45.840] will support our response capability
+- [03:48.959] especially against air and marine drone
+- [03:51.680] threats. Distinguished guests,
+- [03:54.799] I would like to especially attract
+- [03:57.840] attention to the following two issues so
+- [04:02.319] that we can reach the NATO 3.0 target as
+- [04:05.840] soon as possible. First of all, starting
+- [04:08.400] with the defense industry,
+- [04:11.360] lifting of restrictions among allies in
+- [04:15.519] defense corporations, starting with the
+- [04:17.919] defense industry.
+- [04:19.840] And I very much welcome the fact that
+- [04:23.520] this message was emphasized by both
+- [04:27.199] industry and government officials at the
+- [04:30.560] defense industry forum. Secondly,
+- [04:34.560] while as
+- [04:36.400] European allies
+- [04:39.360] while
+- [04:41.919] taking on more responsibilities in the
+- [04:44.080] defense of the continent, we need to
+- [04:46.639] refrain from taking decisions and making
+- [04:49.360] actions that may weaken the integrity of
+- [04:52.080] the alliance and transatlantic
+- [04:54.080] relationships. And here I would like to
+- [04:56.479] especially address our allies that are
+- [04:59.280] members of the European Union.
+- [05:03.680] Maximum benefit in the union's efforts
+- [05:06.560] in the field of security can only and
+- [05:09.440] only be possible through refraining from
+- [05:12.880] unnecessary duplications with NATO.
+- [05:17.120] Exclusion of allies that are not members
+- [05:19.840] of the union while a cooperation model
+- [05:22.639] dictated by wisdom and logic is possible
+- [05:26.240] would cause limited resources to be
+- [05:28.720] spent in vain and create an artificial
+- [05:32.479] division in Europe which we do not
+- [05:34.400] desire at all. It is evident that this
+- [05:38.400] attitude does not serve for the purposes
+- [05:41.759] of transatlantic defense industrial base
+- [05:45.039] pointed out by distinguished secretary
+- [05:47.039] general.
+- [05:49.520] Distinguished counterparts
+- [05:52.240] in the Ukraine war. I share President
+- [05:57.360] Trump's vision for peace and I state my
+- [06:02.240] support to prioritize Ukraine
+- [06:04.960] requirements list initiative.
+- [06:08.160] In addition to our military support that
+- [06:10.639] we're providing to Ukraine from our own
+- [06:13.280] national inventory, we will continue our
+- [06:16.560] contribution within the scope of the
+- [06:18.960] Pearl initiative.
+- [06:21.280] While supporting Ukraine, we are also
+- [06:24.240] benefiting from our communication
+- [06:26.960] channels to direct Russia towards peace.
+- [06:33.840] I very much appreciate
+- [06:37.440] the resolute stance demonstrated by my
+- [06:40.880] friend Mr. Trump in ensuring that the
+- [06:45.680] Iranian crisis entered into a trajectory
+- [06:48.319] of settlement despite attempts for
+- [06:50.720] sabotage. In addition to our diplomatic
+- [06:53.600] efforts, we are ready to provide
+- [06:56.160] required contribution to clear the
+- [06:58.319] straight of hormos from mines. And on
+- [07:01.199] this occasion,
+- [07:03.520] I would like to express our thanks
+- [07:07.680] to for the support provided by the NATO
+- [07:11.680] elements against missiles targeting
+- [07:13.680] Turkey starting with United States of
+- [07:16.000] America and Spain and also to Germany
+- [07:18.639] and Italy who have deployed additional
+- [07:21.280] air defense batteries.
+- [07:23.919] I
+- [07:25.919] would like to indicate
+- [07:29.199] uh that
+- [07:31.759] it is very important that our partners
+- [07:34.400] under stumble cooperation initiative
+- [07:37.680] uh whose solidarity that I believe is a
+- [07:41.520] must and I it's very important that they
+- [07:44.000] are here today with us and I once again
+- [07:47.599] emphasize that the key for lasting peace
+- [07:51.039] in the Middle East is a two-state a
+- [07:53.360] solution and I would like to indicate
+- [07:55.520] that we all have duty to ensure peace in
+- [07:58.879] especially Gaza and Lebanon. And
+- [08:00.800] finally, I would like to remind you once
+- [08:03.680] again that we need to be in full
+- [08:05.360] solidarity in fighting against all forms
+- [08:09.120] and manifestations of terrorism. And I
+- [08:11.440] wish the Ankara summit to lead to
+- [08:13.199] auspicious results and I'd like to thank
+- [08:15.360] all who have contributed in the
+- [08:17.039] preparations for the summit. Thank you.

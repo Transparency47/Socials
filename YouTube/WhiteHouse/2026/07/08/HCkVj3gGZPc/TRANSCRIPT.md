@@ -1,0 +1,107 @@
+<!-- source: https://www.youtube.com/watch?v=HCkVj3gGZPc -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: HCkVj3gGZPc -->
+<!-- date_published: 2026-07-08T09:14:29+00:00 -->
+<!-- date_accessed: 2026-07-08T13:47:06.543224+00:00 -->
+
+# Transcript: President Trump Participates in an Official Welcome and NATO Family Photo
+
+- [00:10.000] Morning.
+- [00:25.920] >> His Excellency, Mr. Eddie Rama, Prime
+- [00:29.760] Minister of the Republic of Albania.
+- [00:48.640] His Excellency, Mr. Luis Montenegro,
+- [00:52.160] Prime Minister of the Portuguese
+- [00:54.000] Republic.
+- [01:11.360] His Excellency, Mr. Andre Babis, Prime
+- [01:14.960] Minister of the Czech Republic.
+- [01:34.079] His Excellency, Mr. Peter Pelligerini,
+- [01:37.280] President of the Slovak Republic.
+- [01:56.079] His
+- [01:59.520] Excellency, Mr. Jiannis Yansa, Prime
+- [02:02.799] Minister of the Republic of Slovenia.
+- [02:17.551] >> [clears throat]
+- [02:23.440] >> His Excellency, Mr. U Christen, Prime
+- [02:26.879] Minister of the Kingdom of Sweden.
+- [02:51.280] His Excellency, Mr. Kuryakos Mitzotakis,
+- [02:54.800] Prime Minister of the Hellenic Republic.
+- [03:18.640] His Excellency Mr. Nikico Dan, President
+- [03:22.560] of Romania.
+- [03:42.319] His Excellency, Mr. Carol Nervatzki,
+- [03:45.599] President of the Republic of Poland.
+- [04:10.959] His Excellency, Mr. Gatanas Naeda,
+- [04:14.319] President of the Republic of Lithuania.
+- [04:36.639] His Excellency Mr. Christristen Mihal,
+- [04:39.840] Prime Minister of the Republic of
+- [04:41.600] Estonia.
+- [04:59.759] His Excellency, Mr. Rob Yetton, Prime
+- [05:02.800] Minister of the Kingdom of the
+- [05:04.479] Netherlands.
+- [05:06.543] [snorts]
+- [05:24.320] The right honorable Mark Carney, Prime
+- [05:27.120] Minister of Canada.
+- [05:45.199] So, excellence M.
+- [06:04.184] >> [snorts]
+- [06:12.160] >> Her Excellency Miss Christian
+- [06:14.560] Frostadier, Prime Minister of the
+- [06:17.120] Republic of Iceland.
+- [06:36.800] His Excellency Mr. Yonas Gar Stir, Prime
+- [06:40.800] Minister of the Kingdom of Norway.
+- [06:59.919] His Excellency Mr. Milo Spagich, Prime
+- [07:03.759] Minister of Montenegro.
+- [07:19.280] His Excellency Mr. Peter Maguar, Prime
+- [07:23.039] Minister of Hungary
+- [07:49.680] His Excellency, Mr. Rumman Radf, Prime
+- [07:53.199] Minister of the Republic of Bulgaria.
+- [08:17.520] Her Excellency, Miss Gordana Selanovska
+- [08:20.879] Davova, President of the Republic of
+- [08:23.759] North Macedonia.
+- [08:48.880] His Excellency, Mr. Zoran Milanovich,
+- [08:52.399] President of the Republic of Croatia.
+- [09:13.760] The right honorable Mr. Kier Starmer,
+- [09:17.040] Prime Minister of the United Kingdom of
+- [09:19.279] Great Britain and Northern Ireland.
+- [09:39.600] His Excellency, Mr. Bart Dewaver, Prime
+- [09:43.200] Minister of the Kingdom of Belgium.
+- [10:07.839] His Excellency Mr. Pedro Sanchez,
+- [10:10.880] President of the Government of the
+- [10:12.560] Kingdom of Spain.
+- [10:30.320] His Excellency Mr. Edgars Ringovich,
+- [10:34.399] President of the Republic of Latvia.
+- [10:52.480] Her Excellency, Miss Georgia Maloney,
+- [10:55.680] President of the Council of Ministers of
+- [10:58.000] the Italian Republic.
+- [11:16.880] His Excellency Mr. Friedrich Merittz,
+- [11:19.920] Chancellor of the Federal Republic of
+- [11:21.920] Germany.
+- [11:27.102] [snorts]
+- [11:48.399] Her Excellency Miss Meta Frederickson,
+- [11:51.920] Prime Minister of the Kingdom of
+- [11:54.000] Denmark.
+- [12:15.440] His Excellency, Mr. Alexander Stub,
+- [12:18.959] President of the Republic of Finland.
+- [12:27.519] I see you.
+- [12:30.000] >> Yeah. Yeah. Yeah.
+- [12:44.160] Excellence. Emanuel M, president
+- [12:48.000] Frances.
+- [13:12.959] The Honorable Donald Trump, President of
+- [13:16.240] the United States of America.
+- [13:22.079] I think this is it.
+- [13:34.560] Thank you. Thank you.
+- [14:26.639] I know
+- [14:29.040] nothing's
+- [15:17.120] Okay.
+- [16:05.440] Do you have children?
+- [16:27.360] I know. Thank you.
+- [17:00.000] That's what we
+- [17:21.760] Please do it over
+- [17:27.356] [laughter]
+- [17:29.360] here.
+- [17:38.080] Excellent.
+- [17:48.640] Please send your attention for the
+- [17:50.320] family.
+- [17:58.799] I'm sorry.
+- [18:10.240] >> Thank you very much. Thank you.
+- [18:13.760] >> If I may ask the first to think about
+- [18:16.080] that, please.
+- [18:20.160] Thank you.

@@ -1,0 +1,486 @@
+<!-- source: https://www.youtube.com/watch?v=q9PZAl86Vig -->
+<!-- platform: YouTube -->
+<!-- account: WhiteHouse -->
+<!-- video_id: q9PZAl86Vig -->
+<!-- date_published: 2026-07-08T13:19:03+00:00 -->
+<!-- date_accessed: 2026-07-08T13:47:04.855343+00:00 -->
+
+# Transcript: President Trump Participates in a Greeting with the Secretary General of NATO
+
+- [00:02.159] Thank you very much. We've had uh some
+- [00:04.400] great meetings. We had dinner last night
+- [00:07.359] with President Erdogan and uh I think it
+- [00:11.200] was really I would rate it a 10 maybe a
+- [00:14.080] 12.
+- [00:14.320] >> A bit of a slow bounce.
+- [00:15.440] >> 12.
+- [00:18.240] >> We've had some very good meetings in
+- [00:19.920] particular with Turkey and trade and now
+- [00:23.039] we're meeting with everybody today. As
+- [00:24.720] you know, we're going to have a very big
+- [00:25.920] meeting with lots of leaders. I think
+- [00:28.320] every country, right? other country
+- [00:29.760] showed up country.
+- [00:31.279] >> Yeah.
+- [00:31.679] >> Plus, we have a couple that aren't in
+- [00:33.120] that area that would like to be in
+- [00:34.079] there.
+- [00:35.440] >> But, uh, it's been very successful. It's
+- [00:37.520] been a fantastic meeting. So, I I'll be
+- [00:39.920] having a news conference after we're
+- [00:41.280] finished today about 4:30, 5:00,
+- [00:45.040] and, uh, I assume most of you will
+- [00:47.039] attend, but a lot of things have been
+- [00:49.680] determined, and some things haven't,
+- [00:51.200] frankly. We, uh, attacked very
+- [00:54.640] powerfully last night. the very
+- [00:59.280] uh dangerous
+- [01:01.520] people from Iran. They're sick. There's
+- [01:04.000] something wrong with them. We said, "Go
+- [01:06.400] and do your funeral stuff." And instead
+- [01:09.600] of that, they start shooting rockets at
+- [01:12.320] chips yesterday. And so we hit them very
+- [01:15.200] hard last night. Very hard. I would say
+- [01:18.159] 20 to one. 20 tougher. They told them
+- [01:22.479] every time you hit, we hit. And of
+- [01:24.720] course, they're dirty players. They they
+- [01:27.360] go after everyone probably including me.
+- [01:29.520] I I've been number one on their list for
+- [01:31.200] years and they're a bunch of scum. You
+- [01:33.759] want to know that they're they're scum
+- [01:36.320] and uh so we don't like them. I don't
+- [01:39.840] like them and they're evil people and
+- [01:42.320] it's the dnuclearization of Iran and
+- [01:45.920] we're going to dnuke it. We're not going
+- [01:48.399] to let them because they're crazy and
+- [01:50.399] they can't have a nuclear weapon. And
+- [01:52.960] they go around killing people. They've
+- [01:54.479] killed thousands and thousands of our
+- [01:56.479] soldiers. They've killed hundreds of
+- [01:58.880] thousands of innocent people. They had
+- [02:01.439] the roadside bomb Solomaini. I took care
+- [02:04.320] of him first term and that was a big
+- [02:07.439] thing because I think he probably would
+- [02:09.119] be a lot stronger had he been around
+- [02:10.879] because he was a bad guy, but he was a
+- [02:13.920] he was an evil genius but a bad guy. And
+- [02:17.440] he was the father of the roadside bomb.
+- [02:19.360] The roadside bomb is a bomb that goes on
+- [02:21.280] when you're driving your little vehicle
+- [02:22.720] around and it goes on and you have no
+- [02:24.239] legs, no arms, and no face. And they've
+- [02:27.760] killed thousands and thousands of
+- [02:29.599] people. Even the SS call was theirs. You
+- [02:33.680] remember that disaster. So, uh, I don't
+- [02:38.000] like them at all. And, uh, frankly, I
+- [02:42.080] think we waste a lot of time with them.
+- [02:43.680] I think we should I think we should just
+- [02:45.760] do our business. Can you imagine? They
+- [02:48.640] start shooting bombs actually missiles
+- [02:51.280] and ships yesterday. Saudi Arabia,
+- [02:54.480] Kuwait, couple of others. Uh,
+- [02:58.879] and they don't I don't think they I
+- [03:01.519] don't think they know what the hell
+- [03:02.640] they're doing, but they're bad people.
+- [03:04.080] Very bad people. I think they're
+- [03:05.280] incompetent,
+- [03:06.879] by the way, because if they were
+- [03:08.800] competent, they would have made a deal a
+- [03:10.159] long time ago. Like, how about 47 years
+- [03:12.560] ago? So, they've been troubled for 47
+- [03:15.120] years and they're uh we took out their
+- [03:18.800] first set of leaders. We took out their
+- [03:20.800] second set of leaders. They want to take
+- [03:22.959] out the US leader, me, I'm on every
+- [03:26.319] list. I saw think this morning I'm on
+- [03:28.720] every single one of their lists. And so
+- [03:31.599] far, I guess I've been lucky, but that
+- [03:34.319] maybe doesn't last very long because uh
+- [03:37.840] it's the way it goes. But we have great
+- [03:39.519] people, but these are evil, sick people.
+- [03:41.920] And we have to rid their cancer. They're
+- [03:44.640] cancer. And you know what you do? You
+- [03:45.840] got to cut out cancer early. And that's
+- [03:48.879] the way I feel. And I want to thank
+- [03:52.080] Mark. He's been a great secretary
+- [03:54.239] general of NATO. I'm not happy with NATO
+- [03:56.799] because of what they did with Greenland.
+- [03:58.799] And I'm not happy with NATO because of
+- [04:00.560] the fact that they didn't want to help
+- [04:02.640] us with the number one state sponsor of
+- [04:05.439] terror. That's Iran. They were unwilling
+- [04:07.599] to help us. Now, in all fairness, I
+- [04:09.040] didn't speak to Mark about it. I think
+- [04:10.239] if I did, it might have been different,
+- [04:11.519] but we didn't need help, but I was
+- [04:14.319] really testing. I wanted to see whether
+- [04:15.680] or not they'd be there. And the answer
+- [04:16.959] is they were I spoke to Germany, I spoke
+- [04:18.880] to France, spoke to UK,
+- [04:23.520] spoke to Italy, I spoke to I didn't
+- [04:25.600] speak to Spain. Spain is a wasted cause.
+- [04:28.479] We don't want to do any trade business
+- [04:29.840] with Spain anymore, by the way. I'd like
+- [04:31.199] you to cut it out. Spain Spain is a a
+- [04:34.639] terrible partner in NATO. Uh they don't
+- [04:38.080] participate. They don't pay. Uh I don't
+- [04:41.280] want anything to do with Spain. Cut off
+- [04:42.960] all trade with Spain, please.
+- [04:45.600] Including visits. Okay. We don't want
+- [04:48.240] anything to do. Watch them. Watch them
+- [04:49.919] come running back. All they'll come
+- [04:52.080] running back. They treat this man
+- [04:53.840] terribly.
+- [04:55.360] And this man's a good man, too. Great
+- [04:57.199] man. They're lucky they have him. But
+- [05:00.000] Spain doesn't agree to anything. And you
+- [05:03.360] shouldn't carry him. I mean, you sort of
+- [05:04.880] automatically carry because you you're
+- [05:06.639] protecting an area, so they're there.
+- [05:08.479] So, they probably figured they have to
+- [05:10.080] protect us, right? But we don't have to
+- [05:12.720] or we don't have to trade with them. I
+- [05:13.919] don't want to do any more trade with
+- [05:15.039] them. All right? Take it immediately.
+- [05:17.280] You don't even talk to them. They're
+- [05:18.800] they're hopeless. Bad people because,
+- [05:21.759] you know, they they have everybody else
+- [05:23.520] going and paying and working in Spain,
+- [05:26.160] in particular Spain. There a couple of
+- [05:27.759] others, but in particular Spain, they're
+- [05:30.080] open about it. They're hostile about it.
+- [05:32.800] And uh let's see how hustle they remain
+- [05:35.600] when they call up and they please please
+- [05:38.080] we want to trade with you sir. We want
+- [05:39.680] to trade with you sir. They make so much
+- [05:42.560] money with us and we're going to see
+- [05:44.000] that they make a lot less. I want no
+- [05:46.320] business with them. So uh
+- [05:50.560] other than that we're having the big
+- [05:52.240] meeting in a little while and I'm going
+- [05:53.600] to I'm going to relate my my problems.
+- [05:56.560] Greenland is a big problem for us. And
+- [05:59.039] the other big problem is the fact that
+- [06:01.120] when we wanted them, we didn't want them
+- [06:03.680] badly, but we did say if you want to
+- [06:05.199] join us and they all said no. But when
+- [06:08.000] they could have, they weren't there for
+- [06:09.360] us. And we've been there for them. We
+- [06:11.520] spent over a trillion dollars over the
+- [06:13.600] last short period of trillion in order
+- [06:16.240] to protect these countries from Russia
+- [06:19.280] and has nothing to do do with us. would
+- [06:21.919] have an ocean, but it's been a long-term
+- [06:24.240] thing. And they haven't treated us
+- [06:25.520] right. And Mark understands it. He
+- [06:28.479] understands it. And uh we're going to
+- [06:31.600] work something out, I think, one way or
+- [06:33.039] the other. But we've been treated
+- [06:34.960] unfairly. We pay disproportionately. We
+- [06:37.440] we had a time when we were paying 100%.
+- [06:39.520] We were paying 100% of NATO, and yet a
+- [06:42.160] lot of the countries weren't paying
+- [06:43.440] anything. But there was a
+- [06:47.280] calls made a few weeks ago. Well, I
+- [06:49.199] spoke with the UK and the prime minister
+- [06:51.919] said, "Well, we don't want to help you
+- [06:53.680] now, but we'll help you when the war is
+- [06:55.039] over." I said, "That's not good." And
+- [06:58.160] likewise, I spoke to Germany, they
+- [06:59.759] didn't want to help. Spoke to France,
+- [07:01.440] didn't want to help. Nobody wanted to
+- [07:02.720] help. Some of the very small countries
+- [07:05.599] wanted to help because they're the most
+- [07:06.960] vulnerable. I knew that that's the only
+- [07:08.479] reason they wanted to help. So, so I
+- [07:10.639] appreciate you being here. We're going
+- [07:12.000] to be going back together, many of us
+- [07:13.599] together. And uh again, I want to I want
+- [07:16.720] to say despite the fact that I'm very
+- [07:18.960] upset with NATO uh that we pay far far
+- [07:22.560] too much, billions and billions of
+- [07:25.680] dollars too much because it's unfair
+- [07:28.240] because we're protecting them. So we
+- [07:30.319] protect them, but they're not there for
+- [07:31.680] us. Think of it. Doesn't work. But I
+- [07:34.080] want to say this is a great leader.
+- [07:35.599] They're lucky they have him. It's a very
+- [07:38.639] it's it's their biggest asset. You want
+- [07:40.960] to know the truth? So Mark, would you
+- [07:43.120] say a few words?
+- [07:43.840] >> Absolutely. Thank you so much, Mr.
+- [07:45.680] President. Dear Donald, let me start
+- [07:47.520] with well, we discussed this last night
+- [07:49.919] at the presidential palace. Um, I think
+- [07:53.360] what you did um degrading the nuclear
+- [07:56.560] capability crucial for Israel, the
+- [07:58.479] region, for Europe, degrading the
+- [08:00.800] ballistic missile capability of Iran,
+- [08:02.800] crucial for Israel, for the region, for
+- [08:04.720] you, for the whole world. Um, and then
+- [08:07.199] trying to bring this to a peaceful end.
+- [08:09.759] They attacking ships yesterday. I think
+- [08:11.440] what you did last night was absolutely
+- [08:13.360] necessary. It was a very strong
+- [08:15.360] response. Um and um I'm with you on
+- [08:19.360] this. It's it's it's really important
+- [08:20.960] when it comes to when it comes to NATO
+- [08:24.160] um what you have achieved and this is a
+- [08:27.120] huge win and I just want to say this
+- [08:28.639] again. the last two years, Canada and
+- [08:31.360] European NATO nations spending $250
+- [08:34.000] billion dollars more in 2024 and 20 2025
+- [08:38.240] to 2026 compared to 2024. This is st
+- [08:42.000] staggering 258 billion. In the meantime
+- [08:45.440] almost 200,000 jobs in the US being
+- [08:48.000] supported by all the investments by
+- [08:50.640] countries in the United States in a
+- [08:52.240] defense industrial base buying from the
+- [08:53.760] defense industry base from the US
+- [08:55.680] companies. So here you see there is a
+- [08:58.080] you have been able to really get them to
+- [09:00.000] step up to do this. And when it comes to
+- [09:02.240] Iran, I know you are disappointed today.
+- [09:04.640] We discussed it a couple of weeks ago. I
+- [09:07.040] would say these are isolated cases.
+- [09:08.959] 5,000 planes taking off from European
+- [09:11.920] airports uh in support of Epic Fury. It
+- [09:14.880] was Europe as one big uh platform of
+- [09:18.880] power production for the United States
+- [09:20.880] helping with epic fury including
+- [09:22.959] countries you mentioned Germany from day
+- [09:24.640] one, France um and many others. We
+- [09:28.000] discussed the Bucharest airport which
+- [09:29.680] was closed for a couple of days for
+- [09:31.440] commercial traffic because they you
+- [09:33.279] needed it for epic fuel and the
+- [09:35.200] >> United Kingdom wouldn't let us use the
+- [09:36.800] island for two weeks so we had to fly
+- [09:38.240] back. No, no, so I'm saying you're
+- [09:39.519] right. There are high
+- [09:40.880] >> Italy was very bad having to do with
+- [09:42.399] their bases as you know and a couple of
+- [09:44.560] others. So it
+- [09:45.839] >> but still generally 5,000 is huge and
+- [09:48.480] and and you mentioned Spain even you got
+- [09:50.720] Spain to pay 2%. They spent they made a
+- [09:54.160] huge step in last year. So there are
+- [09:55.920] still issues we have to solve but hey
+- [09:57.600] also even on Spain I would say they got
+- [09:59.120] to the 2%.
+- [10:00.800] uh and and I know you have very strong
+- [10:02.640] relationship with the United Kingdom the
+- [10:04.560] king but also you personally always with
+- [10:07.279] Karma who is now leaving office he has
+- [10:09.839] now also committed to spend another 20
+- [10:11.839] billion extra 15 billion pounds on
+- [10:14.240] defense so I would argue without you in
+- [10:16.560] this chair this would not have happened
+- [10:18.880] it is of course because of Russia but
+- [10:21.040] also because of you so drag to win it's
+- [10:23.680] there you did this it was the hake and
+- [10:25.680] now they are implementing and on
+- [10:27.279] agreement you and I made a deal in Davos
+- [10:29.279] I
+- [10:30.160] make sure that that deal is step by step
+- [10:33.120] being implemented that you can deploy if
+- [10:35.839] you want the Golden Dome on agreement.
+- [10:37.440] You have your trilateral talks. Mark was
+- [10:39.519] leading them from your side with the
+- [10:41.200] Greenlanders and the Dan and it comes to
+- [10:43.279] if they will change their constitutional
+- [10:44.720] position in the kingdom and so but hey
+- [10:46.880] >> I mean just so they understand Greenland
+- [10:48.320] is very important for the United States
+- [10:49.760] but it's not important for Denmark. In
+- [10:52.240] fact, when Denmark was overrun by the
+- [10:54.480] Nazis in less than one day, Hitler beat
+- [10:58.000] them out in one day, took over, they
+- [11:00.720] asked us to take care of Greenland. In
+- [11:03.040] fact, we took Greenland and then
+- [11:05.360] stupidly we gave it back. We shouldn't
+- [11:06.959] have given it back to them because we're
+- [11:08.560] the ones that need it. We need it for
+- [11:10.000] protection of the world, not just the
+- [11:12.720] United States. And it's very important.
+- [11:14.560] It doesn't help Denmark, but it helps
+- [11:16.160] us. And it's very important for us. And
+- [11:19.279] again, they were defeated very quickly.
+- [11:21.760] Denmark was beaten in one day, less than
+- [11:23.680] one day by the Nazis, by Hitler. And
+- [11:27.279] when this happened, they immediately
+- [11:29.519] switched it over to us. We owned it. We
+- [11:31.279] had it. We were taking care of it. And
+- [11:33.440] then we gave it back, which is I don't
+- [11:34.959] know why I wouldn't have I wouldn't have
+- [11:36.959] given the Panama Canal back either, you
+- [11:38.800] know. So, what do I know? I certainly
+- [11:40.640] wouldn't have done that because China's
+- [11:42.079] trying to take over the Panama Canal and
+- [11:43.760] that's not going to happen. So, uh, but
+- [11:47.040] I just, you know, it's it's interesting.
+- [11:48.560] I'm very unhappy with NATO and yet this
+- [11:50.480] man is a great leader and he gets it. He
+- [11:53.760] gets it gets it maybe better than some
+- [11:55.600] of the leaders.
+- [11:56.240] >> Also that your allies get things to you
+- [11:58.240] and that is important. I could not do
+- [11:59.839] this without you.
+- [12:00.560] >> It's too bad Biden didn't do it or
+- [12:02.320] Obama.
+- [12:02.880] >> Hey, but you were here now and you enter
+- [12:04.959] 45 and 47. In total, more than$1.2
+- [12:08.160] trillion dollar. I call this a drum
+- [12:10.639] trillion.
+- [12:12.480] those tax husband by Canada and and
+- [12:14.800] >> I'm not only blaming NATO they're
+- [12:16.639] getting a they got a free ride and if
+- [12:19.519] Biden had any brain which he didn't he
+- [12:22.079] would have said you got to pay more and
+- [12:24.160] same with Obama
+- [12:26.240] >> two bad presidents
+- [12:27.839] >> but they could have asked and he would
+- [12:29.040] have done that too it would have been I
+- [12:30.480] mean who knows who knows if they would
+- [12:32.480] have and
+- [12:34.320] >> it should have happened years ago and it
+- [12:36.639] couldn't but Obama didn't do it
+- [12:38.800] >> and Biden didn't do it and frankly Bush
+- [12:40.560] didn't do it either But you did what
+- [12:42.399] Eisenhower started trying to do.
+- [12:44.000] Equalizing Eisenhower.
+- [12:46.320] >> And all the other presidents, none of
+- [12:47.760] them were successful. You're the first
+- [12:49.600] one. It's your win. Your win in the
+- [12:51.760] >> That's why I like him.
+- [12:52.560] >> And the win.
+- [12:53.519] >> That's [laughter] why.
+- [12:54.160] >> This is true. Without you, this would
+- [12:56.160] not have happened.
+- [12:57.760] >> Do you have any questions,
+- [12:58.720] >> MR. PRESIDENT? ON IRAN, IS [laughter]
+- [13:00.240] THE CEASEFIRE OVER? Is is the ceasefire
+- [13:02.320] done? Is theou dead?
+- [13:05.440] >> It's a very interesting question. To me,
+- [13:09.440] I think it's over. I don't want to deal
+- [13:11.760] with them anymore. They're scum. You
+- [13:13.200] know what scum is? They're scum. They're
+- [13:15.360] sick people. They're led by sick people
+- [13:18.560] and they're vicious, violent people. And
+- [13:21.839] if they had a nuclear weapon, they'd use
+- [13:23.600] it. As far as I'm concerned, it's over.
+- [13:25.839] I'll speak to our negotiators. They want
+- [13:28.079] to negotiate. They're good people. Steve
+- [13:30.399] Woodoff, Jared Kushner, but they have to
+- [13:33.200] come back to me. As far as I'm
+- [13:35.040] concerned, it's just a waste of time
+- [13:36.800] dealing with them. They're liars. We
+- [13:39.279] make a deal. And they if I make a deal
+- [13:41.839] with him, we have a deal. And he goes
+- [13:43.360] out, he talks. We make a deal.
+- [13:45.200] Everyone's agreed. No nuclear weapon. We
+- [13:48.160] make a deal. They go outside, talk to
+- [13:49.760] the press, they say, "We never even
+- [13:51.040] talked about it. There's something wrong
+- [13:52.959] with them. They're cuckoo.
+- [13:56.000] >> As far as I'm concerned, it's over."
+- [13:58.320] >> So, are we back at
+- [14:00.560] resume after uh after we get through the
+- [14:02.880] funeral proceedings? What
+- [14:04.240] >> are does this mean that talks with Iran
+- [14:06.240] will not resume?
+- [14:07.120] >> I don't care. They can talk, but I think
+- [14:08.959] they're wasting their time. They're a
+- [14:10.240] bunch of lying guys. I do my whole life.
+- [14:12.800] That's all I do is deals. My whole life
+- [14:14.560] is that's how I became president. I
+- [14:16.160] guess that's a deal, too, right? But I I
+- [14:18.720] made a lot of money. I had a lot of
+- [14:20.160] great success. Tremendous success.
+- [14:22.880] Everything I did, I was successful. And
+- [14:25.040] I deal with these guys and I say, "This
+- [14:26.560] is from a different school. They're
+- [14:29.279] liars. They're cheats. They're [snorts]
+- [14:31.920] sick people. They've hurt their people.
+- [14:34.240] They killed 54,000 people as of now that
+- [14:37.680] were protesting. You know, when people
+- [14:39.839] say, "How come they haven't taken over?
+- [14:41.440] They can't take over because they're
+- [14:43.279] dead. They killed them. Nobody's going
+- [14:45.600] to take over. They have no guns and the
+- [14:47.279] other side has machine guns and they're
+- [14:49.920] killing them. The press doesn't report
+- [14:51.440] it." But they're bad people. They're bad
+- [14:54.480] people. And uh frankly, I don't want to
+- [14:58.560] waste my time with it. Now, I'll let our
+- [15:02.000] wonderful negotiators keep talking if
+- [15:03.920] they want, but I don't see it. Uh, I
+- [15:06.399] don't like these people. You know that I
+- [15:08.160] like him. I like the leaders. I like I
+- [15:10.079] think all of these leaders and they love
+- [15:12.480] >> I think they didn't treat the United
+- [15:14.880] States fairly for many years, but that's
+- [15:16.880] okay. But, but they're sane, rational,
+- [15:20.000] good people. Most of them. I don't like
+- [15:21.680] a couple of them to be honest, but there
+- [15:23.839] a couple I don't like much. But I like I
+- [15:26.639] like Erdogan. I'll tell you, I like
+- [15:28.560] President Erdogan. He rolled out the red
+- [15:31.199] carpet. He's terrific. You know, he
+- [15:32.639] could have gone into a lot of people
+- [15:34.000] saying like with BB, I like BB. I think
+- [15:36.720] BB was a terrific wartime prime
+- [15:39.440] minister. But BB said rough things
+- [15:42.160] yesterday about Turkey and everyone and
+- [15:44.079] I said, you know, I spoke to him. I said
+- [15:46.959] he could have gone into the war cuz he
+- [15:48.639] doesn't like Israel much and he doesn't
+- [15:50.639] like me very much and he didn't go
+- [15:53.040] because of me and this is a military
+- [15:56.240] power.
+- [15:57.839] Millions of soldiers. Turkey is very
+- [16:00.240] strong. They have a lot of our best
+- [16:01.600] equipment. They're trying to get the
+- [16:03.120] F-35s.
+- [16:04.959] But he didn't go in. He wanted He would
+- [16:06.800] go in. If it weren't for me, he would
+- [16:08.880] have gone in. And he would have been on
+- [16:11.040] the other side. even though I don't
+- [16:13.040] think he likes the other side either
+- [16:15.120] because he happens to be very sane and
+- [16:16.959] they happen to be very crazy but so I
+- [16:19.120] think you know they treated us right I
+- [16:20.880] think China treated us right I was with
+- [16:24.480] President Xi and I said I hope you're
+- [16:26.160] not going to go into the war because we
+- [16:28.160] don't want that you know he gets 50% of
+- [16:30.240] his oil from the street of Harmos and he
+- [16:34.000] gets more than 50% and he never went
+- [16:36.880] into the war he didn't supply him
+- [16:38.320] equipment you know
+- [16:39.440] >> he was great big fan of President Gee, a
+- [16:43.040] lot of people say, "Oh, why?" You know,
+- [16:44.800] I I watched a couple of people critical
+- [16:46.800] of the fact that Tik Tok, Tik Tok is so
+- [16:49.440] bad. It's so dangerous. It's so
+- [16:50.880] horrible. They're spreading all these
+- [16:52.079] rumors. And the numbers came out
+- [16:54.079] yesterday. You know who's number one on
+- [16:55.440] Tic Tac? I am. I'm number one on Tik
+- [16:57.759] Tok. And all I talk about is how bad
+- [17:00.000] communism is, right? They say, "Oh, it's
+- [17:02.639] terrible. They're spreading." But I'm
+- [17:04.079] number one. That I listen to Gordon
+- [17:06.880] Chang. I like Gordon Chang, but he's
+- [17:08.400] always like negative. Oh, China's so
+- [17:10.000] terrible. They're so terrible. And Tik
+- [17:12.000] Tok is so terrible, but I'm number one
+- [17:14.720] on Tik Tok. I had like four billion
+- [17:17.199] views or something like that. So, I
+- [17:20.000] don't know. People have to get their
+- [17:21.360] priorities priorities straight. Uh we
+- [17:25.120] have had a really good day. We're going
+- [17:28.240] to have another good half a day and then
+- [17:30.799] I'll see you later and we'll talk to
+- [17:32.559] you. Thank you very much. Thank you.
+- [17:35.200] Bless thee.

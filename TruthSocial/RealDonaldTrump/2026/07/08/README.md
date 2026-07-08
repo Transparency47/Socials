@@ -1,7 +1,13 @@
 # TruthSocial / RealDonaldTrump / 2026-07-08
 
-- Posts: 16
+- Posts: 18
 
+- [13:33 UTC - President Zelenskyy and I just had a News Conference with the Fake News. It went very well...](116884610837999938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116884610837999938
+  - President Zelenskyy and I just had a News Conference with the Fake News. It went very well. Everybody is looking for a solution. Very positive! President DONALD J. TRUMP
+- [12:42 UTC - To honor our brave men and women of the Military, we are sending the brand new, and truly ...](116884409163416775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116884409163416775
+  - To honor our brave men and women of the Military, we are sending the brand new, and truly spectacular, Air Force One to Mildenhall Air Force Base, in the United Kingdom, to give th...
 - [05:04 UTC - Truth Social post 116882606801599061](116882606801599061/)
   - Source: https://truthsocial.com/@realDonaldTrump/116882606801599061
   - _No text content captured._
